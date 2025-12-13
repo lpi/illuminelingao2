@@ -1,0 +1,65 @@
+# Chapter 110 - Military Sports
+
+Xi Yazhou's cadre training class targeted the militia team. The militia could not only be used as an armed force but also serve as a reserve for grassroots cadres after sufficient education and training—modern China's grassroots rural cadres mostly came from veterans. This approach had proven effective.
+
+Currently, the tasks in Salt Field Village were becoming increasingly heavy—seeing the big iron ship delivering grain and cloth, and a group of people with firearms arriving, the salt workers felt more secure, and those who had fled outside gradually returned. The common people needed relief, supplies had to be distributed, production had to be organized and expanded, and they also had to guard against people fishing in troubled waters. All of this urgently required a large number of grassroots staff.
+
+Xi Yazhou positioned this training institute not only as a literacy class or a militia training camp but also as a basic cadre training class.
+
+In his vision, the current scale of the militia team was not enough. There were more than two hundred able-bodied men in the entire Salt Field Village currently. It was entirely possible to achieve "everyone a soldier," preparing enough cadre resources for the future great development of the transmigrators. Taking into account daily labor and militia training, Xi Yazhou decided to adopt a militia system tested by practice, that is, a small number of core militia and ordinary militia. The former would be elite and undertake some standing tasks, while the latter would serve as supplementary forces during mobilization.
+
+However, he knew that using the army's training methods from the start wouldn't work—the salt workers' minds were very simple, but precisely because of their simplicity, they would hold a skeptical attitude towards things they didn't understand. Formations, commands, and discipline, these basic elements of a modern army, were strange to them. Rashly implementing them might not yield good results. In addition, almost 100% of them were illiterate—being illiterate as a soldier in this time and space wasn't a big problem, but being illiterate was unsuitable for future grassroots cadres.
+
+Xi Yazhou's entry point started with combat techniques that young men were interested in. However, he wasn't very good at this. Fortunately, there were all kinds of people among the transmigrators, with a wide variety of skills. The first person Xi Yazhou thought of was Bei Wei. He was a scout by background, and grappling and combat were a piece of cake for him; then there was Li Jun, who used to be an armed police officer and served in the riot squad, so his riot control skills must be excellent. So these two people were urgently borrowed to the Maniao Base.
+
+As soon as Bei Wei showed his combat skills, he stunned these salt workers. Without any fancy moves, he subdued people cleanly with a few strikes—Tan Chengqing knew that if those strikes hit in real combat, one would suffer internal injuries if not die. He had never seen such martial arts before.
+
+As for Li Jun's moves, they were completely different. His attacks were fierce, but the moves were not lethal, only seeking to capture and subdue the enemy. He also showed a special skill: when more than ten young men surrounded and attacked him with sticks, he used only a short wooden stick and a rattan shield to scatter everyone with a few charges, knocking down several people in succession.
+
+These two distinct fighting techniques aroused great interest among the salt workers. Immediately, many people wanted to take Bei Wei as their master. Bei Wei and Li Jun thus became the head and deputy instructors of the Salt Field Village Militia Team. So every evening, dozens of young men could be seen fighting in pairs, with shouts filling the sky.
+
+With the deepening of combat skill education, Xi Yazhou discussed with them to gradually introduce them to formation combat skill training. To enhance their concept, one day Xi Yazhou proposed a confrontation between the work team and the militia. Neither side would use firearms, only simulated combat with cold weapons. Tan Chengqing pointed out that no one was a match for the two instructors now, so Bei Wei and Li Jun could not participate. Xi Yazhou agreed readily, so both sides agreed on twenty against twenty.
+
+To ensure safety, the Bopu Wood Factory transported new products: full-body protective rattan armor for bayonet practice. The transmigrators' side used standard bayonet practice rifles. Some militia removed the spearheads from their long spears and wrapped the tips, but most disliked using such long weapons, feeling unable to wield them freely, and switched to rattan shields and wooden sticks.
+
+The rules were simple: fight within a 100m*100m range. Each side had a flag bearer. Capturing the opponent's flag or driving two-thirds of the opponent's personnel out of the field would be a victory.
+
+The transmigrators did not set up any special formation. Twenty people were too few, so they simply formed two rows, front and back, with ten people in each row. The militia had no formation, gathering in a messy pile.
+
+As soon as the signal was given, led by Tan Chengqing, the militia swarmed up, heading straight for the front of the work team. They had received some combat skill training these days, and some found weapons troublesome, simply going into battle bare-handed, preparing for a martial arts performance.
+
+The militia's charge was shattered against the immovable human wall. Following the command, the first row of transmigrators took a half step back. When the militia rushed in front of them, a neat thrust followed. The militia at the very front, carried by the momentum, were knocked staggering by this fierce blow. People colliding front and back caused many to fall in chaos. However, the impact of the crowd also knocked several transmigrators down, but their vacancies were quickly filled by people in the back row, and those who fell got up quickly to take positions in the back row.
+
+Seeing no advantage in the frontal charge but causing chaos instead, Tan Chengqing led a few people to charge from the flank. The rear row of transmigrators immediately separated to both sides, guarding the left and right flanks. A thrust blocked those attempting to outflank. Xi Yazhou saw that the militia team had no formation to speak of, simply not even up to the level of street fighting. People in the back pushed those in the front, and everyone waved their weapons wildly. Not only did they miss the transmigrators, but they also constantly hit their own people around them.
+
+Seeing the militia running around like headless flies in chaos, the work team's line only fluctuated slightly when charged at the beginning. Now seeing their continuous volley thrusts, they looked somewhat unstoppable.
+
+"With such a dense formation, one brick could smash several heads." Bei Wei said.
+
+"If the salt workers had that capability, this formation would have been broken long ago." Xi Yazhou studied the entire scene. The transmigrators' formation remained stable, and the thrusting movements with practice rifles were relatively skilled—after all, they had practiced for months. In contrast, the militia had neither formation nor discipline. Apart from leading a few people around him to make a flanking detour by example in the chaos, all of Tan Chengqing's commands were drowned in the confusion. The result was that from beginning to end, he fought alone on the front line, gaining nothing except receiving countless thrusts and butt strokes on his protective gear.
+
+Within five minutes, the situation completely reversed. The militia team, full of confidence just now, was utterly defeated. The work team cleared the way with bayonets and captured the flag in one go.
+
+Although this victory was no suspense for Bei Wei and Xi Yazhou, seeing this team mainly composed of otakus achieve such results just by training physical fitness and formation for more than half a year before the crossing, the leaders of the military group had full confidence in the combat effectiveness of the future army.
+
+Of course, the transmigrators' physical advantage was also a major factor in the victory. The participating members were all over 170cm tall with an average weight of 60kg. The advantage against the militia, with an average height of less than 160cm and weight less than 50kg, was very obvious. Besides, this group of otakus underwent long-term physical training before the crossing, and engaged in physical labor continuously after D-Day, greatly improving their strength and endurance.
+
+This exercise enhanced the militia's regard for discipline and formation. Xi Yazhou also successfully arranged formation training. No one questioned the meaning of looking forward, looking back, turning left, turning right, and marching in step anymore—facts were more effective than all big principles.
+
+Of course, training formation also encountered many troubles. The biggest problem was not distinguishing left from right. Just teaching them which hand was left and which was right took a lot of effort from Bei Wei and Li Jun. They used countless intuitive teaching methods like wearing a straw sandal on the left foot and going barefoot on the right foot. Just correcting this every day consumed a lot of time.
+
+Army formation training can shape the unique temperament of soldiers and establish a mighty soldier image. Recruit training starts with formation training because it is the only way for ordinary people to transform into qualified soldiers. Strict formation training can help people develop good soldier posture and shape soldier temperament. The high intensity and high standards of formation training and the strict requirements of formation life can cultivate soldiers' spirit of fearing neither hardship nor sacrifice, forming a mighty, firm, heroic, and tenacious soldier temperament. It improves soldiers' awareness of obedience and enhances the concept of organizational discipline. The enemies the transmigrators would face in the future all possessed powerful cavalry. To restrain cavalry with infantry in face-to-face combat, the army they cultivated single-handedly must possess the strongest fighting will, high organization, and discipline.
+
+How to train and organize the future regular army had to be explored and inquired from this militia team of only sixty people.
+
+Seeing that formation training was also implemented, Xi Yazhou started a football team again. Everyone began practicing ball every evening, dividing the sixty-man militia team into six groups for a round-robin tournament. A cycle was completed every three days, and the winner could receive a reward. Through the games, he gradually introduced various rules and regulations of football from another time and space, teaching them various techniques and tactics in football, thereby cultivating the team members' team awareness and discipline awareness.
+
+For farmers lacking entertainment, this fresh sport was very attractive and soon became popular in the village. Especially children; within a few days, children could be seen everywhere chasing inflated pig bladders. The competitive and confrontational nature of ball sports was extremely attractive.
+
+When they found that to win in the competition, they must enhance physical training, without too much urging, the militia team actively imitated the work team people and started daily long-distance running exercises.
+
+However, Xi Yazhou felt that football made of various substitutes was not very easy to use, so he introduced rugby to the militia team. Compared to football, rugby confrontation is more intense, players are often in direct physical collision, and the game is intense and exciting. Moreover, rugby has a fast rhythm, and time management must be very accurate. Xi Yazhou also intended to use the game to introduce the concept of precise time to them.
+
+The young lads of the militia team immediately fell in love with this sport. The result was that Xi Yazhou had to request the Bopu Wood Processing Factory again to manufacture special protective gear for rugby. The rugby match every weekend afternoon became a fixed program in Salt Field Village. The militia team leveled the land outside the village themselves, compacted the ground, and built stands with timber—the lads soon found that many big girls and young wives came to watch during the matches, making eyes at them. This stimulation from the opposite sex greatly increased their hormone secretion, making the matches even more intense and brave. Before long, a young lad named Lin Fu became the idol of the boys and girls in Salt Field Village. He scored touchdowns single-handedly many times in eleven matches. The concept of a sports star thus effortlessly drilled into this time and space from the back door.
+
+The sports initiated by Xi Yazhou were initially just to train the army. He himself didn't expect that this future Major League Rugby would become famous under the name "Salt Field Cup."
