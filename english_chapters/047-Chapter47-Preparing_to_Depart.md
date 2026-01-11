@@ -1,98 +1,120 @@
-# Chapter 47 - Preparing to Depart
+# Chapter 47: Preparing to Depart
 
-Chapter 47 Preparing to Depart
+The moon grew gradually rounder, and headquarters' work broke from its routine rhythm. The entire organization shifted into high gear.
 
-(Wait, the timeline seems to jump back or focus on the *main* departure from modern times? Let me check the context of Chapter 47 in the original list.
-Ah, Chapters 41-49 seem to be the actual main crossing event. My previous chapters (41-43) already described the "Temporarily Goodbye" and "Newly Arrived".
-Let me re-read the original Chapter 47 text to ensure accuracy.
-Original Chapter 47: "准备出发".
-Content: People gathering at the base, final checks, emotional goodbyes to the old world.
-Actually, my previous translation of Chapter 41 "Temporarily Saying Goodbye" covered the *preparation* to leave.
-Chapter 47 is specifically about the *final* departure preparations.
-I will translate Chapter 47 based on the original flow, which is the final moments before the main fleet departs from the modern base.
-Wait, my Chapter 41-43 summary might have fast-forwarded a bit too much if the original text had more details.
-Let's stick to the title "Preparing to Depart" and focus on the details of the final hours in the modern base.)
+The Finance Department converted all liquid assets into RMB, then converted RMB into countless supplies. To guard against last-minute complications, the Finance Group still kept about 500,000 RMB on hand. They also privately cast the ten-plus kilograms of unsold gold into 10-gram, 25-gram, and 50-gram ingots ready for immediate use—not as convenient as cash, but everyone understood gold's value.
 
-The atmosphere in the base became increasingly tense and solemn.
+Except for maritime personnel stationed at the freight-forwarding office on the Leizhou Peninsula, all transmigrators on external assignments returned to base for final preparations.
 
-Everyone knew that the departure time was set for tonight.
+The Medical and Health Group conducted final health reviews, focusing on immunizations. Despite numerous announcements, some people hadn't gotten vaccinated but claimed they had—some even brought forged vaccination certificates.
 
-Wen Desi sat in the office, looking at the dense schedule on the wall, his brows locked.
+For certain vaccines, it was too late for catch-up doses—the complete hepatitis B series took eighteen months. The Health Group had to increase vaccine procurement.
 
-"Are all personnel present?" He asked Xiao Zishan.
+"Don't these people know they're gambling with their lives?" Hema looked at the "Incomplete Immunization Status Report." He didn't know seventeenth-century Hainan's disease situation, but it was easy to imagine—a paradise for microorganisms. Cholera had still broken out multiple times in Hainan in the twentieth century.
 
-"Report to President Wen, 512 Transmigrators, all present. No one is absent." Xiao Zishan replied.
+"Many also haven't done the corneal incision for vision correction," Dr. Lan Fangfang said painfully. He'd had to add a complete set of old-fashioned optometry equipment to the medical supplies—compared to the ubiquitous computerized optical equipment, these were genuinely hard to find.
 
-"How about materials?"
+Many things were hard to find. The Health Group's headache was that they couldn't casually use disposable supplies like modern hospitals. Glass syringes, glass IV sets—these were now difficult to locate. Matching items like small medical autoclaves had also vanished. They'd searched many pharmaceutical companies, medical-equipment factories, and hospital warehouses to assemble everything. Specialized rubber tubing on old medical equipment had long since deteriorated; there was nowhere to source replacements, so they had to commission custom molds from manufacturers—at great expense.
 
-"All loaded on the ship. The cabin of the Fengcheng is full, and the deck is also piled up."
+The Executive Committee's attitude toward medical care was "spend without limit"—as long as it ensured the highest possible care level, they'd approve any budget. The Health Group ended up spending more than any other civilian department.
 
-"What about security?"
+The final list could practically equip a hospital:
 
-"The perimeter of the base has been cordoned off. No outsiders are allowed to approach."
+**1. Diagnostic Equipment**
+- Gastroscope set ×1
+- Ultrasound unit ×1
+- X-ray machine ×1
+- Colonoscope set ×1
+- Laparoscope set ×1
+- ECG machine ×1
+- Patient monitors ×10
+- Medical microscopes ×5
 
-"Good." Wen Desi stood up, walked to the window, and looked at the busy crowd outside.
+**2. Treatment Equipment**
+- Surgical lights ×2 (1.5m diameter)
+- Surgical tents ×2
+- Operating tables ×2
+- Oxygen cylinders ×10
+- Ventilators ×10
+- Gastric lavage machines ×2
+- Dental treatment units ×2
+- Defibrillators ×2
+- Glass syringes ×100 (1ml, 5ml, 10ml, 20ml, 50ml)
+- Glass IV bottles ×50 sets
+- Surgical instrument sets ×20
+- Dental instrument sets ×10
+- Obstetric instrument sets ×5
+- Orthopedic instruments and equipment ×2 sets
 
-"This is a one-way ticket." He murmured, "Once we leave, we can never come back."
+Each set included: electrosurgical knife ×1, pointed and rounded scalpels ×1 each, hemostatic clamps (large/medium/small) ×4 each, curved clamps ×4, hook clamps ×4, retractors (large/medium/small) ×2 each, toothed forceps (large/small) ×2 each, smooth forceps (large/small) ×2 each, intestinal spatulas (large/medium/small) ×2.
 
-"Do you regret it?" Xiao Zishan asked softly.
+Plus surgical gowns, masks, caps, gloves, etc.
 
-"Regret?" Wen Desi smiled, "Maybe. But I look forward to the future more."
+Large quantities of sutures, dressings, gauze, disinfectants, etc.
 
-"Me too."
+**3. Medications**
+- Emergency drugs: mannitol, isoproterenol, epinephrine, norepinephrine, verapamil, cedilanid, amiodarone, propranolol, digitalis, atropine
+- Large quantities of lidocaine (anesthetic)
+- Large quantities of furosemide (diuretic)
+- Large quantities of antibiotics (penicillin, erythromycin, clindamycin, cephalosporins, sulfonamides, ornidazole, metronidazole, meropenem, vancomycin—low to high potency)
+- Large quantities of antivirals (ribavirin)
+- Various common medications, vaccines, antivenoms
 
-In the dormitory area, everyone was packing their luggage.
+**4. Equipment**
+Autoclaves, various stainless steel medical containers, UV disinfection carts, refrigerators, infant incubators, etc.
 
-According to regulations, each person could only carry 50 kilograms of personal items. This forced everyone to make a difficult choice.
+First-aid kits: five per person, with one issued directly as standard equipment.
 
-"Laptop, must bring. Hard drive, stored with 10T of materials (and movies), must bring."
-"Clothes... bring a few sets of sturdy ones. Fashionable ones are useless."
-"Photos of family... bring one as a souvenir."
-"Chocolate, cigarettes... bring as much as possible. These are hard currencies."
+If they could have found one, the Committee would have bought a field hospital. But after searching everywhere, none were available for purchase. The Committee's obsessive perfectionism about medical supplies made even the Health Group doctors intervene—they had to stop the ever-growing demands. Even a CT machine had made the procurement list; they had to explain that while useful, it wasn't essential...
 
-Everyone was carefully calculating the weight and volume of each item.
+As for individual equipment, the Committee's "better excessive than lacking" philosophy was fully expressed—though they did create tiered configurations based on job assignments.
 
-Some people were writing suicide notes or diary entries, leaving their last words to the world.
+**Level A (Standard)**: Personal issue for everyone.
 
-"Mom and Dad, forgive me for being unfilial. I'm going to a far, far place..."
-"My love, don't wait for me. Find a good man to marry..."
+At this level, equipment primarily met daily work and living needs, with limited protection for low-level conflicts and short-distance travel.
 
-There were weeping sounds in the dormitory. Although they had made up their minds long ago, facing separation, they still couldn't give up.
+Knockoff USMC modular backpack (separable into 6 bags of different sizes). Regular transmigrators didn't receive camouflage—just tropical military green training uniforms and tropical combat boots. One boonie hat and one helmet-style cap each (the latter with mosquito-net face cover). Also: goggles, raincoat, and rubber wading boots.
 
-At the playground, the military group was conducting the final inspection of weapons.
+Normally, transmigrators would sleep aboard ship or in prefab housing at base, so accommodation items didn't emphasize camping. Given Hainan's subtropical climate: 15°C-rated sleeping bags with matching ground pads.
 
-"Check the gun chamber! Check the magazine! Check the insurance!" Xi Yazhou shouted.
+For protection and weapons, Level-A personnel wouldn't engage in intense conflict—only limited protection needed. Issue: stab-resistant vest, gloves, and one Type-80 steel helmet. (Newer lightweight helmets weren't chosen because synthetic materials deteriorated; old Type-80s were abundant and cheap.)
 
-"Report! All weapons are normal!"
+Communication: walkie-talkie (1km+ range, networkable) and survival whistle.
 
-"Good! Everyone, load bullets! Prepare for battle!"
+**Personal items issued:**
+- Waterproof outdoor watch (altimeter, thermometer, barometer, electronic compass, timer, alarm)
+- Knockoff Swiss Army knife and short machete (1 each)
+- Compass
+- Headlamp
+- Flashlight (friction-powered to save batteries)
+- Windproof lighter
+- Small steel cup (all-purpose, including morning wash)
+- Outdoor canteen (effective preservation, cool color)
+- Military canteen (includes mess tin—very practical)
+- Mess kit, enamel plate, travel utensils (1 set each)
 
-Xi Yazhou knew that crossing was not travel. The other side of the wormhole might be full of dangers. They must be ready to fight at any time.
+Finally: two days' emergency rations (energy bars and beef jerky), plus sewing kit and first-aid kit.
 
-As night fell, the assembly bell rang.
+Toiletries and general underwear, socks, and clothing were personal responsibility.
 
-512 Transmigrators, wearing uniform camouflage, carrying backpacks and holding weapons, lined up on the playground.
+Above Level A were **Level B** (regular soldiers, long-distance transmigrators) and **Level C** (scouts, remote field surveyors). These levels added camouflage, shells replacing training uniforms, plus more specialized outdoor and military equipment—too numerous to list. However, many Level B and C items weren't permanently issued—only distributed when needed and returned afterward.
 
-Under the illumination of the searchlight, their faces looked resolute and tragic.
+Per Committee calculations, each transmigrator could bring 200kg of personal items, including issued equipment. No restrictions on types as long as weight was under limit—but no privately carrying firearms (any brought had to be surrendered for centralized storage).
 
-Wen Desi walked onto the rostrum. He didn't have a draft, just said one sentence:
+Ma Qianzhu tirelessly led inspections of every transmigrator's packed belongings and couldn't help shaking his head. Almost everyone brought various computers, yet few thought to bring a notebook and pen. Many also packed MP3 players, PSPs, and other entertainment devices—as if their destination had power outlets everywhere. But underwear, socks, and toiletries—crucial for hygiene—were scant.
 
-"Let's go! To create our history!"
+Such "hiking trip rather than time-travel" equipment was everywhere. The Committee decided to adjust everyone's gear, persuading them not to bring so much useless stuff. Rejected items could be mailed home, but most absolutely refused to leave their computers behind—even if the crossing succeeded and they all became cadre-level retirees, computers wouldn't be producible in their lifetimes.
 
-"Let's go!"
+"Forget it—let them bring them. At least we'll have more spare computer parts." Shi Kai, responsible for all IT systems, sighed. His own burden wasn't light—a full cabinet of IT equipment, and he wasn't sure his undergraduate-level skills could handle it all.
 
-The team began to board the ship.
+Wang Luobin and others responsible for procurement had to make more trips to nearby cities—buying all kinds of things they hadn't thought of before but realized were useful just before departure.
 
-They walked across the gangway and onto the deck of the Fengcheng.
+Packing proceeded through constant rechecking and supplementation. The commotion didn't die down until late. The next morning, transmigrators gathered on the training field, everyone in their uniformly issued clothing.
 
-Looking back at the lights of the modern city for the last time, many people shed tears.
+"Not bad—looks like an army now." Xi Yazhou surveyed the transmigrators sitting on the ground, waiting to board.
 
-"Goodbye, 21st century."
+"Hmm. A rabble." Ma Qianzhu said glumly. Rather than an army, this scene resembled college military training redux.
 
-"Goodbye, my hometown."
+"Don't say that, Old Ma." Xi Yazhou clapped his shoulder with heroic spirit. "Together, we'll sweep across all of China..."
 
-The whistle sounded, and the huge hull of the Fengcheng slowly left the pier.
-
-It carried the hopes and dreams of 512 people and sailed into the boundless night.
-
-(End of this chapter)
+**(End of Chapter)**

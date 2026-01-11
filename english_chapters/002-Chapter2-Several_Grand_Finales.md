@@ -1,60 +1,71 @@
-# Chapter 2 - Several Grand Finales
+# Chapter 2: Several Grand Finales
 
-Chapter 2 Several Grand Finales
+This is the grand finale of *Erta Ale at Lingao* that I hacked from Chuiniuzhe's computer. Everyone may take a look, but absolutely do not breathe a word of this!
 
-This is the "Lingao Qiming" Grand Finale that I hacked from the Blower's computer. Everyone just take a look, absolutely do not voice it out.
+---
 
-"Lingao Qiming" Grand Finale:
+**Grand Finale of *Erta Ale at Lingao*:**
 
-It is said that the Transmigrators finally succeeded in establishing a country and harmonizing the whole world. On this day, all Transmigrators rarely gathered at the Transmigration Palace, designed personally by Supervisor Ma in imitation of the Palace of the Soviets. The majestic Transmigration Palace was temporarily empty on top. It is said that because President Wen's waistline was underestimated, the copper statue was heavy in the front and light in the back, wide in the middle and narrow at the bottom, so it has now been melted down and reshaped.
+After the transmigrators finally succeeded in establishing their nation and bringing harmony to the entire world, on this day all of them gathered in the rare assembly at the Traversal Palace—designed personally by Supervisor Ma in the style of the Soviet Palace. The magnificent Traversal Palace above stood temporarily empty; rumor had it that they had underestimated Director Wen's waistline, resulting in a bronze statue too heavy in front, too light behind, too wide in the middle, and too narrow at the bottom. It had already been sent back for recasting.
 
-However, this did not hinder the Transmigrators' celebration meeting. All non-Transmigrators left the venue automatically after setting up the dining tables, leaving only the Transmigrators in the empty hall. The dining tables were filled with all kinds of exquisite food that one could not even imagine, such as orangutan lips, panda paws, cheetah whips, giant softshell turtle skirts, a feast for the eyes. Various precious wines and waters sprayed out from the fountain in the center of the hall. It was truly a pool of wine and a forest of meat, a life of luxury and dissipation. The Transmigrators sang and danced, cheering for the perfect success of the Transmigration grand cause over the past ten years. Some people also thought of the comrades who died halfway, and could not help but cry aloud. The hall was very lively.
+However, this did not dampen the celebratory banquet. All non-transmigrators withdrew after setting up the tables, leaving only transmigrators in the vast hall. The tables overflowed with exquisite delicacies beyond imagination: orangutan lips, panda paws, cheetah whips, giant turtle skirts—a dazzling array. Fine wines of every variety gushed from a fountain in the center of the hall. It was a veritable paradise of indulgence. The transmigrators sang and danced, jubilant at the perfect success of ten years of traversal endeavors. Some, remembering comrades who had fallen along the way, wept openly. The hall was a scene of tremendous revelry.
 
-Amidst the laughter and cheerful voices, only Supervisor Ma on the rostrum seemed heavy-hearted. He only slightly touched the wine and food with his lips, and kept pressing his chest with his hand. The hard thing was still there, and his heart slowly relaxed. The Supervisor could not help but think of the task personally assigned by President Wen three months ago: come up with a plan for the distribution of Transmigrators' benefits. Although he didn't dare say it had to pass one hundred percent, the death order given by President Wen was that at least eighty percent of the Transmigrators must agree.
+Amidst the laughter and merriment, only Supervisor Ma on the main dais seemed burdened with worry. He barely touched the food and wine, pressing his hand repeatedly against his chest—the object was still there, firm—and his heart eased slightly. He could not help but recall the task Director Wen had personally entrusted to him three months prior: to draft a plan for distributing the transmigrators' interests. While he could not guarantee unanimous approval, Director Wen's ironclad order demanded at least eighty percent agreement.
 
-For these few months, Supervisor Ma did not know how many sleepless nights he had spent. His originally sparse hair did not have one left in a hundred. And how many people would pass this painstaking plan in his chest pocket when he took it out later, he really had no bottom in his heart.
+In the months since, Supervisor Ma had endured countless sleepless nights, and his already sparse hair had nearly vanished entirely. Whether the proposal in his breast pocket—the fruit of his painstaking efforts—would gain approval, he truly had no idea.
 
-While Ma Qianzhu was still heavy-hearted, with a loud bang, Xi Yazhou, who had jumped onto the dining table to dance the Cossack dance, fell headfirst. Before everyone could roar with laughter, they only heard the chaotic sound of tables, chairs, dishes, and chopsticks, and countless people fell to the ground one after another. Someone exclaimed "The wine and water are poisonous!", and the whole venue was instantly in chaos!
+While Ma Qianzhu was still lost in thought, a tremendous crash rang out. Xi Yazhou, who had leapt onto the banquet table to dance the Cossack, pitched headlong to the floor. Before anyone could laugh, the clatter of chairs, plates, and chopsticks filled the air as countless people collapsed. Someone screamed, "The wine is poisoned!" and instantly the hall erupted into chaos!
 
-The Supervisor was shocked in his heart, and hurriedly activated his true qi, circulating the Sunflower Manual. But it was fine not to circulate it; once he circulated the kung fu, his internal organs and odd meridians and eight vessels instantly hurt as if cut by knives, and a mouthful of purple blood sprayed out. This poison was so domineering. In just the time of a breath, looking around, unexpectedly not a single person in the whole venue could stand up.
+Supervisor Ma's heart seized. He immediately channeled his true qi, activating the Sunflower Manual. Yet the moment he drew on his power, his organs and meridians felt as if knives were twisting through them, and a jet of purple blood burst from his lips. The poison was fearsome indeed. In the space of a breath, surveying the hall, not a single person remained standing.
 
-Only, only.
-Only there was still one person standing proudly with hands behind his back on Supervisor Ma's left!
+Except—
 
-"How is it you?"
-That person did not answer, but pressed his hand on the corner of the table. Instantly, a woo-woo sound rang out, and the floor in the hall actually slowly cracked open from the middle. Below was a bottomless large pit. As the floor retreated, the tables, chairs, and corpses of the Transmigrators also rolled down.
+Except that to Supervisor Ma's left, one man still stood with arms clasped behind his back, proud and unmoved!
 
-The Supervisor had deep internal strength after all, forcefully suppressing the poison from attacking into his heart meridians. He could still sit upright in the chair, only unable to move. Thinking that the Transmigration grand cause actually fell into this person's hands, he could not help but say hatefully: "I planted countless spies around you, President Wen, long ago. Why could you still commit such a big thing? I... I die with grievances..."
+"How can it be *you*?"
 
-President Wen gave a long laugh, reached his hand under his neck and pulled. Instantly, a thin human skin mask appeared in his hand, revealing another rare fat face.
+The man did not answer. He pressed his hand against the corner of the table, and with a whirring sound, the floor of the great hall slowly split apart, revealing a bottomless pit beneath. As the floor retracted, tables, chairs, and the corpses of the transmigrators tumbled into the abyss.
 
-That fatty grinned hideously: "President Wen and I have never appeared at the same time. Could it be that you high people with eyes higher than the top never discovered this?"
+Supervisor Ma's internal power ran deep; he suppressed the poison before it could reach his heart's core. He could still sit upright in his chair, though utterly immobile. Thinking of how all the traversal enterprise now fell into this man's hands, he spat out hatefully: "I planted countless agents around you, Director Wen—how could you possibly accomplish something of this magnitude? I shall die with eyes unclosed!"
 
-Ma Qianzhu's face was like dead ash, and he sprayed another mouthful of fresh blood. Seeing the floor retreat to his own feet, with blurred consciousness, he could only shout: "Whatever! Whatever! To die in the Pit King's pit can be considered an explanation..."
+Director Wen let out a long laugh. Reaching beneath his chin, he peeled away a thin mask of human skin, revealing a different, rarely-seen plump face.
 
-Looking at the empty hall, the fatty let out a hair-raising wild laugh. He went forward and tore off the last two characters on the "Celebration Meeting" banner, revealing the word "Building" behind. Outside the door, came the uniform shout of "Thousands of autumns and ten thousand years, unite the whole globe".
+The fat man snarled: "Director Wen and I have never appeared at the same time. Did none of you superior beings ever notice?"
 
-(End of the whole book)
-----------------------
-The above is the work of "Eagle Descending from the Sky" (Idiot Crowd).
-Below is YYYYY's supplement to this ending.
+Ma Qianzhu's face turned ashen, and another spray of fresh blood erupted from his mouth. Seeing the floor retreating beneath his feet, his consciousness dimming, he could only cry out: "So be it! So be it! To die in the Pit King's pit is at least a fitting end!"
+
+Gazing upon the empty hall, the fat man let out a blood-chilling cackle. He strode forward and ripped away the last two characters of the "Celebration Banquet" banner, revealing the word "Tower" beneath. From beyond the doors came the synchronized chant: "Ten thousand years! Unify the world!"
+
+**(THE END)**
+
+---
+
+*The above is by "Cóng Tiān Jiàng Yīng" (SB Crew)*
+
+*Below is YYYYY's supplement to this ending:*
+
+---
 
 Too fast.
 
-Learn from Yongzheng.
-First, the poisonous wine from the turning-heart pot accompanied by poisonous pigeons. Xi Yazhou and other people were greedy and ate too much, so they were lost.
+Follow the Yongzheng approach instead.
 
-Among the remaining crowd, some were not poisoned, and some were lightly poisoned.
-Then hidden experts, Master P? and others, relying on a pair of precious palms, vomited blood and injured the female pirate, but also died from poison.
+First, the reversing-heart pot of poisoned wine paired with poisoned pigeon—Xi Yazhou and the other gluttons ate too much and were done in.
 
-Coming out of the building was poisonous smoke, and another batch was lost.
+The survivors included some who weren't poisoned and some only lightly poisoned.
 
-North Latitude and other special forces people broke the mechanisms and were lost.
-.......
+Then the hidden masters—Elder P? and others—vomited blood and wounded the lady pirate with their precious palms, but they too succumbed to the poison.
 
-Altogether ten poisonous schemes.
-Finally, the escapees were only Xiao Zishan and a few others (the author opened a golden finger), but the story is far from over, and the grievances are even less over.
-The survivors gathered on the mountain to mourn the dead comrades. At this time, the dawn of daybreak slowly rose on the distant sea surface. It was Meng De who returned from executing a mission outside.
-"Amsterdam, I will be back," Xiao Zishan said when leaving.
+Outside the tower was poison smoke, which felled another batch.
 
-(End of this chapter)
+Běiwěi and the special forces squad were eliminated by the traps...
+
+In total there were ten deadly stratagems.
+
+In the end, the escapees numbered just a few, including Xiao Zishan (the author used a golden finger here), but the story was far from over, and the grudges even less so.
+
+The survivors gathered on the mountain to mourn their fallen comrades. Just then, on the distant sea, the glow of dawn slowly rose—it was Méngdé, returning from his mission abroad.
+
+"Amsterdam, I will return," Xiao Zishan said as he departed.
+
+**(End of Chapter)**

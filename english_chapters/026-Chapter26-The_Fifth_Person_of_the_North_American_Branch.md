@@ -1,61 +1,111 @@
-# Chapter 26 - The Fifth Person of the North American Branch (Revised)
+# Chapter 26: The Fifth Person of the North American Branch
 
-Chapter 26 The Fifth Person of the North American Branch (Revised)
+Shi Niaoren returned to America the next day. As for which weapons to purchase—with too many opinions and no decision—the North American contingent said to wait for their update before acting. After all, weapons shouldn't be stored too long; purchasing a few months before departure would be fine.
 
-The arrival of the North American Branch brought not only materials and personnel, but also a "mystery".
+For the Executive Committee, the current discussions were unsatisfying. Many felt something stuck in their throats, though they couldn't say what. Every proposal somehow failed to match their vision. When discussing military weapons, though no one had actually used them, many knew enough to hold forth at length. But civilian versions were a complete blank for urban shut-ins. They had no theoretical foundation to discuss—essentially stumbling in the dark.
 
-Among the core members of the North American Branch, besides Li Meidu, Bai Yu, Qian Shui and He Ying, there was a fifth person.
+Jiang Ye spent these days lobbying the Committee members and Xi Yazhou, pushing his all-in-one weapons plan: semi-automatic rifles plus bolt-action Mosin-Nagants. Director Wen was tempted; he even looked up information on the Type 38 Arisaka—that thing with a bayonet could form a magnificent pike formation. Alas, the Athletics Group had no interest in continuing revolutionary traditions by working the bolt. His efforts among the masses also garnered little support—people wanted weapons that could "spray." Whether automatic rifle or submachine gun didn't matter, but bolt-action was absolutely rejected—it gave no sense of security.
 
-His name was "Li Meidu" (Wait, Li Meidu is Sister Du). No, his name was "Zhao Manxiong".
+Unexpectedly, a few days later, they received an overseas call from Dr. Shi. Another person had joined the North American contingent and was about to return to discuss weapons. This one, he said, had fired even more kinds of guns than Xiao Rui, knew the North American civilian weapons market like the back of his hand, and had "fired artillery on the ground and flown mares in the sky" (Mustangs). His exploits commanded respect. Most assumed the arrival would be a muscular, burly MAN.
 
-Zhao Manxiong was a mysterious figure. He claimed to be a former intelligence officer of a certain country, proficient in espionage, assassination, interrogation and other special skills.
+What they saw when they picked him up at the base was an elegant young man, slightly slick in appearance. Everyone was somewhat disappointed, and began to doubt whether Dr. Shi's words were reliable.
 
-He looked ordinary, middle-aged, taciturn, and always wore a pair of sunglasses, making people unable to see his eyes.
+The newcomer introduced himself as Lin Shenhe, a firearms enthusiast. Thanks to the decadent, backward U.S.A., he had spent years in America, handling countless famous and obscure firearms, even participating in building a Nordenfelt machine gun and a Napoleonic 12-pounder bronze cannon. The military buffs around him drooled. After hearing the Committee's firearms briefing, he smiled leisurely, mystifying everyone.
 
-When he first joined the North American Branch, everyone was somewhat wary of him. After all, his background was too sensitive.
+Xiao Zishan, seeing that smile, was reminded of Tang Guoqiang playing Zhuge Liang on TV. Unfortunately, no one was there to ask: "Why does the strategist smile?"
 
-"Why do you want to join us?" Sister Du asked him.
+"You all don't understand the North American civilian weapons market, do you?" Lin Shenhe's voice was soft but perfectly clear. "Civilian weapons are actually very different from military ones, and performance varies by manufacturer." He paused and continued: "Take the AR-15—everyone knows it's the civilian version of the M-16, a semi-automatic. Actually, the various big and small profiteers making civilian goods in America are very cunning; they're nothing like what American GIs carry. AR-15 barrels—leaving aside competition-grade precision barrels—even the regular ones often aren't even chrome-lined.
 
-"Because I'm tired of the dark life." Zhao Manxiong said lightly, "I want to go to a place where no one knows me and live in the sun."
+"Or take the M1A that Xi Yazhou recommended—the civilian version of the M-14 from the famous Springfield Armory. Many people love it. Actually, its receiver is investment-cast, unlike the forged receivers of military-contract M-14s. By contrast, Norinco's M-14s have forged receivers, just poor quality."
 
-"Can we trust you?"
+"So American profiteers use the U.S. military for advertising to sell shoddy goods to hardworking American masses?"
 
-"Time will prove everything."
+"It's not exactly shoddy. The North American civilian gun market is huge, with demand from all income levels. It's different from military contracts. So there are companies that simplify production for low prices, and those that make expensive premium products. Take civilian M-14s again—LRB Arms uses forged receivers and costs much more than Springfield. Basically, anyone at any income level can find what they consider the best value."
 
-Zhao Manxiong proved his value with actions.
+After Lin Shenhe's introduction, everyone realized how complex American civilian guns were. They looked at him with newfound respect.
 
-He helped the North American Branch establish a secure communication network to prevent information leakage.
-He taught everyone anti-surveillance and anti-interrogation skills.
-He also used his "special channels" to get some sensitive equipment, such as bugging devices, miniature cameras, lie detectors...
+"So what's your weapon recommendation?"
 
-"This guy is a professional!" Qian Shui commented.
+"Well, that depends on the Executive Committee's requirements. On semi-automatic rifle selection, I agree with Team Leader Xi—given our environment, semi-automatics are best. With 200 semi-auto rifles, we can handle any complex situation at the start."
 
-After arriving in China, Zhao Manxiong was appointed as the director of the Intelligence Bureau (preparatory).
+"We have no objections. The problem is choosing which semi-automatic has become a puzzle."
 
-He began to select and train intelligence personnel among the Transmigrators. His training methods were extremely cruel, even perverted.
+"For good value, the SKS really is great. Retail is $400; M43 ammo in North America is very cheap—suitable for large-scale issue. And stock is plentiful; bulk purchases are easy to obtain."
 
-"Intelligence work is dancing on the tip of a knife." He said to the trainees, "A little carelessness will lead to death without a burial place. So, you must be harder, colder and more ruthless than the enemy."
+"Didn't Xiao Rui say Mosin-Nagants are only $80 each? $400 buys five!" The bolt-action rifle faction persisted loyally. "And the ammo is even cheaper."
 
-He taught the trainees how to disguise, how to pick locks, how to steal, how to track, how to kill...
+"Which of you has used a Mosin-Nagant?" Lin Shenhe wore his all-knowing smile. "Among bolt-actions, the Mosin has the hardest bolt to work—people say you need to kick it open with your foot. And bolt-action rifles require extensive practice to develop combat effectiveness."
 
-"Remember, you are ghosts in the shadows. You have no names, no past, only tasks."
+"You could choose others... like the Lee-Enfield."
 
-Under his training, a terrifying intelligence agency - the "Social Security Department" (later renamed the Political Security Bureau) began to take shape.
+"That's possible. But in my view, bolt-action rifles would be fine as equipment for native troops later on. We transmigrators should be better equipped for confidence."
 
-However, Zhao Manxiong's existence also aroused the vigilance of some people.
+"I still oppose Warsaw Pact weapons." Xi Yazhou maintained his theory. "Service life is too poor."
 
-"This person is too dangerous." Ma Qianzhu said to Wen Desi in private, "He is like a double-edged sword. If used well, he can kill the enemy; if used poorly, he can hurt ourselves."
+"Oh, that's not entirely true. Warsaw Pact weapons do have poor-quality examples. It depends on where they're made. As far as I know: on the North American civilian market, AK-series rifles from Russia's IZMASH and similar factories all use cold-hammer-forged barrels with chrome-lined bores, rated for over 80,000 rounds. Among AR-15s, only the HK416 uses cold-hammer-forged barrels. Bulgarian Arsenal-produced AKs claim barrel life of 15,000 rounds or more—that's what the U.S. Arsenal distributor told me."
 
-"I know." Wen Desi nodded, "But we need such a person. In the complex environment of the Ming Dynasty, we need a dark force to do dirty work for us."
+"Then let's bulk-buy AKs! We can convert them to full-auto!" The AK faction became triumphant.
 
-"We just need to control him." Wen Desi said confidently, "As long as our goals are consistent, he will not betray us."
+"I tend to agree with Xi Yazhou—we should at least have some semi-autos chambered in full-power cartridges." Lin Shenhe unhurriedly complimented, "Considering combat needs, Team Leader Xi's thinking is quite comprehensive. It's not about range—it's that full-power rounds have some penetration against old-style buildings and are advantageous against enemies in brush. The transmigrators will need this capability in densely vegetated areas."
 
-Zhao Manxiong seemed to know everyone's suspicions about him, but he didn't care.
+...
 
-He usually lived in seclusion, rarely communicating with others. Besides work, he liked to sit alone in a corner, smoking and dazing.
+After Lin Shenhe's brainwashing, the starry-eyed Executive Committee finally settled on a hybrid solution:
 
-No one knew what he was thinking, nor what kind of secrets were hidden behind his sunglasses.
+A small number of Russian-made AK semi-automatics chambered in 7.62mm NATO—the Saiga-308—as dedicated weapons for military personnel.
 
-He was like a shadow, silently guarding this nascent group, and also silently observing everyone.
+SKS semi-automatics using M43 rounds as militia weapons for transmigrators. Though the SKS had minor performance drawbacks, its ammunition was very cheap—unlike the astonishingly expensive 7.62mm NATO. Economy was also a consideration.
 
-(End of this chapter)
+Lin Shenhe's recommended SKS was the SKS-D variant, whose advantage was compatibility with AK magazines—no longer limited to its own 10-round internal magazine. Sustained firepower was greatly improved.
+
+"As for handguns—the M9 is just for show. Better to choose Glock: cheap and plentiful; American police love them. Under $500."
+
+Lin Shenhe pressed his advantage and changed the Committee's handgun choice to Glock. Though the M9 was handsome, Glock was equally stylish, so there was no opposition. However, the procurement ratio dropped from majority to minority. Automatic pistols would be issued only to specialized military personnel in limited numbers; most would use S&W revolvers. Revolvers were better suited to low-quality reloaded cartridges.
+
+Lin Shenhe then made many more suggestions: purchasing large quantities of Russian 4× optical scopes—essential if rifles were to achieve their 400-meter-plus long-range capability. Also, a small number of high-magnification sniper scopes for designated marksmen.
+
+"We should also purchase small quantities of various light weapons as blueprints for future reverse-engineering, or at least as reference material."
+
+Throughout this discussion, the Athletics Group—except for Xi Yazhou—maintained complete silence. But after the meeting, several requested a trip to the shooting club to fire an M-14 and experience full-power ammunition.
+
+"Fine, arrange it." Wen Desi glanced at Xiao Zishan. "If they have that 308 thing, have everyone in the Athletics Group fire it to get a feel."
+
+Getting money to America became another puzzle. These 200 rifles alone cost $100,000. Converting at a bank was obviously out. Fortunately, Wen Desi had recently opened many companies to cover money flows, one with import-export rights. They shipped several kilograms of gold by container under the guise of exporting electronics.
+
+"Do you really trust that Dr. Shi and Lin Shenhe?" Xiao Zishan once asked Wen Desi during an evening stroll on the parade ground.
+
+"If I don't trust them, what choice do we have?" Director Wen countered. "Our weapons depend on them. There's no other way."
+
+"True enough." Xiao Zishan fell silent.
+
+"To be frank, our entire operation is built on mutual trust." Wen Desi took a deep breath. "If you and Engineer Wang hadn't trusted me, would you have gone through the wormhole with me? If these people didn't believe we had a wormhole, why would they be here? Even those who left—if we hadn't trusted their promise of secrecy..." His face went cold. "We should have..."
+
+Xiao Zishan shuddered. "Choose your words carefully!"
+
+"Mm." Director Wen nodded. "How's Xi Yazhou doing lately? Any bad morale?"
+
+"No. Besides, his proposals weren't completely rejected. He and that Lin Shenhe even went drinking together—quite a crowd, very lively atmosphere. Lin Shenhe has a lot of practical experience. Quite talented."
+
+"Mm. What about the others in the Athletics Group? Any opinions?"
+
+"They think we're making mountains out of molehills, overcomplicating things." Xiao Zishan smiled ruefully. He had more and more family members under his General Affairs umbrella now; from their chatter, he could learn many people's thoughts. "In their view, having guns to use is good enough; everything else is nonsense. So they have no particular opinions on which guns."
+
+"That's good. Everyone's mood needs to stay stable. Honestly, everything is wonderful now—I'm just worried about after we go over..." Director Wen left the thought unfinished.
+
+"Hold a weapon in your hands, and the urge to kill arises."
+
+"Exactly. Especially when everyone has guns..."
+
+"We'll need a system for managing firearms and ammunition?"
+
+"Yes, definitely. At least in the long run, definitely."
+
+"But that's really a technical detail. Looking at the big picture, we need a complete political system. In other words, a political platform, code of conduct, that sort of thing." Xiao Zishan said.
+
+"Mm. So we should have a complete framework... A constitution?"
+
+---
+
+*Note: All information about firearms and the North American civilian gun market in this chapter comes from discussions among members of a certain forum. Thanks to all contributors.*
+
+**(End of Chapter)**

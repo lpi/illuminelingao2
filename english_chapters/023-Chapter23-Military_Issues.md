@@ -1,69 +1,119 @@
-# Chapter 23 - Military Issues
+# Chapter 23: Military Issues
 
-Chapter 23 Military Issues
+The meeting lasted nearly the entire day, ending only after dark. Many matters remained to be resolved—down to operational details and planning—but at least they had achieved a preliminary division of labor, established a rough framework, and set the direction for preparations. Everyone now had a general idea of what needed to be done.
 
-The military issue was the highlight of this meeting. After all, going to a strange and dangerous world, without force protection is absolutely impossible.
+Even so, an atmosphere of excitement permeated everyone's minds. The Committee had made clear that once outside the office building, no one could discuss crossing-related matters. But in reality, small groups strolling along the weed-overgrown running track continued to quietly discuss the meeting and differing opinions. Among them were like-minded individuals deepening their bonds through conversation—mainly by venting dissatisfaction.
 
-Xi Yazhou, representing the Military Group, took the stage. He was tall and burly, with sharp eyes, exuding a soldier's aura all over.
+The sources of discontent varied: the direction of a particular industry, an equipment list, or perhaps just someone's appearance. But wherever there was dissatisfaction, intimacy between people grew—and in this world, nothing could satisfy everyone. Small grievances began accumulating from the very start of the enterprise.
 
-"Comrades, the world we are going to face is not a idyllic paradise, but a jungle where the weak are prey to the strong." Xi Yazhou went straight to the point, "Ming army, pirates, bandits, Western colonists... These are all our potential enemies. We must have a strong armed force to protect ourselves and our achievements."
+The Executive Committee, immersed in the atmosphere of "a victorious conference, a unifying conference, a successful conference," naturally didn't notice this. At the moment, Committee members were in private discussions with the core members of the Athletics Group.
 
-"Our goal is to build a modernized army. An army with advanced weapons, strict discipline and modern tactics."
+The so-called Athletics Group, though currently responsible for physical training of the transmigrators, was in reality the embryonic form of the transmigrators' future apparatus of force. It had been given this harmless-sounding name purely for cover.
 
-"First of all, weapons. We can't rely on those air guns and machetes forever. We need real guys."
+Throughout the entire meeting, the Athletics Group had made almost no statements—this was in fact a deliberate arrangement by Wen Desi, one of the three heads of the Executive Committee. The Athletics Group's scope was too sensitive for open discussion, even among the transmigrator cadres.
 
-"We want to manufacture rifles, machine guns, artillery... We want to equip our soldiers to the teeth."
+The current Athletics Group leader was a sales manager—though that wasn't why he became group leader. He had been a military officer, a graduate of the Infantry Academy, had served as a company commander in a field army, and had also worked as a staff officer at headquarters. He was the transmigrators' best military foundation.
 
-"Wait, can we make guns and cannons?" Someone questioned, "This requires high-precision machining and special materials."
+He had a very impressive name: Xi Yazhou.
 
-"We can start from the simple ones." Xi Yazhou explained, "For example, the Minié rifle. It is a front-loading rifle, simple in structure but high in accuracy and long in range. It is an epoch-making weapon in the mid-19th century. With our industrial capabilities, mass production is completely feasible."
+Xi Yazhou and his Athletics Group colleagues were mostly demobilized veterans. Not many, but the military bearing their service had given them was still clearly perceptible.
 
-"There are also 12-pounder Napoleon cannons. This is a classic smoothbore cannon, powerful and mobile. It can fire solid shots, explosive shells and canister shots, capable of dealing with various targets."
+"Director Wen, this is Beiwei—formerly of the reconnaissance battalion, XX Military Region."
 
-"As for machine guns and modern rifles, we can develop them slowly later."
+"This is Zhao De—formerly of the XX Naval Water Police District."
 
-"Besides weapons, personnel training is also key." Xi Yazhou continued, "We want to implement a compulsory military service system. All adult men must receive military training and serve as reserve soldiers."
+"This is He Ming," Xi Yazhou introduced the oldest one with a tone of reverence. "He served as an infantry company commander in the Liangshan rotation war."
 
-"We also need to establish a military academy to train officers and professional and technical personnel."
+This introduction commanded respect from everyone present. This comrade approaching fifty had dark skin, slightly graying close-cropped hair, and sat with his back ramrod straight.
 
-"Our tactics should also keep pace with the times. We want to abandon the rigid formation tactics of ancient times and adopt flexible skirmish lines and infiltration tactics. We want to give full play to our firepower advantage."
+"Most transmigrators are laymen when it comes to military matters." Wen Desi chose his words carefully. "Quite a few know a lot about weapons and military theory, but it's all armchair strategy. Few have actually served or touched a real gun. So I'd like to hear the Athletics Group's thoughts—you're the professionals, after all."
 
-"What about the navy?" Someone asked, "We are landing on an island. Without a navy, we can't do anything."
+"Mm, I'd like to first confirm roughly how many people will participate in the crossing. What's the ratio of veterans and militiamen?"
 
-"The navy is our top priority." Xi Yazhou nodded, "We want to build a strong navy to control the ocean."
+"Hard to say right now. Ultimately, probably five to six hundred people. About ten more have the qualifications you mentioned."
 
-"We can start by modifying fishing boats and merchant ships, installing artillery and power systems on them to turn them into armed ships."
+"Then we'll have to take the all-people-soldiers approach." Xi Yazhou said. "This population base can't sustain even a modestly sized dedicated armed force." He paused. "With fourteen people, even if they were all Rambos, it wouldn't be enough. We need comprehensive military training. Everyone participates."
 
-"In the future, we want to build our own warships. Frigates, destroyers, cruisers... even aircraft carriers!"
+"Even women?"
 
-"Aircraft carriers?" Everyone exclaimed, "Is this too exaggerated?"
+"Yes, even women—though Auntie Tian can be excused. Men of all ages; women under forty."
 
-"Not exaggerated." Xi Yazhou smiled, "Of course, not modern nuclear-powered aircraft carriers, but 'seaplane carriers' or 'escort carriers'. We can manufacture simple seaplanes for reconnaissance and bombing."
+"What kind of training?" Xiao Zishan hoped it wouldn't be like university military training.
 
-"With air superiority, we are invincible!"
+"We'll draw up a training plan." Xi Yazhou thought. "After all, the environment we'll face is completely different. So the curriculum needs modification. Initially: drill, basic field fortifications, disassembly and live-fire training with one long and one short light weapon each, plus simple combat techniques.
 
-Xi Yazhou's speech made everyone's blood boil. They seemed to see the scene of the Transmigrator army sweeping the world.
+"First, we'll form a small squad of fifteen to twenty, mainly veterans, for early security and reconnaissance—our standing force, as it were. The Athletics Group will also recruit some young people in good physical condition for more comprehensive military training. Scale of about fifty—our core militia."
 
-However, a discordant voice sounded.
+"These people can't be taken off regular duties."
 
-"Director Xi, your plan sounds great, but have you considered the logistics issue?" It was Ma Qianzhu.
+"Of course," Xi Yazhou said. "That's why they're core militia—just more training content. They'll be the backbone in combat."
 
-"Wars are fought with logistics." Ma Qianzhu poured cold water, "A rifle needs thousands of bullets, a cannon needs hundreds of shells. Plus food, medicine, fuel... Can our production capacity keep up?"
+"How much time?"
 
-"Also, where do the soldiers come from? We only have 500 people. Even if everyone is a soldier, it's only a battalion. Can we control the whole of China with this little force?"
+"Basic training is thirty days; core militia ninety days. If we find promising people, I'd like to keep training them right up to the crossing." Xi Yazhou calculated with his pencil. "Also, physical training must continue—at least daily long-distance running. The Athletics Group will handle all this. The weapons disassembly and live-fire training will need another location. Are there shooting clubs in this county?"
 
-Xi Yazhou was stunned. He admitted that he had considered it too idealistically.
+"I think there's one—specifically to attract Hong Kong tourists."
 
-"So," Ma Qianzhu continued, "We must take the route of 'elite soldiers + local troops'. The Transmigrators serve as officers and technical backbones, and recruit a large number of locals as soldiers. We use advanced weapons and tactics to equip them and train them into a strictly disciplined modern army."
+"Good. Too bad guns are hard to come by." Xi Yazhou sighed. "Ammo at clubs is too expensive. We can only let people get a feel—not really train them."
 
-"At the same time, we must establish a strong logistics support system. Military industry, transportation, medical care... everything must prioritize serving the war."
+Xiao Zishan shifted uneasily. He sensed they were about to discuss extremely sensitive matters. For a moment he wondered if he should excuse himself to use the restroom.
 
-"Correct!" Wen Desi nodded in agreement, "We want to fight a 'people's war'. Mobilize the masses and rely on the masses."
+"The weapons issue is indeed very difficult. It's too sensitive."
 
-The discussion on military issues lasted for a long time. Everyone reached a consensus on army building ideas, weapon selection, strategic layout, etc.
+"Can we get real guns?" Wang Luobin wouldn't give up. Though he claimed to have made N guns himself, they were all made from ordinary steel—very different from proper arsenal production.
 
-Finally, the establishment of the "People's Liberation Army of Lingao" (PLA) was decided. Xi Yazhou was appointed as the commander-in-chief, and Ma Qianzhu as the chief of staff.
+Modern firearms use a wide variety of materials—over a dozen different types of steel alone for different components.
 
-Under their leadership, this army will become the sharpest sword in the hands of the Transmigrators, clearing all obstacles for the construction of the new world.
+"It's possible." Xi Yazhou knew something about this. "But I'd advise against it. The risk of getting caught is high."
 
-(End of this chapter)
+"Then we'll have to count on the Industry Group to make them." Wang Luobin was somewhat disappointed.
+
+"Make them here in this timespace?"
+
+"We have equipment, talent, and materials aren't hard to buy. What we produce would be at least as good as Hualong-made guns."
+
+Wen Desi shook his head repeatedly: "Too dangerous. Illegal guns are a priority crackdown target. If we really did it, the police would come knocking within days."
+
+"Then what? There's no way for us to get weapons."
+
+"How about bribing a shooting club for some real steel?" Someone was dreaming.
+
+"You might as well go straight to the Armed Forces Department!" Xiao Zishan had to strongly object.
+
+"Director Wen, how many weapons can we actually get right now? Give us a bottom line so we know where we stand."
+
+Wen Desi hesitated. These days, even hiding a shotgun could land you in court, let alone proper firearms. But Xi Yazhou was their future military backbone—some show of trust was necessary.
+
+"We have very little." Wen Desi never recorded these figures in notebooks or computers; they were all in his head.
+
+Currently confirmed: over a dozen shotguns of various brands, calibers, and models—some old single-shot types, some the five-shot variety that often appeared in news reports. Calibers included 12, 16, and 20 gauge. All domestic old brands: Pigeon, Eagle, Flying Dragon, Double Ring, and the like—holdovers from hunting enthusiasts of the past. Shells, primers, and reloading tools were complete, but the guns were generally old; some had over thirty years of history.
+
+What could actually be called rifles were two Emei-brand small-caliber sporting rifles in good condition, with competition sights and accessories, plus a small amount of ammunition.
+
+One rifled hunting gun of unknown brand from East Germany, chambered in 8x57mm. A few casings, no ammunition.
+
+Also several Shanghai-brand and Gongzi-brand air pistols, one of which was a competition model with sights.
+
+"Not a single real gun." Someone was disappointed.
+
+"Not bad at all. Shotgun buckshot is effective at 35 meters; slugs at 70 meters—no worse than flintlocks, and far superior to matchlocks. Plus our rate of fire is an advantage." Xi Yazhou clearly wasn't disappointed by this ragtag arsenal. "The small-caliber sporting rifles have excellent accuracy and scopes—they can be used as sniper rifles to suppress important enemy targets at range. I recall small-caliber rifles can definitely achieve 200-meter effective range."
+
+"Not much stopping power, right? The enemy will mostly be wearing full armor."
+
+"Where would they get that much armor? Just ragged uniforms."
+
+"That's the Qing. Our Great Ming wasn't that shabby..."
+
+When someone was about to argue about armor and immediately derailing into Ming-fans versus Qing-haters, a quiet voice came from the corner:
+
+"Just aim for the head."
+
+This was Beiwei—a stocky former reconnaissance soldier who had sat there expressionlessly since the meeting began. Everyone shuddered.
+
+Xi Yazhou nodded. "What level of equipment the enemy has—that's for the history buffs to research. The Intelligence Group needs to give us a capabilities table of late-Ming factions: combat strength, weapons and equipment, tactics, classic battles, and so on. That way we can make targeted plans."
+
+"No problem." The Intelligence Group agreed immediately.
+
+They went over the details again. The weapons issue was complicated; they decided to first gather intelligence before considering solutions.
+
+**(End of Chapter)**

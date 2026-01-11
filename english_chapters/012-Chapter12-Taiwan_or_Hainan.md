@@ -1,95 +1,109 @@
-# Chapter 12 - Taiwan or Hainan
+# Chapter 12: Taiwan or Hainan
 
-Chapter 12 Taiwan or Hainan
+Where should they cross over? This wasn't merely a matter of location—it determined their opening base of operations.
 
-In a private room of a tea house in Guangzhou city, the three were discussing the issue of the base.
+A good start was half the battle. The transmigrators all loved playing games and understood that a key element in any strategy game was securing a favorable base position at the outset. For them, such a base needed to satisfy:
 
-"Where is the base chosen?" Xiao Zishan asked.
+1. A solid agricultural foundation to guarantee food supply.
+2. A sufficient population base to meet the labor demands of post-crossing industrialization.
+3. Rich natural resources to support industrialization needs.
+4. A coastal location with ports—maritime trade, after all, was the era's easiest path to wealth.
+5. Not in the core territory of Ming rule, lest it invite the government's concentrated suppression.
+6. Not in contested territory. The Later Jin, the Chuang and Xian rebel forces—none of these were threats the transmigrators could handle while their foothold was still tenuous.
+7. Defensible, with natural barriers of mountains, rivers, and seas.
 
-"This is a big problem." Wen Desi spread out a map of the Ming Dynasty - actually a modern map printed in traditional Chinese characters, "We have several choices."
+Clearly, in the timespace they were headed to, places meeting all these conditions were scarce.
 
-"The first one, Taiwan." Wen Desi pointed to the big island on the map, "Taiwan is currently a land without an owner (referring to the Ming government's effective rule). The Dutch are in the south, and the Spanish are in the north, but their power is very weak. The vast central and eastern regions are still the territory of aboriginals. If we land there, we can avoid the direct sight of the Ming government and have enough development space."
+To be thorough, the question was posted on the discussion forum for collective brainstorming.
 
-"But Taiwan's natural conditions are not very good." Wang Luobin interjected, "Typhoons, earthquakes, malaria... and those headhunting aboriginals. Development is very difficult."
+Online, the proposals clustered around three locations: Taiwan, Hainan, and Australia.
 
-"And the Dutch and Spanish are not vegetarians." Xiao Zishan added, "Once they find our existence, they will definitely come to suppress us. With our current strength, we are probably not their opponents."
+Australia garnered tremendous support but was the first to be shot down. Setting aside whether Australia itself was suitable as a transmigrator base, the practical reality was that there was no way to transport several hundred transmigrators there. It simply wasn't feasible.
 
-"That's right." Wen Desi nodded, "So Taiwan can only be a backup option. What about the second one? Luzon."
+Taiwan Island was a hot topic of discussion. In terms of geography, natural conditions, and development potential, it seemed an excellent choice. There was no Ming government apparatus on the island; though the Dutch and Spanish had built forts, each held only a corner—it was effectively a vacuum. However, Taiwan suffered from severe tropical diseases, especially malaria, which to some degree hindered migration. In the late Ming, development was still minimal and the population sparse—there was no human-resource foundation for large-scale development.
 
-"Luzon?" Xiao Zishan shook his head, "That's the Spaniard's territory. And it's too far from the mainland, inconvenient for introducing immigrants."
+By comparison, Hainan was far superior. Since its development began in the Six Dynasties era, by the late Ming it had become a southern frontier prefecture with hundreds of thousands of registered households. In the tenth year of Yongle alone, the Han population numbered ninety thousand households and four hundred thousand people—ample human resources. In agriculture, by the forty-third year of Wanli, official and private fields across the island totaled 4.1 million *mu*.
 
-"What about the third one? Jeju Island."
+Even more valuable: its natural resources were not only abundant but comprehensive—ideal for industrialization. The island had eighty-eight types of minerals (including subtypes), sixty-seven of proven industrial value. Gold, rich iron ore, titaniferous iron ore, and zircon were advantageous minerals.
 
-"Jeju Island is too small, and it is under the control of Joseon. Besides, the climate there is too cold, not suitable for agricultural development."
+The keys to pre-industrial development were coal and iron. Hainan possessed one of China's rare large-scale rich iron deposits—the Shilu Iron Mine, with ore averaging 51% iron content and reserves of 400 million tons, plus associated minerals. Most valuably, Shilu was virtually open-pit—strip away the topsoil and you could mine without expensive tunnel systems.
 
-"Then there is only the last choice left." Wen Desi's finger moved to the south of the map and landed on a large island, "Hainan Island."
+As for coal, Hainan had only low-quality lignite. But across the Beibu Gulf lay Vietnam's Quang Ninh Hong Gai coalfield—in the present timespace, the open-pit reserves alone totaled 200 million tons, with tens of billions of tons of high-quality anthracite underground. The coalfield was right at the shore, extremely convenient for maritime transport.
 
-"Hainan Island?" Xiao Zishan and Wang Luobin's eyes lit up.
+With coal and iron, they could mass-produce steel. With steel, they could mechanize various industries and manufacture industrial products in bulk.
 
-"Yes, Hainan Island." Wen Desi analyzed, "First of all, it is close to the mainland, only separated by a strip of water from Leizhou Peninsula. It is very convenient to absorb immigrants and purchase materials. Secondly, although Hainan is nominally under the jurisdiction of the Ming Dynasty, the rule of the government is actually very weak, especially in the interior and the southern Li areas, it is basically a vacuum zone. We can completely establish a base there."
+An ancient society might produce breathtaking works of art, but it could not compete with the tidal wave of mass-produced industrial goods.
 
-"Moreover," Wen Desi continued, "Hainan has rich resources. There is high-grade iron ore in Shilu, coal mines, salt fields, timber... and a vast plain suitable for growing grain. The climate is warm, crops can be harvested three times a year. It is simply a natural treasure house!"
+If Hainan had any drawback as a transmigrator base, it was its proximity to the mainland. Ming government rule there was relatively tight—except for the inland Li aboriginal region, most of the island was "civilized territory" under imperial administration.
 
-"The most important thing is," Wen Desi lowered his voice, "Hainan's strategic location is extremely important. To the north, it can control the Qiongzhou Strait and choke the throat of the mainland and Nanyang. To the south, it can march into Southeast Asia and compete for maritime hegemony. It is an unsinkable aircraft carrier!"
+Such a prefecture of long-registered households was something the Ming government would not easily relinquish. They would spare no effort to subdue these ambitious outsiders—whether they claimed to be from New Borneo, Australia, or another timespace.
 
-"Sounds good." Wang Luobin was moved, "But, where exactly in Hainan should we choose?"
+From the very beginning, the transmigrators would face punitive expeditions from local forces and Guangdong garrisons. They would have to repel these to gain a foothold.
 
-"I've thought about this too." Wen Desi pointed to a point in the northwest of Hainan Island, "Here, Lingao."
+Hainan also had long-standing Li-Han tensions. Since the Yuan dynasty, there had been a Li uprising somewhere on the island roughly every three years on average. Less than thirty years before their 1627 crossing point—in the twenty-seventh year of Wanli (1599)—the Li leader Ma Shi of Ding'an had risen up, with Li people in Dan, Ya, and Lin responding. The Ming government had to mobilize a hundred thousand troops to suppress it. How to coexist peacefully with the local Li people was another problem.
 
-"Lingao?"
+Finally, historically pirate raids on Hainan had been rampant; many county towns there lacked north-facing gates. In the late Ming, the South China Sea was an era when various Chinese and foreign maritime traders and pirates displayed their abilities as they saw fit. Whether traders or pirates, when an opportunity to plunder arose, none would pass it up. Hainan, situated on major sea routes, had long suffered. One could imagine that the transmigrators, carrying countless modern tools and goods, would be a fat sheep that every party would covet.
 
-"Yes. Lingao County is located in the northwest of Hainan, facing the Beibu Gulf. There is a natural good harbor here - Bopu Harbor (now Xinying Harbor). The harbor is deep and wide, sheltered from wind and waves, suitable for berthing large ships. Moreover, the terrain near Lingao is flat, with the Wenlan River passing through it, providing sufficient water sources and arable land."
+Viewed this way, although Hainan's foundation was better than Taiwan's, the pressures it faced were also much greater.
 
-"More importantly," Wen Desi smiled slyly, "The magistrate of Lingao County is notorious for his incompetence. The local defense is lax, and there are almost no regular troops. We land there, basically facing no resistance."
+"Looking at it this way, let's choose Taiwan," someone proposed during the online meeting after the Executive Committee presented information on Hainan. "Taiwan has malaria, but we can bring quinine. We can also bring cinchona trees to plant there. As for population—there were so many refugees in the late Ming; using food and land as bait, transporting a few hundred thousand people over shouldn't be a problem."
 
-"Just Lingao then!" Xiao Zishan slammed the table, "When do we start?"
+"Transport a few hundred thousand—you make it sound easy. With what?" someone immediately challenged.
 
-"Don't worry." Wen Desi waved his hand, "Before the official landing, we need to do some preparatory work."
+"Ships. We could cross over with a ten-thousand-ton freighter, loaded with supplies and people. A complete maritime hegemon—no need for cannons; whoever displeases us, we just ram them."
 
-"First, we need to conduct on-the-spot reconnaissance of Lingao. We need to figure out the local terrain, hydrography, population, defense deployment, etc., to provide accurate intelligence support for the landing operation."
+"Are you planning to fuel it with alcohol or charcoal?"
 
-"Second, we need to accumulate more materials and funds. Landing is a money-burning operation. Without sufficient logistic support, we can't sustain it for a few days."
+"We can build our own ships. Taiwan has plenty of quality timber."
 
-"Third, we need to recruit and train a pioneer team. This team must have combat effectiveness and construction capabilities, able to gain a foothold in the shortest time after landing and build a defensive position."
+"Fine, then tell me where you'll get sailors."
 
-"I plan to lead the team to Lingao for reconnaissance personally." Wen Desi said, "Zishan, you stay in Guangzhou, responsible for liaison and material transfer. Luobin, you go back to modern times, responsible for recruiting people and purchasing equipment."
+"We can train sailors ourselves; recruit foreign sailors from Macau as instructors."
 
-"No problem." The two agreed.
+"Ridiculous—were Zheng Chenggong's ships all crewed by foreigners? I can't stand you foreign-worshipping types."
 
-A few days later, Wen Desi, disguised as a merchant, boarded a sea ship bound for Hainan. Accompanying him were two hired local guides and several strong transmigrators acting as guards.
+"Can cinchona trees even grow in Taiwan?"
 
-The sea voyage was not smooth. The sea conditions in the Ming Dynasty were complex, and pirates were rampant. Fortunately, the ship they took was relatively large and hung the flag of a powerful maritime merchant, so ordinary pirates dared not provoke it.
+"By that logic, the Leizhou Peninsula can't grow rubber either—but they tried anyway."
 
-After three days and two nights of bumping, the ship finally arrived at Bopu Harbor in Lingao.
+"I'm talking about Taiwan—is the Leizhou Peninsula on the same latitude?!"
 
-Standing on the bow, looking at the desolate coast in front of him, Wen Desi's heart was surging.
+...
 
-This is the place where dreams set sail!
+When the topic drifted to whether treasure ships were wooden ten-thousand-tonners, whether *qinghao* could prevent malaria, and thence to whether traditional Chinese medicine was pseudoscience, Wen Desi hastily curbed everyone's enthusiasm. Xiao Zishan asked to speak.
 
-He observed the terrain of the harbor carefully. Bopu Harbor was indeed a good harbor as recorded in the data. The harbor entrance was narrow and the inside was wide, shaped like a gourd. Inside the harbor, the waves were calm, and the water depth was enough for 10,000-ton giant ships to enter and exit. On the east side of the harbor was a slender peninsula - Lingao Cape, like a natural breakwater blocking the wind and waves from the sea. On the west side was a vast tidal flat, suitable for reclaiming land from the sea and building salt fields.
+"I think Hainan is still more suitable." Xiao Zishan had remained silent until now—he supported the Hainan plan in his heart, but hadn't rushed to declare it. He waited for the debate to clarify the pros and cons, mentally prioritized the various issues, and thus knew where to focus his remarks.
 
-"Good place, really a good place!" Wen Desi praised repeatedly.
+"Why is Hainan more suitable than Taiwan? Compare them against our criteria for a base, and on several key issues, Taiwan falls far short.
 
-After landing, they found an inn in the nearby Bopu market to stay. Bopu market was not big, just a small market formed by a few streets. The residents were mostly fishermen and small merchants, living a poor and peaceful life.
+"First, agriculture. Taiwan's true agricultural development essentially began when Zheng Chenggong recovered it and made it a base for restoring the Ming—around the mid-to-late seventeenth century. Our target year is 1628. At that time, Taiwan had virtually no agriculture—just a small amount of land cleared by migrant coastal villages. Hainan has at least 3.8 million *mu* of cultivated land and dozens of water-conservancy projects built over successive dynasties. Note that this acreage is only what's registered; land concealment in the Ming was considerable.
 
-In the next few days, Wen Desi and his party traveled all over the surrounding areas of Lingao. They measured the terrain, investigated the water sources, visited the villagers, and collected a large amount of first-hand data.
+"On population: in 1628, Taiwan had very few Han migrants. The large-scale industrial and agricultural construction we plan to undertake after crossing requires a substantial labor force. Taiwan's population cannot meet that need, so from the start we'd have to import migrants. Recruiting refugees, organizing them to bring their families thousands of *li* across prefectures and counties to reach the Fujian-Zhejiang coast before arranging sea transport—this is a complex, arduous task involving the mobilization of manpower and resources, and dealing with Ming officials at every level... Who among us has such experience or ability?
 
-They found that although Lingao's natural conditions were superior, the level of development was extremely low. Most of the land was barren, and the water conservancy facilities were in disrepair. The farmers' farming methods were backward and the yield was low. Moreover, the place was deeply affected by bandits and pirates, and the people were struggling to live.
+"Even if we could get enough refugees onto the island, the follow-up work would be difficult. These refugees are essentially destitute—they need epidemic prevention, relief, resettlement, housing, seeds, farm tools... Where do all these things come from? With our early-stage capabilities, handling something of this scale would be beyond us. By contrast, Hainan has at least a four-hundred-thousand population base—a number sufficient for early-stage development."
 
-"This gives us an opportunity." Wen Desi recorded in his notebook, "The people here are eager for change and eager for a stable life. As long as we can bring them food and safety, they will support us."
+The earlier debate had already exhausted most people's enthusiasm, and some irrational remarks had generated distaste. Xiao Zishan's well-reasoned, appropriately-worded statement now won over the majority. Hainan was confirmed as the future base through a vote.
 
-During the reconnaissance, they also discovered an important target - the Bailaren (Hundred Fathoms) Beach on the Wenlan River.
+In the late-Ming timespace, Hainan comprised Qiongzhou Prefecture, governing three subprefectures and ten counties: the counties of Qiongshan, Chengmai, Lingao, Ding'an, Wenchang, Lehui, Huitong, Changhua, Lingshui, and Gan'en; the subprefectures of Dan, Wan, and Ya.
 
-Bailaren Beach was a section of rapids in the lower reaches of the Wenlan River, with a large drop and rapid water flow.
+Glancing at the Yuan-Ming volume of the *Historical Atlas of China*, one would see that Hainan's subprefectures and counties traced a complete circuit around the island's coast. Historically, Hainan had once been Li in the south and Han in the north; but from the Song dynasty on, it became Han on the outside and Li inside.
 
-"This is an ideal site for a hydropower station!" Wen Desi said excitedly pointing to the rapids, "As long as a dam is built here and generator sets are installed, it can provide steady electricity for our base!"
+Among these jurisdictions, Qiongshan, Chengmai, and Lingao had the longest development histories. They were the island's primary Han settlement and agricultural zones—half the Han population was concentrated here.
 
-"Moreover," he pointed to the high ground beside the river bank, "We can build a fortress here - Bailaren City. It guards the main channel of the Wenlan River and overlooks the entire Lingao Plain. It is a battleground for military strategists!"
+Of the three, Qiongshan—seat of the Qiongzhou prefectural government—had the best foundational conditions: of the 3.83 million *mu* of registered official and private land on the island in the late Ming, nearly a quarter was in this county, with close to ninety thousand people registered for taxation.
 
-With a full harvest and longing for the future, Wen Desi ended this reconnaissance trip.
+But at the same time, this was the Ming's political and economic center on the island, ordinarily garrisoned by substantial troops. It also held symbolic political significance; the fall of a frontier prefectural capital like Qiongzhou would trigger massive shock in the Ming court, not to mention large-scale military expeditions.
 
-When he returned to Guangzhou and told Xiao Zishan and others about the reconnaissance results, everyone was encouraged.
+Chengmai was also good, but it bordered Qiongshan—perhaps too close to the Ming's administrative center on the island.
 
-"The target is locked - Lingao!"
+Lingao became the best choice.
 
-(End of this chapter)
+In the present timespace, Lingao was an obscure little county in Hainan, far less famous than Haikou or Sanya. Economically backward, virtually no tourism—unless one was an avid backpacker, most people didn't even know Hainan had such a place. If one searched online for "Lingao," most entries would contain a single phrase from the PLA's Hainan Liberation Campaign sixty years earlier: *The PLA first landed at Lingao Point.* That's right—Lingao Point was in Lingao County, less than twelve kilometers from the county seat.
+
+Though obscure, Lingao was a county with a thousand years of history, traceable to the fifth year of Wude in the Tang dynasty. It was one of the earliest areas settled by Han migrants from the mainland, with a long history of development. Though not as populous as Qiongshan, in the forty-fifth year of Wanli it still had twenty-five thousand registered people. The alluvial plains along both banks of the Wenlan River had been developed early, forming a certain agricultural foundation. With some water-conservancy development, its agricultural potential was considerable. In the present dimension, Lingao was Hainan's land of fish and rice.
+
+Finally, it was separated from Qiongzhou Prefecture by Chengmai—any disturbance would not immediately bring direct pressure from the Ming government. Given the communication speeds and administrative efficiency of ancient dynasties, matters crossing subprefectures and counties typically couldn't be resolved in less than a month—and in a place like Hainan, probably longer.
+
+After this topic, others raised various questions in turn, but Lingao as the base at the start of the crossing was no longer disputed. In Wen Desi's concluding remarks for the meeting, everyone agreed that this had been "a successful conference, a unifying conference, a victorious conference." In future New World history textbooks, the conference was called the "First Traversal Congress." Because there were so many delegates—and quite a few ultimately chose to remain in the Old World—the complete list of names could only be viewed at the "Old World Cathedral"—and theoretically, viewing was prohibited.
+
+**(End of Chapter)**

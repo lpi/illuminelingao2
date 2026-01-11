@@ -1,117 +1,93 @@
-# Chapter 77 - Telecommunications
+# Chapter 77: Telecommunications
 
-Although the hydropower station and waterworks were somewhat crude, having tap water and electricity supply 24 hours a day was undoubtedly a great encouragement to the transmigrators. Everyone was beaming with joy. The cafeteria no longer had to cook with muddy river water that needed alum to settle for half a day. More importantly, people could finally drink relatively clean boiled water. The incidence of diarrhea in the camp dropped significantly.
+Construction of transmigrator housing also commenced. Compared to previous infrastructure projects, this was simpler—prefab buildings were assembled like blocks, not difficult to build.
 
-Of course, the first batch of electricity generated was first supplied to the construction site and the industrial area, causing dissatisfaction among many people who brought laptops and hoped to charge them. However, Chang Kaien explained that the current voltage was unstable and could easily burn out delicate household appliances, which calmed everyone down—no one wanted to scrap the only computer in their hands in this time and space where no parts could be replaced.
+The residential zone's foundation was raised 2 meters—first, to protect against possible floods; second, for defensive advantage if attacked. The entire foundation's slopes were stone-faced; the surface was hardened. The prefabs used the block-layout common in new villages—all buildings uniformly oriented north-south, arranged around a central plaza in seven clusters, numbered clockwise in Arabic numerals. Clusters One through Five were male singles dormitories; Cluster Six female singles; Cluster Seven for families. Each singles unit housed 4 people; families got one unit each. As originally planned, interiors were fitted for comfort: electric lights, power outlets—though no furniture yet, as lumber had to prioritize infrastructure. Even so, many were delighted—for the first time in over ten days, sleeping in a real room, laptops could finally charge, evenings no longer boring...
 
-Following closely behind the power grid project was Li Yun's telecommunications project. In fact, Li Yun's "Telecommunications Group" had only 4 people including himself, and their equipment was pitifully scarce—except for the walkie-talkies and vehicle-mounted radios in the hands of the Military Team and the Construction Team.
+The residential plaza had rows of drying racks installed. The row of buildings at the plaza's north end housed toilets and washrooms. Brand-new flushing toilets were unloaded from ships—not home-style seated toilets, but squatting toilets commonly called "Turkish-style"—the Committee felt fixtures not touching skin were more hygienic. Flushing water came directly from the river, stored in a simple tower behind the toilets. Bairren Fortress began dual-quality water supply from its very founding.
 
-In the original plan, the communicators were preparing to build a small wired telephone network in the Bairen City area, centered on a 200-line program-controlled exchange brought from the ship. But this plan was temporarily rejected by the Executive Committee. The reason was simple: they didn't have enough telephone sets.
+Washrooms and toilets shared drainage facilities. This wastewater flowed by gravity through storm drains to the downwind agricultural zone, where Wu Nanhai had built a large biogas digester. All city sewage was processed there.
 
-"We only have 50 telephone sets on hand, and there are almost 20 departments in the Executive Committee alone. We simply can't allocate them."
+The entire residential zone's perimeter was banked with a man-high low wall of earth and stone—usable for resistance if necessary. There was only one entrance, with sturdy wooden-plank gates atop steps. Beside it stood a two-story duty station of stone and cement mortar—actually a bunker, manned 24/7 by Security Group personnel.
 
-"If we can't allocate them, then don't allocate them. Establish a public telephone system." Li Yun suggested.
+Committee office conditions also improved. A two-story steel-frame prefab complex rose from the ground. Interior fittings were more impressive—furniture taken from the *Fengcheng*—these previously old-fashioned pieces now looked both luxurious and impressive, making many envious. The offices even had a LAN! Rumors circulated that some Committee members played networked games every night in the office building.
 
-Li Yun's public telephone network was very simple. Telephone booths were set up in the cafeteria, dormitory area, Administrative Zone, industrial area, and other densely populated areas, or telephones were installed in offices, with dedicated personnel on duty to answer and transfer.
+This put great pressure on the Communications Group, which had just received an office in the Committee building. Many came to Group Leader Li Yunxing demanding network ports in every room. Others worried there weren't enough routers—with one port per room, people couldn't go online simultaneously. Some suggested just opening wireless service—most people's laptops had that capability anyway.
 
-"This is feasible," Ma Qianzhu nodded, "But do you have cables? We don't have copper mines yet."
+This request was ruthlessly rejected by the Committee. Ma Qianzhu instructed him to establish a communication center at Bairren Fortress ASAP.
 
-"We collected a batch of field twisted pairs. Although not much, it should be enough to lay within the main urban area. My opinion is to lay the lines along with the power grid construction first."
+The Communications Group's pre-crossing plan actually adopted the now-obsolete PHS system *(known as "xiǎolíngtōng" or "Little Smart" in China)*. In practice, this system wasn't ideal—often a "Hello? Hello? Damn!" situation. But as crossing communication equipment, it had simple structure and low power consumption. As for poor signal—17th-century air had no radio interference, no towering buildings or high-voltage lines.
 
-"Okay, you produce a line layout diagram, and let the Architecture Team help erect the poles."
+Li Yunxing had brought a discarded local telecom PHS base station and controller, plus 2 laptops, decommissioned telecom servers, various communication cables, interface equipment, communication protocols, and management software—a complete communication management suite. Enough to build a wireless communication network in this timespace.
 
-Li Yun's biggest reliance was a small program-controlled exchange eliminated by a certain unit. It could accommodate 200 numbers. This kind of equipment eliminated in the 21st century was advanced technology here. He spent a few days debugging the machine in the Simple Room in the Administrative Zone.
+This PHS base station and controller could support over a thousand handsets within a radius of dozens of kilometers. Adding a few remote modules could extend range further—sufficient for internal base communication for a considerable period.
 
-The erection of telephone lines was much faster than the power grid. They were all hung on the cement poles of the power grid. The twisted pair wrapped in black rubber skin extended from the Administrative Zone to all directions.
+They also had over a thousand PHS handsets, all bulk-purchased from the same batch—for interchangeable spare parts and repairs.
 
-While Li Yun was busy with the telephone network, the transmigrators' radio station was also established. This was not a broadcasting station, but a radio communication station responsible for contacting teams going out.
+He estimated the current base station's transmission power at about 50W, covering approximately 15km. To meet Committee requirements, coverage should reach 35–40km, requiring a base-station power amplifier boosting each channel to 200W. This would also significantly increase the system's fading margin. For balance, tower-top amplifiers were needed, increasing uplink signal by about 12dB. Overall estimate: the base station would use 230V/50Hz AC, requiring 7–10kW. He submitted a report to the Committee for power allocation—but with the locomobile station already providing 200kWh, this modest power shouldn't be a problem.
 
-The transmigrators' radio communication mainly relied on shortwave radio stations. There were 4 high-power vehicle/ship-mounted shortwave radio stations available on hand, plus more than ten small portable radios.
+The Communications Group requested Engineering Team help to erect a tower structure in the city and install array antennas. This would reduce echo noise from surrounding buildings. Of course, there were no high-rises currently, but higher was always better.
 
-"With these devices, covering the whole Hainan Island is no problem." Li Yun said confidently to the Executive Committee members who came to inspect, "If the weather is good, contacting the mainland is also possible."
+Director Wen proposed integrating all wireless resources ASAP—enabling radios, phones, and walkie-talkies to intercommunicate. For this reasonable request, Li Yunxing racked his brains, convened his team to research, and finally adopted a crude solution: using the air public interface protocol to provide trunking dispatch for everyone's walkie-talkies. He temporarily built a server from industrial microcontrollers, simulating walkie-talkie signals as phone signals to feed into the exchange. This required not only microcontrollers but also an additional antenna due to PHS and walkie-talkie frequency differences.
 
-"Can we contact Beijing?"
+The PHS launch restored a familiar feeling for everyone. On handset distribution day, the Communications Group office was mobbed. Everyone wanted a so-called lucky number.
 
-"Theoretically possible, but it depends on the ionosphere condition." Li Yun said, "We also brought a set of 100W shortwave radio station specially for long-distance communication. If a directional antenna is erected, global communication is possible."
+"I want 888888!"
 
-"That's useless, who are we going to communicate with? Emperor Chongzhen or King Philip IV?"
+"I want 168168! 'All the Way Rich'!"
 
-"Maybe we can receive signals from the original world?" Someone suggested whimsically.
+"Bullshit—that's mine."
 
-"This is a parallel space-time, not the past of our world. We can't receive it." Li Yun shattered his fantasy.
+"Xiao Shao, remember? I once treated you to dinner. Save me one with 8s!"
 
-The radio station was set up on a small hill in the Administrative Zone. Here, the terrain was relatively high, which was conducive to signal transmission. A simple wooden house was built as the machine room. Several towering bamboo poles were erected outside the house as antenna supports.
+"You people are so vulgar—just want 8s. Skinning?"
 
-The daily work of the radio station was monotonous and boring. Except for contacting the boat at Bopu regularly every day, it was waiting for calls from the exploration team or the confrontation front line.
+"It means 'prosper'! 'Fortune!' You don't know? Illiterate!"
 
-"Calling base, calling base. This is Exploration Team 1." The speaker came to life with a noisy voice.
+"You're the illiterate—your whole family's illiterate. You're not even Cantonese—why ape them?" These two nearly came to blows.
 
-"This is base, Exploration Team 1, please go ahead." The operator on duty immediately picked up the microphone.
+"I want 6s—give me ones with 6!"
 
-"We found a coal mine! Repeat, found a coal mine!"
+Someone was creative: "I want 444444."
 
-"Location?"
+"Then you might as well get 514514," someone joked. *(Note: 514 sounds like "I want to die" in Mandarin.)*
 
-"In the area of Nanbaodong. The reserves seem quite large. We are collecting samples."
+Shao Zong sat behind a desk with a big box on it, shouting: "Don't crowd—one at a time! We're drawing numbers here—no choosing! Whatever you draw, that's yours. Hey hey hey—no taking one, looking, and throwing it back! No manners!"
 
-"Great! Pay attention to safety."
+"Hey Xiao Shao, can I get a nicer-looking one? This phone is hideous." A female voice.
 
-The news of finding coal spread throughout the entire base like wind. For transmigrators who were distressed by energy issues, this was undoubtedly a shot in the arm. Although the calorific value of lignite in Hainan is not high, it is better than nothing. With coal, bricks can be fired, cement can be burned, and boilers can be boiled... The industrial revolution can truly begin.
+"I want a flip phone. Why are these all candybars? So old-fashioned!" Women chattered—their interest wasn't in numbers but the pile of handsets—rummaging through them.
 
-"Long live the Exploration Team!" Someone shouted in the cafeteria.
+"Yeah, no color choices either... If I'd known, I'd have brought the one I left at home..." These phones were bulk-purchased—only colors differed; all same model. No wonder the women were dissatisfied.
 
-"Don't be happy too early, mining and transportation are big problems." Someone poured cold water.
+The Communications Group struggled to maintain order. Just as chaos peaked, Guo Yi, who'd been working nearby, stepped forward:
 
-"Transport by water? The Nanbao River seems to flow into the Wenlan River."
+"Everyone don't crowd." Though he hadn't done public-security work, he was from that profession—never eaten pork but seen pigs run. Seeing this was a chance to perform, he immediately helped maintain order. One hot-tempered guy tried to shove Xiao Guo but got his joint locked until tears flowed. With such a pitiful example, the unruly crowd quickly calmed.
 
-"That requires dredging the river channel first. It's a huge project."
+Number-drawing ended quickly. Besides a few lucky ones getting "8s" and "6s," most got ordinary numbers. Some believers who didn't draw lucky numbers cursed resentfully, approaching the lucky ones to trade personal supplies for numbers.
 
-While everyone was discussing the coal mine, the radio station received another message. This time it was from the Military Team.
+"Business opportunities exist everywhere..." Shao Zong contentedly carried the desk back to the office. Just like in another timespace, the Communications Group—future Crossing Telecom Company—had already reserved so-called lucky numbers. Li Yunxing and Shao Zong calculated: once Crossing Telecom restructured, they'd release these numbers to the market. *Oh boy—wouldn't that be a fortune?*
 
-"Calling base, we captured a spy."
+Seeing the person who'd helped maintain order leaving without a number, he hurried to catch up:
 
-"Spy? Local?"
+"Brother, what's your name? Why didn't you get a phone?"
 
-"Yes, caught near the construction site. It seems to be sent by the county government."
+"Well..." Guo Yi scratched his head, a bit embarrassed. "I have a temporary ID. Can't get a phone yet."
 
-"Bring him back for interrogation. See what the county government wants to do."
+"Oh!" Shao Zong slapped his hand in realization. "You must be Guo Yi."
 
-The interrogation work was presided over by Bei Wei. As a scout from the special forces, he had plenty of means to make a native from the Ming Dynasty speak.
+"You know me?" Xiao Guo was puzzled—he should be unknown here.
 
-"Name?"
+"Mm, others don't know. But our group leader brought back an internal bulletin. I've read it."
 
-"Li... Li Er."
+"Oh? What does it say?" Guo Yi was very concerned about his future. Internal bulletins surely represented this bold group of time-traveling adventurers' leadership's views and policies on him.
 
-"Occupation?"
+"Well..." Shao Zong thought uncomfortably. "Can't really say—it's classified..."
 
-"Hunter... no, militia..."
+*Damn—they really learned fast—mastered this game instantly.* Xiao Guo cursed internally, but his face remained utterly sincere: "No problem—just asking casually."
 
-"Who sent you?"
+"I'll leak a bit then." Shao Zong felt being too principled was inhuman. "The three of you—the Committee means to treat you differently. Just remember that."
 
-"Master... Master Patrol Inspection sent me..."
+*Treat differently?* What did that mean? Guo Yi fell into deep thought.
 
-Under Bei Wei's gaze, Li Er poured out everything like pouring beans from a bamboo tube. It turned out that the county magistrate was very panicked about the transmigrators' construction at Bairen Beach, fearing that they would attack the city after building the stronghold, so he sent many spies to investigate.
-
-"They want to attack us?"
-
-"Hearing... heard that the gentry in the city are donating money and grain to recruit braves, preparing to... expel you..."
-
-"Expel us? With what? Spears and bows?" Bei Wei sneered.
-
-"Also... also crouching tiger cannons..."
-
-"Crouching tiger cannons?" Bei Wei dismissed it, "That kind of firecracker?"
-
-Although despising the enemy's equipment tactically, strategically they must be valued. The Executive Committee immediately held a meeting to study countermeasures.
-
-"Since they want to fight, let's fight." He Ming said, "We just happen to lack labor. Catching a few hundred prisoners of war will solve the big problem."
-
-"But we can't be careless. We have few people, and the base is large and difficult to defend." Ma Qianzhu reminded.
-
-"Strengthen the vigilance. Build more lookout towers around the base. Clear the firing range."
-
-"Also, verify the intelligence. See when they plan to act and how many people there are."
-
-The atmosphere in Bairen City suddenly became tense. The construction team began to accelerate the construction of fortifications. Barbed wire was pulled up layer by layer. Searchlights were erected on high places. At night, beams of light swept across the wilderness from time to time, making the spying natives think it was the demon's eyes.
-
-The transmigrators were both nervous and expectant. They knew that a conflict with the indigenous regime was inevitable. This would be their first real test after landing.
+**(End of Chapter)**

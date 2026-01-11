@@ -1,73 +1,71 @@
-# Chapter 49 - New World
+# Chapter 49: New World
 
-Chapter 49 New World
+At first light, people aboard the *Fengcheng* were already moving about. The events of the previous night—especially the spectacular moment when the wormhole vanished—had become an endless topic of conversation. Most people in the cabins hadn't seen it, but there was no shortage of DV footage and digital photos.
 
-When the sky turned slightly bright, the people on the Fengcheng ship began to walk around. Everything last night, especially the spectacular scene of the wormhole disappearing, became an endless topic for everyone. Most people didn't see this scene in the cabins, but there were quite a few DVs and digital photos that captured the picture.
+The Executive Committee hadn't yet ordered anchors raised. People immediately discovered the first problem no one had anticipated: breakfast for this many people was impossible to manage. The ship's galley was sized for 40 crew—now the *Fengcheng* alone had 400 people. Worse, even washing up became a problem. Long lines formed outside the toilets. Those who couldn't wait simply clambered precariously onto the swaying small-craft deck and relieved themselves directly into the sea.
 
-The Executive Committee had not yet ordered to weigh anchor and sail, but everyone immediately discovered the first unexpected problem in the plan. The breakfast problem for so many people could not be solved - the kitchen on the ship was prepared for a scale of 40 crew members, but now there were 400 people on the Fengcheng alone. What was more terrible was that washing also became a problem. Long queues formed in front of the toilets. Some people who couldn't wait simply risked stepping onto the swaying small boat deck and excreted directly into the sea and high air.
+"Committee Member Ma, this won't work!" Beiwei, appointed as landing reconnaissance squad leader, stormed up to the poop deck, shouting at Ma Qianzhu, the newly appointed landing commander. "All this waste in the water will attract sharks! Landing like this is too dangerous!"
 
-"Commissioner Ma, this won't do!" Bei Wei, who was appointed as the leader of the landing reconnaissance team, was furious. He ran to the poop deck and shouted at Ma Qianzhu, who had just taken office as the landing commander-in-chief, "So many people's excrement will attract sharks! Landing like this is too dangerous."
+Ma Qianzhu said helplessly: "What am I supposed to do? The ship only has 10 toilet stalls for 400 people."
 
-Ma Qianzhu said helplessly: "Then what can I do? There are only 10 positions in the ship's toilets, and now 400 people need to use them."
+"If you don't manage this, accidents will happen! Forget sharks—people climbing around on those wobbly boat decks, one fall and there's no point even trying to fish them out."
 
-"If you don't care, it will be hard to handle if an accident happens later! Sharks aside, everyone is climbing on that swaying small boat deck. If one falls down, there's no need to even fish him up."
+Just then, Auntie Tian, who managed the cafeteria, walked in looking helpless:
 
-While talking, Aunt Tian, who managed the cafeteria, walked in with a helpless face:
+"Committee Member Ma, what do we do? Everyone wants some congee, but looking at the ship's galley, it can't make congee for 400 people—there's no time..."
 
-"Commissioner Ma, what do you say we should do? Everyone says they want to drink some porridge. I see the kitchen on the ship can't make porridge for four hundred people. It's too late..."
+Ma Qianzhu had just been lectured by Beiwei, and now someone was pestering him about congee. Seeing multiple problems before the landing plan even started, he grew impatient: "Take this to Xiao Zishan—isn't he your supervisor?"
 
-Ma Qianzhu had just been educated by Bei Wei, and now someone brought up the porridge problem. Seeing that several loopholes appeared before the landing plan even started, he became impatient: "You find Xiao Zishan for this matter. Isn't he your leader!"
+"But aren't you the landing commander? Everything on this ship is under you."
 
-"But aren't you the landing commander-in-chief? Things on this ship are all under your control."
+*Isn't this all your own doing? Now you're asking me?* Ma Qianzhu cursed inwardly, but couldn't blow up—Auntie Tian was over fifty, had risked her life crossing over to help build a new world. He could only placate her and kick the ball back: "Make as much as you can, distribute it in batches. Something's better than nothing... Go discuss with Zishan again."
 
-Isn't it all caused by yourself! Now asking me what to do? Ma Qianzhu cursed secretly in his heart, but it was inconvenient to flare up - Aunt Tian was over fifty, following the Transmigrators to open up a new world regardless of life and death - he had to deal with it perfunctorily first, kicking the ball back: "Boil as much as you have first, distribute in batches. Having some is better than having none... You discuss with Zishan again."
+Not making congee was actually fine: everyone had two days' worth of dry rations. With adequate freshwater, they could survive on energy bars.
 
-Not boiling porridge for everyone was originally nothing: everyone had prepared dry food for two days. As long as the fresh water supply was maintained, gnawing on those energy bars could also cope with it.
+The problem was that Auntie Tian, upon seeing the ship had a galley, had just started making breakfast according to habit without thinking. Before dawn, Li Yuanyuan from the General Affairs Group had led several young women to bring freshly made congee and steamed buns to the Committee members in the ship's superstructure—each person even got a small dish of packaged pickles and a few fried peanuts.
 
-The problem was that as soon as Aunt Tian saw a kitchen on the ship, she actually started cooking breakfast according to old habits regardless of anything. Before dawn, Li Yuanyuan of the General Affairs Group brought freshly cooked porridge and steamed buns to the Executive Committee members in the ship building with several girls. Each person also had a small dish of bagged pickles and a few fried peanuts.
+Ma Qianzhu knew trouble was coming. The masses didn't mind scarcity—they minded inequality. Why should you leaders eat hot congee and buns while we masses gnaw energy bars that taste like expired mooncake filling, washed down with cold water? Starting the enterprise with differential treatment would scatter hearts and make the team unmanageable. So the Committee ate their congee furtively, no one near the portholes. He grabbed the phone: "Engine room? Max out the desalination equipment! We need to fully ensure freshwater supply!"
 
-Now Ma Qianzhu knew it was trouble. The masses do not worry about scarcity but about inequality. Why do you leaders eat hot porridge and buns, while we masses have to gnaw energy bars that taste like expired mooncake fillings with cold water? At the beginning of this cause, differential treatment was created. Once people's hearts scatter, the team will be hard to lead. So at this moment, the Executive Committee drank porridge secretly, and no one approached the porthole. He touched the phone: "Engine room? Turn the desalination equipment to the maximum. Fully guarantee the fresh water supply!"
+"Fully ensure—who are you?!" came an indignant voice. "The desalination system only produces this much. You want us to piss freshwater?" Ma Qianzhu recognized Xiao Bailang's voice—a mechanical processing specialist who also knew equipment installation and management, he'd been assigned three months aboard to learn engine operations.
 
-"Fully guarantee, who are you?!" An indignant voice came from the phone, "The desalination equipment only has this supply volume. Are you asking us to piss fresh water out?" Ma Qianzhu recognized this voice as Xiao Bailang's. He studied mechanical processing and knew equipment installation and management, so he was assigned to follow the ship to learn engineering for three months.
+*No respect for leadership!* Ma Qianzhu cursed silently. *You femboy, just watch me sell you to Thailand!* After venting mentally, he realized staying here was useless. He might as well follow Beiwei down to the deck.
 
-No respect for leaders! Ma Qianzhu cursed secretly. You sissy, see if I don't sell you to Thailand! Venting in his heart, he thought staying here was useless, so he simply followed Bei Wei down to the deck.
+Dong Shiye sat against his backpack on deck. His legs had gone weak climbing down from the small-boat deck—the sea right between his legs. One glance was enough to make you dizzy. Fortunately, the ship had almost no motion—calm as glass. The waning moon at the horizon was slowly fading. Watching the crowds queuing at the toilets while cursing colorfully, he felt the risk had been worth it.
 
-Dong Shiye sat on the deck leaning against his backpack. His legs were soft when he came down from the small boat deck. Between his legs was the sea. One look was enough to make him dizzy. Fortunately, the ship had almost no ups and downs, calm and tranquil. The waning moon on the horizon was slowly fading. Looking at the masses queuing by the toilet cursing three-character classics, he felt the risk was still worth it.
+No place to wash hands, but he'd prepared for this long ago. He took out a disinfecting wipe—he'd brought plenty of toilet paper, wipes, and water-purification tablets. Relying entirely on the organization was unreliable. He didn't take out a cup to brush his teeth either—many people along both railings were singing to the sea, streams of white foam leaving trails of stains down the hull. Quite a sight. He just used dental floss and a piece of chewing gum for oral hygiene. Not opening his neatly packed backpack—that was his principle.
 
-No place to wash hands. Fortunately, he was prepared for these problems. He took out a disinfectant wipe and wiped - toilet paper, disinfectant wipes, water purification tablets, he brought a lot of these. Relying entirely on the organization was unreliable. He didn't take out a cup to brush his teeth either - many people on both sides of the ship kept posing as if singing loudly, and white foam hung dirty streaks on both sides of the hull, which was spectacular. He only used dental floss and a piece of chewing gum to clean his teeth. Try not to open the packed backpack, this was his principle.
+The congee supplied by the Committee caused some temporary chaos. Dong Shiye didn't join in—each batch of 4 large pots served only 40 people, one bowl each. The wait was too long. He didn't gnaw those awful energy bars either. He'd brought PLA individual special rations; some compressed biscuits with water would do. Drinking congee meant having to wash the bowl later. Without washing, the bowl became a petri dish for bacteria.
 
-The porridge supplied by the Executive Committee made the order a bit chaotic for a time. Dong Shiye didn't join in the fun - 4 big pots each time, only enough for 40 people, one bowl each. The waiting time was too long. He didn't go to gnaw the unpalatable energy bars either. He brought the PLA individual special rations. Gnawing compressed dry food and drinking some water was enough. Drinking porridge would require finding water to wash the plate later. If not washed, the plate would become a culture medium for bacterial growth.
+Looking out from the ship, the coastline that had been pitch-black last night was now clearly visible. Lingao was supposedly a well-developed county, but this stretch of coast looked uninhabited.
 
-Looking out from the ship, the coastline that was pitch black yesterday was now clearly distinguishable. Lingao should be a very maturely developed county, but this strip of coast seemed uninhabited.
+The beach off the beam was very narrow, covered with black gravel—nothing like the "azure sea, silver sand" image of Hainan. Behind it was a low escarpment, the rock fractured by earthquakes into gaps of various sizes and shapes. In some places, gentle slopes led to the cliff top.
 
-The beach not far outside the side was very narrow, covered with black gravel, not feeling like the blue sea and silver sand of Hainan in impression at all. Behind was a low broken cliff. Due to earthquakes, the rock fracture cliff was cut into many gaps of different sizes and shapes. In some places, there were several gentle slopes leading to the top of the broken cliff.
+Looking west, less than a nautical mile from the *Fengcheng*, a promontory jutted from the land—that would be Bopu Port's river mouth. The cape was covered with mangroves leaning toward the water. These mangroves were lush and green, extending across nearly the entire coastal area into the water. A botanist would have jumped for joy—such a complete mangrove ecosystem was rare in 21st-century Hainan.
 
-Looking west, less than one nautical mile from the Fengcheng, there was a cape protruding from the land. That was probably the river mouth of Bopu Harbor. The cape was covered with many mangroves leaning towards the water surface. These mangroves were lush and green, almost covering the entire coastal area and extending into the water. If a botanist came to this place, he would definitely jump up happily - such a complete mangrove ecosystem is rarely seen in 21st century Hainan.
+Dong Shiye suddenly noticed something strange: among all these coastal trees, there wasn't a single coconut palm! This amazed the veteran outdoor enthusiast. Coconut palms were hardy trees, common on tropical and subtropical islands and coasts everywhere. He didn't know that Lingao originally had no coconut palms—the 21st-century coconuts in Lingao had only been introduced starting in the 1930s.
 
-Dong Shiye suddenly discovered a strange phenomenon, that is, among these coastal trees, there was not a single coconut tree most common in Hainan! This surprised this old backpacker very much. Coconut trees are relatively easy to survive, visible everywhere on tropical and subtropical islands and coasts. He didn't know that Lingao locally indeed didn't have coconut trees originally - the coconut trees in 21st century Lingao were introduced successively after the 1930s of the last century.
+On the beach, large flocks of raucous seabirds wheeled and dove—mostly various gulls, plus some loons. Obviously, such dense flocks were rarely seen in the 21st century. This wild, primordial feeling was somewhat oppressive—clearly, humans had barely touched this place.
 
-On the beach, large flocks of seabirds with harsh calls were taking off and landing. Most of them were various different seagulls, and also loons. Obviously, such dense bird flocks are rarely seen in the 21st century. This wild feeling made his mood a bit depressed - this was still a place where humans rarely set foot.
+Commotion erupted on the *Fengcheng*'s starboard side. Led by Beiwei, the first landing reconnaissance squad—rifles and machetes on their backs—climbed down the boarding ladder under everyone's gaze and boarded the motorboat.
 
-A burst of noise outside the starboard of Fengcheng. The first landing reconnaissance team led by Bei Wei, carrying rifles and machetes, climbed down the gangway under the gaze of comrades and boarded the motorboat.
+The reconnaissance squad consisted of military personnel, surveyors, and geologists. Their mission: scout the port and coastal terrain for several kilometers, gather hydrographic data, and locate any villages and water sources. They were equipped with walkie-talkies, defensive weapons, 25×8 binoculars, surveying tools, and a 3-megapixel camcorder.
 
-The landing reconnaissance team consisted of military personnel, engineering surveying personnel, and geological personnel. Their task was to investigate the terrain, hydrological data, and possible villages and water sources of the port and the coast for several kilometers. Equipped with walkie-talkies, self-defense weapons, 25X8 binoculars, surveying tools, and a 3-megapixel DV.
+To handle potential emergencies, everyone wore stab-resistant vests, camouflage, and steel helmets. The Committee had originally wanted to issue them riot gear, but Beiwei refused—while first-rate for protection, it was too cumbersome for active movement.
 
-In order to cope with possible accidents, everyone wore stab-proof suits, camouflage uniforms and steel helmets. The Executive Committee originally intended to equip them with riot suits, but Bei Wei rejected it - although this thing has first-class protection effect, it is really a bit strenuous to move around wearing it.
+"Be careful!" Ma Qianzhu said at the boarding ladder.
 
-"Pay attention to safety!" Ma Qianzhu said to Bei Wei at the gangway.
+"Don't worry." Beiwei turned and descended into the motorboat.
 
-"Rest assured." Bei Wei turned and got on the motorboat.
+The engine's "putt-putt" broke a primordial silence centuries early. The motorboat cut through the waves, speeding toward the hazy coastline.
 
-"Tu tu..." The engine sound broke the tranquility of thousands of years hundreds of years earlier than in reality. The motorboat cut through the waves and drove quickly towards the looming coastline.
+Beiwei led the landing party, with full authority over landing security. Landing Command's orders: prioritize information gathering; avoid armed conflict with locals. If contact was made, try to learn about local conditions. For this purpose, Xiong Buyou had been specifically included—normally, this manga-company homebody shouldn't have been in a first-wave recon team, but he spoke the Lingao dialect, serving as interpreter.
 
-Bei Wei was the captain of the landing team, fully responsible for the safety of the landing. The order given to him by the landing command was to focus on collecting data and avoid armed conflict with locals. If people could be contacted, try to inquire about the local situation. For this reason, Xiong Buyou was specially arranged into the reconnaissance team - logically, this otaku from a comic company shouldn't appear in such a first batch of reconnaissance team, but he could speak Lingao dialect and was the translator in the team.
+Lingao dialect was an anomaly among Hainan's languages. In modern Hainan, only parts of Lingao, Danzhou, and Chengmai used it. Not only vastly different from Mandarin, it was completely distinct from Hainan's mainstream Qiongzhou dialect. It was generally considered to share origins with Guangxi's Zhuang language.
 
-Lingao dialect is an anomaly in Hainan dialects. In modern Hainan, only people in Lingao, Danzhou and part of Chengmai use it. It is not only extremely different from Mandarin, but also completely different from the mainstream dialect of Hainan, Qiongzhou dialect. It is generally believed that this language has homology with the Zhuang language in Guangxi.
+This linguistic difference had always made Lingao a distinctive presence in Hainan, with limited outside contact and a rather closed social environment.
 
-The difference in language made Lingao always a maverick existence in Hainan, with less communication with the outside world, and the social environment was quite closed.
+Xiong Buyou had originally planned to wear the chainmail he'd brought at the cost of luggage weight, but Beiwei firmly refused—too heavy. A stab-resistant vest was more practical.
 
-Xiong Buyou originally intended to wear the chain mail he brought at the cost of luggage weight, but this thing was sternly rejected by Bei Wei - too heavy, stab-proof vest is more practical.
+Because map positioning would have significant errors—while they had the largest-scale Lingao county map and topographic map available, 400 years of change meant uncertain accuracy—purely better than nothing. Therefore, Beiwei decided not to approach the shore immediately but head directly toward the area's most prominent landmark: Lingao Cape.
 
-Because the positioning relying on the map would have a large error - although the equipped map is the largest scale map and topographic map of Lingao County. But after all, four hundred years separated them. It is hard to say how much accuracy the topography has. It is purely better than nothing. Therefore, Bei Wei decided not to approach the coast for the time being, but head directly towards the most significant terrain marker here - Lingao Cape.
-
-(End of this chapter)
+**(End of Chapter)**

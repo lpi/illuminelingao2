@@ -1,106 +1,104 @@
-# Chapter 50 - Lingao Cape
+# Chapter 50: Lingao Cape
 
-Chapter 50 Lingao Cape
+If anything made Lingao County widely known in this timespace, it was "Lingao Cape." This had always been a strategic point on Hainan Island. Yu Eshui had specifically noted at the pre-departure intelligence briefing that since the Yuan Dynasty, Lingao Cape had had a beacon tower. In the Ming, the Bopu Patrol Office was established here to "examine and interrogate transmigrators." During the Zhengde era, thirty archers and three patrol boats were stationed here. By the end of the Wanli era, there were still twelve archers—presumably with at most one small boat. However, this place had long been a typhoon shelter for Lingao fishermen, so they might encounter local fishing boats.
 
-If Lingao County in this space-time is most widely known in any way, it is the place "Lingao Cape". This has always been a key pass of Hainan Island. Yu Eshu specially pointed out at the intelligence briefing before departure that since the Yuan Dynasty, a beacon tower was set up at Lingao Cape. In the Ming Dynasty, Bopu Inspection Station was set up here, "supervising interrogation matters". In the Zhengde years, there were thirty archers and three patrol boats here. By the end of Wanli, there were still twelve archers here, estimated to have at most a small boat. However, this place has always been a shelter for Lingao fishermen, and local fishing boats might be encountered.
+Beiwei carefully scanned the terrain ahead from the bow. Three months before D-Day, some Military Group personnel had conducted a staff reconnaissance trip to Hainan in the 21st-century timespace. They'd focused on the planned landing sites: Lingao Cape–Bopu Port, with Maniao Bay, Hongpai Bay, and Houshui Bay as alternates.
 
-Bei Wei carefully searched the terrain ahead at the bow. Three months before D-Day, some personnel of the Military Group had conducted a staff travel to Hainan in the 21st century space-time. Key reconnaissance was done on the planned landing sites: Lingao Cape - Bopu Harbor and backup sites such as Maniao Bay, Hongpai Bay, Houshui Bay, etc.
+As landing recon team leader, Beiwei had not only examined the terrain in detail then but had subsequently reviewed the local topography multiple times from archived materials—to be absolutely certain.
 
-As the leader of the landing reconnaissance team, Bei Wei not only examined the terrain in detail at that time but also reviewed the local topography many times afterwards based on data to ensure nothing went wrong.
+The eastern sky was whitening. Everything on shore was crystal clear through the binoculars. The motorboat had now entered a broad bay. According to the chart, this should be Longhao Bay southwest of Lingao Cape—a calm area where fish schools often came to rest, one of Lingao's important fishing grounds.
 
-The east turned white. Everything on the shore appeared very clear in the binoculars. The motorboat had entered an open bay at this time. According to the chart, this should be Longhao Bay southwest of Lingao Cape. Because the wind and waves were small, fish schools often migrated here to inhabit. It was one of the important fishing grounds of Lingao.
+Beiwei searched with his binoculars and soon spotted a familiar triangular cape extending roughly one kilometer from northwest to southeast—no mistake, this was Lingao Cape.
 
-Bei Wei searched with binoculars and soon saw the familiar triangular cape extending from northwest to southeast, about one kilometer long - yes, this is Lingao Cape.
+Here, Lingao Cape formed a natural breakwater, 1.5 kilometers long and 500 meters wide. The middle of the causeway was all sand washed up by the sea, crystal white, forming a sandy path. The 21st-century cape had stone bunkers, watchtowers, and a lighthouse built by the Qing customs office in the 19th year of Guangxu (1893). In this timespace, the causeway was empty, but the overall landform was little different.
 
-Lingao Cape formed a natural breakwater here, 1.5 kilometers long and 500 meters wide. The middle of the embankment was sand washed up by seawater, crystal white, forming a sand embankment road. In the 21st century, there were stone bunkers, watchtowers on the cape, and a lighthouse built by the Qing Customs in the 19th year of Guangxu (1893). Although the embankment in this space-time was empty, the overall topography difference was very small.
+"Slow down. Watch the water below," Beiwei reminded. Besides the portion above water, Lingao Cape had a considerable submerged section. Though the motorboat's draft was negligible, scraping bottom on a reef would still be costly.
 
-"Slow down, pay attention to observing underwater." Bei Wei reminded. Besides this part of the embankment exposed on the water surface, Lingao Cape also had a considerable part submerged underwater. Although the draft of the motorboat could be almost ignored, hitting the bottom on a reef would also cause significant loss.
+The seawater was crystal clear; white sand between underwater rocks was almost distinctly visible. The boat passed Lingao Cape and entered Changgong Bay. Even without binoculars, the crew could see Bopu Cape extending southeast. Changgong Bay was thus embraced by two capes—about two kilometers wide, the inner bay calm as a sheet, sand bright, water clear, only tiny white waves rolling at the shore.
 
-The seawater was clear and transparent. The fine white sand between underwater reefs was almost clearly distinguishable. The small boat crossed Lingao Cape and entered Changgong Bay. Even without binoculars, people on the boat could see Bopu Cape extending to the southeast corner. The entire Changgong Bay was embraced by two capes like this. The bay bottom, about two kilometers wide, was calm as a mat. Sand bright and water quiet, only tiny white waves rolled on the shore.
+"I really want to swim here," someone said.
 
-"Really want to swim here." Someone said.
+"Build a sanatorium here someday!"
 
-"Build a sanatorium here in the future!"
+Everyone laughed. Saying this now felt somewhat absurd—like poor people discussing what they'd do once rich.
 
-Everyone laughed. Saying this now felt a bit absurd, like a group of poor people saying what they would do after getting rich.
+Beiwei carefully warned the helmsman not to go too deep into the bay—an arrow flying their way would be no joke.
 
-Bei Wei carefully asked the boat operator to pay attention not to go too deep into the bay. If an arrow was shot over, it wouldn't be a joke.
+"Captain, what's that mountain?" Li Jun pointed at an enormous oval shape emerging from the greenery on distant Bopu Cape.
 
-"Captain, what mountain is this?" Li Jun pointed to a huge oval object emerging from the green bushes on the distant Bopu Cape.
+"That's not a mountain. It's the beacon tower."
 
-"Not a mountain, it's a beacon tower."
+"The beacon tower is that big?!" Everyone on the boat was amazed. Their mental image of beacon towers was the sand-worn earthen platforms along the Silk Road. But this one was still 16 meters high after 400 years. Now Beiwei estimated it at over 20 meters, with 45-degree slopes—at first glance, it looked like a small hill common in hilly terrain. The entire tower was built of laid stone blocks, with a core of rammed earth. Completely different from the 21st-century ruins overgrown with weeds and trees.
 
-"Beacon tower is so big?!" People on the motorboat were surprised - the beacon towers in their impression were earthen platforms eroded by wind and sand on the Silk Road in the Western Regions. But this tower still had 16 meters height even after 400 years. At this time, Bei Wei visually estimated its height to be at least 20 meters, with a 45-degree slope. At first glance, it looked very much like a common small hill in hilly areas. The whole body of the tower was built with stone slices, and the inside was rammed earth. It was completely different from the barren hills severely collapsed and peeled off, covered with miscellaneous trees and wild grass in the 21st century.
+"Everyone stay alert! There are Ming soldiers stationed here. Pull down your face shields!"
 
-"Everyone pay attention to safety. There are Ming troops stationed here. Pull down masks!"
+At the command, everyone lowered the visors on their riot helmets. The motorboat quickly rounded Bopu Cape and entered the southeastern waters.
 
-With the order, all personnel pulled down the masks on their riot helmets. The motorboat quickly bypassed Bopu Cape and entered the southeast sea area.
+"Bopu Port!"
 
-"Bopu Harbor!"
+This was the estuary of the Wenlan River, Lingao County's largest waterway. This river, less than 90 kilometers total, here formed a broad harbor with its mouth facing north. The shadowy dark island in the distance was Red Stone Island—Bopu Port's eastern edge.
 
-This place is the estuary of the largest river in Lingao County - Wenlan River. This large river, less than 90 kilometers in total length, formed an open harbor here, with the bay mouth facing north. A blurry black island shadow in the distance was Hongshi Island - the eastern edge of Bopu Harbor.
+"Reduce speed! Enter the harbor. Alert status!"
 
-"Slow down! Enter the harbor. Alert!"
+The harbor beach opposite Red Stone Island was silty sand, covered with lush mangroves. In some places, burnt and logged patches were starkly visible. Behind the mangroves was undulating tableland—not high, with uneven tops. On the harbor's south side, opposite these mangroves, was a completely different environment: overgrown weeds and what appeared to be ruins of buildings.
 
-The harbor beach opposite Hongshi Island was sandy and muddy, covered with large patches of lush mangroves. In some places, very abrupt traces of burning and logging could be seen. Behind the mangroves was a rolling terrace, not high, with uneven tops. Opposite these mangroves, the south of the harbor was a completely different environment, overgrown with wild grass. There seemed to be ruins of houses.
+The beach was littered with withered seaweed and many uprooted trees—evidence of a recent typhoon. One important reason for choosing to land after the ninth lunar month was to avoid the typhoons and storm surges that came around the fifteenth of the eighth month every year.
 
-Scattered on the shore were withered seaweed and a large number of uprooted trees. This was evidence that a typhoon had visited not long ago - one important reason for choosing to land in the ninth lunar month was to avoid the typhoon and storm surge disasters that came around the fifteenth of the eighth lunar month every year.
+The harbor interior was quite open. Near the water were extensive mangroves; tidal flats crisscrossed everywhere. Various waterbirds circled and landed overhead. The water was murky—clearly a muddy bottom. The shore was flat with slight undulation. Unexpectedly, not a single fishing boat was visible through the binoculars—something wasn't right...
 
-The inside of the harbor was quite open. Places near seawater were all large patches of mangroves. Tidal flats crisscrossed. Various water birds took off, landed and hovered in the sky. The water quality was not clear, obviously showing a muddy bottom. The shore was flat, slightly undulating. Unexpectedly, there were no fishing boats in the binoculars - this was a bit wrong...
+"This place is really desolate!" someone exclaimed.
 
-"This ghost place is really desolate!" Someone already sighed with emotion.
+"This is what the Committee called a 'well-developed county'? What are undeveloped places then—virgin forest?"
 
-"This is the maturely developed county said by the Executive Committee? Then aren't places not maturely developed all primitive forests?"
+Beiwei shot an annoyed glance at the speaker—become a civilian too long and basic military discipline was nearly forgotten.
 
-Bei Wei glanced at the speaker unhappily - having been a civilian for a long time after retiring, almost forgot basic military discipline.
+Though Bopu was called Hainan's gateway, pirates raiding Qiongbei had long used it as a shortcut. Over time, except for some *Danjia* fishermen who scattered here to fish, it remained desolate well into the Kangxi era. The contemporary Lingao magistrate Fan Shu, visiting and sighing, composed a poem describing the environment:
 
-Although Bopu was known as a key pass in and out of Hainan, for a long time, pirates often regarded this as a shortcut every time they plundered northern Qiongzhou. Over time, except for a small number of Tanka people living scattered here for fishing, it was extremely desolate until the Kangxi years. The then Lingao magistrate Fan Shu inspected this place and wrote a poem to describe the environment here with emotion:
-Horses frequently walk along the seashore,
-Old pass ferry deep in desolate smoke;
-White waves fill the eyes at the Dan-Cheng boundary,
-Tanka stove people with yellow bamboo hats covering heads;
-Three-foot low eaves to prevent typhoon mother,
-A fist-sized small stone to sacrifice to Dragon God
-......
+> *Riding alone, I've often passed this shore,*
+> *In smoky desolation, the old customs station;*
+> *White waves filling my view at the Danzhou border,*
+> *Yellow-hatted Danjia folk by their salt-fire stations;*
+> *Three-foot eaves low against the typhoon-mother,*
+> *A fist-sized stone shrine to the Dragon God...*
 
-"Turn off the rudder! Measure water depth."
+"Kill the engine! Measure the depth."
 
-They had complete hydrological data of Bopu Harbor in hand. According to the hydrological data, the water depth of the estuary harbor ranged from 2 meters to 10 meters. But now it was the 17th century. 400 years of sediment deposition and river channel changes would have large errors.
+They had complete Bopu Harbor hydrographic data. According to records, the estuary's depth ranged from 2 to 10 meters. But this was the 17th century—400 years of silt and channel changes would create significant errors.
 
-The motorboat began to paddle slowly. Li Jun erected a steel riot shield of the Armed Police, covering the hydrological staff to release the lead line.
+The motorboat began to drift slowly. Li Jun raised a steel Armed Police riot shield, covering the hydrographic personnel as they lowered the lead line.
 
-Bei Wei knew clearly that the motorboat at this time became a very good target, unobstructed on the open water surface. He was not afraid of someone shooting an arrow. Anyway, that kind of rough iron arrowhead couldn't penetrate the stab-proof suit and helmet. But if the opponent had a small cannon hidden in the grass on the shore, a meal of iron sand and lead shots from 50 meters away would definitely cause casualties.
+Beiwei knew the boat was now a perfect target—completely exposed on open water. He wasn't afraid of an arrow—those crude iron arrowheads couldn't pierce stab-resistant gear or helmets. But if someone had a small cannon hidden in the shore grass, a blast of iron shot and lead from 50 meters would definitely cause casualties.
 
-People of the Military Group all held guns in hand, bullets loaded, monitoring every corner around.
+Military Group members held their weapons ready, rounds chambered, watching every corner.
 
-At this moment, on the beacon tower, a figure was also observing the small boat in the bay.
+Just then, on the beacon tower, a figure was also observing the small boat in the bay.
 
-This person wore a bowl-mouth iron helmet with a thick layer of yellow rust, and wore a rotten leather armor - added when the imperial court increased weapons for Hainan guards in the tenth year of Jiajing. Carrying a waist knife of the same age in hand, the wooden scabbard was rotten and falling apart, barely wrapped with rattan.
+This person wore a bowl-shaped iron helmet encrusted with thick yellow rust and a leather cuirass rotted beyond recognition—issued when the court had augmented Hainan garrison equipment in the 10th year of Jiajing. He held a saber of the same vintage; its wooden scabbard had fallen apart and been crudely bound with rattan.
 
-Behind him was a soldier, also with a rusty iron helmet on his head, no armor, wearing a tattered mandarin duck battle jacket indistinguishable inside out. Carrying a set of bow and arrows on his back, and also a waist knife of high age and virtue at his waist.
+Behind him was a soldier with an equally rusty iron helmet, no armor, wearing a tattered mandarin-duck combat jacket impossible to tell inside from outside. He carried a bow and arrows and had a similarly ancient saber at his waist.
 
-Fu Bowan was a native of Qiongshan County. He practiced martial arts when young and obtained a title of military Xiucai, but never passed the examination again. Nearing forty, he muddled into a position of inspection station chief of rank 9b, leading twelve archers to guard this "Key Pass of Qionghai". Although this place was called a key pass, actually there were not many travelers. Usually, those he could interrogate were just some Tanka fishermen and small merchants coming from Leizhou to trade at sea. Neither oil and water (profit), nor excitement, just desolate and lonely. What he saw most were still pirates.
+Fu Baiwen was from Qiongshan County. He'd studied martial arts in his youth and achieved a "martial xiucai" degree but never passed higher. Near forty, he'd finally gotten a lowly ninth-grade patrol inspector post, commanding twelve archers to guard this "Qiong Sea Gateway." Though called a gateway, transmigrators were few; mostly he examined *Danjia* fishermen and small traders from Leizhou. No profit here, just desolation. What he saw most of were pirates.
 
-Because Hainan is located on an important maritime traffic route, it has always been a place where pirates are extremely rampant. Historically, pirates have plundered Lingao many times, even besieged the county seat. In the eleventh year of Shunzhi, they actually captured the magistrate of Lingao. The Ming and Qing governments had no countermeasures for this, nothing more than building beacon towers widely and raising fire to alarm upon seeing maritime abnormality.
+Hainan, situated on crucial sea lanes, had always been plagued by extreme pirate activity. Throughout history, pirates had raided Lingao multiple times, even besieged the county seat. In the 11th year of Shunzhi, they'd actually captured the Lingao magistrate. Ming and Qing governments had no real countermeasures—just built more beacon towers. Any unusual activity at sea meant lighting the signal fire.
 
-Pirates anchored here to take water, everyone lived in peace. Once they entered the bay deeply and released boats to land. The only thing Inspector Fu could do was to run to the beacon tower immediately to light that pile of horse dung fire, and then take people to find a place to hide. Once the beacon fire was lit, smoke and fire could be seen for dozens of miles along both banks of the Wenlan River up to Lingao County seat. The people hid, and the city gates closed immediately.
+When pirates anchored here for water, everyone kept the peace. But once they entered the harbor and launched boats, all Inspector Fu could do was run to the beacon tower to light the dung-fire, then lead his men to hide. Once the beacon was lit, the fire was visible within a radius of tens of *li* along the Wenlan River all the way to Lingao town. Commoners would flee; city gates would immediately close.
 
-Every year after the fifteenth of the eighth lunar month, when typhoons gradually subsided, pirates' coastal plundering became frequent. Fishing boats that usually took shelter and rested here didn't come recently either. These patrolling archers naturally couldn't neglect - although the pay was small, it was a salary after all.
+Every year after the fifteenth of the eighth lunar month, when typhoons subsided, pirate coastal raids became frequent. The fishing boats that usually sheltered here had recently stopped coming. The patrol archers naturally couldn't slack off—however meager, it was still a salary.
 
-As soon as the reconnaissance team's motorboat entered Changgong Bay, the archer looking out on the beacon tower saw it. Generally, he wouldn't disturb the inspector master for such a small boat. But this small boat traveled so fast, which surprised him. When the boat entered the estuary, the comers were all burly, wearing iron helmets and black armor, and holding black iron firelocks in their hands. This situation was terrible. He hurriedly invited Inspector Fu up to the beacon tower.
+The reconnaissance squad's motorboat had been spotted by the tower lookout as soon as it entered Changgong Bay. Normally, he wouldn't bother the Inspector over such a small boat. But this one traveled incredibly fast, which startled him. When the boat entered the river mouth and he saw the occupants—all burly men in iron helmets and black armor carrying black fire-lances—this was serious indeed. He immediately summoned Inspector Fu to the tower.
 
-"Inspector Fu, who are these people," the archer asked softly from behind, "Go up to interrogate?"
+"Inspector Fu, who are these people?" The archer quietly asked from behind. "Should we go down and question them?"
 
-"Never seen." Although Hainan is a prefecture and county on the southern border, the common people have seen a lot. Fu Bowan had seen Japanese, Portuguese, and Red-haired barbarians. The boat and people right now were not within his common sense range. The only thing he could tell was that this group of people was obviously not to be trifled with.
+"Never seen them." Though Hainan was a southern frontier, its people were worldly. Fu Baiwen had seen Japanese, Franks, and Red-Hair barbarians. But this boat and these people were beyond his knowledge. The only thing clear was that this group was not to be trifled with.
 
-"Seems measuring water depth?"
+"Looks like they're sounding the depth?"
 
-Fu Bowan nodded: With the paddling of the small boat, behind that black shield, someone was constantly retrieving and releasing a rope. Measuring water depth meant a big ship was coming in.
+Fu Baiwen nodded. As the small boat drifted, someone behind that dark shield was constantly raising and lowering a rope. Sounding depths meant a large ship was coming.
 
 "Light the fire?"
 
-He hesitated for a moment and immediately made up his mind: The comers were few, but fully armored, already people violating the ban, absolutely not good citizens. Measuring water depth privately here, obviously a large group of troops and horses were coming. Now the sky was about to be bright, and the people were going out to make a living. If bandits plundered, they would suffer greatly!
+He hesitated briefly, then made up his mind. The visitors were few but fully armored—already criminals violating the law, certainly no law-abiding citizens. Secretly sounding depths meant a large force was coming. Dawn was breaking; the commoners would soon be out earning their living. If these bandits raided, they'd suffer grievously!
 
 "Light the fire!"
 
-(End of this chapter)
+**(End of Chapter)**
