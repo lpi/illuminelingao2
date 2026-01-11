@@ -10,9 +10,9 @@ The Medical and Health Group conducted final health reviews, focusing on immuniz
 
 For certain vaccines, it was too late for catch-up doses—the complete hepatitis B series took eighteen months. The Health Group had to increase vaccine procurement.
 
-"Don't these people know they're gambling with their lives?" Hema looked at the "Incomplete Immunization Status Report." He didn't know seventeenth-century Hainan's disease situation, but it was easy to imagine—a paradise for microorganisms. Cholera had still broken out multiple times in Hainan in the twentieth century.
+"Don't these people know they're gambling with their lives?" He Ma looked at the "Incomplete Immunization Status Report." He didn't know seventeenth-century Hainan's disease situation, but it was easy to imagine—a paradise for microorganisms. Cholera had still broken out multiple times in Hainan in the twentieth century.
 
-"Many also haven't done the corneal incision for vision correction," Dr. Lan Fangfang said painfully. He'd had to add a complete set of old-fashioned optometry equipment to the medical supplies—compared to the ubiquitous computerized optical equipment, these were genuinely hard to find.
+"Many also haven't done the corneal surgery for vision correction," Dr. Lan Fangfang said painfully. He'd had to add a complete set of old-fashioned optometry equipment to the medical supplies—compared to the ubiquitous computerized optical equipment, these were genuinely hard to find.
 
 Many things were hard to find. The Health Group's headache was that they couldn't casually use disposable supplies like modern hospitals. Glass syringes, glass IV sets—these were now difficult to locate. Matching items like small medical autoclaves had also vanished. They'd searched many pharmaceutical companies, medical-equipment factories, and hospital warehouses to assemble everything. Specialized rubber tubing on old medical equipment had long since deteriorated; there was nowhere to source replacements, so they had to commission custom molds from manufacturers—at great expense.
 

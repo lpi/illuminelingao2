@@ -24,7 +24,7 @@ The North American Branch's yacht arrived first, ten minutes early. Its blue-and
 
 "Nice figure on that girl." Wang Luobin murmured, binoculars raised.
 
-"Chestnut hair—not a Western mare."
+"Chestnut hair—not a Western chick."
 
 "What do you know? She's Latina. You don't have to be blonde and blue-eyed to count."
 
@@ -70,7 +70,7 @@ The transmigrators in the cabins didn't know what was happening outside. Everyon
 
 No one responded. Many had closed their eyes the instant the lights flickered.
 
-Shortly after the rear-guard fishing boat passed through, the wormhole passage—which had been reflecting the freighter's lights like a mirror—suddenly began glowing. In seconds, it expanded from a plane into a sphere of blinding light, then... vanished! Seawater rushed back into the 50-meter-diameter void the wormhole had left. The colliding water shot 10+ meters into the air with a sound like a giant drum. The rear-guard fishing boat, 100+ meters from the wormhole, took a brutal wash from 4–5-meter waves. Fortunately, preparations were thorough—no losses.
+Shortly after the rear-guard fishing boat passed through, the wormhole passage—which had been reflecting the freighter's lights like a mirror—suddenly began glowing. In seconds, it expanded from a plane into a sphere of blinding light, then... vanished! Seawater rushed back into the 50-meter-diameter void the wormhole had left. The colliding water shot over ten meters into the air with a sound like a giant drum. The rear-guard fishing boat, over a hundred meters from the wormhole, took a brutal wash from four- to five-meter waves. Fortunately, preparations were thorough—no losses.
 
 "All ships, report status!" Meng De called on the radio.
 

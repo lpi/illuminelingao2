@@ -4,7 +4,7 @@ At last.
 
 Dong Shiye gazed at the barren beach less than 300 meters away, the green tree clumps, the warm autumn morning sun—quite comfortable. *Damn God, I've finally reached the ancient times.* But wait—*why did I want to come to ancient times?*
 
-The question flashed through his mind, then he was shoved forward by people behind him. The deck was chaotic and packed. There was a dock, sure—but it wasn't Shanghai's Number 16 passenger terminal. No comfortable covered gangway with handrails. Just vertical metal ladders and large cargo nets—as a former president of his university's military-enthusiast club, Xiao Dong naturally recalled Normandy landing photos: American GIs had climbed down these same nets to landing craft to liberate Europe and, incidentally, take care of various countries' women. Looking at pictures hadn't seemed like much. Now, standing on the heaving deck and peering over the side—several stories down, faintly blue sea, floating dock and small boats bobbing—two glances and his head spun, legs trembling.
+The question flashed through his mind, then he was shoved forward by people behind him. The deck was chaotic and packed. There was a dock, sure—but it wasn't the Shiliupu Passenger Terminal. No comfortable covered gangway with handrails. Just vertical metal ladders and large cargo nets—as a former president of his university's military-enthusiast club, Xiao Dong naturally recalled Normandy landing photos: American GIs had climbed down these same nets to landing craft to liberate Europe and, incidentally, pick up local girls. Looking at pictures hadn't seemed like much. Now, standing on the heaving deck and peering over the side—several stories down, faintly blue sea, floating dock and small boats bobbing—two glances and his head spun, legs trembling.
 
 The floating dock didn't have enough area. Many people had to transfer ashore via the ship's rowboats. People climbed down the cargo nets into boats; constantly, strange-shaped packages were lowered on ropes from the deck. "Don't panic, don't panic—watch the boat!" "Stop boarding—the boat's going to sink!" The calls never stopped. Everyone felt the same: get ashore fast, carve out our own era.
 
@@ -40,7 +40,7 @@ Knowing the transmigrators lacked practical experience and couldn't match profes
 
 More common for cargo ships were cargo pallets, net bags, and bulk bags, grouping loose items. Though lacking containers' advantages, this greatly facilitated handling.
 
-The *Fengcheng* had 4 derrick sets, 8 cargo winches rated 3–5–10 tons, plus one 60-ton heavy-lift. Most cargo was no problem. Operating the winches was also skilled work. Fortunately, three months of sailor training meant they'd at least seen the pig run if they hadn't eaten the pork. They got the winches working—just with slow, clumsy movements, repeated swinging that scared the transmigrators queuing on deck. Everyone dodged the derricks, creating chaos. No matter how Du Wen exhorted "revolutionary heroism, fear neither death nor hardship" over the PA, it had no effect.
+The *Fengcheng* had 4 derrick sets, 8 cargo winches rated 3–5–10 tons, plus one 60-ton heavy-lift. Most cargo was no problem. Operating the winches was also skilled work. Fortunately, three months of sailor training meant they'd at least seen a pig run even if they hadn't eaten pork. They got the winches working—just with slow, clumsy movements, repeated swinging that scared the transmigrators queuing on deck. Everyone dodged the derricks, creating chaos. No matter how Du Wen exhorted "revolutionary heroism, fear neither death nor hardship" over the PA, it had no effect.
 
 After about ten minutes of struggling, the first cargo pallet finally hung in the air and then touched down on the floating dock. Still shaken, transmigrators didn't spare applause—cheers all around.
 
@@ -80,6 +80,6 @@ Wu Kuangming walked to the Planning Committee office point to requisition a bund
 
 "Should be +12 wood—you just researched Rope Tech, haha..." The logging crew laughed together.
 
-"I have +100 wood tech." Like a magic trick, Wu Kuangming pulled a high-powered Texas-chainsaw-massacre-style chainsaw from his duffel, tugged the cord heroically—amid motor roar and blue smoke—and with a wicked grin advanced on a big tree. He swung hard.
+"I have +100 Wood tech." Like a magic trick, Wu Kuangming pulled a high-powered Texas Chainsaw Massacre-style chainsaw from his duffel, tugged the cord heroically—amid motor roar and blue smoke—and with a wicked grin advanced on a big tree. He swung hard.
 
 **(End of Chapter)**

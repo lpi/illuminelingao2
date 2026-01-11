@@ -1,12 +1,12 @@
 # Chapter 30: The Guangzhou Undercover
 
-From the start, the Executive Committee had targeted the Gao family's two children as a priority. Adults' worldviews, once formed, are difficult to change. Adolescents think more flexibly, have natural irreverence toward authority, are easily moved by novelty, love adventure, and are eager to prove themselves adults' equals—all qualities the transmigrators could exploit.
+From the start, the Executive Committee had targeted the Gao family's two children as a priority. Once formed, an adult's worldview is difficult to change. Adolescents, however, are more flexible in their thinking; they possess a natural irreverence toward authority, are easily moved by novelty, love adventure, and are eager to prove themselves the equals of adults—all qualities the transmigrators could exploit.
 
-Each crossing, they spent considerable time with the two children, observing personalities and abilities. Compared to Gao Lujie, the boy Gao Di was more valuable—girls had smaller social circles and fewer opportunities to appear in public. Gao Di was also younger, with far more malleable views and character.
+During each crossing, they spent considerable time with the two children, observing their personalities and abilities. Compared to Gao Lujie, the boy Gao Di was more valuable—girls had smaller social circles and fewer opportunities to appear in public. Gao Di was also younger, with far more malleable views and character.
 
-Gao Di was clever and quick; when Xiao Zishan taught him bookkeeping and arithmetic, he learned instantly. Wen Desi would send him on small errands, which he handled capably. When given modern candies and snacks, he always took them home to share with his sister—evidence of unselfish nature and responsibility.
+Gao Di was clever and quick; when Xiao Zishan taught him bookkeeping and arithmetic, he learned instantly. Wen Desi would send him on small errands, which he handled capably. When given modern candies and snacks, he always took them home to share with his sister—evidence of an unselfish nature and sense of responsibility.
 
-When they entered the study, they found both siblings kneeling stiffly on the floor. Beiwei's eyebrows shot up, but Wen Desi, knowing he couldn't stand such things, quickly stopped him.
+When the siblings entered the study, they knelt stiffly on the floor. Beiwei's eyebrows shot up, but Wen Desi, knowing the man couldn't stand such acts of subservience, quickly stopped him.
 
 "Stand up. What are you kneeling for? Do you think we're City Gods?" Wen Desi smiled faintly.
 
@@ -18,7 +18,7 @@ When they entered the study, they found both siblings kneeling stiffly on the fl
 
 "Gao Lujie, step outside first. I have words for Gao Di."
 
-"I understand, sir." Gao Lujie withdrew. Beiwei went to the window; seeing she had really left, he nodded.
+"I understand, sir." Gao Lujie withdrew. Beiwei went to the window; seeing she had truly left, he nodded.
 
 Xiao Zishan asked: "Do you know Guangzhou well?"
 
@@ -34,11 +34,11 @@ Gao Di's head snapped up: "Does the master want new household members?"
 
 A clever child indeed. Xiao Zishan nodded silently.
 
-"We don't need that yet," he said vaguely. "This isn't quite the same as selecting household members, though it's related."
+"We don't need that yet," he equivocated. "This isn't quite the same as selecting household members, though it's related."
 
 "Then please instruct me, sir—what kind of person do you need?"
 
-"A few children who know Guangzhou well. Each day, they'll report the city's news and market prices." Xiao Zishan listed which commodities' prices he wanted.
+"A few children who know Guangzhou well. Each day, they'll report the city's news and market rates." Xiao Zishan listed the commodities he wanted tracked.
 
 "Easy—just go to the guild teahouses and check the posted boards."
 
@@ -52,13 +52,13 @@ With each instruction, Gao Di responded. Xiao Zishan noted trepidation on the bo
 
 "Does your family have anyone friendly inside the Gao household?"
 
-"Yes—Uncle Chang, my father's sworn brother. He does odd jobs in the outer courtyard." He explained: this Gao Chang was his father's fellow townsman who had joined the household six or seven years ago. Strong and knowing some martial arts, he could have been promoted to guard, but his blunt speech and lack of bribe money meant he was disliked. At twenty-five or twenty-six, still doing odd jobs, he hadn't even been assigned a maidservant wife.
+"Yes—Uncle Chang, my father's sworn brother. He does odd jobs in the outer courtyard." He explained: this Gao Chang was his father's fellow townsman who had joined the household six or seven years ago. Strong and knowing some martial arts, he could have been promoted to guard, but his blunt speech and lack of money for bribes meant he was disliked. At twenty-five or twenty-six, still doing odd jobs, he hadn't even been assigned a wife.
 
 "A bachelor?"
 
 "Yes, but Uncle Chang takes it in stride—he rarely complains."
 
-The four exchanged glances. A promising prospect: someone overlooked at their workplace would be glad to change employers. Blunt speech meant straightforward. Rarely complaining meant balanced temperament. Strong with martial skills had its uses.
+The four exchanged glances. A promising prospect: someone overlooked at their workplace would be glad to change employers. Blunt speech implied honesty. Rarely complaining suggested a balanced temperament. Being skilled in martial arts had its uses.
 
 Of course, these were the nephew's words, possibly exaggerated. But this was a time of need; they couldn't be picky. Whether someone was suitable could only be known through use.
 
@@ -66,9 +66,9 @@ Of course, these were the nephew's words, possibly exaggerated. But this was a t
 
 "Good, go get him."
 
-"I'll say Father invites him for a drink—he'll come."
+"I'll say Father is inviting him for a drink—he'll come."
 
-Sharp instincts—without being told about secrecy, he already understood. Though this child's cleverness might become a problem if not well managed. Xiao Zishan's thoughts tended darker.
+Sharp instincts—without being told about the need for secrecy, he already understood. Though this child's cleverness might become a problem if not managed well. Xiao Zishan's thoughts took a darker turn.
 
 Shortly, Gao Chang arrived. Introduced by Gao Di, he kowtowed in greeting. They sized him up: not tall, but sturdy, with nimble movements.
 
@@ -84,7 +84,7 @@ Xiao Zishan asked about his background and service at the Gao household.
 
 "No..." Gao Chang blushed. "Too poor—no woman would have me."
 
-"You've served all these years; hasn't the family assigned you a maidservant wife?"
+"You've served all these years; hasn't the family assigned you a wife?"
 
 "Truly, this humble one is too poor. Even if assigned a woman, I couldn't keep her."
 
@@ -94,7 +94,7 @@ Xiao Zishan thought this man decent: the masters had shown him no favor, yet he 
 
 "I'm just a servant. The masters give me clothes and food—that itself is kindness." He spoke with neither servility nor arrogance.
 
-Xiao Zishan glanced at Beiwei. The former recon soldier suddenly sprang up and shoved him hard. Caught off guard, Gao Chang stumbled backward seven or eight steps before regaining his footing. Though startled, he simply tidied his clothes and returned to standing.
+Xiao Zishan glanced at Beiwei. The former recon soldier suddenly sprang up and shoved him hard. Caught off guard, Gao Chang stumbled backward seven or eight paces before regaining his footing. Though startled, he simply smoothed his clothes and returned to standing.
 
 Beiwei nodded. This man's lower-body stance was stable—he had skill.
 
@@ -104,7 +104,7 @@ Beiwei nodded. This man's lower-body stance was stable—he had skill.
 
 Xiao Zishan nodded and told Gao Di to see him out for drinks.
 
-After Gao Di left, everyone was fairly satisfied. But how to recruit this man required further thought. They discussed upcoming work. They had established their first intelligence network—its purpose was less about gathering intelligence than testing whether Gao Di was suitable for such a role, and verifying whether the Gao family would prove loyal.
+After Gao Di left, everyone was fairly satisfied. But how to recruit this man required further thought. They discussed upcoming work. They had established their first intelligence network—its purpose was less about gathering intelligence and more about testing whether Gao Di was suitable for such a role, and verifying whether the Gao family would prove loyal.
 
 If Gao Qing stubbornly continued as Master Gao's spy, the next step would be finding replacements quickly.
 
@@ -130,11 +130,11 @@ If Gao Qing stubbornly continued as Master Gao's spy, the next step would be fin
 
 "Someone's there!" Beiwei suddenly shouted. He flashed to the window and grabbed a rock from a potted plant, hurling it outside. A muffled thump—it seemed to hit something.
 
-The three city-dwelling homebodies panicked, collapsing in their chairs, barely daring to breathe.
+The three city-dwelling otaku panicked, collapsing in their chairs, barely daring to breathe.
 
 "What happened?" Wen Desi asked shakily.
 
-"A shadow moved across the opposite courtyard." Beiwei fumed. "Conducting infiltration reconnaissance before dark—quite the nerve."
+"A shadow moved across the opposite courtyard." Beiwei fumed. "Conducting reconnaissance before dark—quite the nerve."
 
 "An eavesdropper?"
 

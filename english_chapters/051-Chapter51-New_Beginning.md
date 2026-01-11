@@ -63,7 +63,7 @@ Modern Bopu Port was at the bay's southern end, where water was deepest. The eng
 
 Using landing craft for ship-to-shore transport was possible but painfully slow. Manually building piers would take forever and require specialized equipment. So before crossing, Yan Quezhi and several engineers had agreed on the simplest method: floating docks.
 
-Modern floating docks were mostly used for small-craft passenger embarkation, rarely for cargo. But anyone with military-history knowledge knew that the Normandy landings had used floating docks extensively, enabling the Allies to land 100,000 tons of supplies and 50,000 vehicles without capturing a port. Though the floating docks suffered heavily in a subsequent hurricane and quickly became unusable, their effectiveness was fully proven.
+Modern floating docks were mostly used for small-craft passenger embarkation, rarely for cargo. But anyone with military-history knowledge knew that the Normandy landings had used floating docks extensively ("Mulberries"), enabling the Allies to land 100,000 tons of supplies and 50,000 vehicles without capturing a port. Though the floating docks suffered heavily in a subsequent storm and quickly became unusable, their effectiveness was fully proven.
 
 The transmigrators couldn't match Normandy's scale—their floating docks didn't even have breakwaters—nor did they need such magnitude. They just needed to transfer personnel and materials ashore quickly. So the floating docks used sealed 200-liter drums arranged in rows, connected with angle iron into small units. Connection points had scrap tires hung as bumpers; corrugated steel sheets were welded on top. According to the Engineering Group's calculations, each unit could support 40 tons' buoyancy—sufficient for ordinary vehicles, machinery, and materials.
 
@@ -77,7 +77,7 @@ Executive Committee members watched from the *Fengcheng* as the transmigrators' 
 
 "A monument is fine," Wen Desi said. "But we'll need to replace this with permanent facilities before next year's typhoon season. If a typhoon carries it away, we'll lose badly—all those drums and steel!"
 
-Ma Qianzhu was about to reply when a foreign woman ducked into the bridge, camera clicking away. Everyone was momentarily stunned—then remembered this was Ding Ding's Western girlfriend Panpan. Ding Ding followed, holding a recorder, asking Ma Qianzhu for his feelings about the landing. This restless journalist had already recruited some people who knew printing, preparing to publish the transmigrators' first newspaper. He'd even allocated shares and given his future paper an unimaginative name: *Lingao Times*.
+Ma Qianzhu was about to reply when a foreign woman popped onto the bridge, camera clicking away. Everyone was momentarily stunned—then remembered this was Ding Ding's Western girlfriend Panpan. Ding Ding followed, holding a recorder, asking Ma Qianzhu for his feelings about the landing. This restless journalist had already recruited some people who knew printing, preparing to publish the transmigrators' first newspaper. He'd even allocated shares and given his future paper an unimaginative name: *The Lingao Times*.
 
 "No particular feelings." Ma Qianzhu wore an uncooperative expression. His heart was actually surging today—he just disliked interviews. He'd rather quietly write memoirs later than be poked with a recording device.
 

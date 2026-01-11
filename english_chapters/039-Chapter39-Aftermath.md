@@ -2,7 +2,7 @@
 
 The rescue operation gave the bored transmigrators endless material for conversation—an adrenaline shot into the long, dull preparations. Every night after work, the participants were collared and asked to retell what they'd already repeated hundreds of times. Beiwei, Ran Yao, and Lin Shenhe shone like three rising stars in the night sky. Wherever they went, people came to greet them; even strangers addressed them as brothers.
 
-After a comprehensive hospital examination, doctors concluded that Wen Desi—delivered with much fuss and care—was healthier than everyone else. Though he'd lost some items, they were insignificant. The most valuable were Director Wen's stab-resistant vest and stun gun. Some romantics wondered if the vest might become the legendary "Silkworm Treasure Armor" of *wuxia* tales; others fantasized that the Executive Committee could wholesale "Silkworm Treasure Armors"—ten thousand taels apiece.
+After a comprehensive hospital examination, doctors concluded that Wen Desi—delivered with much fuss and care—was healthier than everyone else. Though he'd lost some items, they were insignificant. The most valuable were Director Wen's stab-resistant vest and stun gun. Some romantics wondered if the vest might become the legendary "Jewel-encrusted Soft Armor" of *wuxia* tales; others fantasized that the Executive Committee could wholesale "Jewel-encrusted Soft Armors"—ten thousand taels apiece.
 
 The Executive Committee's mood wasn't so optimistic. They weren't worried about the armor or stun gun—the stab vest couldn't stop bullets, and a stun gun without battery power was just a plastic shell. What concerned them was the intelligence gleaned from the kidnapping.
 
@@ -92,6 +92,6 @@ After some hesitation, Gao Ju explained about Yang Tianliang coming to Guangzhou
 
 "The shrine itself would be manageable—spending perhaps five thousand taels would suffice. But Eunuch Yang wants it 'grand and magnificent,' and wants to mobilize Guangzhou's merchants and commoners. The total expenses could run to seventy or eighty thousand taels." Gao Ju's face twitched slightly—obviously pained.
 
-Xiao Zishan's knowledge of the Nine Thousand Years' shrines came entirely from the middle-school text "Record of the Five Men's Tomb." Whether Guangzhou had ever built a shrine for Wei Zhongxian, he had no idea and no interest. But this needed to be reported to the Executive Committee quickly, for Yu Eshui to assess any strategic value.
+Xiao Zishan's knowledge of the Nine Thousand Years' shrines came entirely from the middle-school text "Record of the Five Heroes' Tomb." Whether Guangzhou had ever built a shrine for Wei Zhongxian, he had no idea and no interest. But this needed to be reported to the Executive Committee quickly, for Yu Eshui to assess any strategic value.
 
 **(End of Chapter)**

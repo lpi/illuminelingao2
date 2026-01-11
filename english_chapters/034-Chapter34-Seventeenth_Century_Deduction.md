@@ -6,7 +6,7 @@
 
 Whether to involve the escort bureau was not something Xiao Zishan dared decide alone—after all, the matter was grave. After a moment's hesitation, he said they would discuss it later, and instructed Sun Chang to keep all front and back gates securely closed.
 
-Meanwhile, the Executive Committee received the news and immediately convened an emergency meeting. *Someone had dared to kidnap a transmigrator!* If this could be tolerated, what could not? Everyone wanted to teach them a lesson. Besides bringing in Ran Yao, the former police officer, they also gathered several mystery enthusiasts steeped in Conan Doyle and Christie. Xi Yazhou simply brought out a few hidden five-shot shotguns. Someone proposed making some grenades to "give the natives a taste." Others were ready to make sulfuric-acid bombs. Amid the uproar, Ma Qianzhu stepped forward and said:
+Meanwhile, the Executive Committee received the news and immediately convened an emergency meeting. *Someone had dared to kidnap a transmigrator!* If this could be tolerated, what could not? Everyone wanted to teach them a lesson. Besides bringing in Ran Yao, the former police officer, they also gathered several mystery enthusiasts steeped in Conan Doyle and Agatha Christie. Xi Yazhou simply brought out a few hidden five-shot shotguns. Someone proposed making some grenades to "give the natives a taste." Others were ready to make sulfuric-acid bombs. Amid the uproar, Ma Qianzhu stepped forward and said:
 
 "We can't send that many people."
 
@@ -18,7 +18,7 @@ Everyone looked at each other. Apparently, no one had thought of this.
 
 "Ming-era problems need Ming-era people to solve. What this really requires is intelligence. Once we know Director Wen's whereabouts, we can handle it—whether by armed rescue or paying ransom. Neither is a problem. But if a noisy crowd goes over, it won't be easy for Zishan and Engineer Wang to explain to their local partners, will it?"
 
-"Pay ransom? How can you suggest that!" Someone was already indignant. "We're not going to wimp out! Never!" This drew a murmur of agreement. Though the transmigrators often said things like "Don't underestimate the ancients' wisdom" and "The ancients were quite formidable," inwardly they were full of modern superiority. The idea of "civilized modern people" compromising with "ignorant backward ancients"—just thinking about it wounded their hearts.
+"Pay ransom? How can you suggest that!" Someone was already indignant. "We're not going to wimp out! Never!" This drew a murmur of agreement. Though the transmigrators often said things like "Don't underestimate the ancients' wisdom" and "The ancients were quite formidable," inwardly they were full of modern superiority. The idea of "civilized modern people" compromising with "ignorant backward ancients"—just thinking about it wounded their pride.
 
 "If we can resolve this quickly and safely, compromise isn't a bad option." Ma Qianzhu held his ground. "Armed rescue: first, we have no intelligence; second, it might endanger Director Wen's safety. Finally," he reminded everyone, "our goal isn't to have a showdown with the Ming-era underworld."
 
@@ -44,7 +44,7 @@ After over an hour of investigation, Ran Yao had largely pieced together the cri
 
 "This was a multi-person coordinated operation." In the room, he briefed the grim-faced rescue team. The large square table stood on end, temporarily serving as a blackboard. Its black-lacquered rosewood surface was being defaced with chalk.
 
-"This is the route the criminals used to enter." He drew a floor plan on the table. "The courtyard wall here is quite tall—about 7 to 8 meters. A human ladder wouldn't work. They must have used a grappling hook. There are obvious hook-grip marks on the wall coping, and many fallen tiles."
+"This is the route the criminals used to enter." He drew a floor plan on the table. "The courtyard wall here is quite tall—about 7 to 8 meters. A human pyramid wouldn't work. They must have used a grappling hook. There are obvious hook-grip marks on the wall coping, and many fallen tiles."
 
 "There really is such a thing as a grappling hook?"
 

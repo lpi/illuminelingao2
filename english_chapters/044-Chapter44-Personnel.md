@@ -46,7 +46,7 @@ Of the 2,106 people who had enthusiastically discussed and replied to posts abou
 
 "About 50 or so in total. The 476 are those currently committed to crossing." Xiao Zishan checked the list. "Over the next two weeks, about 50 more should arrive. These should all come."
 
-"'A Thousand Talents' is becoming 'Five Hundred Talents Hall.'" Wei Aiwen sighed. "Too few people. Everyone talks big, but when it comes to actually doing something, they're all damn cowards!"
+"'A Thousand Talents' is becoming 'Five Hundred Arhats.' Wei Aiwen sighed. "Too few people. Everyone talks big, but when it comes to actually doing something, they're all damn cowards!"
 
 The others said nothing. Whether more or fewer people was better—that was a paradox. For these people occupying Executive Committee positions, fewer might actually be advantageous. More people meant more opinions. After all, though all planning was handled by the Executive Committee, there'd been no input from the masses. The masses currently followed the Committee's arrangements only because of the docility that comes with arriving somewhere unfamiliar. Once everyone got to know each other, who knew what trouble might arise.
 
@@ -80,7 +80,7 @@ Xi Yazhou interrupted impatiently: "'I' this and 'I' that—you're just a kid, a
 
 "No... it's a registrant's girlfriend." Xiao Zishan pulled out a sheet from his folder and read: "Ding Ding, male, 32, Han ethnicity, reporter for a major media group. The foreign woman is called... Panpan? Apparently American."
 
-"Whoa, a Western mare!" Wei Aiwen leaned in eagerly. "Any photos? Any photos?"
+"Whoa, a Western chick!" Wei Aiwen leaned in eagerly. "Any photos? Any photos?"
 
 "She's someone else's girlfriend. What are you getting excited about? Go sit down."
 
@@ -140,7 +140,7 @@ At this thought, Meng Xian almost felt the impulse to withdraw. He sat up abrupt
 
 "Hasn't Director Wen already taken people over many times?"
 
-"But with so many people, and so much stuff... What if the energy explodes? Or something goes wrong after crossing..." Ye Yuming's expression turned grave. "If you die, there's no LOAD game."
+"But with so many people, and so much stuff... What if the energy explodes? Or something goes wrong after crossing..." Ye Yuming's expression turned grave. "If you die, there's no loading a save."
 
 "Maybe you respawn in the original timeline?" Pan Feng, who'd been reading on the side, suddenly interjected.
 

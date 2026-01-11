@@ -66,7 +66,7 @@ Finally, there was the considerable military utility. A huge iron ship would cre
 
 Without mounting any weapons, just ramming at full speed would be enough to terrify any warship of that era. Smaller vessels would sink on impact; larger ones couldn't withstand a steel bow's collision. And they couldn't escape—even very old ships could easily reach 11–14 knots. Except for certain fast clippers in favorable wind, most vessels would be helpless victims.
 
-A glorious multi-turret ironclad battleship-freighter! With such a ship, wouldn't they be masters of the ocean?
+A glorious multi-turret ironclad battleship! With such a ship, wouldn't they be masters of the ocean?
 
 Behind glorious dreams often lurked terrible reality, and reality arrived courtesy of a maritime-university graduate.
 
@@ -98,7 +98,7 @@ The Executive Committee looked at each other. A ship was this complicated? Well,
 
 "What if we're just crossing over?"
 
-"Still very difficult, though we'd need somewhat fewer people." Meng De proposed his suggestion: establish a freight-forwarding office at a port on the Leizhou Peninsula and rent a warehouse. All needed materials would be delivered there for loading. They'd rent a coastal bulk carrier with the destination set as Bopu Port on Hainan. Some transmigrators could disguise themselves as backpackers hitching a ride—common on coastal freighters. The rest would travel ahead on several fishing boats to the rendezvous point. When the ship approached port, the transmigrators would seize control, throw the crew overboard, pilot the ship through the gate, and beach it on Hainan Island.
+"Still very difficult, though we'd need somewhat fewer people." Meng De proposed his suggestion: establish a freight-forwarding office at a port on the Leizhou Peninsula and rent a warehouse. All needed materials would be delivered there for loading. They'd rent a coastal bulk carrier with the destination set as Bopu Port on Hainan. Some transmigrators could disguise themselves as backpackers hitching a ride—common on coastal freighters. The rest would travel ahead on several fishing boats to the rendezvous point. When the ship approached port, the transmigrators would seize control, detain the crew, pilot the ship through the gate, and beach it on Hainan Island.
 
 "The Qiongzhou Strait is very narrow. I personally believe my ship-handling ability is up to it. For engine and basic deck crew, I suggest the Committee send some people to train—but this ship basically won't be usable afterward."
 

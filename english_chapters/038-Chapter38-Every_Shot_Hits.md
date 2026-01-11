@@ -22,7 +22,7 @@ Was Director Wen really on this flower boat? Was he enjoying soft fragrance and 
 
 He mentally "rolled call" on his targets, one by one. All were thin, dark-complexioned men—since arriving in this timespace, he hadn't seen a single fat person. Everyone had studied photos of these individuals repeatedly before the operation—including the madam and prostitutes, all memorized.
 
-If any of the women showed unusual behavior, they'd have to be killed too—even women. Beiwei had specifically warned him, citing numerous examples of Vietnamese female special agents from the Self-Defense Counterattack War as education.
+If any of the women showed unusual behavior, they'd have to be killed too—even women. Beiwei had specifically warned him, citing numerous examples of Vietnamese female special agents from the Sino-Vietnamese War as education.
 
 What grudge did he have against them? Though these weren't good people, emotionally speaking, they were strangers to him just like Director Wen. Lin Shenhe shook his head, trying not to overthink. As a transmigrator, anyone who endangered the transmigrators' interests could be killed.
 
@@ -44,9 +44,9 @@ As each team reported ready over the walkie-talkie, Ran Yao felt the surrounding
 
 The instant the firecrackers crackled to life, Lin Shenhe squeezed the trigger. His index finger moved so smoothly his right hand barely felt it. The first bullet went slightly wide, kicking up a puff of dust from the ground.
 
-Almost without pause, purely by reflex—eject, chamber, fire—a red dot appeared on the medicine peddler's head, and he collapsed. In the instant of adjusting the scope, he glimpsed Ran Yao charging toward the flower boat, shotgun raised, cloak billowing behind him to reveal camouflage fatigues and an '80 steel helmet. Against the peach-pink and willow-green classical scenery, the image was utterly incongruous—years later, he still remembered it.
+Almost without pause, purely by reflex—eject, chamber, fire—a red dot appeared on the medicine peddler's head, and he collapsed. In the instant of adjusting the scope, he glimpsed Ran Yao charging toward the flower boat, shotgun raised, cloak billowing behind him to reveal camouflage fatigues and an '80 steel helmet. Amidst the classical scenery of peach blossoms and green willows, the image was utterly incongruous—years later, he still remembered it.
 
-Ran Yao remembered that Lin Shenhe's second target was the congee-selling peddler. Amid the firecrackers, gunshots were indistinguishable, but the peddler obviously hadn't been hit. He spread a mouth full of gleaming white teeth, drew three throwing knives from behind his back—their handles wrapped with blood-red strips of cloth. Ran Yao squeezed the trigger almost instinctively. The five-shot shotgun spat a blindingly bright tongue of fire. The knife-thrower crumpled into the water as if punched, red-ribboned knives scattering everywhere.
+Ran Yao remembered that Lin Shenhe's second target was the porridge vendor. Amid the firecrackers, gunshots were indistinguishable, but the vendor obviously hadn't been hit. He spread a mouth full of gleaming white teeth, drew three throwing knives from behind his back—their handles wrapped with blood-red strips of cloth. Ran Yao squeezed the trigger almost instinctively. The five-shot shotgun spat a blindingly bright tongue of fire. The knife-thrower crumpled into the water as if punched, red-ribboned knives scattering everywhere.
 
 Screams and cries erupted. The few pedestrians and vendors on the embankment scattered in panic. No one dared run toward the embankment entrance where this death god had appeared—they either jumped into the water or pressed flat on the ground, trembling, burying their heads in the dirt.
 
@@ -68,7 +68,7 @@ Fortunately, Beiwei was on the water to intercept. The moment Lin Shenhe spoke, 
 
 The two escort guards rowing sat dumbstruck. Only after the sharp command did they snap to and row furiously.
 
-As the two boats drew closer, Beiwei estimated the distance and leaped aboard. But before he could steady himself, a man burst from the cabin, slashing at his face—fast and vicious. In a small rowboat fight, Beiwei was no match for this man. But he had a five-shot shotgun. Reflexively, he squeezed the trigger. The technological gap was tragic—sixteen pellets virtually point-blank turned the man into a honeycomb. So close that blood sprayed onto Beiwei's face.
+As the two boats drew closer, Beiwei estimated the distance and leaped aboard. But before he could steady himself, a man burst from the cabin, slashing at his face—fast and vicious. In a small rowboat fight, Beiwei was no match for this man. But he had a five-shot shotgun. Reflexively, he squeezed the trigger. The technological gap was lethal—sixteen pellets virtually point-blank turned the man into a honeycomb. So close that blood sprayed onto Beiwei's face.
 
 Without hesitation, Beiwei charged into the cabin. This small boat was where the flower-boat crew slept—tiny space, just room for a bed and a small table. On the bed lay Director Wen.
 

@@ -1,6 +1,6 @@
 # Chapter 46: The Ship (Part 2)
 
-"Won't be usable?!" Many faces showed disappointment. Was the glorious multi-turret ironclad battleship-freighter just going to vanish like smoke?
+"Won't be usable?!" Many faces showed disappointment. Was the glorious multi-turreted ironclad battleship-freighter just going to vanish like smoke?
 
 "Why beach it?" someone objected. "Once a ship is beached, it's very hard to refloat. We don't have enough crew now and temporarily can't operate it—but that doesn't mean we can't use it later."
 
@@ -82,9 +82,9 @@ But after comprehensive consideration, they decided to prioritize general cargo 
 
 "Even if the cargo ship doesn't beach, using a freighter as a warship is completely impractical." Zhao De brushed dust off his sleeve. "Large cargo ships have deep drafts, complex handling, and their turning isn't necessarily faster than sailing ships. No matter how powerful the ship, will opponents keep coming for head-on battles after taking one beating? They have numerical advantage—they can conduct harassment warfare along shipping lanes and coasts. When combat starts, we'll be overwhelmed. Even if we go out and sink a few, the rest scatter into shallow water—what can you do? Lower lifeboats to chase them? We need sea control. A single, isolated ship that guzzles fuel and manpower—too wasteful."
 
-The glorious multi-turret ironclad battleship-freighter had been criticized. Everyone felt pained, but thinking about it, this former naval officer wasn't wrong.
+The glorious multi-turreted ironclad battleship-freighter had been criticized. Everyone felt pained, but thinking about it, this former naval officer wasn't wrong.
 
-"I'm a fisherman myself. Back in the production brigade, I captained fishing boats. During my service, I saw the navy also used fishing boats—200 to 400-ton vessels with long range and seaworthiness. Wouldn't they be better as the core of the crossing navy than some ironclad multi-turret battleship-freighter? Speed alone is much faster, and fuel consumption is lower."
+"I'm a fisherman myself. Back in the production brigade, I captained fishing boats. During my service, I saw the navy also used fishing boats—200 to 400-ton vessels with long range and seaworthiness. Wouldn't they be better as the core of the crossing navy than some ironclad multi-turreted battleship-freighter? Speed alone is much faster, and fuel consumption is lower."
 
 "And you can fish!"
 

@@ -52,7 +52,7 @@ Watching them walk away, Liu Zheng—cigarettes in hand—couldn't help feeling 
 
 Ran Yao brought the man to the command post, wanting to clarify the situation before reporting to the Committee. Besides the theft, the guy had too many suspicious details.
 
-During arrest, he'd tried to resist. Though quickly subdued, he clearly had combat training. The body search turned up a Type-64 pistol—not some Hualong knockoff but genuine with a serial number. Ran Yao knew real Type-64s were rare on the black market. Some transmigrators had connections to obtain firearms, but no one would go after a "small firecracker" 64.
+During arrest, he'd tried to resist. Though quickly subdued, he clearly had combat training. The body search turned up a Type-64 pistol—not some workshop knockoff but genuine with a serial number. Ran Yao knew real Type-64s were rare on the black market. Some transmigrators had connections to obtain firearms, but no one would go after a "small firecracker" 64.
 
 Under the light, Ran Yao removed the hood. The mystery deepened. This man looked young at first glance, ordinary features, but his eyes were sharp and seasoned. Ran Yao recognized that look—this should be a colleague. The few police among the transmigrators he all knew; this one he'd never seen. Combined with the Type-64...
 

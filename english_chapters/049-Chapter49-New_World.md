@@ -28,7 +28,7 @@ Ma Qianzhu knew trouble was coming. The masses didn't mind scarcity—they minde
 
 "Fully ensure—who are you?!" came an indignant voice. "The desalination system only produces this much. You want us to piss freshwater?" Ma Qianzhu recognized Xiao Bailang's voice—a mechanical processing specialist who also knew equipment installation and management, he'd been assigned three months aboard to learn engine operations.
 
-*No respect for leadership!* Ma Qianzhu cursed silently. *You femboy, just watch me sell you to Thailand!* After venting mentally, he realized staying here was useless. He might as well follow Beiwei down to the deck.
+*No respect for leadership!* Ma Qianzhu cursed silently. *You sissy, just watch me sell you to Thailand!* After venting mentally, he realized staying here was useless. He might as well follow Beiwei down to the deck.
 
 Dong Shiye sat against his backpack on deck. His legs had gone weak climbing down from the small-boat deck—the sea right between his legs. One glance was enough to make you dizzy. Fortunately, the ship had almost no motion—calm as glass. The waning moon at the horizon was slowly fading. Watching the crowds queuing at the toilets while cursing colorfully, he felt the risk had been worth it.
 
@@ -48,7 +48,7 @@ On the beach, large flocks of raucous seabirds wheeled and dove—mostly various
 
 Commotion erupted on the *Fengcheng*'s starboard side. Led by Beiwei, the first landing reconnaissance squad—rifles and machetes on their backs—climbed down the boarding ladder under everyone's gaze and boarded the motorboat.
 
-The reconnaissance squad consisted of military personnel, surveyors, and geologists. Their mission: scout the port and coastal terrain for several kilometers, gather hydrographic data, and locate any villages and water sources. They were equipped with walkie-talkies, defensive weapons, 25×8 binoculars, surveying tools, and a 3-megapixel camcorder.
+The reconnaissance squad consisted of military personnel, surveyors, and geologists. Their mission: scout the port and coastal terrain for several kilometers, gather hydrographic data, and locate any villages and water sources. They were equipped with walkie-talkies, defensive weapons, 8×25 binoculars, surveying tools, and a 3-megapixel camcorder.
 
 To handle potential emergencies, everyone wore stab-resistant vests, camouflage, and steel helmets. The Committee had originally wanted to issue them riot gear, but Beiwei refused—while first-rate for protection, it was too cumbersome for active movement.
 

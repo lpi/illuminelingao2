@@ -1,6 +1,6 @@
 # Chapter 52: Port Construction (Part 1)
 
-From an outsider's perspective, D-Day's beginning was both chaotic and spectacular. In the bay—preserving its primeval subtropical seascape—small boats puttered everywhere. Ship derricks continuously raised and lowered cargo. Dense crowds descended from the enormous freighter via boarding ladders. On the beach, signs of different colors stood everywhere, indicating landing zones for personnel, vehicles, and equipment; cargo staging areas; liaison points; registration stations; and so on.
+From an outsider's perspective, the start of D-Day was both chaotic and spectacular. In the bay—preserving its primeval subtropical seascape—small boats puttered everywhere. Ship derricks continuously raised and lowered cargo. Dense crowds descended from the enormous freighter via boarding ladders. On the beach, signs of different colors stood everywhere, indicating landing zones for personnel, vehicles, and equipment; cargo staging areas; liaison points; registration stations; and so on.
 
 The entire port camp expanded outward from the Bopu Patrol Office and its adjacent beacon tower. From a port-development standpoint, this location wasn't ideal—mangroves extended to the water's edge, and the area wasn't open enough. But the patrol office's ready-made buildings and the beacon tower as an artificial high point were valuable advantages. Though the Ming soldiers had fled, another life form gave the transmigrators minor trouble.
 
@@ -50,9 +50,9 @@ Inside the tent: a conference table and folding chairs from the ship, laptops, a
 
 **Mei Wan**, 30—architecture graduate who'd knocked around construction companies for years as a veteran operator, specializing in cost estimation and project management. Proficient with all measuring instruments; rich experience in civil-engineering management and coordination.
 
-**Li Xiaolü**, 30—professional planning and design specialist with architect and planner certifications. Surveying and planning were her specialties.
+**Li Xiaolu**, 30—professional planning and design specialist with architect and planner certifications. Surveying and planning were her specialties.
 
-These were the "Four Kings" of the Construction Engineering Group. Li Xiaolü was female, but no one matched her certifications. Still, she had little practical construction experience and disliked the limelight. So Mei Wan led the Four Kings—after all, he'd spent the most time on job sites and knew a bit of everything.
+These were the "Four Heavenly Kings" of the Construction Engineering Group. Li Xiaolu was female, but no one matched her certifications. Still, she had little practical construction experience and disliked the limelight. So Mei Wan led the Four Heavenly Kings—after all, he'd spent the most time on job sites and knew a bit of everything.
 
 "Command requires us to complete basic port infrastructure by nightfall: electricity, water supply, unloading area, cargo staging. Plus basic fortifications." Mei Wan relayed the orders. "We have priority access to materials, machinery, and labor."
 
@@ -60,7 +60,7 @@ These were the "Four Kings" of the Construction Engineering Group. Li Xiaolü wa
 
 "No time to be too precise." Mei Wan said. "Fortunately, this isn't our main base—we don't need much planning. Focus on small temporary projects."
 
-"We'll survey, design, and build simultaneously." Mei Wan, the site veteran, knew all about rushing schedules. He made assignments: Li Xiaolü and Yan Quezhi would handle port-zone surveying—a task requiring both skill and physical effort, so one basic-labor team was assigned as helpers, plus a 5-shot shotgun from the Military Group for protection.
+"We'll survey, design, and build simultaneously." Mei Wan, the site veteran, knew all about rushing schedules. He made assignments: Li Xiaolu and Yan Quezhi would handle port-zone surveying—a task requiring both skill and physical effort, so one basic-labor team was assigned as helpers, plus a 5-shot shotgun from the Military Group for protection.
 
 Tian Jiujiu was responsible for camp water supply and drainage; Chang Kaishen handled electrification. As for Bing Feng, his task was most challenging: building cargo warehouses.
 

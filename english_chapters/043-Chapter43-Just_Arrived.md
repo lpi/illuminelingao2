@@ -1,6 +1,6 @@
 # Chapter 43: Just Arrived
 
-On the way back to the base, Xiao Zishan made small talk with the four new arrivals—"Nice weather, haha"—for the entire journey. When one of them tried to ask something, Xiao Zishan immediately started going on about how the driver worked so hard, charged so little, running an unlicensed taxi wasn't easy money, and so forth. The implication was clear: watch what you say around outsiders.
+On the way back to the base, Xiao Zishan made small talk with the four new arrivals—"Nice weather, haha"—for the entire journey. When one of them tried to ask something, Xiao Zishan immediately started going on about how the driver worked so hard, charged so little, running a 'black taxi' wasn't easy money, and so forth. The implication was clear: watch what you say around outsiders.
 
 Meng Xian stepped off the bus and took a deep breath of fresh air. *Not bad here.* Looking around, three or four young people in training uniforms were already approaching to help with the luggage.
 
@@ -20,7 +20,7 @@ Finally, the doctor gave each person two white pills to take on the spot.
 
 "What's this?" Zha Wuchu looked at the pills suspiciously.
 
-"Deworming medicine." The white-coat explained tersely.
+"Anthelmintics." The white-coat explained tersely.
 
 "I don't have worms!" Zha Wuchu protested, feeling deeply insulted.
 
@@ -106,7 +106,7 @@ After a few minutes, Ma Qianzhu said to Wen Desi: "Director Wen, should we speed
 
 "Just stock up on gold and silver. This stuff, in an emergency, everyone accepts."
 
-"Speaking of gold and silver, shouldn't we bring some 925 industrial silver? Even better, mint some Spanish pieces of eight to bring over. Otherwise, how do we trade with the locals right after crossing?"
+"Speaking of gold and silver, shouldn't we bring some 925 industrial silver? Even better, mint some Spanish real de a ocho to bring over. Otherwise, how do we trade with the locals right after crossing?"
 
 "That era doesn't lack silver. Bringing silver—first, it's not cost-effective; second, it takes up tonnage. Trade doesn't have to depend on real gold and silver. Barter works fine." Luo Duo disagreed.
 

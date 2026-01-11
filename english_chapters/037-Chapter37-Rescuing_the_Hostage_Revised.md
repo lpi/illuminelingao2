@@ -24,7 +24,7 @@ After a long while, two accomplices emerged from the cabin: "Boss Wang—what ab
 
 "About moving locations..."
 
-"Move my ass. What does that girl know? 'Howling and screaming'? Just pole the flower boat out, find a desolate creek to moor in, and take our time questioning him. You could administer the 'Ten Great Tortures of the Ming Dynasty' and no one would hear."
+"Move my ass. What does that girl know? 'Howling and screaming'? Just pole the flower boat out, find a desolate creek to moor in, and take our time questioning him. You could administer the 'Ten Great Tortures of the Ming' and no one would hear."
 
 "Ten Great Tortures of the Ming—is that a thing?" The underling looked puzzled.
 
@@ -96,7 +96,7 @@ With the plan set, everyone prepared separately. All wore stab-proof vests and e
 
 Engineer Wang would stay to guard the residence with one five-shot shotgun. Xiao Zishan would accompany the escort-bureau pickup team as communications officer with the walkie-talkies. Everyone received a walkie-talkie for constant contact.
 
-After lunch, Lin Shenhe spoke briefly with Xiao Zishan, who nodded and left. Lin Shenhe himself took the Emei-brand small-caliber rifle and performed a fieldstrip on the table. This was an excellent domestic sporting rifle—the EM751 model free rifle, chambered in 22 long rifle. With a 4× scope, he was confident he could hit a human target within 200 meters.
+After lunch, Lin Shenhe spoke briefly with Xiao Zishan, who nodded and left. Lin Shenhe himself took the Emei-brand small-caliber rifle and performed a fieldstrip on the table. This was an excellent domestic sporting rifle—the EM751 model free rifle, chambered in .22 Long Rifle. With a 4× scope, he was confident he could hit a human target within 200 meters.
 
 But though he'd fired many guns abroad, he had no feel for this particular rifle. To ensure accuracy, he needed test shots.
 
@@ -122,13 +122,13 @@ He held his breath. In that motionless second, he squeezed the trigger.
 
 The recoil was smaller than expected. The small-caliber rifle had a special stock buffer pad; for someone accustomed to all manner of small arms, Lin Shenhe barely felt it.
 
-Beiwei raised the binoculars and shook his head. The bullet had struck between 7 and 8 o'clock—on target, but not even ring 4.
+Beiwei raised the binoculars and shook his head. The bullet had struck between 7 and 8 o'clock—on target, but not even the 4-ring.
 
 At 50 meters, only ring 4. At 200 meters, who knew where the bullet would go.
 
-Lin Shenhe didn't move. He didn't immediately eject the shell—to keep the barrel temperature stable for better accuracy. After reloading, he fired again. This time, up two rings. A third shot hit ring 8.
+Lin Shenhe didn't move. He didn't immediately eject the shell—to keep the barrel temperature stable for better accuracy. After reloading, he fired again. This time, up two rings. A third shot hit the 8-ring.
 
-From the fourth bullet on, the impact points stabilized—three consecutive shots almost all at ring 8. He re-adjusted the sights. The next five shots all landed in ring 10.
+From the fourth bullet on, the impact points stabilized—three consecutive shots almost all at the 8-ring. He re-adjusted the sights. The next five shots all landed in the 10-ring.
 
 "That should be good enough." Lin Shenhe looked at the remaining ammunition. There wasn't much ammunition left. He'd wanted to fire ten more rounds.
 

@@ -20,7 +20,7 @@ Shi Niaoren's expression turned ugly. He was, after all, a US-trained PhD, a med
 
 "We're learning through practice." Dr. Shi soothed his subordinate. "Wu Nanhai needs fertilizer for agriculture—something about 'crops need flowers' or whatever." He glanced at the lime bag—barely used. The lime had been obtained from the Building Engineering Department—he was reluctant to use bleaching powder, which he planned for drinking-water treatment.
 
-No lime, no bleaching powder—waste treatment would need another approach. Shi Niaoren specialized in infectious diseases and was familiar with epidemic prevention. He knew there were many methods for waste decontamination. Lime and bleaching powder worked quickly. Without those, the simplest option was sealed storage—but that required three-stage septing tanks, or at minimum some fermentation jars. What about natural plants? He recalled reading that certain wild plants could substitute. Problem was he couldn't remember which plants, and he hadn't studied traditional Chinese medicine—even knowing names, he might not recognize them.
+No lime, no bleaching powder—waste treatment would need another approach. Shi Niaoren specialized in infectious diseases and was familiar with epidemic prevention. He knew there were many methods for waste decontamination. Lime and bleaching powder worked quickly. Without those, the simplest option was sealed storage—but that required three-stage septic tanks, or at minimum some fermentation jars. What about natural plants? He recalled reading that certain wild plants could substitute. Problem was he couldn't remember which plants, and he hadn't studied traditional Chinese medicine—even knowing names, he might not recognize them.
 
 Just as he was thinking about filing a report asking where to find TCM experts, Tian Jiujiu came in asking what water-treatment method the Health Group planned to use so they could finalize the water-supply construction plan.
 
@@ -56,7 +56,7 @@ The *Fengcheng*, designed as an ocean-going vessel, had 4 freshwater tanks with 
 
 Shi Niaoren knew Ma grudged the fuel, but he knew Lingao's history: cholera, typhoid, paratyphoid—intestinal infections had been widespread here. Even in the 1970s–80s, small outbreaks still occurred. Though modern medicine meant transmigrators had been vaccinated, nothing was guaranteed—even if they avoided infectious disease, acute enteritis outbreaks would be bad enough.
 
-After laying out the pros and cons, Ma Qianzhu accepted the recommendation. To conserve water, Command decided: establish a centralized water station on shore; lay water lines along the floating-drum route, piping ship freshwater to a 2-ton stainless-steel water tower in the living area—for drinking and washing only.
+After laying out the pros and cons, Ma Qianzhu accepted the recommendation. To conserve water, Command decided: establish a centralized water station on shore; lay water lines along the floating-drum route, piping ship freshwater to a 2-ton stainless-steel water tank in the living area—for drinking and washing only.
 
 "As for bathing—just tough it out for now." Ma Qianzhu knew this water-rationing policy would earn countless curses, but there was no choice. He sat down to draft a document and sent it via OA. "Building materials"—he noted in his memo. Many of today's problems traced back to this bottleneck. Tonight's meeting must address it.
 
@@ -66,7 +66,7 @@ The Logging Group returned from the mangroves, chatting, tools on shoulders. Tho
 
 The tide was ebbing; seawater washed over the bay's rocks of all sizes. In the distance, Lingao Cape's silhouette emerged on the western horizon. The crimson sunset slowly sank amid scattered clouds and colorful sky. Bopu Bay's light and sea merged, glittering. The sea, as if ablaze, turned brilliant gold-red.
 
-The transmigrators' fleet lay anchored in the bay. Dark ship silhouettes were edged with radiant gold from the sunset. These utterly ordinary cargo ships and fishing boats, at this moment, seemed as magnificent as an imperial fleet in Pasca Bay.
+The transmigrators' fleet lay anchored in the bay. Dark ship silhouettes were edged with radiant gold from the sunset. These utterly ordinary cargo ships and fishing boats, at this moment, seemed as magnificent as an imperial fleet in Scapa Flow.
 
 The majestic scene intoxicated them; wordless emotion silenced them. Not just them—transmigrators returning from other work sites also slowed, gazing at this splendid view.
 

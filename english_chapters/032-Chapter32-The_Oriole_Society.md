@@ -1,6 +1,6 @@
 # Chapter 32: The Oriole Society
 
-Guangzhou's South City faced the Pearl River and was the mooring place for sea merchants and foreign vessels. By the Song dynasty, South City had become a commercial center, protected by the East and West Yanchi walls, which were destroyed during Yuan dynasty military turmoil. After the Ming's founding, commerce flourished here again. But following the Tuolin mutiny, when South City residents were victimized, the authorities built new walls along the old Yanchi foundations. As the *Guangdong Gazetteer* noted: "In the forty-second year of Jiajing [1563], Governor Wu Guifang, in response to the Tuolin mutiny's trampling of residents outside the walls, constructed new walls from the southwest corner tower to Fifth Sheep Relay Station, encircling to the southeast corner tower, for defense."
+Guangzhou's South City faced the Pearl River and was the mooring place for sea merchants and foreign vessels. By the Song dynasty, South City had become a commercial center, protected by the East and West Wing walls, which were destroyed during Yuan dynasty military turmoil. After the Ming's founding, commerce flourished here again. But following the Tuolin Mutiny, when South City residents were victimized, the authorities built new walls along the old Wing wall foundations. As the *Guangdong Gazetteer* noted: "In the forty-second year of Jiajing [1563], Governor Wu Guifang, in response to the Tuolin Mutiny's trampling of residents outside the walls, constructed new walls from the southwest corner tower to Fifth Sheep Relay Station, encircling to the southeast corner tower, for defense."
 
 With these walls, New South City—though facing the Pearl River with moats on three sides and the smallest of Guangzhou's three walled districts—concentrated the foreign-vessel zone, wharf zone, commercial zone, and wealthy residences within its bounds, making it the city's commercial heart.
 
@@ -8,7 +8,7 @@ At this moment, on the Pearl River embankment outside South City's Jinghai Gate,
 
 The sky was overcast and close; misty rain blurred everything. On the river, a dozen sailing ships lay at anchor, their black silhouettes barely visible in the thick water-fog. Gazing toward Shicui Islet and White Goose Pool, all was lost in deep haze, merged with sky and clouds.
 
-"Damn it—where's any Australian ship?" One spat and cursed.
+"Damn it—where is this Australian ship?" One spat and cursed.
 
 "Boss Wang, we've searched over ten days. We've examined every sea vessel along the river—there's no strange big ship."
 
@@ -22,15 +22,15 @@ Everyone fell silent.
 
 After a pause, Boss Wang said: "Australia may be a place we've never heard of, but the goods sold at the Gao family shop on Haopan Street didn't fall from the sky, did they? The whole city is going mad—who doesn't know about Australian rarities? Such a profitable trade, coming by sea—how can we brothers not make a killing?" He smiled grimly. "This time, we must get to the bottom of these sea merchants."
 
-These men were subordinates of Zheng Zhilong, the "great pirate" currently ravaging Fujian and shaking both Fujian and Guangdong provinces. Allied with Li Kuiqi, they had gathered over thirty thousand men and occupied key coastal islands and harbors in southern Fujian—Zhongzuo, Gulangyu, Da Dan, Lieyu, Gaopu. Whether plundering merchant ships, extorting "protection water" money, or raiding inland to burn, kill, and kidnap—they had become the dominant power on Fujian's southern coast.
+These men were subordinates of Zheng Zhilong, the "great pirate" currently ravaging Fujian and shaking both Fujian and Guangdong provinces. Allied with Li Kuiqi, they had gathered over thirty thousand men and occupied key coastal islands and harbors in southern Fujian—Zhongzuo, Gulangyu, Dadan, Lieyu, Gaopu. Whether plundering merchant ships, extorting "protection water" money, or raiding inland to burn, kill, and kidnap—they had become the dominant power on Fujian's southern coast.
 
 The group walked along the wharf toward the city, passing more pedestrians and peddlers. Past the Dragon King Temple, Jinghai Gate's tower came into view. Inside the walls, they followed the road toward Fifth Sheep Gate. Ahead stood a magnificent temple—Tianfei Temple, built during the Hongwu reign. This was South City's transportation hub, a cosmopolitan crossroads where all kinds mingled with sedan chairs and mule carts, merchants gathered, markets bustled—voices clamoring, stalls stretching on, thriving commerce.
 
 Boss Wang was cautious, walking along the wall. Turning a corner, they entered an alley. At the base of the city wall was a small tavern, its dingy bamboo half-curtain dark with grease. The group slipped inside. A few oil lamps hung; even by day it was dim. Customers made a noisy crowd; the floor was wet and slippery, the air thick with cooking smells, wine, oil smoke, and body odor.
 
-The waiter hurried to greet them. Boss Wang requested a private booth and ordered food and wine. The curtain was half-raised so the man at the doorway could survey the entire shop.
+The waiter hurried to greet them. Boss Wang requested a private booth and ordered food and wine. The curtain was half-raised so the man near the doorway could survey the entire shop.
 
-After a while, a street-loafer type entered: a smooth-faced, middle-aged man. Their eyes met; the newcomer sat with them. No pleasantries—everyone just ate and drank. Boss Wang, seeing no plainclothes constables or Depot agents, asked quietly: "Any news from the brothers on Haopan Street?"
+After a while, a street thug entered: a smooth-faced, middle-aged man. Their eyes met; the newcomer sat with them. No pleasantries—everyone just ate and drank. Boss Wang, seeing no plainclothes constables or Depot agents, asked quietly: "Any news from the brothers on Haopan Street?"
 
 "We've been tailing nearly half a month. Nothing useful. We've watched loads of goods carried out of the Gao mansion and sent to the shop—but no special goods going in, and no peculiar people."
 
@@ -80,13 +80,13 @@ Knowing this courtyard held secrets, they observed two more days and determined 
 
 The question circled back: they still hadn't discovered where the sea merchants' goods came from.
 
-"We wanted to listen in, but—damn it!" The one with the bruise spoke viciously. "There's a trained fighter among them. The moment we got close, he spotted us and threw a rock—fast and vicious."
+"We wanted to listen in, but—damn it!" The one with the bruise spoke viciously. "There's a trained fighter among them. The moment we got close, he spotted us and threw a rock—fast and hard."
 
-"I say we go all in." Someone spoke in a low voice. "Just 'raid the blankets.' Grab Steward Yan—or even Gao Ju himself—and we'll get the whole story!"
+"I say we go all in." Someone spoke in a low voice. "Just sack the lot. Grab Steward Yan—or even Gao Ju himself—and we'll get the whole story!"
 
 Boss Wang snorted: "Grab them? Which merchant on Haopan Street isn't well-connected? Setting aside their reach into high places—just the household guards would be enough to drink you dry."
 
-"Then grab one of the sea merchants." The man chuckled. "Even if we don't touch the Gao family, these rootless sea merchants are no problem, right? Brother He says there's only one fighter among them, and no Gao household guards. Even if he were made of iron, how many nails could he forge? We gather skilled brothers, go in, and grab one. Take him aboard our ship—then whether he's from Australia or Kunlun Mountain, he'll have to explain everything. Besides,"—he grinned greedily—"to get him back, won't they have to hand over some good stuff?"
+"Then grab one of the sea merchants." The man chuckled. "Even if we don't touch the Gao family, these rootless sea merchants are no problem, right? Brother He says there's only one fighter among them, and no Gao household guards. Even if he were made of iron, how many nails can he make? We gather skilled brothers, go in, and grab one. Take him aboard our ship—then whether he's from Australia or Mount Kunlun, he'll have to explain everything. Besides,"—he grinned greedily—"to get him back, won't they have to hand over some good stuff?"
 
 The others roared approval, all looking at Boss Wang. Boss Wang thought this was an option. Kidnapping a sea merchant wasn't a big deal; Gao Ju was unlikely to be furious over it, leaving room for future dealings.
 

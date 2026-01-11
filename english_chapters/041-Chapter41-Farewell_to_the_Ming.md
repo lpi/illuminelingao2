@@ -32,7 +32,7 @@ For defense: the small waterways and pond on the northwest sides would be dredge
 
 But all this currently existed only on the designer's computer. Funds weren't abundant; excessive investment in a non-urgent project wasn't advisable. The wormhole's energy was about to dissipate. To preserve the last energy, crossing trade would stop after this trip. The transmigrators who had been active in the Ming timespace for several months would all withdraw until the final crossing operation.
 
-Thus the ambitious construction plan had only been partially implemented. Sun Chang had hired masons who were repairing the residence and surrounding walls. Watching the workers busily carrying bricks and mixing mortar, Xiao Zishan felt a pang of reluctance—who knew how long before he could return here.
+Thus the ambitious construction plan had only been partially implemented. Sun Chang had hired bricklayers who were repairing the residence and surrounding walls. Watching the workers busily carrying bricks and mixing mortar, Xiao Zishan felt a pang of reluctance—who knew how long before he could return here.
 
 After the official crossing, they would no longer be harmless Australian merchants selling novel goods for profit. They would be a political force with their own banner, plotting rebellion. As an Executive Committee member, he probably wouldn't be sent back to Guangzhou under enemy control. How long before the transmigrators' flag could fly over the Lingnan First Building?
 
@@ -92,7 +92,7 @@ Back in the newly repaired room, Sun Chang stood waiting with an account book. H
 
 "Understood."
 
-"Though I say don't cause trouble, that doesn't mean you should *neet* at home!"
+"Though I say don't cause trouble, that doesn't mean you should be a shut-in at home!"
 
 "?" Sun Chang looked confused.
 

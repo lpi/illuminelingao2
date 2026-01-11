@@ -2,9 +2,9 @@
 
 "My head's so heavy..." Xiao Zishan awoke from sleep feeling dizzy and extremely uncomfortable. These past few days he had been sleeping well—Ming-era Guangzhou had not only fresh air but no early-morning roar of cars. Sleep had been remarkably sweet.
 
-Earlier, during their crossing trades, everyone had been too nervous to spend the night in Ming-era timespace. Before nightfall they would always leave, preferring to return another day. But now, as their business and connections grew more established, the work to be done on the Ming side increased daily. To extend the wormhole's lifespan, staying a few days after crossing had become routine. Moreover, these days they could live decadently with servants attending to their every need—there was almost a feeling of never wanting to leave.
+Earlier, during their crossing trades, everyone had been too nervous to spend the night in the Ming dynasty. Before nightfall they would always leave, preferring to return another day. But now, as their business and connections grew more established, the work to be done on the Ming side increased daily. To extend the wormhole's lifespan, staying a few days after crossing had become routine. Moreover, these days they could live decadently with servants attending to their every need—there was almost a feeling of never wanting to leave.
 
-But today his head was terribly heavy. He forced his eyes open; beyond the gauze window after the rain, bright sunshine flooded in. It looked close to ten o'clock. He felt puzzled—in this timespace with no TV or internet, even when everyone discussed and chatted together, they went to bed early, so each morning they naturally woke around seven. Why so late today?
+But today his head was terribly heavy. He forced his eyes open; beyond the gauze window after the rain, bright sunshine flooded in. It looked close to ten o'clock. He felt puzzled—in this era with no TV or internet, even when everyone discussed and chatted together, they went to bed early, so each morning they naturally woke around seven. Why so late today?
 
 He sat up and surveyed the room—and was shocked. The room was a chaotic mess; nearly every drawer and cabinet had been opened; things were strewn all over the floor.
 
@@ -34,7 +34,7 @@ The two ran frantically from room to room. Engineer Wang was still fast asleep. 
 
 "Yes, knockout incense." Sun Chang had wandered from his famine-stricken hometown to Guangzhou, begging along the way. He had seen much of the *jianghu* underworld. "Are the masters missing anything?"
 
-This reminder sent both of them sprinting to the west chamber of the middle courtyard. This room served as their main warehouse and crossing point; the Executive Committee had made some non-period modifications here—bricking up windows and extra doors, and creating a fortified inner chamber within using barbed-wire-wrapped steel fencing and a security door. Xiao Zishan saw the padlock on the outer wooden door was missing; his heart sank. He pushed the door open—the steel grating and security door were intact; a full cartload of goods was still neatly stacked. He exhaled in relief.
+This reminder sent both of them sprinting to the west chamber of the middle courtyard. This room served as their main warehouse and crossing point; the Executive Committee had made some non-period modifications here—bricking up windows and extra doors, and creating a fortified inner chamber within using barbed-wire-wrapped steel fencing and a security door. Xiao Zishan saw that the padlock on the outer wooden door was missing; his heart sank. He pushed the door open—the steel grating and security door were intact; a full cartload of goods was still neatly stacked. He exhaled in relief.
 
 It seemed the thieves hadn't succeeded. Twenty-first-century security measures still worked. The problem was they had lost Director Wen! That was far worse than losing goods or money. Money could be earned back, but losing a living person in the Ming Dynasty—that was another matter entirely.
 
@@ -44,13 +44,13 @@ The three searched Director Wen's room repeatedly but found nothing conclusive. 
 
 After looking for a while, Xiao Zishan couldn't help saying:
 
-"Old Bei, see anything? Aren't you a reconnaissance soldier?"
+"Old Bei, see anything? Aren't you a recon soldier?"
 
-Beiwei spread his hands: "I'm a reconnaissance soldier, not a detective. We need someone from criminal investigation."
+Beiwei spread his hands: "I'm a recon soldier, not a detective. We need someone from criminal investigation."
 
 "Let's find someone in criminal investigation. Ran Yao used to be a police officer." Xiao Zishan remembered.
 
-"Get him over here quickly. And those detective freaks who haunt the mystery-novel forums—bring a few of them too." Engineer Wang saw Gao Xian about to come in and clean up. He immediately shouted: "Don't move! Preserve the scene!" Gao Xian fled in fright.
+"Get him over here quickly. And those mystery buffs who haunt the mystery-novel forums—bring a few of them too." Engineer Wang saw Gao Xian about to come in and clean up. He immediately shouted: "Don't move! Preserve the scene!" Gao Xian fled in fright.
 
 After discussion: Engineer Wang would first take the goods and money back through the crossing and report to the Executive Committee, then summon some professionals to examine traces. Xiao Zishan and Beiwei would stay here to investigate.
 

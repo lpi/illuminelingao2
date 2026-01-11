@@ -1,105 +1,105 @@
 # Chapter 152: Armstrong Cannon
 
-Projectile flew past the 400m mound, smashing a 30cm-deep crater. Iron ball in the pit still smoked.
+The projectile flew past the 400-meter mound, smashing out a crater thirty centimeters deep. The iron ball sitting in the pit was still smoking.
 
-"Ground here is fairly soft." Lin Shenhe observed. "Harder ground would produce ricochet effect—even more devastating."
+"The ground here is fairly soft," Lin Shenhe observed. "Harder ground would produce a ricochet effect—that would be even more devastating."
 
-Zhang Bailin measured: from 400m stake to crater—actual distance was 460m.
+Zhang Bailin took a measurement: from the 400-meter stake to the crater, the actual distance was 460 meters.
 
-"Range acceptable." Lin Shenhe was satisfied. "Accuracy's also acceptable."
+"Range is acceptable," Lin Shenhe nodded with satisfaction. "Accuracy is also acceptable."
 
-"This is acceptable? Hit nothing!" Ying Yu found it unbelievable. This is a cannon—direct fire too.
+"This is acceptable? We hit nothing!" Ying Yu found it unbelievable. This was a cannon—and a direct-fire one at that.
 
-"Correct—smoothbores have this level. Against dense formations, one shot kills at least a dozen."
+"Correct—smoothbores operate at this level. Against dense formations, one shot kills at least a dozen men."
 
-They continued firing with different angles and charges—over a dozen rounds. Range from 400m to 1200m+. At maximum 45-degree elevation, projectiles reached 1500m. Beyond 400m, accuracy disappeared—basically just general direction. Throughout the process, 4 mounds were hit. The cannon became red-hot—but remained stable without cracking. For safety, after 15 shots, Lin Shenhe called cease-fire—switch cannons.
+They continued firing with different angles and charges, expending over a dozen rounds. The range varied from 400 meters to over 1200 meters. At the maximum 45-degree elevation, the projectiles reached 1500 meters. Beyond 400 meters, however, accuracy effectively disappeared—it was basically just shooting in a general direction. throughout the process, only four mounds were actually hit. The cannon became red-hot but remained stable without cracking. For safety, after fifteen shots, Lin Shenhe called a cease-fire to switch cannons.
 
-"More firing? I'm nearly collapsed." Artillerymen were gasping. Everything else was manageable—after each shot, repositioning was exhausting. Then readjusting direction and angle. Extreme physical drain.
+"More firing? I'm nearly collapsing." The artillerymen were gasping for breath. Everything else was manageable, but repositioning the gun after the recoil of each shot was exhausting. Then came the physical drain of readjusting the direction and angle.
 
-"We still need recoil cannons—otherwise we'll die from exhaustion." Zhang Bailin wheezed, nearly collapsing.
+"We still need recoil systems—otherwise we'll die from exhaustion," Zhang Bailin wheezed, nearly collapsing.
 
-"Recoil guns need Industrial Department to produce springs first." Lin Shenhe was also exhausted. "Until then—don't think about it."
+"Recoil guns need the Industrial Department to produce springs first," Lin Shenhe was also exhausted. "Until then, don't even think about it."
 
-After resting, they test-fired the clay-mold-cast cannon. Range was slightly shorter than iron-mold versions. Performance was also acceptable.
+After resting, they test-fired the clay-mold cast cannon. The range was slightly shorter than the iron-mold versions, but the performance was otherwise acceptable.
 
-Subsequently, Artillery Group used iron-mold plus Rodman method to cast 12-pounder howitzers, 12-pounder mountain howitzers, 12-pounder cannons, and other calibers. With light cannon experience, they began casting naval 32-pounder cannons and 32-pounder carronades (note: short direct-fire guns invented by British Navy). These various cannons all test-fired successfully. Lingao Point area had daily cannon thunder, smoke-filled skies.
+Subsequently, the Artillery Group used iron molds combined with the Rodman method to cast 12-pounder howitzers, 12-pounder mountain howitzers, 12-pounder cannons, and other calibers. With their light cannon experience secured, they began casting naval 32-pounder cannons and 32-pounder carronades—short, direct-fire guns invented by the British Navy. All these various cannons were test-fired successfully. The area around Lingao Point echoed daily with the thunder of cannons, the skies filled with smoke.
 
-With sufficient casting experience, Artillery Group—using resource library's Armstrong cannon drawings and explanations—designed an improved screw-breechblock Armstrong cannon.
+With sufficient casting experience under their belts, the Artillery Group—using the Armstrong cannon drawings and explanations from their resource library—began designing an improved screw-breech Armstrong cannon.
 
-Rifled cannons weren't smoothbores. Though 32-pounder long-gun caliber reached 120mm during casting, designers cautiously set the first Armstrong at 70mm caliber.
+Rifled cannons were different from smoothbores. Although the 32-pounder long guns reached a caliber of 120mm during casting, the designers cautiously set the caliber of the first Armstrong at 70mm.
 
-Barrel material: cast steel. Casting was now routine for Artillery Group. Main issue: rifling. In arsenals, this required specialized machinery—at least specialized tooling. Immediate manufacturing was impossible. Fortunately, transmigrators had role models: Eighth Route and New Fourth Army ordnance workers. With simplest machinery and hand tools, they'd made rifles and cannons. Researching archives, Zhan Wuya decided to imitate Wu Yunduo's soil-method rifling technique: an olive-shaped steel column with spiral grooves around circumference, force-wedged into barrel.
+The barrel material was cast steel. Casting steel was now routine for the Artillery Group, but the main issue was rifling. In proper arsenals, this required specialized machinery—or at least specialized tooling. Immediate manufacturing of such machines was impossible. Fortunately, the transmigrators had role models: the ordnance workers of the Eighth Route and New Fourth Armies. With the simplest machinery and hand tools, they had successfully manufactured rifles and cannons. After researching the archives, Zhan Wuya decided to imitate Wu Yunduo's makeshift rifling technique: an olive-shaped steel cutter with spiral grooves around its circumference, which was forced through the barrel.
 
-How to make this column—Wu Yunduo only described generally, no detailed drawings. Artillery Group convened all machinery and drafting experts for overnight discussion—producing design drawings. Jiang Ye supervised: first sand casting, then lathe machining the steel die.
+As for how to make this cutter—Wu Yunduo had only described it generally, without detailed drawings. The Artillery Group convened all their machinery and drafting experts for an overnight discussion, eventually producing design drawings. Jiang Ye supervised the process: first sand casting, then machining the steel die on a lathe.
 
-Finally, this extrusion method proved effective. Days later, first Armstrong barrel was machined. Breechblock was trickier—but through Jiang Ye and Xiao Bailang's joint efforts, screw-breechblock was completed and successfully installed. Assembled and polished, the cannon looked sleek and smooth. Everyone fondled and admired it with lecherous expressions.
+Finally, this extrusion method proved effective. Days later, the first Armstrong barrel was machined. The breechblock was trickier, but through the joint efforts of Jiang Ye and Xiao Bailang, a screw-breechblock was completed and successfully installed. Assembled and polished, the cannon looked sleek and deadly. Everyone stroked and admired the smooth metal with expressions bordering on the obscene.
 
-Shells used cast-iron long pointed solid shot. But rifled-cannon fuzes were problematic.
+The shells used were cast-iron long pointed solid shot. However, fuzes for the rifled cannon presented a problem.
 
-Fuzes—whether safety-equipped or not—were basically spring and striker type. Requiring two things: primers and springs. Compared to primer's fulminate of mercury, springs were actually their bigger problem. Spring manufacturing itself wasn't difficult—materials were. Modern springs used alloy steel—not producible with small converters. Mechanical Group had spring steel reserves—but shell fuzes were consumables; couldn't rely on reserves.
+Fuzes—whether safety-equipped or not—were basically of the spring and striker type. This required two things: primers and springs. Compared to the primer's fulminate of mercury, springs were actually the bigger problem. Manufacturing springs itself wasn't difficult, but the materials were. Modern springs used alloy steel—something not producible with their small converters. The Mechanical Group had reserves of spring steel, but shell fuzes were consumables; they couldn't rely on finite reserves.
 
 "How about chemical fuzes?" Zhang Bailin had a brainstorm.
 
 "Meaning?"
 
-"Chemical reactions to detonate shells." Zhang Bailin's idea was simple: glass or ceramic vials containing one chemical, surrounded by another reactive chemical. On impact, vial shatters, chemicals mix violently, detonating the explosive.
+"Using chemical reactions to detonate the shells." Zhang Bailin's idea was simple: glass or ceramic vials containing one chemical, surrounded by another reactive chemical. On impact, the vial would shatter, the chemicals would mix violently, and the explosive would detonate.
 
-"Not very safe." Xiao Bailang said. "Shells constantly get moved and transported. What if vials break?"
+"Not very safe," Xiao Bailang said. "Shells are constantly being moved and transported. What if the vials break?"
 
-"Separate transport. Fuze and shell separate—install before use."
+"Separate transport. Keep the fuze and shell separate—install only before use."
 
-Wang Luobin shook his head repeatedly: "Concept's fine, but you forgot: rifled-breechloader chamber pressure is much higher than smoothbores. Fuzes need sufficient strength. Glass tubes would shatter at firing—result: burst barrel."
+Wang Luobin shook his head repeatedly. "The concept is fine, but you're forgetting something: chamber pressure in a rifled breechloader is much higher than in smoothbores. Fuzes need sufficient strength. Glass tubes would shatter upon firing—result: a burst barrel."
 
-Zhang Bailin was dumbfounded—he hadn't considered this.
+Zhang Bailin was dumbfounded—he hadn't considered the acceleration forces.
 
-"Cannons aren't as easy as imagined, huh?" Ying Yu patted his shoulder.
+"Cannons aren't as easy as you imagined, huh?" Ying Yu patted his shoulder.
 
-"This fuze could work for other explosives—" Lin Shenhe said, "but absolutely not shells."
+"This fuze could work for other explosives," Lin Shenhe said, "but absolutely not for artillery shells."
 
-"So advanced cannons aren't enough." Wang Luobin smiled bitterly. Smoothbore HE shells had no technical difficulty—but that technology couldn't apply to rifled guns.
+"So advanced cannons aren't enough." Wang Luobin smiled bitterly. Smoothbore high-explosive shells posed no technical difficulty, but that technology couldn't be directly applied to rifled guns.
 
-"Carbon steel can also make springs." Jiang Ye thought—recalling seeing carbon steel springs somewhere.
+"Carbon steel can also make springs," Jiang Ye mused, recalling that he had seen carbon steel springs somewhere.
 
-"Can work—0.6% carbon steel is usable. Just unknown if performance suffices." Ji Wusheng said. "Worth trying—I'll research heat treatment."
+"It can work—0.6% carbon steel is usable. It's just unknown if the performance receives constitutes will suffice," Ji Wusheng said. "Worth trying—I'll research the heat treatment."
 
-"Can you handle heat treatment?" Zhan Wuya was also uncertain—he'd only done simple heat treatment work.
+"Can you handle the heat treatment?" Zhan Wuya was also uncertain—he had only done simple heat treatment work before.
 
-"I'm not sure either—only books and experiments."
+"I'm not sure either—I only have books and experiments to guide me."
 
-"This won't be simple—not one or two day work."
+"This won't be simple—it's not work for one or two days."
 
-After much fruitless thinking, Lin Shenhe finally proposed: since initial Armstrong deployment was naval—anti-ship still prioritized armor-piercing. Solid cast-iron shot would suffice.
+After much fruitless thinking, Lin Shenhe finally proposed a compromise: since the initial Armstrong deployment was naval, and anti-ship missions still prioritized armor-piercing capability, solid cast-iron shot would suffice for now.
 
 "What about shore bombardment missions?"
 
-"Use mortars." Lin Shenhe said.
+"Use mortars," Lin Shenhe said.
 
-Mortars were predecessors of modern mortars—manufacturing was much simpler. Accompanying HE shells were easy to make. Downside: high dud rate—better than nothing.
+Mortars were the predecessors of modern trench mortars—manufacturing them was much simpler. The accompanying explosive shells were easy to make. The downside was a high dud rate, but it was better than nothing.
 
-"How to solve lead coating problem?" Wang Luobin asked. Historically, Armstrong cannons were removed from Royal Navy ships because lead fragments flying at muzzle exit caused casualties.
+"How do we solve the lead coating problem?" Wang Luobin asked. Historically, Armstrong cannons were removed from Royal Navy ships because lead fragments stripping off at the muzzle caused casualties among the crew.
 
-"I read that someone proposed electroplating lead would solve this—" Wang Luobin shared his solution idea.
+"I read that someone proposed electroplating lead would solve this," Wang Luobin shared his solution.
 
-Early rifled-cannon shells used Minié ball type technology—explosive gas expanding shell bases into rifling. Shell bodies needed soft metal coating—lead was ideal. Problem followed: cast-iron bodies and lead skins bonded poorly. Without hydraulic presses, forced bonding resulted in Royal Navy Armstrong style lead fragment injuries.
+Early rifled cannon shells used Minié ball-type technology—explosive gas expanded the shell base into the rifling. The shell bodies needed a soft metal coating to engage the rifling, and lead was ideal. The problem was that cast-iron bodies and lead skins bonded poorly. Without hydraulic presses to force the bonding, the result was the Royal Navy's Armstrong-style lead fragment injuries.
 
-"Electroplating is currently too extravagant—technically insufficient too." Zhan Wuya said.
+"Electroplating is currently too extravagant—and technical insufficient too," Zhan Wuya said.
 
-"One idea—might work. Americans used it on 3-inch Shenkl cannon shells."
+"One idea—might work. The Americans used it on 3-inch Shenkl cannon shells."
 
-Since lead skin falling off injured people, and they couldn't prevent it—best solution: substitute something that wouldn't injure when falling.
+Since the lead skin falling off injured people, and they couldn't prevent it, the best solution was to substitute something that wouldn't cause injury when it detached.
 
-Shenkl shells used papier-mâché driving bands on shell bases—paper-pulp mixture. Sufficient strength and flexibility for rifling engagement, but shattered fragments at muzzle exit wouldn't injure.
+Shenkl shells used papier-mâché driving bands on the shell bases—a paper-pulp mixture. It had sufficient strength and flexibility for rifling engagement, but the fragments shattered at the muzzle exit wouldn't injure anyone.
 
-"Is this paper pulp difficult?"
+"Is this paper pulp difficult to make?"
 
-"1860s technology—shouldn't be hard. Just paper pulp and glue. No ready formulas—experiments needed."
+"1860s technology—shouldn't be hard. Just paper pulp and glue. No ready formulas, though—experiments are needed."
 
-"Assign to Chemistry Group—they have experience with this."
+"Assign it to the Chemistry Group—they have experience with this."
 
-Mid-discussion, Military Group's He Ming suddenly burst in, face serious.
+Mid-discussion, He Ming from the Military Group suddenly burst in, his face serious.
 
 "What happened?" Wang Luobin sensed trouble.
 
-"According to prisoner confessions—pirates will likely attack us soon!" He handed over a document. "This is Security Group's interrogation bulletin."
+"According to prisoner confessions—pirates will likely attack us soon!" He handed over a document. "This is the Security Group's interrogation bulletin."
 
 **(End of Chapter)**

@@ -1,28 +1,28 @@
 # Chapter 181: The Battle of Bopu (Part 1)
 
-A piercing shriek filled the night sky, jolting sleeping people awake. This was their first time being awakened by such an alarm.
+A piercing shriek filled the night sky, jolting the sleeping camp awake. This was the first time they had been roused by such an alarm.
 
-What was happening? The gap between daytime victory celebrations and midnight's piercing alarm was too stark. Many couldn't process it immediately.
+What was happening? The contrast between the daytime victory celebrations and midnight's piercing alarm was too stark, and many couldn't process it immediately.
 
-Chen Haiyang's roar blared from loudspeakers: "Enemy attack! Enemy attack!"
+Chen Haiyang's roar blared from the loudspeakers: "Enemy attack! Enemy attack!"
 
-After receiving Xue Ziliang's report, the Navy had raised alert from yellow to orange. All combat personnel assembled at key positions while patrols checked potential infiltration points.
+After receiving Xue Ziliang's report, the Navy had raised the alert level from yellow to orange. All combat personnel assembled at key positions while patrols checked potential infiltration points.
 
-The gunshot elevated orange to red. Combat status!
+The gunshot elevated the alert from orange to red. Combat status!
 
-"Beach under attack! All personnel assemble at Port Office!"
+"Beach under attack! All personnel assemble at the Port Office!"
 
-The quiet camp immediately stirred. People in disheveled clothing poured from dormitories and barracks.
+The quiet camp immediately stirred. People in disheveled clothing poured from the dormitories and barracks.
 
-Groups of two or three sprinted toward the beacon tower. Footsteps mingling with loudspeakers created unprecedented tension.
+Groups of two or three sprinted toward the beacon tower, their footsteps mingling with the blaring loudspeakers to create an atmosphere of unprecedented tension.
 
-At the office entrance, Ma Qianzhu issued final orders.
+At the office entrance, Ma Qianzhu issued his final orders.
 
-"...You eight, up to the tower to help man the guns. Wang Ruixiang, take fire extinguishers to the dock to prevent enemy arson. Lin Shenhe is responsible for getting artillery there as fast as possible, by any means. Everyone else arms up under Wu De's command. Hold all key points. Port under martial law. Also, notify Bairren and all stations to go on alert. Keep all radios open. Now, move!"
+"...You eight, get up the tower and help man the guns. Wang Ruixiang, take fire extinguishers to the dock to prevent enemy arson. Lin Shenhe is responsible for getting artillery there as fast as possible, by any means necessary. Everyone else arms up under Wu De's command. Hold all key points. The port is under martial law. Also, notify Bairen and all stations to go on alert. Keep all radios open. Now, move!"
 
-After receiving Bopu's attack alert, the Communications Center immediately shut down all non-military channels, ensuring military communication needs. Xi Yazhou ordered the Training Battalion to assemble and stand by.
+Upon receiving Bopu's attack alert, the Communications Center immediately shut down all non-military channels to ensure military communication needs were met. Xi Yazhou ordered the Training Battalion to assemble and stand by.
 
-"Notify the garage to prepare vehicles! Ready for reinforcement transport." Xi Yazhou was yelling into his radio when he heard roaring from the garage direction. A farm truck packed with people was speeding away.
+"Notify the garage to prepare vehicles! We need to be ready to transport reinforcements." Xi Yazhou was yelling into his radio when he heard a roaring engine from the direction of the garage. A farm truck packed with people was speeding away.
 
 "Who the hell is that?!"
 

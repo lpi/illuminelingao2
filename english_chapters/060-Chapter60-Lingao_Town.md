@@ -40,11 +40,11 @@ The city walls were very quiet. Lanterns hung at intervals. Militia patrolled th
 
 "Usually these pirates grab what they can and leave. Maybe their ships have already gone."
 
-"If they'd really left, would Magistrate Wu have sent for reinforcements?" someone said mysteriously. "This afternoon, Vice-Magistrate Wu went to Hou-suo for troops."
+"If they'd really left, would Magistrate Wu have sent for reinforcements?" someone said mysteriously. "This afternoon, Vice-Magistrate Wu went to Housuo for troops."
 
-*(Hou-suo: a garrison belonging to the Hainan Interior Guard's 5,000-household system, with two stations in Lingao County.)*
+*(Housuo: a garrison belonging to the Hainan Interior Guard's 5,000-household system, with two stations in Lingao County.)*
 
-"The pirates are that strong?" A thin, dark man was uneasy. He was a *shegeng* farmer—originally from Fujian, renting land to farm. After years of hard work, he'd finally built a small estate, and last year he'd brought his newly wedded wife from home. Now she clutched a piglet tightly, surrounded by two large bamboo cages of chickens and ducks—the smell foul—but she didn't mind.
+"The pirates are that strong?" A thin, dark man was uneasy. He was a migrant farmer—originally from Fujian, renting land to farm. After years of hard work, he'd finally built a small estate, and last year he'd brought his newly wedded wife from home. Now she clutched a piglet tightly, surrounded by two large bamboo cages of chickens and ducks—the smell foul—but she didn't mind.
 
 "Not just strong—very strong." A small trader who'd apparently seen something of the world spoke dramatically. "These past years, the waters of Liangguang have had no peace. Yang Er, Liu Xiang—even the government forces can't handle them. Admiral Yu has launched how many campaigns, losing more than winning. I hear the court is considering offering them amnesty."
 
@@ -88,6 +88,6 @@ Wu Mingjin couldn't rely solely on his account—military men often exaggerated 
 
 Now Wu was genuinely worried. He didn't believe in sorcery. Having traveled through Guangdong en route to Hainan, he'd seen Portuguese ships and cannons, even telescopes. He knew overseas peoples possessed marvelous devices. What if these pirates attacked the county using some foreign contraption? Lingao's forces: only runners and yamen clerks, eighty militia, and the Patrol Inspector's twelve archers who'd returned—barely over a hundred total.
 
-So he'd urgently sent Vice-Magistrate Wu Ya with silver to Hou-suo for reinforcements. Wu Ya had just returned with a report: the Hou-suo commander agreed to send thirty men and one cannon tomorrow morning—but afterward, each man required one *shi* of rice as reward.
+So he'd urgently sent Vice-Magistrate Wu Ya with silver to Housuo for reinforcements. Wu Ya had just returned with a report: the Housuo commander agreed to send thirty men and one cannon tomorrow morning—but afterward, each man required one *shi* of rice as reward.
 
 **(End of Chapter)**

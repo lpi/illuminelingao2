@@ -2,7 +2,7 @@
 
 At the Nanxiong Prefecture wharf, boats of all sizes lay at anchor. This was Guangdong's key north-south transit point—merchants traveling south crossed Dayu Ridge from Nan'an in Jiangxi, then switched to boats at Nanxiong and sailed straight down to Guangzhou.
 
-Young Eunuch Yang—Yang Tianliang—had come from Beijing on two gallery boats. One carried him and his attending servants and maidservants; the other carried secretaries, stewards, hangers-on, guards. Neither boat displayed flags, plaques, or silk lanterns. Eunuch Yang was far from a palace favorite—he could barely secure his own position. Displaying insignia would only invite jealousy; though some officials might wish to pay respects, Young Eunuch Yang least liked ceremonies of welcome and farewell. So whether by sedan or by boat, arriving anywhere, they neither disturbed official relay stations nor sent calling cards. They simply traveled in silence. Now, having rested a day aboard ship, half the journey's fatigue had lifted. The hangers-on invited him to cards; he declined all invitations.
+Young Eunuch Yang—Yang Tianliang—had come from Beijing on two decorated barges. One carried him and his attending servants and maidservants; the other carried secretaries, stewards, retainers, and guards. Neither boat displayed flags, plaques, or silk lanterns. Eunuch Yang was far from a palace favorite—he could barely secure his own position. Displaying insignia would only invite jealousy; though some officials might wish to pay respects, Young Eunuch Yang least liked ceremonies of welcome and farewell. So whether by sedan or by boat, arriving anywhere, they neither disturbed official relay stations nor sent calling cards. They simply traveled in silence. Now, having rested a day aboard ship, half the journey's fatigue had lifted. The retainers invited him to cards; he declined all invitations.
 
 Not that he disliked mahjong. It was just that this journey south brought particular bitterness to his heart.
 
@@ -10,17 +10,17 @@ Yang Tianliang had entered the palace late in the Wanli reign and been assigned 
 
 Father and son rarely met; outside official duties, they only managed private properties. On palace and court affairs they said nothing, striving to avoid suspicion.
 
-Yet as the Nine Thousand Years' power grew boundless, their days grew harder. Watching scholars at court tremble into submission or be dismissed... Starting from the intercalary sixth month last year, when Zhejiang's Provincial Governor Pan Ruzhen submitted a memorial requesting construction of a living shrine to Wei Zhongxian, officials everywhere scrambled to make similar requests. Already over forty shrines had been proposed. This stirred the long-sidelined Eunuch Yang's ambitions.
+Yet as the Nine Thousand Years' power grew boundless, their days grew harder. Watching scholars at court tremble into submission or be dismissed... Starting from the intercalary sixth month of the previous year, when Zhejiang's Provincial Governor Pan Ruzhen submitted a memorial requesting construction of a living shrine to Wei Zhongxian, officials everywhere scrambled to make similar requests. Already over forty shrines had been proposed. This stirred the long-sidelined Eunuch Yang's ambitions.
 
 Currently, those petitioning for living shrines were all court officials and local officers; no palace eunuch had yet taken the lead. What if he joined in? Perhaps the Nine Thousand Years' impression might change dramatically—a chance for a turnaround. At minimum, he'd leave an impression of deference.
 
-But on second thought, it seemed wrong. He wasn't one of the inner circle; doing this would be abrupt and a great affront to Wei Zhongxian's palace confidants—one couldn't steal thunder when flattering. After much deliberation: officials and gentry had initiated shrine construction; only the merchant-commoner class hadn't moved. He could mobilize them. He had Gao Ju as a piece in Guangzhou; lately, the man had sent quite a few foreign novelties as tribute—he must have made a fortune. Let him put up the money and take the lead.
+But on second thought, it seemed wrong. He wasn't one of the inner circle; doing this would be abrupt and a great affront to Wei Zhongxian's palace confidants—one couldn't steal the limelight when flattering. After much deliberation: officials and gentry had initiated shrine construction; only the merchant class hadn't moved. He could mobilize them. He had Gao Ju as a piece in Guangzhou; lately, the man had sent quite a few foreign novelties as tribute—he must have made a fortune. Let him put up the money and take the lead.
 
-This was why Yang Tianliang was sent to Guangzhou. Per his godfather's instructions, this living shrine must be grand and magnificent and demonstrate the "sincere devotion" of the merchant-commoner class. As long as Gao Ju led a group of merchants in submitting a petition, the Guangdong provincial officials would never dare refuse.
+This was why Yang Tianliang was sent to Guangzhou. Per his godfather's instructions, this living shrine must be grand and magnificent and demonstrate the "sincere devotion" of the merchant class. As long as Gao Ju led a group of merchants in submitting a petition, the Guangdong provincial officials would never dare refuse.
 
 As for cost—Eunuch Yang didn't concern himself. After all, Gao Ju had benefited from his protection for years; bleeding a little was only fair—they were bound together in fortune and ruin.
 
-But Yang Tianliang saw it differently. His thinking went deeper. The cycle of glory and decay knew no exceptions. The Nine Thousand Years was now in his heyday—flowers brocaded, oil ablaze. This bit of icing meant nothing to him. But should the fall come, this would become irremovable iron evidence!
+But Yang Tianliang saw it differently. His thinking went deeper. The cycle of glory and decay knew no exceptions. The Nine Thousand Years was now in his heyday—like flowers in brocade, like oil ablaze. This bit of icing meant nothing to him. But should the fall come, this would become irremovable iron evidence!
 
 At this thought, he shuddered. He glanced around. He suspected there were Eastern Depot agents among his entourage; even *thinking* such things made one break into cold sweats.
 
@@ -36,7 +36,7 @@ A young attending eunuch crept in. Seeing him resting with eyes closed, he dared
 
 "Show him in."
 
-The steward entered and kowtowed. Yang Tianliang recognized him—Steward Gao Ye, who often came to Beijing with tributes. Young, with polished speech and manner—a social operator.
+The steward entered and kowtowed. Yang Tianliang recognized him—Steward Gao Ye, who often came to Beijing with tributes. Young, with polished speech and manner—a smooth operator.
 
 Besides conveying Master Gao's greetings, he had brought a boatload of fine wine, food, and supplies. Also several young male and female musicians for entertainment on the journey.
 
@@ -82,6 +82,6 @@ When they asked his thoughts, the big fellow dropped to his knees, knocked his h
 
 "Wherever the masters go, Sun Chang follows—to the ends of the earth, without a second word!" Sun Chang spoke with iron resolve.
 
-*They'd thought recruiting followers was hard. This easy? Our main-character aura has finally manifested!*
+*They'd thought recruiting followers was hard. This easy? Our protagonist halo has finally manifested!*
 
 **(End of Chapter)**

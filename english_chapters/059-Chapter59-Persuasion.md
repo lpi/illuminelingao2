@@ -122,7 +122,7 @@ Xiao Zishan nodded: "Fine then. I suggest we inspect their belongings, keep what
 
 Guo Yi didn't face the torture he'd imagined. He even received some mantou and pickled vegetables. After eating, he was taken to a cabin. On the table sat a stainless-steel pot and some half-empty dishes. Xue Ziliang was wolfing down mantou, slurping congee noisily. This 100kg hulk's eating manner was quite ugly. Salina looked haggard—a day without food had sunken her eyes, her blue eyes listless. She held a half-eaten mantou, seemingly unable to swallow.
 
-Even as an ABC, apparently, she still had a Chinese stomach. The pure Western horse clearly suffered from culture shock.
+Even as an ABC, apparently, she still had a Chinese stomach. The pure Western woman clearly suffered from culture shock.
 
 "Guo, what did they ask you?" Xue Ziliang swallowed the last mantou and wiped his mouth with the back of his hand.
 

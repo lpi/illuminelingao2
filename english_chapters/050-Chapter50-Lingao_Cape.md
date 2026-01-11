@@ -1,6 +1,6 @@
 # Chapter 50: Lingao Cape
 
-If anything made Lingao County widely known in this timespace, it was "Lingao Cape." This had always been a strategic point on Hainan Island. Yu Eshui had specifically noted at the pre-departure intelligence briefing that since the Yuan Dynasty, Lingao Cape had had a beacon tower. In the Ming, the Bopu Patrol Office was established here to "examine and interrogate transmigrators." During the Zhengde era, thirty archers and three patrol boats were stationed here. By the end of the Wanli era, there were still twelve archers—presumably with at most one small boat. However, this place had long been a typhoon shelter for Lingao fishermen, so they might encounter local fishing boats.
+If anything made Lingao County widely known in this timespace, it was "Lingao Cape." This had always been a strategic point on Hainan Island. Yu Eshui had specifically noted at the pre-departure intelligence briefing that since the Yuan Dynasty, Lingao Cape had had a beacon tower. In the Ming, the Bopu Patrol Office was established here to "examine and interrogate travelers." During the Zhengde era, thirty archers and three patrol boats were stationed here. By the end of the Wanli era, there were still twelve archers—presumably with at most one small boat. However, this place had long been a typhoon shelter for Lingao fishermen, so they might encounter local fishing boats.
 
 Beiwei carefully scanned the terrain ahead from the bow. Three months before D-Day, some Military Group personnel had conducted a staff reconnaissance trip to Hainan in the 21st-century timespace. They'd focused on the planned landing sites: Lingao Cape–Bopu Port, with Maniao Bay, Hongpai Bay, and Houshui Bay as alternates.
 
@@ -85,7 +85,7 @@ When pirates anchored here for water, everyone kept the peace. But once they ent
 
 Every year after the fifteenth of the eighth lunar month, when typhoons subsided, pirate coastal raids became frequent. The fishing boats that usually sheltered here had recently stopped coming. The patrol archers naturally couldn't slack off—however meager, it was still a salary.
 
-The reconnaissance squad's motorboat had been spotted by the tower lookout as soon as it entered Changgong Bay. Normally, he wouldn't bother the Inspector over such a small boat. But this one traveled incredibly fast, which startled him. When the boat entered the river mouth and he saw the occupants—all burly men in iron helmets and black armor carrying black fire-lances—this was serious indeed. He immediately summoned Inspector Fu to the tower.
+The reconnaissance squad's motorboat had been spotted by the tower lookout as soon as it entered Changgong Bay. Normally, he wouldn't bother the Inspector over such a small boat. But this one traveled incredibly fast, which startled him. When the boat entered the river mouth and he saw the occupants—all burly men in iron helmets and black armor carrying black fire-sticks—this was serious indeed. He immediately summoned Inspector Fu to the tower.
 
 "Inspector Fu, who are these people?" The archer quietly asked from behind. "Should we go down and question them?"
 

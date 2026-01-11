@@ -26,7 +26,7 @@ But the Qiwei Escort Bureau connection was something the Executive Committee had
 
 Compared to other professions and social classes, escort-bureau personnel were the most traditionally virtuous—valuing trust and righteousness. Once won over, they would be reliable allies.
 
-To win someone over required showing favor. But escort guards weren't ordinary people. Though they "pointed spring" and "made friends" with bandits for their livelihood—that was just to make a living. In reality, they were very careful about friendships. Trying to win goodwill through lavish spending wouldn't work; they might even be labeled a "mark" and looked down upon.
+To win someone over required showing favor. But escort guards weren't ordinary people. Though they "spouted slang" and "made friends" with bandits for their livelihood—that was just to make a living. In reality, they were very careful about friendships. Trying to win goodwill through lavish spending wouldn't work; they might even be labeled a "mark" and looked down upon.
 
 Fortunately, China had always been a society of personal relationships and clan ties. The bonds between relatives, clans, and master-disciple relationships were strongest. Working through these would be easier.
 
@@ -42,7 +42,7 @@ He continued: "Though Sun Chang will be freed from servitude, he's loyal and cap
 
 "When he's out running errands, please look after him as an elder."
 
-"Naturally." Manager Sun readily thumped his chest. "Whatever the shopkeepers entrust is Qiwei's business. We'll do our best."
+"Naturally." Manager Sun readily pounded his chest. "Whatever the shopkeepers entrust is Qiwei's business. We'll do our best."
 
 Good—things were starting to click. Indeed, family matters were handled more wholeheartedly.
 
@@ -88,7 +88,7 @@ This solution was not only clever but greatly satisfied the transmigrators' appe
 
 Yu Eshui immediately lost his appetite. Did these people think the Eastern Depot and Embroidered-Guard were deaf? Such "heretical speech" about the emperor's life and death—they'd immediately be dragged to the imperial prison to sample the eunuchs' tortures. Even if Cao Huachun were willing to listen to such ravings, Prince Xin was currently keeping a very low profile, barely seeing even close attendants—much less some "prophet"! If this resolution passed, whoever wanted to be a prophet could go—he wasn't joining this circus.
 
-Fortunately, hotheads were few, and the wild proposal didn't pass. Yu Eshui then offered some practical details: don't speak too plainly, lest Gao Ju get frightened. Fear could trigger unpredictable reactions. Just say there would be major changes on the eighteenth of the fifth month. And don't claim personal knowledge—say someone had "read the celestial signs" and whatnot. Keep it vague and mysterious.
+Fortunately, hotheads were few, and the wild proposal didn't pass. Yu Eshui then offered some practical details: don't speak too plainly, lest Gao Ju get frightened. Fear could trigger unpredictable reactions. Just say there would be major changes on the eighteenth of the fifth month. And don't claim personal knowledge—say someone had "read the celestial omens" and whatnot. Keep it vague and mysterious.
 
 "One thing to absolutely remember: don't say Wei Zhongxian will be toppled or when the emperor will die. Such earth-shaking words will definitely reach Little Eunuch Yang through Gao Ju. Given their nature, to earn merit or avoid disaster, they'd immediately report and have you arrested!" Yu Eshui emphatically warned them at the end.
 

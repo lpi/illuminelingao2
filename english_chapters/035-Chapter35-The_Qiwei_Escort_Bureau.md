@@ -10,13 +10,13 @@ He had considered finding Sun Chang a place at the escort bureau, but the market
 
 Sun Kecheng was somewhat confused. He recalled that Sun Chang served at the mansion of the great Haopan Street merchant Gao Ju. This Master Gao was a well-connected figure in Guangzhou—why, when robbed, would he seek them out instead of official channels?
 
-As for hostage rescue, escort bureaus weren't particularly interested. Relations between escort services and bandits were based on harmony—"spring-pointing," "making friends"—not all-out, life-or-death battles. To rescue a hostage was like snatching meat from a wolf's jaws. Anyone bold enough to kidnap someone in the provincial capital city was no petty thief—it meant a vicious fight to the death. Win or lose, once their identity was exposed through involvement, they'd have made enemies with the bandits for good.
+As for hostage rescue, escort bureaus weren't particularly interested. Relations between escort services and bandits were based on harmony—using secret argot, "making friends"—not all-out, life-or-death battles. To rescue a hostage was like snatching meat from a wolf's jaws. Anyone bold enough to kidnap someone in the provincial capital city was no petty thief—it meant a vicious fight to the death. Win or lose, once their identity was exposed through involvement, they'd have made enemies with the bandits for good.
 
 But the current situation was difficult. Since the first year of Tianqi, disorder had grown everywhere, escort routes had become increasingly perilous, and income kept dropping. The bureau had a hundred mouths to feed, up and down...
 
 After much deliberation, he finally agreed to take the job. First, this business could relieve half the bureau's financial strain. Second, according to his disciple-nephew, these new masters were Australian sea merchants—this piqued Sun Kecheng's interest. Australian goods had gained sudden fame recently. These merchants were not only wealthy but treated people generously; they had even permitted him to restore his original surname. They were benevolent gentlemen. For reasons of both sentiment and profit, he should help.
 
-Xiao Zishan and Ran Yao viewed the Qiwei Escort Bureau manager that Sun Chang had strongly recommended with some skepticism. They had expected a burly giant, bearded face, the type from martial-arts films. Instead, what arrived was a half-elderly man wearing a plain silk cap and a cross-collared jacket—just like ordinary folk on the street. Though his steps were still steady, he didn't look like a martial-arts hero.
+Xiao Zishan and Ran Yao viewed the Qiwei Escort Bureau manager that Sun Chang had strongly recommended with some skepticism. They had expected a burly giant, bearded face, the type from martial-arts films. Instead, what arrived was a middle-aged man wearing a plain silk cap and a cross-collared jacket—just like ordinary folk on the street. Though his steps were still steady, he didn't look like a martial-arts hero.
 
 But they urgently needed someone to gather information. Gao Di had already volunteered to go out, but no one dared pin all hopes on a few children. They recounted the whole affair, including the investigation results.
 
@@ -34,7 +34,7 @@ After hearing Xiao Zishan's briefing and investigative conclusions, Sun Kecheng 
 
 "*Danjia*?" Xiao Zishan seemed to have heard this term—apparently a type of ancient lowborn caste.
 
-"Exactly. The masters don't know about the *Danjia*?" Sun Kecheng explained that the so-called *Danjia*, also called "egg households," were water-dwelling residents distributed along the coastal bays and inland rivers of Fujian, Guangdong, and Guangxi provinces. "Their descendants take boats as homes and fishing as livelihood. They identify dragons by reading water colors; in ancient times they were called 'dragon households.' Common folk call them '*Danjia*.'"
+"Exactly. The masters don't know about the *Danjia*?" Sun Kecheng explained that the so-called *Danjia*, also called "egg households," were water-dwelling residents distributed along the coastal bays and inland rivers of Fujian, Guangdong, and Guangxi provinces. "Their descendants take boats as homes and fishing as livelihood. They identify hidden currents by reading water colors; in ancient times they were called 'dragon households.' Common folk call them '*Danjia*.'"
 
 "They're fishermen?"
 
@@ -56,11 +56,11 @@ He smiled confidently: "Master Wen should be on one of those flower boats."
 
 "First: avoid reporting to officials. Though Master Gao's influence could dispatch all the constables of the prefecture and two counties with a single card, those men are rogues themselves. A fat sheep at their door won't move them without being stuffed with silver. They might even collude with the criminals.
 
-"Second: don't seize whoever delivers the ransom letter. Such people are either street beggars hired temporarily or common thugs—they won't know the criminals. Grabbing them is useless and will alert the other side.
+"Second: don't seize whoever delivers the ransom letter. Such people are either street beggars hired temporarily or common thugs—they won't know the criminals. Grabbing them is useless and will alert the other side. After dark, the city gates close. We don't know the terrain out here—fighting them on their ground, we might not have the upper hand. Night blindness in the Ming era may not be as common as imagined.
 
 "Finally: don't act rashly. They certainly have lookouts around your residence. But these lookouts are also hired helpers who can't tell you much."
 
-After seeing Manager Sun off, everyone discussed that simply waiting for news wasn't the answer. Fortunately, if the other side wanted ransom, there would have to be letters exchanged—this was a thread leading to the kidnappers. Though tailing people in Ming-era Guangzhou was impossible, modern surveillance technology could certainly work. They immediately installed cameras throughout the compound and set up a monitoring station in the courtyard, powered by banks of batteries—24-hour uninterrupted surveillance of the surroundings. Lin Shenhe walked a circuit and installed several wireless cameras on the front courtyard roof to watch the street. He himself put on a camouflage jacket, took binoculars, night-vision goggles, walkie-talkie, and rifle, and climbed the compound's only large tree. Among the dense branches, he set up a platform and took turns with Beiwei standing watch, ready to respond at any moment.
+After seeing Manager Sun off, everyone discussed that simply waiting for news wasn't the answer. Fortunately, if the other side wanted ransom, there would have to be letters exchanged—this was a thread leading to the kidnappers. Though tailing people in Ming-era Guangzhou was impossible, modern surveillance technology could certainly work. They immediately installed cameras throughout the compound and set up a monitoring station in the courtyard, powered by banks of batteries—24-hour continuous surveillance of the surroundings. Lin Shenhe walked a circuit and installed several wireless cameras on the front courtyard roof to watch the street. He himself put on a camouflage jacket, took binoculars, night-vision goggles, walkie-talkie, and rifle, and climbed the compound's only large tree. Among the dense branches, he set up a platform and took turns with Beiwei standing watch, ready to respond at any moment.
 
 Ran Yao changed into servant's clothes, clipped a DV camera to his waist, and walked up and down Haopan Street several times, guided by Sun Chang.
 

@@ -38,15 +38,15 @@ A crowd had gathered at the latrine entrance. Clearly, this kind of practical pr
 
 Xiao Zishan's expression soured. Two guards with SKS rifles and gleaming bayonets stood at the latrine door—what kind of show was this?
 
-"Commissioner Xiao, look this way!" Ding Ding held a DV camera, perched in the raised bucket of an excavator specially brought over, continuing his ongoing coverage. Clearly, this ribbon-cutting was up his alley. He'd rushed over the moment he heard. In his view, the guards and the vine-ribbon were nice but too plain—lacking liveliness, especially ribbon-presenting beauties. So ten minutes later, Li Xiaolü, returning from surveying, found herself inexplicably squeezed into an ill-fitting qipao alongside Panlin—Ding Ding's foreign girlfriend's full name—serving as ceremony hostesses.
+"Commissioner Xiao, look this way!" Ding Ding held a DV camera, perched in the raised bucket of an excavator specially brought over, continuing his ongoing coverage. Clearly, this ribbon-cutting was up his alley. He'd rushed over the moment he heard. In his view, the guards and the vine-ribbon were nice but too plain—lacking liveliness, especially ribbon-presenting beauties. So ten minutes later, Li Xiaolu, returning from surveying, found herself inexplicably squeezed into an ill-fitting cheongsam alongside Pauline—Ding Ding's foreign girlfriend's full name—serving as ceremony hostesses.
 
-The moment the curvaceous Panlin appeared in a tightly wrapped, high-slit qipao, the crowd's focus shifted. Those needing to relieve themselves rushed off to do so, then hurried back to reclaim their spots. If the Engineering Group hadn't intervened, someone would have climbed onto the latrine roof.
+The moment the curvaceous Pauline appeared in a tightly wrapped, high-slit cheongsam, the crowd's focus shifted. Those needing to relieve themselves rushed off to do so, then hurried back to reclaim their spots. If the Engineering Group hadn't intervened, someone would have climbed onto the latrine roof.
 
-In Ding Ding's plan, Panlin served as both hostess and reporter—per his vision, all this footage would be collected to news-documentary standards as important future historical material.
+In Ding Ding's plan, Pauline served as both hostess and reporter—per his vision, all this footage would be collected to news-documentary standards as important future historical material.
 
-Panlin spoke excellent Chinese, almost without the tonal-flattening common to foreigners. People were willing to cooperate when she held the recorder. Ding Ding himself operated the DV, first shooting several crowd interviews. People expressed that this project greatly facilitated their toilet needs and improved base sanitation. In the interview, Shao Zong from the Logging Group said emotionally: "Before, we had no latrines—we could only squat precariously on swaying decks. Dangerous and polluting. Now the Committee thinks what the masses think, worries what they worry, promptly building this project that warms the people's hearts. We broad crossing masses see it in our eyes, feel it in our hearts. On behalf of all masses, I thank the Committee and the Engineering Group comrades!"
+Pauline spoke excellent Chinese, almost without the tonal-flattening common to foreigners. People were willing to cooperate when she held the recorder. Ding Ding himself operated the DV, first shooting several crowd interviews. People expressed that this project greatly facilitated their toilet needs and improved base sanitation. In the interview, Shao Zong from the Logging Group said emotionally: "Before, we had no latrines—we could only squat precariously on swaying decks. Dangerous and polluting. Now the Committee thinks what the masses think, worries what they worry, promptly building this project that warms the people's hearts. We broad crossing masses see it in our eyes, feel it in our hearts. On behalf of all masses, I thank the Committee and the Engineering Group comrades!"
 
-Next, the recorder turned to Ye Mengyan at the entrance, asking his thoughts. Xiao Ye stared at the snowy cleavage in the qipao's open collar, head spinning, babbling incoherently. Ding Ding figured he'd have to dub this segment later. Besides his girlfriend, he couldn't get anyone else assigned—no one to hold cue cards. At this rate, interview quality wouldn't improve. He'd have to talk to the Committee.
+Next, the recorder turned to Ye Mengyan at the entrance, asking his thoughts. Xiao Ye stared at the snowy cleavage in the cheongsam's open collar, head spinning, babbling incoherently. Ding Ding figured he'd have to dub this segment later. Besides his girlfriend, he couldn't get anyone else assigned—no one to hold cue cards. At this rate, interview quality wouldn't improve. He'd have to talk to the Committee.
 
 Finally, the ribbon-cutting concluded harmoniously—though there was some trouble actually cutting the vine. The thing was remarkably tough; Xiao Zishan struggled quite a while to get through it.
 
@@ -64,7 +64,7 @@ Other Health Group personnel were inventorying the daily supplies they'd receive
 
 While inventorying, the clinic received: 4 heatstroke cases, 5 diarrhea cases, 2 upper respiratory infections. One was a lazy fellow who'd slept in a lifeboat overnight without a sleeping bag—now running a fever. Hema squatted nearby taking his temperature.
 
-"39.4°C—that's fierce." Hema checked the thermometer. "Take him to the ship's infirmary."
+"39.4°C—that's fierce." He Ma checked the thermometer. "Take him to the ship's infirmary."
 
 "Upper respiratory?" Zhang Ziyi was filling out medical charts. She was the wife of Dr. Yang Baogui. Though Dr. Yang also belonged to the Health Department, he didn't work here—he was a veterinarian, currently busy tending the animals in the deck livestock containers, including the five dogs he'd brought himself.
 

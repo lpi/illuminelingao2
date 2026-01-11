@@ -12,7 +12,7 @@ Those who'd done well naturally bragged to the heavens, wanting everyone to know
 
 For someone like him, stuck in the middle, the mood was actually the most depressing...
 
-Those doing well looked down on them, mocking them for coasting along on easy rice without ambition. Those doing poorly assumed they just drank tea all day...
+Those doing well looked down on them, mocking them for coasting along on an iron rice bowl without ambition. Those doing poorly assumed they just drank tea all day...
 
 On his desk sat some materials—the latest reports on social trends. Guo Yi worked in a department dedicated to maintaining social stability, unity, harmony, and tranquility.
 
@@ -50,9 +50,9 @@ Guo Yi emerged from the exit. The September weather was still somewhat stifling,
 
 "Crossing Trade"
 
-Wasn't this the company Wen Desi had started? In that instant, Xiao Zishan's gaze briefly met his. That flash of a moment might be called "a fated encounter"—but neither experienced a sudden shiver or radiated an irresistible king's charisma to make the other submit. Guo Yi was interested in the company; Xiao Zishan sensed this person was no ordinary visitor.
+Wasn't this the company Wen Desi had started? In that instant, Xiao Zishan's gaze briefly met his. That flash of a moment might be called "a fated encounter"—but neither experienced a sudden shiver or radiated an irresistible kingly aura to make the other submit. Guo Yi was interested in the company; Xiao Zishan sensed this person was no ordinary visitor.
 
-Years in sales hadn't developed Xiao Zishan in many areas, but he'd learned to read people. This person had sharp, alert eyes; his movements displayed calm confidence; his clothes were low-key yet neat; he carried little luggage. This was someone who ate the government's rice—nine chances out of ten, from some authority department. And this person was watching him—not interested in him as a dark-skinned fat man, but in the box he was holding.
+Years in sales hadn't developed Xiao Zishan in many areas, but he'd learned to read people. This person had sharp, alert eyes; his movements displayed calm confidence; his clothes were low-key yet neat; he carried little luggage. This was someone who ate the government's rice—nine times out of ten, from some authority department. And this person was watching him—not interested in him as a dark-skinned fat man, but in the box he was holding.
 
 Before his next thought could form, a tall, plump young man laden with bags approached:
 

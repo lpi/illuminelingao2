@@ -16,9 +16,9 @@ Wu Kuangming said: "Experts use finesse; amateurs just use muscle. Learn as you 
 
 "No thanks—I'd like my arms and legs to stay attached. Can't handle that thing."
 
-"With my build, trying to be a Texas Chainsaw killer would probably mean taking off my own body parts first." Shao Zong pulled the saw with a pained expression. "I thought joining Communications would be easy—personally build China Telecom. Instead, I'm prepping telephone poles."
+"With my build, trying to be a Leatherface would probably mean taking off my own body parts first." Shao Zong pulled the saw with a pained expression. "I thought joining Communications would be easy—personally build China Telecom. Instead, I'm prepping telephone poles."
 
-Wu Kuangming was about to say something encouraging when someone screamed: "Mom! Snake!" Before anyone could react, three or four people came scrambling and tumbling out of the woods in terror, axes and saws scattered on the ground.
+Wu Kuangming was about to say something encouraging when someone screamed: "Yikes! Snake!" Before anyone could react, three or four people came scrambling and tumbling out of the woods in terror, axes and saws scattered on the ground.
 
 He hurried to intercept them. Still shaken, they could barely speak coherently. Wu Kuangming thoroughly despised these city homebodies—for loggers, encountering snakes was normal. He'd heard from a friend who'd been a forestry worker: sleeping at night in the forest, you had to shake out your bedding. When autumn turned cold, snakes crept into workers' shacks for warmth; you had to smoke them out before sleeping.
 

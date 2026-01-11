@@ -2,7 +2,7 @@
 
 "Sleep is the state closest to death"—Director Wen woke from his dream with this phrase inexplicably springing to mind. He opened his eyes. A pale-red canopy with watergrass patterns swayed and rippled above him; a faint fragrance wafted to his nostrils. He closed his eyes to enjoy it—then suddenly snapped them open again. *Where am I?!*
 
-If Director Wen hadn't already experienced the wormhole, he would have been ninety percent certain he'd transmigrated as a soul. His brain cleared slightly: wasn't he staying in the mansion Gao Ju had given them? That bed had a canopy, but just an ordinary blue cotton curtain. Nothing this feminine. Where exactly was this?
+If Director Wen hadn't already experienced the wormhole, he would have been ninety percent certain he'd soul-transmigrated. His brain cleared slightly: wasn't he staying in the mansion Gao Ju had given them? That bed had a canopy, but just an ordinary blue cotton curtain. Nothing this feminine. Where exactly was this?
 
 He hurried to sit up, but his head felt heavy and his limbs ached and felt weak—no strength at all. He looked around: a tiny room, no windows on any side. Besides the large bed beneath him, there was only a small table and a chair. On the table sat a vase and potted plants; two landscape paintings hung on the wall.
 
@@ -44,7 +44,7 @@ Wen Desi's mind raced through many thoughts. Since this group had kidnapped him,
 
 As the words fell, a young woman stepped out from behind the door. She wore a lotus-root-colored, close-fitting cross-collared jacket and a pale blue pleated long skirt. Tall and slender, arched brows, red lips, skin luminous as jade. Her large, bright eyes swept about as she spoke, naturally coquettish. But looking more closely, there was a subtle hint of menace in her gaze.
 
-Boss Wang seemed quite wary of this girl; he hurriedly stood and offered his seat with a fawning smile. The girl didn't stand on ceremony; she sat down gracefully. A pair of lovely eyes, as if able to peer into one's soul, roamed over Director Wen. Wen Desi's heart pounded; he wondered: *What's this girl's game? Where in seventeenth-century Ming did such a person come from?*
+Boss Wang seemed quite wary of this girl; he hurriedly stood and offered his seat with a fawning smile. The girl didn't stand on ceremony; she sat down gracefully. A pair of lovely eyes, as if able to peer into one's soul, roamed over Director Wen. Wen Desi's heart pounded; he wondered: *What's this girl's game? Where in the seventeenth-century Ming did such a person come from?*
 
 "And you are?" Wen Desi, unsettled by her words, knew that speaking up to defend himself would easily reveal flaws. Better to stall.
 
@@ -94,7 +94,7 @@ Then this graceful young beauty actually picked up Xiao Zishan's nylon socks—c
 
 "And this thread? Raw silk can't produce such elasticity."
 
-Wen Desi thought this was hard to explain. Knitting machines he could at least describe sensibly. Tell her this thread was refined from petroleum? Then his *lower half* would probably immediately cease to exist in male form.
+Wen Desi thought this was hard to explain. Knitting machines he could at least describe sensibly. Tell her this thread was refined from petroleum? Then his *nether regions* would probably immediately cease to exist in male form.
 
 "This material is called nylon. It's not silkworm silk. How it's produced is a secret in our country—we merchants have no idea."
 
