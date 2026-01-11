@@ -12,11 +12,11 @@ These former Great Ming commoners—for silver and rations—had unhesitatingly 
 
 Couldn't be helped. Logistics was overwhelmed—uniform patterns unfinished, equipment nowhere near ready. The Ordnance Department made many rifles—calibration was slow. Paper-wrapped cartridges also needed labor. At least one month before a fully 19th-century-equipped New Army. Properly, Xi Yazhou as future Training Battalion Commander should personally supervise. But he was sick again—probably resting at the Farm. Unlike the Navy's *Fengcheng* Hotel, the Army chose Nanhai Farm for recuperation—good environment, ample food, plus non-cafeteria delicacies to sample. Most Military Group personnel were either on duty or inspecting worker defense construction. Finally Ma Qianzhu—as Acting Chief of Staff—convened Training Battalion exercises.
 
-This was somewhat related to recent army-formation conference disagreements. On New Army organization and personnel, the Executive Committee and Military Group had their first major divergence. The Executive Committee wanted civilians as Chief of Staff—strengthening Executive control over the military. If native soldiers couldn't be trusted—transmigrator soldiers also weren't eternally trustworthy. The Military Group wanted He Ming or Xi Yazhou—one senior, one core figure. Both naturally declined—mediating between the Executive and young turks wasn't easy.
+This was somewhat related to recent army formation conference disagreements. On New Army organization and personnel, the Executive Committee and Military Group had their first major divergence. The Executive Committee wanted civilians as Chief of Staff—strengthening Executive control over the military. If native soldiers couldn't be trusted—transmigrator soldiers also weren't eternally trustworthy. The Military Group wanted He Ming or Xi Yazhou—one senior, one core figure. Both naturally declined—mediating between the Executive and young turks wasn't easy.
 
 The young turks lacked heavyweight support—lost the Chief of Staff competition. Final decision: Planning Committee Chairman Ma Qianzhu as Acting Chief of Staff. The New Army's establishment created countless needs requiring inter-department coordination—a Planning Committee person was convenient. Both sides found this acceptable.
 
-Ma Qianzhu knew little about 19th-century armies—didn't know how line infantry parties trained troops. But he knew: any era's elite forces shared unchanging characteristics—disciplined soldiers were enemy nightmares. Before small-arms training, physical fitness, drill, and discipline training would continue for one month. For these formerly drifting Ming commoners, his only authority was the "Chief" title. Ma Qianzhu's entire military experience: three months of university military training.
+Ma Qianzhu knew little about 19th-century armies—didn't know how line infantry parties trained troops. But he knew: any era's elite forces shared unchanging characteristics—disciplined soldiers were enemy nightmares. Before small arms training, physical fitness, drill, and discipline training would continue for one month. For these formerly drifting Ming commoners, his only authority was the "Chief" title. Ma Qianzhu's entire military experience: three months of university military training.
 
 Fortunately, the Military Group left him several veterans as instructors—plus some Salt Village militiamen. Their drill training was personally supervised by Bei Wei—currently the highest standard.
 
@@ -66,7 +66,7 @@ Ma Qianzhu's tractor training method spread within hours. Someone unceremoniousl
 
 Gossip or not—already committed, Ma Qianzhu had to persist. At least specific drill, shooting, military terminology, grenade throwing were handled by veterans. Otherwise, single-handed with the *Militia Training Manual*—things would've been difficult.
 
-Military training's first days matched Ma Qianzhu's university experience: squad-level drill. Though the Military Group's doctrine was 19th-century column/line battalion-level tactics—how 19th-century Europeans trained was unknown. Basic drill followed PLA regulations.
+Military training's first days matched Ma Qianzhu's university experience: squad-level drill. Though the Military Group's doctrine was 19th-century column and line battalion-level tactics—how 19th-century Europeans trained was unknown. Basic drill followed PLA regulations.
 
 With Salt Village drill experience plus militia demonstrations, training was easier than expected. Ma Qianzhu insisted: all commands in Mandarin—no translators.
 
