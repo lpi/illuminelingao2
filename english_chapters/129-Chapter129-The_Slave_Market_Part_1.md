@@ -1,16 +1,16 @@
 # Chapter 129: The Slave Market (Part 1)
 
-Among them, besides Xiao Zishan, none had engaged in time-travel commerce. Seeing this so-called "Crystal-Dawn-Jade mirror"—obviously just a plastic-framed Wenzhou egg mirror sold by the heap in wholesale markets, best quality maybe ten yuan apiece—here selling for 150 *liang*!
+Among them, besides Xiao Zishan, none had engaged in time-travel commerce. Seeing this so-called "Crystal Dawn Jade mirror"—obviously just a plastic-framed Wenzhou egg mirror sold by the heap in wholesale markets, best quality maybe ten yuan apiece—here selling for 150 *liang*!
 
 Guo Yi and others, seeing so much silver spent on a glass mirror for the first time, were shocked speechless—shaking their heads—momentarily unable to process. Xiao Zishan said quietly: "How about it? More confident now? Guangzhou isn't like other regions—it's this timespace's wealthiest city in all East Asia."
 
 Yan Maoda nodded, sighing endlessly: "Never imagined Guangzhou would be so prosperous in this era. I'm confident about opening a jewelry company here now."
 
-A clerk came over soliciting. Yan Maoda, wanting to gauge the market, asked to see pearls—transmigrators had brought large quantities of freshwater cultured pearls from the other timespace. The clerk retrieved several trays from the cabinet. Largest were nearly inch-diameter; smallest, pomegranate-seed-sized. Most quite round; some elongated-oval. Even in limited indoor light, the pearl luster was impressive.
+A clerk came over soliciting. Yan Maoda, wanting to gauge the market, asked to see pearls—transmigrators had brought large quantities of freshwater cultured pearls from the other timespace. The clerk retrieved several trays from the cabinet. Largest were nearly inch-diameter; smallest, pomegranate-seed sized. Most quite round; some elongated oval. Even in limited indoor light, the pearl luster was impressive.
 
 Small ones: 10–20 *liang* each. The largest: asking price 4,000 *liang*. Yan Maoda, having studied pearl history in the jewelry trade, knew historical dynasties highly valued pearls. These were natural pearls—very precious. But one large pearl selling for 4,000 *liang*—he was still astonished.
 
-Most remarkable was a tray of slightly elongated purple pearls. Yan Maoda examined them closely. The clerk said these were Western-origin—rare color—this size cost 200 *liang* each.
+Most remarkable was a tray of slightly elongated purple pearls. Yan Maoda examined them closely. The clerk said these were Western origin—rare color—this size cost 200 *liang* each.
 
 Exiting, they walked into a nearby alley—fewer people. Yan Maoda said: "Just selling our 100 kg of freshwater pearls would yield enormous profits."
 
@@ -28,11 +28,11 @@ Chatting and laughing, sightseeing along the way. Lu Rong was interested in stre
 
 Xiao Zishan hesitated. Before leaving for Guangzhou, the Committee had privately discussed purchasing people. Lingao's local labor was limited—they needed some external migration. But the current issue wasn't labor—rather, many transmigrators' gradually emerging "physiological needs."
 
-These physiological needs—eating and romance—were human nature. For a long time after D-Day, everyone worked exhausting hours, nervously guarding against possible attacks—physically and mentally drained. Naturally, no one raised this issue. Recently, situations had stabilized. Leisure time increased; entertainment was lacking. 500-plus people—mostly young men in their prime—inevitably had romantic thoughts. Problem: only a dozen had wives or girlfriends. Most relied on watching adult videos for relief—which added fuel rather than relief. So despite overall positive developments, some disharmonious incidents occurred: voyeurism during women's bathing; secret upskirt photos; repeatedly. Most seriously: someone attempted nighttime rape of Salina—though they'd badly underestimated this big ATF agent's capabilities. Salina was only slightly shaken—unharmed—but the three would-be attackers sent one to the hospital.
+These physiological needs—eating and romance—were human nature. For a long time after D-Day, everyone worked exhausting hours, nervously guarding against possible attacks—physically and mentally drained. Naturally, no one raised this issue. Recently, situations had stabilized. Leisure time increased; entertainment was lacking. Five hundred-plus people—mostly young men in their prime—inevitably had romantic thoughts. Problem: only a dozen had wives or girlfriends. Most relied on watching adult videos for relief—which added fuel rather than relief. So despite overall positive developments, some disharmonious incidents occurred: voyeurism during women's bathing; secret upskirt photos; repeatedly. Most seriously: someone attempted nighttime rape of Salina—though they'd badly underestimated this big ATF agent's capabilities. Salina was only slightly shaken—unharmed—but the three would-be attackers sent one to the hospital.
 
 Ran Yao quickly identified the perpetrators. For stability's sake, the matter was suppressed. The three offenders were dispatched far away to Bopu Camp—avoiding Salina encounters causing conflicts.
 
-Incident resolved—but the Committee saw dangerous signs. Camp had multiple women but very few single ones. In other words, the transmigrator group couldn't internally solve male-female interaction needs. If future rape incidents occurred, or adultery problems arose, the Committee would face not just a crying woman but also a raging cuckolded husband. How to handle? What consequences? Unimaginable.
+The incident was resolved—but the Committee saw dangerous signs. Camp had multiple women but very few single ones. In other words, the transmigrator group couldn't internally solve male-female interaction needs. If future rape incidents occurred, or adultery problems arose, the Committee would face not just a crying woman but also a raging cuckolded husband. How to handle? What consequences? Unimaginable.
 
 If perpetrators had slightly more awareness—like those three at least knowing comrades' wives were off-limits—and shifted to raping village women instead? Rape was what commoners hated most. From Red Army through PLA eras, rapists were executed. Would they also execute rapists? That seemed to violate the Committee's principle of "all people are equal; some more equal than others."
 
@@ -50,7 +50,7 @@ But this proposal also faced opposition. Xiao Zishan opposed too—simple logic:
 
 After multiple nights of discussion, debate, and hearings, the "female servant" plan was finally approved. Thus, Xiao Zishan's Guangzhou trip gained another task: buying women.
 
-Sounded titillating—but wasn't easy. Human trafficking required professional slave dealers. But their merchandise was expensive. He'd asked Gao Ju: an ordinary-looking twelve-or-thirteen-year-old girl cost seven-to-eight *liang* minimum. Pretty and clever—at least twenty *liang*. Higher quality—like Yangzhou's "cultivated thin-horses"—no limit; 70–80 *liang* minimum, sometimes hundreds.
+It sounded titillating—but wasn't easy. Human trafficking required professional slave dealers. But their merchandise was expensive. He'd asked Gao Ju: an ordinary-looking twelve or thirteen-year-old girl cost seven to eight *liang* minimum. Pretty and clever—at least twenty *liang*. Higher quality—like Yangzhou's "cultivated thin-horses"—no limit; 70–80 *liang* minimum, sometimes hundreds.
 
 Moreover, slave dealers controlled "supply." Famine refugees or destitute girls selling themselves—nine out of ten fell into their hands. Outsiders couldn't easily intervene—unless massive famine drove refugee floods.
 
