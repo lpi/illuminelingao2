@@ -40,7 +40,7 @@ Every few days, instructors led field marches—constantly training against hypo
 
 Worst: forced marches. Everyone carrying dozens of kilograms—small trotting 15km on mountain paths or paddy dikes—arriving within time limits, immediately fortifying, then splitting into opposing teams. Combat drills included shooting—using wood guns. These weren't weighted sticks anymore—iron-weighted training rifles. Everything except shooting: barrels, touch holes, bayonet mounts—complete. Simulated shooting required full muzzle-loader procedures: bite cartridge, load, cap—nothing skipped. Instructors criticized non-standard movements. After shooting—bayonet and hand-to-hand combat. Combat continued until one side expelled the other. Losers handled bivouac construction and cooking. Sometimes training became real fighting—bloody noses, cracked skulls, broken bones common.
 
-Then field-medic trainee nurses proved useful—casualties became their practice specimens. Those "Technical School" girls all became Medical Group nursing students. Shi Niaoren planned training some as qualified doctors—secretly teaching several clever girls a strange language: Latin.
+Then field medic trainee nurses proved useful—casualties became their practice specimens. Those "Technical School" girls all became Medical Group nursing students. Shi Niaoren planned training some as qualified doctors—secretly teaching several clever girls a strange language: Latin.
 
 These trainee nurses had little equipment or medication. Their regulation Red Cross med kits—though 400-year-future latest models—were basically empty. Besides alcohol, cotton, splints, suture needles, and simple Chinese medicines—nothing useful. All modern drugs were personally controlled by Medical Group doctors. Fortunately, survivors to teenage years were Darwinian victors. Decent constitution. Simple treatment plus rest recovered.
 
@@ -48,9 +48,9 @@ One exercise—Tian Liang spotted Guo Fu. She wore the same clothing—but hair 
 
 That exercise—Tian Liang fought especially hard, hoping for a minor wound to see Guo Fu and chat. But his exceptional valor sent opponents to the infirmary—himself unharmed. Could only frustratedly watch Guo Fu from a distance.
 
-Once adapted to training, instructors added night-assembly tricks. Deep sleep suddenly interrupted—emergency assembly—ten minutes without full equipment meant ten-lap penalty. That was manageable. Worst: night marches. Everyone with white cloth strip on back—single-file night marching.
+Once adapted to training, instructors added night assembly tricks. Deep sleep suddenly interrupted—emergency assembly—ten minutes without full equipment meant ten-lap penalty. That was manageable. Worst: night marches. Everyone with white cloth strip on back—single-file night marching.
 
-Ancient armies rarely night-fought. First: ancient communications couldn't control night-marching directions—let alone combat. Second: without proper maps, even daytime navigation was problematic without guides—nighttime impossible.
+Ancient armies rarely night-fought. First: ancient communications couldn't control night marching directions—let alone combat. Second: without proper maps, even daytime navigation was problematic without guides—nighttime impossible.
 
 Precisely because ancient armies avoided night combat, transmigrators trained for it. For the numerically inferior but training-superior New Army, night fighting effectively negated enemy numbers.
 

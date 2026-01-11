@@ -26,7 +26,7 @@ Everyone's eyes widened. Wang Tao saw timing was right, immediately teeth-grindi
 
 ...
 
-Wei Aiwen saw timing was ready: "United together—we can hold heads high. Better life too—no foraging weeds, daily white rice, fish and meat, good clothes and shoes. Everywhere building multi-stories, installing air conditioning, warm winter, cool summer. Electric lights—roomfuls bright—ten thousand times better than kerosene. Children go to school, study, compulsory education. Our nation prospers—manned spaceship succeeded, hosting Olympics! Anyway, all this will happen." Wei Aiwen secretly groaned—just got excited, mouth ran unchecked. Said things he shouldn't have. Fortunately, nobody reacted to "air conditioning" or "Olympics." Foraging-free life was most appealing.
+Wei Aiwen saw timing was ready: "United together—we can hold heads high. Better life too—no foraging weeds, daily white rice, fish and meat, good clothes and shoes. Everywhere building multi-stories, installing air conditioning, warm winter, cool summer. Electric lights—roomfuls bright—ten thousand times better than kerosene. Children go to school, study, compulsory education. Our nation prospers—manned spaceship succeeded, hosting Olympics! Anyway, all this will happen." Wei Aiwen secretly groaned—just got excited, mouth ran unchecked. Said things he shouldn't have. Fortunately, nobody reacted to "air conditioning" or "Olympics." A foraging-free life was most appealing.
 
 The meeting ended. Ma Qianzhu grabbed Wei Aiwen, thumbs up: "Hey, Little Wei! You're amazing! Meeting was brilliantly successful. Everyone recalling past—teeth-grinding hatred. Your approach—at minimum they're now ours."
 
