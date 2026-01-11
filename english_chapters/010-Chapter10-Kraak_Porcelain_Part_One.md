@@ -1,94 +1,94 @@
 # Chapter 10: Kraak Porcelain (Part One)
 
-That evening, the three men who had completed their first timespace journey held their inaugural work-summary meeting. Following formal meeting procedures, they produced minutes. As Wen Desi put it: "We are making history."
+That evening, the three men who had completed their first crossing held their inaugural debriefing. Following formal procedures, they produced minutes. As Wen Desi put it: "We are making history."
 
-At the meeting, they summarized and analyzed the various issues from the crossing. Their conclusion: they had underestimated the wisdom of the ancients, had not done enough homework, knew too little about the Ming dynasty, and had relied too heavily on assumptions.
+Their conclusion: they had underestimated the ancients' wisdom, done insufficient homework, knew too little about the Ming dynasty, and relied too heavily on assumptions.
 
-Overall, their luck had been good—they had found a reasonably suitable agent with relative ease.
+Still, their luck had held—they'd found a suitable agent with relative ease.
 
-As for the next phase of trade, despite prices being lower than expected, when carefully calculated, the profits were not as low as imagined.
+As for trade, despite lower-than-expected prices, the profits were better than feared once properly calculated.
 
-One *tael* of Ming-dynasty silver equaled approximately 37.3 grams. Though the purchase price of silver in their own timespace fluctuated, it was roughly three yuan per gram (retail price 3.6–3.8 yuan; purchase price around 2–2.6 yuan, taking the higher estimate). One tael of silver thus yielded roughly 112 yuan. Factoring in "fire-loss" costs—since much of the silver in Ming circulation was impure and needed to be re-smelted—the returns would be somewhat lower.
+One *tael* of Ming silver equaled roughly 37.3 grams. Silver prices in their own time fluctuated, but roughly three yuan per gram (retail 3.6–3.8; purchase 2–2.6, taking the higher estimate) meant one tael yielded about 112 yuan. Factoring in fire-loss costs—Ming silver was often impure and needed re-smelting—returns would be somewhat lower.
 
-If they could sell a powder compact for ten taels, that meant roughly 1,000 yuan per piece. Xiao Zishan had brought over two hundred compacts; this single item alone could generate two thousand taels of silver—two hundred thousand yuan. Even if they had to purchase these compacts, the current wholesale price was only a few yuan each—the cost was practically negligible.
+Selling a powder compact for ten taels meant roughly 1,000 yuan per piece. Xiao Zishan had brought over two hundred; this item alone could net two thousand taels—two hundred thousand yuan. Wholesale cost was only a few yuan each. Negligible.
 
-"Actually, we could flip this once more," said Xiao Zishan, scribbling with his pen. "As I recall, the gold-to-silver ratio in the late Ming was around one to ten. If we ask to have these two thousand taels converted to gold, we'd get two hundred taels—a total of 7,460 grams. At 150 yuan per gram, that's over a million yuan. Even more profitable than selling goods."
+"We could flip this again," said Xiao Zishan, scribbling calculations. "The gold-to-silver ratio in the late Ming was around one to ten. Convert two thousand taels to gold, we'd get two hundred taels—7,460 grams. At 150 yuan per gram, that's over a million. More profitable than selling goods."
 
-"But generally speaking, the supply of gold in circulation is limited," Wang Luobin remarked with some regret. "You can't exchange for very much."
+"Gold circulation is limited, though," Wang Luobin said with regret. "You can't exchange for very much."
 
-"Actually, we could ask for something else in payment—worth even more than gold," said Wen Desi.
+"There's something worth even more than gold," said Wen Desi.
 
-"What's that?"
+"What?"
 
-"Porcelain." Wen Desi pointed at a Christie's auction notice in the newspaper. "Ming-dynasty porcelain—do I need to explain?..."
+"Porcelain." He pointed at a Christie's auction notice in the newspaper. "Ming-dynasty porcelain—do I need to explain?"
 
 ---
 
-When a pale-faced servant came running to the study, Master Gao knew the three Australians had arrived again. It was late at night, just like before—they had materialized out of thin air in the warehouse courtyard.
+When a pale-faced servant came running, Master Gao knew the three Australians had arrived again. Late at night, as before—materialized out of nowhere in the warehouse courtyard.
 
-If not for the fact that they had come in broad daylight the previous time and left in broad daylight as well, Master Gao would truly have suspected they were ghosts or demons.
+Had they not come in broad daylight the previous time and left the same way, he'd truly have suspected ghosts or demons.
 
-"Master Gao, here are the goods."
+"Master Gao, the goods."
 
-Under the veranda of the study, the servants had piled four or five cardboard boxes retrieved from the warehouse courtyard. Using paper to make cargo boxes—this was a first for him. His heart pounded. A few days earlier, he had secretly doused the sample merchandise with chicken blood; checking the next day, those items were still perfectly fine, unchanged into dirt clods or wooden dolls. Only then had he felt reassured.
+Under the study veranda, servants had piled four or five cardboard boxes from the courtyard. Paper cargo boxes—a first for him. His heart pounded. Days earlier, he'd secretly doused the sample merchandise with chicken blood; the next day, items remained perfectly fine—not transformed into dirt clods or wooden dolls. Only then had he relaxed.
 
-"Steward Yan, take inventory and make a record," Master Gao instructed.
+"Steward Yan, inventory these," Master Gao instructed.
 
 "Yes, Master."
 
-The steward led the servants in opening the cardboard boxes. Each item was wrapped in that exquisite paper packaging, neatly arranged. Master Gao nodded—these Australian merchants were truly extravagant. The packaging alone must have cost a fortune.
+The steward led the servants in opening boxes. Each item lay wrapped in exquisite paper, neatly arranged. Master Gao nodded. These Australian merchants were extravagant indeed—the packaging alone must have cost a fortune.
 
-The three sat in chairs, watching the Gao household servants take inventory. In the dim candlelight, Master Gao's Nanjing silk robe shimmered faintly. Xiao Zishan inexplicably thought of burial garments and broke out in goosebumps.
+The three sat watching the inventory. In dim candlelight, Master Gao's Nanjing silk robe shimmered. Xiao Zishan thought inexplicably of burial garments and felt goosebumps rise.
 
-Fortunately, they had prepared a special gift. Once the inventory was complete and both sides verified the figures, Wen Desi opened a box and produced a kerosene lamp. This item had taken considerable effort to locate at a handicraft shop—120 yuan, the most expensive of all their goods. Wen Desi took a can of kerosene from the box, poured it in, and lit the wick with a nearby candle. Before long, the flame grew bright, and the previously dim study was suddenly flooded with light.
+Fortunately, they had prepared a gift. Once inventory was complete and figures verified, Wen Desi opened a box and produced a kerosene lamp—located with difficulty at a handicraft shop, 120 yuan, their most expensive item. He poured in kerosene, lit the wick from a nearby candle. The flame grew bright; the dim study flooded with light.
 
-Master Gao and his servants and steward alike stood slack-jawed. Of all the things the Australian merchants had brought, nothing had impressed them as deeply as this.
+Master Gao and his servants stood slack-jawed. Of everything the Australian merchants had brought, nothing impressed them as deeply as this.
 
-"This is called a kerosene lamp. Consider it a token."
+"This is called a kerosene lamp. A token of our appreciation."
 
-"What a marvel!" Master Gao stepped closer—a ball of white flame, dazzlingly bright, encased in a fully transparent glass chimney. He turned his head and asked, "Is this made in your country? What is its value?"
+"What a marvel!" Master Gao stepped closer—a ball of white flame, dazzlingly bright, encased in transparent glass. "Is this made in your country? What is its value?"
 
-Xiao Zishan could not help but reflect on humanity's primal yearning for light. What they had assumed would astonish the ancients had barely caused a ripple; yet this kerosene lamp, already obsolete in modern society, had astounded them—simply because it was so much brighter than candles or oil lamps. What if Master Gao could see an electric light?! Xiao Zishan suddenly felt great confidence in their future crossing plans.
+Xiao Zishan reflected on humanity's primal yearning for light. What they'd assumed would astonish the ancients had barely caused a ripple; yet this obsolete kerosene lamp astounded them—simply because it was so much brighter than candles or oil lamps. What if Master Gao could see an electric light? Xiao Zishan felt sudden confidence in their crossing plans.
 
-"It is indeed made in our country," Wen Desi smiled with the air of a cunning merchant. "Two hundred taels will suffice."
+"Made in our country," Wen Desi smiled with a merchant's cunning. "Two hundred taels will suffice."
 
-"A marvel, a marvel!" Master Gao circled the lamp, mesmerized. He imitated Wen Desi, turning the knob that adjusted the flame's brightness, watching the light dim and brighten at will. Inwardly he marveled. He knew this object, though oddly shaped and fitted with an expensive glass chimney, was essentially the same sort of lamp used by humble households. Yet its brightness was ten times greater, with no smell and no smoke, and the light could be adjusted at will. Were the craftsmen of Australia all reincarnations of Lu Ban?
+"A marvel!" Master Gao circled the lamp, mesmerized, turning the knob to dim and brighten the flame at will. He knew this object, oddly shaped and fitted with expensive glass, was essentially a common lamp. Yet ten times brighter, no smell, no smoke, adjustable. Were Australian craftsmen all reincarnations of Lu Ban?
 
-A thought struck him. "This oil the lamp uses—this 'kerosene'—is it also produced in Australia?"
+A thought struck him. "This oil—this 'kerosene'—does Australia produce it?"
 
-Xiao Zishan nodded. This Master Gao was clever indeed—he grasped the crux at once.
+Xiao Zishan nodded. Master Gao was sharp—he'd grasped the crux at once.
 
-"It is."
+"It does."
 
-"The price of the oil?"
+"The price?"
 
-"Ten taels per bottle." A bottle was actually just one liter. They had no intention of launching a kerosene trade at this point, so charging a premium now would leave room for the future. (Retail price: 8.5 yuan per liter for lamp kerosene in Shanghai.)
+"Ten taels per bottle." A bottle was just one liter. They had no intention of launching a kerosene trade yet; a premium now left room for the future. (Retail: 8.5 yuan per liter for lamp kerosene in Shanghai.)
 
 "The lamp is fine, but the oil..." Master Gao's face showed regret.
 
-"One bottle can burn for over a dozen hours. A month's supply would be no more than ten or twenty taels—not terribly expensive."
+"One bottle burns over a dozen hours. A month's supply—ten or twenty taels. Not excessive."
 
-"If the oil could be cheaper, I could sell this in great numbers..." Master Gao was reluctant to let it go.
+"If the oil were cheaper, I could sell this widely..." Master Gao was reluctant to let it go.
 
-Xiao Zishan only laughed evasively, declining to take the bait. Master Gao understood the Australian merchants would not budge. Still, receiving the lamp as a gift along with twelve bottles of kerosene was already a considerable windfall. Perhaps vegetable oil could be used instead—he would try it tomorrow.
+Xiao Zishan laughed evasively. Master Gao understood they wouldn't budge. Still, receiving the lamp as a gift with twelve bottles of kerosene was a windfall. Perhaps vegetable oil could substitute—he would try tomorrow.
 
-Xiao Zishan then demonstrated the process of disassembly, maintenance, and refilling. Gao Ju had a young servant watch and learn, then practice several times until there were no mistakes. Then they proceeded to tally and price the goods.
+Xiao Zishan demonstrated disassembly, maintenance, and refilling. Gao Ju had a young servant watch, learn, and practice until he made no mistakes. Then they tallied the goods.
 
-At the prices they had agreed upon, the total came to over three thousand taels. Xiao Zishan requested that fifteen hundred taels be paid in gold. Master Gao shook his head repeatedly—at night there was nowhere to exchange for gold, and he himself had only fifty or sixty taels of gold on hand. In the end, they settled for sixty taels of gold in place of six hundred taels of silver.
+At agreed prices, the total came to over three thousand taels. Xiao Zishan requested fifteen hundred in gold. Master Gao shook his head—at night, nowhere to exchange, and he had only fifty or sixty taels on hand. They settled for sixty taels of gold in place of six hundred silver.
 
-Xiao Zishan then proposed purchasing porcelain. This did not surprise Master Gao—overseas merchants all liked to buy porcelain. It was no trouble; his warehouse was piled high with the stuff. He ordered several hampers of export porcelain brought out.
+Xiao Zishan then proposed purchasing porcelain. This surprised no one—overseas merchants always wanted porcelain. His warehouse was piled with the stuff. He ordered several hampers of export ware brought out.
 
-Cutting the straw binding and examining several pieces, Xiao Zishan, drawing on the few books on ceramics he had hastily read, recognized these as so-called "Kraak porcelain"—a representative late-Ming export ware.
+Cutting the straw bindings, Xiao Zishan examined several pieces. Drawing on hastily-read ceramics books, he recognized them as "Kraak porcelain"—classic late-Ming export ware.
 
-What was this porcelain worth now? An ordinary plate would fetch no less than several thousand yuan. On December 10, 2005, porcelain salvaged by Swedish diver Sten Sjöstrand from the South China Sea had been auctioned at China Guardian in a special "Ming Wanli and Qing Desaru Shipwreck Ceramics" session. Though the 214 pieces of Kraak porcelain had suffered severe glaze corrosion and even flaking due to long submersion, they still achieved a 92% sale rate and total proceeds of 2.727 million yuan. One Ming Wanli blue-and-white lotus-petal-shaped medallion dish with bird-and-flower design sold for 55,000 yuan.
+What was it worth in their time? An ordinary plate fetched several thousand yuan. On December 10, 2005, porcelain salvaged by Swedish diver Sten Sjöstrand from the South China Sea had been auctioned at China Guardian's "Ming Wanli and Qing Desaru Shipwreck Ceramics" session. Despite severe glaze corrosion from long submersion, 214 pieces of Kraak porcelain achieved a 92% sale rate and 2.727 million yuan. One blue-and-white lotus-petal medallion dish with bird-and-flower design sold for 55,000 yuan.
 
-At this moment, brand-new Kraak porcelain filled several large hampers right before their eyes!
+And here, brand-new Kraak porcelain filled several hampers before their eyes.
 
-They bought all the porcelain for less than twenty taels of silver. Xiao Zishan and the others inwardly cheered at the bargain; Master Gao privately laughed at these sea merchants who didn't know the market. Both sides thought they had gotten the better deal.
+They bought it all for less than twenty taels. Xiao Zishan and the others cheered inwardly at the bargain; Master Gao laughed privately at these sea merchants who didn't know the market. Both sides believed they'd gotten the better deal.
 
-Before leaving, Wen Desi left two hundred taels of silver and asked Master Gao to purchase a nearby house for their use as a base. According to plan, the wormhole exit in this timespace would be temporarily stationed there. Master Gao agreed to all of it.
+Before leaving, Wen Desi left two hundred taels and asked Master Gao to purchase a nearby house for their base. The wormhole exit would be stationed there. Master Gao agreed.
 
-After the Australian merchants departed, Master Gao sat alone in his study thinking for a long time, even turning away the concubine who came to invite him to bed. Purchasing a house was no difficulty for him—but these people's identities remained murky, which troubled him. After pacing for a while, he summoned his steward and ordered that nothing about the Australian merchants be allowed to leak. He also had the steward prepare a list of all servants, footmen, and maids who knew of the matter—anyone who let slip would face strict investigation and severe punishment.
+After the merchants departed, Master Gao sat alone thinking, even turning away the concubine who came to invite him to bed. Purchasing a house was easy—but these people's identities remained murky. After pacing, he summoned his steward and ordered silence about the Australian merchants. He also had the steward list all servants, footmen, and maids who knew—anyone who let slip would face strict investigation and severe punishment.
 
 ---
 
