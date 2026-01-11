@@ -2,7 +2,7 @@
 
 When Huang Xiong arrived at headquarters office, besides Li Yunxing there were three others. One he recognized—Battalion Officer "Chief Wei." Another "Chief Ma" frequently appeared at training grounds, seemingly important.
 
-Unknown to him: Ran Yao. Li Yunxing had called the Security Group immediately after drill. Huang Xiong's insight clearly exceeded commoner level—probably a Ming military officer. He needed confirmation whether this was a spy.
+Unknown to him: Ran Yao. Li Yunxing had called the Security Group immediately after drill. Huang Xiong's insight clearly exceeded commoner level—he was probably a Ming military officer. He needed confirmation whether this was a spy.
 
 Also one spectator: Dongmen Chuiyu. Currently on light duties—East Gate Market was orderly. He often loitered around Ma Qianzhu's office, even drafting staff regulations—earning a nominal staff officer title.
 
@@ -16,7 +16,7 @@ Everyone noted his movements differed from ordinary recruits.
 
 "Yes! I was *bazong* at Jizhou garrison." His face was frank.
 
-A Ming officer. This surprised Li Yunxing. This recruitment brought many escaped local military households. But Jizhou *bazong* and Hainan military households were completely different. Former: real soldiers. Latter: military landlords' serfs. Vastly different.
+A Ming officer. This surprised Li Yunxing. This recruitment brought many escaped local military households. But Jizhou *bazong* and Hainan military households were completely different. The former were real soldiers. The latter were military landlords' serfs. Vastly different.
 
 "Being an imperial officer—why travel thousands of *li* to Qiongzhou?"
 
@@ -68,7 +68,7 @@ Wei Aiwen said: "I recommend keeping him. Such people will grow more common. Eve
 
 "Sure, let's go."
 
-To date, the New Army had conducted 100 shooting sessions: 40 live-fire, 60 dry-fire. This exceeded 19th-century Britain's—most shooting-focused army's—new recruit counts. Transmigrators spared no expense on their founding forces.
+To date, the New Army had conducted 100 shooting sessions: 40 live-fire, 60 dry-fire. This exceeded 19th-century Britain's—the most shooting-focused army's—new recruit counts. Transmigrators spared no expense on their founding forces.
 
 Walking to 2nd Company, they found soldiers clustered. One dark, brawny soldier aimed a rifle at a distant stone. The crowd surrounded him.
 
@@ -84,7 +84,7 @@ The soldier chuckled.
 
 The soldier shot again. Hit.
 
-Dongmen nodded, standing beside the soldier. Drew a Jierienduo pistol from his waist, loaded a blank, said: "Once more."
+Dongmen nodded, standing beside the soldier. He drew a Jierienduo pistol from his waist, loaded a blank, and said: "Once more."
 
 The soldier began cleaning the barrel—then Dongmen fired skyward. The soldier's hand trembled—some powder spilled.
 
@@ -116,7 +116,7 @@ The soldier finally finished loading.
 
 The soldier's rifle fired.
 
-Distant stone—no reaction. Bullet missed.
+Distant stone—no reaction. The bullet missed.
 
 Dongmen Chuiyu holstered his pistol: "Keep practicing."
 
@@ -130,7 +130,7 @@ After leaving, Wei Aiwen caught up angrily:
 
 "That Yang Zeng—since joining the Skirmisher Platoon, how much effort he's invested in shooting practice—do you know? He's currently the battalion's best shot."
 
-"That's irrelevant. Captain Wei, remember: we need soldiers, not shooting athletes." Glancing at Li Yunxing. "Fighting isn't in quiet shooting ranges."
+"That's irrelevant. Captain Wei, remember: we need soldiers, not shooting athletes." He glanced at Li Yunxing. "Fighting isn't in quiet shooting ranges."
 
 Before Wei Aiwen could respond, he walked away.
 
@@ -148,7 +148,7 @@ Ma Qianzhu stood: "All you want is cannons! 8-pounders—can you haul them?"
 
 "You're Artillery Superintendent—how many horses for 8-pounders?"
 
-Zhang Bailin fell silent—didn't know his beloved weapon's horse requirements.
+Zhang Bailin fell silent—he didn't know his beloved weapon's horse requirements.
 
 "At least six! Medium horses." Ma Qianzhu tapped the table. "How many horses does Wu Nanhai's farm have?"
 
@@ -160,7 +160,7 @@ Zhang Bailin completely deflated. Wei Aiwen persisted about Marine Company.
 
 "Marine Company is future Navy sailors. Training Battalion was just interim training. Month's up—Navy wants them for ship training."
 
-Both received lecture, left defeated.
+Both received a lecture and left defeated.
 
 "Navy's too damn bullying!" Wei Aiwen was still furious.
 

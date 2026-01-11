@@ -2,7 +2,7 @@
 
 After 4 weeks' basic training, Army Training Battalion was officially established. Though a "battalion"—being a demonstration unit, it was highly integrated: infantry, skirmishers, artillery, and logistics.
 
-Military Committee's organization modeled 18th–early 19th-century European armies. Battalion as basic combat unit. Each infantry battalion: 6 companies. Each platoon: 3 squads. Each squad: 9 men. Platoon: 30 men. 3 platoons formed 1 company: 100 men. Companies had a standard-bearer, drummer, fifer, plus a 5-man cooking squad.
+The Military Committee's organization modeled 18th–early 19th-century European armies. Battalion was the basic combat unit. Each infantry battalion: 6 companies. Each platoon: 3 squads. Each squad: 9 men. Platoon: 30 men. 3 platoons formed 1 company: 100 men. Companies had a standard-bearer, drummer, fifer, plus a 5-man cooking squad.
 
 The current Training Battalion had only 3 infantry companies, 1 skirmisher platoon, plus 1 "grenadier platoon"—here restored to its original meaning rather than "elite infantry."
 
@@ -32,7 +32,7 @@ Besides them—many common laborers working for "bald people." The freshly organ
 
 At the hill base entrance: a large rectangular black stone wall with a small arch. A path led through to the central knoll.
 
-This 10-meter elevation knoll—topped by a black granite semi-circular wall. Carved lotus pedestals decorated simply.
+This 10-meter elevation knoll was topped by a black granite semi-circular wall. Carved lotus pedestals decorated it simply.
 
 The stone wall's top—carved in Han clerical script: "Cuigang Martyrs' Cemetery."
 
@@ -40,7 +40,7 @@ Wen Desi descended from the automobile, slowly walking toward the central hill. 
 
 Li Shisan—in his unknown brief lifetime—showed nothing suggesting historical significance. Yet Cuigang Cemetery's honor wall began with his name.
 
-No mourning music. No gongs and drums. No monks droning sutras. No women wailing. The sky resounded with a plaintive bugle. As notes rose, the noisy crowd suddenly silenced. Reference Company soldiers marched 75 steps/minute in formal parade, rifles at shoulder. The bugle ended. Two drummers led—slow drumbeats. Two black horses—unseen locally—drew a four-wheeled gun carriage bearing a plain wood coffin. Hoofbeats on flagstones matched the slow drums. Everything unprecedented—conveying respect, admiration, emotion. The atmosphere was nearly suffocating.
+No mourning music. No gongs and drums. No monks droning sutras. No women wailing. The sky resounded with a plaintive bugle. As notes rose, the noisy crowd suddenly silenced. Reference Company soldiers marched 75 steps/minute in formal parade, rifles at shoulder. The bugle ended. Two drummers led—slow drumbeats. Two black horses—unseen locally—drew a four-wheeled gun carriage bearing a plain wood coffin. Hoofbeats on flagstones matched the slow drums. Everything was unprecedented—conveying respect, admiration, emotion. The atmosphere was nearly suffocating.
 
 The coffin was rope-lowered into the grave.
 
@@ -74,9 +74,9 @@ The speaker—seeing the questioner's refined bearing—answered carefully: "Obv
 
 "Quit nonsense. Where's the *Zhou-Li* mandating Wang Bi's exorcist chariot leading funeral processions?" Someone sarcastically countered.
 
-Wu Ya didn't continue listening. Fear or admiration filled his heart. Bald bandits were buying hearts—but their methods seemed more effective, striking hearts' deepest points. Wu Ya prided himself as a bureaucratic veteran—crying theatrically at Wanli Emperor's mourning while calculating expense allowances. But just now he'd been inexplicably moved to tears—absurd in retrospect! What reason had he to cry? Bald bandits' heart manipulation reached demonic levels! Since autumn harvest, commoners seemed enchanted—streaming toward Bairren Beach. Defectors multiplying. Wu Ya was experienced—knew commoners didn't love officialdom. But except during famines, they wouldn't defect to bandits. Lingao's harvest was decent this year—yet so many left! What future awaited? This Great Ming realm...!
+Wu Ya didn't continue listening. Fear or admiration filled his heart. The bald bandits were buying hearts—but their methods seemed more effective, striking hearts' deepest points. Wu Ya prided himself as a bureaucratic veteran—crying theatrically at Wanli Emperor's mourning while calculating expense allowances. But just now he'd been inexplicably moved to tears—absurd in retrospect! What reason had he to cry? The bald bandits' heart manipulation reached demonic levels! Since autumn harvest, commoners seemed enchanted—streaming toward Bairren Beach. Defectors were multiplying. Wu Ya was experienced—he knew commoners didn't love officialdom. But except during famines, they wouldn't defect to bandits. Lingao's harvest was decent this year—yet so many left! What future awaited? This Great Ming realm...!
 
-Returning to camp, Executive Committee noticed: New Army's strides lengthened, bearing sharper, spirits high. Soldiers spontaneously sang a newly learned military song:
+Returning to camp, the Executive Committee noticed: New Army's strides lengthened, bearing sharper, spirits high. Soldiers spontaneously sang a newly learned military song:
 
 *Beautiful fairy beckons from afar*
 
