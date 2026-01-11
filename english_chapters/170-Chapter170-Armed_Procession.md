@@ -46,13 +46,13 @@ Tomorrow—mountain marching began. The Navy support flotilla couldn't resupply 
 
 They established various communication signals and contingency plans. Past 6pm—Chen Haiyang rowed back to *Fubo*, declining Xi Yazhou's dinner invitation—bringing Navy's vegetable and egg share. Xi Yazhou was certain: *Fubo* had better food. This irked him—especially seeing his orderly bring steaming rice noodle soup.
 
-Dinner: Grassland-3 and -4. Former was rice-noodle wrapper; latter was rice vermicelli. Boiled until soft—with complete seasoning packets: salt, dried scallion, pepper. Unfortunately no chili—otherwise chili oil would perfect it. Nearby villagers' vegetables and eggs enriched soup contents.
+Dinner: Grassland-3 and -4. Former was rice noodle wrapper; latter was rice vermicelli. Boiled until soft—with complete seasoning packets: salt, dried scallion, pepper. Unfortunately no chili—otherwise chili oil would perfect it. Nearby villagers' vegetables and eggs enriched soup contents.
 
 Taste was quite good—just lacking fat. Xi Yazhou again witnessed local farmers' appetites: one soldier ate nearly 3-*jin* rice noodles before stopping.
 
 Officers' soup had sliced luncheon meat. Frugal traditions showed power—one 125g can split by two. The cutter had to slice precisely equal. Finally—even the can's inner fat residue was hot-soup-rinsed clean.
 
-"Who knew luncheon meat would become a delicacy!" Dongmen Chuiyu sipped rice noodle soup. Luncheon meat made broth richer—added various spice mixed flavors. Better than plain seasoned soup. Grassland-3 and -4 seemed fine—drawback was fat deficiency. Without luncheon meat—plain seasoning packets were bland.
+"Who knew luncheon meat would become a delicacy!" Dongmen Chuiyu sipped rice noodle soup. Luncheon meat made broth richer—added various spice mixed flavors. Better than plain seasoned soup. Grassland-3 and 4 seemed fine—drawback was fat deficiency. Without luncheon meat—plain seasoning packets were bland.
 
 He noted ration impressions in his notebook. Walked outside for stretching—but—kicked something *clang*-ing far. Looking closely: an empty luncheon meat can.
 
