@@ -4,7 +4,7 @@
 
 "Will the other party agree? How is Runshitang's economic situation?"
 
-"I've sounded them out," Liu San said, "Runshitang's owner is Shopkeeper Yang himself. His family has been doing this for generations. This Runshitang was opened by Shopkeeper Yang's father after coming over from Guangdong. Business conditions these years have been average, just getting by. Not long after the old man died and Shopkeeper Yang took over, a ship of medicinal materials was robbed by pirates, making the situation even more straitened."
+"I've sounded them out," Liu San said. "Runshitang is owned by Shopkeeper Yang himself. His family has been doing this for generations. This Runshitang was opened by Shopkeeper Yang's father after coming over from Guangdong. Business conditions these years have been average, just getting by. Not long after the old man died and Shopkeeper Yang took over, a ship of medicinal materials was robbed by pirates, making the situation even more straitened."
 
 "This is his ancestral property; selling ancestral assets might not be acceptable to ancient people."
 
@@ -12,15 +12,15 @@
 
 Liu San continued, "After I become the owner, I can openly supervise work directly, focusing my main energy on Chinese patent medicine production. Then use their business cooperation channels to first open up the medicinal material purchase channels in Qiongshan County. Then borrow their connections to visit the mainland—Shopkeeper Yang has several uncles opening herbal medicine shops or working as doctors on the mainland. Look around everywhere, get to know more people, acquire medicinal materials along the way, and recruit some professional Chinese medicine processing talents back."
 
-Shi Niaoren nodded: "This line of thought is quite good. How much budget?"
+Shi Niaoren nodded. "This line of thought is quite good. How much budget?"
 
 "Buying this shop, including livelihood assets and inventory, won't cost two hundred taels of silver." Liu San said, "But expansion and renovation will be a big expense..."
 
 "How do you plan to expand and renovate? Set up a specialized Chinese medicine processing factory?"
 
-"That's unnecessary. With such a good environment in the pharmaceutical factory available now, why would I run to the county town full of pig and chicken manure to open a pharmaceutical factory?" Liu San had a well-thought-out plan, "I intend to merge the processing talents in the pharmacy into the Traditional Chinese Medicine workshop of the pharmaceutical factory to work. The pharmacy will only be responsible for drug sales, procurement, and trafficking..."
+"That's unnecessary. With such a good environment in the pharmaceutical factory available now, why would I run to the county town full of pig and chicken manure to open a pharmaceutical factory?" Liu San had a well-thought-out plan. "I intend to merge the processing talents in the pharmacy into the Traditional Chinese Medicine workshop of the pharmaceutical factory to work. The pharmacy will only be responsible for drug sales, procurement, and distribution..."
 
-"Trafficking?"
+"Distribution?"
 
 "Yes, Lingao has many wild Chinese medicinal material resources, such as Alpinia oxyphylla discovered by the resources department last time. The honey locust found by the round-the-island expedition team this time can also be exported besides satisfying self-use." Liu San continued, "I plan to move the head office to East Gate Market after taking over, building a magnificent grand pharmacy. The old shop in the city counts as a branch. Later, open pharmacy branches in various markets throughout the county first—the Ministry of Health's 'Medicine to the Countryside' can proceed under the guise of the pharmacy's 'Sitting Doctor', which saves more effort than everyone going from village to village and makes it easier for common people to trust..."
 
@@ -42,11 +42,11 @@ Coming out of Liu San's workshop, Hu Yicheng was still enthusiastically fiddling
 
 Several other large jars were unremarkable, filled with dark red liquid. The liquid was a bit turbid, with some foam and scum on the surface.
 
-Seeing Shi Niaoren looking, Hu Yicheng hurriedly said: "Minister Shi, want a cup?"
+Seeing Shi Niaoren looking, Hu Yicheng hurriedly said, "Minister Shi, want a cup?"
 
-Shi Niaoren was startled; this thing didn't look drinkable no matter how one looked at it: "What is this?"
+Shi Niaoren was startled; this thing didn't look drinkable no matter how one looked at it. "What is this?"
 
-"Kombucha (Red Tea Fungus), a health and nutritional drink." Hu Yicheng actually wasn't interested in the so-called efficacy of this troublesome Kombucha; it was just a pastime seeing the distiller idle: now sugar and tea supply was abundant, and Huang Dashan's laboratory had many strains, so he just used it to do side jobs and review his craft.
+"Kombucha, a health and nutritional drink." Hu Yicheng actually wasn't interested in the so-called efficacy of this troublesome Kombucha; it was just a pastime seeing the distiller idle: now sugar and tea supply was abundant, and Huang Dashan's laboratory had many strains, so he just used it to do side jobs and review his craft.
 
 Shi Niaoren intended to decline, but suddenly thought his salt soda plan hadn't settled yet. Although Kvass was created by Huang Dashan of this factory, the producing enterprises were the Agricultural Committee and the Ministry of Light Industry, having nothing to do with the Ministry of Health. However, the concept of this Kombucha was not bad...
 
@@ -54,29 +54,29 @@ Hu Yicheng saw the leader's face changing unpredictably, not knowing the depth, 
 
 "Give me a cup."
 
-"Okay, okay," Hu Yicheng said while hurriedly pouring a cup. Seeing the leader's appearance seemed to be making a determination, Hu Yicheng hurriedly said: "It's fine, we tested the components; no harmful substances. Everyone drinks a few mouthfuls when working overtime at night. Don't know if there are benefits, but definitely no harm."
+"Okay, okay," Hu Yicheng said while hurriedly pouring a cup. Seeing the leader's appearance seemed to be making a determination, Hu Yicheng hurriedly said, "It's fine, we tested the components; no harmful substances. Everyone drinks a few mouthfuls when working overtime at night. Don't know if there are benefits, but definitely no harm."
 
 "It's fine." Saying this, Shi Niaoren tilted his neck and drank this liquid looking like black tea.
 
 The taste was much better than imagined, sweet and sour. If there was any special taste, it was a bit like sour plum soup mixed with black tea. If it could be iced, the taste should be good.
 
-"Taste is not bad," Shi Niaoren commented, "How about cost?"
+"Taste is not bad," Shi Niaoren commented. "How about cost?"
 
 "No cost really: just tea leaves and sugar. The strain was obtained by Huang Dashan; just culture it ourselves." Hu Yicheng felt strange; this thing was just made for fun, what cost problem?
 
-"Little Hu, this is a 'Health Supplement', yes, Health Supplement!" Shi Niaoren got excited—not knowing if it was the effect of the Kombucha he just drank, "Such a good thing can't stay in the laboratory. We must let the broad masses of people enjoy it, and also our laborers; distribute this to them as nutritional products..."
+"Little Hu, this is a 'Health Supplement', yes, Health Supplement!" Shi Niaoren got excited—not knowing if it was the effect of the Kombucha he just drank. "Such a good thing can't stay in the laboratory. We must let the broad masses of people enjoy it, and also our laborers; distribute this to them as nutritional products..."
 
-"Such a good thing?" Hu Yicheng was surprised. With Minister Shi's cultivation, he couldn't be unaware that Kombucha was basically a gimmick. Birds of a feather with things like Brain Platinum. Did Minister Shi really think it was some panacea?
+"Such a good thing?" Hu Yicheng was surprised. With Minister Shi's cultivation, he couldn't be unaware that Kombucha was basically a gimmick. Birds of a feather with things like snake oil. Did Minister Shi really think it was some panacea?
 
-"You immediately calculate with Huang Dashan, get more fermentation utensils, prepare for mass production. I'll talk to Wu Nanhai about sugar and tea quotas." Shi Niaoren thought for a moment, "Make the drinking liquid cleaner, filter it, try to make it clear and transparent."
+"You immediately calculate with Huang Dashan, get more fermentation utensils, prepare for mass production. I'll talk to Wu Nanhai about sugar and tea quotas." Shi Niaoren thought for a moment. "Make the drinking liquid cleaner, filter it, try to make it clear and transparent."
 
-"Okay, okay." Hu Yicheng never dreamed that Kombucha could suit Minister Shi's appetite so much, "This matter is very easy..."
+"Okay, okay." Hu Yicheng never dreamed that Kombucha could suit Minister Shi's appetite so much. "This matter is very easy..."
 
-"After making it, I'll tell Xiao Zishan to supply it to everyone as a health drink." Shi Niaoren emphasized the word "Health" very heavily, "Find Dashan, discuss writing a draft on the health effects of Kombucha. I'll find someone to print it and post it in the canteen..."
+"After making it, I'll tell Xiao Zishan to supply it to everyone as a health drink." Shi Niaoren emphasized the word "Health" very heavily. "Find Dashan, discuss writing a draft on the health effects of Kombucha. I'll find someone to print it and post it in the canteen..."
 
 Liu San got Shi Niaoren's approval, confidence surging. He changed into blue cloth outer clothes for house calls and herbal gathering, put on a bamboo hat, carried his army green canvas satchel on his back, and walked towards the county town.
 
-Runshitang was on the only County Front Street in the county town, not far from the East Gate settlement. Since the Transmigration Group and the County Yamen reached a tacit agreement and both sides coexisted peacefully, transmigrators could freely enter and exit the county town. At first, Wu Mingjin and others were still very nervous, summoning street and neighborhood heads and Baojia chiefs of the three gates settlements, instructing inns, shops, and households in the city not to allow Australians to stay overnight; those forcibly demanding to stay must be reported to the County Yamen for record. Discerning people could see that this so-called "defense" was just a joke. Did Australians need to engage in "coordination from inside and outside" to attack the city?
+Runshitang was on the only County Front Street in the county town, not far from the East Gate settlement. Since the Transmigration Group and the County Yamen reached a tacit agreement and both sides coexisted peacefully, transmigrators could freely enter and exit the county town. At first, Wu Mingjin and others were still very nervous, summoning street and neighborhood heads and Baojia chiefs of the settlements outside the three gates, instructing inns, shops, and households in the city not to allow Australians to stay overnight; those forcibly demanding to stay must be reported to the County Yamen for record. Discerning people could see that this so-called "defense" was just a joke. Did Australians need to engage in "coordination from inside and outside" to attack the city?
 
 Fortunately, "Australians" had no interest in staying overnight in the city either, always coming by day and leaving by night. After the first few weeks passed, the transmigrators' curiosity about this Great Ming county town had been completely exhausted. Recently, except for a rare few people coming to the city for business, almost no one entered the city.
 
@@ -92,7 +92,7 @@ Because of the shortage of medicine, Liu San often had to dispense Chinese medic
 
 Runshitang's storefront was quite magnificent, with high rooms and open porches. A large plaque with gold characters hung on the lintel. It was just that after a long time, it had peeled off a bit. Quite a lot of green grass also grew under the steps.
 
-The entire house had a shop in front and a yard in output back, with an attached residential courtyard; one could see that a lot of money was spent back then. Liu San heard from the shop assistant that Runshitang's old shopkeeper came from a family of pharmacy owners in Guangdong. When he came to Lingao back then, he had quite an ambition to open a business and establish a foundation. Thinking of this, Liu San couldn't help sighing secretly in his heart.
+The entire house had a shop in front and a yard in back, with an attached residential courtyard; one could see that a lot of money was spent back then. Liu San heard from the shop assistant that Runshitang's old shopkeeper came from a family of pharmacy owners in Guangdong. When he came to Lingao back then, he had quite an ambition to open a business and establish a foundation. Thinking of this, Liu San couldn't help sighing secretly in his heart.
 
 Stepping onto the bluestone steps, he felt a stream of cool air hitting him, feeling very comfortable in the hot and sultry weather.
 
@@ -102,7 +102,7 @@ Someone inside had already welcomed him out; it was the manager of this shop, Li
 
 "Business is booming!" Liu San cupped his hands and exchanged pleasantries as usual.
 
-"Thanks to your blessing! Thanks to your blessing!" Liu Benshan didn't mind—anyway, since he became an apprentice, Runshitang's business had been like this: neither dead nor alive, barely getting by. It encountered big crises several times; originally thought it couldn't survive, but resultantly muddled through too.
+"Thanks to your blessing! Thanks to your blessing!" Liu Benshan didn't mind—anyway, since he became an apprentice, Runshitang's business had been like this: neither dead nor alive, barely getting by. It encountered big crises several times; originally thought it couldn't survive, but by some miracle he muddled through too.
 
 Liu San swept a glance at the shop hall. Various utensils were placed neatly on the dark wooden counter, wiped spotless. The copper fittings on the medicine drawers behind also shone brightly—no matter how depressed the business was, the rules were not vague at all. This was also the reason he liked coming here: no perfunctoriness or carelessness.
 

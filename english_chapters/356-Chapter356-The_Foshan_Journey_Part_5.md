@@ -1,10 +1,10 @@
 # Chapter 356 - The Foshan Journey (Part 5)
 
-After his examination, he confirmed Huang Tianyu was in no mortal danger. Only then did he turn back to berate the inn manager:
+After his examination, he confirmed Huang Tianyu was in no mortal danger. Only then did he turn back to berate the inn manager.
 
 "What kind of inn is this! A den of thieves!"
 
-The manager approached with a pained expression, bowing repeatedly: "This is entirely our fault. Please, gentlemen, calm yourselves."
+The manager approached with a pained expression, bowing repeatedly. "This is entirely our fault. Please, gentlemen, calm yourselves."
 
 Fortunate indeed! Liu San thought. That they'd managed to catch Qianqian and avoid turning this business trip into a disgrace was quite accidental—all thanks to Gao Di.
 
@@ -12,7 +12,7 @@ After the evening party had dispersed, Liu San had taken Shucui to his room. Dis
 
 "It's so late—why aren't you sleeping instead of running around?" Liu San scolded unhappily.
 
-Gao Di glanced toward the inner room before whispering: "Doctor Liu, there's something not right about those singing girls who came tonight!"
+Gao Di glanced toward the inner room before whispering, "Doctor Liu, there's something not right about those singing girls who came tonight!"
 
 Calling someone's origins "not right" meant they were up to no good. Liu San immediately grew alert. After all, when it came to experience with this era's society, this street urchin Gao Di had far more than any of them.
 
@@ -20,7 +20,7 @@ Calling someone's origins "not right" meant they were up to no good. Liu San imm
 
 "Where is the gentleman going?" Shucui asked, her fragrant shoulders half-exposed as she lay in bed, seeing him about to leave.
 
-"Going to take a bath—too hot." Liu San answered casually while carefully locking the door behind him.
+"Going to take a bath—too hot," Liu San answered casually while carefully locking the door behind him.
 
 The corridor wasn't a good place to talk, so Liu San led Gao Di to a corner.
 
@@ -34,11 +34,11 @@ The corridor wasn't a good place to talk, so Liu San led Gao Di to a corner.
 
 "Really dark." But this wasn't the time to discuss Ming-era governance. "This thief?"
 
-Gao Di nodded: "After the masters ordered singing girls, I happened to overhear an attendant mention there was an outside girl who speaks Mandarin. Putting two and two together, I grew suspicious. So I went to inquire further with the inn staff—turns out something was indeed wrong."
+Gao Di nodded. "After the masters ordered singing girls, I happened to overhear an attendant mention there was an outside girl who speaks Mandarin. Putting two and two together, I grew suspicious. So I went to inquire further with the inn staff—turns out something was indeed wrong."
 
 "What—Shucui is the thief?"
 
-"Shucui isn't the thief. She's registered here and paid her dues." Gao Di wiped sweat from his forehead. "But the one who went to Chief Huang's room—she hadn't registered with the inn at all."
+"Shucui isn't the thief. She's registered here and paid her dues." Gao Di wiped sweat from his forehead. "But the one who went to Shopkeeper Huang's room—she hadn't registered with the inn at all."
 
 "Call him 'shopkeeper' out here." Liu San frowned. "It's Qianqian?"
 
@@ -76,11 +76,11 @@ The attendants cleared away the leftover food and wine from the table, then sort
 
 "Your father ought to beat the piss out of you!" Liu San threatened. "But your father is probably the same as you—not a decent person either. So I'll beat the piss out of you on his behalf..."
 
-"You wouldn't dare!" Seeing Liu San roll up his sleeves while his eyes scanned around, apparently looking for implements of torture, Qianqian was still a young girl who hadn't weathered many storms. Caught in the act and now fearful of physical suffering, panic rose in her. She blurted out: "You'll regret hitting me."
+"You wouldn't dare!" Seeing Liu San roll up his sleeves while his eyes scanned around, apparently looking for implements of torture, Qianqian was still a young girl who hadn't weathered many storms. Caught in the act and now fearful of physical suffering, panic rose in her. She blurted out, "You'll regret hitting me."
 
 "Oh? Why would I regret that?" Liu San was amused. "You're just a female thief. Even if I don't hit you, once you're handed to the authorities and taken to the yamen, the magistrate will strip off your pants and give you twenty strokes to start with..."
 
-Now Qianqian was truly panicked, her little face flushing crimson: "You can't bully people like this! What are you going to do with me!"
+Now Qianqian was truly panicked, her little face flushing crimson. "You can't bully people like this! What are you going to do with me!"
 
 "Nothing much—I'll have you turned over to the authorities shortly." Liu San made up his mind. Since the anesthetic was harmless, keeping this Qianqian served no purpose. Releasing her risked her following and seeking revenge—that would be troublesome. Better to have the inn hand her over tomorrow. A few days in jail, and they'd be long gone. As for what suffering this little girl would endure in prison—that wasn't his concern. Mercy had to consider who deserved it.
 
@@ -97,7 +97,7 @@ Liu San's mind went blank, and he stood frozen for several seconds.
 
 Holy mother of God—this was the Embroidered Guard!
 
-Though Liu San was trained in Chinese medicine rather than Ming history, there were several people in the transmigrator group who walked around Bairren City wearing T-shirts printed with these eight characters. Everyone among the five hundred knew what these words meant.
+Though Liu San was trained in Chinese medicine rather than Ming history, there were several people in the transmigrator group who walked around Bairen City wearing T-shirts printed with these eight characters. Everyone among the five hundred knew what these words meant.
 
 How had they provoked this secret police organization? Liu San groaned inwardly. Yu Eshui had listed the Embroidered Guard among the particularly dangerous government agencies, cautioning everyone to be especially careful when entering yellow and red zones.
 
@@ -107,8 +107,6 @@ By now Huang Tianyu's numbness had faded, and he had come over to look.
 
 "Scared now, aren't you!" Qianqian was utterly pleased with herself. "Hurry up and untie me, then kowtow a dozen times, and this lady will spare you."
 
-Huang Tianyu asked nervously in a low voice: "Liu San, what do we do? This is trouble!"
+Huang Tianyu asked nervously in a low voice, "Liu San, what do we do? This is trouble!"
 
 "Mm." Liu San nodded. This plaque was exquisitely crafted—unlikely to be counterfeit, though they'd never seen the genuine article. If they had truly offended an Embroidered Guard operative, the consequences would be endless. It would endanger not just themselves and their mission but the entire transmigrator group... Murderous intent surged in Liu San's heart. Better to simply kill her and silence her.
-
-(End of Chapter)

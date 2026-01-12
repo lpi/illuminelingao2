@@ -2,13 +2,13 @@
 
 The coking plant of the metallurgical department itself also produced coal gas, but this gas was basically all used in metallurgy and metal processing, with no spare capacity to supply other departments. Moreover, the distance was excessive. To lay gas pipelines with good sealing for long-distance gas transmission and manufacture gas tanks for gas storage... Transmigrators hadn't reached this industrial level yet. Therefore, Wang Luobin designed the industrial and agricultural coal gas furnace with the starting point of being able to utilize coal gas locally.
 
-Wang Luobin had a lot of coal gas furnace materials on hand, especially indigenous meth coal gas furnace materials, which could be called colorful and full of whimsical ideas. But he didn't trust these materials. Indigenous method coal gas furnaces blossomed everywhere during the Great Leap Forward era, touted extravagantly, but left no trace once the movement passed. Obviously, there were problems in terms of economy, safety, or practicality. He used to live in the countryside and experienced countless similar "technology promotions", such as biogas digesters, indigenous solar cookers... In the end, they all vanished or became half-dead for various reasons.
+Wang Luobin had a lot of coal gas furnace materials on hand, especially indigenous method coal gas furnace materials, which could be called colorful and full of whimsical ideas. But he didn't trust these materials. Indigenous method coal gas furnaces blossomed everywhere during the Great Leap Forward era, touted extravagantly, but left no trace once the movement passed. Obviously, there were problems in terms of economy, safety, or practicality. He used to live in the countryside and experienced countless similar "technology promotions", such as biogas digesters, indigenous solar cookers... In the end, they all vanished or became half-dead for various reasons.
 
 It could be seen that the promotion of a new technology had to take into account many factors, and the most important were practicality and economy. Neither could be dispensed with.
 
 Therefore, in the selection and structural design of the coal gas generator, he discarded all contents that were too "indigenous" and made it as "modern" as possible within the scope permitted by the transmigrators' industrial capability to ensure its effective application.
 
-He chose a flat-suction circular furnace for the food processing factory, with a diameter of 1.5 meters and a height of 3.5 meters. Using a blower for air supply, this furnace had a large hearth, uniform distribution of air and fuel, high gasification intensity, and could gasify 60 kilograms of coal per hour. Required materials: refractory bricks, red bricks, cement, and cast iron, all of which could be provided by the industrial department. The sealing method adopted a water seal, simple and safe. The hardest thing to make was nothing more than the reverse check valve—this was a cast iron piece, with almost no difficulty.
+He chose a flat-suction circular furnace for the food processing factory, with a diameter of 1.5 meters and a height of 3.5 meters. Using a blower for air supply, this furnace had a large hearth, uniform distribution of air and fuel, high gasification intensity, and could gasify 60 kilograms of coal per hour. Required materials: refractory bricks, red bricks, cement, and cast iron, all of which could be provided by the industrial department. The sealing method adopted a water seal, simple and safe. The hardest thing to make was nothing more than the check valve—this was a cast iron piece, with almost no difficulty.
 
 After coal gas was produced, it first passed through a brick-built cyclone dust collector for dust removal, then washed with water to remove tar and dust. The clean coal gas generated after cooling was supplied to the diesel engine for use. The wastewater used for washing, containing a large amount of tar, was recovered and treated by the chemical department.
 
@@ -28,7 +28,7 @@ Huang Dashan appreciated the coal gas furnace project very much—coal gas had h
 
 The coal gas furnace of the food processing factory greatly alleviated the consumption of biogas manufactured by the farm. Originally, this place was a big consumer of farm biogas. Biogas production from biogas digesters was very unstable. One of Wu Nanhai's biggest headaches was that although many biogas digesters were built, no matter how well designed or how large the capacity, problems of reduced gas supply would occur from time to time, sometimes simply stopping gas suddenly. Fuel had to be urgently called in to supplement.
 
-Wang Luobin personally watched the furnace by its side for half a day, observing the combustion situation. After feeling everything was normal, he instructed Mo Xiaoan: "Hang bird cages in this shed and nearby workshops, raise a few birds."
+Wang Luobin personally watched the furnace by its side for half a day, observing the combustion situation. After feeling everything was normal, he instructed Mo Xiaoan, "Hang bird cages in this shed and nearby workshops, raise a few birds."
 
 "Raise birds for what?"
 
@@ -36,9 +36,9 @@ Wang Luobin personally watched the furnace by its side for half a day, observing
 
 "No need. The smell of coal gas leak is so strong; impossible not to smell it..."
 
-Wang Luobin glanced at this Minister of Light Industry: "Carbon monoxide is colorless and odorless. That smell is added."
+Wang Luobin glanced at this Minister of Light Industry. "Carbon monoxide is colorless and odorless. That smell is added."
 
-"Understood, understood." Mo Xiaoan sweated profusely—wasn't this making a fool of himself on the spot, "I'll arrange it right away."
+"Understood, understood." Mo Xiaoan sweated profusely—wasn't this making a fool of himself on the spot. "I'll arrange it right away."
 
 Wang Luobin walked around the food factory again—he now had an important task to estimate the energy usage of the transmigrators, so as to coordinate various prime movers and energy currently in use to improve their utilization efficiency.
 

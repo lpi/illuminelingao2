@@ -8,15 +8,15 @@ Huang Tianyu groaned inwardly. Liu San, oh Liu San, you Chinese medicine man rea
 
 While he sat there conflicted, Qianqian had already poured a cup of wine. She even untied a pink handkerchief from her lapel, wiped the rim of the cup, and presented it to him with both hands.
 
-Though she was a woman of the pleasure quarters, her manner was gentle and refined. Huang Tianyu felt increasingly well-disposed toward her. He took her hand and asked: "How old are you?"
+Though she was a woman of the pleasure quarters, her manner was gentle and refined. Huang Tianyu felt increasingly well-disposed toward her. He took her hand and asked, "How old are you?"
 
-Qianqian smiled somewhat bashfully: "Why do you ask that?"
+Qianqian smiled somewhat bashfully. "Why do you ask that?"
 
 He'd assumed she wouldn't understand his choppy Cantonese Mandarin, but the girl spoke a dialect similar to modern Nanjing Mandarin. Being able to communicate lifted Huang Tianyu's spirits.
 
 "What, is it taboo?"
 
-"No taboo." Qianqian answered: "Your servant is fifteen years old."
+"No taboo." Qianqian answered, "Your servant is fifteen years old."
 
 Fifteen—did that count as a minor or a young woman? This was truly a difficult question. He recalled Yu Eshui mentioning that in ancient times, girls over thirteen were considered adults and could marry freely. At fifteen, she'd probably already have a child or two by now. But then again, in modern times Qianqian would still be in eighth grade... Combined with her slender waist, flat chest, and pitifully large eyes, Huang Tianyu really couldn't bring himself to make a move.
 
@@ -68,7 +68,7 @@ Huang Tianyu was overjoyed—someone had finally come! But his body was limp, hi
 
 "No need to clear them. Come back tomorrow."
 
-"Yes." The voice outside gradually faded. Qianqian let out a breath of relief, put away the dagger, and said: "Sorry about this, Shopkeeper Huang. It's not that I meant to rob you—I'm just stranded out here with no choice. Please forgive me. As for Sister Shucui, I tricked her—you mustn't report her to the authorities! Otherwise, you'll regret it!" She shook her fist at him threateningly.
+"Yes." The voice outside gradually faded. Qianqian let out a breath of relief, put away the dagger, and said, "Sorry about this, Shopkeeper Huang. It's not that I meant to rob you—I'm just stranded out here with no choice. Please forgive me. As for Sister Shucui, I tricked her—you mustn't report her to the authorities! Otherwise, you'll regret it!" She shook her fist at him threateningly.
 
 Huang Tianyu could only resign himself to his bad luck. Fortunately the loss wasn't great. Whether Qianqian was some divine being or not, the sooner she left, the better.
 
@@ -76,7 +76,7 @@ Qianqian blew out the candle, then crouched by Huang Tianyu and waited for a whi
 
 That pest was finally gone. But the more Huang Tianyu thought about it, the more aggrieved he felt. Liu San was probably still in the thick of a three-hundred-round battle with Shucui. That guy even had a wife, while he didn't even have a girlfriend, and his "live-in secretary" arrangement still hadn't materialized. Normally he lived in a group dormitory with electricity restrictions—he didn't even have a decent environment for masturbation. Finally he got a business trip opportunity for some indulgence, and this happens. Why was his fate so bitter? Just as he was wallowing in self-pity, a sudden commotion arose outside—sounds of running, fighting, then a woman's scream. Lights came on.
 
-While he was still puzzled, his room door burst open. Chen Tong rushed in, calling: "Shopkeeper Huang! Shopkeeper Huang!" He scanned the room and, finding Huang Tianyu collapsed under the table, quickly dragged him out. Seeing his limbs weak and speechless, Chen Tong hurried to lay him on the bed.
+While he was still puzzled, his room door burst open. Chen Tong rushed in, calling, "Shopkeeper Huang! Shopkeeper Huang!" He scanned the room and, finding Huang Tianyu collapsed under the table, quickly dragged him out. Seeing his limbs weak and speechless, Chen Tong hurried to lay him on the bed.
 
 Meanwhile the door had opened wide, admitting a crowd. Liu San pushed Shucui in—her hair still disheveled, wearing only an outer garment, barefoot, apparently pulled straight from bed. Her hands were bound behind her back, her face full of terror. After a moment, Qianqian was also pushed in by several inn attendants, her hair bun undone, a rope loop around her neck. The large bundle of stolen goods was also brought in.
 
@@ -86,10 +86,8 @@ Liu San thought: you still want to settle your debts with your body? Too bad I d
 
 The inn manager and attendants also spoke up for her, saying Shucui had been registered here singing for two or three years without incident. This was just a momentary lapse in judgment; they begged the gentleman to be lenient.
 
-Liu San knew this had little to do with her—Shucui had merely been used by Qianqian. So he said: "Write me a statement of confession first!"
+Liu San knew this had little to do with her—Shucui had merely been used by Qianqian. So he said, "Write me a written confession first!"
 
 Shucui agreed readily. Since she couldn't write, an attendant drafted the statement for her, and she pressed her thumbprint to it.
 
-Liu San first went to check Huang Tianyu, lifting his eyelids, prying open his mouth to sniff his breath, and testing his patellar reflex.
-
-(End of Chapter)
+Liu San first went to check Huang Tianyu, lifting his eyelids, prying open his mouth to sniff his breath, and testing his knee-jerk reflex.

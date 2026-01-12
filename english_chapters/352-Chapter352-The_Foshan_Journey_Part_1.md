@@ -4,9 +4,9 @@
 
 The secondary purpose was to use them as samples for trial sales in surrounding areas and mainland cities, to see how receptive the locals of this era would be. Medicine was something that saved and benefited people; in terms of expanding the transmigrators' influence and penetration, it far surpassed luxury goods like glass.
 
-Yang Shixiang was astonished: "Isn't that too much?"
+Yang Shixiang was astonished. "Isn't that too much?"
 
-"Not at all. Just Bairren City alone needs so much summer medicine—there's currently about ten thousand people there. Commissar Wu inside has said he'll take as much of this medicine as we can supply..." Liu San hinted that Yang shouldn't forget the transmigrator group was also a huge consumer base. Yang Shixiang's commercial instincts were rather too dull. He also took the opportunity to boast about his so-called "connections"—though in reality no such connections were needed. Wu De and Liu San merely knew each other. But Chinese people had always placed great importance on personal relationships, so this could be considered a reassurance for Yang.
+"Not at all. Just Bairen City alone needs so much summer medicine—there's currently about ten thousand people there. Commissioner Wu inside has said he'll take as much of this medicine as we can supply..." Liu San hinted that Yang shouldn't forget the transmigrator group was also a huge consumer base. Yang Shixiang's commercial instincts were rather too dull. He also took the opportunity to boast about his so-called "connections"—though in reality no such connections were needed. Wu De and Liu San merely knew each other. But Chinese people had always placed great importance on personal relationships, so this could be considered a reassurance for Yang.
 
 "That means I'll need to go to the mainland." Yang Shixiang made up his mind. "Some of these ingredients are available in Qiongshan, but not in these quantities. I'll need to go to a major apothecary in Guangzhou to procure supplies. Only—" He hesitated. Liu San guessed he probably didn't have enough capital. Medicines like musk and ox gallstones, while not as expensive as ginseng, deer antler, or rhinoceros horn, would still require a considerable outlay to produce this many doses.
 
@@ -24,7 +24,7 @@ Liu San laughed inwardly. This settled half the matter of "joining as a sharehol
 
 The Gaoguang Shipping Company, which ran cargo vessels on the Lingao-Guangzhou route, had started regular passenger service using spare capacity on their ships, carrying passengers and personal cargo between Guangzhou and Lingao. The ticket prices were quite cheap. Though the accommodations were basic, they attracted some merchants traveling between the two places—though this business wasn't large, as travelers between the locations were quite limited.
 
-Seeing how decisively and efficiently he acted, Liu San took this as a good sign. He took the opportunity to suggest: "Since you're going to Guangzhou anyway, why not make a side trip to Foshan?"
+Seeing how decisively and efficiently he acted, Liu San took this as a good sign. He took the opportunity to suggest, "Since you're going to Guangzhou anyway, why not make a side trip to Foshan?"
 
 "Go to Foshan? Those snobs!"
 
@@ -34,15 +34,15 @@ Seeing how decisively and efficiently he acted, Liu San took this as a good sign
 
 "On the contrary, you should let them earn it." Liu San guided him patiently. "Lingao is such a small place with so few people. Even if you could sell medicine throughout Qiongzhou Prefecture, how many households would that be? To sell medicine, you need to go to the mainland!"
 
-These summer medicines had a huge market in Liangguang. Runshitang, confined to its corner of Lingao, had long been out of touch with mainland drug merchants and the pharmaceutical industry, essentially cut off from mainland drug market conditions. To break into the Guangdong market, they would definitely need the help of local apothecaries. Yang Shixiang naturally understood his meaning—this was about using his relatives in Foshan to expand their market.
+These summer medicines had a huge market in Guangdong and Guangxi. Runshitang, confined to its corner of Lingao, had long been out of touch with mainland drug merchants and the pharmaceutical industry, essentially cut off from mainland drug market conditions. To break into the Guangdong market, they would definitely need the help of local apothecaries. Yang Shixiang naturally understood his meaning—this was about using his relatives in Foshan to expand their market.
 
-Thinking it through this way, he felt relieved. Yang Shixiang nodded deeply: "Thank you for the guidance, Doctor Liu!" He then asked, "I wonder if it would be convenient for Doctor Liu to get away? If possible, would you accompany me on this trip to Foshan?"
+Thinking it through this way, he felt relieved. Yang Shixiang nodded deeply. "Thank you for the guidance, Doctor Liu!" He then asked, "I wonder if it would be convenient for Doctor Liu to get away? If possible, would you accompany me on this trip to Foshan?"
 
 Liu San had been wanting to propose going to Foshan himself and was wondering how to bring it up. Now that Yang had taken the initiative, it was exactly what he wanted. He immediately agreed.
 
 Liu San wanted to use this opportunity to get inside a pharmaceutical enterprise of this era and observe their business model and methods. He had heard elderly pharmacists tell many stories about century-old apothecaries, but those were mostly about the mid-Qing period and later—over a hundred years away from the present, with limited reference value.
 
-Liu San returned to his lodging and quickly rode his bicycle to Bairren City to report to Shi Niaoren. Shi Niaoren praised him highly, saying his efficiency was truly excellent—though perhaps slightly too excellent. His budget request hadn't yet been approved, and if they were departing tomorrow, he might not have anywhere to get the silver. Furthermore, the Foreign Affairs and Trade Committee would need to be notified about this matter, as it technically fell under their purview.
+Liu San returned to his lodging and quickly rode his bicycle to Bairen City to report to Shi Niaoren. Shi Niaoren praised him highly, saying his efficiency was truly excellent—though perhaps slightly too excellent. His budget request hadn't yet been approved, and if they were departing tomorrow, he might not have anywhere to get the silver. Furthermore, the Foreign Affairs and Trade Committee would need to be notified about this matter, as it technically fell under their purview.
 
 Shi Niaoren was busy making phone calls and delivering documents. Liu San sat alone in the office, idly watching the young nurses going back and forth in the corridor. After about an hour, Shi Niaoren returned.
 
@@ -83,5 +83,3 @@ Delong Bank's business was more similar to traditional money shops than modern b
 Through managing the transactions of business accounts, Delong Bank effectively monitored the capital flows of the Guangzhou Station, while also eliminating the need to physically transport large quantities of silver between Guangzhou and Lingao. All they needed to do was make a ledger transfer at the bank and notify by telegram.
 
 To quickly develop Delong's remittance business, Meng Xian first implemented a simple, rudimentary joint-network remittance system in the Pearl River Delta. This was the operational method commonly used by Shanxi banks in the Qing dynasty: in areas with substantial cash flows, they would partner with well-capitalized, actively-trading major merchant houses as joint-exchange affiliates. Drafts issued by Delong could be cashed at these establishments at face value. Conversely, drafts issued by these affiliates would be honored by Delong in Guangzhou. Between affiliates, accounts were settled once a month, with bilateral transactions cleared through remittance.
-
-(End of Chapter)

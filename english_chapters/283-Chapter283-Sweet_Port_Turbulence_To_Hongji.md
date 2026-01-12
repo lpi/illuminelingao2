@@ -1,28 +1,28 @@
-# Chapter 283: Sweet Port Turbulence — To Hongji
+# Chapter 283: Sweet Port Turbulence – To Hongji
 
-Slighted or not, the deal could still be discussed: the other side was very interested in the thousand *shi* of sugar he'd brought. Though they couldn't produce that much cash, the proposition of exchanging rice was mutually agreeable.
+Slighted or not, the deal could still be discussed: the other side was very interested in the 1,000 *shi* of sugar he'd brought. Though they couldn't produce that much cash, the proposition of exchanging rice was mutually agreeable.
 
 "Eight Spanish dollars per *shi* of sugar." The manager named his price.
 
-Chang Shide flew into a rage. Do they think we're suckers? The lowest market price was clearly seven *liang* of silver per *shi*. Eight Spanish dollars per *shi*—converted to silver, that was only... only... He quickly calculated. "Only five *liang*!"
+Chang Shide flew into a rage. Do they think we're suckers? The lowest market price was clearly 7 taels of silver per *shi*. Eight Spanish dollars per *shi*—converted to silver, that was only... only... He quickly calculated. "Only 5 taels!"
 
 He immediately shook his head and said it was too low—far below the market rate. Zhang Dabala translated back and forth with the manager for a while. The manager smiled slightly and spoke. Zhang Dabala translated.
 
 "He says they're the only ones around here who can produce enough rice and silver to buy your sugar on the spot. Otherwise, you can sell to the Great Ming merchants at the docks and come back for your money this time next year. Or perhaps—" Zhang Dabala hesitated before translating—"you can wait at the dock for other more generous customers. Only, the weather here is very hot..."
 
-Chang Shide's blood rushed to his head. He wanted to just draw his gun and shoot this profiteer dead. But seeing his coolly confident demeanor, he had to suppress his rage. Suddenly, he had a visceral understanding of the story *Harvest of Three or Five Pecks* from his Chinese textbook. He said to Zhang Dabala, "Negotiate with him—can't he add another dollar or two?" If they could get up to ten dollars, that would be seven *liang*. Not the best price, but acceptable.
+Chang Shide's blood rushed to his head. He wanted to just draw his gun and shoot this profiteer dead. But seeing his coolly confident demeanor, he had to suppress his rage. Suddenly, he had a visceral understanding of the story *Harvest of Three or Five Pecks* from his Chinese textbook. He said to Zhang Dabala, "Negotiate with him—can't he add another dollar or two?" If they could get up to 10 dollars, that would be 7 taels. Not the best price, but acceptable.
 
 The profiteer shook his head repeatedly. "Not a single dollar more. But we'll cover the cost of transporting the rice to the dock."
 
-Chang Shide tried to persuade him, saying that doing business with them was definitely profitable because they had all sorts of novel goods that could bring huge returns—he wished he had a mirror to show him. He urged the manager to embrace long-term cooperation and raise the price a little, spouting the "win-win" theory. To his surprise, the profiteering manager actually showed an impatient expression. He said something sharply to Zhang Dabala, leaving Zhang Dabala looking unhappy too—clearly not kind words.
+Chang Shide tried to persuade him, saying that doing business with them was definitely profitable because they had all sorts of novel goods that could bring huge returns—he wished he had a mirror to show him. He urged the manager to embrace long-term cooperation and raise the price a little, spouting his "win-win" theory. To his surprise, the profiteering manager actually showed an impatient expression. He said something sharply to Zhang Dabala, leaving Zhang Dabala looking unhappy too—clearly not kind words.
 
 Chang Shide could only ask him to translate.
 
 "He says either close the deal at this price, or he won't waste any more time on us."
 
-In the end, Chang Shide capitulated. One thousand *shi* of sugar was sold at eight dollars per *shi*. Of the 8,000 dollar payment, the Vu Ngoc Giap side would pay 1,200 Spanish dollars in cash; the rest would be converted to rough rice at five *qian* per *shi*. Chang Shide did a quick calculation—he could get about 9,700 *shi* of rice! Converted, that was over 900 tons—by comparison, the total regular tax of Lingao County was less than 8,000 *shi*. The difference in agricultural productivity was staggering!
+In the end, Chang Shide capitulated. 1,000 *shi* of sugar was sold at 8 dollars per *shi*. Of the 8,000-dollar payment, the Vu Ngoc Giap side would pay 1,200 Spanish dollars in cash; the rest would be converted to rough rice at 0.5 taels per *shi*. Chang Shide did a quick calculation—he could get about 9,700 *shi* of rice! Converted, that was over 900 tons—by comparison, the total regular tax of Lingao County was less than 8,000 *shi*. The difference in agricultural productivity was staggering.
 
-Though he'd taken a small loss, he reflected that even selling in Guangzhou to the English at their purchase price of three *liang* eight *qian*, he would have earned far less. That was some consolation. Besides, shipping this rice to Leizhou at market prices would be worth 20,000 *liang* of silver. All in all, the profit was still considerable. It reminded him of playing *Uncharted Waters*, trading artwork and carpets between Athens and Istanbul.
+Though he'd taken a small loss, he reflected that even selling in Guangzhou to the English at their purchase price of 3.8 taels, he would have earned far less. That was some consolation. Besides, shipping this rice to Leizhou at market prices would be worth 20,000 taels of silver. All in all, the profit was still considerable. It reminded him of playing *Uncharted Waters*, trading artwork and carpets between Athens and Istanbul.
 
 The *Great Whale*, though it had better cargo capacity than other ships, could still only carry 300 tons fully loaded. And Bei Kai still needed to go find the Hongji coal mines. So for now, the grain would be stored in local granaries, to be loaded on the next ship.
 
@@ -36,7 +36,7 @@ The manager raised his eyelids. Apparently deciding that this dark, thin, unrema
 
 It was only when Chang Shide asked again that the manager answered.
 
-"Not far from here. Follow the coastline south, and by boat, you can get there in a day." The manager's face showed a strange expression. "What's so special about that black rock? If you need something to burn, we have firewood or charcoal on the estate. More than enough. Not to boast, but if the Shopkeeper wants a hundred or two hundred *shi*, we can provide it immediately."
+"Not far from here. Follow the coastline south, and by boat, you can get there in a day." The manager's face showed a strange expression. "What's so special about that black rock? If you need something to burn, we have firewood or charcoal on the estate. More than enough. Not to boast, but if the Shopkeeper wants 100 or 200 *shi*, we can provide it immediately."
 
 Chang Shide had wanted to ask for more details, or at least get a guide, but the manager stood up abruptly and walked out. Servants came to "see them off." The party was thus unceremoniously ejected.
 
@@ -46,7 +46,7 @@ The deal was done, and the returns were decent, but the whole thing felt off som
 
 "First order of business—exterminate this traitor family!" Chang Shide normally hated it when people threw around the word "traitor," but now his nationalist sentiments were in full eruption. "Those not of our kind must have different hearts! Traitors!"
 
-Zhang Dabala also cursed. "That Vu Ngoc Thanh has gotten so arrogant! One of his slaves dares to be this rude! Back in the day, when our big fleet came here, that old bastard came running to the dock to greet us, falling all over himself with wine, meat, and women. He even gave me a woman!" His tone suggested the fallen phoenix was worse than a chicken.
+Zhang Dabala also cursed. "That Vu Ngoc Giap has gotten so arrogant! One of his slaves dares to be this rude! Back in the day, when our big fleet came here, that old bastard came running to the dock to greet us, falling all over himself with wine, meat, and women. He even gave me a woman!" His tone suggested that a fallen phoenix was worse off than a chicken.
 
 Chang Shide asked, "Your fleet came to Vietnam too?"
 
@@ -86,7 +86,7 @@ What Bei Kai was looking for was a rocky hill called "Poetry Mountain." It was l
 
 "What 'Poetry Mountain'? Just call it Cat Ear Mountain. Much more descriptive!" Chang Shide scoffed at the explanation.
 
-Cat Ear Mountain was soon located using the compass and map. It was over 400 meters high, very conspicuous among the surrounding hills. In another spacetime, the Hongji Coal Mining Corporation headquarters would be built around the base of this mountain along the coast. When the French first withdrew, Hongji City stretched two kilometers from east to west with 30,000 inhabitants—a substantial mining city.
+Cat Ear Mountain was soon located using the compass and map. It was over 400 meters high, very conspicuous among the surrounding hills. In another timeline, the Hongji Coal Mining Corporation headquarters would be built around the base of this mountain along the coast. When the French first withdrew, Hongji City stretched two kilometers from east to west with 30,000 inhabitants—a substantial mining city.
 
 Here and now, there was nothing. Only grass and trees swaying in the sea breeze. Hongji had a natural harbor. That's why it became the mining company's headquarters site.
 

@@ -1,8 +1,8 @@
-# Chapter 282: Sweet Port Turbulence — Vietnamese Rice
+# Chapter 282: Sweet Port Turbulence – Vietnamese Rice
 
 Zhang Dabala didn't know where they were going either. The Quang Ninh area wasn't a pirate target. Only those small-time sea bandits who were neither Vietnamese nor Chinese—part-time fishermen who also robbed fishermen—had any interest in operating here. Zhang Dabala looked down on that lot. From him, Chang Shide confirmed a principle: every social group had its hierarchy.
 
-Still, Zhang Dabala was familiar with the waters in this area. When starting out in his career, whenever things got too hot, he'd slip away to Jiangping to lie low for a while. This place sat right on the Sino-Vietnamese border, technically under Vietnamese jurisdiction, populated by fishing folk who were half-fishermen, half-bandits.
+Still, Zhang Dabala was familiar with the waters in this area. When starting out in his career, whenever things got too hot, he'd slip away to Jiangping to lie low for a while. This place sat right on the Sino-Vietnamese border, technically under Vietnamese jurisdiction, populated by people who were half-fishermen, half-bandits.
 
 This was when the first dispute arose. Bei Kai wanted to go to Hongji—his mission was to find coal. Only then did Chang Shide learn he was from the prospecting team. Chang Shide, meanwhile, wanted to sell the sugar as quickly as possible. Though he knew nothing about ancient Vietnamese geography, Hongji clearly wouldn't have any sugar buyers.
 
@@ -16,25 +16,25 @@ Under Zhang Dabala's direction, the ship headed north. More vessels appeared on 
 
 "When they can't beat you, they're fishermen," Zhang Dabala spat. "Those monkeys have sharp eyes. If they can't rob you, they'll steal from you. They'll take anything."
 
-"What's the Lê dynasty's attitude toward Great Ming merchants?" This was Chang Shide's first foray into foreign trade, and he was nervous.
+"What's the Lê Dynasty's attitude toward Great Ming merchants?" This was Chang Shide's first foray into foreign trade, and he was nervous.
 
-"A document costs a thousand *liang* of silver a year—naturally they welcome us." Zhang Dabala was dismissive. He knew a bit about the Australian merchants' background and couldn't understand why, with guns, cannons, and iron ships, they were content to squat in Lingao playing landlord. "Let's go somewhere more remote. We probably won't have to pay that much there."
+"A document costs 1,000 taels of silver a year—naturally they welcome us." Zhang Dabala was dismissive. He knew a bit about the Australian merchants' background and couldn't understand why, with guns, cannons, and iron ships, they were content to squat in Lingao playing landlord. "Let's go somewhere more remote. We probably won't have to pay that much there."
 
 "Go where?"
 
 "What's with all the questions? You'll find out when we get there." Zhang Dabala waved his hand, showing no courtesy toward his boss.
 
-Still the same old pirate swagger. Chang Shide cursed silently. Then he suddenly grew worried—Zhang Dabala surely had plenty of former pirate associates. The thousand *shi* of sugar on the ship was worth several thousand *liang* of silver. What if he got ideas... He broke into a cold sweat, touched the pistol at his waist, and hurried off to find Bei Kai, whispering urgently about whether this fat black pirate could be trusted.
+Still the same old pirate swagger. Chang Shide cursed silently. Then he suddenly grew worried—Zhang Dabala surely had plenty of former pirate associates. The 1,000 *shi* of sugar on the ship was worth several thousand taels of silver. What if he got ideas... He broke into a cold sweat, touched the pistol at his waist, and hurried off to find Bei Kai, whispering urgently about whether this fat black pirate could be trusted.
 
 Bei Kai said, "Trustworthy or not, what can I do about it? Wasn't he recruited by the Foreign Affairs Ministry? We've got our New Army brothers on board—thirty or forty guns. Can't handle one of him? We're fine."
 
 Before long, a town appeared on the coastline. It looked quite similar to a small Chinese county seat, but without walls. This seemed to be the mouth of a major river. Along the riverbank were stone wharves and wooden jetties, packed with vessels of all sizes. Some were clearly large ships from China.
 
-Zhang Dabala told everyone to stow the rifles and cannons below deck—there were Lê dynasty officials stationed here. Before they'd even docked, a small boat rowed over. A shifty-eyed, small-statured man in a blue-green official robe resembling a Great Ming official's, wearing an black gauze cap, scrambled aboard with remarkable agility. Zhang Dabala hurried over to meet him. The two jabbered at each other in a language no one understood. Then Zhang Dabala turned to Chang Shide.
+Zhang Dabala told everyone to stow the rifles and cannons below deck—there were Lê Dynasty officials stationed here. Before they'd even docked, a small boat rowed over. A shifty-eyed, small-statured man in a blue-green official robe resembling a Great Ming official's, wearing a black gauze cap, scrambled aboard with remarkable agility. Zhang Dabala hurried over to meet him. The two jabbered at each other in a language no one understood. Then Zhang Dabala turned to Chang Shide.
 
-"He says he can register our ship under another Chinese ship that's already paid its fees. Only costs two hundred Spanish dollars."
+"He says he can register our ship under another Chinese ship that's already paid its fees. Only costs 200 Spanish dollars."
 
-"Damn, crows are the same black everywhere." Chang Shide cursed. Seeing the big man's unfriendly expression, the Lê official couldn't help puffing out his small chest and adjusting his black gauze cap to display his "authority."
+"Damn, crows are black everywhere." Chang Shide cursed. Seeing the big man's unfriendly expression, the Lê official couldn't help puffing out his small chest and adjusting his black gauze cap to display his "authority."
 
 "Fine, pay him. Are there any other fees?" Chang Shide knew that unless he brought a fleet to bombard this place, there was no way he'd get ashore without paying.
 
@@ -42,9 +42,9 @@ Zhang Dabala told everyone to stow the rifles and cannons below deck—there wer
 
 "Son of a—" Chang Shide's cursing upgraded. But this was actually good—at least they could save some money. "Deal."
 
-Zhang Dabala turned and haggled with him some more. In the end, they closed at 310 Spanish dollars—the larger share for private kickbacks, the smaller share for actual taxes. As for what goods were on the ship and what they planned to take away, this monkey-in-a-man's-clothes official didn't care. Not only that—he even issued entry and exit bills of lading, all written in Chinese. Everyone seemed happy, except the Lê dynasty government.
+Zhang Dabala turned and haggled with him some more. In the end, they closed at 310 Spanish dollars—the larger share for private kickbacks, the smaller share for actual taxes. As for what goods were on the ship and what they planned to take away, this monkey-in-a-man's-clothes official didn't care. Not only that—he even issued entry and exit bills of lading, all written in Chinese. Everyone seemed happy, except the Lê Dynasty government.
 
-Thereupon the ship entered the harbor. According to Zhang Dabala, this place was called Hai Duong. It was a naturally formed trading port where Chinese merchants frequently came to trade. They brought large quantities of salt, porcelain, sugar, cloth, ironware, and all sorts of other goods, and took away mainly raw silk and betel nuts.
+The ship entered the harbor. According to Zhang Dabala, this place was called Hai Duong. It was a naturally formed trading port where Chinese merchants frequently came to trade. They brought large quantities of salt, porcelain, sugar, cloth, ironware, and all sorts of other goods, and took away mainly raw silk and betel nuts.
 
 Chang Shide asked curiously, "How do you know all these ins and outs?"
 
@@ -72,7 +72,7 @@ Chang Shide and Bei Kai went ashore under Zhang Dabala's guidance, accompanied b
 
 Chang Shide couldn't help but think again of his old Vietnam vacation plan, tragically killed by his wife at the planning stage.
 
-Chang Shide had no interest in sightseeing. He was a stranger here and could only trust Zhang Dabala. He inquired at several trading houses about sugar prices. The going rate was between seven and eight *liang*. Then he asked at a grain trading house—rice was five *qian* per *shi*. He was absolutely satisfied with these prices. But then he immediately discovered a critical problem: local trading houses operated on credit. After delivering the sugar, they wouldn't settle accounts until the following year. But buying rice required cash.
+Chang Shide had no interest in sightseeing. He was a stranger here and could only trust Zhang Dabala. He inquired at several trading houses about sugar prices. The going rate was between 7 and 8 taels. Then he asked at a grain trading house—rice was 0.5 taels per *shi*. He was absolutely satisfied with these prices. But then he immediately discovered a critical problem: local trading houses operated on credit. After delivering the sugar, they wouldn't settle accounts until the following year. But buying rice required cash.
 
 Moreover, the merchants at these trading houses looked at his unfamiliar face with obvious distrust, taking forever to answer any question.
 
@@ -84,7 +84,7 @@ Zhang Dabala said, "Shopkeeper Chang doesn't necessarily need silver. Rice would
 
 "That's right. I came mainly to buy rice," Chang Shide said.
 
-"That's easy then," Zhang Dabala said. "Hai Duong is a small place. Apart from Great Ming merchants, probably no one can come up with eight thousand *liang* of silver. But there are quite a few local landowners who can produce rice for trade. Just swap the sugar directly with them."
+"That's easy then," Zhang Dabala said. "Hai Duong is a small place. Apart from Great Ming merchants, probably no one can come up with 8,000 taels of silver. But there are quite a few local landowners who can produce rice for trade. Just swap the sugar directly with them."
 
 "Would they be willing?"
 
@@ -92,7 +92,7 @@ Zhang Dabala said, "Shopkeeper Chang doesn't necessarily need silver. Rice would
 
 So they rested briefly at a tea house on the street corner and replenished their water. Zhang Dabala said that next they'd need to go about seven or eight *li* inland, where there was an estate belonging to a major local landlord named Vu Ngoc Giap.
 
-"Vu Ngoc Giap's ancestors were also Chinese," Zhang Dabala explained. "I hear they came here to escape the chaos at the end of the Yuan dynasty. They've been here for over three hundred years now. His family has vast lands and maintains several thousand retainers. Even the so-called Lê dynasty emperor treats him with great courtesy."
+"Vu Ngoc Giap's ancestors were also Chinese," Zhang Dabala explained. "I hear they came here to escape the chaos at the end of the Yuan Dynasty. They've been here for over three hundred years now. His family has vast lands and maintains several thousand retainers. Even the so-called Lê Dynasty emperor treats him with great courtesy."
 
 "Ridiculous pretension! Only the Great Ming has the right to call its ruler Emperor!" Chang Shide was already in a bad mood, and now he exploded.
 
@@ -141,15 +141,11 @@ Zhang Dabala said quietly, "Don't worry, Shopkeeper. That's one of Vu Ngoc Giap'
 "Shopkeeper Chang, those two pisses you took just now were on Vu Ngoc Giap's land."
 
 "..." Chang Shide was instantly deflated. This landlord's style was truly something.
+
 The elephant rider wore black clothing and a conical hat, carrying a long whip. Though small, he looked quite imposing. Behind him followed over a dozen black-clad retainers.
+
 Zhang Dabala ran over and seemed to be talking. After a while, he came back and said, "The manager invites the Shopkeeper to come sit at the estate. This is promising!"
 
 Though he still had doubts about Zhang Dabala's reliability, with things at this point, he couldn't very well say there might be security concerns and refuse to go. So he steeled himself and went along.
 
 Chang Shide's party was led by the manager to an estate. The estate had a somewhat odd Chinese-style courtyard—carved beams and painted rafters, quite elaborate, but somehow not quite right. Neither Chang Shide nor Bei Kai received the expected lavish hospitality. They waited until their tea had gone tasteless before a middle-aged man appeared, looking respectable enough. After communicating through Zhang Dabala, Chang Shide learned this person was merely a household steward. He couldn't help feeling slighted—after all, he was now a major figure shouldering responsibilities for the Transmigration Collective, and he couldn't even get an audience with some Vietnamese country squire?!
-
-***
-**Note:**
-The following content is outside the 4000-word subscription limit.
-Due to insufficient historical sources on ancient Vietnam, all details about Vietnamese history in this and subsequent chapters are largely conjecture.
-Whether Hai Phong was called Hai Duong remains to be verified; the general location is similar.

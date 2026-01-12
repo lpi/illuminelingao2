@@ -1,4 +1,4 @@
-# Chapter 279: Sweet Port Turbulence — Countermeasures
+# Chapter 279: Sweet Port Turbulence – Countermeasures
 
 "Speaking of utilizing molasses, making industrial alcohol is actually a bit wasteful. We could brew spirits instead. Several distilleries in Xuwen already use it for that."
 
@@ -24,17 +24,17 @@ None of the people enthusiastically discussing sugarcane by-product utilization 
 
 ***
 
-Hai'an Street, the Sugar Trade Guild Hall—Haiyi Hall.
+Hai'an Street, the Sugar Trade Guild Hall—the Haiyi Guild.
 
 This building, with its green stone gatehouse and rich Guangdong atmosphere, occupied a prominent position on Hai'an Street. Hai'an Street was famous as "Sweet Port," and the ones who controlled this "Sweet Port," almost completely monopolizing Leizhou's sugar exports, were precisely the merchants inside this hall. The vast majority of them came from the Chaozhou and Guangfu regions of Guangdong. Geographical proximity plus the bonds of shared interests made the sugar merchants here extremely united, jointly protecting this hard-won domain.
 
-Ever since the South China Sugar Factory's chimney had begun belching black smoke, these sensitive merchants seemed to have caught a whiff of change in the air. They grew restless. In teahouses, in restaurants, in every trading house's back office, there was always the sound of hushed whispers.
+Ever since the South China Sugar Factory's chimney had begun billowing black smoke, these sensitive merchants seemed to have caught a whiff of change in the air. They grew restless. In teahouses, in restaurants, in every trading house's back office, there was always the sound of hushed whispers.
 
 Everyone felt something should be done, but no one knew what. Even those who had resolved to deal with the situation by not reacting at all felt somewhat lost, always feeling that someone should come forward to affirm their strategy.
 
-Now, the managers and senior staff of these trading houses had all gathered in the hall's reception room. This tall, bright hall, with its fine materials and exquisite craftsmanship, had no equal in all of Leizhou Prefecture. Ordinarily at this time of year, the managers would gather here, sipping fine tea, nibbling on delicate snacks, sometimes accompanied by the soft singing of songstresses, to discuss the year's sugar prices. How much return a year of toil and sweat would bring for so many people was decided at gatherings like these toils.
+Now, the managers and senior staff of these trading houses had all gathered in the hall's reception room. This tall, bright hall, with its fine materials and exquisite craftsmanship, had no equal in all of Leizhou Prefecture. Ordinarily at this time of year, the managers would gather here, sipping fine tea, nibbling on delicate snacks, sometimes accompanied by the soft singing of songstresses, to discuss the year's sugar prices. How much return a year of toil and sweat would bring for so many people was decided at gatherings like these.
 
-At this moment, however, a strange sense of unease pervaded the hall. As usual, six "Eight Immortals" square tables had been set out, laden with various cold dishes, snacks, fine teas, and quality spirits. But today, these men who were usually so particular about food and drink had no appetite. The managers and senior staff of each trading house sat in silence. Some had eyes darting rapidly, as if calculating something; others sat calmly, looking unperturbed. Someone suddenly stood up, walked a few steps, then sat back down with a thump and began furiously fanning himself with his folding fan.
+At this moment, however, a strange sense of unease pervaded the hall. As usual, six square tables had been set out, laden with various cold dishes, snacks, fine teas, and quality spirits. But today, these men who were usually so particular about food and drink had no appetite. The managers and senior staff of each trading house sat in silence. Some had eyes darting rapidly, as if calculating something; others sat calmly, looking unperturbed. Someone suddenly stood up, walked a few steps, then sat back down with a thump and began furiously fanning himself with his folding fan.
 
 "It's only spring now—it's not that hot, is it?" A fat man, unable to bear his neighbor's gale, spoke up.
 
@@ -46,7 +46,7 @@ At this moment, however, a strange sense of unease pervaded the hall. As usual, 
 
 "Probably won't be fewer later either," the fat man said unhurriedly. "If they don't sell to your house, they'll sell to mine. Same price. What's there to fuss about?" The fat man was the manager of "Riyuelai."
 
-"I'm afraid of the South China Sugar Factory!" The young master swallowed. "Haven't you been to see their factory? Seeing it gives you nightmares! Those huge iron rollers—a person would be crushed to pulp if they went in! And that chimney that spews fire at night and smoke by day, like some ghost tree!"
+"I'm afraid of the South China Sugar Factory!" The young master swallowed. "Haven't you been to see their factory? Seeing it gives you nightmares! Those huge iron rollers—a person would be crushed to pulp if they went in! And that chimney breathing fire by night and smoke by day, like some ghostly tree!"
 
 The fat man said, "They make sugar, we sell sugar. What's it to us? Besides, the more sugar they make, the lower the price falls. That's good for us—"
 
@@ -60,7 +60,7 @@ This comment sparked a wave of hushed whispers. At this point, someone called ou
 
 "Third Master Zhu, you're our backbone. Give us some guidance on this!"
 
-The man called Third Master Zhu was past fifty, short in stature, but with none of the decadent air that came from indulgence in wine, women, and wealth. He emanated an aura of shrewdness and capability. His real name was Zhu An, and he was the third in his family's ranking. Everyone respectfully called him "Third Master Zhu," so much so that his real name was nearly forgotten. His family ran a sugar trading house called "Riyicheng" and owned over a dozen large ships of 200 *liao* or more, specifically for transporting sugar to various destinations. Since sugar was highly profitable and easily converted to cash, there were pirates on the sea who specialized in hijacking sugar ships. Third Master Zhu, as both a local trading house owner and a major ship owner, had organized the trading houses to pool funds and establish the trade guild "Haiyi Hall." They publicly discussed the sugar price each year, then from the profits, each house contributed according to size, a sum used for cultivating relations with officials and entertaining various local strongmen. Additionally, they recruited quite a few deserters from the naval forces at high wages to escort the ships. Since then, incidents of lost sugar shipments had dropped dramatically, and the nearby waters had become much more peaceful. This man was wise and decisive, maintaining good relations in both public and private spheres, with considerable local prestige. He was a leading figure here. The trading houses all followed his lead.
+The man called Third Master Zhu was past fifty, short in stature, but with none of the decadent air that came from indulgence in wine, women, and wealth. He emanated an aura of shrewdness and capability. His real name was Zhu An, and he was the third in his family's ranking. Everyone respectfully called him "Third Master Zhu," so much so that his real name was nearly forgotten. His family ran a sugar trading house called "Riyicheng" and owned over a dozen large ships of 200 *liao* or more, specifically for transporting sugar to various destinations. Since sugar was highly profitable and easily converted to cash, there were pirates on the sea who specialized in hijacking sugar ships. Third Master Zhu, as both a local trading house owner and a major ship owner, had organized the trading houses to pool funds and establish the trade guild "Haiyi Guild." They publicly discussed the sugar price each year, then from the profits, each house contributed according to size, a sum used for cultivating relations with officials and entertaining various local strongmen. Additionally, they recruited quite a few deserters from the naval forces at high wages to escort the ships. Since then, incidents of lost sugar shipments had dropped dramatically, and the nearby waters had become much more peaceful. This man was wise and decisive, maintaining good relations in both public and private spheres, with considerable local prestige. He was a leading figure here. The trading houses all followed his lead.
 
 Third Master Zhu hadn't said a word since the start, until someone called on him by name. Only then did he speak. "Guidance? What guidance do I have? They're running a legitimate sugarcane estate and sugar mill business. They're not breaking any laws up above, not disturbing the people down below. On what grounds would we meddle?"
 
@@ -104,7 +104,7 @@ This news was like cold water splashed into a pot of hot oil. The formerly lifel
 
 "They want to eat from our bowl, but they didn't even have the courtesy to come say hello. What kind of lawless people are in that South China Factory!"
 
-"Third Master Zhu, this won't do! For decades, all the sugar in Leizhou has been handled exclusively by the twenty-one houses of Haiyi Hall. If we let them break the rules, how will we survive here in the future?!"
+"Third Master Zhu, this won't do! For decades, all the sugar in Leizhou has been handled exclusively by the twenty-one houses of the Haiyi Guild. If we let them break the rules, how will we survive here in the future?!"
 
 "That's right, Third Master, say the word. Our twenty-one trading houses will spare no money or effort. We absolutely cannot let this South China Factory upset our situation!"
 
@@ -129,3 +129,5 @@ Third Master Zhu smiled. "In this matter, we can only use soft tactics, not hard
 "More or less," Third Master Zhu said vaguely. "Know your enemy, know yourself."
 
 Some impatient ones were already calling out, "Third Master, just tell us what to do!"
+
+**(End of Chapter)**

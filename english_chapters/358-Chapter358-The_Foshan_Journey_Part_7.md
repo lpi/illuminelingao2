@@ -1,12 +1,12 @@
 # Chapter 358 - The Foshan Journey (Part 7)
 
-She opened the cloth wrapping, and inside was indeed an Embroidered Spring Saber—a miniature one, apparently custom-made for her. "Pretty, isn't it? What a pity I don't have a small-size Flying Fish uniform to go with it. Wearing a Flying Fish uniform with this saber at my waist, standing duty before His Majesty—that would be glorious!"
+She opened the cloth wrapping, and inside was indeed an Embroidered Spring Saber—a miniature one, apparently custom-made for her. "Pretty, isn't it? What a pity I don't have a small-size Flying Fish Robe to go with it. Wearing a Flying Fish Robe with this saber at my waist, standing duty before His Majesty—that would be glorious!"
 
 Huang Tianyu shook his head. This girl was some kind of uniform fetishist?
 
 "I've heard His Majesty is a handsome and refined man..." Li Yongxun began daydreaming, her eyes growing misty. "If only I could stand duty before him, even just once. That would be worth dying for."
 
-"And then he'd notice you and select you for the palace..." Huang Tianyu recalled Ming-fangirl women he'd encountered before—quite a few had fantasized about becoming palace maids, attendants, or concubines to Chongzhen. Apparently such fangirls existed everywhere.
+"And then he'd notice you and select you for the palace..." Huang Tianyu recalled Ming-fangirls he'd encountered before—quite a few had fantasized about becoming palace maids, attendants, or concubines to Chongzhen. Apparently such fangirls existed everywhere.
 
 "If His Majesty were to take a fancy to me, naturally as a subject I would comply," Li Yongxun said dreamily. "But I'd be satisfied just standing duty before him."
 
@@ -14,7 +14,7 @@ Seeing her lovestruck expression, Huang Tianyu found it both amusing and endeari
 
 They ordered a boat bound for Foshan and had all the luggage moved aboard.
 
-Yang Shixiang had spent the night at a familiar establishment and returned just past midnight. When they set out this morning and he discovered that the singing girl Qianqian from yesterday had suddenly changed clothes and joined their party, he assumed Doctor Liu had been moved by lust and taken her in. Liu San didn't bother explaining, simply saying Qianqian was going to Foshan to visit relatives and they were doing a good deed by escorting her. Yang Shixiang even warned Liu San about picking up women of unknown origins, lest he fall victim to the "pigeon release" scam. Liu San smiled wryly and promised he'd be careful—"I don't want to bring her either!"
+Yang Shixiang had spent the night at a familiar establishment and returned just past midnight. When they set out this morning and he discovered that the singing girl Qianqian from yesterday had suddenly changed clothes and joined their party, he assumed Doctor Liu had been moved by lust and taken her in. Liu San didn't bother explaining, simply saying Qianqian was going to Foshan to visit relatives and they were doing a good deed by escorting her. Yang Shixiang even warned Liu San about picking up women of unknown origins, lest he fall victim to the "pigeon scam." Liu San smiled wryly and promised he'd be careful—"I don't want to bring her either!"
 
 Throughout the journey, Liu San instructed Gao Di to keep a close eye on Li Yongxun and watch for any mischief. Once aboard, Li Yongxun remained well-behaved and caused no trouble. She spent all her time in the cabin pestering Huang Tianyu to tell her about the world's wonders. Huang Tianyu, a former military enthusiast and shut-in, had no worldly tales to tell. He could only spin stories from travel forums he'd browsed in his netizen days, spinning wild tales to entertain her. Through their conversations, he also learned something about the girl—she was an only child, her mother had died early, and she'd been raised by her father alone. This "elopement to resist marriage" was also her way of protesting her father's failure to consult her. But to Huang Tianyu's eyes, she showed none of the grim determination of someone defying an arranged marriage. It seemed more like she'd found an excuse to go traveling for fun.
 
@@ -38,7 +38,7 @@ Huang Tianyu hired two sedan chairs to send Li Yongxun off. This time she made n
 
 The steward expressed his thanks and asked where they were staying, then saw them out.
 
-Huang Tianyu had barely returned to the inn when someone arrived bearing six gift boxes. They came from that very household. Yang Shixiang seemed quite pleased:
+Huang Tianyu had barely returned to the inn when someone arrived bearing six gift boxes. They came from that very household. Yang Shixiang seemed quite pleased.
 
 "That family certainly knows proper etiquette." He picked up the accompanying card. "There's also an invitation—apparently they value this young lady highly and want to host us for a meal."
 
@@ -82,6 +82,4 @@ So the Yang family had originally come from Liaodong—this surprised Liu San co
 
 "Whole Deer," Yang Shixiang said. "Such things aren't easy to obtain. They must be live deer, kept until autumn when the medicine is compounded, then slaughtered. Someone must tend them daily. My father thought about it too, but buying and raising deer is so expensive that a small shop like ours couldn't sustain it."
 
-They ascended the stone steps. Above the main hall hung a black plaque with vermillion characters proclaiming the shop name: "Yang Runkai Hall—De Branch." Below it, two more hanging plaques with gold characters on black background read "Authentic Medicinals" and "Traditional Preparation Methods." The rear wall on both sides was lined with honeycomb-style herb cabinets and drawers, their lacquer polished to a glossy black. The shop counter ran horizontally across the center of the hall. Above the cabinets were additional carved decorative shelves displaying blue-and-white porcelain jars containing pills, powders, ointments, elixirs, and medicinal wines. Above these hung various seated plaques with inscriptions like "Efficacious as Promised," "Scouring Mountains and Seas," and "Hidden Sage of the Marketplace"... The décor was extremely lavish and elegant—a world apart from Yang Shixiang's Runshitang. Even in modern times, no Chinese medicine shop came close to this grandeur. Liu San couldn't help but marvel.
-
-(End of Chapter)
+They ascended the stone steps. Above the main hall hung a black plaque with vermillion characters proclaiming the shop name: "Yang Runkai Hall—De Branch." Below it, two more hanging plaques with gold characters on black background read "Authentic Medicinals" and "Traditional Preparation Methods." The rear wall on both sides was lined with honeycomb-style herb cabinets and drawers, their lacquer polished to a glossy black. The shop counter ran horizontally across the center of the hall. Above the cabinets were additional carved decorative shelves displaying blue-and-white porcelain jars containing pills, powders, ointments, elixirs, and medicinal wines. Above these hung various seated plaques with inscriptions like "Efficacious as an Echo," "Scouring Mountains and Seas," and "Sage of the Marketplace"... The décor was extremely lavish and elegant—a world apart from Yang Shixiang's Runshitang. Even in modern times, no Chinese medicine shop came close to this grandeur. Liu San couldn't help but marvel.

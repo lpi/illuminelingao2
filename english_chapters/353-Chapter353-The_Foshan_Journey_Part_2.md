@@ -8,11 +8,11 @@ Early the next morning, Liu San met up with the Industry Committee representativ
 
 The servants assigned to attend them were two boys of thirteen or fourteen—hard to imagine these youngsters were future intelligence operatives. One of them was Gao Di.
 
-Gao Di had organized an intelligence network in Guangzhou centered on the children of servants in the Gao household. As the situation in Guangzhou grew larger, this network became increasingly less useful. His advantages—familiarity with the Gao household servants and knowledge of the Haobanpo Street environment—were gradually becoming obsolete. Gao Di's activities had become too conspicuous, making Gao Ju and some others wary of him, which reduced the network's effectiveness.
+Gao Di had organized an intelligence network in Guangzhou centered on the children of servants in the Gao household. As the situation in Guangzhou grew larger, this network became increasingly less useful. His advantages—familiarity with the Gao household servants and knowledge of the Haopan Street environment—were gradually becoming obsolete. Gao Di's activities had become too conspicuous, making Gao Ju and some others wary of him, which reduced the network's effectiveness.
 
 Meanwhile, Guo Yi's own intelligence system was gradually taking shape. From an intelligence perspective, Gao Di's value had diminished significantly. Guo Yi felt that while Gao Di was clever and reasonably reliable, he had never received the transmigrator group's ideological education and his professional skills were low. Someone like him—native-born with a gang of younger followers—could become unpredictable if allowed to continue operating freely in Guangzhou.
 
-Add to that his perpetually unreliable father, and Guo Yi simply reported to the Executive Committee: relocate the entire family to Lingao. The couple was settled into Bairren Commune to work, Gao Lujie was assigned to Wang Luobin as a "secretary," and after completing his literacy education, Gao Di joined the intelligence training class as a student.
+Add to that his perpetually unreliable father, and Guo Yi simply reported to the Executive Committee: relocate the entire family to Lingao. The couple was settled into Bairen Commune to work, Gao Lujie was assigned to Wang Luobin as a "secretary," and after completing his literacy education, Gao Di joined the intelligence training class as a student.
 
 Yang Shixiang had also brought two servants. Liu San introduced Huang Tianyu as a friend of his—a ceramics merchant who was also going to Foshan and wanted to travel together for company. He pointed out that having more people on the road would be both livelier and safer. Yang Shixiang readily agreed.
 
@@ -22,13 +22,13 @@ With nothing eventful happening during the journey, Yang Shixiang discussed the 
 
 The Chinese medicine business had always been extremely profitable in the past. Though medicinal ingredients numbered many varieties, apart from a few rare herbs, most were rough goods purchased by the *jin*. After processing at the apothecary, they were sold by the *liang* or *hao*. The gross profit margin was enormous. For common decocted herbs, the margin was never below sixty percent. For ginseng, deer antler, and other tonics, the more expensive the product, the more money one made—margins exceeded two hundred percent. So the pharmacy business, unless poorly managed, made it easy to grow rich.
 
-However, running an apothecary required substantial capital—it was what they called a capital-intensive trade. A typical apothecary stocked between eight hundred and a thousand types of herbs, selected primarily according to the *Comperta of Materia Medica*—which was already quite popular in this era. Even the smallest apothecary needed at least three hundred common medicines in stock.
+However, running an apothecary required substantial capital—it was what they called a capital-intensive trade. A typical apothecary stocked between eight hundred and a thousand types of herbs, selected primarily according to the *Compendium of Materia Medica*—which was already quite popular in this era. Even the smallest apothecary needed at least three hundred common medicines in stock.
 
 After procurement, herbs had to undergo various preparations according to requirements, consuming considerable labor. Some herbs couldn't be used in the year of purchase and had to be stored for a period ranging from months to years. Unlike other businesses, an apothecary couldn't afford to be short on items—completeness of inventory was paramount. So substantial apothecaries would go directly to the drug markets to procure supplies, purchasing one to two years' worth of several hundred common varieties at once. Larger establishments maintained enormous warehouses specifically to stockpile various herbs, sometimes storing years' worth of supplies. Such large herbal inventories tied up tremendous capital, which meant that even opening a small apothecary required at least two or three hundred taels to get started.
 
 "So opening an apothecary isn't easy after all."
 
-"Easy in some ways. If your ancestors built a solid foundation, as long as you run things conscientiously and avoid natural disasters or man-made calamities, you can't help but make money." Yang Shixiang sighed. "This Runshitang of mine may look modest and quiet, with barely a ghost coming through the door, but if sea pirates hadn't seized a whole boatload of our medicine years ago and devastated our capital, things wouldn't have gotten so bad that I need to consult others just to compound a bit of musk and borneol."
+"Show me an easy trade. If your ancestors built a solid foundation, as long as you run things conscientiously and avoid natural disasters or man-made calamities, you can't help but make money." Yang Shixiang sighed. "This Runshitang of mine may look modest and quiet, with barely a ghost coming through the door, but if sea pirates hadn't seized a whole boatload of our medicine years ago and devastated our capital, things wouldn't have gotten so bad that I need to consult others just to compound a bit of musk and borneol."
 
 Seeing he had opened up, Liu San took the opportunity to ask about "Liaodong goods."
 
@@ -69,5 +69,3 @@ Liu San thought: since his objective was Foshan, it didn't matter whether he ent
 The clerk wrote out a slip and tore it off, then immediately called over a waiting junior attendant: "Find three sedan chairs and take these gentlemen to the Tongji Bridge Inn. Also arrange for a porter to help with their luggage!"
 
 The Qiwei Inn's Tongji Bridge location was not far from the pier and close to the main road to Foshan. Upon entering, everyone felt this place was quite different—completely unlike the traditional inn layout centered on courtyards; it resembled a modern hotel instead.
-
-(End of Chapter)

@@ -4,21 +4,23 @@ Taking in a maid wasn't a big deal. If she was really as good as she said, then 
 
 "Alright, tell her to come over tomorrow and we'll see," Wen Tong said nonchalantly.
 
-"Thank you, Master, for your grace!" A-Zhu arched her body fawningly, slowly sliding down towards Wen Tong's crotch. She gently bit onto that manhood and gave it a slight lick with the tip of her tongue. He shuddered all over and immediately stood erect again.
+"Thank you, Master, for your grace!" Ah Zhu arched her body fawningly, slowly sliding down towards Wen Tong's crotch. She gently took him into her mouth and gave a slight lick with the tip of her tongue. He shuddered all over and immediately stood erect again.
 
-*I'll have to teach her some fresh tricks later.* Wen Tong's consciousness gradually blurred under the tip of A-Zhu's tongue; this thought flashed through his mind before he sank into the climax of bliss.
+*I'll have to teach her some fresh tricks later.* Wen Tong's consciousness gradually blurred under the sensation; this thought flashed through his mind before he sank into the climax of bliss.
+
+***
 
 "The Dean is making rounds!"
 
-As soon as the Head Nurse's high-pitched voice rang out in the corridor, every ward and office of Bairen General Hospital tensed up. This was the routine Dean’s rounds every Monday morning. All chief physicians had to attend. The first batch of Health School graduates, who had just been capped and promoted to nurses, and their juniors—the second batch of Health School interns—hurriedly opened the ward doors and stood in the corridor. Holding their breath and concentrating, they stood respectfully, awaiting the arrival of the figure who was like a god in their hearts.
+As soon as the Head Nurse's high-pitched voice rang out in the corridor, every ward and office of Bairen General Hospital tensed up. This was the routine Dean’s Grand Rounds every Monday morning. All chief physicians had to attend. The first batch of Health School graduates, who had just been capped and promoted to nurses, and their juniors—the second batch of Health School interns—hurriedly opened the ward doors and stood in the corridor. Holding their breath and concentrating, they stood respectfully, awaiting the arrival of the figure who was like a god in their hearts.
 
 As the main door of the Chief's Office building opened, Shi Niaoren walked out, one hand in the pocket of his brand-new white coat, his broad shoulders and imposing figure leading the procession. A step behind him were the department chiefs. Each with a taut face, their white medical coats ironed crisp and straight—ironing clothes for the chief physicians was one of the duties of the nurses at Bairen General Hospital—and stethoscopes hanging around their necks, shining brightly.
 
-"Good morning, Doctor!" Led by Head Nurse Zhang Ziyi, all nurses and interns bowed and greeted in unison. Although the scene was small, it was quite spectacular.
+"Good morning, Doctors!" Led by Head Nurse Zhang Ziyi, all nurses and interns bowed and greeted in unison. Although the scene was small, it was quite spectacular.
 
 "Good morning. Thank you for your hard work!" Shi Niaoren nodded. The chiefs always felt a bit gloomy at this moment—after all, there was only one person who could say "Comrades, thank you for your hard work." The inspection team was customarily led by Shi Niaoren, the highest-ranking People's Commissar of Health and Dean of Bairen General Hospital. Shi Niaoren held the titles of a US-educated Ph.D. and Professor of Infectious Diseases, occupying a high position even in this new timeline.
 
-The entire inpatient building had three floors. The first and second floors were ordinary wards, with ten rooms on each floor and six beds per room. The third floor was the "High Cadre" ward—actually reserved for transmigrators. It also had ten rooms, but only three beds each.
+The entire inpatient building had three floors. The first and second floors were ordinary wards, with ten rooms on each floor and six beds per room. The third floor was the "Senior Cadre Ward"—actually reserved for transmigrators. It also had ten rooms, but only three beds each.
 
 Currently, about thirty people were admitted to the ordinary wards, mostly with muscle contusions, fractures, traumatic infections, and common illnesses like upper respiratory infections with fever or acute gastroenteritis. In recent days, a batch of wounded had been admitted—sailors and artillerymen from the *Great Whale* injured in the Battle of Juhua Islet. They mostly suffered from minor burns and puncture wounds from iron shrapnel.
 
@@ -46,11 +48,11 @@ Hou Qing looked thin and small. In the other timeline, she would likely be consi
 
 "Shame, shame to death—" The girl actually covered her face, looking like she was about to cry.
 
-It turned out that to avoid patients biting off thermometers, temperatures here were taken rectally. In other words, the nurse had to "sodomize" the patient.
+It turned out that to avoid patients biting off thermometers, temperatures here were taken rectally. In other words, the nurse had to "violate" the patient's rear.
 
-It was certain that patients weren't used to it, but asking these young women born in an era where "men and women should not touch" to "sodomize" a grown man they had never met was even more difficult.
+It was certain that patients weren't used to it, but asking these young women born in an era where "men and women should not touch" to perform such an act on a grown man they had never met was even more difficult.
 
-Initially, there was a suggestion to start with a male nurse system, but Shi Niaoren rejected it outright: "You all know very well: medical workers have no gender! If they can't even step over this threshold, what's the point of talking about training qualified indigenous health talents?"
+Initially, there was a suggestion to start with a male nurse system, but Shi Niaoren rejected it outright: "You all know very well: medical workers have no gender! If they can't even step over this threshold, what's the point of talking about training qualified indigenous medical personnel?"
 
 Of course, such things couldn't be achieved overnight. Nine out of ten new students couldn't accept it at first. They had to be educated slowly. Shi Niaoren sighed and said to Zhang Ziyi:
 
@@ -64,7 +66,7 @@ Every ward round would uncover some problems, more or less. Either basic tempera
 
 After scolding the nurse who made the mistake and watching her correct it on the spot, Shi Niaoren exhaled: *There is progress.* At least the nurses no longer knelt on the ground begging for his "mercy" as soon as they heard his reprimand like in the past. Instilling modern medical concepts was truly a heavy responsibility with a long way to go.
 
-After visiting the ordinary wards, the group arrived at the High Cadre ward, where only two people were staying.
+After visiting the ordinary wards, the group arrived at the Senior Cadre Ward, where only two people were staying.
 
 "You Laohu, Army Company Commander. Acute enteritis," reported the nurse on duty, Guo Fu.
 
@@ -104,7 +106,7 @@ He had said this several times over the past few days. Shi Niaoren shook his hea
 
 "Fine, I'm scared of you," he said. "Get discharged after the shot." Leaving the ward, he called Zhang Ziyi over:
 
-"Give him an injection of sodium chloride solution. Make it hurt a bit! Just tell him it's serum."
+"Give him an injection of saline. Make it hurt a bit! Just tell him it's serum."
 
 Having dealt with this matter, Shi Niaoren returned to his Dean's office and lit a cigarette—as a doctor, he didn't need to smoke "Holy Ship" brand cigarettes. All the heavy smokers in the health department smoked filter cigarettes brought from the other timeline. Naturally, these were gifts from grateful patients.
 
@@ -132,6 +134,6 @@ Medical record formats had to be handwritten by doctors personally to serve as m
 
 As for the laboratory center, Shi Niaoren hoped to expand it—to be able to perform medical testing, disease prevention, compile disease prevention manuals, and formulate reasonable disease control strategies. However, a disease prevention and control system required administrative power for support; it would have to wait until the organizational framework was decided.
 
-Finally, there was the matter of the pharmaceutical factory starting production. This matter could be said to create no delay. The glass factory could now provide them with enough specialized equipment. The bacterial strains brought by He Ping's wife were still in the laboratory. these things couldn't be stored for long and had to be put into production as soon as possible. Chemical pharmaceuticals couldn't be counted on for the time being...
+Finally, there was the matter of the pharmaceutical factory starting production. This matter could be said to create no delay. The glass factory could now provide them with enough specialized equipment. The bacterial strains brought by He Ping's wife were still in the laboratory. These things couldn't be stored for long and had to be put into production as soon as possible. Chemical pharmaceuticals couldn't be counted on for the time being...
 
 "Dean, everyone is here. Shall we start?"

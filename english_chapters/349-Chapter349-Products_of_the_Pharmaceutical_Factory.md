@@ -16,15 +16,15 @@ The whole scene looked very strange, neither sci-fi nor fantasy, but like a mad 
 
 "Is this safe or not?" He muttered. Chinese medicine injection ingredients were unclear with many impurities; injecting normally into the human body like this, once an allergic reaction occurred, even resuscitation couldn't be done.
 
-Hu Yicheng saw his thoughts, "Oral concentrated liquid. Drinking it causes diarrhea at most; it definitely won't kill anyone."
+Hu Yicheng saw his thoughts. "Oral concentrated liquid. Drinking it causes diarrhea at most; it definitely won't kill anyone."
 
 "I just feel it's risky, so I worry." Shi Niaoren sighed.
 
-"After distilling this batch, we prepare to make Bupleurum Injection. The difficulty is somewhat smaller. Liu San dried a lot in the yard. Very effective for fever and colds."
+"After distilling this batch, we prepare to make Bupleurum Injection. The difficulty is somewhat smaller. Liu San dried a lot of it in the yard. Very effective for fever and colds."
 
 "But this set of equipment is a bit low in efficiency."
 
-Liu San walked out from inside: "Already ordered another set. Being made in the glass factory. This time heating plans to use steam heating. Much more efficient than burning alcohol lamps here, and temperature is easy to control too. Minister, come sit in my room."
+Liu San walked out from inside. "Already ordered another set. Being made in the glass factory. This time heating plans to use steam heating. Much more efficient than burning alcohol lamps here, and temperature is easy to control too. Minister, come sit in my room."
 
 Saying this, he led him into his Traditional Chinese Medicine pharmaceutical workshop.
 
@@ -36,7 +36,7 @@ Shi Niaoren sniffed the medicinal smell filling the air and found a stool to sit
 
 "This is Hemostatic Powder," Liu San picked up a small porcelain bottle, "Made from Japanese Thistle (*Cirsium japonicum*). Function is cooling blood and stopping bleeding: used for bleeding syndromes caused by blood heat reckless movement, such as hematemesis, epistaxis, metrorrhagia, hematuria, etc.; dispersing stasis, detoxifying and subsiding swelling: used for heat toxin carbuncle and swelling, oral administration or external application..."
 
-"Alright, alright, stop reciting your Chinese medicine books." Shi Niaoren looked skeptically. He knew Chinese medicine had a characteristic wherein almost every medicinal material could list a huge pile of "effective against so-and-so symptoms", but actually very few could truly play a key role, "Does it work?"
+"Alright, alright, stop reciting your Chinese medicine books." Shi Niaoren looked skeptically. He knew Chinese medicine had a characteristic wherein almost every medicinal material could list a huge pile of "effective against so-and-so symptoms", but actually very few could truly play a key role. "Does it work?"
 
 "Of course it works. Field bleeding, immediately find Japanese Thistle water decoction for oral administration, effective immediately. Crushing for external application also stops bleeding."
 
@@ -48,17 +48,17 @@ Shi Niaoren thought there probably was some component inside that could reduce b
 
 "This is Gastritis Pill, treating stomach pain, acid reflux, gastric ulcer, and duodenal ulcer, etc. Main ingredient is Cuttlebone. I got it from the seafood processing factory. Can also make hemostatic medicine; treating knife wounds is very effective."
 
-"This is Pig Bile Pill." Liu San said, "treats many things, but I know Dean, you aren't interested in these. However, there is one use you will definitely think is useful."
+"This is Pig Bile Pill." Liu San said, "It treats many things, but I know Dean, you aren't interested in these. However, there is one use you will definitely think is useful."
 
 "Oh? What."
 
 "Stopping cough." Liu San said, "Pig bile powder's cough-stopping effect has passed pharmacological tests. Can also treat night blindness."
 
-"Opium Tincture." Liu San took out another bottle with a danger mark, "Can be used for suppressing cough, stopping diarrhea, and relieving pain."
+"Opium Tincture." Liu San took out another bottle with a danger mark. "Can be used for suppressing cough, stopping diarrhea, and relieving pain."
 
 "How about addictiveness?"
 
-Liu San spread his hands: "Hard to say; needs animal experiments. But I studied with Dean Zhao and Little Hu, and also flipped through medical books; made completely according to pharmacopoeia requirements. Harmfulness won't be too big; just control usage."
+Liu San spread his hands. "Hard to say; needs animal experiments. But I studied with Dean Zhao and Little Hu, and also flipped through medical books; made completely according to pharmacopoeia requirements. Harmfulness won't be too big; just control usage."
 
 "Don't make it in the form of a panacea." Shi Niaoren instructed, "Divide into three varieties. Diarrhea and pain relief medicine are best made into tablets—easy to take; cough medicine made into syrup. Regardless of which medicine, while ensuring efficacy, minimize opium content to avoid producing addiction."
 
@@ -74,7 +74,7 @@ Shi Niaoren looked; inside the box was a kind of semi-withered leaf, rolled into
 
 "Mmh..." Shi Niaoren almost vomited on the spot.
 
-"Rest assured, won't get addicted." Liu San laughed mischievously, "Or at most as addictive as betel nut."
+"Rest assured, won't get addicted." Liu San laughed mischievously. "Or at most as addictive as betel nut."
 
 Shi Niaoren of course knew that in South America, chewing Coca leaves could count as a "national habit". Indians used it to refresh their minds, eliminate fatigue, and increase strength; also used to ward off cold, cure diseases, relieve discomfort caused by stomach cramps, rheumatism, headaches, etc. It was a mass pastime item.
 
@@ -84,9 +84,9 @@ Shi Niaoren of course knew that in South America, chewing Coca leaves could coun
 
 "Coca leaves can also make medicine." Liu San said, "Using this to replace cigarettes as a pastime for the army and laborers, wouldn't it be better."
 
-"This—" Shi Niaoren thought this was too awesome. However, Coca leaves indeed had a strong spirit-invigorating effect, truly useful for the army and laborers, "Is it a bit too much." After all, Coca leaf was also a soft drug. Although addictiveness wasn't strong.
+"This—" Shi Niaoren thought this was too awesome. However, Coca leaves indeed had a strong spirit-invigorating effect, truly useful for the army and laborers. "Is it a bit too much." After all, Coca leaf was also a soft drug. Although addictiveness wasn't strong.
 
-"Amphetamine was prepared by Yankees for soldiers in World War III back then; people were much more universal-value than us. Coca leaf isn't as toxic as Amphetamine." Saying this he took out a bottle from behind again. Poured Shi Niaoren a full cup of dark liquid, "Try drinking."
+"Amphetamine was prepared by Yankees for soldiers in World War III back then; they were much bigger believers in 'universal values' than us. Coca leaf isn't as toxic as Amphetamine." Saying this he took out a bottle from behind again. Poured Shi Niaoren a full cup of dark liquid. "Try drinking."
 
 "What is this?" Shi Niaoren suddenly became alert.
 
@@ -106,19 +106,19 @@ Willow bark has been a commonly used antipyretic and analgesic in Europe and Asi
 
 Aspirin was chemically synthesized; for the transmigrators' chemical level, it was still too early. But extracting effective components from willow bark wasn't hard to do and could also play a certain role.
 
-"Doing it, extracted some. But there aren't many willow trees here." Liu San said.
+"Doing it, extracted some. But there aren't many willow trees here," Liu San said.
 
 "We can ask Wu Nanhai to plant more by the river. Decorates the scenery and serves as raw material." Shi Niaoren knew the effective medicinal components contained in willow bark and willow leaves were very few, and the effect extracted was also limited. But Aspirin was a very useful analgesic and antipyretic, also having anticoagulant and anti-rheumatic functions. At the current stage, it was the best panacea.
 
-Liu San said: "I have a request, hope Minister speaks to the Executive Committee."
+Liu San said, "I have a request, hope Minister speaks to the Executive Committee."
 
-"Oh, what request do you have."
+"Oh, what request do you have?"
 
 "Acquire the herbal medicine shop in the county town."
 
-"Runshitang?" Shi Niaoren knew Liu San often went to this pharmacy to buy medicine and process medicinal materials, cooperating happily with the other party, "Aren't you cooperating quite well."
+"Runshitang?" Shi Niaoren knew Liu San often went to this pharmacy to buy medicine and process medicinal materials, cooperating happily with the other party. "Aren't you cooperating quite well."
 
-"Shopkeeper Yang's thinking is okay; trusting them to do things counts as reliable too. But I am not the owner; many things are inconvenient to decide myself. Wasting a few professionals inside in vain." He poured himself a cup of "Cola", "Besides, the foundation of the herbal medicine shop is too thin, can't even go to the medicine market, and precious medicinal materials are never stocked. As a partner, it's too weak. Need to give it blood transfusion. I originally wanted to inject capital myself, but I have no silver..."
+"Shopkeeper Yang's thinking is okay; trusting them to do things counts as reliable too. But I am not the owner; many things are inconvenient to decide myself. Wasting a few professionals inside in vain." He poured himself a cup of "Cola". "Besides, the foundation of the herbal medicine shop is too thin, can't even go to the medicine market, and precious medicinal materials are never stocked. As a partner, it's too weak. Need to give it blood transfusion. I originally wanted to inject capital myself, but I have no silver..."
 
 "Let the Executive Committee acquire it, then you go be the shopkeeper?"
 

@@ -28,7 +28,7 @@ He desperately wanted to ask what prescription it was, but such inquiries were t
 
 "And then there's Secretary Wang from the county yamen. Apparently he's recently taken a concubine."
 
-Now that was news! Though Liu San was a modern man, he couldn't resist the gossip: "How can you tell?"
+Now that was news! Though Liu San was a modern man, he couldn't resist the gossip. "How can you tell?"
 
 "He used to take tonics too, but just the usual prescriptions to supplement his vital energy and dispel dampness," Liu Benshan explained. "This time he wanted ointments for strengthening the kidneys and boosting yang energy. Think about it, Doctor Liu—he's a man in his prime, spending years as a sojourner away from home. He normally has no outlet for his urges. Why would he suddenly need this?"
 
@@ -48,7 +48,7 @@ Though Yang Shixiang was the shopkeeper and owner of a rather modest apothecary,
 
 "If they were willing to help, would my father have had to come to this desolate backwater in the first place?" Shopkeeper Yang sighed. Manager Liu sighed along with him. Liu San had heard Liu Benshan mention bits and pieces before—Yang Shixiang's father had been the son of a major apothecary owner in Foshan Town. Due to discord with his brothers, he had angrily relocated to Lingao. Though the two sides still exchanged courtesy visits for celebrations and mourning, there was little genuine family affection between them. Asking them for help would likely be futile.
 
-Liu San deliberately said: "Since you have relatives of the same clan there, surely they could lend at least some assistance?"
+Liu San deliberately said, "Since you have relatives of the same clan there, surely they could lend at least some assistance?"
 
 "Not just the same clan—the current owner and I are first cousins on our fathers' side. I still have several uncles and grand-uncles living. In terms of kinship, we couldn't be more closely related by blood. But the sentiment is merely average. If I wanted to borrow some cheap goods, they'd probably nod along. What I need is Liaodong ginseng. Right now it's worth its weight in gold—going to negotiate would just be a waste of travel money. Besides, they might not even have any!"
 
@@ -62,9 +62,9 @@ After some perfunctory conversation, Liu San took two small glass medicine vials
 
 "Please have a look, Shopkeeper Yang."
 
-Yang Shixiang saw the exquisitely crafted little glass bottles, his face showing amazement. He accepted them, examined them, then carefully studied the aluminum foil wrapped around the bottle openings before asking: "What are these?"
+Yang Shixiang saw the exquisitely crafted little glass bottles, his face showing amazement. He accepted them, examined them, then carefully studied the aluminum foil wrapped around the bottle openings before asking, "What are these?"
 
-"Two ready-made medicines I've prepared myself," Liu San said with complete confidence.
+"Two prepared medicines I've formulated myself," Liu San said with complete confidence.
 
 One of these small bottles contained Zhuge Marching Powder, the other Plague-Repelling Powder. Both were standard summer medicines, with Zhuge Marching Powder being particularly efficacious. It had the function of opening the orifices, dispelling foulness, clearing summer heat, and neutralizing toxins. It was suitable for cholera, heatstroke, miasmic vapors, and various summer heat evils. It could treat mouth sores and sore throat. Dissolving the powder in water and applying it to the eyes could eliminate wind-heat cataracts. Placing a small amount in the nasal cavity could prevent heatstroke and ward off pestilence. In a place like Lingao with hot summers, muggy and humid conditions, it was especially appropriate.
 
@@ -76,7 +76,7 @@ Liu San explained the miraculous uses of both medicines in detail. Based on his 
 
 Of course, Liu San wasn't about to reveal these details. He simply said these were two special summer medicines formulated in Australia. Seeing that Lingao's climate was muggy and humid, and that the common people suffered greatly from summer heat evils, he had the idea of compounding and selling them locally—a way of saving the world and succoring the people.
 
-Hearing Liu San describe these two medicines as so miraculous, Yang Shixiang was somewhat skeptical. However, the medicine bottles alone looked like they were worth a fortune, so the medicines probably weren't too shabby either. With Liu San's permission, he sprinkled a little Plague-Repelling Powder onto the back of his hand and inhaled it. Immediately, an expression of pleasure spread across his face:
+Hearing Liu San describe these two medicines as so miraculous, Yang Shixiang was somewhat skeptical. However, the medicine bottles alone looked like they were worth a fortune, so the medicines probably weren't too shabby either. With Liu San's permission, he sprinkled a little Plague-Repelling Powder onto the back of his hand and inhaled it. Immediately, an expression of pleasure spread across his face.
 
 "Wonderful!" Yang Shixiang praised. "It clears the head and refreshes the mind—truly gives one a sensation of coolness throughout the body."
 
@@ -86,7 +86,7 @@ Hearing Liu San describe these two medicines as so miraculous, Yang Shixiang was
 
 Liu San thought this had nothing to do with Australia—the key was that this era lacked the concept. During the Republican era, despite wars and chaos, Changchuntang still managed to sell 2.5 million boxes a year.
 
-Yang Shixiang sniffed the Zhuge Marching Powder and pondered for a moment: "The two formulas are quite similar, both using borneol and cinnabar. The Plague-Repelling Powder seems to emphasize aromatics more heavily, with menthol, sandalwood, and such. Its medicinal efficacy should be inferior to the Marching Powder."
+Yang Shixiang sniffed the Zhuge Marching Powder and pondered for a moment. "The two formulas are quite similar, both using borneol and cinnabar. The Plague-Repelling Powder seems to emphasize aromatics more heavily, with menthol, sandalwood, and such. Its medicinal efficacy should be inferior to the Marching Powder."
 
 Liu San secretly admired him. To identify the main components of the formulas from a single sniff—this Shopkeeper Yang truly had real expertise.
 
@@ -100,7 +100,7 @@ Liu San's willingness to share his powder formulas for cooperation was exactly w
 
 Seeing his willingness to cooperate, Liu San took out two prescription sheets from his pocket, listing in detail the ingredients, dosages, and compounding processes for both powders.
 
-Yet Yang Shixiang refused to accept them, waving his hands repeatedly: "Absolutely not, absolutely not! These are your formulas, Doctor Liu. How could I simply take them? I couldn't bear the responsibility."
+Yet Yang Shixiang refused to accept them, waving his hands repeatedly. "Absolutely not, absolutely not! These are your formulas, Doctor Liu. How could I simply take them? I couldn't bear the responsibility."
 
 "Without the formulas, how would the shop assistants know how to compound and dispense the medicines?" Liu San was puzzled.
 
@@ -116,6 +116,4 @@ Liu San thought this Shopkeeper Yang was truly honest and considerate of others�
 
 With things put this way, Yang Shixiang could no longer refuse. He accepted the prescriptions and glanced at the formulas.
 
-"Musk, borneol, gold leaf—we don't have these in stock. No pearls either. And many of the aromatic spices..." Yang Shixiang said. "I'll need to go to Qiongshan County again to procure these ingredients—though even Qiongshan might not have everything." He frowned, counting on his fingers, then asked cautiously: "How many doses should be prepared for the first batch?"
-
-(End of Chapter)
+"Musk, borneol, gold leaf—we don't have these in stock. No pearls either. And many of the aromatic spices..." Yang Shixiang said. "I'll need to go to Qiongshan County again to procure these ingredients—though even Qiongshan might not have everything." He frowned, counting on his fingers, then asked cautiously, "How many doses should be prepared for the first batch?"
