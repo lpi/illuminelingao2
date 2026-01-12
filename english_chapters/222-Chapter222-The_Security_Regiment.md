@@ -4,7 +4,7 @@ China's traditional labor levy system, though nominally based on formulas like "
 
 Spring was approaching—the traditional busy farming season. Taking labor away affected both wealthy and poor households severely.
 
-From the start, Wu De believed that unpaid conscription was inappropriate and might even risk inflaming tensions with Linggao's local people. By comparison, hired labor was more suitable.
+From the start, Wu De believed that unpaid conscription was inappropriate and might even risk inflaming tensions with Lingao's local people. By comparison, hired labor was more suitable.
 
 Currently, their labor crews were actually hired—though all were volunteers who came on their own. If they relied solely on volunteers, the transmigrator collective's labor needs would never be met. Now, using administrative means to have villages provide workers was much more convenient. It also allowed accurate estimates of available labor.
 
@@ -16,11 +16,11 @@ Workers would receive compensation—Wu De emphasized this point. Each worker wo
 
 The villages had assumed that supplying workers would also require providing their food. Hearing that workers wouldn't need village support and would even receive wages, they were practically moved to tears by the transmigrator collective's generosity. These "baldies," though engaged in the business of murder and arson, were far better than the government when it came to caring for the common people. Approval ratings rose again.
 
-Next came the matter of establishing the Baireng Security Regiment. On this issue, there had been extended negotiations between the yamen and the Executive Committee. Though the yamen had virtually no control over what the transmigrator collective wanted to do, having such an armed force established right under their noses was obviously not what Magistrate Wu hoped for. But forming the Security Regiment was the transmigrators' first step toward gradually absorbing and integrating the county's militia, so they refused to back down. In the end, they only promised to limit the Security Regiment to one thousand men within three years and to nominally accept the yamen's Sheriff as its titular commander.
+Next came the matter of establishing the Bairren Security Regiment. On this issue, there had been extended negotiations between the *yamen* and the Executive Committee. Though the *yamen* had virtually no control over what the transmigrator collective wanted to do, having such an armed force established right under their noses was obviously not what Magistrate Wu hoped for. But forming the Security Regiment was the transmigrators' first step toward gradually absorbing and integrating the county's militia, so they refused to back down. In the end, they only promised to limit the Security Regiment to one thousand men within three years and to nominally accept the *yamen*'s Sheriff as its titular commander.
 
-The Security Regiment's soldiers would come from two sources. First, the conscript workers from villages—the transmigrators would select some from the men sent by villages to serve as regiment soldiers. Second, village militia. Under the plan, each village would organize militia units based on its size and population. Villages without militia would have the transmigrators help equip and train them. Village militia would be rotated in batches to the Baireng City public office for Security Regiment training and would share in county-wide security duties. This militia service term was three months.
+The Security Regiment's soldiers would come from two sources. First, the conscript workers from villages—the transmigrators would select some from the men sent by villages to serve as regiment soldiers. Second, village militia. Under the plan, each village would organize militia units based on its size and population. Villages without militia would have the transmigrators help equip and train them. Village militia would be rotated in batches to the Bairren City public office for Security Regiment training and would share in county-wide security duties. This militia service term was three months.
 
-The Security Regiment's primary missions were bandit suppression and pirate defense. The Baireng public office would also establish a county-wide early warning communication system, restoring and repairing the beacon towers previously built to guard against Japanese pirates at bays where pirates could easily land. Once pirates landed, the Security Regiment would deploy to intercept them.
+The Security Regiment's primary missions were bandit suppression and pirate defense. The Bairren public office would also establish a county-wide early warning communication system, restoring and repairing the beacon towers previously built to guard against Japanese pirates at bays where pirates could easily land. Once pirates landed, the Security Regiment would deploy to intercept them.
 
 This approach was essentially the same as the six-village joint defense organized by Huang Family Village, only the transmigrators had expanded it county-wide. It would give each village basic self-defense capability against small bandit or pirate groups. The transmigrator regime wanted to maximize improvement of the county's security situation without excessively consuming their core forces. The only solution was to organize a militia system—back in the day, the CCP had used this very method to completely pacify areas plagued by bandits. Of course, the Executive Committee was well aware that this militia system couldn't withstand government army suppression—after all, government forces held the moral authority of the imperial court. But for defending homes and fighting bandits and pirates, it was feasible.
 
@@ -34,7 +34,7 @@ Huang Bingkun muttered, "This is just to trick militia into fighting for them. E
 
 "Exactly—fighting wars this way, even the court couldn't afford it, let alone them!"
 
-Suspicion aside, the conference delegates didn't question further—after all, the transmigrators were now Linggao's masters. Whatever they said or did was up to them, and everyone had to take them at their word. Some people, especially those who had dealt with the transmigrator collective, believed the transmigrators would keep their word. After all, they hadn't broken any promises since coming ashore.
+Suspicion aside, the conference delegates didn't question further—after all, the transmigrators were now Lingao's masters. Whatever they said or did was up to them, and everyone had to take them at their word. Some people, especially those who had dealt with the transmigrator collective, believed the transmigrators would keep their word. After all, they hadn't broken any promises since coming ashore.
 
 ***
 
@@ -58,16 +58,16 @@ The student paused, then smiled. "Tonight we'll treat all delegates to a viewing
 
 Huang Bingkun wanted to extract more information, but these "little baldies" were tight-lipped, only smiling without answering.
 
-They looked like children from good families. Who knew what potion they'd been fed to make them call bandits their fathers! Huang Bingkun sighed to himself.
+*They looked like children from good families. Who knew what potion they'd been fed to make them call bandits their fathers!* Huang Bingkun sighed to himself.
 
-After lunch, Li Yuanyuan announced a half-hour break. Everyone could walk around the venue or relieve themselves, but must not cross the lime lines around the venue perimeter. Huang Bingkun took the opportunity to survey the venue's surroundings. Walking a circuit along the lime lines, he tried to see more of Baireng City's interior. The most prominent thing he saw was a tall iron tower in the city center.
+After lunch, Li Yuanyuan announced a half-hour break. Everyone could walk around the venue or relieve themselves, but must not cross the lime lines around the venue perimeter. Huang Bingkun took the opportunity to survey the venue's surroundings. Walking a circuit along the lime lines, he tried to see more of Bairren City's interior. The most prominent thing he saw was a tall iron tower in the city center.
 
 The tower's base was hidden among several distinctive gray buildings. The tower itself was built from black steel, as high as twenty men standing on each other's shoulders. It narrowed as it rose, ending in a sharp point. There was a gleaming tip at the top.
 
-These "baldies'" homeland must be skilled at smelting and forging iron—that was why all their objects were made of iron. No wonder people said the baldies were constantly smuggling iron implements from the mainland to the island.
+*These "baldies'" homeland must be skilled at smelting and forging iron—that is why all their objects are made of iron.* No wonder people said the baldies were constantly smuggling iron implements from the mainland to the island.
 
 But Huang Bingkun couldn't figure out what use this entirely iron tower served. To him, it seemed a complete waste—so much iron could be put to considerable use for anything else. He tried to get closer for a better look, but was immediately blocked by a man in gray clothes with a belt at his waist. The man swung his long blue-black musket across, and Huang Bingkun clearly understood he should retreat behind the line.
 
 The color of this musket was similar to the pistol recovered from the scene where Third Brother had been killed. Unfortunately, after Father fired it once, it never fired again—they didn't know how to load the ammunition. Huang Bingkun pondered: he needed to find an opportunity to properly test this kind of musket. Weren't they forming the Security Regiment? He made up his mind—when the time came, he would personally lead militia to participate, to see exactly what made the "baldies" so formidable in battle. If there was an opportunity, he'd also get hold of one of these muskets.
 
-(End of Chapter)
+**(End of Chapter)**

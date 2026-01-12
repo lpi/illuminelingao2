@@ -1,4 +1,4 @@
-# Chapter 241 - Tropical Crop Plantation
+# Chapter 241: Tropical Crop Plantation
 
 Just as they were tense, the three who had gone forward to scout sneaked back.
 
@@ -18,9 +18,9 @@ Ye Mengyan was obviously unwilling to go back quietly like this. According to th
 
 "Wait, everyone help out. Collect more mineral samples here; I've found good stuff."
 
- everyone had no choice but to help him collect various stones on the ground. When they set off, each person was burdened with an extra seven or eight catties of ore for no reason.
+Everyone had no choice but to help him collect various stones on the ground. When they set off, each person was burdened with an extra seven or eight jin of ore for no reason.
 
-The journey back was fairly safe. On the eleventh day after departure, the squad was approaching Bairen City.
+The journey back was fairly safe. On the eleventh day after departure, the squad was approaching Bairren City.
 
 "Password!!!" A loud shout from the roadside bushes startled Liu Zheng, who was acting as point man. "Loli! Countersign!"
 
@@ -104,4 +104,4 @@ Fa Shilu nodded: "Makes sense. But the industrial department hasn't proposed it 
 
 The long fibers in sisal were raw materials for cables in mining and shipping. The processed dregs could be used as raw materials for paper making, alcohol, vinegar, etc. The short fibers produced during production could be made into daily necessities like ropes, shoe pads, and reins, and could also be used as filling for furniture. The leaf juice could produce biogas through fermentation and could also extract sugar and feed dry yeast. The large amount of leaf residue after processing was good fodder, and hemp residue was high-quality organic fertilizer.
 
-(End of Chapter)
+**(End of Chapter)**

@@ -1,4 +1,4 @@
-# Chapter 232 - Trade Discussions (Part 2)
+# Chapter 232: Trade Discussions (Part 2)
 
 Ji Situi said dismissively: "This is the great achievement of my Qing—not the prosperous age of the Ming."
 
@@ -30,7 +30,7 @@ Yu Eshui nodded: "So to go the domestic sales commercial route, we must start by
 
 "Too simplistic. Typical middle-class panacea theory." Du Wen sneered at such shallow remarks. "In my view, to change this habit we need to achieve at least three points: First, change ancient China's natural economy plus change agricultural free-market capitalism values. Second, create a 'middle stratum.' Third, raise overall per-capita economic levels. The third point is too slow a process in ancient times or before the second industrial revolution—transmigrators shouldn't expect several-fold increases in national per-capita economic levels in their lifetimes. For the second point, note: not the capitalist or landlord class, but overcoming social Darwinist natural laws to create a jujube-pit-shaped society remains quite difficult. And under ancient conditions where per-capita economic levels are limited and improvement can't be fast, a jujube-pit-shaped society still destabilizes society. In short: natural-economy society is a fairly stable system. Changing it without great social upheaval and cost is impossible."
 
----
+***
 
 "Whenever the Queen starts reciting doctrine, headaches are guaranteed. But stripping away those fancy words, I still think you're right," He Ying said.
 
@@ -72,4 +72,4 @@ Paper consumption was enormous, with many consumption levels—from writing impe
 
 "Mirrors present no technical difficulty. Once we've mastered glass manufacturing technology, batch-producing glass mirrors is just a matter of time and raw material supply," Wen Desi said. "Let's take this opportunity to develop a complete mirror product series. From full-length large glass mirrors for the wealthy to small rough-edged mirrors that ordinary commoners can afford—we must produce them all."
 
-(End of Chapter)
+**(End of Chapter)**

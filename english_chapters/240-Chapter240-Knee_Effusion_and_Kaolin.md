@@ -1,4 +1,4 @@
-# Chapter 240 - Knee Effusion and Kaolin
+# Chapter 240: Knee Effusion and Kaolin
 
 "Since it's so useful, we should gather more to take back." Huang Zhuazi was a senior outdoor activist and had a deep understanding of the effects of these Chinese patent medicines, so he immediately became interested.
 
@@ -132,7 +132,7 @@ Cui Yunhong waved his hand, signaling not to speak. Bai Guoshi lowered his voice
 
 Cui Yunhong pinched a piece of white stone-like substance and tapped it a few times with his geological hammer.
 
-"Stuff used to make porcelain." Bai Guoshi explained.
+"Stuff used to make porcelain," Bai Guoshi explained.
 
 "Oh," Zhao Xue was puzzled. "But we don't need to make porcelain, do we? I think lunch boxes and enamel bowls are enough."
 
@@ -148,4 +148,4 @@ This field exploration had truly yielded a significant harvest. Cui Yunhong was 
 
 Bai Guoshi was nervous to death. Holding the Remington, he looked around, deeply afraid a native would suddenly pop out from somewhere—he hadn't killed anyone yet and didn't want to break his fast here.
 
-(End of Chapter)
+**(End of Chapter)**

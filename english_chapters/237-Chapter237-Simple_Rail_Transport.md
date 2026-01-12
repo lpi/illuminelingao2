@@ -1,4 +1,4 @@
-# Chapter 237 - Simple Rail Transport
+# Chapter 237: Simple Rail Transport
 
 "The old high-pressure boilers used wrought iron pipes." A fat man squeezed his way over. "I've dismantled those antique boilers in our factory. There wasn't any steel; it was all soft iron. The fire tubes inside were made of wrought iron."
 
@@ -46,7 +46,7 @@ Originally, Zhan Wuya designed this kind of track simply to imitate the simple i
 
 However, when the "train enthusiasts" among the transmigrators saw the tracks, they couldn't help but feel their hearts flutter. Under the joint petition of a group of people, the Executive Committee was finally moved. Thus, what was originally just simple tracks between workshops turned into a complex "Track System."
 
-In the new plan, the length of the tracks was greatly increased, and the connection range was more extensive: from Bairen City, the Farm, East Gate Market, to the hydroelectric station by the Wenlan River, the inland river wharves, Bairen Commune, extending all the way to the various workshops, warehouses, and office buildings within the factory zone. It could not only transport various equipment, raw materials, and goods but also transport personnel. A switch and an auxiliary track were set up every certain distance to allow vehicles to pass each other.
+In the new plan, the length of the tracks was greatly increased, and the connection range was more extensive: from Bairren City, the Farm, East Gate Market, to the hydroelectric station by the Wenlan River, the inland river wharves, Bairren Commune, extending all the way to the various workshops, warehouses, and office buildings within the factory zone. It could not only transport various equipment, raw materials, and goods but also transport personnel. A switch and an auxiliary track were set up every certain distance to allow vehicles to pass each other.
 
 To master the vehicle running status and facilitate scheduling, a high platform was specially built as a general control console, installed with wired telephones and a light control system. In emergency states, a set of colored flag visual systems could be used, or they could connect directly to the broadcast system and control via loudspeakers.
 
@@ -80,4 +80,4 @@ Wen Desi waved his hand: "No problem. Back then, the British used wooden rails a
 
 Did they have to specially prepare ten people as "starters"? Obviously, this type of vehicle could only serve as a transport car or for transporting light items.
 
-(End of Chapter)
+**(End of Chapter)**

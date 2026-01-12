@@ -1,4 +1,4 @@
-# Chapter 242 - Treating Guests to Dinner
+# Chapter 242: Treating Guests to Dinner
 
 While they were talking, Wu Nanhai appeared wearing a straw hat on his head and a towel around his neck, followed by Wang Tian, a team leader of the farm workers. Since he used to be a foreman for long-term laborers, he counted as an expert farmer.
 
@@ -32,9 +32,9 @@ Fa Shilu didn't pick up on this topic but said: "Regarding the self-purchased se
 
 "Let's do that then." Wu Nanhai agreed—after all, Fa Shilu was more professional than him. Then he invited Bai Guoshi to lunch.
 
- The transmigrators knew that the Demonstration Farm was the most corrupt place in all of Bairen City and even Lingao, one of the two designated spots for Executive Committee leaders' corruption. Although the Farm was inferior to the Navy Club in modern enjoyment, it had a wide variety of fresh vegetables and fruits, and the environment was beautiful. If the Fengcheng Inn was a five-star hotel, the Demonstration Farm was a farmhouse resort ("Agritainment").
- 
- Bai Guoshi gladly accepted the invitation. Liu Zheng and several other colleagues from the exploration team also came to the table—Zhao Xue didn't come because of her leg inconvenience, and Ye Mengyan wasn't in the exploration team's establishment: the Special Reconnaissance Unit was on standby at all times, so naturally, he couldn't come to enjoy it either.
+The transmigrators knew that the Demonstration Farm was the most corrupt place in all of Bairren City and even Lingao, one of the two designated spots for Executive Committee leaders' corruption. Although the Farm was inferior to the Navy Club in modern enjoyment, it had a wide variety of fresh vegetables and fruits, and the environment was beautiful. If the Fengcheng Inn was a five-star hotel, the Demonstration Farm was a farmhouse resort ("Agritainment").
+
+Bai Guoshi gladly accepted the invitation. Liu Zheng and several other colleagues from the exploration team also came to the table—Zhao Xue didn't come because of her leg inconvenience, and Ye Mengyan wasn't in the exploration team's establishment: the Special Reconnaissance Unit was on standby at all times, so naturally, he couldn't come to enjoy it either.
 
 Lunch was set in a riverside grove specially preserved by the Farm. The Farm had built a large pavilion here using bamboo and straw, with some flowers, trees, and fruit trees planted outside for landscaping. There was originally a natural river bend next to the pavilion; Wu Nanhai expanded it into an artificial pond, planting many crops like lotus roots and water chestnuts inside, and raised some ducks and geese. Sitting in the pavilion, one really felt relaxed and happy.
 
@@ -72,7 +72,7 @@ Wu Nanhai smiled, "She's an orphan, so I took her in to take care of daily life 
 
 "Damn it, playing Princess Maker, training milfs and lolis in such an environment—it's simply a dream-like life."
 
-" The Beast Farm: Mother and Daughter's Wailing—" An otaku with rich AV experience immediately came up with a new title.
+"The Beast Farm: Mother and Daughter's Wailing—" An otaku with rich AV experience immediately came up with a new title.
 
 "Don't talk nonsense," Wu Nanhai waved his hands wildly. "Sister Li is now a full-time nurse working at the Ministry of Health. I just let her help with cooking here—"
 
@@ -92,7 +92,7 @@ What he proposed was: hoping the Exploration Team could organize some resource c
 
 Liu Zheng said: "That's true, but our resource exploration team only has—" He suddenly realized he had let slip; the specific number of personnel in the Resource Department was classified content. "Not many people. How much can we carry back for you?"
 
-"Yeah, take that patch of *Yi Zhi* encountered yesterday; if it matures, we could harvest at least a few hundred catties," Bai Guoshi chimed in.
+"Yeah, take that patch of *Yi Zhi* encountered yesterday; if it matures, we could harvest at least a few hundred jin," Bai Guoshi chimed in.
 
 "That's why I say we need resource expeditions." Wu Nanhai had considered this issue for a long time. "I plan to propose this suggestion at the Executive Committee meeting. For those agricultural and forestry resources you have already explored clearly but are not in our sphere of influence, we organize a few hundred laborers, vehicles, and boats each time, send armed escorts, and collect as many resources back as possible."
 
@@ -108,4 +108,4 @@ His dormitory was in Group 5, known as the "Best Location" because it was opposi
 
 However, such good things rarely happened. For safety, there were wooden fences separating each group, and each group had its own gate, closed at night. The main gate of the residential area closed at 10 PM every night, and individual group gates closed at 11 PM. Entering or exiting past the time required registration. Strict security measures were mainly for internal order considerations: the Executive Committee couldn't guarantee everyone was a modest gentleman—in fact, the past Public Security Team and the current Police Headquarters both had reports indicating petty theft existed among transmigrators. Stolen items were mainly modern consumable enjoyments brought along, like cola and cigarettes. Besides, there were several hundred single men here; it was hard to imagine what they might do seeing women in such a harsh and boring environment. Xiao Zishan, through Women's Director Du Wen, distributed several notices to young women, including advice not to dress revealingly outdoors and to draw curtains when changing clothes.
 
-(End of Chapter)
+**(End of Chapter)**

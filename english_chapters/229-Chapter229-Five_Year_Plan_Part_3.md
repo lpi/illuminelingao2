@@ -1,4 +1,4 @@
-# Chapter 229 - Five-Year Plan (Part 3)
+# Chapter 229: Five-Year Plan (Part 3)
 
 "As long as the system is established, theoretically any equipment is possible," Wang Luobin said.
 
@@ -34,7 +34,7 @@ Zhan Wuya shook his head: "Complete replication of automatic machine tools defin
 
 "Hear me out."
 
-Wen Desi first drew their attention to the fact that since they'd landed, at least looking at Linggao alone, they hadn't found any large-scale cotton cultivation. Local cotton cloth was mostly processed from cotton collected from woody, perennial wild cotton plants. Though the quality was decent, this raw material supply method could only support small-scale household handicraft production.
+Wen Desi first drew their attention to the fact that since they'd landed, at least looking at Lingao alone, they hadn't found any large-scale cotton cultivation. Local cotton cloth was mostly processed from cotton collected from woody, perennial wild cotton plants. Though the quality was decent, this raw material supply method could only support small-scale household handicraft production.
 
 Hainan Island itself wasn't suitable for large-scale herbaceous cotton cultivation. This was the birthplace of China's cotton textile industry, but long-term, cotton textiles had basically been just a small-scale Li minority sideline, never forming a large-scale cotton textile industry. The production techniques for Ming dynasty Songjiang cloth had originally come from Hainan Island, but the cotton textile industry formed an industry in Songjiang—"clothing the world"—while Hainan's Qiong cloth had long remained just a "local specialty."
 
@@ -42,7 +42,7 @@ Once the transmigrators established large-scale textile industry, they'd have to
 
 "And the textile industry itself faces very fierce competition," Wen Desi added.
 
----
+***
 
 Within the Great Ming, there was the behemoth of Songjiang cloth. How strong was Songjiang cloth's penetration? The transmigrators had seen it more than once in gifts they'd received locally: high-grade cloth was almost all from Songjiang.
 
@@ -100,8 +100,8 @@ With the cotton textile industry in place, establishing a unified clothing facto
 
 The clothing factory's main purpose was self-use. Local common people wouldn't buy ready-made clothing and shoes unless prices were extremely low, or for silk garments they couldn't make themselves. The fact that the county seat had only one tailor illustrated this point.
 
-Currently, the Baireng Commune already had a garment factory. Wu De had recruited commune women, with several female transmigrators who could use sewing machines providing technical guidance. They could manufacture cloth shoes, straw sandals, uniforms, hats, work clothes, underwear, quilts, and cotton socks—but the scale was very small. There was also a leatherworker who specialized in making various leather equipment for the military.
+Currently, the Bairren Commune already had a garment factory. Wu De had recruited commune women, with several female transmigrators who could use sewing machines providing technical guidance. They could manufacture cloth shoes, straw sandals, uniforms, hats, work clothes, underwear, quilts, and cotton socks—but the scale was very small. There was also a leatherworker who specialized in making various leather equipment for the military.
 
 In Mo Xiao'an's plan, the clothing factory's scale needed to expand. In the future, with the continuous expansion of the military and labor force, and the influx of large numbers of migrants from other places—all these people's clothing would need updating. The transmigrator collective's demand for clothing would grow geometrically.
 
-(End of Chapter)
+**(End of Chapter)**

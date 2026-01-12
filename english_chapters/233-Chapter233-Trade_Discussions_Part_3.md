@@ -1,4 +1,4 @@
-# Chapter 233 - Trade Discussions (Part 3)
+# Chapter 233: Trade Discussions (Part 3)
 
 From everyone's reactions, Wen Desi knew this proposal wasn't generating much enthusiasm. Then Mo Xiao'an spoke: "Director Wen, your reasoning is sound, but mirrors are currently our flagship product. They've already established a luxury image among common people. If we rashly produce cheap products, I'm worried it'll hurt the high-end product line—"
 
@@ -36,11 +36,11 @@ One could say that in 1629, Chinese sea merchants were in a high-risk, high-rewa
 
 Zheng Zhilong, the official-merchant-pirate hybrid, basically controlled the Fujian-to-Japan shipping lane. Trade ships passing through this region all had to pay tolls, otherwise they'd definitely be plundered. Moreover, the Japanese shogunate only opened a few cities for foreign trade, with very few trading partners. Some regional domain lords' ports also allowed trade, but each ship was still charged 1,000 *liang* in trade fees.
 
-Portuguese/English/Dutch merchant fleets were both traders and pirates. When facing the strong like the Zhengs, they paid taxes. When facing the weak, they robbed.
+Portuguese/English/Dutch merchant fleets were all traders and pirates. When facing the strong like the Zhengs, they paid taxes. When facing the weak, they robbed.
 
----
+***
 
-Spain was absorbed in Southeast Asian colonization and slave trade, basically controlling the Philippines and Malay archipelago regions. Though they heavily depended on Chinese merchants to supply colonial materials and labor, they lacked the strength to join trade with China proper, so they could only use Manila galleons to constantly ship silver from American colonies to entice Chinese merchants to come trade. Due to excessive dependence on Hua merchants and Chinese people, the Spanish developed a pathological fear of Chinese people and spared no effort in suppressing and controlling them—Hua merchants and Chinese faced many restrictions.
+Spain was absorbed in Southeast Asian colonization and the slave trade, basically controlling the Philippines and Malay archipelago regions. Though they heavily depended on Chinese merchants to supply colonial materials and labor, they lacked the strength to join trade with China proper, so they could only use Manila galleons to constantly ship silver from American colonies to entice Chinese merchants to come trade. Due to excessive dependence on Hua merchants and Chinese people, the Spanish developed a pathological fear of Chinese people and spared no effort in suppressing and controlling them—Hua merchants and Chinese faced many restrictions.
 
 The Dutch possessed the most formidable maritime fleet in Chinese waters, but as latecomers, they had no good foothold. Seeking new colonies, they tried to control Taiwan and Penghu, waging decades of war against the Zheng family. Only in 1661 did Zheng Chenggong recover Taiwan, while the Netherlands also declined after losing the Anglo-Dutch wars.
 
@@ -58,15 +58,15 @@ The transmigrators certainly had strong ships and powerful cannons, but with sca
 
 "Shipping capacity is insufficient." Wen Desi sighed.
 
-The transmigrators' current situation was somewhat like Japan's. Linggao itself produced very few industrial raw materials. The transmigrators' goods for sale and important industrial materials all depended on ships for import and export. Not only that—even salt transport from Salt Farm Village to Baireng City... though the transmigrators had built a simple road between the two locations, due to lack of draft animals and vehicles, bulk sea salt products were still shipped to Bopu for transshipment.
+The transmigrators' current situation was somewhat like Japan's. Linggao itself produced very few industrial raw materials. The transmigrators' goods for sale and important industrial materials all depended on ships for import and export. Not only that—even salt transport from Salt Farm Village to Bairren City... though the transmigrators had built a simple road between the two locations, due to lack of draft animals and vehicles, bulk sea salt products were still shipped to Bopu for transshipment.
 
-This made the transmigrators highly dependent on ships. Since the Baitu Village campaign, the transmigrator collective's fleet holdings had suddenly surged. They now owned three 70-ton two-masted sailing ships: *Dengying Isle*, *Fubo*, and *Tongji*; two 40-ton single-masted ships; and over a dozen small vessels. Of these ships, except for *Fubo* which was equipped as a warship, all were used as transport ships. Of the five large and medium ships, except for *Fubo* which had armament and couldn't easily enter Guangzhou port, all exclusively ran the Guangzhou route, bringing in large quantities of materials urgently needed by industrial departments. The problem was that shipping speed still couldn't keep up with industrial department demands. Sailing ships were slow with limited cargo capacity. The Naval Forces Department wanted to expand fleet size, but the sailor problem constantly plagued them—the prospect of several major maritime groups fighting to the death had made sailors extremely scarce. Whether Liu Xiang, Zheng Zhilong, Zhu Cailao, or even Ming local officials—everyone was recruiting coastal fishermen and people with seafaring experience. The transmigrator collective clearly wasn't viewed favorably by common people.
+This made the transmigrators highly dependent on ships. Since the Baitu Village campaign, the transmigrator collective's fleet holdings had suddenly surged. They now owned three 70-ton two-masted sailing ships: *Dengying Isle*, *Fubo*, and *Tongji*; two 40-ton single-masted ships; and over a dozen small vessels. Of these ships, except for the *Fubo* which was equipped as a warship, all were used as transport ships. Of the five large and medium ships, except for the *Fubo* which had armament and couldn't easily enter Guangzhou port, all exclusively ran the Guangzhou route, bringing in large quantities of materials urgently needed by industrial departments. The problem was that shipping speed still couldn't keep up with industrial department demands. Sailing ships were slow with limited cargo capacity. The Naval Forces Department wanted to expand fleet size, but the sailor problem constantly plagued them—the prospect of several major maritime groups fighting to the death had made sailors extremely scarce. Whether Liu Xiang, Zheng Zhilong, Zhu Cailao, or even Ming local officials—everyone was recruiting coastal fishermen and people with seafaring experience. The transmigrator collective clearly wasn't viewed favorably by common people.
 
-"We still hope to build larger ships—preferably powered vessels," Li Haiping said. "Not talking about huge ships, but at least 200-300 deadweight tons? With power, speed would be much faster, and sailor requirements would be much lower. *Dengying Isle* is faster than the other ships—if only it weren't always out of diesel—"
+"We still hope to build larger ships—preferably powered vessels," Li Haiping said. "Not talking about huge ships, but at least 200-300 deadweight tons? With power, speed would be much faster, and sailor requirements would be much lower. The *Dengying Isle* is faster than the other ships—if only it weren't always out of diesel—"
 
 "Director Wen, didn't the Planning Committee already approve building one two-masted schooner? This type should be 200 tons, right? Only needs 10 sailors."
 
-"Shipbuilding isn't that simple. Many equipment pieces don't exist yet. To build ships, we first need to complete the shipyard's equipment matching." Wen Desi was also troubled by this: shipbuilding wasn't model-making after all. When the Swedes replicated the Götheborg, it took nearly ten years total, more than half the time spent researching period shipbuilding techniques. And that was with complete Swedish documentation.
+"Shipbuilding isn't that simple. Many equipment pieces don't exist yet. To build ships, we first need to complete the shipyard's equipment matching." Wen Desi was also troubled by this: shipbuilding wasn't model-making after all. When the Swedes replicated the *Götheborg*, it took nearly ten years total, more than half the time spent researching period shipbuilding techniques. And that was with complete Swedish documentation.
 
 "Let's push this. First complete shipyard equipment matching. Whatever you need, make a list. We'll have a separate meeting with the Machinery Department to resolve it."
 
@@ -78,4 +78,4 @@ Wu Nanhai immediately supported: "This is great. I have many small agricultural 
 
 Wang Luobin continued: "Though our self-made single-cylinder diesel engines can't yet match Changchai products in power, they're sufficient for general use. If electricity is insufficient, industrial equipment can be driven by these too. Early factory equipment was all driven by steam engines or other power machines. Considering that self-producing electric motors has some difficulty, future factories may need steam or diesel engine drives for quite some time."
 
-(End of Chapter)
+**(End of Chapter)**

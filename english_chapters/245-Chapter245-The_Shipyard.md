@@ -1,4 +1,4 @@
-# Chapter 245 - The Shipyard
+# Chapter 245: The Shipyard
 
 The next day, Bai Guoshi slept very late. He heard from the brother on duty at the residential group gate that a girl had come to look for him, but because he hadn't gotten up yet, she was turned away. Bai Guoshi thought this was most likely Zhao Xue—coming to find him early in the morning, needless to say, she wanted to go to the canteen for breakfast together. This was a great opportunity to increase emotional exchange, and he actually missed it. He knocked his head in annoyance.
 
@@ -80,4 +80,4 @@ Lin Gonglao stood at the door of the Quarantine Camp office. His young face was 
 
 These past few days, all male immigrants from Baitu Village over the age of 16 underwent a skills assessment. Since the Lin family were boatwrights, the content of the assessment was various skills related to shipbuilding: including woodwork, sailmaking, ironwork, caulking, rigging, painting, etc., basically covering the entire content of ancient ship craftsmanship. The assessment content and specific scoring were done by Zhang Jiqi, but Zhang Jiqi didn't show his face to avoid awkwardness. Wen Desi knew from usual contact that Zhang Jiqi had quite a few complaints about the Lin family controlling village administration and embezzling most of the shipbuilding profits in the past. As long as he had no scruples, he wouldn't show mercy to the Lin family.
 
-(End of Chapter)
+**(End of Chapter)**

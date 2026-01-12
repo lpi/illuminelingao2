@@ -1,28 +1,28 @@
-# Chapter 230 - Light Industry Prospects
+# Chapter 230: Light Industry Prospects
 
 Beyond the clothing factory, a series of light industry enterprises were to go into production during the First Five-Year Plan. First was the daily chemicals factory, manufacturing soap—one of the great transmigrator artifacts.
 
 "Soap's process and technology are relatively simple—a product that can ship quickly."
 
-"What about the oil and fat problem?" Ji Situi thought, easy for you to say. I still find it difficult to produce glycerin—Wu Nanhai refused to give him any oil until it reached gutter-oil quality. To date, all industrial oil and fat consisted of the pig fat used when the shipyard was refitting *Fubo*.
+"What about the oil and fat problem?" Ji Situi thought, *easy for you to say.* I still find it difficult to produce glycerin—Wu Nanhai refused to give him any oil until it reached gutter-oil quality. To date, all industrial oil and fat consisted of the pig fat used when the shipyard was refitting the *Fubo*.
 
 Wu Nanhai helplessly raised his hand: "Don't look at me. The Agriculture Committee can't solve this problem that fast."
 
 "Vegetable oil won't work? Hainan has coconuts everywhere. Isn't coconut oil easy to get?"
 
-"Coconuts? Unfortunately, Linggao doesn't have coconuts," Wu Nanhai said clearly. "The only coconuts are a few seedlings at my farm."
+"Coconuts? Unfortunately, Lingao doesn't have coconuts," Wu Nanhai said clearly. "The only coconuts are a few seedlings at my farm."
 
 "True, I haven't actually seen any coconuts since we came ashore."
 
 "Hainan Island's native coconut distribution isn't here," Luo Duo said. "They're in the central and southern regions. We can dispatch a fleet to harvest or purchase them."
 
-"Can't we just purchase dried coconut at East Gate Market?"
+"Can't we just purchase dried coconut at the East Gate Market?"
 
-"Not easy. Hainan's dried coconut trade does have a long history, but it all flows to Qiongshan County, same as betel nut trade."
+"Not easy. Hainan's dried coconut trade does have a long history, but it all flows to Qiongshan County, same as the betel nut trade."
 
 Considering oil and fat's importance to the transmigrator collective, the Executive Committee decided on a two-pronged approach to obtain coconuts. On one hand, they'd dispatch the Long-Range Reconnaissance Team by ship to explore southward along the coastline, seeing where they could obtain large-scale coconut supplies. Coconuts were an extremely useful cash crop. On the other hand, they'd send the procurement agent Lin Quan'an deep into the island's various prefectures and counties to purchase dried coconuts.
 
-The only oil crop the transmigrators could immediately utilize in Linggao was peanuts—especially in coastal areas and the Gaoshanling region, peanut cultivation was widespread, with some small oil-pressing workshops. The Agriculture Committee decided to promote quality peanut cultivation in the mountains around Damei Village in the Gaoshanling region. They'd also add a water-powered oil press to the water-powered grain processing plant at Baireng City.
+The only oil crop the transmigrators could immediately utilize in Lingao was peanuts—especially in coastal areas and the Gaoshanling region, peanut cultivation was widespread, with some small oil-pressing workshops. The Agriculture Committee decided to promote quality peanut cultivation in the mountains around Damei Village in the Gaoshanling region. They'd also add a water-powered oil press to the water-powered grain processing plant at Bairren City.
 
 "Soap is an excellent trade good! For ladies and young misses, it's simply divine."
 
@@ -36,7 +36,7 @@ Fortunately, soap was also useful for the transmigrator collective itself—for 
 
 Matches—another transmigrator artifact. Match technology was very simple; you just needed to find phosphorus. Having rosin and antimony was even better. None of these things were hard to find. By comparison, Wen Desi was more confident about matches' marketability—compared to flint and steel, matches' convenience advantage was too great.
 
-"Phosphorus processing is manageable, but there's no phosphate ore locally," Ji Situi said.
+"Phosphorus processing is manageable, but there's no phosphite ore locally," Ji Situi said.
 
 "We're not far from the Dongsha Islands. Send ships to dig guano rock. Guano rock can not only refine phosphorus but also be used as fertilizer."
 
@@ -50,7 +50,7 @@ He unrolled a scroll of drawings showing many different styles of farm tools and
 
 "These are all implements I've selected and improved from farm tool patterns from the original timeline, adapted to local planting habits and soil conditions. They're targeted, lightweight, and material-saving. Once on the market, they'll definitely be warmly welcomed by farmers."
 
----
+***
 
 He continued: "The Agriculture Committee's next plan is to launch agricultural mutual aid groups, providing farmers and landlords who join this system with quality implements. This will greatly increase our appeal and help liberate local labor."
 
@@ -68,7 +68,7 @@ Wu Nanhai said: "The raw materials for these enterprises all come from the agric
 
 So the food factory, meat processing plant, and brewery in Mo Xiao'an's Five-Year Plan all became joint projects with the Agriculture Committee. At the Agriculture Committee's suggestion, these planned factories were merged into the "Grain, Oil, and Food General Company," under dual leadership of the Agriculture Committee and Light Industry Ministry.
 
-The company included the seafood processing plant at Bopu, responsible for processing the one-fifth "fishing tax" yield submitted daily by fishermen catching fish in waters near Bopu. It could process salted fish, roasted dried fish, fish cakes, fish sauce, fish oil, dried seaweed, and fish meal. The Baireng City farm's slaughterhouse would be upgraded to a meat processing plant. Besides slaughtering to provide fresh meat, it would also produce salted meat, jerky, sausages, ham, and similar products.
+The company included the seafood processing plant at Bopu, responsible for processing the one-fifth "fishing tax" yield submitted daily by fishermen catching fish in waters near Bopu. It could process salted fish, roasted dried fish, fish cakes, fish sauce, fish oil, dried seaweed, and fish meal. The Bairren City farm's slaughterhouse would be upgraded to a meat processing plant. Besides slaughtering to provide fresh meat, it would also produce salted meat, jerky, sausages, ham, and similar products.
 
 The grain processing plant would add oil-pressing equipment besides processing rice and flour, increasing deep grain processing capability. Using simple manual and water-powered machinery, it would produce noodles, bread, and biscuits. It would use processing residue to make feed, fertilizer, and rice bran oil.
 
@@ -96,7 +96,7 @@ Though canned goods appeared quite early—they already existed in Napoleon's er
 
 "I'm afraid sweet potato starch can't even form noodles—the protein content's too low."
 
-"Growing wheat in Linggao is fine," Wu Nanhai said. "There's scattered cultivation, but most farmers don't have the experience. We need to promote it."
+"Growing wheat in Lingao is fine," Wu Nanhai said. "There's scattered cultivation, but most farmers don't have the experience. We need to promote it."
 
 "Cigarettes! Manchu nobles all love smoking! They're used to dry-pipe tobacco and water pipes—we'll sell them cigarettes. These things are trendy!"
 
@@ -116,4 +116,4 @@ The cigarette factory that everyone was watching had already begun production a 
 
 The Executive Committee had also originally hoped that this cigarette factory could not only meet the transmigrators' own needs but become a growth point in their export goods—this wasn't too far-fetched. Tobacco demand in the late Ming was already very large, and Guangdong's tobacco output was already quite considerable. Cigarettes, as a novel product with distinctive appearance and taste, convenient to smoke, could satisfy the needs of both the upper classes seeking novelty and the lower classes seeking simplicity and utility.
 
-(End of Chapter)
+**(End of Chapter)**

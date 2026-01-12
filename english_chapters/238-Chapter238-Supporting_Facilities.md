@@ -1,4 +1,4 @@
-# Chapter 238 - Supporting Facilities
+# Chapter 238: Supporting Facilities
 
 "It's not very useful, is it? Just for transporting people? Efficiency isn't that high. This car holds, what, ten people at most?" Wen Desi wasn't very satisfied.
 
@@ -26,7 +26,7 @@ The advantage of using hard sails was high wind efficiency and very easy hoistin
 
 "Lingao's wind resources are quite rich, but using it to drive flatcars is still not very reliable. Do you have a more reliable power system?"
 
-"Yes, this is Diesel-powered. The experimental model uses a Changchai single-cylinder engine; it works quite well for towing flatcars." Li Chiqi pointed to one at the far end. A Changchai single-cylinder engine was mounted transversely at the rear of the flatbed, with a simple gearbox, control lever, and brake, as well as a hanger—according to Li Chiqi, it was for hanging a lantern—light bulbs were currently "Class I Industrial Materials" and products that couldn't be manufactured in the short term.
+"Yes, this is diesel-powered. The experimental model uses a Changchai single-cylinder engine; it works quite well for towing flatcars." Li Chiqi pointed to one at the far end. A Changchai single-cylinder engine was mounted transversely at the rear of the flatbed, with a simple gearbox, control lever, and brake, as well as a hanger—according to Li Chiqi, it was for hanging a lantern—light bulbs were currently "Class I Industrial Materials" and products that couldn't be manufactured in the short term.
 
 "If steam engines could be miniaturized, we could also install steam engines; we just need to increase the frame strength a bit. Current materials are still a bit lacking."
 
@@ -66,7 +66,7 @@ The next key supporting project was the large-scale water supply system. The und
 
 The scale of water supply for large-scale industry was far greater than domestic use. Wenlan River water was fine for watering vegetable gardens or flushing toilets directly, but it was unqualified for industrial use. Therefore, a large water plant had to be established.
 
-The transmigrators already had simple large-scale water treatment facilities at Bopu: using sedimentation tanks and sand filter pools to purify water quality for factory and general living use. this method was very simple. Build one or several waterproof brick and stone pools, place a 60-90 cm layer of sand inside, with gravel at the very bottom. The bottom of the pool was a drainage system built with gaps between bricks and stones to collect filtered clear water. After filling the pool with preliminarily settled river water, it flowed through the sand layer at a very slow speed, with solid matter in the water mainly retained on the sand surface. This pool was simple and easy to execute, but the downside was that the filtration speed was pitifully slow. To supply enough water, the pool area had to be increased. Every so often, the contaminated surface sand had to be cleaned, which was very labor-intensive. In the past, Bopu's water demand was small, so this problem wasn't prominent. But large-scale application was unacceptable for the transmigrators, who were not rich in land or labor.
+The transmigrators already had simple large-scale water treatment facilities at Bopu: using sedimentation tanks and sand filter pools to purify water quality for factory and general living use. This method was very simple. Build one or several waterproof brick and stone pools, place a 60-90 cm layer of sand inside, with gravel at the very bottom. The bottom of the pool was a drainage system built with gaps between bricks and stones to collect filtered clear water. After filling the pool with preliminarily settled river water, it flowed through the sand layer at a very slow speed, with solid matter in the water mainly retained on the sand surface. This pool was simple and easy to execute, but the downside was that the filtration speed was pitifully slow. To supply enough water, the pool area had to be increased. Every so often, the contaminated surface sand had to be cleaned, which was very labor-intensive. In the past, Bopu's water demand was small, so this problem wasn't prominent. But large-scale application was unacceptable for the transmigrators, who were not rich in land or labor.
 
 The difference in this new system from traditional filter pools was that water was delivered from the bottom of the sand layer. Simultaneously, a stirrer was installed at the top of the sand layer, constantly stirring the sand to assist the upward-flowing water in washing. The filtration speed was greatly accelerated—of course, the filtration effect couldn't compare with slow sand filter pools. Fortunately, the purpose of the mechanical filtration system was purity, not drinkability. It was very applicable for the transmigrators.
 
@@ -98,4 +98,4 @@ The water processed by the rapid sand filter pool was stored in a water storage 
 
 The construction and use of the new water supply system were credited to the better material foundation provided by the transmigrators' mechanical and metallurgical industries: it was precisely the ability to mass-produce boilers, steam engines, and cast various small and medium-caliber cast-iron water pipes and valves that made these basic industrial supporting facilities possible.
 
-(End of Chapter)
+**(End of Chapter)**

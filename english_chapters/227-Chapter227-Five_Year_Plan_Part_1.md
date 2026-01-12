@@ -1,6 +1,4 @@
-# Chapter 227 - Five-Year Plan (Part 1)
-
-## Section 1
+# Chapter 227: Five-Year Plan (Part 1)
 
 Across the Wenlan River in the industrial district, chimneys were belching thick smoke. As industry developed, the chimneys had multiplied, spewing black smoke into the blue sky, heralding the transmigrators' industrial progress.
 
@@ -38,13 +36,13 @@ If terrain weren't a constraint, ideally you'd place multiple ring zones in a cr
 
 When he saw the word "reactor," Ma Qianzhu realized how distant and idealized his thinking had become. Though there was a senior technician from CNNC 405 Company among the transmigrators, this was something not to be hoped for within two or three generations—assuming they could pass their knowledge, experience, and ideas to the next generation...
 
----
+***
 
 In the Executive Committee Building's conference room, a meeting on the next development plan was underway. This was an expanded Executive Committee meeting. Attendees included not only the executives but also the main leaders of subordinate departments.
 
 The meeting's theme was future development planning. These department heads, mostly promoted in the recent organizational restructuring, were all confident and eager to fully deploy their considerable expertise. Every department had submitted its own construction proposal.
 
-"Our top priority is completing the Baireng Rapids Hydroelectric Station Phase Two," said Chang Kaishen, General Manager and Chief Engineer of Linggao Electric Power Company.
+"Our top priority is completing the Bairren Rapids Hydroelectric Station Phase Two," said Chang Kaishen, General Manager and Chief Engineer of Lingao Electric Power Company.
 
 "The reason this project has been delayed for so long is largely our labor shortage. Now that we have so much labor, and cement, brick, stone, and bamboo-reinforced concrete supplies are ample, we should complete it as soon as possible."
 
@@ -52,23 +50,23 @@ The meeting's theme was future development planning. These department heads, mos
 
 "The Japanese used bamboo-reinforced concrete for water conservancy facilities during World War II. According to their experience, bamboo concrete is actually more reliable for this than for building prefabs," said Mei Wan. "If we're going to question reliability, our current small vertical kiln cement itself isn't up to standard."
 
-"It's just somewhat less structurally strong with a shorter lifespan. Besides, the 20th-century Baireng Rapids hydroelectric station's overflow dam was mainly dressed stone—we can follow that model. If push comes to shove, a turf-and-earth dam would work too."
+"It's just somewhat less structurally strong with a shorter lifespan. Besides, the 20th-century Bairren Rapids hydroelectric station's overflow dam was mainly dressed stone—we can follow that model. If push comes to shove, a turf-and-earth dam would work too."
 
 Zhan Wuya nodded repeatedly: "I agree with rapidly expanding power facilities. At current power supply levels, the machinery department's operating rate is too low." Many machine tools in the machinery plant still hadn't been unpacked—Hainan's humidity was high, and once opened, maintenance was burdensome. The transmigrators also lacked sufficient grease.
 
-"The Chemical Department shares this view!" said Ji Situi. "If not for power shortage, our crude electrolytic cells could have started operating long ago. Caustic soda, bleaching powder—we could mass-produce them right away. These things are so useful."
+"The Chemical Department shares this view!" said Ji Situi. "If not for the power shortage, our crude electrolytic cells could have started operating long ago. Caustic soda, bleaching powder—we could mass-produce them right away. These things are so useful."
 
 "Can transmission and distribution problems be solved?" Ma Qianzhu asked.
 
-"They can," Chang Kaishen said confidently. "We have a complete set of equipment. We can build a Baireng-Bopu 110-kilovolt line—that will reduce transmission losses. Since the Executive Committee has designated both banks of the Wenlan River as the main base, let's concentrate the equipment from the original timeline here. I believe we'll be able to mass-produce simple transmission and distribution equipment in the future."
+"They can," Chang Kaishen said confidently. "We have a complete set of equipment. We can build a Bairren-Bopu 110-kilovolt line—that will reduce transmission losses. Since the Executive Committee has designated both banks of the Wenlan River as the main base, let's concentrate the equipment from the original timeline here. I believe we'll be able to mass-produce simple transmission and distribution equipment in the future."
 
-"If we decide to build Baireng Hydroelectric Phase Two, it's not just a power station issue—it should be done as part of a comprehensive Wenlan River Basin management project," Ma Qianzhu said.
+"If we decide to build Bairren Hydroelectric Phase Two, it's not just a power station issue—it should be done as part of a comprehensive Wenlan River Basin management project," Ma Qianzhu said.
 
-He then spread out his concept diagram. This was a fairly complex project: besides expanding Baireng Hydroelectric Station, it also involved building a water gate downstream at Bopu, reinforcing embankments, dredging the river channel—all to regulate the Wenlan River's water level and ensure sufficient water volume even during dry seasons.
+He then spread out his concept diagram. This was a fairly complex project: besides expanding Bairren Hydroelectric Station, it also involved building a water gate downstream at Bopu, reinforcing embankments, dredging the river channel—all to regulate the Wenlan River's water level and ensure sufficient water volume even during dry seasons.
 
 "Ensuring the Wenlan River's water level has two main benefits," Ma Qianzhu said.
 
-First, it would benefit inland navigation. Though the Wenlan River was Linggao's largest river, the huge variation in water levels between rainy and dry seasons meant inland shipping was limited to small rowboats. During the driest periods, some stretches exposed large riverbed stones—though the river didn't dry up, boat transport was impossible. With a water gate at Bopu, the river's water level could be maintained at a basic depth.
+First, it would benefit inland navigation. Though the Wenlan River was Lingao's largest river, the huge variation in water levels between rainy and dry seasons meant inland shipping was limited to small rowboats. During the driest periods, some stretches exposed large riverbed stones—though the river didn't dry up, boat transport was impossible. With a water gate at Bopu, the river's water level could be maintained at a basic depth.
 
 Ma Qianzhu was deeply interested in canals. In his spare time, he'd made extensive canal plans, the most ambitious being his cherished Songliao Canal-Luanhai Canal-Grand Canal inland shipping line. Of course, until the transmigrators conquered all of China, this plan could only remain in his notebook. But canalizing the Wenlan River was feasible.
 
@@ -76,4 +74,4 @@ Second, it would benefit water storage regulation, aiding industrial and agricul
 
 Everyone at the meeting was moved by the beautiful vision Ma Qianzhu painted. Wu Nanhai saw a network of irrigation channels; Wen Desi saw barge fleets on the canal; Zhan Wuya saw countless water wheels and power stations; Xiao Zishan saw transmigrator families boating on the river on weekends...
 
-(End of Chapter)
+**(End of Chapter)**

@@ -1,6 +1,6 @@
-# Chapter 236 - Steam Engines and Boilers
+# Chapter 236: Steam Engines and Boilers
 
-Several people were checking the glass factory's production progress—not just flat glass, but also the glassware production line. The orders from the Guangzhou station were mostly three different sizes of glass wine bottles. In modern glassware manufacturing, glass bottles were made by automated blow-molding on assembly lines, easily producing hundreds of identically-sized standard bottles per minute. The Baireng Glass Factory was still hand-casting—actually, the apprentices performed much better in this regard than some clumsy otaku transmigrators—but the best daily record was only about 200.
+Several people were checking the glass factory's production progress—not just flat glass, but also the glassware production line. The orders from the Guangzhou station were mostly three different sizes of glass wine bottles. In modern glassware manufacturing, glass bottles were made by automated blow-molding on assembly lines, easily producing hundreds of identically-sized standard bottles per minute. The Bairren Glass Factory was still hand-casting—actually, the apprentices performed much better in this regard than some clumsy otaku transmigrators—but the best daily record was only about 200.
 
 "We should really design an automated bottle-making production line," Zhan Wuya said. "With manual production, how many workers would we need to meet demand?"
 
@@ -14,7 +14,7 @@ While they were talking, Li Di brought Marine Squad soldiers from Bopu, using ro
 
 "Sure, the sand is all graded?"
 
-"Already done. Coarse to fine, sieved with the screens you provided. Three grades total, 3 barrels each. Should be enough for you. Plus 3 barrels of diatomaceous earth."
+"Already done. Coarse to fine, sieved with the screens you provided. Three grades total, three barrels each. Should be enough for you. Plus three barrels of diatomaceous earth."
 
 When grinding glass, you first used coarse sand, then fine sand, then specialized ultra-fine blue glass abrasive—which the transmigrators couldn't process themselves, so they substituted with the finest sand.
 
@@ -26,13 +26,13 @@ The entire polishing process was not only laborious but time-consuming, which is
 
 Li Di's steam engine was a small kit obtained from America—in the US, it was a toy for steam engine hobbyists, similar to ultralight aircraft kits that many people assembled.
 
-"It works now, but the horsepower is very low—only 12 horsepower." Li Di said. It had taken him nearly three months to assemble. The structure was compact and lightweight, installable on the Navy's large rowboats.
+"It works now, but the horsepower is very low—only 12 horsepower," Li Di said. It had taken him nearly three months to assemble. The structure was compact and lightweight, installable on the Navy's large rowboats.
 
 The mechanical group decided to examine this machine, so the entire team went to Bopu and saw the machine installed in the Navy's boat shed.
 
----
+***
 
-"We can't handle this. Let's start with the simplest Watt engine." Zhan Wuya said this after examining Li Di's machine. The steam engine's principles didn't exceed their knowledge, but many of the processing methods and materials used couldn't be supported by transmigrator industry.
+"We can't handle this. Let's start with the simplest Watt engine," Zhan Wuya said this after examining Li Di's machine. The steam engine's principles didn't exceed their knowledge, but many of the processing methods and materials used couldn't be supported by transmigrator industry.
 
 "This machine is quite portable. Pity we can't make it," Zhou Bili said after looking. "Its boiler is very sophisticated, the piping is all steel, many parts are welded..."
 
@@ -44,7 +44,7 @@ The mechanical group decided to examine this machine, so the entire team went to
 
 He sighed: "But we don't know riveting. Without riveting, we'd need welding—which we can't afford." Zhan Wuya wasn't skilled in this either—he had complete welding equipment and had stocked some consumables, but welding rods, acetylene, and such couldn't be replenished. Use a bit, lose a bit.
 
-"Heh, speaking of riveting, not to brag, but I'm probably the only one here who knows how." Zhou Bili said proudly.
+"Heh, speaking of riveting, not to brag, but I'm probably the only one here who knows how," Zhou Bili said proudly.
 
 "You do?" Zhan Wuya recalled this Zhou Bili was just a mechanical repairman, a sheet metal specialist. Though he worked on aircraft maintenance—which sounded impressive—it wasn't much use to transmigrators.
 
@@ -56,7 +56,7 @@ Since the 1950s, welding technology had advanced rapidly, eventually replacing r
 
 "It's all up to you!" Xiao Bailang clapped his shoulder.
 
-"Wait—I can't do riveting work alone. A team of 2-3 is needed. Plus specialized equipment." Zhou Bili gestured.
+"Wait—I can't do riveting work alone. A team of two to three is needed. Plus specialized equipment." Zhou Bili gestured.
 
 "Fine, I'll assign some mechanical workers to learn from you."
 
@@ -106,4 +106,4 @@ The fire-tube boiler was invented in 1829 by the Frenchman Séguin and Britain's
 
 "No need to disassemble the locomobiles—we're clear on fire-tube and water-tube boiler structures," Wang Luobin said. "The key is whether the materials can pass muster. These are high-pressure boilers. Without high-pressure boiler tube reserves, and with our self-produced steel tubes' performance—"
 
-(End of Chapter)
+**(End of Chapter)**

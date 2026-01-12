@@ -1,4 +1,4 @@
-# Chapter 234 - Flat Glass Factory
+# Chapter 234: Flat Glass Factory
 
 The Five-Year Plan meeting, lasting a full day and night, finally concluded amid Ma Qianzhu's constant reminders of "Stay on topic, don't wander off." Various departments began implementation according to the general principles established at the meeting.
 
@@ -24,7 +24,7 @@ After repeated experiments, the mechanical people moonlighting as glassmakers fi
 
 Wang Luobin sighed: "Industrial scale it is. We don't lack technology, but we lack skilled workers. We'll have to make up for technique with scale."
 
----
+***
 
 Cast flat glass, also called the "French flat glass casting system," began batch production in France in 1688. By 1760, French flat glass annual output had reached over 1,000 tons, the vast majority used for window glass and coach windows.
 
@@ -32,7 +32,7 @@ It was quite different from flat glass made by the manual blown-tube method. The
 
 If not for the fact that the 17th-century Chinese market was completely blank for flat glass, investing in flat glass would have been hard to profit from. The English introduced it for the first time in 1691 and completely failed; the second introduction nearly went bankrupt due to cost and breakage rate problems.
 
-"Alright." Ma Qianzhu knew approving this request meant increasing fixed asset expenditures. To pilot flat glass production, Bing Feng's glass factory expansion plan gave Ma Qianzhu quite a shock: Was this still that shed-style glass workshop? A large-span workshop with steel frame structure, containing one melting furnace and one sintering kiln inside the workshop, plus ten annealing kilns. Throughout the workshop, hundreds of meters of ceramic piping would collect waste heat from the kilns for comprehensive utilization.
+"Alright." Ma Qianzhu knew approving this request meant increasing fixed asset expenditures. To pilot flat glass production, Bing Feng's glass factory expansion plan gave Ma Qianzhu quite a shock: *Was this still that shed-style glass workshop?* A large-span workshop with steel frame structure, containing one melting furnace and one sintering kiln inside the workshop, plus ten annealing kilns. Throughout the workshop, hundreds of meters of ceramic piping would collect waste heat from the kilns for comprehensive utilization.
 
 "Isn't the scale too large?"
 
@@ -92,4 +92,4 @@ Wang Luobin explained: "Molten glass liquid is poured on top of this. Then sprea
 
 "Alright, I approve." Ma Qianzhu signed the project sheet.
 
-(End of Chapter)
+**(End of Chapter)**

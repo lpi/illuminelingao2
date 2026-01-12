@@ -1,6 +1,6 @@
-# Chapter 235 - Flat Glass Production Line
+# Chapter 235: Flat Glass Production Line
 
-To make cast flat glass, the transmigrator glassmakers first needed to find a suitable formula. The common ingredient list was: silica sand, washed and sieved; alkali salt—substituted with seaweed ash; quickite, hydrated and sieved; saltpeter. Finally, crushed glass.
+To make cast flat glass, the transmigrator glassmakers first needed to find a suitable formula. The common ingredient list was: silica sand, washed and sieved; alkali salt—substituted with seaweed ash; quicklime, hydrated and sieved; saltpeter. Finally, crushed glass.
 
 Ji Situi directed people to first put all raw materials into the sintering furnace for calcination to remove moisture. After extraction, the sintered blocks were cut into small pieces and individually fed into crucibles for melting—sintered material volume was much larger than glass liquid, so new material could only be added after the previous batch melted.
 
@@ -18,7 +18,7 @@ Watching the teenagers walk docilely into the workshop like lambs, led by their 
 
 "If we don't abuse children, you get abused instead." Though Xiao Bailang had a delicate pseudo-maiden face, he looked quite queenly when serious. Bai Yu had to shut up, muttering: "Socialist democracy and rule of law are also what the Party has always advocated."
 
----
+***
 
 "There's no socialism here," Xiao Bailang hammered fiercely at an uncooperative pulley. "What do we call ourselves? Right, Du Wen said last time we have oligarchic-elite tendencies."
 
@@ -90,4 +90,4 @@ Grinding work was done on a stone platform. At Wang Luobin's request, the quarry
 
 The grinding process worked like this: lime was applied under the glass sheet to be ground to prevent movement during grinding. Then on top of the flat glass to be ground, another glass sheet half the size was placed. The upper glass sheet had a wooden board glued to it, and on the board was fixed a horizontal wheel made of lightweight hardwood. This wheel could move the upper glass sheet back and forth, creating stable friction between the two glass sheets. To increase friction effect, water and fine sand were poured between the two glass sheets. Raised edge strips were installed around the grinding table to ensure water and sand wouldn't drain away.
 
-(End of Chapter)
+**(End of Chapter)**

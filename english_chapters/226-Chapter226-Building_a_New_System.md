@@ -1,22 +1,22 @@
-# Chapter 226 - Building a New System
+# Chapter 226: Building a New System
 
 Wen Desi had originally planned to screen a grand military parade movie for the delegates that evening. But seeing how overwhelmed the delegates already looked, any more shock might cause aesthetic fatigue. So he simply canceled it—which also saved the expense of hosting dinner. Thus he announced the conference had concluded successfully.
 
 As the delegates departed with feelings of both excitement and fear, the Executive Committee members took stock of the conference's results.
 
-Through this Political Consultative Conference, the transmigrator collective had achieved preliminary control over the entire county and gained a legal identity somewhat recognized by the local government. Of course, their position was still fragile. Whether the yamen or the various villages, cooperation came either from fear of their military might or from practical interests. Once a powerful external force intervened, this simple cooperative relationship would immediately collapse. The most urgent task now was to cultivate popular sentiment, making the people feel as favorably as possible toward the transmigrator collective.
+Through this Political Consultative Conference, the transmigrator collective had achieved preliminary control over the entire county and gained a legal identity somewhat recognized by the local government. Of course, their position was still fragile. Whether the *yamen* or the various villages, cooperation came either from fear of their military might or from practical interests. Once a powerful external force intervened, this simple cooperative relationship would immediately collapse. The most urgent task now was to cultivate popular sentiment, making the people feel as favorably as possible toward the transmigrator collective.
 
-Making the isolated people of this small southern frontier county feel favorably toward the transmigrators—this first step they'd already accomplished. The transmigrators didn't disturb the people, didn't kill arbitrarily, traded fairly, and through their construction activities after D-Day had indirectly provided relief to those living at the poverty line. All of this was plain for anyone to see. The common people's requirements weren't high. As long as the transmigrator collective could guarantee Linggao's social stability and let them eat a few full meals, they didn't care under whose banner they lived.
+Making the isolated people of this small southern frontier county feel favorably toward the transmigrators—this first step they'd already accomplished. The transmigrators didn't disturb the people, didn't kill arbitrarily, traded fairly, and through their construction activities after D-Day had indirectly provided relief to those living at the poverty line. All of this was plain for anyone to see. The common people's requirements weren't high. As long as the transmigrator collective could guarantee Lingao's social stability and let them eat a few full meals, they didn't care under whose banner they lived.
 
 But to truly make the people accept their rule and be willing to shed blood and sacrifice for these rulers, the most effective approach was to quickly establish chains of common interest.
 
-The great weapon of land reform, proven again and again in the Chinese Revolution, wouldn't work in Linggao. In Ming dynasty Linggao, there was plenty of land. Land reform held little appeal. The reason people were unwilling to clear wasteland was directly related to the region's backward agricultural productivity. The transmigrators' primary task was to raise agricultural productivity, not change production relations. This would not only solidify their own rule but also help establish common interests with ordinary people.
+The great weapon of land reform, proven again and again in the Chinese Revolution, wouldn't work in Lingao. In Ming dynasty Lingao, there was plenty of land. Land reform held little appeal. The reason people were unwilling to clear wasteland was directly related to the region's backward agricultural productivity. The transmigrators' primary task was to raise agricultural productivity, not change production relations. This would not only solidify their own rule but also help establish common interests with ordinary people.
 
-Local merchants were the most direct beneficiaries of the transmigrators. East Gate Market's prosperity was the most typical example of merchants "voting with their feet." Moreover, their commercial policies had attracted merchants from other counties. Merchants were clearly the group most able to appreciate the benefits the transmigrators brought, making them the class with the most common interests with the transmigrators. But the weakness developed by Chinese merchants in traditional scholar-gentry society meant they couldn't yet serve as a reliable force.
+Local merchants were the most direct beneficiaries of the transmigrators. The East Gate Market's prosperity was the most typical example of merchants "voting with their feet." Moreover, their commercial policies had attracted merchants from other counties. Merchants were clearly the group most able to appreciate the benefits the transmigrators brought, making them the class with the most common interests with the transmigrators. But the weakness developed by Chinese merchants in traditional scholar-gentry society meant they couldn't yet serve as a reliable force.
 
 The landlord gentry class, though still harboring considerable doubts, showed from this conference's proceedings that overall there was no hostility—especially after the transmigrator collective promised to compensate for the value of occupied privately-owned land. The gentry's evaluation of the transmigrator collective had risen considerably, and an attitude of cooperation had emerged. Nevertheless, the gentry class remained a potential enemy of the transmigrator collective for now.
 
-Still, under this rudimentary, unstable ruling system, the transmigrator collective could at least mobilize the various resources within Linggao County to a limited degree—especially human resources. Transmigrators could now venture into every corner of the county relatively safely. Previously, every time a Long-Range Reconnaissance Team deployed, they had to mobilize a large armed escort, creating considerable logistical pressure. Now, at least in areas where bandit threats weren't particularly severe, such elaborate arrangements were unnecessary.
+Still, under this rudimentary, unstable ruling system, the transmigrator collective could at least mobilize the various resources within Lingao County to a limited degree—especially human resources. Transmigrators could now venture into every corner of the county relatively safely. Previously, every time a Long-Range Reconnaissance Team deployed, they had to mobilize a large armed escort, creating considerable logistical pressure. Now, at least in areas where bandit threats weren't particularly severe, such elaborate arrangements were unnecessary.
 
 A few days later, villages that had attended the conference began sending liaison officers to confirm the various "Reasonable Burden" figures. The confirmed conscript labor allocation was 1,100 people per year. This large influx of manpower made every department salivate. After some debate, the Army and Navy together received 240 people, with the Navy getting 80. The remainder would be uniformly deployed by Wu De as basic laborers.
 
@@ -26,7 +26,7 @@ The "Reasonable Burden" public grain came to 3,000 "public *shi*"—compared to 
 
 "It is considerable," said Luo Duo. He'd gotten his wish to transfer to the Political Security General Administration's Social Work Department. This department was specifically responsible for collecting, organizing, and analyzing local social conditions from various channels, and compiling the "Social Situation Bulletin."
 
-"Although Linggao's grain tax is over 7,000 *shi*, the local people's actual burden is probably 15,000 *shi* or more." He reported figures he'd spent days studying.
+"Although Lingao's grain tax is over 7,000 *shi*, the local people's actual burden is probably 15,000 *shi* or more." He reported figures he'd spent days studying.
 
 "That much?!" The Executive Committee members were all shocked.
 
@@ -44,27 +44,27 @@ Ma Qianzhu explained his idea unhurriedly: "Based on analysis from the Social Wo
 
 "Here's the thing," Wu De said. "After we take over grain tax collection, we'll completely eliminate surcharges. We'll only submit the stipulated amount to the county treasury. This way, even with our levies added, the total burden on farmers will still be less than before."
 
----
+***
 
-"Will the yamen people agree? This is a major interest chain!" Wen Desi asked doubtfully. Pull one hair and the whole body moves. Once an abuse formed an interest chain, it was hard to eliminate—the same in any timeline.
+"Will the *yamen* people agree? This is a major interest chain!" Wen Desi asked doubtfully. Pull one hair and the whole body moves. Once an abuse formed an interest chain, it was hard to eliminate—the same in any timeline.
 
-"Of course they won't agree," Ma Qianzhu said. "But if we want to transform society, we must first break existing patterns." He appeared confident. "To mobilize the masses, we need a 'villain' class. Since Linggao's situation isn't suited for land reform, landlords and rich peasants aren't appropriate targets."
+"Of course they won't agree," Ma Qianzhu said. "But if we want to transform society, we must first break existing patterns." He appeared confident. "To mobilize the masses, we need a 'villain' class. Since Lingao's situation isn't suited for land reform, landlords and rich peasants aren't appropriate targets."
 
-"And don't forget, many landlords here are clan heads. Linggao's clan power is quite strong," Yu Eshui reminded them.
+"And don't forget, many landlords here are clan heads. Lingao's clan power is quite strong," Yu Eshui reminded them.
 
 Hainan, located at the southern frontier with vast land and sparse population, and plagued by long-term Li uprisings, meant villages here had obvious characteristics of clan settlement for safety and production needs. The transmigrators weren't yet capable of completely smashing all this.
 
 "Right, so our target is the vested interest groups in taxation."
 
-This group was complex, ranging from the County Magistrate and Vice-Magistrate down to unnamed local ruffians who assisted the yamen runners—the so-called "grain runners."
+This group was complex, ranging from the County Magistrate and Vice-Magistrate down to unnamed local ruffians who assisted the *yamen* runners—the so-called "grain runners."
 
 Ma Qianzhu appeared confident: "Officials like Wu Mingjin and Wu Ya could originally gain some benefits from grain taxes. We'll compensate them with profits from private salt and commerce, continuing to cultivate them. They'll have nothing to complain about. The ones truly hurt will be the county's clerks, underlings, and their lackeys. These people are basically scourges—they run rampant in the county, deceiving both superiors and subordinates. Everyone, from top to bottom, both hates and fears them. By purging this group, we not only gain another batch of resources and wealth, but from a public sentiment perspective: these people are utterly unpopular. From gentry to commoners, everyone will be pleased. Two birds with one stone."
 
 Clear out the old, unreasonable institutional system, then promote the transmigrators' more reasonable and streamlined tax system. The gentry and common people would see the transmigrator collective's governance ability in a new light, which would benefit future recruitment of scholar-officials.
 
-"After cleaning them out, we can place our people in the county yamen."
+"After cleaning them out, we can place our people in the county *yamen*."
 
-"Brilliant!" Someone clapped in praise. "This way, the Linggao yamen is essentially ours!"
+"Brilliant!" Someone clapped in praise. "This way, the Lingao *yamen* is essentially ours!"
 
 "This plan is excellent," Wen Desi agreed.
 
@@ -80,7 +80,7 @@ Clear out the old, unreasonable institutional system, then promote the transmigr
 
 "We're counting on you!"
 
-"That's not the issue," Yu Eshui said. "Just as we had villages self-report their 'Reasonable Burden,' the tax registers don't truly reflect Linggao's agricultural production levels. If we continue collecting according to these books, many unfair and unreasonable practices will remain uncorrected—meaningless for this society's progress."
+"That's not the issue," Yu Eshui said. "Just as we had villages self-report their 'Reasonable Burden,' the tax registers don't truly reflect Lingao's agricultural production levels. If we continue collecting according to these books, many unfair and unreasonable practices will remain uncorrected—meaningless for this society's progress."
 
 "What do you mean?"
 
@@ -92,6 +92,6 @@ Clear out the old, unreasonable institutional system, then promote the transmigr
 
 After some discussion, everyone agreed that since this had to be done sooner or later, better sooner than later. They approved beginning a county-wide survey in the second month.
 
-"Now we've gained an excellent breathing opportunity," Ma Qianzhu said at the Executive Committee's summary meeting. "Seize this chance. Completing the industrial and agricultural upgrades as quickly as possible is our most urgent task. The next agenda item: Linggao's First Five-Year Plan."
+"Now we've gained an excellent breathing opportunity," Ma Qianzhu said at the Executive Committee's summary meeting. "Seize this chance. Completing the industrial and agricultural upgrades as quickly as possible is our most urgent task. The next agenda item: Lingao's First Five-Year Plan."
 
-(End of Chapter)
+**(End of Chapter)**

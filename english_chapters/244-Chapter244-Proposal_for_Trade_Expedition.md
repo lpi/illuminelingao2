@@ -1,4 +1,4 @@
-# Chapter 244 - Proposal for Trade Expedition
+# Chapter 244: Proposal for Trade Expedition
 
 Liu Zheng discussed some operational matters, and Bai Guoshi, seeing it was about time, hurriedly pushed off with the others. Liu Zheng wanted to leave too, but was asked to stay—there was a new mission to assign.
 
@@ -14,7 +14,7 @@ At this point, Mo Xiao'an suggested: "Why don't the various ministries organize 
 
 "Yes. Just now Commissioner Wu proposed a trade expedition. I think since this iron ore investigation requires ships, and the scale can't be too small to ensure safety, why not just organize a large-scale expedition?"
 
-"I agree." Trade Minister Lu Rong beamed with spirit. Recent trade within the island hadn't been satisfactory; the status quo of transmigrators purchasing industrial raw materials at East Gate Market fell far short of expectations. everyone had forgotten that the transportation situation in this timeline was terrible.
+"I agree." Trade Minister Lu Rong beamed with spirit. Recent trade within the island hadn't been satisfactory; the status quo of transmigrators purchasing industrial raw materials at East Gate Market fell far short of expectations. Everyone had forgotten that the transportation situation in this timeline was terrible.
 
 What was originally a small plan involving only the Exploration Team for personnel and the Navy for ships and sailors turned into a multi-ministry joint operation. Besides the old partners—the Exploration Team and the Special Reconnaissance Battalion—it also included the Maritime Power Department, Survey Team, Foreign Affairs Ministry, and Foreign Trade Company. The Industrial and Energy Committee and Agricultural Committee sent professional technical personnel for support. Several students were also brought along on the ship as interns.
 
@@ -79,8 +79,8 @@ Of course, there were various raw ores. If they could be collected at the seasid
 "To bribe local officials and gentry. We aren't Spaniards; we say trade, but it's actually looting all the way."
 
 Zhan Wuya said worriedly: "But for such a large-scale mobilization, how many people and ships must be deployed? I'm worried it will damage cargo transportation with Guangdong and Macau." The Industrial and Energy Committee relied on maritime transport more than any other department, so hearing their plan caused some concern—wouldn't this require deploying at least two 70-ton class ships?
- 
- Wen Desi said regretfully: "If we concentrate resources, the shipyard's schooner should be completed within 10 days."
+
+Wen Desi said regretfully: "If we concentrate resources, the shipyard's schooner should be completed within 10 days."
 
 "Using a newly built ship immediately for such a long voyage, isn't it dangerous?"
 
@@ -124,12 +124,12 @@ The few members of the Executive Committee were indeed hesitant. They really did
 
 ***
 
-The meeting lasted until seven or eight in the evening. Liu Zheng's stomach was rumbling with hunger. Finally, the request Bai Guoshi made on his behalf was approved by the Executive Committee, of course with a discount as he had predicted: the personnel establishment was cut, giving only 6 transmigrators—basically all useless wood rejected by other departments. The committee's reason was high-sounding: there is no useless wood, only undiscovered talent. As for how to discover talent, that was Liu Zheng's business.
+The meeting lasted until seven or eight in the evening. Liu Zheng's stomach was rumbling with hunger. Finally, the request Bai Guoshi made on his behalf was approved by the Executive Committee, of course with a discount as he had predicted: the personnel establishment was cut, giving only six transmigrators—basically all useless wood rejected by other departments. The committee's reason was high-sounding: there is no useless wood, only undiscovered talent. As for how to discover talent, that was Liu Zheng's business.
 
 "Why do I have to train useless wood—" Liu Zheng muttered. "If they were female rejects, I'd welcome them, but then it wouldn't be my turn to train them."
 
 However, he wasted a lot of breath to finally get one extra person on the establishment. There were many reasons: mainly because the few forestry majors in the team had to work part-time in the Agricultural Committee's biological lab. So Zhao Xue from the IT group was kept for intelligence collection and organization—anyway, the IT group already complained of having too many people. He was quite satisfied with Zhao Xue being transferred over—although this chick wasn't much of a combat asset, having such a decent-looking young girl in the department could have a healing effect, and it gave a buff to Bai Guoshi.
 
-Equipment wasn't cut much: added 6 crossbows—all experimental products self-made by the Machinery Department, with various sizes and styles. Along with the steel crossbows, two domestic scopes and one Russian-made infrared night vision scope were issued. Added 2 walkie-talkies. Also, the power usage right for the Exploration Team's computers changed from relative to absolute—24-hour uninterrupted power supply.
+Equipment wasn't cut much: added six crossbows—all experimental products self-made by the Machinery Department, with various sizes and styles. Along with the steel crossbows, two domestic scopes and one Russian-made infrared night vision scope were issued. Added two walkie-talkies. Also, the power usage right for the Exploration Team's computers changed from relative to absolute—24-hour uninterrupted power supply.
 
-(End of Chapter)
+**(End of Chapter)**

@@ -1,6 +1,6 @@
-# Chapter 243 - Bai Guoshi's Romance
+# Chapter 243: Bai Guoshi's Romance
 
-Swipe his card at the entrance of the residential area, seeing people playing PSP in the square, he felt a sense of returning to the civilized world. Some were also playing badminton, table tennis, and so on. He had no mood to watch and returned to his dormitory. He shared a dorm with Cui Yunhong and Dong Shiye—the latter occasionally participated in the exploration team's operations.
+Multipass. Swipe his card at the entrance of the residential area, seeing people playing PSP in the square, he felt a sense of returning to the civilized world. Some were also playing badminton, table tennis, and so on. He had no mood to watch and returned to his dormitory. He shared a dorm with Cui Yunhong and Dong Shiye—the latter occasionally participated in the exploration team's operations.
 
 Cui Yunhong disappeared somewhere after eating, and Dong Shiye was still at work, so the dormitory was empty with just him. As material conditions improved, the dormitory also had furniture—in the past, everyone slept on floor mats. Now decorated anew, Bai Guoshi really suspected he had returned to his past university dormitory: loft beds with sleeping space above and a desk below; individual storage lockers and wardrobes; racks for cups and washbasins. The most conspicuous item was the gun rack behind the door—chained to it was an SKS-D rifle, with a full magazine on the gun. The only downside was that there was still no internet, and electricity usage was restricted, with power supply only from 6 PM to 9 PM.
 
@@ -89,8 +89,8 @@ This reason was so sufficient that it couldn't be refused, but ships were scarce
 "We can only allocate some small coastal boats of ten or twenty tons, which probably aren't suitable." Wen Desi hesitated. "It will take some time for the big ship to be completed..."
 
 "President Wen, that two-masted clipper was agreed to belong to our Maritime Power Department!" Li Haiping, the representative of the Maritime Power Department, hurriedly came out to say.
- 
- Wen Desi was in a dilemma. The Resource Department's demand wasn't unreasonable, but the Maritime Power Department's urgent need to acquire new ships to increase armed force and transport capacity was also a reality.
+
+Wen Desi was in a dilemma. The Resource Department's demand wasn't unreasonable, but the Maritime Power Department's urgent need to acquire new ships to increase armed force and transport capacity was also a reality.
 
 "How about this: the ship and sailor establishment will still be listed under the Maritime Power Department, and the Exploration Team can call upon it when needed—guaranteeing priority use for the Exploration Team." Ma Qianzhu came up with a solution that offended neither side. "Sailors are also in short supply now; it's better to be managed uniformly by the Maritime Power Department."
 
@@ -98,4 +98,4 @@ This reason was so sufficient that it couldn't be refused, but ships were scarce
 
 "Leave that to me, brother," Li Haiping agreed readily.
 
-(End of Chapter)
+**(End of Chapter)**

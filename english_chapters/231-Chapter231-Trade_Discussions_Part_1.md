@@ -1,10 +1,10 @@
-# Chapter 231 - Trade Discussions (Part 1)
+# Chapter 231: Trade Discussions (Part 1)
 
 "Selling to Later Jin probably won't work. Hong Taiji started as an anti-smoking activist, then became a tobacco trade protectionist. Selling this stuff to him really isn't easy."
 
 Tobacco was introduced to Liaodong starting in the Tianqi reign. Supposedly it was a habit brought by soldiers transferred from Guangdong to Liaodong. Later, whether through trade, captured loot, or Korean plots—by the time Hong Taiji proclaimed himself emperor, people in Later Jin were also smoking tobacco. Not only were people smoking, but it was apparently quite widespread, to the point that Hong Taiji enjoyed the title of the world's first ruler to officially order a tobacco ban. According to Yu Eshui's historical sources, Later Jin should have already issued its first tobacco prohibition decree, because in a few years, he'd issue an edict rescinding the ban—though requiring subjects to grow and smoke their own rather than buying from Korea. Classic trade protectionism.
 
-A few more years later, the militarily weak Yi dynasty apparently planned to wage "unrestricted warfare" against Later Jin using tobacco, gifting large quantities to Manchu-Qing nobles and officials. According to the Yi Dynasty Veritable Records, at the time Korea's Crown Prince Sohyeon was being held hostage in Shenyang. Korean envoys had secretly brought 300 *jin* of tobacco as gifts. Hong Taiji considered this item "not a local product, wasteful of wealth," and ordered a major ban. Upon discovery, he again ordered strict prohibition.
+A few years later, the militarily weak Yi dynasty apparently planned to wage "unrestricted warfare" against Later Jin using tobacco, gifting large quantities to Manchu-Qing nobles and officials. According to the *Yi Dynasty Veritable Records*, at the time Korea's Crown Prince Sohyeon was being held hostage in Shenyang. Korean envoys had secretly brought 300 *jin* of tobacco as gifts. Hong Taiji considered this item "not a local product, wasteful of wealth," and ordered a major ban. Upon discovery, he again ordered strict prohibition.
 
 "So selling tobacco to Later Jin is still difficult for us."
 
@@ -12,9 +12,9 @@ A few more years later, the militarily weak Yi dynasty apparently planned to wag
 
 "With Holy Ship brand cigarettes' quality, luxury goods indeed. You really think the wild boar skins are rich simpletons?" Yan Quezhi, who had tried the local tobacco, smirked. "The tobacco shreds keep falling out—a few puffs and your fingers get burned."
 
-The transmigrators weren't impressed with the scarce, special-allocation transmigrator-brand cigarettes. Though the tobacco imported from Macau was top quality, it wasn't processed as the flue-cured tobacco modern people were used to. Combined with inferior cigarette paper and crude rolling techniques, smokers had to be very careful—otherwise the loosely-packed tobacco shreds would suddenly fall out and burn holes in their clothes. This made cigarettes merely better than nothing.
+The transmigrators weren't impressed with the scarce, special-allocation transmigrator-brand cigarettes. Though the tobacco imported from Macau was top quality, it wasn't processed as the flue-cured tobacco modern people were used to. Combined with inferior cigarette paper and crude rolling techniques, smokers had to be very careful—otherwise, the loosely-packed tobacco shreds would suddenly fall out and burn holes in their clothes. This made cigarettes merely better than nothing.
 
-Cigarette paper in 20th-century timespace was a special type of paper—thin-leaf paper, specified at no more than 25g per square meter. The paper whiteness reached 82% or higher, with dense, soft, fine texture. Opaque. It had high longitudinal tensile strength, certain breathability, and appropriate burning rate. The main raw material was bleached hemp pulp, sometimes mixed with some bleached wood or grass pulp. To match tobacco's burning rate, small amounts of combustion aids were added. The paper surface was also roller-pressed with ribbed marks to increase breathability and improve appearance.
+Cigarette paper in the 20th century was a special type of paper—thin-leaf paper, specified at no more than 25g per square meter. The paper whiteness reached 82% or higher, with a dense, soft, fine texture. Opaque. It had high longitudinal tensile strength, certain breathability, and an appropriate burning rate. The main raw material was bleached hemp pulp, sometimes mixed with some bleached wood or grass pulp. To match tobacco's burning rate, small amounts of combustion aids were added. The paper surface was also roller-pressed with ribbed marks to increase breathability and improve appearance.
 
 If making do, student exercise book paper was a fairly suitable substitute. Unfortunately, the transmigrators couldn't even produce paper at this level.
 
@@ -26,7 +26,7 @@ Without caustic soda, the workshop could only use a very limited set of raw mate
 
 "Once we can produce the three acids and two alkalis, I'll be relieved," Ma Qianzhu said. "So many urgent matters are stuck on this right now!"
 
----
+***
 
 Wen Desi said: "These things don't matter much. As our industrialization progresses, overcoming technical difficulties is just a matter of time. Linggao, even all of Hainan Island, is too small to provide all the manpower and materials we need for industrialization. For construction and immigration, the transmigrator nation is destined to be a trading nation. Light industry planning should also be based on this."
 
@@ -78,8 +78,8 @@ The imperial capital history otaku said unhurriedly: "Everyone, before you conti
 
 "...It's generally impossible to buy any ready-made tools, but you can buy some semi-finished products, then process and finish them yourself. Because doing it yourself is always cheaper than buying ready-made. Everyone wants cheap, so there's nothing ready-made.
 
-"These descriptions may be biased or exaggerated, but at least they prove that small-peasant economy society's consumption views differ vastly from modern people's. From this we can summarize the general consumption view of ancient—at least Ming-Qing era—lower-class working people: time, effort, comfort, convenience are all "free." As long as you can save even one copper coin, you can freely squander these "free" elements. In some elderly people today, remnants of this consumption habit can still be seen...
+"These descriptions may be biased or exaggerated, but at least they prove that small-peasant economy society's consumption views differ vastly from modern people's. From this we can summarize the general consumption view of ancient—at least Ming-Qing era—lower-class working people: time, effort, comfort, convenience are all 'free.' As long as you can save even one copper coin, you can freely squander these 'free' elements. In some elderly people today, remnants of this consumption habit can still be seen...
 
 "Strictly speaking, we haven't truly entered mass consumer goods production yet. From this we can derive a research topic: in pursuing an economic path and trade-nation building in this timeline, how do we transform ancient people's consumption habits?"
 
-(End of Chapter)
+**(End of Chapter)**
