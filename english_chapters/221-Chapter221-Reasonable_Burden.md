@@ -1,4 +1,4 @@
-# Chapter 221 - Reasonable Burden
+# Chapter 221: Reasonable Burden
 
 In ancient China, tax revenue was rarely used for public services. So-called taxation was simply wealth extraction to fund the ruling class. The people's suffering and social improvement received scant attention. The public affairs and welfare services undertaken by modern governments weren't within their consideration.
 
@@ -16,7 +16,7 @@ Fortunately, Wang Zhaomin had already written his speech for him. He just had to
 
 There had been some bargaining over the speech's content. The transmigrators naturally wanted Linggao county yamen's support to be "clear and unambiguous," while Magistrate Wu wanted the language murky and ambiguous. So Wang Zhaomin's draft was decided upon after a full day of consultation between both sides' chief writers. Overall, everyone was satisfied.
 
-Originally, Wu Ya hadn't wanted to come read the speech. But naturally, Elderly Master Wu didn't want to appear at such an occasion—it would leave him without room for future denials. So the scapegoat became Vice-Magistrate Wu. He had originally planned to use his superior rank to pressure the County Sheriff into being his scapegoat, but the "baldies" firmly refused—a Vice-Magistrate was after all the county's second-in-command, carrying far more persuasive weight with common folk than a half-official, half-clerk position like Sheriff.
+Originally, Wu Ya hadn't wanted to come read the speech. But naturally, Old Master Wu didn't want to appear at such an occasion—it would leave him without room for future denials. So the scapegoat became Vice-Magistrate Wu. He had originally planned to use his superior rank to pressure the County Sheriff into being his scapegoat, but the "baldies" firmly refused—a Vice-Magistrate was, after all, the county's second-in-command, carrying far more persuasive weight with common folk than a half-official, half-clerk position like Sheriff.
 
 Only under duress did Wu Ya serve as the yamen's representative. A red envelope of eighty *liang* silver from the transmigrators somewhat soothed his wounded spirit.
 
@@ -24,7 +24,7 @@ After Vice-Magistrate Wu spoke about the county's grave situation facing sea pir
 
 Baireng Society would establish a "public office" at East Gate Market as the militia's administrative body. It could also collect militia funds and provisions from villages that joined the society.
 
-The head of Baireng Society would naturally be Wu De. Though he wasn't a military leader, militia society heads were generally local gentry who dealt with the government and villages. As the newly-appointed People's Commissioner for Civil Affairs, he was well-suited for this government position. Moreover, this position would introduce him to the county's prominent figures, facilitating future work.
+The head of Baireng Society would naturally be Wu De. Though he wasn't a military leader, militia society heads were generally local gentry who dealt with the government and villages. As the newly appointed People's Commissioner for Civil Affairs, he was well-suited for this government position. Moreover, this position would introduce him to the county's prominent figures, facilitating future work.
 
 Wu De wasn't wearing training clothes. In fact, all transmigrators attending today's meeting dressed more formally than usual. Of course, "formal" didn't mean suits and ties—just not the colorful training uniforms of everyday. Today he wore an '87-style blue Navy officer's spring-autumn dress uniform without rank insignia. It looked quite dignified.
 
@@ -36,11 +36,11 @@ This novel-sounding boilerplate intrigued the attendees. The only shortcoming wa
 
 After this glorious and correct boilerplate was finished, the meeting moved to the main agenda: levying grain and labor.
 
-The newly appointed People's Commissioner for Civil Affairs Wu De approached this matter cautiously. After all, levying grain and labor was complex and delicate work. The transmigrators had neither governmental authority nor detailed information—only the deterrent of force. Based on their consistent experience, such burdens typically fell on society's lowest strata. Since they couldn't yet change the social structure, the only option was to keep grain levies within bearable limits and avoid excessive exaction.
+The newly appointed People's Commissioner for Civil Affairs, Wu De, approached this matter cautiously. After all, levying grain and labor was complex and delicate work. The transmigrators had neither governmental authority nor detailed information—only the deterrent of force. Based on their consistent experience, such burdens typically fell on society's lowest strata. Since they couldn't yet change the social structure, the only option was to keep grain levies within bearable limits and avoid excessive exaction.
 
 Therefore, this burden imposed by the transmigrator collective on Linggao's people was named the "Reasonable Burden."
 
----
+***
 
 The "Reasonable Burden" plan collected on a village-by-village basis. Each village would report its own capacity.
 
@@ -56,11 +56,11 @@ Everyone understood this kind of voluntary contribution. Whenever the government
 
 The venue immediately buzzed with discussion. The village delegates had originally expected to receive a number to take home. Now it was self-reporting, and some felt they couldn't decide on their own—after all, once a figure was reported, it became law. Reporting too much or too little would both be inappropriate.
 
-Huang Bingkun saw an opportunity and deliberately said: "This is a major village matter. We can't decide ourselves—we need to go back and discuss."
+Huang Bingkun saw an opportunity and deliberately said, "This is a major village matter. We can't decide ourselves—we need to go back and discuss."
 
 The people around him thought this reasonable. Someone stood up requesting to go back and consult with the village elders before reporting. Many others chimed in.
 
-Good, Huang Bingkun thought. With so many villages at various distances, going back and returning would take at least four or five days. Add the wrangling in the village—that would take several more days. By the time they reconvened, it would be at least half a month later.
+*Good,* Huang Bingkun thought. With so many villages at various distances, going back and returning would take at least four or five days. Add the wrangling in the village—that would take several more days. By the time they reconvened, it would be at least half a month later.
 
 Wu De was prepared for this situation. He asked villages to first tally how many could decide their "Reasonable Burden" amount on the spot, and how many needed to go back and discuss. They should submit the lists.
 

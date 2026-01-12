@@ -1,24 +1,24 @@
-# Chapter 214 - The Agreement
+# Chapter 214: The Agreement
 
-Wen Desi's demands were also three points:
+Wen Desi also had three points:
 
-First, all missionary affairs in Linggao must be presided over by the Linggao Church under the Australian Church. The Jesuits were welcome to come as "brethren" to provide support, but could not establish their own independent operations. All ecclesiastical matters must be handled only after consultation and agreement with the Linggao Church.
+First, all missionary affairs in Linggao must be presided over by the Linggao Church under the Australian Church. The Jesuits were welcome to come as "brethren" to provide support, but could not establish independent operations. All ecclesiastical matters must be handled only after consultation and agreement with the Linggao Church.
 
 Second, the Church must accept supervision by the Religious Affairs Officer dispatched by the Executive Committee.
 
 Third, freedom of religious belief: believers have the freedom to believe, the freedom not to believe, and the freedom to change their beliefs.
 
-Apart from a slight objection to the third point, Lu Ruohua agreed to everything. However, he firmly insisted that the transmigrator regime must grant the Jesuits dominance over Linggao's missionary work and refuse entry to other Catholic religious orders. His stance was unyielding.
+Aside from a slight objection to the third point, Lu Ruohua agreed to everything. However, he firmly insisted that the transmigrator regime grant the Jesuits a monopoly on missionary work in Linggao and refuse entry to other Catholic orders. His stance was unyielding.
 
 Wen Desi hadn't expected the Jesuits to have such strong hostility toward other orders within the same denomination, so he asked Lu Ruohua to explain why. Lu Ruohua didn't hide anything and recounted the causes and consequences of the great persecution of Catholics in Japan in 1596.
 
-The first expulsion of Catholics and persecution of native Catholics by the Japanese shogunate in 1596 had many internal and external causes. But one major factor was the reckless competition among multiple Catholic orders to seize control of Japanese missionary work and the Japanese Church, "purifying the faith" without any regard for consequences. The Jesuits keenly felt that many orders knew far too little about Eastern nations, acting out of sheer fanaticism and a fundamentalist sense of superiority that produced chaotic results and generated intense resentment from the shogunate and daimyos, causing Japanese missionary work to collapse. Therefore, the Jesuits were determined not to repeat this mistake and to keep missionary rights firmly in their own hands.
+The first expulsion and persecution of Catholics by the Japanese shogunate in 1596 had many causes, but one major factor was the reckless competition among multiple Catholic orders. They sought to seize control of the Japanese Church, "purifying the faith" without any regard for consequences. The Jesuits keenly felt that many orders knew far too little about Eastern nations, acting out of sheer fanaticism and a fundamentalist sense of superiority. This produced chaotic results and generated intense resentment from the shogunate and daimyos, causing the collapse of Japanese missionary work. Therefore, the Jesuits were determined not to repeat this mistake and to keep missionary rights firmly in their own hands.
 
-But different Popes favored different orders differently, entangled with power struggles within the Curia, between the Roman Curia and the churches of major Catholic nations. France, for instance, had long aspired to be the protector of the Chinese Catholic Church. Though the Jesuits claimed to be trusted by successive Popes, they couldn't completely control the situation. So they hoped to rely on local secular powers to suppress their competitors.
+But different Popes favored orders differently, entangled with power struggles within the Curia and between the Roman Curia and the churches of major Catholic nations. France, for instance, had long aspired to be the protector of the Chinese Catholic Church. Though the Jesuits claimed to be trusted by successive Popes, they couldn't completely control the situation. Thus, they hoped to rely on local secular powers to suppress their competitors.
 
-"I see. Father, you're quite candid," Wen Desi said approvingly.
+"I see. Father, you're quite candid," Wen Desi nodded approvingly.
 
-"Pointless disputes have caused too much damage," Lu Ruohua, though a devout Catholic, was quite disgusted by certain people's fanaticism.
+"Pointless disputes have caused too much damage." Though a devout Catholic, Lu Ruohua was disgusted by the fanaticism of certain factions.
 
 Wen Desi proposed many more detailed restrictions. Having seen English people infiltrating here, Lu Ruohua agreed to everything he could—they had to establish a foothold before those English heretics. Besides, restricted preaching was still better than clandestine preaching.
 
@@ -44,13 +44,13 @@ Missionary delegation personnel could move freely within transmigrator-controlle
 
 Missionary delegation personnel could hire servants through the Linggao Church but not privately. Without permission, the delegation could not bring additional personnel into Linggao from outside.
 
-Religious books and documents needed for missionary work required a single-document-single-report system; unauthorized imports were forbidden.
+Religious books and documents needed for missionary work required individual declaration and approval; unauthorized imports were forbidden.
 
 The missionary delegation was not permitted to establish monasteries or accept monks or nuns. Such institutions should be operated by the Linggao Church. The Jesuits' addition of any clergy required approval from the Linggao Church and the Religious Affairs Officer.
 
 In return, the Jesuits would advocate at the Holy See for the Linggao Church's legitimacy, seeking recognition of its full ecclesiastical authority.
 
-The Jesuits guaranteed they would provide every convenience and support for the transmigrator regime's commercial activities in Macau, and would recruit various European technical and labor personnel on their behalf.
+The Jesuits guaranteed they would facilitate the transmigrators' commercial activities in Macau and recruit European technical and labor personnel on their behalf.
 
 The Jesuits agreed to use their missionary network to facilitate the transmigrators' trading activities in Southeast Asia.
 
@@ -60,15 +60,15 @@ For the transmigrator regime, this system guaranteed their control over ecclesia
 
 As for further reformation and utilization of the Church and doctrine, a specialized team was already conducting related research. Wen Desi was the head of the theory leadership group.
 
-Though theoretically this agreement still needed ratification by the Transmigrator Executive Committee and the Jesuit Superior in Macau, everyone understood this was merely a formality. Wen Desi beamed and had someone bring out a bottle of "Tang Dynasty Princess" submitted by the Guangzhou station. Both sides raised their glasses in celebration.
+Though theoretically this agreement still needed ratification by the Transmigrator Executive Committee and the Jesuit Superior in Macau, everyone understood this was merely a formality. Wen Desi beamed and had a bottle of "Tang Dynasty Princess" brought out. Both sides raised their glasses in celebration.
 
 "What excellent wine, with the fragrance of rhubarb," Lu Ruohua praised effusively.
 
-"How does it compare to the sweet wine of Chartreuse monastery?"—Catholic monasteries had historically been famous for their expertise in winemaking. (Note: This refers to the Carthusian monastery in France, whose monks produce world-famous liqueurs.)
+"How does it compare to the sweet wine of Chartreuse monastery?" Catholic monasteries were historically famous for their winemaking. (Note: This refers to the Carthusian monastery in France, famous for its Chartreuse liqueur.)
 
 "They're different," Lu Ruohua shook his head. "The Carthusian brothers use brandy, while 'Tang Dynasty Princess' uses grain spirits. Each has its own flavor."
 
-These clergy really knew their drink. Wen Desi, who had privately complained about this bitter-sweet wine, heard he liked it and gave him another bottle.
+These clergy really knew their drink. Wen Desi, who had privately complained about this bitter-sweet wine, heard the priest liked it and gave him another bottle.
 
 "Do you know how to make wine?" Wen Desi wondered if this monk might help develop some brewing techniques.
 
@@ -78,9 +78,9 @@ A doctor—that could be useful. Though 17th-century Western medicine wasn't muc
 
 Wen Desi had someone escort the missionary back to the quarantine camp. Bai Duoluo was kept in the office to receive private instructions.
 
-The door opened, and a couple walked in—the "English" the priest had seen earlier. Naturally, they weren't English at all, but Xue Ziliang and Dingding's wife Panpan. Though Xue Ziliang's English was good and he had the right demeanor, his face was still Asian, which was why he'd been given a wig and mask.
+The door opened, and a couple walked in—the "English" the priest had seen earlier. Naturally, they weren't English at all, but Xue Ziliang and Ding Ding's wife, Panpan. Though Xue Ziliang's English was good and he had the right demeanor, his face was still Asian, which was why he'd been given a wig and mask.
 
----
+***
 
 "Wasn't our performance wonderful?" Xue Ziliang preened like a peacock, showing off the snowy lace ruffles at his cuffs—men wore lace in this era too.
 
@@ -92,9 +92,9 @@ The door opened, and a couple walked in—the "English" the priest had seen earl
 
 "That won't work—it's on the Planning Committee's books. If you want to buy it, you'll have to ask the Planning Committee." These clothes had been purchased in Macau for use in case reconnaissance of European colonies became necessary.
 
-"Oh, is that so." The tall Western woman pouted with disappointment. "Dingding said the new timeline would have everything, which is why I came with him. Now I can't even buy new clothes. I never used to wear last year's fashions."
+"Oh, is that so." The tall Western woman pouted with disappointment. "Ding Ding said the new timeline would have everything, which is why I came with him. Now I can't even buy new clothes. I never used to wear last year's fashions."
 
-But Xue Ziliang asked: "Director Wen, does the Executive Committee have plans for winemaking?"
+But Xue Ziliang asked, "Director Wen, does the Executive Committee have plans for winemaking?"
 
 "Yes, the Guangzhou station is already working on it. Leizhou will start soon too. Do you have ideas?"
 
@@ -102,19 +102,19 @@ But Xue Ziliang asked: "Director Wen, does the Executive Committee have plans fo
 
 "These are grain wines—no grapes needed. Actually, without grapes, you can still make excellent fruit wine brandy from other fruits. Hainan should have abundant fruit resources. I've noticed there's a lot of elderberry around here."
 
-"Oh?" Wen Desi thought this could be useful technology. Setting up a distillery was very tempting—and cigarettes too, how many times had people suggested that? And just now, Panpan's dissatisfaction with clothing. That made sense too—their current clothes were practically spartan, with everyone wearing durable, easily washed universal-brand training uniforms day to day. The fanciest things were just windbreakers and such...
+"Oh?" Wen Desi thought this could be useful technology. Setting up a distillery was very tempting—and cigarettes too; how many times had people suggested that? And just now, Panpan's dissatisfaction with clothing made sense too. Their current clothes were practically spartan, with everyone wearing durable, easily washed universal-brand training uniforms day to day. The fanciest things were just windbreakers and such...
 
-Wasn't this exactly the contradiction between backward productive forces and the people's ever-growing material and cultural needs? Wen Desi recalled his high school political education classes. Now that the transmigrators' situation was somewhat stable, if they didn't provide some material and cultural consumption soon, morale was a concern.
+Wasn't this precisely the "contradiction between backward productive forces and the people's ever-growing material and cultural needs"? Wen Desi recalled his high school political education classes. Now that the transmigrators' situation was somewhat stable, if they didn't provide some material and cultural consumption soon, morale was a concern.
 
 "Good, let's study this issue!" Wen Desi noted the idea in his notebook. Looking at Panpan's dress, he called the Planning Committee to ask if they could sell the dress to Panpan.
 
 "Right, right, I know it's needed for intelligence work. We can buy another dress. Besides, only three women can fit this kind of dress anyway. Just have her perform next time."
 
-So the dress was sold to Panpan for two thousand points. In Wen Desi's view, this was an absolute bargain. This was a real silk dress, and the embroidery and handmade lace alone would cost at least ten to twenty thousand RMB in the original timeline. But Dingding didn't see it that way—when he was called in to pay, his brows knitted together in pain.
+So the dress was sold to Panpan for two thousand points. In Wen Desi's view, this was an absolute bargain. This was a real silk dress, and the embroidery and handmade lace alone would cost at least ten to twenty thousand RMB in the original timeline. But Ding Ding didn't see it that way—when he was called in to pay, his brows knitted together in pain.
 
-"If you want clothes, go to the Women's Cooperative! At least we're shareholders there and get 12% off," Dingding grumbled.
+"If you want clothes, go to the Women's Cooperative! At least we're shareholders there and get 12% off," Ding Ding grumbled.
 
-"They only have Chinese-style clothes. I want to wear this kind—look how beautiful it is." She twirled, and the eyes of several nearby men lit up. Even Dingding's gaze wavered momentarily.
+"They only have Chinese-style clothes. I want to wear this kind—look how beautiful it is." She twirled, and the eyes of several nearby men lit up. Even Ding Ding's gaze wavered momentarily.
 
 "Don't make a habit of this." He hurried off with Panpan before the tall Western woman could cause any more trouble.
 
@@ -148,8 +148,8 @@ Meanwhile, preparations for the militia joint defense conference were also under
 
 According to preliminary statistics, about four hundred delegates were expected, representing approximately two hundred natural villages and thirteen market towns. The delegates were mainly village headmen, clan elders, and local gentry.
 
-To prepare for this conference, Linggao Construction Corporation expanded a horse-and-cart inn at East Gate Market to accommodate the delegates. Several dozen women were selected from the Commune to cook and clean for the conference delegates.
+To prepare for this conference, the Linggao Construction Corporation expanded a carriage inn at East Gate Market to accommodate the delegates. Several dozen women were selected from the Commune to cook and clean for the conference delegates.
 
-The largest project was outside East Gate Market at Baireng City, where Linggao Construction Corporation had enclosed a large area of open land to build a massive stadium. The stadium had a four-hundred-meter track—Ma Qianzhu couldn't determine exactly how big the stadium should be, so he used the standard four-hundred-meter track as the specification. In reality, neither the transmigrators nor the native people of Linggao would need such an enormous athletic facility for the next five years. The stadium's main purpose was to prepare for Ma Qianzhu's favorite mass movements. To hold mass rallies and various ceremonies, they would need a sufficiently grand and impressive stadium.
+The largest project was outside East Gate Market at Baireng City, where the Linggao Construction Corporation had enclosed a large area of open land to build a massive stadium. The stadium had a four-hundred-meter track—Ma Qianzhu couldn't determine exactly how big the stadium should be, so he used the standard four-hundred-meter track as the specification. In reality, neither the transmigrators nor the native people of Linggao would need such an enormous athletic facility for the next five years. The stadium's main purpose was to prepare for Ma Qianzhu's favorite mass movements. To hold mass rallies and various ceremonies, they would need a sufficiently grand and impressive stadium.
 
 (End of Chapter)

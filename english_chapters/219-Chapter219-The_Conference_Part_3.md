@@ -1,4 +1,4 @@
-# Chapter 219 - The Conference (Part 3)
+# Chapter 219: The Conference (Part 3)
 
 "Newspaper?"
 
@@ -6,17 +6,15 @@
 
 "What does it say?"
 
-"Various news items: from Baireng City, East Gate Market, and the whole county. Lately there's even commercial news from Guangzhou Prefecture." He turned it over. "These pages have serialized novels, ballads, and such. Very entertaining."
+"Various news items: from Baireng City, East Gate Market, and the whole county. Lately, there's even commercial news from Guangzhou Prefecture." He turned it over. "These pages have serialized novels, ballads, and such. Very entertaining."
 
-Fu Buer couldn't read and naturally couldn't understand its appeal. Still, he'd bring it back for the literate people in the village to look at—it was a rare novelty. To be safe, he asked:
+Fu Buer couldn't read and naturally couldn't understand its appeal. Still, he'd bring it back for the literate people in the village to look at—it was a rare novelty. To be safe, he asked, "There aren't any seditious words in here, are there?"
 
-"There aren't any seditious words in here, are there?"
+"Certainly not. This newspaper is even sent daily to the county yamen. If you want one, take a copy—free to conference delegates," the female clerk said.
 
-"Certainly not. This newspaper is even sent daily to the county yamen. If you want one, take a copy—free to conference delegates." the female clerk said.
+Only then did Fu Buer relax. He took a copy, carefully folded it, and tucked it into his clothes. Walking around the shop, he saw some excellent silks and foreign cloth and decided to buy some to bring back. The cooperative accepted copper coins, silver pieces, and circulation vouchers. Fu Buer bought several bolts of foreign cloth and had his servant boy carry them. He noticed the clerk writing symbols in the account book that were similar to those on his own card, and the same markings appeared on the so-called towel. Remembering Ma Peng had said these were called Arabic numerals and were more convenient for accounting than Suzhou numerals, he became interested and watched for a long while, chatting with the clerk. It turned out this woman had only learned to read in the past few months, and had learned arithmetic too. Now she could not only use an abacus but also keep accounts.
 
-Only then did Fu Buer relax. He took a copy, carefully folded it, and tucked it into his clothes. Walking around the shop, he saw some excellent silks and foreign cloth and decided to buy some to bring back. The cooperative accepted copper coins, silver pieces, and circulation vouchers. Fu Buer bought several bolts of foreign cloth and had his servant boy carry them. He noticed the clerk drawing patterns on the account book with an abacus that were similar to those on his own card, and the same markings appeared on the so-called towel. Remembering Ma Peng had said these were called Arabic numerals and were more convenient for accounting than Suzhou numerals, he became interested and watched for a long while, chatting with the clerk. It turned out this woman had only learned to read in the past few months, and had learned arithmetic too. Now she could not only work an abacus but also keep accounts.
-
-"The proprietress is truly kindhearted!" The clerk was obviously quite satisfied with her treatment. "Room and board are covered, and she teaches us skills. I even get around a hundred *yuan* in sales commission each month."
+"The proprietress is truly kindhearted!" The clerk was obviously quite satisfied with her situation. "Room and board are covered, and she teaches us skills. I even get around a hundred *yuan* in sales commission each month."
 
 Fu Buer saw that this shop was impressively organized, with well-mannered clerks who all seemed literate and numerate. He couldn't help being moved—he still had several ten-year-old household servants at home who did nothing but cut pigweed and herd cattle. Why not send them here as apprentices? Once they learned these skills, they'd be of great help to him. He immediately asked Ma Peng if they took apprentices here, saying he'd like to send several children to apprentice and would even pay for their meals.
 
@@ -30,21 +28,21 @@ Policemen dressed like Ma Peng could be seen on the streets from time to time. T
 
 "The chief lords are actually quite merciful to the poor. These common whores don't even have to pay the flower tax. They just need to get a license to do business here."
 
-Fu Buer looked closely and indeed, every prostitute had a card hung on her chest similar to his own, except theirs were yellow.
+Fu Buer looked closely, and indeed, every prostitute had a card hung on her chest similar to his own, except theirs were yellow.
 
-Seeing Fu Buer looking at her, a prostitute immediately put on her most charming smile: "Come play, sir—I take copper coins, silver, and vouchers."
+Seeing Fu Buer looking at her, a prostitute immediately put on her most charming smile. "Come play, sir—I take copper coins, silver, and vouchers."
 
-Ma Peng snapped: "Go on, go on—don't bother people. This gentleman is a conference delegate."
+Ma Peng snapped, "Go on, go on—don't bother people. This gentleman is a conference delegate."
 
 The prostitute seemed quite afraid of this policeman. She pouted but said nothing.
 
-Fu Buer asked Ma Peng: "What are these vouchers? The cooperative shop asked if I had any too."
+Fu Buer asked Ma Peng, "What are these vouchers? The cooperative shop asked if I had any too."
 
 "They're money vouchers. Also called circulation vouchers here. All the merchants at East Gate Market accept them." He pulled several colorful paper slips from his pocket.
 
 "You can buy things with these paper slips?" Fu Buer was quite skeptical.
 
-"We get paid with these—would there be any fakes?"
+"We get paid in these—would they be fake?"
 
 Fu Buer examined the slips for a long while, muttering to himself. He seemed to recall hearing the village elders say that many, many years ago the court had also issued such paper money. Back then, officials forced ordinary people to accept it when buying things, but when it came time to pay taxes, they wouldn't take it. No matter what amount was written on the paper, you couldn't buy much with it in the market. Common folk treated it as waste paper. He remembered now—it was called "treasure notes" or something.
 
@@ -68,15 +66,13 @@ On the leftmost counter hung a wooden sign. Ma Peng told him this was the exchan
 
 Fu Buer knew a bit about the big *jin*. When he'd sent his farmhands to sell grain, they'd reported that the short-hairs didn't use measures but weighed everything directly with scales. At the time, to help locals understand exactly how much a big *jin* was, every large household that came to sell grain received a standard one-big-*jin* stone weight. Fu Buer still had that stone thing at home, ready for selling grain next year.
 
----
-
 After examining Ma Peng's vouchers for a long while, Fu Buer still didn't quite understand how these fancy paper slips could be spent. He vaguely sensed that the key was that these papers could be exchanged for grain here. That was why merchants were willing to accept them.
 
 "Truly eye-opening." Fu Buer became even more determined to send some household servants here as apprentices. Setting everything else aside, these short-hairs simply had more tricks up their sleeves than anyone else. But then he thought—if his servants all became clever, what about his sons? Could they still outmaneuver them? If something happened to him, wouldn't the family property be at risk? The clansmen weren't necessarily reliable either. But he really couldn't bear to send his own sons here as apprentices.
 
 Leaving the grain shop, they toured East Gate Market extensively. Everything was fresh and interesting. He secretly felt that coming to this conference had been the right choice—these experiences alone would give him enough to boast about for three to five years.
 
-Seeing the sky filled with red clouds as evening approached, he wanted to return to the inn. But Ma Peng insisted on treating him to dinner:
+Seeing the sky filled with red clouds as evening approached, he wanted to return to the inn. But Ma Peng insisted on treating him to dinner.
 
 "Master Fu, I ate plenty of your food in the past. This time it's on me."
 
@@ -86,25 +82,23 @@ The far end of the cross-street off East Gate Street was farther from the market
 
 It was a small eatery, quite modest, with only six tables. On the wooden counter by the entrance, dishes of cold appetizers were displayed—mostly local seafood, covered with bamboo domes. There was also a jar of salted boiled peanuts—all drinking snacks.
 
-Ma Peng entered the shop and had the waiter find them a seat in the back. He ordered four dishes, a pot of wine, and two bowls of fish congee. After several rounds of toasting, Fu Buer got to the point:
+Ma Peng entered the shop and had the waiter find them a seat in the back. He ordered four dishes, a pot of wine, and two bowls of fish congee. After several rounds of toasting, Fu Buer got to the point.
 
 "Now that you're one of the short-hairs' men, life must be pretty good?"
 
 "Sure is—much better than being a farmhand," Ma Peng said. "We just had currency reform recently. A constable like me gets 200 *yuan* a month—enough to buy 200 big *jin* of rice. My mother and I both eat our fill, and we can even buy a new piece of clothing now and then." He took a sip of wine. "I, Ma Peng, started working as a farmhand at twelve. I thought I'd spend my whole life as a poor laborer. Never imagined I'd have today! This life—it's like a dream!"
 
-"Indeed, indeed." Fu Buer wanted to learn the inside story of the conference, so he kept plying Ma Peng with wine and dishes, saying many flattering things. When the atmosphere seemed warm enough, he asked:
+"Indeed, indeed." Fu Buer wanted to learn the inside story of the conference, so he kept plying Ma Peng with wine and dishes, saying many flattering things. When the atmosphere seemed warm enough, he asked, "Brother Ma, what do you suppose the short-hair chiefs want, summoning people from all the villages to this conference?"
 
-"Brother Ma, what do you suppose the short-hair chiefs want, summoning people from all the villages to this conference?"
+Ma Peng shook his head. "How would I know! The chiefs think deeply—we don't understand."
 
-Ma Peng shook his head: "How would I know! The chiefs think deeply—we don't understand."
-
-Fu Buer was somewhat disappointed. He deliberately tried to provoke him: "Don't the short-hairs ever let slip a word or two? You count as one of their trusted men."
+Fu Buer was somewhat disappointed. He deliberately tried to provoke him. "Don't the short-hairs ever let slip a word or two? You count as one of their trusted men."
 
 "Trusted man? Not even close," Ma Peng laughed. "Take our chief, for example—even among the short-hairs he's no big shot. I hear he doesn't even get to attend the leadership meetings." He took a sip of wine. "But the chiefs are taking this conference very seriously. They specially built some big reviewing stand. And they told us to take good care of the village delegates—anyway, they want to make you all satisfied."
 
-Seeing an opening, Fu Buer pressed: "Can you at least guess something?"
+Seeing an opening, Fu Buer pressed, "Can you at least guess something?"
 
-Ma Peng thought for a moment before speaking: "Probably about 'cooperation.' I don't know what cooperation means. But from what the chiefs have said, it seems they want the villages to jointly organize militia and train together. There are also other 'benefits' they want to give to the villages. As for what benefits, I don't know."
+Ma Peng thought for a moment before speaking. "Probably about 'cooperation.' I don't know what cooperation means. But from what the chiefs have said, it seems they want the villages to jointly organize militia and train together. There are also other 'benefits' they want to give to the villages. As for what benefits, I don't know."
 
 "They didn't mention levying grain or labor?" Fu Buer didn't care about so-called benefits—if the short-hairs didn't squeeze them too hard, that would already be heaven's mercy.
 
@@ -112,19 +106,19 @@ Ma Peng thought for a moment before speaking: "Probably about 'cooperation.' I d
 
 That was manageable. Fu Buer thought if it was labor, he could just send the impoverished outsiders from the village—it wouldn't damage the village's core.
 
-Fu Buer took out a silver ingot and secretly passed it to Ma Peng under the table:
+Fu Buer took out a silver ingot and secretly passed it to Ma Peng under the table.
 
-"Brother Ma, this is just a small token. Please look after our village in the future—we're all neighbors after all—"
+"Brother Ma, this is just a small token. Please look after our village in the future—we're all neighbors after all..."
 
 The ingot weighed one *liang*. Though not lavish, it was no small sum for ordinary folk. The village council had allocated twenty *liang* of silver for him to use for making connections at Baireng City.
 
-Ma Peng hurriedly refused: "This won't do, this won't do. Master Fu, you're trying to harm me! Take it back quickly."
+Ma Peng hurriedly refused. "This won't do, this won't do. Master Fu, you're trying to harm me! Take it back quickly."
 
 Fu Buer thought he was just making a show of declining, but seeing Ma Peng's panicked expression, he clearly wasn't pretending. He had to take the silver back.
 
-Ma Peng quickly looked around. Seeing no one was paying attention, he continued in a low voice: "Master Fu, the short-hairs hate this most of all. If I took your silver, I'd lose my job at the very least. Quick, put it away."
+Ma Peng quickly looked around. Seeing no one was paying attention, he continued in a low voice, "Master Fu, the short-hairs hate this most of all. If I took your silver, I'd lose my job at the very least. Quick, put it away."
 
-Fu Buer said: "What's there to fear? Heaven knows, Earth knows, you know, I know—"
+Fu Buer said, "What's there to fear? Heaven knows, Earth knows, you know, I know—"
 
 "The problem is the chiefs know everything." Ma Peng, shivering with fear, told him something. One of the policemen at the station had taken silver from a few shopkeepers. The very next day, Chief Dugu knew about it. Then the man disappeared—word was he was now doing hard labor at the quarry.
 
