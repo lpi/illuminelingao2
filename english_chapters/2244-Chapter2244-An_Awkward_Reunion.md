@@ -1,0 +1,115 @@
+# Chapter 2244 - An Awkward Reunion
+
+Peng Shou'an went on to recommend several other influential families. One was the Tang clan.
+
+"...The Tang ancestor was Tang Jian, who led troops south to take Yangshan at the start of the dynasty. He left his fifth son here to found a branch. Though this line never achieved distinction in officialdom, the incense has burned for generations. Today, several thousand clansmen live together—one of the county's most powerful clans."
+
+Such a great clan, in a place like Yangshan, was essentially "every man a soldier." One word from the patriarch and four or five hundred could be mustered.
+
+Bi Da asked Luo Yiming: "How have these families treated us?"
+
+"Except for the Ouyangs, none will pay reasonable contributions. Endless stalling." Luo Yiming said. "The Ouyang family's old residence is inside the city, so they've been a bit more cooperative."
+
+"I understand." Bi Da had the picture now. She said to Peng Shou'an: "Mr. Peng, I'll have to trouble you to visit all of these families."
+
+"I can certainly pay calls, but in the current situation, a visit may not move them..."
+
+"Naturally, I won't send you empty-handed." Bi Da smiled. "Wait for my word. I'll prepare a generous gift for you."
+
+Now both Peng Shou'an and Luo Yiming were puzzled—*This lady magistrate arrived with nothing. Where is she getting a generous gift? The county treasury has little to spare.*
+
+After seeing Peng Shou'an out, Luo Yiming could not help asking: "County Magistrate! What gift? The county has nothing..."
+
+"Even if the county had something, I wouldn't give it to these moneybags and patriarchs." Bi Da said. "In our position, groveling with lavish gifts—never mind whether it would work—even if it did, who would actually be in charge of Yangshan afterward?"
+
+Luo Yiming breathed easier: *So the County Magistrate hasn't lost her head.*
+
+"But then...?"
+
+"Right now, our prestige in Yangshan is gone. The 'generous gift' is about restoring it." Bi Da had thought this through clearly. In their current state, local power brokers would not give them the time of day. Even if they could be persuaded to help, the cost would be sky-high. They might solve the immediate problem—but the long-term consequences would be disastrous. The only solution was to rebuild their authority.
+
+"...We have an elite unit. We should make full use of it." Bi Da said. "Win a reputation in Yangshan. Then these fence-sitters will know which side to back."
+
+"I understand, County Magistrate!" Luo Yiming nodded repeatedly. "So—what exactly do we do?"
+
+"What's the situation at Dalang Market now?"
+
+"Still Sun Dabiao's turf—though it's just ruins. Sun Dabiao has his main force camped there—he's got a lot more men now."
+
+"Then we take Dalang Market first." Bi Da said.
+
+Dalang Market was a key pass on the road to the Yao region. Capturing it would not only have the symbolic meaning of seizing Sun Dabiao's lair but would also restore control over Yonghua. And controlling Dalang Market carried major economic significance: the annual salt trade into the Yao region alone was a substantial revenue stream. Holding Dalang Market meant holding Yonghua's economic lifeline.
+
+"But we don't have the numbers." Luo Yiming said. "Pan Tianshun has volunteered several times—says he'll go back to Yonghua and raise forces to fight Sun Dabiao. I think we could let him handle it. We provide fire support; after we take it, the Yonghua Yao garrison Dalang Market."
+
+Bi Da shook her head. "We can't hand this job to Pan Tianshun—and we definitely can't give him Dalang Market. With Dalang Market in our hands, we hold the initiative. If Pan Tianshun's people hold it, the initiative goes to them. Never mind the economic value of that pass—they'd be positioned to attack or defend at will. The next time we want them to contribute, we'd have to threaten them with a whole army—or hand over a real 'generous gift.'"
+
+Luo Yiming saw the logic. If the Yonghua Yao rejoined the Eight Ranks Yao, losing Dalang Market would leave Yangshan wide open.
+
+"Then let's have Pan Tianshun bring his survivors along when we attack Dalang Market. If he wants to go home and raise troops, how can he get back without taking Dalang Market?" he suggested.
+
+"Heh. Comrade Luo, how long has Pan Tianshun been saying he wants to go back and raise troops?"
+
+"Quite a while now—since the day County Magistrate Wang was wounded."
+
+"There's more than one road back to Yonghua. He could easily take his men via Libu Market—longer, but doable. Why hasn't he left?"
+
+Luo Yiming was stumped. *Why hasn't he left?* There always seemed to be some reason delaying him—and he himself had not wanted Pan Tianshun to go, taking what little armed strength they had.
+
+"He's hanging around the county seat waiting for us to give him legitimacy..." Bi Da said.
+
+"Legitimacy? What legitimacy can we give him?" Luo Yiming was more confused than ever.
+
+"Exactly what you just said—let him fight, then garrison Dalang Market. Maybe he even wants a title—'Mayor of Dalang Market,' or something. If he controls Dalang Market, it's official and proper." Bi Da said. "Not to mention any ulterior motives—the salt trade alone is a fortune every year!"
+
+Laid out this plainly, Luo Yiming finally understood. He had felt warmly toward Pan Tianshun—they had "forged camaraderie in blood"—and had thought of the Yonghua Yao as "our people."
+
+"So you mean...?"
+
+"Of course Pan Tianshun has done nothing against us—he's even rendered service to the Council. But the Yao villages are one of the county's local power factions. He and we are, at present, only 'friends'—not 'comrades.'"
+
+They were still talking when someone came to report: "Company Commander Zhen is here."
+
+"Show him in." Bi Da nodded. "Comrade Luo, please stay. We can discuss the offensive plan."
+
+Rapid footsteps; Zhen Huan strode in. He had enlisted to follow Bi Da—but over the years, he had rarely seen her. Bi Da seemed always to be avoiding him. Whenever his company was stationed somewhere, Bi Da would just happen to be transferred away. During their posting in Kaohsiung, they had finally spent some time in the same place. Yet every time Zhen Huan tried to see her, she was always "down in the countryside" or "on temporary assignment" in some village. Once, he tracked her down directly to the village where she was posted. For the first time, they sat face to face.
+
+But this long-awaited reunion left Zhen Huan with no pleasant memories—let alone "rekindling old feelings." Bi Da had been coolly indifferent. Their conversation was flat as water. No matter how Zhen Huan tried to steer the talk, Bi Da never responded: she did not want to reminisce about the past, nor did she want to discuss the future.
+
+At one point, Bi Da's coldness had broken Zhen Huan's heart. Back in the village, they had been the acknowledged couple—tenderly, passionately in love. Now Bi Da seemed like a different person, as if she had forgotten everything. No matter how Zhen Huan cajoled or insisted, he could not move her an inch.
+
+After that meeting, they had been apart again for a long time. Both were reassigned to the Lianyang region. Zhen Huan had looked for every chance to see her—but combat missions kept him busy, and opportunity never came.
+
+Now she had come to Yangshan as County Magistrate—at last, they could see each other every day!
+
+In that eager frame of mind, Zhen Huan burst into the office.
+
+"Bi Da!" he called out, voice full of feeling—then saw Luo Yiming there and realized he had been rash. A small flush of embarrassment.
+
+"Company Commander Zhen, you're just in time. I was about to send for you." Bi Da's tone was calm. "We're about to discuss our next military action. We'll need your company."
+
+"At your command! Ready to die!" Zhen Huan immediately made an awkward declaration of resolve.
+
+"You didn't even ask to see my authorization before saying that. A bit hasty, don't you think?"
+
+"Whatever you want me to do, I'll do it..."
+
+Now it was Luo Yiming's turn to feel awkward. Though he did not know the history between the female County Magistrate and the Mountain Company commander, their words and manner made it clear their relationship was "not simple." And knowing both were Li cadres from Hainan, he pieced together the rest.
+
+Bi Da remained composed: "That statement is against regulations." She took a document from her drawer—an order signed by Huang Chao. "Here are your orders."
+
+Zhen Huan took it without looking and stuffed it in his pocket: "Bi Da, tell me—who are we attacking?"
+
+"Section Chief Luo and I have tentatively decided to take Dalang Market—strike a blow at Sun Dabiao's bandits, reassert control over Yonghua township." Bi Da summarized what they had just discussed. "What do you think?"
+
+"I support every decision you make!" Zhen Huan said.
+
+Bi Da sighed in exasperation. Luo Yiming stifled a laugh and smoothed things over: "Since Company Commander Zhen has no objections, let's discuss the battle plan."
+
+"Good." Zhen Huan was energized. "What's the enemy situation in the county now? Section Chief Luo, give us a rundown."
+
+"Alright." Luo Yiming drew back the curtain covering the wall map. "The enemy situation is not complicated. There are three main bandit groups: Sun Dabiao's, Feng Haijiao's, and a new one we know little about. There are also plenty of small scattered groups—low numbers, poor equipment.
+
+"Since burning Dalang Market, Sun Dabiao has swelled into the county's largest bandit force. Many local bandits and riffraff have joined him, and he's absorbed scattered bands from other counties. His strength has ballooned to nearly six hundred. According to our scouts, these out-of-county stragglers brought weapons—firearms—so Sun Dabiao's equipment is much better than before. He also recently received a title from Xiong Wencan—some kind of 'Garrison Captain.' So these incomers may have official Ming backing—possibly even fragments of regular troops."
+
+(End of Chapter)

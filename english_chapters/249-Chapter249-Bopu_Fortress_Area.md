@@ -2,7 +2,7 @@
 
 Lin Shenhe raised his binoculars to watch the drifting small boat in the distance. When the firing angle was raised to 10 degrees, the splash point of the shell was not far from the range-finding boat at the farthest distance of five kilometers. This was still using black powder; if nitrocellulose and nitroglycerin mixed propellant could be used, the range would probably be even greater.
 
-"It's a pity the fire control level is too poor." Li Yunxing sighed with regret. Relying on visual aiming and firing table calculations to hit a moving point target at sea, a hit rate of 5% at this distance would be considered very lucky. The biggest contradiction encountered by the Ordnance Design Bureau in artillery was that the range of the cannons they could build greatly exceeded the capabilities of their fire control.
+"It's a pity the fire control system is too poor." Li Yunxing sighed with regret. Relying on visual aiming and range table calculations to hit a moving point target at sea, a hit rate of 5% at this distance would be considered very lucky. The biggest contradiction encountered by the Ordnance Design Bureau in artillery was that the range of the cannons they could build greatly exceeded the capabilities of their fire control.
 
 "Add a scope to the cannon," Bai Yu said jokingly.
 
@@ -12,7 +12,7 @@ Lin Shenhe raised his binoculars to watch the drifting small boat in the distanc
 
 "But this cannon is really exhilarating!" Wang Ruixiang caressed the polished, shiny cast steel cannon. "Thick enough!"
 
-"The Planning Committee only allowed us to cast 2 of these 150mm cannons." Lin Shenhe was somewhat regretful. "To defend the entire Bopu, 2 are really not enough. We have to cast more smoothbore cannons."
+"The Planning Committee only allowed us to cast two of these 150mm cannons." Lin Shenhe was somewhat regretful. "To defend the entire Bopu, two are really not enough. We have to cast more smoothbore cannons."
 
 "I think casting fewer is also good; casting too many miscellaneous cannons is a waste. We can't just be satisfied with this primary level," Bai Yu said. He had formally studied weapon manufacturing and lacked enthusiasm for these old-fashioned guns.
 
@@ -30,7 +30,7 @@ Lin Shenhe found a clean stone and sat down. "Given our current industrial capac
 
 Wang Ruixiang remembered the infantry's big killer. "Speaking of mortars, I remember we can use trench mortars."
 
-Lin Shenhe said: "Technically not difficult. The problem is mainly with the ammunition—fuses, fuses. Without reliable fuses, it's better not to play with that."
+Lin Shenhe said, "Technically not difficult. The problem is mainly with the ammunition—fuses, fuses. Without reliable fuses, it's better not to play with that."
 
 Lin Shenhe continued, "As for the Navy, breech-loading rifled cannons, at least rifled cannons, are the trend—the industrial department can provide few warships, and qualified sailors are not easy to train. Ships and people are precious, so use long-range, high-lethality rifled cannons as much as possible, so at least they can protect themselves when encountering strong enemies."
 
@@ -44,13 +44,13 @@ In order to transport numerous building materials and heavy cannons up to the be
 
 Ideally, barbed wire was erected around the top platform, and trenches were dug. The Navy stationed a marine platoon here, including one artillery squad and two infantry squads.
 
-The Bopu Camp at the foot of the beacon tower was reinforced accordingly, including upgrading all the original crude wooden watchtowers to brick and stone blockhouses. The Machinery Department batch-cast a number of 12-pounder howitzers for these blockhouses. They were installed on old-fashioned naval gun carriages, using pulley blocks to buffer recoil. The fired shells were mainly canister shot, used effectively as giant machine guns.
+The Bopu Camp at the foot of the beacon tower was reinforced accordingly, including upgrading all the original crude wooden watchtowers to brick and stone blockhouses. The Machinery Department batch-cast a number of 12-pounder howitzers for these blockhouses. They were installed on old naval gun carriages, using pulley blocks to buffer recoil. The fired shells were mainly canister shot, used effectively as giant machine guns.
 
 Beside the trestle bridge leading to the *Fengcheng*, a four-story brick-and-cement fort was added. A 32-pounder cannon and a 12-pounder mountain howitzer were installed there. A platoon was usually stationed in the fort.
 
-Finally, there was the *Fengcheng* itself. Its tall superstructure could play a role similar to the Bopu beacon tower in the port, and the ship itself possessed multiple sets of searchlights. It was very suitable as a battery. Moreover, the *Fengcheng* itself was extremely valuable, so installing cannons on it served two purposes. Another 150mm cannon was installed on the *Fengcheng*'s foredeck—they both used the anti-recoil device newly developed by Lin Shenhe, and the cannon could be rotated by manpower.
+Finally, there was the *Fengcheng* itself. Its tall superstructure could play a role similar to the Bopu beacon tower in the port, and the ship itself possessed multiple sets of searchlights. It was very suitable as a battery. Moreover, the *Fengcheng* itself was extremely valuable, so installing cannons on it served two purposes. Another 150mm cannon was installed on the *Fengcheng*'s foredeck—they both used the recoil mechanism newly developed by Lin Shenhe, and the cannon could be rotated by manpower.
 
-To strengthen the protection of the *Fengcheng* itself, the Executive Committee specially issued the "*Fengcheng* Management Regulations": all unused cabins must be locked; portholes, except those needing periodic opening for ventilation, must be completely closed and locked dead. All movable tools, furniture, accessories, and other items on the ship must be registered in a ledger and could not be used at will. The gangway for boarding and disembarking must be retracted before dark every day.
+To strengthen the protection of the *Fengcheng* itself, the Executive Committee specially issued the "*Fengcheng* Management Regulations": all unused cabins must be locked; portholes, except those needing periodic opening for ventilation, must be completely closed and locked tight. All movable tools, furniture, accessories, and other items on the ship must be registered in a ledger and could not be used at will. The gangway for boarding and disembarking must be retracted before dark every day.
 
 Besides these support points, a fort and a navigation light were built on Lingao Cape—a fort had been built here during the Westernization Movement in the Qing Dynasty.
 
@@ -60,19 +60,19 @@ Besides these support points, a fort and a navigation light were built on Lingao
 
 "No way, isn't wire already in trial production?" Li Yunxing had seen this news in the internal communication sent by the Industrial and Energy Committee long ago.
 
-"Are you reassured soaking enameled wire in seawater?"
+"You trust enameled wire soaked in seawater?"
 
-"Enameled wire?" Li Yunxing was greatly disappointed. But on second thought, it made sense; modern telecom insulation materials were either plastic or rubber, neither of which existed here and now, and people couldn't create them out of thin air.
+"Enameled wire?" Li Yunxing was greatly disappointed. But on second thought, it made sense; modern cable insulation materials were either plastic or rubber, neither of which existed here and now, and people couldn't create them out of thin air.
 
-Lin Shenhe said: "Manufacturing fixed moored mines should be possible."
+Lin Shenhe said, "Manufacturing fixed moored mines should be possible."
 
-Moored mines themselves didn't have much technical content. Judging by the level of transmigrator industry: use casting to manufacture the mine body, fill it with black powder—the explosive power of 30KG of black powder was enough to destroy any ship in this spacetime. Leave a certain gap inside the body as buoyancy reserve; the anchor chain for tethering the mine could be made of iron.
+Moored mines themselves didn't have much technical content. Judging by the level of transmigrator industry: use casting to manufacture the mine body, fill it with black powder—the explosive power of 30KG of black powder was enough to destroy any ship in this era. Leave a certain gap inside the body as buoyancy reserve; the anchor chain for tethering the mine could be made of iron.
 
 The slightly more difficult part was the fuse. To ensure effective impact, multiple fuses needed to be set on the moored mine; they had to be cheap and easy to obtain, and ignition had to be reliable. The weapon team decided to start tackling the manufacturing of moored mines after the artillery manufacturing work ended.
 
 "Honestly, regarding moored mines, if the situation isn't critical, it's better not to lay them; the future trouble is endless." Chen Haiyang, who was looking at the defense map with them in the command post, said, "These things tend to go missing once laid. Once missing, there is nowhere to find them. Clearing them is troublesome and strenuous, and the effect isn't good."
 
-He sighed. "It just so happens that naval mines are particularly durable. A ship hitting a mine from fifty or sixty years ago will still blow up. The Yangtze Estuary channel is still constantly being swept for mines—residual mines laid by the KMT during the War of Resistance are still there."
+He sighed. "It just so happens that naval mines are particularly durable. A ship hitting a mine from fifty or sixty years ago will still blow up. The Yangtze Estuary channel is still constantly being swept for mines—residual mines laid by the KMT during the War of Resistance Against Japanese Aggression are still there."
 
 "I guarantee the mines we manufacture absolutely cannot be used for fifty or sixty years; they will definitely become ineffective within a few years at most," Lin Shenhe said jokingly.
 
@@ -80,13 +80,13 @@ While discussing the defense plan, they heard the sentry report that Li Haiping 
 
 Chen Haiyang looked at the application sent by Li Haiping, his brows knitted tight. Although the Executive Committee meeting Li Huamei was almost a sure thing, he really couldn't reply to the promises made by the junior officers below.
 
-"Guns, absolutely cannot be given," Chen Haiyang said. "Don't say I don't have this power; even the Executive Committee has to discuss collectively for matters regarding giving firearms to natives. Your promise exceeds the scope."
+"Guns, absolutely cannot be given," Chen Haiyang said. "Don't say I don't have this power; even the Executive Committee has to discuss collectively for matters regarding giving firearms to natives. Your promise overstepped your authority."
 
-Li Haiping said anxiously: "She's training sailors for us, we have to give some benefits."
+Li Haiping said anxiously, "She's training sailors for us, we have to give some benefits."
 
 "Benefits come in many forms; why must you focus on guns?" Chen Haiyang said. "I can't make the decision on this matter. I'll help you report it during the meeting; how it's decided depends on the Executive Committee."
 
-"This is too bureaucratic, right? We are in urgent need of friends now! Is it okay to just visit the *Fengcheng*? Not entering cabins, just walking around on the deck."
+"That's way too bureaucratic! We are in urgent need of friends now! Is it okay to just visit the *Fengcheng*? Not entering cabins, just walking around on the deck."
 
 "Whether friends or not is not our Navy's business. Also, your application to take her to visit the *Fengcheng* also needs the Executive Committee's agreement."
 

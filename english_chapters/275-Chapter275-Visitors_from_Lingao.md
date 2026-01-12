@@ -1,24 +1,24 @@
-# Chapter 275 Visitors from Lingao
+# Chapter 275: Visitors from Lingao
 
-"These past few days, I've actually been watching. Most people are fine, working diligently and conscientiously. But some people!" Chang Shide pointed at seven or eight individuals lying face-down on straw mats, covered with straw curtains, their buttocks and thighs visibly swollen, moaning weakly.
+"These past few days, I've actually been watching. Most people are fine, working diligently and conscientiously. But some people..." Chang Shide pointed at seven or eight individuals lying face-down on straw mats, covered with straw curtains, their buttocks and thighs visibly swollen, moaning weakly.
 
-"After eating a few full meals, they got carried away. We originally made them village cadres as a sign of trust. Do the job well, and there would be more important work in the future. But they didn't appreciate it. They thought the stable rice bowl wasn't good enough and had to fish for greasy money. Now the government has already dealt with them. We won't pursue the matter further here, but they've lost their village cadre positions, and the money they embezzled will be added to their debt—they can work it off in seventy or eighty years, maybe.
+"After eating a few full meals, they got carried away. We originally made them village cadres as a sign of trust. Do the job well, and there would be more important work in the future. But they didn't appreciate it. They thought the stable rice bowl wasn't good enough and had to fish for illicit gains. Now the government has already dealt with them. We won't pursue the matter further here, but they've lost their village cadre positions, and the money they embezzled will be added to their debt—they can work it off in seventy or eighty years, perhaps.
 
 "As for those who realized their mistake and voluntarily returned what they took, we won't punish them here anymore—immediate dismissal, plus one to five years added to their labor term. We're lenient: no matter who it is, each person bears their own crime. No family members will be implicated." Chang Shide had already arranged for the people who had voluntarily returned their embezzlement and their families to be taken care of beforehand. As soon as he finished speaking, these people burst into tears and shouted:
 
 "The masters are benevolent!"
 
-"Wuwuwu, I'm worse than a pig or dog—"
+"*Sob*... I'm worse than a pig or dog—"
 
 "I'm committed to working for the masters from now on. I'd willingly jump into a pit of fire!"
 
-The atmosphere infected the surrounding crowd, and the gathering grew somewhat lively. Chang Shide felt the effect was quite good. It seemed the *How to Propagandize and Agitate* handbook was pretty useful.
+The atmosphere infected the surrounding crowd, and the gathering grew somewhat lively. Chang Shide felt the effect was quite good. It seemed the *Propaganda and Agitation Manual* was pretty useful.
 
-"You sugar-boiling masters—" Chang Shide's finger swung toward them. A few days earlier, during the "killing the chicken to warn the monkey" operation, Wen Tong had deliberately not arrested any sugar industry workers to protect the technical personnel. But mandatory observation was required of everyone. After returning from the yamen, everyone had rushed to return the sugar they'd pilfered. To their surprise, Master Chang had only smiled mysteriously and refused to accept any of it, asking only that each person write a "confession of admission" acknowledgment. Those who couldn't write—no problem, there were pre-written forms; just fill in the numbers and press a thumbprint. These people had been worried for days. When summoned to today's mass meeting, each one was on edge. Now that they'd been called out, how could they hold up? They all fell to their knees in a rustle, their pleas for mercy an unbroken chorus.
+"You sugar-boiling masters—" Chang Shide's finger swung toward them. A few days earlier, during the "killing the chicken to scare the monkey" operation, Wen Tong had deliberately not arrested any sugar industry workers to protect the technical personnel. But mandatory observation was required of everyone. After returning from the *yamen*, everyone had rushed to return the sugar they'd pilfered. To their surprise, Master Chang had only smiled mysteriously and refused to accept any of it, asking only that each person write a "confession of admission" acknowledgment. Those who couldn't write—no problem, there were pre-written forms; just fill in the numbers and press a thumbprint. These people had been worried for days. When summoned to today's mass meeting, each one was on edge. Now that they'd been called out, how could they hold up? They all fell to their knees in a rustle, their pleas for mercy an unbroken chorus.
 
 What Chang Shide revealed next was his bottom line: they were all to join the Leizhou Sugar Company collectively, no longer as day laborers. The benefits would be the same as the migrants: meals provided and wages paid. As for what they'd secretly skimmed off—that would be counted as an advance on their wages.
 
-Chang Shide spoke of how magnanimous and lenient he was being, but none of the people below were fools. They knew that if they dared utter the word "no," he held their "confessions" in hand and was on speaking terms with all the county yamens. He'd have them dragged to the yamen and beaten half to death in no time, left wearing cangues and feeding flies at the yamen gate like those unlucky sods. Whether willing or not, everyone said in unison: "We are willing to join the sugar factory."
+Chang Shide spoke of how magnanimous and lenient he was being, but none of the people below were fools. They knew that if they dared utter the word "no," he held their "confessions" in hand and was on speaking terms with all the county *yamens*. He'd have them dragged to the *yamen* and beaten half to death in no time, left wearing cangues and feeding flies at the *yamen* gate like those unlucky sods. Whether willing or not, everyone said in unison: "We are willing to join the sugar factory."
 
 "Work hard, and no one will be shortchanged." Chang Shide looked at the long-faced sugar-boiling masters below and thought this deal was actually quite good.
 
@@ -34,7 +34,7 @@ Wen Tong and the others keenly felt the importance of grassroots cadres, so they
 
 After this combination of pressure and praise, the Sugar Company entered a stable track. Morale stabilized too. Sugar production rose steadily. Ships and handcarts delivering raw brown sugar, molasses, and bagasse to the South China Factory flowed in an endless stream. This previously obscure enterprise began to become a topic of conversation among the sugar trading house merchants on Hai'an Street.
 
-Chang Shide grew somewhat self-satisfied. Besides teaching the daily rotation trainees, he also started a teacher training class, planning to set up a sugar factory children's school after the crushing season ended. He was too lazy to teach all those children himself, so he turned his attention to the female slaves. He made Wen Xiu the teaching assistant and started teacher training. Besides daytime classes, he also held evening sessions. Wen Xiu and A-Zhu were excluded from these.
+Chang Shide grew somewhat self-satisfied. Besides teaching the daily rotation trainees, he also started a teacher training class, planning to set up a sugar factory primary school after the crushing season ended. He was too lazy to teach all those children himself, so he turned his attention to the female slaves. He made Wen Xiu the teaching assistant and started teacher training. Besides daytime classes, he also held evening sessions. Wen Xiu and A-Zhu were excluded from these.
 
 "Teacher, I was wrong. Please forgive this student—" The Mandarin still sounded somewhat halting.
 
@@ -42,13 +42,13 @@ Chang Shide grew somewhat self-satisfied. Besides teaching the daily rotation tr
 
 Wen Tong, when passing by Chang Shide's room in the evening, would often hear this neither-here-nor-there yet soul-stirring Mandarin.
 
-"You big pervert." Wen Tong always sneered at this sort of SM cosplay. At least the guy had some sense of brotherhood and hadn't dragged A-Zhu off to some "evening class"—he was very much in favor of her attending the teacher training class. Unfortunately, he was so exhausted dealing with sugar factory matters that by the time he got back to the compound each day, all he wanted was to sleep. He didn't even have the energy to make use of A-Zhu. Old Chang really did have the sturdier constitution—running around all day, then running around all night. Wen Tong couldn't help but feel melancholy: the gap between people, how could it be so big?
+"You big pervert." Wen Tong always sneered at this sort of S&M roleplay. At least the guy had some sense of brotherhood and hadn't dragged A-Zhu off to some "evening class"—he was very much in favor of her attending the teacher training class. Unfortunately, he was so exhausted dealing with sugar factory matters that by the time he got back to the compound each day, all he wanted was to sleep. He didn't even have the energy to make use of A-Zhu. Old Chang really did have the sturdier constitution—running around all day, then running around all night. Wen Tong couldn't help but feel melancholy: the gap between people, how could it be so big?
 
 Wen Tong's entire mind was focused on the technical improvements at the sugar factory lately. Of his two original directions for improvement, one—making white sugar—he had already achieved. Though the process was primitive and output was low, it was quite suitable for their current industrial level. Now it was a matter of how to scale up and improve efficiency.
 
-The other direction was increasing sugarcane juice output. Modern sugar factories used at least triple steel rollers, with a single-pass extraction rate above 70%. Larger factories even had twelve-roller systems—the bagasse came out virtually dry. Wen Tong decided to first eliminate the wooden rollers at the South China Factory. Initially, he'd considered making stone rollers, but stone rollers weren't much more efficient than wood and consumed just as much ox power.
+The other direction was increasing sugarcane juice output. Modern sugar factories used at least three-roller steel crushers, with a single-pass extraction rate above 70%. Larger factories even had twelve-roller systems—the bagasse came out virtually dry. Wen Tong decided to first eliminate the wooden rollers at the South China Factory. Initially, he'd considered making stone rollers, but stone rollers weren't much more efficient than wood and consumed just as much ox power.
 
-Multi-stage steel rollers were really the best choice. Wen Tong recalled that the Zhanjiang region only began replacing primitive ox-powered stone rollers with semi-mechanized two-roller or three-roller small crushers in the mid-1960s. They mostly used Chaozhou-made two-roller small crushers, with extraction rates above 60%. Later, they switched to Shunde-made three-roller small crushers, raising extraction rates to 72-73%. Compared to the 45% average rate for stone rollers, this was equivalent to a 60% increase in sugar output for the same amount of cane!
+Multi-stage steel rollers were really the best choice. Wen Tong recalled that the Zhanjiang area only began replacing primitive ox-powered stone rollers with semi-mechanized two-roller or three-roller small crushers in the mid-1960s. They mostly used Chaozhou-made two-roller small crushers, with extraction rates above 60%. Later, they switched to Shunde-manufactured three-roller small crushers, raising extraction rates to 72-73%. Compared to the 45% average rate for stone rollers, this was equivalent to a 60% increase in sugar output for the same amount of cane!
 
 These figures were extremely tempting to Wen Tong. Moreover, this equipment was technically quite simple—well within the transmigrators' industrial capabilities to manufacture.
 
@@ -68,7 +68,7 @@ Two weeks later, a large ship arrived at the port of Hai'an Street. Its arrival 
 
 The wide deck was piled with boxes of all sizes. There were also some very large items of cargo, packaged in wooden frames covered with straw matting. Cargo was held down tightly under large nets. This kind of cargo ship with everything piled on deck was truly an eye-opener for everyone—quite the crowd gathered to watch. Which shipwright had come up with this idea? With cargo all stacked on deck, wouldn't it all get soaked when the wind and waves picked up?
 
-Chang Shide saw this large flat-deck ship and thought it was way too ahead of its time. Completely anachronistic. Just as he was thinking this, the big ship slowly approached the dock. Sailors laid out gangplanks, and a familiar figure walked across.
+Chang Shide saw this large flat-deck ship and thought it was way too ahead of its time. Completely anachronistic. Just as he was thinking this, the big ship slowly approached the dock. Sailors laid out gangways, and a familiar figure walked across.
 
 Looking closely, it was none other than Bei Wei, the captain of the Special Reconnaissance Team—a rare figure. He could still be seen frequently in the months right after D-Day, leading his team all over the place. Later he became increasingly mysterious—he simply never appeared anywhere ordinary people gathered. The last time Chang Shide had seen him was during the Political Consultative Conference, when he'd been manning a high vantage point with his team.
 
@@ -90,3 +90,4 @@ Because there was a lot of cargo to unload, Chang Shide had long since arranged 
 
 "I didn't expect you to be so fast." Chang Shide exchanged pleasantries and had Wen Xiu bring tea. "Here, have some water." He sat down, and once Wen Xiu had withdrawn, asked, "Has all the equipment arrived?"
 
+**(End of Chapter)**

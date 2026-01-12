@@ -1,36 +1,36 @@
 # Chapter 241: Tropical Crop Plantation
 
-Just as they were tense, the three who had gone forward to scout sneaked back.
+Just as the tension peaked, the three scouts sneaked back.
 
 "How is it?"
 
-"Looks like a Wei-Suo (Garrison fort)," Liu Zheng said. "We're leaving immediately; this area is relatively densely populated."
+"Looks like a Wei-Suo garrison," Liu Zheng said. "We're leaving immediately; this area is relatively densely populated."
 
-Ye Mengyan was obviously unwilling to go back quietly like this. According to the Special Reconnaissance Team's custom for every operation, he wouldn't be satisfied without snatching something back: "Why don't we just grab a prisoner for interrogation?"
+Ye Mengyan was obviously unwilling to go back quietly like this. According to the Special Reconnaissance Team's custom for every operation, he wouldn't be satisfied without snatching something. "Why don't we just grab a prisoner for interrogation?"
 
 "Save it. Our mission is exploration, not combat. How would we travel with a prisoner? Besides, the purpose this time is firstly to explore resources, and secondly to train the team—didn't you see someone has already collapsed?"
 
-"Tch!!" Zhao Xue rolled her eyes at Liu Zheng.
+"Tch!" Zhao Xue rolled her eyes at Liu Zheng.
 
-"How many days to return to base?" Bai Guoshi was more concerned about Zhao Xue's injury. He had just taken the opportunity to give Zhao Xue some preliminary treatment.
+"How many days to return to base?" Bai Guoshi was more concerned about Zhao Xue's injury. He had just taken the opportunity to give her some preliminary treatment.
 
 "About three or four days. We can only walk slowly today. Try to camp as far away from the city as possible so we can sleep more soundly at night. Rest well and start early tomorrow; strive to get home early."
 
 "Wait, everyone help out. Collect more mineral samples here; I've found good stuff."
 
-Everyone had no choice but to help him collect various stones on the ground. When they set off, each person was burdened with an extra seven or eight jin of ore for no reason.
+Everyone had no choice but to help him collect various stones. When they set off, each person was burdened with an extra seven or eight *jin* of ore for no reason.
 
 The journey back was fairly safe. On the eleventh day after departure, the squad was approaching Bairren City.
 
-"Password!!!" A loud shout from the roadside bushes startled Liu Zheng, who was acting as point man. "Loli! Countersign!"
+"Password!!!" A loud shout from the roadside bushes startled Liu Zheng, who was on point. "Loli! Countersign!"
 
-"Royal Sister!" A sentry covered in fishing nets and branches jumped out from the roadside. Probably because he was a lurking sentry, he held a steel crossbow in his hand. A pistol holster was strapped to his thigh.
+"Milf!" A sentry covered in fishing nets and branches jumped out from the roadside to verify the otaku code-phrase. Probably because he was a lurking sentry, he held a steel crossbow in his hand. A pistol holster was strapped to his thigh.
 
 "Don't recall seeing you guys. Which department?" The sentry's eyes kept glancing at the limping Zhao Xue—modern women were too rare in the camp.
 
-"Department 7911," Liu Zheng reported the number. Departments with code numbers were all classified units and were referred to by number outside.
+"Unit 7911," Liu Zheng reported. Departments with code numbers were all classified units and were referred to by number externally.
 
-The sentry immediately became solemn: "So it's a classified unit. Looks like you went far. Mission accomplished well, right?" The sentry probably wanted to get some inside scoop and started trying to get chummy.
+The sentry immediately became solemn. "So it's a classified unit. Looks like you went far. Mission accomplished well, right?" The sentry probably wanted to get some inside scoop and started trying to get chummy.
 
 "It was okay. How are things here recently?"
 
@@ -40,15 +40,15 @@ The sentry immediately became solemn: "So it's a classified unit. Looks like you
 
 "Perverts." Seeing the drooling look of the men, Zhao Xue curled her lip in disdain.
 
-"They say she has a unique name too, called Li Huamei!" The sentry beamed with delight, completely forgetting his duties here.
+"They say she has a unique name too, called Li Huamei!" The sentry beamed with delight, completely forgetting his duties.
 
 ...
 
-The team changed clothes at the perimeter base, swapping their full set of field gear for the training uniforms they wore before departure—this attracted less attention. Liu Zheng dismissed the team and went back to headquarters first; he still had a pile of administrative affairs to handle: writing exploration reports, filling out reimbursement forms for various consumables used during the mission. As for the others, they also had their own things to do: writing reports, organizing specimens... Of course, a bath, a hot meal, and a good sleep were indispensable.
+The team changed clothes at the perimeter base, swapping their full set of field gear for the training uniforms they wore before departure—this attracted less attention. Liu Zheng dismissed the team and went back to headquarters first; he still had a pile of administrative affairs to handle: writing exploration reports and filling out reimbursement forms for various consumables used during the mission. As for the others, they also had their own tasks: writing reports, organizing specimens... Of course, a bath, a hot meal, and a good sleep were indispensable.
 
-Bai Guoshi delivered the plant specimens one by one to the Ministry of Agriculture. Strictly speaking, agriculture and biology were two different trades, but in the eyes of the Executive Committee, they were about the same. So the Farm was now an important base for 17th-century biology. Not to mention anything else, the only university student with a major in molecular biology in this timeline was here following Wu Nanhai to farm and cook.
+Bai Guoshi delivered the plant specimens one by one to the Ministry of Agriculture. Strictly speaking, agriculture and biology were two different disciplines, but in the eyes of the Executive Committee, they were about the same. So the Farm was now an important base for 17th-century biology. Not to mention anything else, the only university student majoring in molecular biology in this timeline was here following Wu Nanhai to farm and cook.
 
-As for the others, they were also formidable. Take Huang Dashan, for instance. His full-time job at the Farm was growing mushrooms and fungus, but his forte was actually cultivating live animal bacteria/viruses. In other words, as long as the Executive Committee was willing, he could do Unit 731-style work. Seeing his thick eyeglass lenses that looked like beer bottle bottoms, everyone felt creeped out. No one knew exactly what was in the test tubes and culture dishes he tinkered with alone in his small hut, muttering to himself, and no one wanted to know—ever since knowing his unique skill, everyone walked far around that hut.
+As for the others, they were also formidable. Take Huang Dashan, for instance. His full-time job at the Farm was growing mushrooms and fungus, but his forte was actually cultivating live animal bacteria and viruses. In other words, as long as the Executive Committee was willing, he could do Unit 731-style work. Seeing his thick eyeglass lenses that looked like beer bottle bottoms, everyone felt creeped out. No one knew exactly what was in the test tubes and culture dishes he tinkered with alone in his small hut, muttering to himself, and no one wanted to know—ever since learning of his unique skill, everyone gave that hut a wide berth.
 
 "This is *Yi Zhi*," Fa Shilu looked at the specimens he collected in his laboratory, revealing a look of joy. "Very useful medicinal material."
 
@@ -58,9 +58,9 @@ As for the others, they were also formidable. Take Huang Dashan, for instance. H
 
 "What does Minister Wu think about tropical crops?"
 
-"He's a layman in this." A smile floated on Fa Shilu's dark, chubby face. In terms of professional standards, Fa Shilu was an agronomist; when he signed up, he brought a truckload of seeds and a miniature germplasm resource bank—the latter was a hard-to-get scientific research resource. His current title was "Chief Agronomist of the Demonstration Farm."
+"He's a layman when it comes to this." A smile floated on Fa Shilu's dark, chubby face. In terms of professional standards, Fa Shilu was an agronomist; when he signed up, he brought a truckload of seeds and a miniature germplasm resource bank—the latter was a hard-to-get scientific research resource. His current title was "Chief Agronomist of the Demonstration Farm."
 
-Fa Shilu continued: "I don't know much about tropical crops either, but I know a little. However, with data from the other timeline, I roughly know what can be grown in Lingao and what cannot. This saves a lot of effort."
+Fa Shilu continued, "I don't know much about tropical crops either, but I know a little. However, with data from the other timeline, I roughly know what can be grown in Lingao and what cannot. This saves a lot of effort."
 
 "Can we grow pepper?" Bai Guoshi had read many half-baked history books and had a deep memory of the huge profits from the spice trade.
 
@@ -92,16 +92,16 @@ Bai Guoshi's heart stirred, and he thought of the jackfruits again—these resou
 
 If there were enough manpower and equipment, they could totally organize a "Resource Collection Team." Not to mention anything else, just enriching the lives of the transmigrators would be very beneficial. But this matter needed the Executive Committee's coordination—he had to mention it when reporting tonight.
 
-Fa Shilu had recently been in charge of tropical crop matters. Besides the seedlings planted shortly after landing, the Agricultural Committee still held a considerable amount of other tropical crop seeds. Lingao's water and heat conditions weren't the best, and it was currently the Little Ice Age, so he dared not act rashly to sow all the various seeds in the seed bank. He had consulted a lot of data; in the other timeline, tropical crops successfully grown on a scale in Lingao were: rubber, pepper, citronella, sisal, coffee, clove basil, and vetiver. Although several types didn't persist later, it was mainly due to market factors; planting itself was not a problem. What really failed in planting were oil palm and cashew. Fa Shilu felt quite regretful about the failure of oil palm; after all, its oil yield was number one in the world. Once grown on a scale, it could satisfy most of the oil demand for transmigrator industry.
+Fa Shilu had recently been in charge of tropical crop matters. Besides the seedlings planted shortly after landing, the Agricultural Committee still held a considerable amount of other tropical crop seeds. Lingao's water and heat conditions weren't the best, and it was currently the Little Ice Age, so he dared not act rashly to sow all the various seeds in the seed bank. He had consulted a lot of data; in the other timeline, tropical crops successfully grown on a scale in Lingao were: rubber, pepper, citronella, sisal, coffee, clove basil, and vetiver. Although several types didn't persist later, it was mainly due to market factors; planting itself was not a problem. What really failed in planting were oil palm and cashew. Fa Shilu felt quite regretful about the failure of oil palm; after all, its oil yield was the highest in the world. Once grown on a scale, it could satisfy most of the oil demand for transmigrator industry.
 
 "There are quite a few things we can plant. The seed bank has almost everything. I'm just afraid if we plant them wrong," he sighed, "the loss would be huge."
 
 "We should plant more sisal and jute or something. I feel the industrial department will have a great demand for hemp fibers," Bai Guoshi opined.
 
-Fa Shilu nodded: "Makes sense. But the industrial department hasn't proposed it themselves."
+Fa Shilu nodded. "Makes sense. But the industrial department hasn't proposed it themselves."
 
 "That's because they can import yellow jute, so they feel no urgency. If you ask me, planting sisal is better; the utilization rate is high, even the waste residue and juice are useful."
 
-The long fibers in sisal were raw materials for cables in mining and shipping. The processed dregs could be used as raw materials for paper making, alcohol, vinegar, etc. The short fibers produced during production could be made into daily necessities like ropes, shoe pads, and reins, and could also be used as filling for furniture. The leaf juice could produce biogas through fermentation and could also extract sugar and feed dry yeast. The large amount of leaf residue after processing was good fodder, and hemp residue was high-quality organic fertilizer.
+The long fibers in sisal were raw materials for cables in mining and shipping. The processed dregs could be used as raw materials for paper making, alcohol, vinegar, etc. The short fibers produced during production could be made into daily necessities like ropes, insoles, and reins, and could also be used as filling for furniture. The leaf juice could produce biogas through fermentation and could also extract sugar and feed dry yeast. The large amount of leaf residue after processing was good fodder, and hemp residue was high-quality organic fertilizer.
 
 **(End of Chapter)**

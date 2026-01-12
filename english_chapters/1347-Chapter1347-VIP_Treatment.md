@@ -1,86 +1,71 @@
-# Chapter 1347 VIP Treatment
+# Chapter 1347 - VIP Treatment
 
-This kind of thing had happened more than once. Every time, he would issue an edict to sternly question the Korean side, but with little effect. Sometimes the Korean side even refused mutual trade, using the excuse that their country did not have such products.
+This kind of thing had happened more than once. Every time he would send stern inquiries to the Korean side, but with little effect. Sometimes Korea would even refuse to trade, using the excuse that their country didn't produce such goods.
 
-The Li Dynasty was superficially submissive, but inwardly still admired the Southern Dynasty—news sent by spies also said that the Li Dynasty was still secretly communicating with the Southern Dynasty.
+The Yi Dynasty was outwardly submissive but inwardly still looked up to the Southern Court—the intelligence from his spies also said the Yi Dynasty was secretly corresponding with the Southern Court.
 
-Just as he was considering how to give the Li Dynasty a small lesson so they wouldn't forget the original "Brotherly Alliance", the *Qixinlang* (Manager of Affairs) of the Ministry of War sent an urgent military report (*Tangbao*).
+He was considering how to give the Yi Dynasty a little lesson, to remind them not to forget the "brotherly alliance" of old, when a clerk from the Board of War delivered an urgent dispatch.
 
-Huang Taiji glanced at the label on the report forwarded by the Ministry of War. It was actually sent from Zhenjiang Fort. He couldn't help but be engaged.
+Huang Taiji glanced at the memo slip attached to the dispatch forwarded by the Board of War—it was actually from Zhenjiang Fort, which gave him a start.
 
-Zhenjiang Fort was a hub leading to Korea and a fortress deterring Dongjiang. It was a very critical place. However, there hadn't been any alarm from Zhenjiang Fort for a long time. The harassment activities of the Dongjiang Army across the river had disappeared since the conquest of Korea. And the current situation of Dongjiang made it unlikely for them to penetrate deep into the Yalu River to harass the Zhenjiang Fort area again.
+Zhenjiang Fort was the hub leading to Korea and a fortress keeping Dongjiang in check—a very crucial location. But it had been a long time since any warnings had come from Zhenjiang Fort. The Dongjiang Army's cross-river raids had disappeared since the Korea campaign. And Dongjiang's current situation made another deep thrust into the Yalu to harass Zhenjiang Fort unlikely.
 
-Huang Taiji watched the changes in the surrounding situation every day. Compared to the Ming Emperor who had special secret service agencies, he was much better informed about enemy countries. This was due to his willingness to reward spies, and also due to the "smallness" of the Later Jin court. Because the scale was small, there were fewer links from the grassroots to the top, and the possibility of information being distorted was also smaller.
+Huang Taiji watched surrounding developments every day. Compared to the Ming emperor with his specialized secret police apparatus, his information on enemy countries was much more current. This was partly due to generous rewards for spies, partly due to Later Jin's small court being "small." Being small meant fewer links between grassroots and top, with less chance of distortion.
 
-In addition to assigning many spies to pry into Beijing, he also dispatched spies to key places such as Dongjiang and Denglai. Internal strife in Dongjiang, the flames of war in Denglai, and the chaotic measures and disputes in the Beijing court—news was reported to Shengjing every two or three days. It was first secretly reported to the Ministry of War yamen, and immediately presented into the palace.
+Besides dispatching many spies to Beijing, he had agents at key locations like Dongjiang and Denglai. Dongjiang's internal strife, the Denglai war, and the Beijing court's panicked measures and infighting—every two or three days news would reach Shengjing, first reported secretly to the Board of War's offices, then immediately presented to the palace.
 
-Huang Taiji was very interested in the Rebellion of Denglai. In his view, the Guanning Army piled up in the Ningyuan area was certainly a trouble, but they never proactively "caused trouble". As long as he didn't fight them head-on, these military lords would stand motionless as usual. Instead, they didn't pose much of a threat. On the contrary, the new army trained by Sun Yuanhua in Dengzhou had formed a certain threat. The ability to use firearms displayed by the Dengzhou Army in the limited few battles with the Later Jin left a considerable impression on the Eight Banners.
+Huang Taiji was very interested in the Denglai Rebellion. In his view, this rebellion had destroyed Sun Yuanhua's years of painstaking work on the Dengzhou new army without him lifting a finger; moreover, with Dongjiang Army so deeply drawn into the rebellion, it would certainly intensify internal Dongjiang splits while increasing the Southern Court's distrust of Dongjiang.
 
-The Eight Banners were not afraid of the Ming army's firearms. The Ming army's firearms were poorly made, had no tactics to speak of in application, and the firearms soldiers were insufficiently trained. It was basically just setting off fireworks randomly. Except for frightening horses, the lethality was extremely limited.
+This rebellion was equivalent to removing two major threats to the Eight Banners' flanks without costing him a single soldier. Huang Taiji often felt a sense of "heaven's mandate belongs to me."
 
-The only thing that left a deep impression on them was the power of the Red Barbarian Cannons. However, Red Barbarian Cannons were few across the board and very heavy. The Ming army only used them in city defense. The Ming army rarely carried them in field battles. In contrast, the Dengzhou Army carried large and small artillery such as Red Barbarian Cannons in several engagements with the Manchus effectively. Their shooting and application were very methodical, allowing the Eight Banners Army, which had always been able to win easily by charging with heavy armor, to taste the real power of an army trained with firearm equipment for the first time.
+Could the Southern Court's realm truly be destined to belong to his Great Jin? Huang Taiji had frequently had such feelings lately.
 
-According to reports from spies, Sun Yuanhua, who presided over the training of the new army in Dengzhou, believed in the "Foreign Religion" of the Westerners, and had many Westerners helping to build firearms and train the army.
+What news could come from Zhenjiang Fort? He suddenly had a premonition, recalling that his spies had reported a few months ago that Kong Youde and Li Jiucheng had several tens of thousands of followers who had fled Dengzhou by sea. But after fleeing, these forces had disappeared without a trace. The spies' news from Beijing only said government troops had recovered Dengzhou and killed the main rebel leaders Li Jiucheng and Kong Youde, with no explanation of where these tens of thousands who'd fled by sea had gone.
 
-What worried him even more was that there were many former Dongjiang Army members in the Dengzhou Army. These people had a blood feud with the Eight Banners. Once Sun Yuanhua trained them into an army and they repeated Mao Wenlong's old tricks, attacking the flank of the Great Jin from the sea, their threat would be much greater than Mao Wenlong's beggar guerrilla force back then.
+Could this be remnant forces with nowhere else to go, coming to surrender to his Great Jin?! Huang Taiji was secretly delighted. Among these tens of thousands of rebels must be many firearms specialists from the original Dengzhou army—perhaps they'd even bring firearms and warships that the Eight Banners desperately lacked. If so, his army would gain wings.
 
-The news of the rebellion of Li Jiucheng and Sun Yuanhua aroused his great interest as soon as it came back. Although spies could not get exact news due to the chaotic war situation, he knew that a large number of Dongjiang troops were involved in the rebellion. In his view, this rebellion invisibly destroyed the Dengzhou New Army that Sun Yuanhua had painstakingly managed for many years; moreover, the Dongjiang Army being so deeply involved in the rebellion would inevitably aggravate the internal division of the Dongjiang Army, and would also further aggravate the distrust of the Southern Dynasty court towards Dongjiang.
+With such anticipation, he opened the dispatch: it did indeed report "ships coming from the sea," but had nothing to do with Dengzhou remnants. Rather, a strange large ship had come, with people aboard who had shorn hair and short clothes—very peculiar. These people possessed extraordinarily powerful cannon; because the garrison commander had refused them landing, they had already shelled part of Zhenjiang Fort's walls to rubble.
 
-This rebellion was equivalent to eliminating two huge hidden dangers on the flank of the Eight Banners without costing him a single soldier. Huang Taiji felt somewhat that "Heaven's Mandate belongs to me".
+Now they were requesting trade with the court.
 
-Could it be that the world of this Southern Dynasty really belongs to my Great Jin? Huang Taiji often had such a feeling recently.
+"This is strange. Everyone else avoids us; yet people come to our door. They certainly have courage." Huang Taiji gave a slight smile.
 
-What news could come from Zhenjiang Fort? Could it be—his eyelids suddenly twitched, remembering a report from spies a few months ago that Kong Youde and Li Jiucheng had tens of thousands of subordinates fleeing from Dengzhou by sea, but these troops disappeared after fleeing. The spies collected news from Beijing saying only that government troops recovered Dengzhou and beheaded main rebel generals like Li Jiucheng and Kong Youde, but there was no explanation for the whereabouts of these tens of thousands of remnants who fled by sea.
+Since the other side had come seeking trade, the economically strapped Later Jin court naturally welcomed them.
 
-Could it be that these remnants had nowhere to go and came to defect to my Great Jin?! Huang Taiji was secretly delighted. Among these tens of thousands of rebels, there must be many firearms soldiers of the original Dengzhou Army, maybe they would also bring many firearms and warships and other equipment that the Eight Banners urgently needed but seriously lacked. If so, his own army would be like a tiger with wings added.
+He immediately ordered two men summoned—Board of War clerks Ding Wensheng and Zhao Fuxing—to inquire about the specific details of this incident.
 
-He opened the military report with such expectations: The report indeed reported "ships coming on the sea", but it had nothing to do with the Dengzhou remnants. Instead, it was a strange big ship. The people on the ship had short hair and short clothes, very peculiar. These people possessed super-powerful cannons. Because the defending general refused their landing, they had already fired cannons and collapsed a part of the Zhenjiang Fort city wall.
+It turned out that the day after the *Haitian* had anchored, Zhenjiang Fort's garrison had dispatched several hundred men in small boats to raid Tazhi Island, attempting to eliminate the *Haitian* in one stroke. They'd been partially wiped out by cannon from the ship and marines on the island, then fled back. Subsequently the *Haitian* had shelled Zhenjiang Fort, destroying over a dozen *zhang* of wall and killing or wounding about a hundred military and civilian personnel. The cannons' power exceeded even Hongyi cannons.
 
-Now, they proposed a request to trade with the Imperial Court.
+After taking their beating and knowing they were outmatched, Zhenjiang Fort's commander had obediently sent someone to inquire about the other side's intentions. They learned the visitors called themselves "Great Australia" and wished to trade with the court.
 
-"This is strange. Others avoid us, yet someone delivers themselves to our door. Indeed bold." Huang Taiji smiled slightly.
+"This Great Australia's ships and cannons are so formidable—how is it we've never heard of them? Where is this country? Did they ever offer tribute to the Southern Court?" Huang Taiji became very interested.
 
-Since the other party came to seek trade, it was naturally something the cash-strapped Later Jin court could not ask for more.
+The two clerks spoke in unison, reporting they'd never heard of any Great Australia, let alone their formidable ships and cannons. These two held positions in Later Jin's court because they were well-informed and learned. But racking their brains, searching all geographic texts at hand, they found not half a word about "Great Australia."
 
-He immediately ordered people to summon Ding Wensheng and Zhao Fuxing, the two *Qixinlang* of the Ministry of War, to inquire about the specific process of this incident.
+Originally they'd been inclined to think this was a group of Ming sea merchants using a foreign banner as cover to trade with Later Jin—sea merchants were mostly lawless types; doing this wouldn't be strange.
 
-It turned out that the day after the *Haitian* dropped anchor, the garrison of Zhenjiang Fort dispatched hundreds of people to raid Duozhi Island in small boats, attempting to wipe out the *Haitian* in one fell swoop. As a result, they were partly wiped out by the ship's artillery and the marines on the island and fled back. Subsequently, the *Haitian* shelled Zhenjiang Fort again, destroying more than ten zhang of the city wall and killing and wounding hundreds of soldiers and civilians in the city. The power of the cannons was greater than that of the Red Barbarian Cannons.
+But according to the dispatch, the other side's ships and cannons were obviously superior to Ming's, and their soldiers all used muskets and were fierce and skilled fighters. This didn't quite match up with ordinary sea merchants.
 
-The Zhenjiang Fort defending general, who had been beaten and knew he was not an opponent, then honestly sent someone to inquire about the other party's intention, knowing that the other party called themselves "Great Australia" (*Da Ao*) and requested mutual trade with this dynasty.
+"Let it be. Since they've come from afar, their sincerity is praiseworthy. Grant them permission. Order the Board of Rites' Sahalian to immediately arrange the Great Australia envoys' entry to the capital!"
 
-"Since the ship and cannons of this Great Australia are so powerful, why havne't I heard of it before? Where is this country? Has it ever paid tribute to the Southern Dynasty?" Huang Taiji became very interested in this matter.
+Shortly after this order was issued, a second memorial arrived from Zhenjiang Fort, accompanied by a thick, beautifully printed catalog.
 
-The two answered in unison, reporting that they had never heard of any Great Australia, nor had they heard of the power of their ships and cannons—probably another kind of Red Barbarian drifting from the sea.
+This catalog was the product directory for Later Jin sales. After viewing this catalog, Huang Taiji immediately issued a second order, commanding the Board of Rites to immediately dispatch horses and laborers to transport the envoy mission's cargo. At the same time, have the Board of Rites arrange reception ceremonies and prepare quarters.
 
-"The report says they look no different from Han people, only with short hair and short clothes. And they can speak Chinese." Huang Taiji stroked his beard and said, "In that case, I'm afraid they are not Red Barbarians."
+Though the other side had kept emphasizing they were just a "trading company," Huang Taiji arranged reception at "envoy mission" standards. For this small Later Jin court already eyeing China proper, this excellent opportunity to demonstrate "foreign vassals paying tribute" and "all seas returning to the heart" certainly couldn't be passed up.
 
-"Your slaves are incompetent..."
+Thus Huang Hua was welcomed to the capital amid this sudden surge of hospitality.
 
-The two knelt on the ground, looking terrified. This "Great Australia" that turned up out of nowhere really racked their brains. These two could be considered knowledgeable in the Later Jin court, otherwise they wouldn't hold such important positions as *Qixinlang* of the Ministry of War. But racking their brains and rummaging through all the geographical records at hand, there was not half a word recording "Great Australia".
+Coming to receive him were Board of Rites clerks and other Later Jin officials, who brought two hundred horses for Huang Hua's entourage to ride and for hauling gifts and goods samples. But Huang Hua's retinue numbered only twenty, and with cargo still didn't need two hundred horses. The remainder were temporarily left at Zhenjiang Fort.
 
-Originally, they were inclined to believe that this was a group of sea merchants from within the Ming Dynasty, pretending to be foreign vassals paying tribute to do business with the Later Jin—most sea merchants were lawless people, and it was not surprising for them to do so.
+For Huang Hua, they'd prepared a two-mule felt-canopied sedan litter—the most comfortable travel conveyance of the time, with spacious interior allowing sitting or reclining, even carrying beautiful maids or handsome pages for entertainment. It was Huang Hua's first time riding one. Once inside, he found the interior lavishly appointed, even with tea and refreshments provided—utterly thorough.
 
-However, judging from the military report, the other party's strong ships and sharp cannons were far superior to the Great Ming, and the soldiers all used bird guns (muskets) and were fierce and good at fighting. This didn't quite match ordinary sea merchants.
+"These Tartars are really considerate—VIP treatment," Huang Hua muttered to himself amid the thick piles of felt padding. "But I'm not so easily bought."
 
-"Never mind. Since they came from thousands of miles away, their sincerity is commendable. Grant it. Pass an edict to Sahalian of the Ministry of Rites to arrange the entry of the Great Australian envoy into the capital immediately!"
+Before his cart, a bondservant walked on the left driving the mules while a mounted battalion commander in charge of reception rode on the right. The Board of Rites clerks' mule cart followed behind. Around them rode about a hundred Later Jin cavalry. By the banners, he knew these were Bordered Yellow Banner men.
 
-Shortly after issuing this edict, a second memorial was presented by fast horse from Zhenjiang Fort. Attached was a thick, beautifully printed illustrated book.
+The journey would take many days. Travel was tedious, but he didn't say a word more to the reception officials. Throughout he kept his eyes closed to rest, though his mind never stopped working, considering how to negotiate with Later Jin officials once they reached Shenyang—Shengjing.
 
-This album was the catalog of goods for sale to the Later Jin. After reading this album, Huang Taiji immediately issued a second edict, ordering the Ministry of Rites to immediately deploy horses and laborers to transport goods for the mission. At the same time, he ordered the Ministry of Rites to arrange welcoming etiquette and prepare accommodations.
+The first issue was the question of ritual obeisance. Personally, Huang Hua didn't mind kowtowing—businessmen's integrity had long since shattered; back in the day, accompanying clients to brothels and whores had been just another form of kowtowing. But his current status was envoy. The Council didn't even regard the Ming emperor highly, let alone Later Jin, this little local regime. So kowtowing was absolutely not acceptable.
 
-Although the other party kept emphasizing that they were just a "business group", the specification arranged by Huang Taiji was for a "diplomatic mission". For the Later Jin small court which already had designs on the Central Plains, such a great opportunity to show "foreign vassals coming to pay tribute" and "the four seas returning to heart" naturally could not be missed.
-
-Huang Hua was welcomed into the capital in this sudden enthusiasm.
-
-Those who came to welcome him were a group of Later Jin Ministry of Rites officials led by the *Qixinlang* of the Ministry of Rites. They brought 200 horses for Huang Hua's entourage to ride and to transport gifts and samples. But Huang Hua's entourage was only twenty people, and adding the goods didn't use 200 horses. The remaining horses were temporarily left at Zhenjiang Fort.
-
-Prepared for Huang Hua was a double-mule pack sedan with a felt tent. This was the most comfortable travel tool at that time. The internal space was large, allowing one to sit or lie down, and one could even bring beautiful maids and handsome pages along for amusement. It was also Huang Hua's first time sitting in this thing. After getting on, he found that not only was the furnishing extremely luxurious, but even tea and pastries were all available, showing extreme care.
-
-"These Tartars are really considerate, VIP treatment." Huang Hua leaned back in a pile of thick felt cushions, muttering to himself, "But I won't be bought so easily."
-
-In front of his vehicle, a bondservant driving the mules walked on the left, and on the right was the *Niru Ejen* (Company Commander) riding a horse responsible for welcoming them. The mule cart of the *Qixinlang* of the Ministry of Rites followed behind the vehicle. There were about a hundred Later Jin cavalry around. Looking at the banners, he understood that these were troops of the Plain Yellow Banner.
-
-The journey would take many days and was lonely, but he didn't say a word more to the officials welcoming him. During this period, he kept his eyes closed to rest, but in fact, his mind didn't stop active for a moment, considering how to negotiate with Later Jin officials after arriving in Shenyang—Shengjing.
-
-The first problem was the issue of performing rites. Huang Hua personally didn't care about kowtowing to others: for business people, integrity had long been shattered all over the floor. Accompanying customers to visit prostitutes and play with women back then was nothing more than a form of kowtowing. But his current identity was an envoy. The Senate didn't even put the Ming Emperor in their eyes, let alone such a small local separatist regime like the Later Jin. So this kneeling and kowtowing ceremony was absolutely out of the question.
-
+(End of Chapter)

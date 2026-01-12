@@ -1,0 +1,61 @@
+--- DUPLICATES ---
+Chapter 1251:
+  1251-Chapter1251-Naval_Battle_Part_2.md (Size: 10626)
+  1251-Chapter1251-Naval_Battle_II.md (Size: 10860)
+Chapter 1252:
+  1252-Chapter1252-Meeting_the_Attack.md (Size: 11633)
+  1252-Chapter1252-Meeting_the_Enemy.md (Size: 11608)
+Chapter 1253:
+  1253-Chapter1253-Heavy_Reward.md (Size: 11412)
+  1253-Chapter1253-Generous_Rewards.md (Size: 11577)
+Chapter 1254:
+  1254-Chapter1254-Grape_Shot.md (Size: 10500)
+  1254-Chapter1254-Grapeshot.md (Size: 10700)
+Chapter 1341:
+  1341-Chapter1341-A_Sense_of_Estrangement.md (Size: 12084)
+  1341-Chapter1341-Sense_of_Strangeness.md (Size: 12453)
+Chapter 1346:
+  1346-Chapter1346-Impoverished_Nation_Destitute_People.md (Size: 13292)
+  1346-Chapter1346-A_Poor_Nation.md (Size: 11580)
+Chapter 1348:
+  1348-Chapter1348-Etiquette.md (Size: 13279)
+  1348-Chapter1348-Protocol.md (Size: 12296)
+Chapter 1451:
+  1451-Chapter1451-Final_Link.md (Size: 10982)
+  1451-Chapter1451-The_Final_Link.md (Size: 11306)
+Chapter 1503:
+  1503-Chapter1503-Immigrant.md (Size: 10832)
+  1503-Chapter1503-Immigration.md (Size: 10228)
+Chapter 1801:
+  1801-Chapter1801-The_Private_Meeting.md (Size: 12724)
+  1801-Chapter1801-The_Small_Meeting.md (Size: 12549)
+Chapter 1802:
+  1802-Chapter1802-The_Merchants_Thoughts.md (Size: 12693)
+  1802-Chapter1802-The_Merchants_Concerns.md (Size: 11933)
+Chapter 1803:
+  1803-Chapter1803-Big_Vision_in_Business.md (Size: 12683)
+  1803-Chapter1803-The_Big_Picture_in_Business.md (Size: 12330)
+Chapter 1804:
+  1804-Chapter1804-The_Eve_of_Issuance.md (Size: 12344)
+  1804-Chapter1804-Eve_of_Issuance.md (Size: 13071)
+Chapter 1805:
+  1805-Chapter1805-The_Tax_Bureau_Director.md (Size: 11806)
+  1805-Chapter1805-The_Tax_Bureau_Chief.md (Size: 12597)
+Chapter 1807:
+  1807-Chapter1807-Staking_Claims.md (Size: 12240)
+  1807-Chapter1807-Land_Grab.md (Size: 7487)
+Chapter 1809:
+  1809-Chapter1809-Self_Justification.md (Size: 6908)
+  1809-Chapter1809-Self-Justification.md (Size: 12201)
+Chapter 2006:
+  2006-Chapter2006-Two_Senators_Caring_About_Naturalized_Citizens_Marriage_Problem_III.md (Size: 10954)
+  2006-Chapter2006-Two_Elders_Concerned_With_Naturalized_Marriage_III.md (Size: 11654)
+Chapter 2012:
+  2012-Chapter2012-Choice.md (Size: 10529)
+  2012-Chapter2012-The_Choice.md (Size: 10776)
+Chapter 2013:
+  2013-Chapter2013-Matchmaking_Conference_I.md (Size: 11297)
+  2013-Chapter2013-Blind_Date_Meeting_I.md (Size: 11115)
+
+--- MISSING ---
+416-450, 638-650, 847-850, 994-1050

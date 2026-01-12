@@ -1,4 +1,4 @@
-# Chapter 278 Sweet Port Turbulence – Intervention
+# Chapter 278: Sweet Port Turbulence – Intervention
 
 "Good. I'll have them build a dedicated compound for you inside the sugar factory."
 
@@ -10,31 +10,31 @@
 
 "Do we have any assignments?" Chang Shide was quite excited.
 
-"None." Bei Wei replied bluntly.
+"None," Bei Wei replied bluntly.
 
 Chen Tianxiong said: "The sugar factory has no specific assignments. You just need to cooperate with our operations. I'll handle the specific matters. But in my daily life, I'm still the sugar factory's technician."
 
-The lack of intelligence work made Wen Tong quite happy. He had no interest in such things. There was still a huge pile of sugar factory matters to deal with.
+The absence of specific intelligence duties pleased Wen Tong; he had no interest in such matters. There was still a huge pile of sugar factory matters to deal with.
 
-"The Tripitaka Plan is a long-term operation. For the next several years, we'll be in the preparatory phase." Chen Tianxiong said. "What's our relationship with the local government like?"
+"The Tripitaka Plan is a long-term operation. For the next several years, we'll be in the preparatory phase," Chen Tianxiong said. "What's our relationship with the local government like?"
 
-"Relations are decent, but we're not close," Wen Tong described their recent dealings with the yamen, including matters related to the sugar factory reforms and maintaining order. "...Overall, we haven't had much contact."
+"Relations are decent, but we're not close," Wen Tong described their recent dealings with the *yamen*, including matters related to the sugar factory reforms and maintaining order. "...Overall, we haven't had much contact."
 
-"I think that's about to change." Chen Tianxiong said with a smile. "Right now, even a blind person can see you've struck it rich. There'll be no shortage of trouble from now on."
+"I think that's about to change." Chen Tianxiong said with a smile. "Right now, even the blind could see you've struck it rich. There'll be no shortage of trouble from now on."
 
-"Yes, I've been worried about that too." Wen Tong said with concern. "Although the Qiwei Escort Agency has laid some groundwork for us, their own roots here are quite shallow. Some things they probably can't handle."
+"Yes, I've been worried about that too," Wen Tong said with concern. "Although the Qiwei Escort Agency has laid some groundwork for us, their own roots here are quite shallow. Some things they probably can't handle."
 
-"If worst comes to worst, we'll just pay for peace." Chang Shide said. "How about giving the officials some dry shares? A protection umbrella. Besides, in two years Leizhou will be ours anyway."
+"If worst comes to worst, we'll just pay for peace," Chang Shide said. "How about giving the officials some 'dry shares'? A protection umbrella. Besides, in two years Leizhou will be ours anyway."
 
 "Try to bring local officials into the fold. Form a common interest group." This was the Executive Committee's instruction to all transmigrators operating in Ming-controlled territory.
 
 "That works," Wen Tong nodded. "But we'll need to report the specifics to the Executive Committee. Speaking of which, it's really inconvenient here without even a radio. Even the salt field village, a place like that, has a 5W radio."
 
-"The Executive Committee will probably allocate one to you soon. Mass production of radios is about to make progress. The glass factory has been experimenting with pulling glass tubes every day, and Dr. Zhong has already started work on it." Chen Tianxiong said.
+"The Executive Committee will probably allocate one to you soon. Mass production of radios is about to make progress. The glass factory has been experimenting with pulling glass tubes every day, and Dr. Zhong has already started work on it," Chen Tianxiong said.
 
 "Making radios?" Wen Tong was skeptical. "That's pretty high-tech, isn't it?"
 
-"He's got lots of high-tech things he wants to make: clocks, batteries, and water-gas airships. I don't think the airship is very realistic, but just let him talk."
+"He's got lots of high-tech things he wants to make: clocks, batteries, and hydrogen airships. I don't think the airship is very realistic, but just let him talk."
 
 "I've debated him about that airship idea before. It's completely impractical. Dr. Zhong reads too many books; he's gotten a bit theoretical." Chang Shide was dismissive.
 
@@ -44,7 +44,7 @@ The lack of intelligence work made Wen Tong quite happy. He had no interest in s
 
 "Really? Then I'll have to send people to look for it properly. The current yellow clay water method is terribly inefficient." Wen Tong perked up at this. "At this rate, the labor cost per ton of white sugar is just too high."
 
-The price of raw brown sugar was much lower than white sugar. Processing it into white sugar before selling would yield far greater profits. Wen Tong had been wracking his brains lately, wondering if he could come up with a white sugar process that was within their capabilities but more efficient. The raw brown sugar in the warehouse was piling up. Before the steel rollers, the average yield per *mu* of cane field was a little over three *shi* of raw brown sugar. Now, with the improved extraction rate, each *mu* yielded over five *shi*. The sugarcane fields under the South China Factory's name alone could produce 13,000 *shi* of raw brown sugar. Add in the processing fees earned from contract work, and raw brown sugar was piling up like a mountain in the warehouse—a total of over 20,000 *shi*. Meanwhile, the white sugar workshop, running two shifts around the clock, could only produce five or six *shi* a day.
+The price of raw brown sugar was much lower than white sugar. Processing it into white sugar before selling would yield far greater profits. Wen Tong had been racking his brains lately, wondering if he could come up with a white sugar process that was within their capabilities but more efficient. The raw brown sugar in the warehouse was piling up. Before the steel rollers, the average yield per *mu* of cane field was a little over three *shi* of raw brown sugar. Now, with the improved extraction rate, each *mu* yielded over five *shi*. The sugarcane fields under the South China Factory's name alone could produce 13,000 *shi* of raw brown sugar. Add in the processing fees earned from toll processing, and raw brown sugar was piling up like a mountain in the warehouse—a total of over 20,000 *shi*. Meanwhile, the white sugar workshop, running two shifts around the clock, could only produce five or six *shi* a day.
 
 Just as they were talking, Wen Xiu suddenly came to report: a pigeon from Guangzhou had arrived with a secret letter.
 
@@ -78,7 +78,7 @@ Liao Dahua shook his head repeatedly: "Sir, this is inadvisable."
 
 But Chang Shide understood: "It's a monopoly, right?"
 
-"Exactly." Liao Dahua said. There were twenty-one sugar trading houses on Hai'an Street, forming a trade guild called "Haiyi Hall." Any sugar produced in Leizhou that was to be exported had to go through their hands. Each year's purchase price was publicly discussed by the guild before trading began. Outsiders who hadn't joined Haiyi Hall couldn't enter the sugar purchasing business.
+"Exactly," Liao Dahua said. There were twenty-one sugar trading houses on Hai'an Street, forming a trade guild called "Haiyi Hall." Any sugar produced in Leizhou that was to be exported had to go through their hands. Each year's purchase price was publicly discussed by the guild before trading began. Outsiders who hadn't joined Haiyi Hall couldn't enter the sugar purchasing business.
 
 "I see." Wen Tong nodded. These monopoly organizations really were everywhere.
 
@@ -94,7 +94,7 @@ Two percent was no small figure. This would greatly benefit the escort agency, a
 
 But Chen Tianxiong said: "Isn't this a bit risky? Have you considered what happens if the other side strikes back?"
 
-"It's fine." Wen Tong said. "I've been to Hai'an Street and met several managers. They're all legitimate businesses. In fact, the entire Hai'an Street is basically managed by them. Good order, everything running smoothly."
+"It's fine," Wen Tong said. "I've been to Hai'an Street and met several managers. They're all legitimate businesses. In fact, the entire Hai'an Street is basically managed by them. Good order, everything running smoothly."
 
 Chen Tianxiong shook his head: "Old Wen, I'm not trying to meddle—this is your domain—but you should know: interest groups will stop at nothing to protect their interests. Not selling sugar to the houses and shipping it out ourselves already steps on their toes. Now we're also purchasing—the conflict of interest is practically life-or-death."
 
@@ -102,25 +102,25 @@ Chen Tianxiong shook his head: "Old Wen, I'm not trying to meddle—this is your
 
 "And you've been around the block. Do you really think the 17th century was all simple folk, with nobody picking up lost items on the road or locking doors at night? Every ugly aspect of society—which one of them hasn't existed since ancient times? Merchants pursue profit. I don't need to recite Marx's assessment of capitalists to you, do I?"
 
-"Tell me what you think we should do." Wen Tong thought his points had some merit. The notion that ancient people were simple was something he'd learned wasn't necessarily true during his time in this spacetime. People of this era were the same as modern people: some good, some bad, and mostly ordinary folks who kept their heads down—neither particularly good nor particularly bad.
+"Tell me what you think we should do." Wen Tong thought his points had some merit. The notion that ancient people were simple was something he'd learned wasn't necessarily true during his time in this era. People of this era were the same as modern people: some good, some bad, and mostly ordinary folks who kept their heads down—neither particularly good nor particularly bad.
 
 Bei Wei rarely spoke up: "Chen Tianxiong's point should be considered. What if the other side retaliates?"
 
-"Before we've fully developed, it's best not to touch that piece of cake." Chen Tianxiong advised.
+"Before we've fully developed, it's best not to touch that piece of cake," Chen Tianxiong advised.
 
-"I don't think we need to be this nervous." After much consideration, Chang Shide said, "The sugar houses on Hai'an Street are just ordinary merchants. How much trouble can they make? At worst, they have better connections with the county and prefectural yamens. We have contacts in Guangzhou now, and we're on speaking terms with the Leizhou prefectural yamen and the Haikang and Xuwen county yamens. What can they do to us?"
+"I don't think we need to be this nervous." After much consideration, Chang Shide said, "The sugar houses on Hai'an Street are just ordinary merchants. How much trouble can they make? At worst, they have better connections with the county and prefectural *yamens*. We have contacts in Guangzhou now, and we're on speaking terms with the Leizhou prefectural *yamen* and the Haikang and Xuwen county *yamens*. What can they do to us?"
 
 After some discussion, Chen Tianxiong saw their minds were made up. As he wasn't part of the South China Factory's decision-making circle, saying more would seem like overstepping—not good for future work. So he stopped pressing his view and only reminded them to be prepared for contingencies. Bei Wei had no interest in any of this and hadn't spoken. Bored, he gazed at the ever-growing mound of bagasse piling up outside the courtyard wall. Suddenly he asked:
 
 "What about the by-products from sugar-making?"
 
-"There are many uses, but we need equipment to utilize them. Speaking of which, I'd like to report this to the Executive Committee too. We'll need some fermentation equipment and bacterial cultures." Wen Tong explained the recovery and utilization of sugarcane by-products: strictly speaking, there was no waste in the sugar production process—even wastewater could be used to produce things.
+"There are many uses, but we need equipment to utilize them. Speaking of which, I'd like to report this to the Executive Committee too. We'll need some fermentation equipment and bacterial cultures." Wen Tong explained the recovery and utilization of sugarcane byproducts: strictly speaking, there was no waste in the sugar production process—even wastewater could be used to produce things.
 
 Diluting molasses and inoculating it with different bacterial cultures could produce alcohol, glycerol, acetone, butanol, citric acid, and yeast. Bagasse could be used for papermaking and producing furfural. The filter mud from the sedimentation and filtration process could yield sugarcane wax, with the remainder usable as fertilizer. As for the cane leaves cleaned off the sugarcane itself, they could be used as animal feed. The cane tops and cane butts, which had low sugar content and were cut off before entering the press, could still be used for brewing spirits or extracting alcohol.
 
 "This is actually relatively simple recovery and utilization. Bagasse can also be used to recover aconitic acid," Wen Tong said. "How much we can utilize depends on how many bacterial cultures and chemicals we have available, and we need the right equipment."
 
-"Of the by-products the South China Factory can use on-site, probably just making alcohol from molasses and making paper from bagasse?" Chang Shide said.
+"Of the byproducts the South China Factory can use on-site, probably just making alcohol from molasses and making paper from bagasse?" Chang Shide said.
 
 "Papermaking isn't realistic." Wen Tong had recently been investigating the boiler's fuel situation. "Using all the bagasse just for fuel is about right."
 
@@ -134,3 +134,4 @@ Buying coal was certainly possible. The route to buy coal from Hongji in Vietnam
 
 "Sure, it won't cost much. Leave it to Qiwei to handle."
 
+**(End of Chapter)**
