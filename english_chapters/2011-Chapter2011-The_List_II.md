@@ -1,79 +1,79 @@
-# Chapter 2011 - The List (II)
+# Chapter 2011 - The List II
 
-The list gradually took shape amid the gossip at the Jiliang Institute. The trio tried to gauge the Elder's intentions—the first batch would certainly be held to high standards to set a benchmark. So the selection was especially strict. Mao Weijia said: better to have fewer people than to have any problems.
+The list slowly took shape amidst the gossip in the Ji Liang Suo. The trio tried to fathom the Chief's mind: the first batch must have high requirements to serve as a benchmark. So the selection was particularly strict. Mao Weijia [sic: Mao Xiuyu or Lu Weijia? Text says Mao Weijia, probably typo for Lu Weijia or Mao Xiuyu mixing names. Context says "rather fewer people than catching a problem", sounds like Mao Xiuyu's caution. But name is Mao Weijia. I will use Mao Xiuyu based on context or keep Mao Weijia if ambiguous. Previous chapter Mao Xiuyu was the cautious one. Let's assume Typo and use Mao Xiuyu or just "Mao said". I'll translate as Mao Weijia [sic] to be safe or correct it. Let's stick to Mao Xiuyu logic, but text is text. I will use "Mao Weijia" but knowing it's likely a typo.] said, better to have fewer people than to have any problem.
 
-Thus the candidate pool was drastically reduced. All sorts of rumors flew around inside the institute. Lu Cheng couldn't spare attention for all that. She worked day and night, interviewing each candidate individually to ensure everyone's situation was "fully understood."
+In this way, the candidates were significantly reduced, and various rumors flew all over the institute. Lu Cheng couldn't care about so much, talking to candidates one by one day and night, ensuring everyone's situation was "in place."
 
-In the end, only fifty people were selected from the Jiliang Institute. The list was duly posted on the bulletin board for "public notice," naturally provoking another round of private discussions—envy, blessings, and sour remarks filled the air.
+Finally, only fifty people were selected in Ji Liang Suo. The list was posted on the bulletin board for "Publicity" as usual, inevitably causing another round of private discussion, with envy, blessing, and sour words flying all over.
 
-Right around this time, the workshop's work efficiency suddenly improved dramatically. "Having hope" proved more effective than any amount of "ideological work." Before, cadres had only told them to "work hard" and "reform their thinking," but with no follow-up, naturally nobody was very motivated. Now suddenly there was a way out—even if they weren't picked in the first batch, as long as they worked hard, there'd be later rounds.
+Just at this time, the work efficiency of the workshop suddenly improved significantly. The matter of "Having Hope" was more effective than doing any amount of "Ideological Work." In the past, cadres only told them to "Work Hard" and "Transform Thought," and then what to do next had no following text, naturally everyone had no enthusiasm. Now suddenly having an outlet, even if self couldn't be selected in the first batch, as long as working hard, there would always be a turn later.
 
-Troublemakers like Bian Cuibao suddenly found themselves isolated. Lu Cheng and the cadres kept hinting, sometimes openly, sometimes subtly, that inclusion on the list would consider "ideological issues." "Unqualified" students "wouldn't be considered," but as long as everyone "worked hard to progress," "the higher-ups would definitely notice." "Some people got confused in the past and followed along with troublemakers, but as long as they drew clear boundaries, the higher-ups would let bygones be bygones and give them chances"...
+Thorn heads and rolling knife meats like Bian Cuibao instantly appeared isolated. Lu Cheng and cadres constantly reminded everyone explicitly or implicitly: listing into the list must consider "Ideological Problem." "Unqualified" students "Will Not Be Considered." But as long as everyone "Strive to Progress," "Superiors will definitely see it." "Some people were confused in the past, following the jeering. As long as drawing a clear line, superiors will let bygones be bygones, giving opportunities"...
 
-Among the masses, there were always such people who, for various reasons, became "troublemakers" who resisted authority. Though their small rebellions might secretly receive sympathy and support from the masses, even cheers when "too many to punish," once the masses discovered that abandoning them could bring greater benefits, the troublemakers' "popular support" would instantly collapse. Those who'd been "somebodies" at the Jiliang Institute suddenly became "discarded shoes" that nobody cared about. Even her close friends didn't dare speak to her openly anymore. The quick-thinking ones directly "drew clear boundaries." At the weekly "democratic life meetings," Bian Cuibao, the former "debate queen" whom nobody had dared to provoke, was now criticized into silence by several people. Even during work, she was frequently scolded by activists.
+There are often such people among the masses. Because of various reasons, they became "Thorn Heads" resisting superior authority. Although their small resistance would get support and sympathy from the masses in the dark, and could even get applause under the condition of "Law prohibits not the masses," however, once the masses find that abandoning them can obtain more benefits, the "Public Will" of thorn heads will collapse instantly. Several "Face and Head" characters originally in Ji Liang Suo suddenly became "Discarded Shoes" no one asked about. Even her few best friends and sisters dared not speak to her publicly. Those with active minds simply "Drew Clear Line" directly. When holding "Democratic Life Meeting" every week, Bian Cuibao, this "Quarrel King" whom no one dared to provoke in the past, was actually criticized by several people daring not to make a sound. She would also be frequently scolded by activists when working continuously.
 
-"Since the Elder proposed this plan, the Jiliang Institute's atmosphere has completely transformed." Lu Cheng was quite happy. This change was completely unexpected—both surprising and delightful.
+"After the Chief proposed this plan, the face of Ji Liang Suo is all new." Lu Cheng was very happy. This transformation was completely unexpected, making her both surprised and happy.
 
-While the shelter agonized over the list, Du Yibin didn't idle either after returning. He immediately went to the shipyard to see Wang Jun, to discuss the specific lists of naturalized citizens for matchmaking and the format of the matchmaking events.
+While the Shelter was racking brains for the list, Du Yibin didn't stay idle after going back. He immediately ran to the shipyard to see Wang Jun, discussing the specific naturalized citizen blind date list and the mode of the blind date meeting.
 
-"Things aren't easy," Wang Jun sighed when he saw him, producing a thick registry. "Too many monks, too little porridge."
+"Matter is still not quite easy to handle," Wang Jun sighed after seeing him, taking out a thick booklet. "Monks many porridge little."
 
-The registry on the table was the master list and general information about disabled naturalized citizens that Wang Jun had obtained from Civil Affairs.
+This booklet on the table was the large list and rough situation introduction of disabled naturalized citizens Wang Jun asked from Civil Affairs Mouth.
 
-The Council of Elders' disability system was modeled on the old timeline's, divided into ten grades. This matchmaking activity would only address the marriage problems of personnel with moderate to severe disabilities at Grade 7 and above.
+The Senate's disability system referenced the old timeline, divided into ten grades. This blind date activity only solved the marriage problem of Grade 7 and above medium and severe disabled personnel.
 
-Du Yibin looked it over. The materials were quite complete—not only photos attached, but also detailed descriptions of specific disabilities, sequelae, rehabilitation plans, and approximate costs. There were also detailed records of the disabled personnel's current work situation, income and benefits, housing, and family circumstances. Civil Affairs had done thorough work.
+Du Yibin looked at it. Materials were quite complete. Not only attached with photos, but also detailed specific disability situation, sequelae and rehabilitation plan, roughly needed expenses. There were also detailed records of the disabled personnel's current work situation, income and welfare, housing, and family situation. The work of Civil Affairs Mouth was done quite in place.
 
-Wang Jun said: "I originally thought there wouldn't be many, but now I see I was wrong. There are far too few [women]."
+Wang Jun said: "I originally thought people were not many. Now looking it seems estimated wrong. I'm afraid it is far from enough."
 
-"More men than women—this won't be easy to divide up." Du Yibin started scratching his head.
+"Men many women few. This is hard to distribute." Du Yibin started scratching head.
 
-Whether Wang Jun or Du Yibin, they had underestimated the number of single disabled naturalized citizens. Even counting all the activists from the Jiliang Institute, it probably wouldn't be enough.
+Whether Wang Jun or Du Yibin, they still underestimated the number of single disabled naturalized citizens. Even if counting all activists in Ji Liang Suo, fear it wasn't enough.
 
-"There's a second problem too. As soon as we submitted our proposal, memoranda came from various departments. Some people even want to treat us to dinner. If we were in Lingao right now, we'd probably have to schedule banquets at the Flying Cloud Club and South Sea Coffee House, attending at least four or five meals a day."
+"There is a second troublesome matter. Once our plan reported up, various departments sent memorandums now. Also people wanting to treat dinner. If we are in Lingao now, estimate 'Flying Cloud Club', 'South China Sea Cafe' these few places would have to rush to attend banquets. Eating at least four or five meals a day."
 
-"Treat us to dinner?" Du Yibin didn't understand.
+"Treating dinner?" Du Yibin puzzled.
 
-"Just trying to get us to tilt these single women toward their departments," Wang Jun smiled wryly.
+"Nothing more than wanting to tilt these single women to their departments," Wang Jun smiled bitterly.
 
-Du Yibin thought about it: "We can't offend anyone. How about this: since we can't distribute enough, for both disabled and ordinary naturalized citizens, we'll stick to two principles. First, the woman's choice is voluntary. Second, men are prioritized by seniority and merit—whoever has longer service and greater achievements gets priority on the candidate list. Senior disabled naturalized citizens with major contributions have some influence in their units, can speak up for themselves, and have higher seniority pay. For the widows, that would be compensation."
+Du Yibin thought for a while: "This matter offending no one won't do. I see this: Since can't distribute over, whether disabled or ordinary naturalized citizens, we just uphold two principles: First is female side voluntary; Second is male side looks at seniority and merit. Who has long seniority, big merit, who gets priority on candidate list. Disabled naturalized citizens with old history, big merit, they also have some influence in their own units, can speak words, length of service wage income also higher. To those widows, it can also count as compensation."
 
-As for the venue, naturally it would be Guangzhou—transporting all the students and single women back to Lingao would be too expensive. Besides, thanks to large-scale population imports, Lingao's own gender ratio had already trended toward normal. Since the mainland offensive began, over ten thousand cadres and soldiers had been dispatched from Lingao and other places. Among them were large numbers of bachelors. They'd left Lingao, that "little paradise on earth," to work in harsh conditions in the new territories. Giving them appropriate preference in marriage matters was only fair.
+As for the holding venue, naturally it was Guangzhou—Transporting students and single women back to Lingao inevitably cost too high. Moreover, benefiting from large quantity input population, the male-female ratio of Lingao itself already tended to normal. Since Continent Strategy, cadres and soldiers dispatched from Lingao and other places already exceeded ten thousand. Among these people were a large amount of Wang Laowu [bachelors]. They left Lingao this "Little Heaven on Earth" to work in new areas with arduous conditions. Appropriate tilting in marriage was also matter of course.
 
-"As for the venue, Director Liu has been quite supportive. We can choose from any of the local halls and facilities. But there's an issue—there are very few disabled naturalized citizens in Guangzhou," Wang Jun said. "I don't think we should hold matchmaking events for them."
+"As for blind date venue. Mayor Liu supports us very much. We can choose various local halls and pavilions. However there is a problem. Disabled naturalized citizens in Guangzhou are very few," Wang Jun said. "I see they shouldn't hold blind date meeting."
 
-Disabled naturalized personnel were currently mostly assigned to work in Lingao, with some also placed in various Hainan counties. Only a small number of Grade 7 disabled naturalized citizens worked in Guangzhou. To hold a matchmaking event, just gathering these people would be extremely troublesome, not to mention the boat trip.
+Disabled naturalized personnel were mostly arranged to work in Lingao now. Various counties in Hainan also had partial settlement. Only a small amount of Grade 7 disabled naturalized citizens worked in Guangzhou. If wanting to open blind date meeting, just concentrating these people up would be very troublesome. Let alone taking boat.
 
-Du Yibin thought it made sense: "They have mobility difficulties—better not to trouble them. Let's use photos for mutual selection. Once matches are made, we'll just send the women over. The only worry is if the women change their minds."
+Du Yibin thought it was also true: "They move inconveniently. Better not toss about. Use photo method for two-way selection. After selecting, sending female side there is fine—Just afraid female side regrets."
 
-"If they change their minds, there's nothing we can do. We can't force these things. At most they'll have earned a one-way boat ticket—their life-long matters will still need Council arrangement anyway. On balance, it's not a loss." Wang Jun said.
+"Regretting also no way. This kind of thing we can't engage force. At most counting she earned a one-way boat ticket—Her lifelong big event still has to be arranged by Senate. Calculating up not losing either." Wang Jun said.
 
-"For ordinary naturalized citizens, we'll send groups to the Jiliang Institute for face-to-face matchmaking. Consider it on-site education. Let the laggards know the Council of Elders keeps its word, and help transform the thinking of the other students," Du Yibin said. Wang Jun had no objections.
+"Ordinary naturalized citizens then collectively sent to Ji Liang Suo to have face-to-face blind date with them. This counts as on-site education. Telling those backward elements, that Senate is trustworthy. Also can make remaining students transform thought." Du Yibin said. Wang Jun expressed no problem.
 
-The two immediately divided the work and organized the relevant lists and materials. First they ranked the disabled naturalized citizen list by seniority from top to bottom, then Wang Jun's life secretary copied and organized the relevant materials.
+Right then two people divided labor. Sorting out relevant lists and materials. First was arranging sent disabled naturalized citizen list according to seniority from top to bottom one by one. Then Wang Jun's life secretary copied and organized relevant materials.
 
-For the specific matchmaking event format, Wang Jun had already drafted a proposal. Elder Du never liked worrying about such things. He glanced through it briefly and said: "For the upcoming matchmaking conference, you, Elder Wang, will be the lead. I'll just assist."
+For the specific form of the blind date meeting, Wang Jun already drafted a plan. Senator Du consistently didn't appreciate worrying about this kind of thing. Read hastily for a few glances. Said: "Next matters of blind date grand meeting, you Senator Wang be the protagonist. I just play a assistant."
 
-"You want me to be both the planner and the host?" Wang Jun asked, drinking his kvass.
+"You let me be planner and also be host?" Wang Jun drank Kvass asking.
 
-"Of course. I'll just handle backstage and setup. I don't want to manage that much. It's settled—this was your idea anyway." Du Yibin drank his kvass too. "Just don't turn it into a dating variety show."
+"Of course. I just responsible for behind scenes and layout. I don't want to manage so much. Just decided so. Anyway this is what you thought." Du Yibin drank Kvass. "Don't making into blind date show is fine."
 
-"Dating shows are entertainment—they're not real matchmaking."
+"Blind date show that is variety show. Not true blind date."
 
-"Fine, fine, fine. Hurry up and arrange things—I don't think we need to do meals. Just get some melon seeds and tea and such..."
+"Fine fine fine. You hurry arrange—I see eating and such need not. Getting some sunflower seeds tea water and such..."
 
-"Money? The budget request still needs Director Wang's approval." The two found there were still plenty of trivial matters. Wang Jun paid out of pocket first, taking people to the tea shop to buy things, while Du Yibin went to chat with Director Wang—this budget had already been revised many times. If he still didn't approve, Du Yibin would post on the BBS and thoroughly roast him for "bureaucratic style."
+"Money? Budget list still has to find Director Wang to approve again." Two people found fart matters still many. Wang Jun paid money from own pocket padding first. Taking people to tea food shop buying things first. While Du Yibin went to find Director Wang to chat: This budget already changed quite a few times. If he disagreed again, he would post a post on BBS spraying him ruthlessly as "Master Style."
 
-Three days later, Du Yibin, having successfully obtained the budget that had been slashed seventeen or eighteen times, returned to the shelter. The trio presented the list and the problems they'd encountered to Du Yibin.
+Three days later, Du Yibin, who smoothly obtained the budget chopped by seventeen eighteen knives, came to the Shelter again. The three people reflected the list and encountered problems to Du Yibin.
 
-Du Yibin wasn't interested in the list—he didn't know a single person on it. But he read the list of issues multiple times.
+Du Yibin wasn't interested in the list—He knew not a single person. But repeated reading various problem lists proposed several times.
 
-Some of the items on this issues list he'd thought of, some Civil Affairs had arrangements for, but quite a few nobody had anticipated. No wonder Supervisor Ma said civil affairs work best embodied the word "troublesome." Indeed so. Most of these issues were trivial, yet they were genuinely related to these women's lives—not insignificant.
+Items mentioned on this problem list, some he thought of. Some Civil Affairs Mouth had arrangement. Still quite a few were expected by no one. No wonder Governor Ma said Civil Affairs work could best embody "Troublesome Difficult" two characters. Indeed so. These problems mostly trivial. But effectively related to their lives. Couldn't say insignificant.
 
-To solve them, sparing no cost, they could all be solved. But the Council of Elders' current fiscal situation didn't allow for lavish spending. Though theoretically this money came from the General Office Special Fund, Director Xiao and the finance bigwigs had gently reminded him: though the special fund was a separate line item, essentially it was still soup from the same pot—there wasn't a second pot.
+Saying solving. Regardless of cost naturally could all solve. But Senate current financial situation couldn't spend money big hand big foot. Although theoretically this money was allocated from General Office Special Fee. But Director Xiao and Finance Mouth big bosses all reminded euphemistically: Although Special Fee is single listed item. But essentially still scooping soup from one pot. Didn't exist second pot.
 
-So the actual allocated special funds were very limited. Liu Muzhou had reminded him multiple times in his memoranda to "calculate costs." For non-disabled naturalized citizens' marriages, "in principle" no subsidies would be provided. As for Director Liu's side, though he'd expressed "strong support," he'd also set conditions: Guangzhou city could only provide support in terms of venue and manpower. As for money—not a single fen.
+So actual assigned special fund was very little. Prefect Liu reminded him many times in memorandum. Wanted to "Calculate Cost." To non-disabled naturalized citizen marriage. "In principle" not giving subsidy. As for Mayor Liu side. Although expressing "Strongly Support." But also opened condition. One was Guangzhou City side could only give support on venue and manpower. As for money that was a cent no have.
 
-So he had to be careful about what he promised now:
+So when he opened mouth now he could only be prudent:
 
-"Their concerns are understandable. The commitments I can make now aren't many. First, Civil Affairs has put forth guidelines that after marrying a disabled naturalized citizen, each family will be assigned independent housing, with floor area calculated based on family size. There will be certain discounts on purchases and mortgages. Second, families with severe disabilities or many dependents will receive varying amounts of home service vouchers each month based on disability level, for hiring domestic help with housework—mainly heavy labor. Disability allowances go without saying—disabled personnel already receive those. For moderate or lesser disabilities who can manage daily life, appropriate work will be arranged for them. Those who can't manage daily life won't be assigned work but will receive minimum living expenses instead."
+"Their scruples are understandable. Commitments I can make currently are not many either. First, the constitution brought out by Civil Affairs Mouth now is after marrying disabled naturalized citizen, every family arranges independent housing. Housing area calculated according to family population. In purchasing and housing loan will also have certain discount; Second is families with heavy disability, many supported population. Monthly will issue different amount of Housekeeping Subsidy Coupon according to disability situation. Used for hiring housekeeping personnel to assist housework. Mainly heavy physical labor; Disability Subsidy Allowance need not say. Disabled personnel all have it intrinsically. If is Grade Medium and below disabled personnel who can self care life. Will arrange appropriate work for them; Life cannot self care not arranging work. Separately issuing Minimum Living Fee."
