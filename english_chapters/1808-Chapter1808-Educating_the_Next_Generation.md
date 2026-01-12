@@ -1,81 +1,75 @@
-# Chapter 1808 - Educating the Next Generation
+# Chapter 1808: Educating the Next Generation
 
-Liu Xiang returned to his office, feeling rather exhausted. Zhang Yunmi brought him a cup of coffee, which he downed in one gulp.
+Before Zhang Yunmi left Lingao, she had specifically and sincerely asked Liu Xiang what it was like to be an administrative head. She only remembered that Liu Xiang looked troubled at the time and stared at her for a long time.
 
-Guangzhou was truly a complex multi-threaded simulation game—the kind that demanded all your CPU power, constantly making the computer stutter. But unlike a game, you couldn't save and reload when things went wrong. Every decision might lead the entire city toward ruin.
+"Administrative work is roughly divided into civil servants and political appointees, but our current organizational structure and the size of the territory we control make the distinction between the two types not very obvious. However, it can be clearly stated that if one sincerely wants to do their job well, it is absolutely impossible to have the kind of 'newspaper and clear tea for a whole day' office loafing situation." Liu Xiang had no idea how to explain to a 'fresh meat' like Zhang Yunmi, who had absolutely no practical experience and relied entirely on imagination. Finally, out of helplessness, he silently installed a sailing background simulation management game on Zhang Yunmi's laptop, and then told her a "purely masochistic" game goal of "Full Maritime Trust."
 
-Every day, a mountain of official documents awaited him—though most needed only his review rather than his signature. The signature authority was shared among several Elders. Liu Xiang couldn't possibly decide everything personally.
+"If you can really achieve a 24+2 city full maritime trust on your own, then you can probably understand 1/10th of the workload of a relatively responsible regional administrative head." Liu Xiang said to Zhang Yunmi in a tone that was both serious and smug: "I put a very useful modifier in there for you. Even if you use the modifier, that's not bad, because a trust cannot be modified out."
 
-Zhang Yunmi set a stack of documents requiring his processing before him. These were all matters that could only be resolved with his signature—or at least his comments. He picked up the topmost document and began reading.
+After getting over the aversion to the game's outdated graphics, Zhang Yunmi spent all her "spare time" in Hong Kong on this after leaving Lingao. After about a month of competing with herself, Zhang Yunmi was finally able to establish a self-sufficient small trust trade circle in the 6-port small area of the Baltic Sea without modification, and then she discovered that more troubles began.
 
-"The Xinning County magistrate actually sent me a document written entirely in classical Chinese!" Liu Xiang was both exasperated and amused. "Does anyone still know how to read this? Here, take a look."
+In winter, agricultural production stopped, and the sea randomly froze ports...
 
-Zhang Yunmi accepted the document and scanned through quickly: "Xinning County respectfully memorializes: Your humble servant has received benevolent guidance, deeply grateful for sagely favor..."
+Area XX needed to expand fish meat supply, but judging from past experience, new fishery buildings shouldn't be built immediately. Instead, lumberyards should be expanded at the timber production base first, and hemp planting plots expanded at the hemp production base, otherwise the industrial chain would collapse.
 
-"You actually understand this?"
+Military blockades destroyed production outside the city walls and simultaneously generated a large number of refugees. If there were not enough material reserves to survive the military disaster, production in the entire trade area would collapse.
 
-Zhang Yunmi's face reddened slightly: "I attended a private academy for a few years as a child, so I picked up some classical learning. But I'm just barely literate—I can't actually compose anything myself."
+Facing a pile of documents two palms high after organizing, Zhang Yunmi shook her head and retracted her thoughts from the divergent thinking just now. "It really is quite similar!" Zhang Yunmi couldn't help but feel a little admiration in her heart. "But actual work is more complicated! There is no convenient data viewing plug-in like PI in actual work." Zhang Yunmi's summary only extracted what the document was about and what requirements it had. The specific data and reports involved had to be read and analyzed by Liu Xiang himself. There were also many official documents that only mentioned difficulties and requirements without stating the specific situation. If this type wasn't sent back strictly for rewriting, manpower would have to be arranged to investigate.
 
-"I see how it is—a hidden talent!" Liu Xiang teased. "I was wondering how you seemed to understand so much more than most naturalized cadres—so you had a foundation already."
+Her gaze fell on several official documents picked out separately on the right. A look of disgust appeared on Zhang Yunmi's face. "The stuff from these guys is getting uglier and uglier. I must tell the BOSS." Stretching lazily without any regard for her image, Zhang Yunmi got up with these organized documents under her arm.
 
-"My lord flatters me." Zhang Yunmi lowered her head, not daring to say more. Studying the old learning was nothing to boast about in the Council of Elders—in fact, it could even be a liability.
+Knock! Knock! Knock! "Uncle Liu!"
 
-"Don't be nervous. Tell me, what does this Xinning County magistrate want? Reading those memorial-style characters gives me a headache."
+"Come in!" Liu Xiang responded weakly.
 
-The memorial was quite lengthy, but Zhang Yunmi quickly summarized the key points:
+"Uncle Liu, this batch is done. I'm completely helpless with the ones placed horizontally on top." Zhang Yunmi put the large pile of official documents in front of Liu Xiang and said with a wronged face.
 
-In the fourth year of Chongzhen, the magistrate of Xinning County—which later became Taishan—was named Chen Zhongxiao. After being notified by the Council of Elders, he still hadn't formally surrendered. The land route between Guangzhou and Xinning passed through areas yet to be pacified, but Xinning bordered the coast where the Council of Elders was active, and the Council often sent ships there on various errands. So this memorial had been forwarded through the coastal patrol stations.
+"Okay, let me take a look first. You copy these few right here. Make a note on this one, then file it—my private memorandum file." Liu Xiang directly handed Hong Huangnan's "private official letter" to Zhang Yunmi.
 
-Its content was essentially a request for instructions: at the beginning of the year, the magistrate had received notice from the Bopo Army through the coastal patrol station, informing him that the Great Ming in Guangzhou had fallen and that he should remain in office pending disposition. Now half a year had passed. The magistrate wished to know what the Council of Elders intended to do with him, and whether his current salary and rations were according to Ming or Song scales.
+Equipment like photocopiers was considered "non-essential electronic products" at the beginning. Except for bringing one to store in the warehouse as a sample template, none were brought at all. Copying documents had always been done by typing wax stencils in the printing room or hand-carving steel plates. When important official documents with extremely small copy volumes like this needed to be archived and backed up, or copied to others, they could only be truly "hand-copied." And the transcription of major classified documents between Senators could only be done by "politically trustworthy" personnel, such as "life secretaries who are loyal in body and mind to the Senators," or using Senators even more extravagantly like now.
 
-Liu Xiang said: "This memorial has been forwarded through several hands to reach my desk. What's the matter—am I supposed to decide the fate of a county magistrate?"
+"What the hell is written here!" Liu Xiang opened one of the official documents that Zhang Yunmi "couldn't handle." Looking at it, the neat four-six parallel prose structure instantly blinded his eyes—and this was before reading the content. Looking closely, there were a total of more than four hundred characters. Excluding twenty or thirty "artistic characters" with overly complex shapes that were squeezed together and hard to identify, the remaining readable characters combined to express this meaning: rare snow fell in Guangzhou last winter, which was an auspicious sign of Heaven and Earth cheering for the return of the Great Song, but this snow seriously affected people's production and life. The folks had insufficient grain reserves, yet still had to provide "Reasonable Burden" to support the army. The locality strongly requested that taxes be exempted during this year's summer harvest. Liu Xiang took great effort to "decipher" the superficial meaning of this article, but he felt that there must be some "trick" in this article—because some words and allusions were too uncomfortable to use. For example, when praising the distributed farm tools as easy to use, it wrote "Labor of bending the body, undertaken by women and children, looking up to the beauty of the plow (Mei)". Normal logic should have written "benefit (Li)", but whether it was normal logic or rhyme and tonal patterns, this word "Mei" should not have been used, yet it was used... Liu Xiang analyzed it slightly and discovered the trick.
 
-Zhang Yunmi said: "Perhaps the magistrate doesn't know who to address it to."
+"After all this, they're still playing 'hidden tail poems'!" Liu Xiang couldn't help but scold with a laugh, startling Zhang Yunmi into looking up at him inexplicably.
 
-"That's probably right." Liu Xiang found this situation laughable yet troublesome. "Send Zhang Yi a note—tell him to have someone go take a look at Xinning County. If this magistrate Chen is reasonably capable, keep him on. If not, we'll discuss replacement."
+"Teacher Liu. What's the situation?"
 
-Zhang Yunmi acknowledged this, but showed some hesitation.
+Liu Xiang's certain special attribute instantly awakened.
 
-"Is there something else?"
+"Well, this official document from Xinning County says that the local landlord class collectively petitioned, asking us to 'practice benevolent government' and exempt the tax for this year's summer harvest. The reason, firstly, is that it actually snowed last winter, and they also paid a round of 'Reasonable Burden'." Liu Xiang first stated the superficial reasons. "But this is not the point. The point is here." Liu Xiang pointed to the characters at the end of a few lines, skipping two lines to point once.
 
-"My lord, your humble servant has a request—"
+"Mei (Beauty), Qin (Celery), Yu (Desire), Xian (Present), Tai (Great), Shou (Prefect/Governor)..." Zhang Yunmi followed Liu Xiang's finger and recited these words silently in her heart, then stared with a pair of big eyes flickering in confusion.
 
-"Speak."
+Liu Xiang's desire to perform went full throttle.
 
-"This servant wishes to do some practical work." Zhang Yunmi had evidently rehearsed this speech. Despite using the title of "Deputy Director of the General Office," correspondence with Lin Ziqi from Lingao had revealed that public opinion there still said she was doing "secretary" work. Lin Ziqi had teased her about it considerably.
+"'Mei Qin' (Beautiful Celery), comes from 'Liezi · Yang Zhu'. It originally meant that the gift given, though meager like goose feathers, represents great intention. But used on us 'descendants of the Great Song', it has another meaning." Liu Xiang paused and said: "In order to save the swaying Song Dynasty, Xin Qiji once wrote a policy essay called 'Ten Presentations of Beautiful Celery' (Mei Qin Shi Xian). The person who wrote this official document compares himself to Xin Qiji; he wants to climb up the ladder!"
 
-"Oh?" Liu Xiang's engineering-oriented mind immediately fell into the logical trap: "The General Office Director's work is already quite practical—it provides deep and broad exposure to the governmental operations of Guangzhou Prefecture. Why would you call it impractical work?"
+Zhang Yunmi was puzzled because the acting director of the Xinning County Office—naturalized citizen cadres were now serving as acting county-level chiefs—was a naturalized citizen. In her impression, he should be from a rich peasant background in Chengmai. Although there were many problems in his previous official correspondence, he absolutely wouldn't play with parallel prose like this—that rough fellow simply didn't have this cultural level.
 
-"Well, I hear that Lu Cheng is handling some interesting work recently. I thought perhaps I could, how to put it—go down to the grassroots level?"
+After the question was raised, Liu Xiang just siged: "The counter-attack and infiltration methods of the old forces are really unexpected!" However, after sighing, he didn't explain much, just buried his head and switched to another official document to read.
 
-Liu Xiang was startled by this—young lady, do you realize that right now Lu Cheng is working on "rescuing fallen women"? Some of those reproductive system diseases aren't necessarily transmitted only through direct contact! If you join that work, a certain German won't come knocking with a gun? Little miss, are you here specifically to get me in trouble?
+Zhang Yunmi was left with a head full of question marks. Seeing that Liu Xiang didn't seem to want to perform further, she didn't pester him and turned back to continue her great cause of copying.
 
-He quickly deployed a barrage of technical terminology from biology to explain to Zhang Yunmi the risks of going "down" to this particular "grassroots level." This made Zhang Yunmi blush deeply, and she privately harbored strong suspicions that this strange uncle was using the opportunity to verbally harass her...
+Zhang Yunmi turned back to continue copying, and Liu Xiang stopped talking and continued reading official documents. In fact, Liu Xiang read that parallel prose just for fun; the specific situation had long been notified by the Political Security side. Now Liu Xiang was waiting for the conclusion of further investigation before he could set the tone for the next step of work. But that was also a matter for the next step; what was more important now was the matter at hand.
 
-After thorough discussion, Liu Xiang finally understood that Zhang Yunmi simply didn't want to continue work that was nominally "Deputy Director of General Office" but essentially "Chief Secretary to Mayor Liu." He couldn't help scratching his head.
+The most urgent thing was naturally the issuance of the new currency. Fortunately, now that several capable generals from Wudaokou had arrived to preside over this area, he only needed to provide support and cooperation. The specific decision-making power lay in the hands of Chen Ce and the others.
 
-His worry wasn't Zhang Yunmi's new request, but rather: if Zhang Yunmi gave up her duties—under the current system, Elders truly could be this willful—then who would handle the current confidential work?
+The next problem was comprehensive urban governance. This matter had thousands of threads and was not easy to do. There was a heap of unresolved issues, but at least the police force had been pulled together, and grassroots governance was showing initial results. For Liu Xiang, the police system was an important network for the Senate to notify deep into the grassroots in Guangzhou. Almost all important civil affairs had to be executed through the police system and the baojia system managed by the police system. The police system actually also assumed the task of collecting basic public sentiment of the society. Therefore, the municipal administration of Guangzhou was basically "administrative policing." And the upcoming "rectification of the customs industry" was another major play in police work.
 
-Previously in Qiongshan, confidential work had been handled by Guo Linger. This was also standard practice among Elders—what could be more reliable than a pillow-companion? Even if this wasn't universally true, biologically speaking Elders still habitually entrusted sensitive matters to their life secretaries. Now Liu Xiang's life secretary had changed. Guo Xier was first of all not an experienced hand, and second, she was the type who "couldn't absorb learning"—when he gave her correspondence to read and summarize, she'd fall asleep before finishing a single page. Third, Guo Xier had a somewhat "loose tongue"—perhaps due to youth and inexperience, her speech easily revealed extensive secondary information. For instance, on the first night Guo Linger had sent her to bed with him, during his post-coital refractory period Liu Xiang had asked a casual question or two and she immediately let slip, revealing all Guo Linger's previous advice about "you're too young, childbirth isn't suitable for you" and similar "caring" admonitions. Another example: she was allergic to celery. When getting food in the cafeteria, most people would simply tell the server "no celery please," but she insisted on saying "I can't eat celery"—not realizing this revealed additional personal information. Worse, if the server followed up with "why," she would honestly answer "I'm allergic, I can't eat it"... Observing her from Lingao to Guangzhou, Liu Xiang had long since excluded Guo Xier from his working hours. Otherwise he wouldn't have endured pressure to accept little Zhang as secretary-general—there simply weren't more "trustworthy" candidates.
+As he was considering how to discuss specific work with Mu Min next, Zhang Yunmi suddenly asked: "Uncle Liu, is the thing you guys have been discussing recently about organizing the brothels in Guangzhou?"
 
-Guo Xier did turn out to have considerable interest in fashion design. The school's instructional paper patterns she had already mastered in cutting, and she could even sketch some of her own designs—though peculiar combinations like Zhongshan jacket tops with deep-robe skirts left Liu Xiang completely baffled. Still, this didn't stop Liu Xiang from supporting her hobby. While in Hong Kong, he had urgently written to Lingao to purchase an experimental pedal sewing machine, and also written to several Elders with fashion design talent and some Hanfu enthusiasts requesting pattern books, teaching materials, design drawings, and such. These materials had arrived within a week of entering Guangzhou. Now Guo Xier spent every day in Liu Xiang's official residence working on her fashion design and tailoring, happily absorbed in her creative endeavors.
+Liu Xiang was startled. Although this matter was not specifically avoided in front of Little Zhang, he never discussed it speificially in front of her. After all, this was somewhat awkward for a female.
 
-Liu Xiang's thoughts had somehow wandered to Guo Xier, then naturally jumped to those fresh, tentatively-awakened pleasures of youth... Ahem, he quickly pulled himself back. Liu Xiang shifted in his seat, moving closer to the desk, and with an earnest expression tapped his forehead. He mused aloud "Well then..." before pulling a manila document folder from the right-hand drawer and handing it to Zhang Yunmi.
+"Indeed it is."
 
-"There is actually one piece of work, but it needs to be submitted to the State Council first. Only after approval can we form a team. Take a look at this first." Liu Xiang thought for a moment, then added: "Also, according to organizational principles, I can currently only assign you to 'primarily oversee' a certain area of work. I can't transfer you to a specific department—if you insist on that, you'll have to go through the Organization Bureau's process."
+"I have a question. After we entered the city, there were thousands of things to do. There should be many things more urgent than rectifying brothels and prostitutes, right? Why start with this?"
 
-Zhang Yunmi raised an eyebrow in asymmetric disdain, uncertain whether she was mentally objecting to bureaucratic work styles. She reached out and accepted the folder Liu Xiang offered. The title on the folder read: "Proposal for Establishing Cadre Training Institutions in Guangzhou."
+Liu Xiang coughed and said: "This is actually an administrative question. Let me test you first, why did we choose this as the entry point?"
 
-"You know, our current cadre corps is generally stretched thin. Most current mid-level and above cadres are shouldering responsibilities that don't match their actual capabilities. Even with such underqualified cadres, there's still a shortage." Liu Xiang said. "This underqualification manifests both in professional competence and in political ideology. You've probably seen this batch's reports these past few days."
+"If you say it's for women's liberation, I don't think it's quite like that," Zhang Yunmi smiled slightly, "Is it to expand the city government's fiscal revenue?"
 
-Zhang Yunmi nodded in agreement.
+Liu Xiang nodded with a smile: "That is only one of the reasons."
 
-"And now we urgently need to recruit more grassroots civil servants. These all have to be recruited and examined locally. These people are different from the cadres we brought with us—our influence here is limited, the information we spread gets distorted. So those we recruit will inevitably be deeply steeped in old ideas and old concepts."
+"And the second?"
 
-When they were in Hainan, "major policies" had always been controlled by the Elders. Many specific affairs were even handled personally by Elders. Naturalized cadres, apart from following along due to gratitude, ambition, and other personal factors, didn't have much understanding of "why we do things this way" or "what's the purpose of doing it this way." Specifically, essentially all naturalized cadres lacked awareness of the fundamental question: "What kind of nation are we trying to build?"
-
-Agricultural cadres might know they were supposed to make their assigned area look like the propaganda posters. Factory naturalized cadres might know about production targets and planned directives, might understand some technology. But few of them could explain why they were given such production tasks, why such industrial arrangements were made—they lacked knowledge of the overall Australian Song project, of the entire industrialization effort. This wasn't obvious when Council of Elders forces were confined to Hainan, because Elders directed everything and naturalized cadres only needed to follow the baton. Questions they didn't understand could be answered by readily available Elders—nearly every industry had Elders on the front lines guiding and participating in the work.
-
-But in Guangdong, the extreme shortage of cadres not only required everyone to be multi-skilled. To ensure that Hainan Island—the world's only industrialized zone—could continue stable output and technological development, the vast majority of Elders capable of guiding industrialization and nation-building had to remain on Hainan Island. The newly liberated Guangnan East Circuit, despite having far greater population and territory than Hainan Island, could only muster thirty-odd Elders in scattered groups. Including those working in Hong Kong, they still numbered fewer than forty or fifty.
-
-(End of Chapter)
+"We came to Guangzhou to do administrative work. In fact, we are doing the work of revolution." Seeing Zhang Yunmi starting to curl her lips, revealing a kind of "here we go again" complaining expression, Liu Xiang felt that the political education at the Academy had not reached the roots.

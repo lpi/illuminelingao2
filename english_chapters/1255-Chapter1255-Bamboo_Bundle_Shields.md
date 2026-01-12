@@ -1,122 +1,122 @@
 # Chapter 1255 - Bamboo Bundle Shields
 
-The First Expeditionary Force assembled and formed up on the beach. The three Marine companies, though thin in numbers, wielded the most powerful firepower of this timeline: Hall rifles, "typewriters," and the Trial Year 32-type battalion guns using friction recoil mechanisms—only three guns, to be sure, but they far outranged the 12-pounder mountain howitzers previously issued. They possessed a firing rate and range that no army of this timeline could endure. According to the staff officers' estimates, most contemporary armies would rout after just a few rounds.
+The First Expeditionary Force completed assembly on the beach. Three Marine companies were numerically thin, but the firepower they possessed was the strongest existence in this spacetime: Hall rifles, typewriters, and Trial Year 32 Battalion Guns with friction recoil absorption devices—although only a mere three guns, their range far exceeded the 12-pound mountain howitzers commonly equipped in the past. Possessing ultra-long range and rate of fire unbearable for all armies in this spacetime. According to staff estimates, most armies in this spacetime couldn't withstand a few shots before fleeing in panic.
 
-Shi Zhiqi was in high spirits. The term "First Expeditionary Force" sounded far more impressive than "First Marine Battalion"—and far more "American." The First Expeditionary Force's uniforms had just been updated, completely abandoning the old Type 65 style of the Bobojun. They now adopted a bootleg version of the US Marine Corps combat utility uniform. Of course, the Lingao version of the MCCUU had neither camouflage nor any special fabrics—just the cotton or cotton-linen blend commonly seen in Lingao uniforms, dyed a most rustic deep blue with indigo. The caps were the signature octagonal caps.
+Shi Zhiqi was high-spirited. The term First Expeditionary Force sounded much grander than Marine 1st Battalion—and much more "American." The Marine First Expeditionary Force's uniforms were recently changed, completely breaking away from the Fubo Army's past Type 65 style, adopting a knockoff version of the USMC combat utility uniform style. Of course, the Lingao version MCCUU had no camouflage nor special fabrics, just the common cotton or cotton-linen blend of Lingao uniforms. The color was the most rustic dark blue dyed with indigo. The cap was also the iconic octagonal cap.
 
-Lingao couldn't equip the Marines with modern combat boots, so they still used integrated canvas leggings with standard Army load-bearing equipment.
+Lingao couldn't equip Marines with modern combat boots, so Marines still adopted integrated canvas gaiters, equipped with Army general-purpose webbing.
 
-Shi Zhiqi hopped off the small boat. With a pipe clenched in his teeth, a ceremonial sword at his hip, and a leather riding crop in hand, he cut an imposing figure. He swept his gaze over the Marines, already formed up—every man sharp-eyed and ramrod straight, quite in the Imperial Marine style. Feeling quite pleased with himself, he flourished the riding crop, puffed out a few smoke rings, and bellowed:
+Shi Zhiqi jumped down from the small boat. Clenching a pipe in his teeth, waist carrying a saber, hand holding a leather riding crop, looking majestic. Glancing at the assembled Marine detachment, each spirited, backs straight, quite having the style of Imperial Marines, he couldn't help but be full of ambition. Waving the riding crop, blowing a few smoke rings, he shouted loudly:
 
-"Lads, f*** 'em all!"
+"Lads, fuck'em!"
 
-"Sir, yes sir! F*** 'em all! For the Senate and the People!" the Marines roared in unison.
+"Yes! Comrade Lieutenant Colonel." All Marines shouted loudly. "Fuck'em! Serve the Senate and the People!"
 
-He pointed his crop downward: "All units, advance!"
+He waved his riding crop downward: "All units move out!"
 
-Three companies marched in three-column formation, the fire support section with its guns and typewriters following in trace. According to plan, the First Expeditionary Force was supposed to wait for the heavy artillery to land before advancing. But the artillery transport ships hadn't arrived in time. Speed was paramount—to prevent Zheng Zhilong and his treasures from escaping, and to forestall the enemy from burning the city in desperation, Shi Zhiqi decided to advance immediately on the garrison, aiming to rout the enemy and take the garrison in one blow.
+Three companies advanced in three columns, the fire support detachment composed of cannons and typewriters following behind. According to plan, the First Expeditionary Force was to wait for heavy artillery to land before advancing. But the fleet transporting artillery failed to arrive in time. Speed is precious in war. To prevent Zheng Zhilong and his treasure from running away, and also preventing the enemy from setting fire to the city in despair, Shi Zhiqi decided to advance on the walled city immediately, striving to rout the enemy in one go and capture the walled city.
 
-Zhongzuo Garrison's walls were less than six meters high, constructed in the traditional Chinese manner with brick-and-stone facing. Because it was only a garrison fortress, the walls weren't particularly thick—not only weak against artillery, but also lacking casemates and other protective works along the walls. Shi Zhiqi figured he could take it even without artillery support—besides, he still had three battalion guns and a platoon of assault engineers at his disposal. They could just blast open the gates with demolition charges. Shi Zhiqi certainly didn't believe Zheng Zhilong's pirate troops would want to fight him hand-to-hand inside the city—though the Japanese Guard, when their fighting spirit surged, might be willing to throw away their lives on that.
+Zhongzuosuo City's height was less than 6 meters, using traditional Chinese brick-encased stone walls. Being only a Wei-Suo city, walls weren't thick. Not only was anti-artillery capability weak, but defensive works like towers on walls were also few. Shi Zhiqi felt he could take it even without relying on artillery—besides, he still had three battalion guns and a platoon of assault engineers available. Just deliver explosives directly to blow open the gate. Shi Zhiqi didn't believe Zheng Zhilong's pirate troops were willing to bayonet fight him in the city—probably only the Japanese Guard with severe *chuunibyou* flare-ups would be willing to send themselves to death.
 
-But Xu Ke, who was responsible for collecting and analyzing intelligence on the Zheng consortium, thought this unlikely. The Japanese Guards and Black Guards were essentially Zheng Zhilong's "foreign household retainers"—death-sworn warriors fattened on silver and Zheng Zhilong's last reserve. Once the garrison fell, the situation would be irrecoverable. Zheng Zhilong still needed these guards to cover his escape—why would he sacrifice them in street fighting for a mutual destruction?
+However, Xu Ke, responsible for collecting and analyzing Zheng group intelligence, thought this possibility unlikely. The Japanese Guard and Black Guard were bluntly Zheng Zhilong's "foreign house guards," death warriors fed full with silver, Zheng Zhilong's last capital. Once the walled city broke, the general trend was irreversible; Zheng Zhilong still had to rely on guards to cover his escape. How could he bear to leave them in the city for street fighting with Marines, burning jade and stone together?
 
-"Marine Corps Songbook, page two, 'Song of the Marine Warrior'! All together!" the sergeants commanded loudly.
+"Marine Songbook Page 2, 'Song of Marine Warriors'! Sing in unison!" Sergeants ordered loudly.
 
-The Marines' iron-heeled canvas and leather-soled combat boots pounded Xiamen's sand, raising dust. The soldiers sang in unison:
+The Marines' iron-hobnailed canvas leather-soled combat boots trampled Xiamen's beach, kicking up dust. Soldiers sang loudly in unison:
 
-*I am the Marine Corps, I am a killing weapon,*
-*In the flash of crimson light I'll make your blood spray,*
-*Make no mistake, this is my turf.*
+I am the Marine Corps, I am a killing weapon,
+Between flashes of red light letting your blood splash,
+Don't doubt, this is my turf.
 
-*When you charge at me I'll smile,*
+When you rush in I am smiling,
 
-*For victory is mine, I am a first-rate killer, bringing death.*
+Because victory belongs to me, I am a first-class killer, bringing death.
 
-*The tempering flames are already lit; stand shoulder to shoulder with me, you'll never be alone,*
+Fire of tempering long ignited, shoulder to shoulder with me, you will never be alone,
 
-*First to charge, last to leave—I know the warrior who goes never returns.*
+First to charge, last to leave, warriors go with no return I know.
 
-*Swallowing fear when the enemy comes into sight,*
+Devouring fear, when enemies enter sight,
 
-*Aim with your hands, pull the trigger with your will, kill with a cold heart.*
+Aim with hand, pull trigger with will, kill with cold heart.
 
-*I am the phantom advancing,*
+I am a ghost advancing,
 
-*I am the warrior singing.*
+I am a warrior singing.
 
-*War-loving, battle-hungry, turning enemy lands to scorched earth,*
-*Wading through seas of blood, sworn to kill every last one.*
+Loving war and fighting, turning enemy country to scorched earth,
+Wading through seas of blood, swearing to exterminate all.
 
-*...*
+...
 
-The lyrics didn't always fit the rhythm, but several hundred robust men singing at full volume, accompanied by their heavy footfalls, resounded through the air.
+Lyrics sometimes weren't in rhythm, but hundreds of sturdy men opening throats to sing in unison, accompanied by their heavy footsteps, vibrated in the air.
 
-Shi Zhiqi strode proudly at the head of Second Company. The First Expeditionary Force's regimental colors fluttered behind him, with his personal element's banner beside it—not only bearing his family crest but also embroidered with the medals he had earned and the locations where he had commanded the Marines in victorious battles.
+Shi Zhiqi strode with head held high at the head of the 2nd Company. The First Expeditionary Force flag fluttered behind him. His personal Senator flag banner paraded alongside, embroidered not only with his family crest but also medals he was awarded and locations where he commanded Marines to victory.
 
-"What are those barbarians singing?" Zheng Zhilong could faintly hear strains of song carried by the wind and asked.
+"What are these Hair Rebels singing?" Zheng Zhilong heard the singing vaguely carried by wind from afar and asked.
 
-"Reporting to the General: can't make it out clearly. Probably some kind of war song. Quite vulgar."
+"Reporting to General, can't hear clearly. Nothing more than some battle songs. Very vulgar."
 
-Zheng Zhilong raised his telescope and scanned the direction the song came from. Three columns of blue-clad soldiers were advancing across the sand toward them, their flags few, their ranks precise, their step uniform—clearly an elite force.
+Zheng Zhilong picked up binoculars, looking again toward where the singing came from. Three columns of blue-clad soldiers were advancing on the beach toward here. Flags were few, soldiers' ranks strictly orderly, steps uniform, obviously an elite army.
 
-But by the size of the formation, there were at most five hundred men. No dust clouds from large troop movements appeared to their rear, and no herds of cattle or horses followed—so they clearly weren't dragging heavy artillery. Zheng Zhilong felt somewhat reassured: if only five hundred men were coming, his forces could still give battle.
+But looking at the scale of the troops, at most five hundred men. No dust clouds of large troop movements were seen behind, nor large herds of oxen and horses in the enemy rear train, obviously not towing heavy artillery. Zheng Zhilong felt slightly relieved: If only five hundred came, his forces could still fight them.
 
-How many troops could the barbarians transport from so far away? As long as he devoured this force, reinforcements would just be feeding the flames. Crush them as they came. Zheng Zhilong's confidence surged. He laughed: "The barbarians may have sturdy ships and fierce cannons, but they're ignorant of the art of war. Daring to attack with so few men—aren't they just throwing their lives away?"
+Hair Rebels came from afar; how many troops could they transport? Just eat this group first; follow-up troops would just be adding oil. Eat one group as they come. Zheng Zhilong's confidence surged. He laughed: "It's true Hair Rebel ships are sturdy and guns sharp, pity they don't know art of war. Daring to attack with so few men, isn't it just sending themselves to death for nothing?"
 
-The commanders also thought the barbarians were being overconfident and felt somewhat relieved. The younger, more hot-blooded ones, though initially stunned by the barbarian gunfire, now recovered their wits. Seeing that the enemy's land forces were few and apparently without artillery, they itched to give the barbarians a good thrashing.
+Generals also felt these Hair Rebels were too arrogant, feeling slightly relieved. Younger ones with hotter blood, initially stunned by Hair Rebel cannon fire, now recovered wits feeling opponent land forces were few and carried no cannons, rubbed palms one by one, preparing to give Hair Rebels a good look.
 
-"General, your humble servant requests permission to serve as vanguard! Let me blunt their edge!" A man stepped forward from the crowd—it was Lin Cha. Lin Cha was a senior commander under Zheng Zhilong, brave and skilled in battle. Zheng Zhilong had once petitioned the court for merit on his behalf.
+"General, this general is willing to be vanguard! Dampen their sharpness!" One person flashed out from the generals; it was Lin Cha. Lin Cha was a great general under Zheng Zhilong, brave and good at fighting. Zheng Zhilong once requested merit for him from the Imperial Court.
 
-"Your force is too small, and they're infantry. Stand down—be patient!" Zheng Zhilong shook his head. The enemy was an all-firearms unit. Though others might not understand, Zheng Zhilong maintained two all-firearms guard units himself and knew exactly what firearms could do. Lin Cha had only three or four hundred men—charge in, and they'd be cut down before they could swing a sword or spear.
+"Your men are too few, and infantry. Retreat for now, don't be impatient!" Zheng Zhilong shook his head. The opponent was an all-firearm unit. Others might not be clear, but he kept two all-firearm guards himself, very clear on firearm output lethality. Lin Cha had only three or four hundred men; they would be beaten to slag by Hair Rebels before having time to swing swords and spears.
 
-"General, your servant has a method that might work against the barbarians," Lin Cha persisted.
+"General, this general has a tactic, can fight Hair Rebels." Lin Cha didn't give up, continuing.
 
 "Speak."
 
-"Earlier I spoke with General Tō about the power of firearms—unmatched. Even the bravest general in heavy armor cannot survive a musket ball. When fighting musketeers, the only choice is to charge forward, risking flesh and blood. But General Tō said that in Japan, there's an implement that can counter matchlocks."
+"I previously talked with General Tong, discussing fierceness of firearms, unrivaled. Even brave generals in heavy armor can hardly escape death once hit by iron guns. Fighting firearm hands, only by brave advance, fighting with flesh and blood bodies. General Tong however said in Japan, there is an implement, can overcome iron guns."
 
-General Tō was Tō Tarō—he refused to reveal his family name, so the Chinese simply used Tō.
+General Tong was Tōtarō—he wasn't willing to say his surname (myouji); Chinese naturally took Tong (To) as surname.
 
-"Continue." Zheng Zhilong was interested.
+"Go on." Zheng Zhilong became interested.
 
-"Yes! I heard from General Tō that this implement is called a bamboo bundle shield. Multiple short green bamboo poles are bound into a bundle. Musket balls cannot penetrate..."
+"Yes!" Lin Cha said hurriedly. "Heard General Tong say, this object is called Bamboo Bundle Shield. Bundling multiple short green bamboos into a bundle, iron gun bullets cannot penetrate..."
 
-Zheng Zhilong thought a moment, then shook his head. "This bamboo bundle would be large and heavy. One hand can't hold it—how then to wield a weapon?"
+Zheng Zhilong thought, then shook his head: "This bamboo bundled together, big and heavy, cannot be held with one hand. How to hold weapons to fight then?"
 
-"We split into three teams. The first carries the bamboo bundle shields in front to block bullets; the second, behind, uses all bows and arrows; the third uses saber and rattan shield troops. First, a volley of arrows, then the saber-and-shield men rush forward, cutting through with their heavy sabers and rattan shields!" Lin Cha had come prepared. He had already studied this problem and trained his men accordingly.
+"Can divide into three teams. One team holding Bamboo Bundle Shields in front, blocking bullets. One team behind, all using bows and arrows. Last team, using shield and sword hands. First release volley of arrows, then shield and sword hands leap forward while trampling bodies, breaking enemy with broadsword and rattan shield!" Lin Cha came prepared; he had studied this problem long ago and trained subordinates on site.
 
-Zheng Zhilong turned to Tō Tarō: "Can this really work?"
+Zheng Zhilong turned his gaze to Tōtarō: "Is it really feasible?"
 
-"Reporting, sir: the bamboo bundle shield does work. Matchlock balls cannot penetrate it." Tō Tarō explained that in Japan, soldiers in siege assaults often carried such bamboo bundle shields to ward off musket balls.
+"Reporting to Lord, Bamboo Bundle Shield is indeed feasible. Iron guns cannot shoot through." Tōtarō said in Japan, whenever attacking castles, many vanguard soldiers carried this kind of Bamboo Bundle Shield to resist iron gun bullets.
 
-Zheng Zhilong was tempted: "But where do we find bamboo on such short notice, and training teams in formation coordination isn't something that can be done overnight."
+Zheng Zhilong was moved: "Only in haste, where to find these bamboos? Organizing teams to coordinate drill is also not a matter of one morning or evening."
 
-"Reporting, General: your humble servant has already prepared a thousand bamboo bundle shields. My men have also trained in the formations. I only ask the General's permission to lead the vanguard!"
+"Reporting to General, this humble officer has already prepared one thousand Bamboo Bundle Shields. Subordinate soldiers have also practiced the formation. Only request General let this general fight!"
 
-"Excellent!" Zheng Zhilong nodded. "You've thought ahead! Very well, you shall lead the vanguard!" He bellowed: "Bring wine! I'll drink a toast to send General Lin off!"
+"Good!" Zheng Zhilong nodded. "Rare that you have the heart! Since so, you will lead the vanguard!" Saying this he shouted: "Bring wine! I drink to send General Lin off!"
 
-After the toast, Zheng Zhilong ordered five dollars' bonus distributed to each of Lin Cha's men as encouragement for the vanguard. Lin Cha went to organize his troops—only about four hundred. Fearing the force was too weak, Zheng Zhilong ordered another subordinate commander named Lin Sheng to take his three hundred men in support.
+After drinking send-off wine, Zheng Zhilong ordered men to reward Lin Cha's subordinates five silver dollars each as encouragement for the vanguard. Lin Cha took men to reorganize troops; his subordinates were only four hundred men. Zheng Zhilong, fearing insufficient strength, ordered a subordinate general named Lin Sheng to take his own three hundred men to coordinate in battle.
 
-Shi Zhiqi was leading his forces forward when the scouts came back to report that a force of seven or eight hundred had come out to engage them.
+Shi Zhiqi was leading troops forward. Scouts ahead returned to report, saying a team of seven or eight hundred men came out to meet them.
 
-"First Company, Second Company, deploy into double-rank lines! Third Company, form reserve!"
+"1st Company, 2nd Company deploy into double column line! 3rd Company as reserve!"
 
-Marine companies no longer included drummers and fifers—only buglers. At Shi Zhiqi's command, the bugler sounded the call. First and Second Companies deployed from march column into double-rank battle lines: First on the left, Second on the right.
+Marine companies no longer established drummers and fifers, only buglers. Following Shi Zhiqi's command, the bugler's bugle sounded. 1st and 2nd Companies deployed while marching, spreading into a double column line. 1st Company on left, 2nd Company on right.
 
 "Halt! Dress ranks!"
 
-Shi Zhiqi, with his command section, stood at the junction of the two companies. Behind him were the guns already unlimbering and Third Company forming the reserve.
+Shi Zhiqi led the direct-controlled squad at the junction of the two companies. Behind him were cannons already beginning to unlimber and the 3rd Company acting as reserve.
 
-With the Marines' weapons, they could easily employ skirmish line tactics. But the reequipping was too recent, and corresponding tactical training hadn't caught up, so they continued using linear volley-fire tactics. Shi Zhiqi figured that against the enemies of this timeline, linear tactics worked well enough—it maximized firepower.
+In terms of Marine weapons, they could totally adopt skirmish line combat mode. But changeover time was short; corresponding tactical training hadn't kept up. Thus they continued using line infantry tactics. Shi Zhiqi felt against enemies of this spacetime, line infantry tactics weren't bad—could fully unleash firepower.
 
-Shi Zhiqi raised his telescope and looked. He couldn't help feeling puzzled—those seven or eight hundred men in the front rank were each holding what looked like a massive bundle of firewood? Thinking it over, he understood: it was meant to stop bullets.
+Shi Zhiqi raised binoculars to look, feeling strange unaware. These seven or eight hundred men, every one in the front row held up a gigantic firewood bundle? On second thought he understood; this was used to block bullets.
 
-"What the hell—this is just ridiculous." Shi Zhiqi muttered as he lowered the telescope. He drew his ceremonial sword:
+"Damn, this is too funny." Shi Zhiqi muttered, putting down binoculars. Drew command saber:
 
-"All hands, prepare for action!"
+"All units prepare for battle!"
 
-The bugle sounded its urgent call.
+Bugles blew rapidly.
 
-*Note: Bamboo bundle shields were indeed used in the Warring States period. Reportedly, they were invented by Takeda Shingen.*
+Note: Bamboo Bundle Shields were indeed used in the Warring States period, said to be invented by Takeda Shingen.
 
 (End of Chapter)
