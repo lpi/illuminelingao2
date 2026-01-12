@@ -4,7 +4,7 @@
 
 "You people—one more ruthless than the next when talking, but someone cries and you can't handle it?" Wu De said coldly to Yuan Qiushi. "Whoever cries gets beaten hard. Beat them until they stop."
 
-Young Yuan was indeed young—merciless. The stick cracked down. Xiong Buyou bellowed: "No crying! Stand up straight!"
+Yuan Qiushi was indeed young—merciless. The stick cracked down. Xiong Buyou bellowed: "No crying! Stand up straight!"
 
 Wu De knew these five couldn't even make it to tenant farmer or long-term laborer status—they were the lowest rung of old China's rural hierarchy: day laborers. A tenant at least had a shelter and some land to work, even if not their own; a long-term laborer at least had a shed and enough coarse grain. These people truly had nothing—not a tile above nor a furrow below, never knowing where their next meal would come from. A flicker of pity rose in his heart. But he quickly suppressed it. Pity was a luxury the transmigrators couldn't afford. They'd arrived in a timespace not their own; everything had to be paved with others' blood and sweat. What did enslaving a few people matter now?
 
@@ -22,23 +22,23 @@ Wu De glanced at him with displeasure, snorting: "Then we kill them."
 
 Hippo's neck suddenly felt cold. He knew well how human brutality could escalate without constraints.
 
-"Now roll call. When your name is called, answer 'Here!' That's the first rule you must remember. One missed call: 40 lashes of rattan. Two: 80 lashes. Three: 200."
+"Now roll call. When your name is called, answer 'Here!' That's the first rule you must remember. One missed call: forty lashes of rattan. Two: eighty lashes. Three: two hundred."
 
 "Wang Tian!" Wu De called the first name on the list.
 
 "Huh?" came the response from a short man—maybe 150 centimeters—probably early twenties.
 
-"Say 'Here!'" Young Yuan, perfectly coordinated, brought the lash down.
+"Say 'Here!'" Yuan Qiushi, perfectly coordinated, brought the lash down.
 
 Wang Tian, corrected by the rod, quickly fixed his mistake.
 
 "Lin Xing!"
 
-The responder's voice was loud, but the pronunciation still unintelligible. This one looked taller, stronger. Though his head was lowered, Wu De still saw a trace of defiance.
+The responder's voice was loud, but the pronunciation was still unintelligible. This one looked taller, stronger. Though his head was lowered, Wu De still saw a trace of defiance.
 
 "I can't understand." Wu De was determined to break that last bit of defiance. He waved—another beating—until the prisoner more or less correctly shouted "Here!"
 
-Example sets everything—the next three managed reasonably correct "Here!" calls. Once basically acceptable, Wu De led them to work. He served as both guard and supervisor—two birds, one stone. The site didn't actually need these few workers.
+Examples set everything—the next three managed reasonably correct "Here!" calls. Once basically acceptable, Wu De led them to work. He served as both guard and supervisor—two birds, one stone. The site didn't actually need these few workers.
 
 He deliberately positioned them near the machinery. At such close range, watching construction equipment work was awe-inspiring even for modern people—let alone peasants who'd never left the county. Once they discovered the transmigrators possessed not just their lowly selves but irresistible overwhelming power, they would become loyal—eventually even proud of the strength of the organization enslaving them.
 
@@ -50,7 +50,7 @@ The prisoners knelt, desperately pleading. Though they spoke incomprehensible gi
 
 Excavators, bulldozers, small dump trucks racing back and forth—mechanized construction's impact was overwhelming. By comparison, shoveling soil by hand, carrying it bucket by bucket—they were hardly better than ants.
 
-With Wu De this fearsome presence, plus Young Yuan as his vicious enforcer, no one dared slack. The prisoners worked zealously. After half a day together, they realized this Overseer Wu, despite his terrifying expression, was far better than the youth who enjoyed beating them.
+With Wu De this fearsome presence, plus Yuan Qiushi as his vicious enforcer, no one dared slack. The prisoners worked zealously. After half a day together, they realized this Overseer Wu, despite his terrifying expression, was far better than the youth who enjoyed beating them.
 
 ---
 
@@ -58,7 +58,7 @@ At evening quitting time, Wu De led them to a separate shelter—within the watc
 
 "What are you doing?"
 
-"Treating scabies infection. This opens the infected areas for medication." Hippo explained, forcefully rubbing ointment onto the skin with gauze.
+"Treating scabies infection. This opens the infected areas for medication," Hippo explained, forcefully rubbing ointment onto the skin with gauze.
 
 "Sulfur ointment—I'd forgotten about this until Director Wen reminded me." Hippo rubbed vigorously. "In the 21st century, scabies infection is rare."
 
@@ -96,7 +96,7 @@ Wu Nanhai had originally allocated portions according to transmigrator standards
 
 "That's you. Add water. Yes, more water—make it seafood porridge."
 
-When Young Yuan brought the porridge in a wooden bucket, the rice had become a bucketful of thin gruel. Yet even so, when the lid came off, the prisoners stared: snow-white rice porridge, with so much fish and shellfish floating in it, fragrant... Though Lingao was coastal, common folk rarely had fresh fish. At most, during the three busy farming seasons, a landlord might steam a morsel of stinking salted fish. If not thoroughly terrified by Wu De already, they'd have pounced.
+When Yuan Qiushi brought the porridge in a wooden bucket, the rice had become a bucketful of thin gruel. Yet even so, when the lid came off, the prisoners stared: snow-white rice porridge, with so much fish and shellfish floating in it, fragrant... Though Lingao was coastal, common folk rarely had fresh fish. At most, during the three busy farming seasons, a landlord might steam a morsel of stinking salted fish. If they hadn't been thoroughly terrified by Wu De already, they'd have pounced.
 
 They were issued rough wooden bowls and chopsticks from who-knows-where. Meal distribution was now the newly appointed captain's job.
 

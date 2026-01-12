@@ -1,18 +1,18 @@
 # Chapter 183: The Battle of Bopu (Part 3)
 
-*Countess of Scarborough* hugged Lingao Point, drifting slowly into the bay on the tide while continuously firing. Those white light beams kept illuminating the ship. The Easterners ashore had obviously made her their primary target. Shells flew constantly. Fortunately, the enemy lacked heavy artillery. The Spanish galleon's solid oak hull withstood most hits, though some shells penetrated. But casualties mounted. The deck was strewn with dismembered bodies. Blood ran in the deck scuppers. Aragonés was reaching his limit. At this rate, without recruiting Chinese sailors locally, he'd have to limp back to Manila.
+The *Countess of Scarborough* hugged Lingao Point, drifting slowly into the bay on the tide while continuously firing. The white searchlight beams kept the ship illuminated. The Easterners ashore had obviously made her their primary target. Shells flew constantly. Fortunately, the enemy lacked heavy artillery. The Spanish galleon's solid oak hull withstood most hits, though some shells penetrated. But casualties mounted. The deck was strewn with dismembered bodies, and blood ran in the deck scuppers. Aragonés was reaching his limit. At this rate, without recruiting Chinese sailors locally, he'd have to limp back to Manila.
 
-"This Devil's light beam!" Aragonés cursed. "Haven't they succeeded yet?" he asked Li Siya again. Even her usually calm face showed strain. Besides Spanish firepower, Liu Xiang had committed serious resources. All landing parties were veteran pirates—many desperados and deserters from government navy. By her assessment, *Countess of Scarborough*'s firepower was unmatched on China's coast. While maybe not capable of destroying Liu Xiang as boasted, suppressing shore fire should be easy. Combined with elite pirates, capturing ships should have been certain. The meticulously planned operation wasn't going any better than Zhu Cailao's disaster.
+"This Devil's light!" Aragonés cursed. "Haven't they succeeded yet?" he asked Li Siya again. Even her usually calm face showed strain. Besides the Spanish firepower, Liu Xiang had committed significant resources. All landing parties were veteran pirates—many were desperados and deserters from the government navy. By her assessment, the *Countess of Scarborough*'s firepower was unmatched on China's coast. While maybe not capable of destroying Liu Xiang as boasted, suppressing shore fire should have been easy. Combined with elite pirates, capturing ships should have been a certainty. The meticulously planned operation wasn't going any better than Zhu Cailao's disaster.
 
-A distinctive shrieking whistle cut through the air. Both people started. A pointed shell punched clean through the broadside. Splinters, blood, and body parts flew from the breach. Screams echoed.
+A distinctive shrieking whistle cut through the air. Both of them started. A pointed shell punched clean through the broadside. Splinters, blood, and body parts flew from the breach. Screams echoed.
 
 "Fire!"
 
-At Bai Yu's command, another 70mm pointed shell screamed from the muzzle. The two converted trawlers' four 70mm rifled guns targeted *Countess of Scarborough* in rotating fire. Rifled pointed armor-piercing shells had many times the penetration of round shot. No oak planking could withstand them.
+At Bai Yu's command, another 70mm pointed shell screamed from the muzzle. The two converted trawlers' four 70mm rifled guns targeted the *Countess of Scarborough* with rotating fire. Rifled pointed armor-piercing shells had many times the penetration of round shot. No oak planking could withstand them.
 
-*Countess of Scarborough* finally broke. These suddenly appearing shells had destroyed nearly one entire broadside. Nine of sixteen guns were completely disabled. Below-deck gunners had lost over half. 
+The *Countess of Scarborough* finally broke. These suddenly appearing shells had destroyed nearly one entire broadside. Nine of the sixteen guns were completely disabled. Below-deck gunners had lost over half their number.
 
-"Fire signal rocket. Retreat." Aragonés finally ordered withdrawal. Though the tide hadn't turned yet and exiting the bay wouldn't be easy, if he didn't retreat now, he might never leave. The alliance with Liu Xiang could go to hell. Losing the ship meant losing everything he'd staked. What awaited him was the Manila Governor's fury and creditors' prison.
+"Fire the signal rocket. Retreat." Aragonés finally ordered the withdrawal. Though the tide hadn't turned yet and exiting the bay wouldn't be easy, if he didn't retreat now, he might never leave. The alliance with Liu Xiang could go to hell. Losing the ship meant losing everything he'd staked. What awaited him was the Manila Governor's fury and creditors' prison.
 
 "Captain, some of our rowboats haven't returned—"
 

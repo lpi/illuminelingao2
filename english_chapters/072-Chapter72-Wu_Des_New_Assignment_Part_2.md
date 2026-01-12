@@ -2,9 +2,9 @@
 
 "I think you'd better continue with bioengineering—that would help the crossing enterprise more."
 
-"If you don't like my smoked fish, just say so." Hu Yicheng looked crestfallen. "Fine—I just finished dissecting a rabbit anyway..."
+"If you don't like my smoked fish, just say so." Hu Yicheng looked crestfallen. "Fine. I just finished dissecting a rabbit anyway..."
 
-"Rabbit?!" Wu De *(Note: Per the character's request, "Zhao De" is now "Wu De." All previous "Zhao De" references mean "Wu De."—will be corrected later)* started. This was good stuff.
+"Rabbit?!" Wu De started. This was good stuff.
 
 "Caught yesterday." Hu Yicheng smiled like a fox. "Planning to roast it for lunch."
 
@@ -18,7 +18,7 @@ Sure enough, Hu Yicheng immediately revealed his tail: "Yesterday, um, I saw you
 
 "Sure, but bring your own rice." Wu De agreed readily—seafood rice was better with more portions.
 
-"That would be great—I can also learn." He pointed toward the back kitchen. "Group Leader Wu just got back. Caught over ten baskets of fish this morning—trying to figure out how to process them."
+"That would be great—I can also learn." He pointed toward the back kitchen. "Group Leader Wu Nanhai just got back. Caught over ten baskets of fish this morning—trying to figure out how to process them."
 
 "Process? I should check that out—don't want it ruined again." This timespace really was resource-rich.
 
@@ -34,7 +34,7 @@ Wu Nanhai looked up: "Ah De? You're a fisherman—why haven't I seen you on the 
 
 "Nanhai, aren't you in the Agriculture Group? Shouldn't you be doing vegetable greenhouses, raising chickens and pigs—not playing cook?"
 
-"Xiao Zishan's idea. That kid wanted to dump the cafeteria headache, so he claimed agriculture equals food issues, making me Cafeteria Office Director as 'natural.'" Wu Nanhai said helplessly. "Actually, I want to care for the rabbits and chickens. The chickens seem not to have adjusted—or got spooked—haven't laid eggs since coming ashore. No idea when they'll recover. And the pigs aren't well either—won't eat—worrying..." His tender concern for the pigs, cattle, sheep, chickens, and ducks made Wu De shudder.
+"Xiao Zishan's idea. That kid wanted to dump the cafeteria headache, so he claimed agriculture equals food issues, making me Cafeteria Office Director as 'natural,'" Wu Nanhai said helplessly. "Actually, I want to care for the rabbits and chickens. The chickens seem not to have adjusted—or got spooked—haven't laid eggs since coming ashore. No idea when they'll recover. And the pigs aren't well either—won't eat—worrying..." His tender concern for the pigs, cattle, sheep, chickens, and ducks made Wu De shudder.
 
 "Cafeteria Office has quite a few ladies. Lucky you..."
 
@@ -52,7 +52,7 @@ The newcomer's face froze. Tears welled in his eyes. He turned and left abruptly
 
 Wu Nanhai said: "That's Nikecha, back from Australia. Brought two racehorses and some carrier pigeons."
 
-The two retired racehorses "A-lānchí" and "Blue Lightning" had both been registered with an Australian racing association, though getting old. Nikecha had hoped to use his expertise to form a cavalry someday. But after arriving, harsh reality crushed his dreams. Horses are sensitive animals; the commotion after landing spooked "Blue Lightning." Despite the restraining frames, it stubbornly kept smashing its head against the wooden beam. Only after personnel and supplies were unloaded were horses and livestock hoisted ashore. The camp had no clean stables or horse hay. The nascent base could barely pipe in drinking water for humans; the daily supply of clean warm water horses needed couldn't be provided.
+The two retired racehorses "Alanchi" and "Blue Lightning" had both been registered with an Australian racing association, though getting old. Nikecha had hoped to use his expertise to form a cavalry someday. But after arriving, harsh reality crushed his dreams. Horses are sensitive animals; the commotion after landing spooked "Blue Lightning." Despite the restraining frames, it stubbornly kept smashing its head against the wooden beam. Only after personnel and supplies were unloaded were horses and livestock hoisted ashore. The camp had no clean stables or horse hay. The nascent base could barely pipe in drinking water for humans; the daily supply of clean warm water horses needed couldn't be provided.
 
 "He personally went to the Committee, repeatedly explaining how precious the horses were, and demanded 'at least five human portions' of beans and wheat daily."
 
@@ -70,11 +70,11 @@ As if to prove his words, barking erupted from behind a bamboo fence—rising an
 
 "What about the horse?" Wu De couldn't forget the racehorse.
 
-"Embarrassingly, he personally delivered the horse and pigeons, telling me to take care of these 'speechless friends.'" Wu Nanhai grabbed a small fish from a basket and tossed it to the cat. "I never learned horse husbandry—don't know how to do it. The horse refused to eat—"
+"Embarrassingly, he personally delivered the horse and pigeons, telling me to take care of these 'voiceless friends.'" Wu Nanhai grabbed a small fish from a basket and tossed it to the cat. "I never learned horse husbandry—don't know how to do it. The horse refused to eat—"
 
 Hu Yicheng nearby nodded: "That horse was really hard to please. Wouldn't eat the grass we cut. Just fasted."
 
-"Right, seemed agitated too." Wu Nanhai said. Nikecha had tried everything but couldn't calm the horse. Days without eating, plus heat, plus flies and mosquitoes—it collapsed yesterday.
+"Right, seemed agitated too," Wu Nanhai said. Nikecha had tried everything but couldn't calm the horse. Days without eating, plus heat, plus flies and mosquitoes—it collapsed yesterday.
 
 "Last night I called Yang Baogui—he's a vet. He said it was hopeless. Then it died. I didn't dare tell Old Ni..."
 
@@ -82,7 +82,7 @@ Hu Yicheng nearby nodded: "That horse was really hard to please. Wouldn't eat th
 
 "Actually, nothing to pity," Hu Yicheng said dismissively. "Both were geldings. What use are eighteen- or nineteen-year-old geldings?"
 
-"I agree—nothing to lose," Wu Nanhai was also unconcerned. "Racehorses can't do farm work—can't pull carts or plow fields. Draft horses are more useful."
+"I agree—nothing to lose." Wu Nanhai was also unconcerned. "Racehorses can't do farm work—can't pull carts or plow fields. Draft horses are more useful."
 
 "Anyway, the fish?"
 

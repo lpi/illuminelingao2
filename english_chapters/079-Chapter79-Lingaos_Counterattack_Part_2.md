@@ -4,13 +4,13 @@ The county's counterattack plan came primarily from Liu Dalin and Huang Shoutong
 
 From the scouts, they learned the pirates were encamped separately at Bopu and Bairrentou Beach. Scouts had seen women at Bairrentou Beach—indicating the pirates' main camp was there. Main camp meant headquarters should be there too.
 
-Though many troops had gathered in the city, few could actually fight. Huang Shoutong, a local native who'd led militia for years, knew well which forces could fight and which only bullied civilians. The truly usable troops numbered only about one hundred of his own Huang Family Village militia, plus militia and retainers from a few local landlord-gentry households—barely 200 together. He planned to use these as combat troops to directly assault the pirates' command center, ideally killing several leaders in one stroke.
+Though many troops had gathered in the city, few could actually fight. Huang Shoutong, a local native who'd led militia for years, knew well which forces could fight and which only bullied civilians. The truly usable troops numbered only about one hundred of his own Huang Family Village militia, plus militia and retainers from a few local landlord-gentry households—barely two hundred together. He planned to use these as combat troops to directly assault the pirates' command center, ideally killing several leaders in one stroke.
 
 Some gentry questioned this strategy: wouldn't killing pirate leaders provoke crazed retaliation?
 
-"In war, never harbor false hopes." Huang Shoutong stroked his chin-whiskers. "Once blades are drawn, fight to the finish. Don't think showing mercy earns retreat later—enemies will see you as weak and vulnerable, pressing even harder." He swept his gaze over everyone, naturally commanding. "Beat them until they hurt, until they're afraid—then they'll roll away on their own."
+"In war, never harbor false hopes." Huang Shoutong stroked his chin-whiskers. "Once blades are drawn, fight to the finish. Don't think showing mercy earns a future retreat—enemies will see you as weak and vulnerable, pressing even harder." He swept his gaze over everyone, naturally commanding. "Beat them until they hurt, until they're afraid—then they'll roll away on their own."
 
-They decided on two-pronged action. The left column, with Huang Family Village militia as main force, would bring two *huzhun* cannons dismounted from the city walls, plus many fire-rockets and powder grenades—300 men total, personally led by Huang Shoutong, attacking Bairrentou Beach directly. The right column, led by Fu Bowen with over 300 men—mostly conscripted commoners—would carry many flags, horns, and drums to make a feinted attack on Bopu camp as diversion. To prevent pirates having scouts outside the city, both columns would depart together, appearing to march toward Bopu, then the left column would turn back halfway to surprise-attack Bairrentou Beach.
+They decided on two-pronged action. The left column, with Huang Family Village militia as main force, would bring two *huzhun* cannons dismounted from the city walls, plus many fire-rockets and powder grenades—three hundred men total, personally led by Huang Shoutong, attacking Bairrentou Beach directly. The right column, led by Fu Bowen with over three hundred men—mostly conscripted commoners—would carry many flags, horns, and drums to make a feinted attack on Bopu camp as diversion. To prevent pirates having scouts outside the city, both columns would depart together, appearing to march toward Bopu, then the left column would turn back halfway to surprise-attack Bairrentou Beach.
 
 The two columns agreed: fire as the signal. The right column would attack Bopu first; then the main force would attack. Either column withdrawing would signal with smoke.
 
@@ -36,7 +36,7 @@ He summoned his second son. Huang Shoutong's second son, Huang Bingkun, was a co
 
 "Father—"
 
-"Don't speak." Huang Shoutong said solemnly. "Your father is past fifty. If something happens, you and your elder brother needn't grieve too much. Your elder brother, though brave, doesn't like studying—not as clever as you. So I give only you this instruction: These ten-plus years, signs of chaos have grown in the realm. We're fortunate to be in a remote small county. But once great chaos comes, petty villains will seize opportunities to cause trouble. First, lead our sons to take up arms defending homeland. Second, follow Heaven's mandate!" He stared into his son's eyes. "Don't let reading too many books give you foolish loyalty and filial piety—understand?!"
+"Don't speak," Huang Shoutong said solemnly. "Your father is past fifty. If something happens, you and your elder brother needn't grieve too much. Your elder brother, though brave, doesn't like studying—not as clever as you. So I give only you this instruction: These ten-plus years, signs of chaos have grown in the realm. We're fortunate to be in a remote small county. But once great chaos comes, petty villains will seize opportunities to cause trouble. First, lead our sons to take up arms defending homeland. Second, follow Heaven's mandate!" He stared into his son's eyes. "Don't let reading too many books breed foolish loyalty—understand?!"
 
 "Yes! Your son understands." Huang Bingkun understood yet was confused, but dared not ask more.
 
@@ -64,7 +64,7 @@ Waiting a bit longer, suddenly they saw smoke-fire signals from the Bopu directi
 
 "Fellow elders and brothers, we're about to charge the enemy lines. We're all natives here—generations have lived on this land. Here are our fields and houses, our ancestors' graves and shrines..." At this, he felt tears well up. "Today is the day we defend our homeland and serve the court. Everyone, follow me!"
 
-With that, he spurred his horse, leading his mounted retainers as vanguard, galloping toward Bairrentou Beach. The militia split into two columns, following the dozen-plus riders in their charge. Cannon crews, ten-odd men each, pushed and pulled desperately to get the two *huzhun* cannons to the front.
+With that, he spurred his horse, leading his mounted retainers as vanguard, galloping toward Bairrentou Beach. The militia split into two columns, following the dozen-plus riders in their charge. Cannon crews of ten-odd men each pushed and pulled desperately to get the two *huzhun* cannons to the front.
 
 ---
 
@@ -74,7 +74,7 @@ He Ming, on the administrative-zone watchtower, had seen their assembly through 
 
 He Ming frowned. From the observation post's tracking reports, he'd known the enemy had split forces—obviously one had to be a feint. But both columns had similar numbers, both had many handcarts; now both had launched attacks nearly simultaneously...
 
-"Tell Bopu to hold!" Bopu's defenses were much more complete than Bairrentou Beach; now with over 100 defenders including ten Military Group members, he felt holding shouldn't be a problem.
+"Tell Bopu to hold!" Bopu's defenses were much more complete than Bairrentou Beach; now with over one hundred defenders including ten Military Group members, he felt holding shouldn't be a problem.
 
 Rather, this was the command center. Construction had spread out, leaving many places to defend: the residential zone, equipment and vehicle storage, the power station, the newly completed administrative zone. Most positions had only two lines of barbed wire and one earth berm. How much fighting power these city homebodies who'd barely fired a dozen shots had—still unknown.
 

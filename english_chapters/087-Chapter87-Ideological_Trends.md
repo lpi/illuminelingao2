@@ -28,7 +28,7 @@ He spoke excitedly; Fu Bu'er wasn't surprised—he'd seen many wonders himself t
 
 "Worker? That's becoming a pirate."
 
-"Not becoming a pir—" Ma Peng whispered, "That's not qualified enough. Called 'worker'—I don't know how to write it—anyway, three meals daily, meat every meal, one day off per month..."  Ma Peng looked envious.
+"Not becoming a pir—" Ma Peng whispered, "That's not qualified enough. Called 'worker'—I don't know how to write it—anyway, three meals daily, meat every meal, one day off per month..." Ma Peng looked envious.
 
 "What! You want to join the rebels?" Fu Bu'er watched his laborer sliding toward the rebel abyss. Ma Peng's life or death wasn't his concern—he just feared losing a worker. He quickly reminded him this was a perilous path.
 

@@ -16,7 +16,7 @@ He closed his eyes, recalling his son's corpse when the militia brought it back�
 
 Individual valor alone didn't overly concern him. But another item the militia brought back did.
 
-"The pirates' firearms are extremely formidable. One of them used a small hand-cannon, killing several men—without even loading powder or shot. Please see, Your Honor—" He handed over a cloth bundle. Wu Mingjin unwrapped it: inside was a blueish-black piece of iron, very compact. The style vaguely resembled European hand-cannon but with clean, simple lines—no visible matchlock mechanism.
+"The pirates' firearms are extremely formidable. One of them used a small hand-cannon, killing several men—without even loading powder or shot. Please see, Your Honor—" He handed over a cloth bundle. Wu Mingjin unwrapped it: inside was a blueish-black piece of iron, very compact. The style vaguely resembled European hand-cannons but with clean, simple lines—no visible matchlock mechanism.
 
 "This is a hand-cannon?"
 
@@ -26,7 +26,7 @@ Individual valor alone didn't overly concern him. But another item the militia b
 
 *(Note: Late Ming saw a surge of firearms discourse among intellectuals. Most were armchair strategists. Song Yingxing criticized this trend in* Tiangong Kaiwu.*)*
 
-"Reliable. This cannon requires no powder-loading. Pull the trigger and it fires." Huang Shoutong stroked his beard. "After bringing it back, I test-fired one shot. Considerable power—penetrated thick wooden boards at five *zhang*. But a second pull didn't fire. It must pre-store multiple charges internally; each trigger pull fires one."
+"Reliable. This weapon requires no powder-loading. Pull the trigger and it fires." Huang Shoutong stroked his beard. "After bringing it back, I test-fired one shot. Considerable power—penetrated thick wooden boards at five *zhang*. But a second pull didn't fire. It must pre-store multiple charges internally; each trigger pull fires one."
 
 "That's truly a formidable weapon." Wu Mingjin stared at this small blueish-black object, deeply worried. If the pirates had many such cannons, how could militia archers resist in open battle? Defending with cannon from the walls seemed the only strategy.
 

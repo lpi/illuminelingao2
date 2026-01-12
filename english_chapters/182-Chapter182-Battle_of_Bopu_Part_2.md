@@ -1,24 +1,15 @@
 # Chapter 182: The Battle of Bopu (Part 2)
 
-Dugu Qiuhun's farm truck blazed down the rough road at 70 kilometers per hour in darkness, horn blaring continuously. Everyone aboard was terrified—afraid they'd become traffic casualties before becoming battle martyrs. Within minutes, searchlight beams ahead swept wildly. Fire flashed intermittently through the darkness amid moving black silhouettes. Combined with shrieking alarms and dense gunfire, it was like a World War II movie.
+Dugu Qiuhun's farm truck tore down the rough road at seventy kilometers per hour in the darkness, its horn blaring continuously. Everyone aboard was terrified, fearing they would become casualties of a traffic accident before becoming martyrs in battle. Within minutes, searchlight beams ahead swept wildly. Fire flashed intermittently through the darkness amid moving black silhouettes. Combined with the shrieking alarms and dense gunfire, it felt like a scene from a World War II movie.
 
-Just reaching the camp entrance, they saw Meng De in striped sailor shirt and stab-resistant vest, wildly waving an SKS.
+Just as they reached the camp entrance, they saw Meng De in a striped sailor shirt and stab-resistant vest, wildly waving an SKS.
 
-"Get to the dock! Enemy's landing there!"
+"Get to the dock! The enemy is landing there!"
 
-Dugu Qiuhun swung the truck around. Just as he started moving, a burly man ran over—left hand holding a pump-action shotgun, right hand clutching an entrenching tool. Behind him followed a dozen disheveled people, some with guns, some carrying fire extinguishers, all wanting a ride. Dugu waved: Come on, come on! The small farm truck was now packed with over twenty people. Someone screamed—a fire extinguisher had crushed his foot.
+Dugu Qiuhun swung the truck around. Just as he started moving, a burly man ran over—his left hand holding a pump-action shotgun, his right hand clutching an entrenching tool. Behind him followed a dozen disheveled people, some with guns, some carrying fire extinguishers, all wanting a ride. Dugu waved for them to get on. The small farm truck was now packed with over twenty people. Someone screamed—a fire extinguisher had crushed his foot.
 
 "Minor wounds don't leave the front line! Hold on, brother." Wang Ruixiang pounded the cab roof. "Go! Fast boat dock!"
 
-The fast boat dock was already engaged. To reward the North American chapter for shipping large quantities of materiel from the US, their yacht from Hawaii had become private housing. Besides the Qian brothers' families, it also housed tenant Zhou Weisen. At about 100 tons, the yacht had complete living facilities—spacious and comfortable. Always envied. Unexpectedly, being moored too close to the four trawlers made it the first target. Several sampans mistook their objective and attacked here. Arrows and blunderbusses peppered the yacht, leaving the once-pristine white vessel scarred.
-
-A sampan approached, apparently for boarding. Zhou Weisen lay at the cabin hatch, M35 helmet on his head, blasting away with a 12-gauge shotgun. He cleared the sampan of standing men. In the wheelhouse, Qian Shuixie wildly fired his Mosin-Nagant M44. Though he'd rigged a bootleg scope, in this darkness he could only aim by firelight and searchlight beams—basically shooting at silhouettes. The pirates fought back fiercely. Blunderbusses, 2-pounders, and matchlocks crackled back. Wheelhouse glass shattered piece by piece. Qian Shuixie was frantic. Though the brothers' wives and daughters plus Zhou Weisen's Venezuelan girlfriend from Hawaii had been moved to safer camp dormitories at yellow alert, and their weapons and ammunition were sufficient, three men against dozens of pirates was chilling. The whole harbor was searchlights, flames, and gunfire. No friendlies anywhere. A cold dread rose—would this be their glorious end?
-
-While wondering, fire appeared on sampans. A dozen torches flew toward them. Qian Shuiting saw torches landing on the rear wooden deck, catching fire. Critically dangerous! He dropped his SKS, drew a .40-caliber Sig P229 from his belt, grabbed a fire extinguisher and was about to charge out when Zhou Weisen grabbed him, shouting: "I'll go! If you're finished, what about sister-in-law and Beibei?"
-
-"What nonsense at a time like this!" Qian Shuiting saw the rear deck already burning. Just as he struggled to break free, a yellow farm truck burst from darkness. Over twenty men jumped down, firing wildly at the sampans besieging the yacht. Pirates were caught off guard, many falling into the water. Survivors hurriedly rowed away. Several men dragged fire extinguishers from the truck, spraying frantically to extinguish the deck fire.
-
-The three men, still shaken, saw most arrivals were uniformly black-clad with complete stab vests and helmets. Thinking this was some Executive Committee elite unit sent to rescue them, they were moved nearly to tears. About to say something, the leader waved: "You grab weapons too. They're after the trawlers!"
 
 The Qian brothers knew this was the critical moment. They quickly followed. Seeing most arrivals only had machetes, Qian Shuixie feared insufficient firepower. He went below, retrieved three or four Mosin-Nagant M44s from his private stash, and distributed them with ammunition. Everyone had trained on various rifles—at least they wouldn't use them as spears.
 

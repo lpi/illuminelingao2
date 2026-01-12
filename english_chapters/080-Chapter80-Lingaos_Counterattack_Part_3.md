@@ -4,7 +4,7 @@
 
 "Bullets—where are the bullets!"
 
-Before battle, everyone had been issued 90 rounds. SKS-D rifles used AK's 30-round magazines. Everyone was confident that such equipment could shatter even Manchu iron cavalry—and they weren't wrong, but obviously not in these people's hands. Seeing enemies not falling dead at gunshots like in games and movies, not disintegrating as expected, but grinding their teeth, howling, charging forward—many panicked. Some forgot to grab magazines; others fumbled on their bodies, couldn't yank out perfectly fine magazines.
+Before battle, everyone had been issued ninety rounds. SKS-D rifles used AK's 30-round magazines. Everyone was confident that such equipment could shatter even Manchu Iron Cavalry—and they weren't wrong, but obviously not in these people's hands. Seeing enemies not falling dead at gunshots like in games and movies, not disintegrating as expected, but grinding their teeth, howling, charging forward—many panicked. Some forgot to grab magazines; others fumbled on their bodies, couldn't yank out perfectly fine magazines.
 
 "Don't panic—hold steady!" He Ming ran along the earthen berm, shouting. He knew these people's military training was worse than raw recruits; they'd never fought real battles. Temporary panic was inevitable, so he ran back and forth desperately, keeping morale.
 
@@ -50,13 +50,13 @@ But signal or not, it made no difference now. Liu Dalin and Huang Shoutong's pla
 
 After battle, Bairrentou Beach reeked of blood. From the administrative zone's berm to the trench, bodies lay everywhere. The homebodies who'd survived "intense combat" dragged rifles, looking dazed. *I killed people?* It seemed unbelievable, yet the bodies everywhere proved their deeds. Some vomited; some wept; some laughed baffling laughs...
 
-*Psychological intervention for transmigrators needs to go on the agenda.* Xiao Zishan thought, walking toward the administrative zone. Today he'd watched the battle from the vehicle-storage area. Recently, transmigrators had implemented an emergency system: every camp always had several Committee members, never all gathered together—to avoid being wiped out in one stroke.
+*Psychological intervention for transmigrators needs to go on the agenda,* Xiao Zishan thought, walking toward the administrative zone. Today he'd watched the battle from the vehicle-storage area. Recently, transmigrators had implemented an emergency system: every camp always had several Committee members, never all gathered together—to avoid being wiped out in one stroke.
 
 On the battlefield, Military Group members with bayoneted SKS rifles vigilantly checked each body. If still moving or showing life signs, the medical team moved them aside. Unless lightly wounded, they wouldn't receive immediate treatment—only those who could last long enough would be treated. Besides, many transmigrators had also been wounded.
 
 "Casualties?" Seeing Shi Niaoren also present, Xiao Zishan asked.
 
-"No deaths so far, but many wounded." Shi Niaoren said. "Mostly from the *huzhun* cannons—many face and limb injuries."
+"No deaths so far, but many wounded," Shi Niaoren said. "Mostly from the *huzhun* cannons—many face and limb injuries."
 
 "Oh?"
 
@@ -70,7 +70,7 @@ The casualty report came quickly:
 
 Travelers: 21 wounded—including one burn from touching a hot SKS barrel.
 
-By comparison, the attacking militia left over 100 bodies on both battlefields alone; 30+ wounded were abandoned—these were severely injured, mostly dying within a day or two. 130+ were captured, now detained on the riverbed, spirits crushed.
+By comparison, the attacking militia left over one hundred bodies on both battlefields alone; thirty-plus wounded were abandoned—these were severely injured, mostly dying within a day or two. Over 130 were captured, now detained on the riverbed, spirits crushed.
 
 Captured items were considerable: besides many blades, spears, bows, and crossbows—two *huzhun* cannons, drums, flags, crude handcarts, even several carts of gunpowder and scrap-iron cannon shot. The Planning Committee catalogued and stored everything. Weapons could later arm native forces—at worst, melted down. Cannons and scrap iron were useless—raw material for the future Steel Group. Handcarts were useful for the construction site. As for the gunpowder—though the Chemistry Group sneered at it, it was still stored.
 

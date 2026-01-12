@@ -1,89 +1,89 @@
 # Chapter 157: Failed Nitrocellulose
 
-*Whew*... finally completed something milestone significant. Xiao Bailang flicked the newly completed ceramic vat—that crisp *dong-dong* sound was more glorious than heaven's bells. Industrial Department brothers who'd lived at kiln sites for a dozen days wept—not easy! After multiple failures in forming, air-drying, glazing, and firing temperature control, they'd finally achieved success. Now: large-scale seafood pickling, soy sauce, light chemical products all had basic equipment. Future flush toilets had hope.
+*Whew*... finally completed something of milestone significance. Xiao Bailang flicked the newly completed ceramic vat—the crisp ringing sound was more glorious than the bells of heaven. The brothers from the Industrial Department, who had lived at the kiln sites for a dozen days, practically wept with joy—it hadn't been easy! After multiple failures in forming, air-drying, glazing, and firing temperature control, they had finally achieved success. Now, large-scale seafood pickling, soy sauce production, and light chemical products all had their basic equipment. There was even hope for flush toilets in the future.
 
-"Our transmigrator nation's era of depending on Ming people for ceramic vats—gone forever!" Xiao Bailang's powerful voice rang beside the vat. He struck a pose—unfortunately Ding Ding wasn't there to photograph.
+"The era of our transmigrator nation depending on Ming people for ceramic vats is gone forever!" Xiao Bailang's powerful voice rang out beside the vat. He struck a pose—unfortunately, Ding Ding wasn't there to photograph it.
 
-Ceramic vats: simple in principle, but large-diameter thin-walled ceramics were hardest to manufacture. Transmigrators had made small-diameter ceramic pipes and vats—no experience with this scale. Industrial Department consulted countless references, recruited all Lingao potters—finally completing vat firing. No simple task. Helping potters said: only Qiongshan county kilns in entire Qiongzhou Prefecture had this capability. Successfully trial-producing surprised even them.
+Ceramic vats were simple in principle, but large-diameter thin-walled ceramics were the hardest to manufacture. The transmigrators had made small-diameter ceramic pipes and vats before, but they had no experience with this scale. The Industrial Department had consulted countless references and recruited all the potters in Lingao, finally managing to complete the vat firing. It was no simple task. The helping potters said that in the entire Qiongzhou Prefecture, only the Qiongshan county kilns had this capability. Successfully trial-producing it here surprised even them.
 
-Industrialized ceramic workshop had basic production capability. Brick kiln already had all forming and firing conditions—800°C temperature sufficed.
+The industrialized ceramic workshop now had basic production capability. The brick kiln already possessed all the necessary forming and firing conditions—a temperature of 800°C was sufficient.
 
-With various vats and pots, Chemistry Group could finally begin their great indigenous chemistry process. Among most urgent chemicals: sulfuric acid and nitric acid had widest uses. Especially nitric acid—most explosives and pyrotechnics required it. From transmigrator-miracle nitrocellulose to dangerous nitroglycerin.
+With various vats and pots available, the Chemistry Group could finally begin their great indigenous chemistry process. Among the most urgent chemicals needed were sulfuric acid and nitric acid, which had the widest uses. Nitric acid was particularly critical—most explosives and pyrotechnics required it, from the "transmigrator miracle" of nitrocellulose to the dangerous nitroglycerin.
 
-Manufacturing nitric acid required nitrates. Without synthetic ammonia industry, nitric acid needed nitrate salts. China's natural nitrate deposits were in Sichuan and northwest—none in south. They relied on collecting saltpeter soil for refining. Dirty, inefficient work. Without Guangzhou Forward Station's timely saltpeter shipment, Chemistry Department would've been reduced to excavating toilets and pigsties.
+Manufacturing nitric acid required nitrates. Without a synthetic ammonia industry, nitric acid had to be made from nitrate salts. China's natural nitrate deposits were in Sichuan and the northwest—there were none in the south. They had to rely on collecting saltpeter soil for refining. It was dirty, inefficient work. Without the Guangzhou Forward Station's timely shipment of saltpeter, the Chemistry Department would have been reduced to excavating toilets and pigsties.
 
-With sufficient saltpeter—smuggling export quality from Guangdong, excellent grade—and ample black powder stockpile, this saltpeter could all be used for nitric acid.
+With sufficient saltpeter—smuggling export-quality grade from Guangdong—and an ample black powder stockpile, this saltpeter could all be dedicated to nitric acid production.
 
-How to make nitric acid? Transmigration enthusiasts nearly all read *Mysterious Island*—knew nitric acid was made using sulfuric acid. For nitric acid, first need sulfuric acid.
+How to make nitric acid? Transmigration enthusiasts had nearly all read *The Mysterious Island* and knew that nitric acid was made using sulfuric acid. Therefore, to get nitric acid, they first needed sulfuric acid.
 
-Ji Situi considered: modern industrial sulfuric acid had three sources. First: coal coking by-product. Second: sulfur plus saltpeter. Third: iron pyrite. Each had pros and cons and indigenous processes—but all currently unusable. No raw materials. Fortunately, Guangzhou had purchased green vitriol. Though yield was tiny—process was extremely simple. Their laboratory equipment sufficed.
+Ji Situi considered the options. Modern industrial sulfuric acid came from three main sources: coal coking by-products, sulfur plus saltpeter, or iron pyrite. Each had its pros and cons and indigenous processes, but all were currently unusable due to a lack of raw materials. Fortunately, Guangzhou had purchased green vitriol. Although the yield was tiny, the process was extremely simple, and their laboratory equipment sufficed.
 
-Green vitriol distillation for vitriol oil was the most traditional, simplest sulfuric acid method. Ancients used vitriol oil in small-scale metalworking. Late-Ming—benefiting from Western missionary science transmission—some had made nitric acid and aqua regia. But manufacturers didn't realize potential applications. Given more time, perhaps Chinese chemistry's new epoch might have begun. But the "great unification" obsessed slave-owner regime quickly ended that possibility.
+Distilling green vitriol to produce vitriol oil was the most traditional and simplest method for making sulfuric acid. Even the ancients used vitriol oil in small-scale metalworking. In the late Ming Dynasty, benefiting from the transmission of Western science by missionaries, some people had even made nitric acid and aqua regia. However, manufacturers didn't realize the potential applications. Given more time, perhaps a new epoch of Chinese chemistry might have begun, but the "great unification" obsessed slave-owner regime of the Manchus quickly ended that possibility.
 
-Green vitriol dry distillation's efficiency was extremely low—sulfuric acid yield only ~10% of raw material. Better than nothing—purely temporary substitute. This distillation was highly polluting, somewhat dangerous. Chemistry Group chose a suitable wind direction site in Bopu's heavy industry zone for factory building. All participants received chemical factory labor protection clothing and masks. Days later—20kg concentrated sulfuric acid.
+The efficiency of dry distilling green vitriol was extremely low—the sulfuric acid yield was only about 10% of the raw material. It was better than nothing—a purely temporary substitute. This distillation process was highly polluting and somewhat dangerous, so the Chemistry Group chose a site with suitable wind direction in Bopu's heavy industry zone to build the factory. All participants received chemical factory labor protection clothing and masks. Days later, they had produced 20 kilograms of concentrated sulfuric acid.
 
-With concentrated sulfuric acid, nitric acid was possible. Again distillation: add saltpeter to sulfuric acid, slowly heat, using nitric acid's volatility to obtain concentrated nitric acid. This process released substantial heat. *Fengcheng*'s refrigerator-made ice finally served proper purpose—ice water mixture for cooling nitric acid condensation retorts.
+With concentrated sulfuric acid, nitric acid became possible. It involved distillation again: add saltpeter to the sulfuric acid and slowly heat it, using nitric acid's volatility to obtain concentrated nitric acid. This process released substantial heat. The *Fengcheng* refrigerator's ice finally served a proper purpose, creating an ice-water mixture to cool the nitric acid condensation retorts.
 
-With nitric acid, guncotton—that transmigrator miracle—was immediately proposed. Guncotton not only had greater explosive power than black powder—it was excellent propellant.
+With nitric acid available, guncotton—that legendary "transmigrator miracle"—was immediately proposed. Guncotton not only had greater explosive power than black powder, but it was also an excellent propellant.
 
-After plan approval, Li Di began trial manufacturing smokeless explosive—guncotton. Properly Chemistry Group's responsibility—but they doubted nitrocellulose feasibility. Navy's Li Di suddenly abandoned steam engines, volunteering for guncotton—condition: batch production priority for Navy.
+After the plan was approved, Li Di began to trial-manufacture the smokeless explosive—guncotton. This was properly the Chemistry Group's responsibility, but they doubted the feasibility of nitrocellulose production. Li Di from the Navy suddenly abandoned his work on steam engines and volunteered for the guncotton project, on the condition that the Navy get priority for batch production.
 
-First: gathered ceramic vats, acids and bases for one batch, plus 15kg cotton. Lye came from stockpile—needed Planning Committee approval. Explosives were military priority—approval came quickly.
+First, he gathered ceramic vats, acids, and bases for one batch, plus 15 kilograms of cotton. The lye came from the stockpile, which needed Planning Committee approval. Since explosives were a military priority, approval came quickly.
 
-Since both lye and nitric acid were corrosive, Li Di borrowed Chemistry's gloves and apron.
+Since both lye and nitric acid were corrosive, Li Di borrowed gloves and an apron from the Chemistry Department.
 
-Guncotton required extremely pure absorbent cotton. Normal explosive factories purchased pre-made products. Transmigrators had to hand-process.
+Guncotton required extremely pure absorbent cotton. Normal explosive factories purchased pre-made products, but the transmigrators had to hand-process it.
 
-First: process cotton. Tear apart, remove visible impurities (pebbles, leaves). Wash until rinse water ran clear. Place cotton in ceramic pot, add water just covering it, then add 2–5% lye by water weight. Cover, boil, simmer 10 minutes. Cool, rinse thoroughly—scrubbing for ~10 minutes. Spread washed cotton on clean paper, sun-dry outdoors. Pour remaining lye into waste alkali barrel. Begin mixing concentrated nitric acid and sulfuric acid at proper ratio for esterification mixed acid. Lingao's dry season still had high humidity—mixed acid had cooled, cotton wasn't dry yet. Future needed drying machines. Eighth Route Army's ordnance used heated *kang* for drying—learnable.
+The first step was to process the cotton. They tore it apart and removed visible impurities like pebbles and leaves, then washed it until the rinse water ran clear. The cotton was placed in a ceramic pot, covered with water, and lye was added at 2–5% of the water weight. They covered it, boiled it, and let it simmer for ten minutes. After cooling, they rinsed it thoroughly, scrubbing for another ten minutes. The washed cotton was spread on clean paper and sun-dried outdoors. The remaining lye was poured into a waste alkali barrel.
 
-Li Di placed most-dried cotton into mixed acid, pressed, stirred, covered. Watched time—after 10 minutes, removed it, set aside. Added remaining cotton. Combined both batches afterward.
+Then began the mixing of concentrated nitric acid and sulfuric acid at the proper ratio to create the esterification mixed acid. Lingao's dry season still had high humidity—by the time the mixed acid had cooled, the cotton wasn't dry yet. In the future, they would need drying machines. The Eighth Route Army's ordnance factories had used heated *kang* stoves for drying—a learnable technique.
 
-Poured waste acid into waste barrel, continued stabilization treatment. Took 6 hours—first batch guncotton completed. Still wet—only air-drying was safe. Had to spread out to prevent accidents.
+Li Di placed the driest cotton into the mixed acid, pressed it down, stirred, and covered it. He watched the time carefully—after ten minutes, he removed it and set it aside. He added the remaining cotton and combined both batches afterward.
 
-By evening—finally dry guncotton. 16kg. Take to Artillery Group for testing! They were practically weapons research institute now.
+He poured the waste acid into a waste barrel and continued with the stabilization treatment. It took six hours before the first batch of guncotton was completed. It was still wet, as only wet storage was safe. He had to spread it out to air-dry to prevent accidents.
 
-These days, Bopu's range had daily explosions—often seeing smoke-trailing, blackened Lin Shenhe, Bai Yu, and others gasping by the riverside.
+By evening, he finally had dry guncotton. Sixteen kilograms of it. Time to take it to the Artillery Group for testing! They were practically a weapons research institute now.
 
-Li Di brought new guncotton to the range. Suddenly—massive explosion. Half a cannon barrel flew spinning through air—terrifying. Soon Lin Shenhe climbed out of trench, completely blackened, nodding to others emerging behind:
+These days, Bopu's range saw daily explosions—often ending with a smoke-trailing, blackened Lin Shenhe, Bai Yu, and others gasping by the riverside.
+
+Li Di brought the new guncotton to the range. Suddenly, there was a massive explosion. Half a cannon barrel flew spinning through the air—it was terrifying. Soon, Lin Shenhe climbed out of a trench, completely blackened, nodding to others emerging behind him.
 
 "Our cannon barrel life exceeds expectations."
 
-Li Di hurried over, handing him guncotton: "This is my new guncotton. Please test. Careful—this stuff's power isn't comparable to black powder!!!"
+Li Di hurried over, handing him the guncotton. "This is my new guncotton. Please test it. Be careful—this stuff's power isn't comparable to black powder!!!"
 
-Lin Shenhe looked puzzled: "Is this high-nitrogen or low-nitrogen?"
+Lin Shenhe looked puzzled. "Is this high-nitrogen or low-nitrogen?"
 
 "High-nitrogen?" Li Di was clueless.
 
-"I sweat—brother, you made guncotton without knowing this?" Lin Shenhe was shocked. "Different nitrogen content means completely different performance."
+"Good lord—brother, you made guncotton without knowing this?" Lin Shenhe was shocked. "Different nitrogen content means completely different performance."
 
-"Should be low-nitrogen." Bai Yu—weapons manufacturing background, knew some pyrotechnics. "Indigenous nitric acid, indigenous esterification—hard to produce high-nitrogen guncotton."
+"It should be low-nitrogen," Bai Yu said. He had a background in weapons manufacturing and knew some pyrotechnics. "Indigenous nitric acid, indigenous esterification—it's hard to produce high-nitrogen guncotton."
 
 "Let's try." Li Di's confidence wavered.
 
-Half hour later, Lin Shenhe found Li Di—blackened, reeking of gunpowder—unhappily saying: "Your guncotton—use it for paint or glue."
+Half an hour later, Lin Shenhe found Li Di—who was now blackened and reeking of gunpowder—and said unhappily, "Your guncotton... use it for paint or glue."
 
 "I followed the textbook exactly!" Li Di shouted. "Standard laboratory procedure."
 
-"Problem: it won't detonate."
+"Problem is: it won't detonate."
 
-"Probably insufficient nitrogen content." Bai Yu said.
+"Probably insufficient nitrogen content," Bai Yu said.
 
-"Another victim of Verne poisoning."
+"Another victim of Jules Verne poisoning."
 
-Verne made guncotton manufacturing seem very simple. Actually, guncotton was difficult under crude conditions. Especially during esterification—accurately controlling nitrating agent composition, reaction temperature, reaction time, and other factors to control nitrogen content, viscosity, etc., was required.
+Verne made guncotton manufacturing seem very simple. In reality, guncotton was difficult to make under crude conditions. Especially during esterification, accurately controlling the composition of the nitrating agent, reaction temperature, reaction time, and other factors to control nitrogen content and viscosity was required.
 
-How difficult? Transmigrators' technical library had many indigenous explosive booklets—even nitroglycerin and RDX indigenous methods existed. Uniquely absent: guncotton. Clearly not easily manufactured.
+How difficult was it? The transmigrators' technical library had many indigenous explosive booklets—even detailing methods for nitroglycerin and RDX. Uniquely absent was guncotton. clearly, it was not easily manufactured.
 
-Industrially, guncotton was classified by nitrogen content: Grade 1 high-nitrogen, Grade 2 high-nitrogen, Grade 3 low-nitrogen, blasting gelatin cotton, pyroxylin, lacquer cotton, celluloid cotton. Indigenous nitrocellulose could at best reach celluloid cotton level.
+Industrially, guncotton was classified by nitrogen content: Grade 1 high-nitrogen, Grade 2 high-nitrogen, Grade 3 low-nitrogen, blasting gelatin cotton, pyroxylin, lacquer cotton, and celluloid cotton. Indigenous nitrocellulose could at best reach the level of celluloid cotton.
 
 "Wasted so much nitric acid and lye." Li Di was frustrated. Chemicals were already tight.
 
-"If celluloid cotton level—could use as propellant. Though inferior." Lin Shenhe thought. "Wu Yunduo's memoirs mentioned: reloading cartridges used either black powder or discarded movie film. Celluloid as propellant."
+"If it's celluloid cotton level, we could use it as propellant. Though it's inferior," Lin Shenhe thought. "Wu Yunduo's memoirs mentioned that reloading cartridges used either black powder or discarded movie film. Celluloid fits as a propellant."
 
-"Try as propellant?"
+"Try it as propellant?"
 
-"Can't use directly—needs grinding then compression." Bai Yu shook his head. "Store for now. With future equipment, scale up. Let's ask Chemistry Department to rush mercury fulminate. Rifles won't work without it."
-
-**(Note: Li Di's method cannot produce usable nitrocellulose. In proper laboratory environments with analytical-grade reagents, celluloid cotton is achievable. But formal nitrocellulose production is far more complex. Beyond nitrogen control difficulties—removing free acid from cotton fibers isn't simple water washing. Early nitrocellulose's incomplete acid removal caused multiple accidents. Austrian military suffered greatly—completely abandoning it.)**
+"Can't use it directly—needs grinding then compression," Bai Yu shook his head. "Store it for now. With future equipment, we can scale up. Let's ask the Chemistry Department to rush mercury fulminate. Rifles won't work without it."
 
 **(End of Chapter)**

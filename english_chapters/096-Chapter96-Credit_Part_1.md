@@ -1,14 +1,14 @@
 # Chapter 96: Credit (Part 1)
 
-Receiving the call, Wu Nanhai quickly had the stove relit to cook. Hainan's autumn rarely dropped below 25–26°C; days often reached nearly 30°C. To prevent spoilage, the Cafeteria Office only cooked to daily ration amounts with slight surplus. The cafeteria had some night-shift food, but nowhere near enough for this demand. He urgently recalled resting staff. While cooking, he had Hu Yicheng tally needed food.
+Receiving the call, Wu Nanhai quickly had the stove relit to cook. Hainan's autumn temperatures rarely dropped below 25–26°C, and days often reached nearly 30°C. To prevent spoilage, the Cafeteria Office only cooked to daily ration amounts with a slight surplus. The cafeteria had some night-shift food, but nowhere near enough for this demand. He urgently recalled resting staff. While cooking, he had Hu Yicheng tally the needed food.
 
-A full pot of rice was made and immediately sent to the camp. Thirty servings disappeared instantly. Seeing this paper could actually buy rice, no one bought porridge—everyone surged to buy rice. Hu Yicheng watched in disbelief as they wolfed down plain white rice—no vegetables, no nothing. He remembered childhood stories of poor people's struggles—protagonists who "ate rice with soy sauce" already seemed inhuman. Now these people had no soy sauce—not even a grain of salt.
+A full pot of rice was made and immediately sent to the camp. Thirty servings disappeared instantly. Seeing that this paper could actually buy rice, no one bought porridge—everyone surged to buy rice. Hu Yicheng watched in disbelief as they wolfed down plain white rice—with no vegetables or anything else. He remembered childhood stories of poor people's struggles—protagonists who "ate rice with soy sauce" already seemed inhuman. Now these people had no soy sauce—not even a grain of salt.
 
-Another fellow squeezed forward, thrusting his large wooden bowl before him, clutching a work-point voucher. His words were unclear, but obviously meant "one bowl rice." Hu Yicheng shook his head and ladled another—this guy seemed to be on his fourth bowl? Quite the powerhouse.
+Another fellow squeezed forward, thrusting his large wooden bowl before him, clutching a work-point voucher. His words were unclear, but obviously meant "one bowl of rice." Hu Yicheng shook his head and ladled another bowl—this guy seemed to be on his fourth. Quite the powerhouse.
 
 Xiong Buyou edged nervously toward Wu De, whispering: "Old Wu, isn't this too much eating? Won't they burst?"
 
-Wu De shook his head: "Don't worry—farmers can eat. Back home, old-timers often ate a *jin* per meal. Before, farmers' meals had no oil; appetites were big."
+Wu De shook his head. "Don't worry—farmers can eat. Back home, old-timers often ate a *jin* per meal. Because their meals had no oil, their appetites were big."
 
 As rice consumption slowed, more people bought salted fish—apparently wanting to treat themselves after filling up. Unfortunately, Wu Nanhai's cafeteria was out of salted fish.
 
@@ -18,13 +18,13 @@ Hearing this, many looked disappointed. The earlier commotion gradually died dow
 
 "Out of fish?" Wu De ran over to ask.
 
-"Yes—cafeteria's completely out. Need to get more from Bopu tomorrow." The Agriculture Committee had a seafood-processing plant there.
+"Yes—the cafeteria's completely out. We need to get more from Bopu tomorrow." The Agriculture Committee had a seafood-processing plant there.
 
 "Nothing at all?"
 
 Hu Yicheng spread his hands: "Even borrowed the Military Group's night-shift food for you. I'll prepare more tomorrow—that salted fish isn't popular in the cafeteria anyway."
 
-"The fish was killed once when caught, then killed again by your cooking." Xiong Buyou said solemnly.
+"The fish was killed once when caught, then killed again by your cooking," Xiong Buyou said solemnly.
 
 Watching the dispersing crowd, Wu De instructed Lin Xing: "Tell everyone not to leave. Calculate how much they want—we'll fetch the goods immediately!"
 
@@ -50,7 +50,7 @@ Hu Yicheng rushed to say: "This won't work. It's almost dark—how can we go to 
 
 "Alright then." Hearing his insistence, Xiao Zishan finally relented, assigning a Beijing 212. He added: since they were going, bring more things back—"Don't waste the trip."
 
-The jeep drove toward Bopu in the evening sunset. Wu De drove personally; beside him was Wu Nanhai—he wanted to check the seafood plant's production.
+The jeep drove toward Bopu in the evening sunset. Wu De drove personally, with Wu Nanhai beside him—he wanted to check the seafood plant's production.
 
 In the car, Wu Nanhai requested some farmers be transferred from the Labor Group to the Agriculture Committee—not as collective workers, but as permanent Committee employees.
 
@@ -70,7 +70,7 @@ Wu Nanhai was startled: "How do you know? I'm a Committee member."
 
 "Beiwei would be better."
 
-"Beiwei trains troops daily—can't leave. And no one's more suitable for the military core." Wu De saw the first watchtower ahead; guards were signaling with lights. He flashed his headlights in response—their route had been communicated to all pillboxes along the way.
+"Beiwei trains troops daily—he can't leave. And no one's more suitable for the military core." Wu De saw the first watchtower ahead; guards were signaling with lights. He flashed his headlights in response—their route had been communicated to all pillboxes along the way.
 
 "He has business experience. We veterans never did commerce—that's his advantage. Plus he's very enthusiastic."
 
@@ -80,7 +80,7 @@ Wu Nanhai was startled: "How do you know? I'm a Committee member."
 
 "That's extreme. Unavoidable?"
 
-"Not extreme at all. Let me tell you more inside info—" Wu De lowered his voice. "Know that Big White Mare?"
+"Not extreme at all. Let me tell you more inside info." Wu De lowered his voice. "You know that Big White Mare?"
 
 "Yes—some American agent, right?"
 
@@ -94,13 +94,13 @@ Wu Nanhai suddenly understood—immediately feeling disbelief.
 
 "How is that possible!"
 
-"It was possible—but that woman has skills. Didn't succeed." Wu De sighed. "Now she's become the Committee's hot potato."
+"It was possible—but that woman has skills. He didn't succeed." Wu De sighed. "Now she's become the Committee's hot potato."
 
 "Are they arresting anyone?"
 
 "Of course not." Wu De shook his head. "Not worth antagonizing people over a foreigner. Ran Yao knew who did it by the next day."
 
-"That's not right." Wu Nanhai disapproved. "In any time-space, this is literal crime! The Committee is enabling this—dangerous precedent."
+"That's not right," Wu Nanhai said disapprovingly. "In any time-space, this is a literal crime! The Committee is enabling this—it's a dangerous precedent."
 
 "Pursue it? Remember what was decided at the general assembly? 'Everyone is equal, but transmigrators are more equal than others.'"
 

@@ -2,7 +2,7 @@
 
 Wang Luobin's heart was still pounding when he walked out of the administrative zone. To steady himself, he kept gripping his rifle. Today was close! Exhausted from construction-site work, and the enemy had come so fast!
 
-During battle, he'd emptied one magazine—but had no idea what he'd hit. Those 30 rounds were gone in an instant. Seeing the enemy about to climb the berm, no time to reload—he'd shamefully fled. The whole experience was like a morning dream: confused, fragmented. When he came to his senses, the enemy had already retreated, and he'd somehow crossed from one side of the line to the other. Just minor scrapes... Would he survive in this world?...
+During battle, he'd emptied one magazine—but had no idea what he'd hit. Those thirty rounds were gone in an instant. Seeing the enemy about to climb the berm, no time to reload—he'd shamefully fled. The whole experience was like a morning dream: confused, fragmented. When he came to his senses, the enemy had already retreated, and he'd somehow crossed from one side of the line to the other. Just minor scrapes... Would he survive in this world?...
 
 Brass casings littered the ground everywhere, some still smoking—*wasteful.* The transmigrators couldn't manufacture casings yet; someone should organize collection immediately.
 
@@ -58,13 +58,13 @@ Most wounds were minor. But many were facial—looking terrifying with blood eve
 
 Bacteria in this timespace had no drug resistance, so only sulfanilamide ointment was used for infection prevention. Some also needed tetanus shots.
 
-"Done—all your iron pellets are out." Dr. Lan reassured a pitiful fellow. He'd spent over an hour extracting 20 small fragments from the man's face—some looked like shattered coins; others were unidentifiable.
+"Done—all your iron pellets are out." Dr. Lan reassured a pitiful fellow. He'd spent over an hour extracting twenty small fragments from the man's face—some looked like shattered coins; others were unidentifiable.
 
 "I'll be pockmarked now. Doctor, do you do cosmetic surgery?" The patient kept crying from pain and fear.
 
 Dr. Lan thought: *I know your intestines better*, but for morale said: "No problem—I worked at a beauty clinic before."
 
-"Then I'll book an appointment. Your skills better be good—I'm planning to marry a princess. Let's say Princess Jiu..." Yang Baogui's wife Zhang Ziyi *(Note: character's own request, not the author's quirk)*, seeing him delirious, injected the prepared sedative. The would-be prince consort fell asleep.
+"Then I'll book an appointment. Your skills better be good—I'm planning to marry a princess. Let's say Princess Jiu..." Yang Baogui's wife Zhang Ziyi (Note: character's own request, not the author's quirk), seeing him delirious, injected the prepared sedative. The would-be prince consort fell asleep.
 
 But some were seriously wounded. One had teeth knocked out, a hole through the cheek. Fortunately, the medical team had a dentist, with denture materials and equipment. Shi Niaoren worried about major maxillofacial wounds—he wasn't skilled at reconstructive surgery. The five doctors: he specialized in infectious diseases; Lan Fangfang in internal medicine/gastroenterology; Hippo in internal medicine with some orthopedic experience; Dr. Yang—no one wanted him treating humans—he was a veterinarian.
 

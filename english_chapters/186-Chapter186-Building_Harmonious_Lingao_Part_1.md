@@ -1,24 +1,24 @@
 # Chapter 186: Building a Harmonious Lingao (Part 1)
 
-After prisoner processing ended, there was disagreement about prisoner disposition.
+After the prisoners were processed, a disagreement arose regarding their disposition.
 
 Per standard procedure, combat prisoners were interrogated, screened, registered, then "purified" and assigned to labor-reform teams under Wu De's unified management.
 
-This battle had captured prisoners of multiple nationalities. Normally, they'd be treated equally as forced laborers. But the Navy requested direct recruitment of the two Spaniards—transmigrators knew little about this era's large sailing ships' rigging techniques, and these Spaniards had some knowledge.
+Prisoners of multiple nationalities had been captured in this battle. Normally, they would be treated equally as forced laborers. But the Navy requested the direct recruitment of the two Spaniards—the transmigrators knew little about the rigging recall techniques of this era's large sailing ships, and these Spaniards possessed some of that knowledge.
 
-However, a nationalist faction led by Dugu Qiuhun firmly opposed such preferential treatment: these Spanish scum had come to China's coast hoping to rob and get rich. They were outright pirates. Not being hanged at Bopu was already lenient enough. Recruiting them was absolute worship of foreigners.
+However, a nationalist faction led by Dugu Qiuhun firmly opposed such preferential treatment: these Spanish scum had come to China's coast hoping to rob and get rich. They were outright pirates. Not hanging them at Bopu was already lenient enough. Recruiting them was tantamount to worshipping foreigners.
 
-The Navy ultimately lost under the nationalist banner. Even Mr. Wen, who usually favored them, refused support. His reasoning was simple: "This violates regulations."
+The Navy ultimately lost to the nationalist arguments. Even Mr. Wen, who usually favored them, refused his support. His reasoning was simple: "This violates regulations."
 
-Of course, the two Spaniards did receive some consideration. They were grouped with the Indian prisoners for labor—the Indians weren't Spanish compatriots but spoke some Spanish for communication, reducing loneliness. As for the Malay pirates, nobody cared about their fate. After brief screening, they were sent directly to the quarry.
+Of course, the two Spaniards did receive some consideration. They were grouped with the Indian prisoners for labor—the Indians weren't Spanish compatriots but spoke some Spanish, which would provide some company. As for the Malay pirates, nobody cared about their fate. After a brief screening, they were sent directly to the quarry.
 
-Tan Ming emerged from Bopu infirmary on trembling legs. Last night had felt like a brush with death. Though he'd jumped for cover quickly, during the retreat, enemy shells had screamed behind him, stones flying everywhere. His head had been pelted with debris—without his Type-80 steel helmet, his skull would've cracked open.
+Tan Ming emerged from the Bopu infirmary on trembling legs. Last night had felt like a brush with death. Though he'd jumped for cover quickly, during the retreat, enemy shells had screamed behind him, sending stones flying everywhere. His head had been pelted with debris—without his Type-80 steel helmet, his skull would have cracked open.
 
-Fortunately, just scrapes... who knew if he'd survive going forward...
+Fortunately, it was just scrapes... who knew if he'd survive going forward...
 
-He touched the gauze on his head. The iodine-treated wound still throbbed. Damn, wasn't this exactly like before? No, worse than before!
+He touched the gauze on his head. The iodine-treated wound still throbbed. *Damn, wasn't this exactly like before? No, worse than before!*
 
-Tan Ming had worked as a security guard, laborer, briefly as an oil worker, even as an online-game power-leveler when bored, operated printing machines at a cardboard factory, and finally sold office furniture. But none of those jobs risked his life. Now he had to fight under artillery fire. He seriously doubted he'd live to see the revolution succeed.
+Tan Ming had worked as a security guard and a laborer, spent a brief stint as an oil worker, and even acted as an online-game power-leveler when bored. He had operated printing machines at a cardboard factory and finally sold office furniture. But none of those jobs risked his life. Now he had to fight under artillery fire. He seriously doubted he'd live to see the revolution succeed.
 
 Reaching into his pocket, he fished out a cigarette pack—as militia, he received one pack monthly. This waterproof, crush-proof case protected his property well.
 

@@ -50,9 +50,9 @@ The Committee discussed. This proposal won strong support from progressives. For
 
 "We really do need to hit some big households to replenish supplies." Wu Nanhai, as Agriculture and Cafeteria Director, lowered his voice. "I've been meaning to raise the grain issue."
 
-He opened a notebook: "Our grain reserves were planned at 1 kg per person per day for 60 continuous days—35 tons of rice and flour total. After D-Day, most people actually received 600–800g daily rations, since we could provide considerable protein and fat—canned goods, instant foods, fish—reducing carbohydrate needs. Daily grain consumption was 350kg, so reserves lasted longer than expected—about 15 extra days. But this doesn't include prisoners.
+He opened a notebook: "Our grain reserves were planned at one kilogram per person per day for sixty continuous days—35 tons of rice and flour total. After D-Day, most people actually received 600–800g daily rations, since we could provide considerable protein and fat—canned goods, instant foods, fish—reducing carbohydrate needs. Daily grain consumption was 350kg, so reserves lasted longer than expected—about fifteen extra days. But this doesn't include prisoners.
 
-"Wu De reported today: 138 prisoners. At 300g per person daily—and if they're doing heavy labor, this ration is actually insufficient—starting tomorrow that's 40 extra kilograms daily. Not a small number. We must quickly develop food sources."
+"Wu De reported today: 138 prisoners. At 300g per person daily—and if they're doing heavy labor, this ration is actually insufficient—starting tomorrow that's forty extra kilograms daily. Not a small number. We must quickly develop food sources."
 
 "What about our own crop-planting plans?" Xiao Zishan knew Wu Nanhai's Agriculture Group had brought countless modern agricultural essentials.
 

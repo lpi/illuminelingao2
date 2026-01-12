@@ -1,22 +1,16 @@
 # Chapter 184: Discussing Institutional Improvements
 
-Wen Desi returned. He'd planned to stay until the ship was completed. But hearing about Bopu's attack, he hurried back on a supply transport.
+Wen Desi returned. He had planned to stay until the ship was completed, but hearing about the attack on Bopu, he hurried back on a supply transport.
 
-Seeing the results, Wen Desi felt rather pleased that the formation training had been worthwhile. Though formation, line, and column tactics were primarily determined by weapon capabilities, the effects were so good that Xi Yazhou, who'd first proposed this approach, was floating. This experience deserved wider promotion.
+Seeing the results, Wen Desi felt rather pleased that the formation training had been worthwhile. Though formation, line, and column tactics were primarily determined by weapon capabilities, the effects were so good that Xi Yazhou, who had first proposed this approach, was walking on air. This experience deserved wider promotion.
 
-Bairren sent a Beijing 212 to pick him up. Ma Qianzhu also hitched a ride back.
+A Beijing 212 was sent from Bairen to pick him up. Ma Qianzhu also hitched a ride back.
 
-En route, they had deep discussions about battle lessons. Though Wen Desi also worried about the military's growing independence, both agreed that expansion was urgent.
+En route, they had deep discussions about the lessons learned from the battle. Though Wen Desi also worried about the military's growing independence, both agreed that expansion was urgent.
 
-"If they'd come in two columns—one by sea, one by land. Twenty large ships and two or three thousand ground troops. This fight wouldn't have been so easy."
+"If they'd come in two columns—one by sea, one by land—with twenty large ships and two or three thousand ground troops, this fight wouldn't have been so easy."
 
 "Fortunately, our earlier transmigrator military training was thorough. The main force and backbone were almost all transmigrators."
-
-"Exactly. That's what worries me. New Army combat effectiveness is lacking." Ma Qianzhu's face was cold. Unlike the celebrating crowds, he wasn't happy at all. Post-battle investigation found some New Army soldiers hadn't just failed to fight bravely—they hadn't even pretended to boost morale. Basically, they'd fled at the first shot. "Political education is still insufficient," he concluded.
-
-Wen Desi laughed dismissively. Ma Qianzhu said: "I know you'll call me a political-education-is-invincible believer again. Got a better idea? Still that 'profit enlightens the petty' approach?"
-
-"If you ask me, religion works best. A big weapon."
 
 "You want to be Archangel, don't you!" Ma Qianzhu knew Wen Desi's aspirations well. "Absolutely not!"
 

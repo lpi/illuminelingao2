@@ -1,87 +1,87 @@
 # Chapter 154: The New Army Concept
 
-"Didn't I already say—if coal's short, send barges to transport." Ma Qianzhu said impatiently at the meeting. "1500-ton capacity—even from Vietnam is enough for months."
+"Didn't I already say—if we're short on coal, we should send barges to transport it," Ma Qianzhu said impatiently at the meeting. "With a 1,500-ton capacity, even a trip from Vietnam would bring back enough to last us for months."
 
-"Easy to say—Vietnam also has a court."
+"That's easy to say, but Vietnam also has a royal court."
 
-"Later-Le dynasty."
+"The Later Le Dynasty."
 
-"Crowned monkeys—" Xi Yazhou expressed contempt. "Just send an expeditionary force to destroy them."
+"Just monkeys in hats," Xi Yazhou expressed his contempt. "We should just send an expeditionary force to wipe them out."
 
-"Don't say that—monkeys are pretty fierce now. Our small force would struggle." Yu Eshui said. "For places with established governance, we can't rampage like Europeans in Black Africa. Only trade."
+"Don't say that—those monkeys are pretty fierce right now. Our small force would struggle," Yu Eshui cautioned. "For places with established governance, we can't just rampage around like Europeans in Black Africa. We can only trade."
 
-"Unequal trade then—" Xi Yazhou suddenly brimmed with nationalist fervor. "Cannons mean trade."
+"Unequal trade, then," Xi Yazhou suddenly brimmed with nationalist fervor. "Cannons mean trade."
 
-"Okay, okay—don't digress too far." Ma Qianzhu interrupted Xi Yazhou's poetry. "Now I'll discuss military matters."
+"Okay, okay—don't digress too far." Ma Qianzhu interrupted Xi Yazhou's poetic waxing. "Now, I need to discuss military matters."
 
-After transmigrators' First Anti-Encirclement victory and Gou family elimination, they'd opened Lingao's situation—winning peaceful construction time. But they should clearly recognize: as landing duration lengthened and activities expanded, various eyes would inevitably notice. Whether pirates or Ming—action against transmigrators was expected soon. Therefore, he requested Committee and all transmigrators: urgently establish the New Army with complete training and combat systems.
+After the transmigrators' victory in the First Anti-Encirclement Campaign and the elimination of the Gou family, they had successfully opened up the situation in Lingao, winning themselves time for peaceful construction. However, they had to clearly recognize that as their presence lengthened and their activities expanded, various eyes would inevitably take notice. Whether it was the pirates or the Ming government, action against the transmigrators was expected soon. Therefore, Ma requested that the Committee and all transmigrators urgently establish a "New Army" with comprehensive training and combat systems.
 
-Medium-to-long-term: transmigrators' combat backbone must be timespace natives in new-style armies. Call it "New Army" or "Native Military"—core concept remained identical. Transmigrators' extreme manpower weakness meant even filling all administrative and technical positions was impossible—let alone soldiering.
+In the medium-to-long term, the transmigrators' combat backbone had to be composed of timespace natives organized into new-style armies. Whether they called it the "New Army" or the "Native Military," the core concept remained the same. The transmigrators' extreme weakness in manpower meant that even filling all administrative and technical positions was impossible—let alone staffing the rank and file of an army.
 
-Current transmigrator-dominated military must disband and reorganize into New Army. Currently, Military Group's long-term personnel exceeded 10% of all transmigrators—managing patrol, guard, and small-scale combat. This severely wasted human resources.
+The current transmigrator-dominated military structure had to be disbanded and reorganized into this New Army. Currently, the Military Group's permanent personnel exceeded 10% of the entire transmigrator population, managing patrols, guard duties, and small-scale combat. This was a severe waste of human resources.
 
-Planned New Army—Ma Qianzhu proposed "New Army" rather than "Native Military" to distinguish from future lower-tier forces—would have Ming people as soldiers and NCOs. As armies scaled, officer corps would also become primarily Ming people.
+Ma Qianzhu proposed the name "New Army" rather than "Native Military" to distinguish it from future lower-tier forces. It would recruit Ming people as soldiers and non-commissioned officers (NCOs). As the army scaled up, the officer corps would also eventually become primarily composed of Ming people.
 
-New Army soldiers would mainly come from peasants and old military—especially military households. After training, they'd serve as primary NCOs. Initial officers would be transmigrators, gradually supplemented by military academy graduates—so academies needed urgent establishment. Early cadets would be local *tongsheng*, literate soldiers. Early academies could merge with administrative and technician schools. Without those conditions, training battalion formats could develop officers.
+New Army soldiers would mainly be drawn from the peasantry and old military households—especially the latter. After training, they would serve as the primary NCOs. The initial officers would be transmigrators, gradually supplemented by graduates from a military academy—which meant such academies needed to be established urgently. Early cadets would be local *tongsheng* (students who hadn't passed the county exams) and literate soldiers. These early academies could share resources with administrative and technician schools. Without those conditions, training battalions could serve as officer development units.
 
-New Army would use one-man responsibility system—but organize soldiers' committees at all levels. Committees could oppose non-combat orders from officers; if commanders insisted, obey—but committees could appeal to superiors including Military Department transmigrators. Committee members couldn't be executed before Military Department review, even on front lines. Soldier abuse would be severely punished.
+The New Army would utilize a one-man responsibility system for command, but it would also organize soldiers' committees at all levels. These committees could oppose non-combat orders from officers; if the commander insisted, they had to obey, but the committee could appeal to superiors, up to the Military Department's transmigrators. Committee members could not be executed before a Military Department review, even on the front lines. Abuse of soldiers would be severely punished.
 
-New Army would be professional. Officers and soldiers would receive worker benefits—preferential housing and private plots, plus free new crop usage (other new crop users paid extra tax second year). In fact, New Army manpower came from labor freed by new crops.
+The New Army would be a professional force. Officers and soldiers would receive worker benefits, such as preferential housing and private plots, plus free usage of new crops (other users of new crops would pay extra tax in the second year). In essence, the New Army's manpower would come from the labor freed up by the high yields of these new crops.
 
-"I have input." He Ming said. "I don't understand Ming military conditions. But armies that haven't fought develop bad habits. Before our '79 Vietnam campaign, our forces had many problems. Ming military—classic old armies—soldier quality questionable. Won't we recruit many veterans gaming the system?"
+"I have some input," He Ming said. "I don't understand the specific conditions of the Ming military, but armies that haven't fought for a long time develop bad habits. Before our '79 campaign in Vietnam, our own forces had many problems. The Ming military is a classic 'old army'—the quality of their soldiers is questionable. Won't we just end up recruiting a lot of veterans who are expert at gaming the system?"
 
-"You're PLA-born—" Zhang Bailin interjected. "Forgot invincible political work? Liberation soldiers were all from GMD-style old armies—all transformed."
+"You're PLA-born, aren't you?" Zhang Bailin interjected. "Have you forgotten the power of political work? The soldiers of the Liberation Army were all drawn from Kuomintang-style old armies, yet they were all transformed."
 
-"Can you do political work?" He Ming doubted Zhang Bailin.
+"Can *you* do political work?" He Ming looked at Zhang Bailin doubtfully.
 
 "Relax—I'll handle it." Zhang Bailin was confident.
 
-Ma Qianzhu said: "He Ming's right. We lack time for thought transformation. Military household personnel need more screening."
+Ma Qianzhu nodded. "He Ming is right. We lack the time for deep thought transformation. Personnel from military households will need more screening."
 
-"We assign our people as base-level officers—start right. Three Disciplines Eight Attentions as control spell—morale naturally improves." Xi Yazhou recalled salt village militia training. "...Commanders act properly, set examples—subordinates won't dare misbehave. Old saying: one right suppresses hundred evils."
+"We assign our people as base-level officers to start things off right. Use the 'Three Disciplines and Eight Attentions' as a control spell, and morale will naturally improve," Xi Yazhou recalled his experience training the salt village militia. "...If commanders act properly and set examples, subordinates won't dare misbehave. As the old saying goes: one righteousness suppresses a hundred evils."
 
-"Recruiting from military households is probably unreliable." Yu Eshui said. "Late-Ming military households weren't different from commoners—basically officers' tenants. Mostly elderly and infirm."
+"Recruiting from military households is probably unreliable," Yu Eshui said. "Late-Ming military households aren't much different from commoners—they're basically just tenants of the officers. Most of them are elderly or infirm."
 
-"But they're class-conscious. Lingao military households are worse-off than commoners. Local tenant laborers live better than them."
+"But they're class-conscious. Lingao military households are worse off than commoners. Even local tenant laborers live better than them."
 
-"Recruit from Li people. Mountain-dwelling—can form mountain infantry." Wei Aiwen again promoted his Li troop idea—recently frequenting Li areas for trade, building relationships. His private lighter stock was considerably depleted.
+"Rather than Li people, we should recruit Miao people," Yu Eshui reminded them. "The Li people have deep ethnic conflicts with the local Han. We can only reconcile gradually—we can't easily arm them yet. With good weapons, courage grows. If Li forces cause incidents, we'll end up like Pig Bajie looking in a mirror—ugly on both sides."
 
-"Rather than Li people, recruit Miao people." Yu Eshui reminded. "Li people have deep ethnic conflict with local Han. We can only gradually reconcile—can't easily arm them. With good weapons, courage grows. If Li forces cause incidents—we're Pig Bajie looking in mirrors."
-
-Hainan's Miao came when Ming forces suppressed Li uprisings—Guangxi Miao soldiers demobilized locally. Arriving late, they could only settle in high mountains—mostly tenant laborers for Li headmen or Han landlords. Some survived purely by hunting. Harder lives than Li. Historically, Miao had better Han relations.
+Hainan's Miao population had arrived when Ming forces suppressed Li uprisings—Guangxi Miao soldiers had been demobilized locally. Arriving late to the island, they could only settle in the high mountains, mostly serving as tenant laborers for Li headmen or Han landlords. Some survived purely by hunting. Their lives were even harder than those of the Li. Historically, however, the Miao had better relations with the Han.
 
 "Are there local Miao?"
 
-"Yes, yes—" Wei Aiwen quickly said. "Zhu headman of Nanan says there's a Miao village nearby. Hundred-plus families. If needed, we can scout."
+"Yes, yes—" Wei Aiwen spoke up quickly. "Headman Zhu of Nanan says there's a Miao village nearby—a hundred-plus families. If needed, we can scout it out."
 
-"Recruiting Li and Miao is worth considering." Ma Qianzhu thought: recruiting a few dozen for recon units was controllable.
+"Recruiting Li and Miao is worth considering." Ma Qianzhu thought for a moment; recruiting a few dozen for reconnaissance units would be controllable.
 
-"Now I'll discuss military control." Ma Qianzhu continued.
+"Now, I'll discuss military control," Ma Qianzhu continued.
 
-Military was transmigrators' tool—tools mustn't bite masters. So current Military Department's independent operation must change. Once New Army was established, new military systems must be implemented. When New Army exceeded 500—outnumbering transmigrators—effective control was essential. His suggestions:
+The military was the transmigrators' tool, and tools must not bite their masters. Therefore, the Military Department's current independent operation had to change. Once the New Army was established, new military systems had to be implemented. When the New Army exceeded 500 men—outnumbering the transmigrators—effective control was essential.
 
-When New Army was established, Military Group's original personnel would be preserved as trainers and monitors. Building New Army needed officers—so halve scale to 20 as Internal Guard with modern weapons. Other 30 would enter New Army as officers—forming one training battalion.
+He offered his suggestions:
 
-Once New Army matured, Military Department's armed forces' mission ends. Except Internal Guard—everyone joins New Army. All subsequent military operations by New Army.
+When the New Army was established, the Military Group's original personnel would be preserved as trainers and monitors. Building the New Army required officers, so the group would halve its scale to twenty men serving as an Internal Guard armed with modern weapons. The other thirty would enter the New Army as officers, forming one training battalion.
 
-New Army would primarily use 19th-century weapons and cold arms. Initially: Minié ball muzzle-loading rifles and spears. Rifle-spear ratio: 1:1 for now. First New Army: 500 troops forming one battalion; plus one artillery company with 9 smoothbore cannons. If modern weapons needed for combat—apply to Committee; Internal Guard would issue.
+Once the New Army matured, the Military Department's direct armed mission would end. Except for the Internal Guard, everyone would join the New Army structure. All subsequent military operations would be conducted by the New Army.
 
-Military Committee would establish General Staff with Army and Navy branches. General Staff commanded Army-Navy—but not Internal Guard. Military Committee handled Internal Guard's training and supply—but not command. Executive Committee directly controlled Internal Guard.
+The New Army would primarily use 19th-century weapons and cold steel. Initially, this meant Minié ball muzzle-loading rifles and spears. The rifle-to-spear ratio would be 1:1 for now. The first New Army unit would be 500 troops forming one battalion, plus one artillery company with nine smoothbore cannons. If modern weapons were needed for combat, they would have to apply to the Committee, and the Internal Guard would issue them.
 
-Military wasn't for internal conflict. Internal Guard's mission: maintain order, protect government organs, guard important materials. Also controlled modern weapons.
+The Military Committee would establish a General Staff with Army and Navy branches. The General Staff would command the Army and Navy but not the Internal Guard. The Military Committee would handle the Internal Guard's training and supply but not its command. The Executive Committee would directly control the Internal Guard.
 
-General Staff would establish independent military intelligence department for intelligence collection and reconnaissance.
+The military was not for internal conflict. The Internal Guard's mission was to maintain order, protect government organs, and guard important materials. It would also control the stockpile of modern weapons.
 
-Military logistics: temporarily no independent department. Executive Committee commissioned specialized departments; Planning Committee coordinated allocation.
+The General Staff would establish an independent military intelligence department for intelligence collection and reconnaissance.
 
-Damei and Salt Village militia plans would continue—extending to Bairren Commune. Early stage: backbone militia system—one-in-three conscription. Transmigrators would train rotating village militia. Militia weapons: captured cold arms, old muskets, blunderbusses, and standard 6-pounder smoothbores (for village defense). With industrial capacity, backbone militia could receive Minié rifles.
+For military logistics, there would be no independent department temporarily. The Executive Committee would commission specialized departments, and the Planning Committee would coordinate allocation.
 
-Transmigrators lacked formal naval forces—only fishing boats for patrol. Fuel and parts limitations meant minimizing modern boat usage. Given pirates' southeastern dominance and unlikely cooperation, short-term priority: fortify Bopu as naval base. Army would support Navy's shore batteries, stationing defense forces at naval base. Navy would build battery at Lingao Point's sea entrance—protecting harbor and shipyard.
+The militia plans for Damei and the Salt Village would continue, extending to the Bairren Commune. The early stage would utilize a backbone militia system with one-in-three conscription. Transmigrators would train a rotating village militia. Militia weapons would consist of captured cold arms, old muskets, blunderbusses, and standard 6-pounder smoothbores for village defense. With sufficient industrial capacity, the backbone militia could eventually receive Minié rifles.
 
-Zhang Bailin blinked: meaning you're coming begging for cannons.
+The transmigrators lacked formal naval forces, possessing only fishing boats for patrol. Fuel and parts limitations meant minimizing the use of modern boats. Given the pirates' dominance in the southeast and the unlikelihood of cooperation, the short-term priority was to fortify Bopu as a naval base. The Army would support the Navy's shore batteries, stationing defense forces at the naval base. The Navy would build a battery at the sea entrance of Lingao Point to protect the harbor and shipyard.
 
-After Navy's establishment, Fishery Production Group would dissolve into Navy. Fishing remained Navy's primary mission—so Navy would be dual-led by General Staff and Agricultural Committee. Bopu Fish Processing Factory remained Agricultural Committee's. Naval recruitment and training would be Army's responsibility—later independent.
+Zhang Bailin blinked: *This means you're coming to beg for cannons.*
 
-To unify maritime forces and avoid multi-management: "everything floating is Navy's" policy. Whether from original timespace or locally captured or purchased—regardless of current use—all ships under Navy management.
+After the Navy's establishment, the Fishery Production Group would be dissolved into the Navy. Fishing would remain the Navy's primary mission, so the Navy would be dual-led by the General Staff and the Agricultural Committee. The Bopu Fish Processing Factory would remain under the Agricultural Committee. Naval recruitment and training would initially be the Army's responsibility, becoming independent later.
+
+To unify maritime forces and avoid split management, a "everything floating is Navy's" policy was adopted. Whether the vessel came from the original timespace or was locally captured or purchased—regardless of its current use—all ships would be under Navy management.
 
 **(End of Chapter)**

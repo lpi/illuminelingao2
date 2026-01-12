@@ -24,7 +24,7 @@ Those exiting the vehicle wore the same attire as before—nothing special. Then
 
 The interpreter Xiong Buyou's Lingao dialect sounded odd to Zhang Xingfu, but the meaning was clear. Xi Yazhou explained they weren't pirates but overseas Chinese merchants in industry and trade, now returning to start businesses—*We've become "sea turtles" when?* Xiao Zishan thought, inwardly amused. Since arriving in Lingao, they'd never disturbed commoners or opposed the government. Then his tone grew stern: he accused local "evil gentry" of groundlessly organizing militia attacks, causing losses. They'd acted in forced self-defense and reserved freedom to take further action.
 
-Zhang Xingfu could only meekly agree, praising their non-disturbance of civilians. He presented the gift list: 100 *liang* silver, 8 bolts red satin, 20 bolts assorted silk, 20 bolts Songjiang cotton, 10 *shi* of grain (coarse and fine), 2 pigs, 4 suckling pigs, 1 soup deer, 200 *jin* wine. Xi Yazhou took the list, passed it to those behind him. Finding everything useful, he smiled:
+Zhang Xingfu could only meekly agree, praising their non-disturbance of civilians. He presented the gift list: one hundred *liang* silver, eight bolts red satin, twenty bolts assorted silk, twenty bolts Songjiang cotton, ten *shi* of grain (coarse and fine), two pigs, four suckling pigs, one Sambar deer, two hundred *jin* wine. Xi Yazhou took the list, passed it to those behind him. Finding everything useful, he smiled:
 
 "We're building here, disturbing the locality. How dare we accept such generous gifts? But refusing would slight the gentry's goodwill. So we must accept everything. Truly—refusing would be impolite, accepting feels undeserved."
 
@@ -38,7 +38,7 @@ So when Xi Yazhou returned, he directly agreed that villages could send people a
 
 Zhang Xingfu hadn't expected to settle everything in one visit. Seeing them readily agree to body retrieval and even release prisoners—clearly giving him face—remaining matters probably wouldn't be difficult, just price-haggling. That didn't worry him—gentry would bear costs; his commission wouldn't shrink. And he'd establish relations with these shaven-heads—he already sensed these pirates were unlike any he'd dealt with before.
 
-Before leaving, per Wen Desi's instructions, Xi Yazhou gave Zhang Xingfu a freshwater pearl necklace originally priced at 25 RMB, and gave each porter 50 *wen* tip. Everyone high and low was satisfied with this strange group.
+Before leaving, per Wen Desi's instructions, Xi Yazhou gave Zhang Xingfu a freshwater pearl necklace originally priced at 25 RMB, and gave each porter fifty *wen* tip. Everyone high and low was satisfied with this strange group.
 
 Magistrate Wu and all city officials and gentry anxiously awaited Zhang Xingfu's report. When he returned that afternoon, word was the shaven-heads would return bodies and release some prisoners. Hearing Zhang Xingfu describe the leaders as steady, plain people without bandit airs—all were surprised.
 

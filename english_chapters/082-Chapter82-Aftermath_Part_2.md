@@ -74,10 +74,10 @@ Each group would be issued one SKS rifle as group equipment. This way, everyone 
 
 Using these groups as basic units, weekly time would be allocated for military training, improving coordination. Next, Beiwei introduced a new training plan: **"Hunting."**
 
-"Each time, Military Group sends 5 people, plus 2–3 regular groups." He explained the plan in detail. "Breaking our current pattern of only operating along the Wenlan River, we push reconnaissance into various directions' depths, correcting maps, surveying resources—"
+"Each time, Military Group sends five people, plus two to three regular groups." He explained the plan in detail. "Breaking our current pattern of only operating along the Wenlan River, we push reconnaissance into various directions' depths, correcting maps, surveying resources—"
 
 Groups would capture individuals or small groups of transmigrators, and when necessary, attack local armed personnel. Through combat, they'd temper the team—fighting while marching was closer to real combat than marching drills and target practice at base. They'd spread transmigrator authority to every county corner, letting commoners know of their arrival, spreading necessary terror.
 
-This plan obviously reeked of blood. But the Moderate faction decided not to oppose it—after all, 21 wounded was reality. If they vetoed this, the Aggressive faction would inevitably reintroduce the proposal to attack the county seat. Given current emotions, moderates didn't think they'd win the vote. Finally, the Steady faction agreed to the "Hunting" plan as a compromise for the Aggressive faction dropping the county-seat attack proposal.
+This plan obviously reeked of blood. But the Moderate faction decided not to oppose it—after all, twenty-one wounded was reality. If they vetoed this, the Aggressive faction would inevitably reintroduce the proposal to attack the county seat. Given current emotions, moderates didn't think they'd win the vote. Finally, the Steady faction agreed to the "Hunting" plan as a compromise for the Aggressive faction dropping the county-seat attack proposal.
 
 **(End of Chapter)**

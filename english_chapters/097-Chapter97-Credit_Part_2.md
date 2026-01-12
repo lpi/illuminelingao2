@@ -1,8 +1,8 @@
 # Chapter 97: Credit (Part 2)
 
-Work-point voucher statistics from the first issuance and recovery were quickly compiled: 815.3 points issued, 334 points recovered—40% same-day recovery. First-time recipients eager to convert to goods was understandable. Over the next few days, remaining tokens gradually returned, but much slower than expected. Wu Nanhai breathed relief—on issuance day, he'd consumed about 60 extra kilograms of rice and grains.
+Work-point voucher statistics from the first issuance and recovery were quickly compiled: 815.3 points issued, 334 points recovered—a 40% same-day recovery. First-time recipients eager to convert to goods was understandable. Over the next few days, remaining tokens gradually returned, but much slower than expected. Wu Nanhai breathed relief—on issuance day, he'd consumed about 60 extra kilograms of rice and grains.
 
-But work-point voucher credit was basically established. Though some remained skeptical, these paper slips genuinely bought extra food from the food-cart daily. Next, Wu Nanhai began selling locally-produced rice wine—5 points per 250g bottle. To prevent drunken incidents, weekly sales, one bottle per person limit. But sales were surprisingly poor—puzzling Wu Nanhai. This batch was from Zhang Xingfu's prisoner-affairs tribute; he'd specifically asked prisoners, who all said it was the county's better rice wine.
+But work-point voucher credit was basically established. Though some remained skeptical, these paper slips genuinely bought extra food from the food cart daily. Next, Wu Nanhai began selling locally-produced rice wine—5 points per 250g bottle. To prevent drunken incidents, weekly sales were limited to one bottle per person. But sales were surprisingly poor—puzzling Wu Nanhai. This batch was from Zhang Xingfu's prisoner-affairs tribute; he'd specifically asked prisoners, who all said it was the county's better rice wine.
 
 If it was quality, why such low sales? After weeks of working with the Production Team, he could now roughly communicate in a Lingao-Mandarin hybrid. Most answered: "Too expensive—can't afford."
 
@@ -10,11 +10,11 @@ Hearing this, Wu De laughed happily: "Good news."
 
 "What's good about it?" Wu Nanhai had hoped wine would reclaim some vouchers, reducing grain consumption.
 
-"It means they recognize voucher value!" Wu De said. "They think it's money now—that's why they feel this way. If this were 1949 Gold Yuan Certificates, would anyone care about prices? Just being able to buy anything would be enough."
+"It means they recognize the voucher's value!" Wu De said. "They think it's money now—that's why they feel this way. If these were 1949 Gold Yuan Certificates, would anyone care about prices? Just being able to buy anything would be enough."
 
 Wu Nanhai suddenly understood, chuckling ruefully. He'd never considered this.
 
-"You didn't think from their perspective—many here haven't either. Assuming these people should naturally trust voucher value." Wu De smiled wryly. "It's all about what you think they should do, what I think they should do. Right? Everyone forgets these are living people too—each with their own calculations. Why should they easily trust you?"
+"You didn't think from their perspective—and many here haven't either, assuming these people should naturally trust the voucher's value." Wu De smiled wryly. "It's all about what you think they should do, what I think they should do. Right? Everyone forgets these are living people too—each with their own calculations. Why should they easily trust you?"
 
 "True."
 
@@ -22,7 +22,7 @@ Wu Nanhai suddenly understood, chuckling ruefully. He'd never considered this.
 
 "Come in."
 
-The new Production Team captain wore brand-new homespun clothes—styled after transmigrator training uniforms. Handiwork was rough, but fit reasonably well.
+The new Production Team captain wore brand-new homespun clothes styled after transmigrator training uniforms. The handiwork was rough, but they fit reasonably well.
 
 "What is it?"
 
@@ -30,11 +30,11 @@ The new Production Team captain wore brand-new homespun clothes—styled after t
 
 "Go on."
 
-Lin Xing knelt and kowtowed before speaking. Many Production Team members were tenant farmers; they'd been away over a month now. Autumn harvest was imminent; many worried that without returning to harvest, their families lacked labor, couldn't gather grain, couldn't pay rent—if landlords evicted them, the whole family would starve.
+Lin Xing knelt and kowtowed before speaking. Many Production Team members were tenant farmers; they'd been away over a month now. The autumn harvest was imminent, and many worried that without returning to harvest, their families would lack labor, couldn't gather grain, and couldn't pay rent—if landlords evicted them, the whole family would starve.
 
 "Everyone chose me to beg the Master's mercy—let everyone return to see family, finish this season's farmwork, then come back." Lin Xing kowtowed again.
 
-Wanting to go home? Not surprising to Wu De. Unattached singles were minority; most Production Team members owned no land but had families—impossible to abandon. Such thoughts were completely reasonable.
+Wanting to go home? It wasn't surprising to Wu De. Unattached singles were a minority; most Production Team members owned no land but had families—impossible to abandon. Such thoughts were completely reasonable.
 
 But once released, would they return? Wu De wasn't certain. From gathered intelligence on laborer attitudes, most felt working here was similar to laboring for landlords; after implementing work-points, enthusiasm had increased. But how many would work for them long-term and permanently?
 
@@ -42,7 +42,7 @@ He hesitated, first dismissing Lin Xing.
 
 "This is difficult to handle." Wu Nanhai also found it challenging. "Request instructions from the Committee?"
 
-That evening, the Committee held an expanded meeting specifically to discuss letting laborers go home for farming. Many professional groups opposed—especially Industrial Committee groups entering the construction-installation peak. Losing this labor would greatly slow progress. The brick-kiln's new cement vertical-kiln project already lacked labor; suddenly releasing a hundred trained workers would create an impossible gap.
+That evening, the Committee held an expanded meeting specifically to discuss letting laborers go home for farming. Many professional groups opposed it—especially Industrial Committee groups entering the construction-installation peak. Losing this labor would greatly slow progress. The brick-kiln's new cement vertical-kiln project already lacked labor; suddenly releasing a hundred trained workers would create an impossible gap.
 
 Wu De was torn: releasing them clearly hurt current production; not releasing, when Lin Xing specifically came to petition, showed this issue had strong sentiment in the Production Team. Not releasing would severely lose hard-won hearts.
 
@@ -52,7 +52,7 @@ Unable to decide, he described all his thoughts and concerns. Finally, he said: 
 
 "So we should be despicable?"
 
-"Save it." The other immediately retorted. "What did we come here for? Don't pretend you're all here for communist ideals or bringing democracy and freedom to Chinese people. Honestly, everyone came for wealth and lolis, right?" He scanned attendees. "I'm sick of this inexplicable benevolence-righteousness-propriety-wisdom-faithfulness bullshit. Conquer Lingao, grab everyone for labor; not enough, take villages one by one. We'll soon mass-produce explosives—yet we cower here discussing credit with natives. Ridiculous beyond ridiculous."
+"Save it," the other immediately retorted. "What did we come here for? Don't pretend you're all here for communist ideals or bringing democracy and freedom to the Chinese people. Honestly, everyone came for wealth and lolis, right?" He scanned attendees. "I'm sick of this inexplicable benevolence-righteousness-propriety-wisdom-faithfulness bullshit. Conquer Lingao, grab everyone for labor; not enough, take villages one by one. We'll soon mass-produce explosives—yet we cower here discussing credit with natives. Ridiculous beyond ridiculous."
 
 "Enslavement can't build anything lasting..."
 
@@ -86,7 +86,7 @@ Xiao Bailang deflated. Wen Desi silently thanked luck—honestly, continuing thi
 
 "Everyone, stop arguing. Please focus on the topic. How can we maximize our interests while ensuring our environment remains stable long-term?"
 
-This set the tone for subsequent discussion. Various others expressed views—some agreeing, some not. Roughly half-and-half. All explained their reasoning from different angles. Finally, the Committee decided to vote. Results: those supporting release slightly prevailed.
+This set the tone for the subsequent discussion. Various others expressed views—some agreeing, some not. It was roughly half-and-half. All explained their reasoning from different angles. Finally, the Committee decided to vote. Results: those supporting release slightly prevailed.
 
 Leaving the conference room, Wu De felt drenched in cold sweat. He wanted to release them—but whether outcomes would match his expectations was uncertain. After all, between him and these 17th-century natives lay 400 years of history.
 

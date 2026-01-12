@@ -1,10 +1,10 @@
 # Chapter 185: Diana Mendoza
 
-Interrogation began.
+The interrogation began.
 
-The first brought up was a thirty-something burly man, dark-faced, rough hands and feet—clearly an old sea dog with years of maritime living. Based on his clothing and personal effects and silver, he was probably a leader-level figure.
+The first prisoner brought in was a burly man in his thirties with a dark face and rough hands and feet—clearly an old sea dog with years of maritime living. Based on his clothing, personal effects, and silver, he was probably a leader.
 
-Just asked where he was from, he started yelling: "Villains! Villains! Boss Zhu will deal with you eventually!"
+When asked where he was from, he started yelling: "Villains! Villains! Boss Zhu will deal with you eventually!"
 
 Seeing Dugu Qiuhun sharpening his blade nearby, this man sneered.
 
@@ -12,11 +12,11 @@ Seeing Dugu Qiuhun sharpening his blade nearby, this man sneered.
 
 Dugu Qiuhun raged, grabbing his stun baton.
 
-"No hurry." Ran Yao stopped Dugu, leisurely opening his notebook:
+"No hurry." Ran Yao stopped Dugu, leisurely opening his notebook.
 
 "Name?"
 
-"Walk without changing name, sit without changing surname—Han Yiping!"
+"I don't change my name no matter where I go—Han Yiping!"
 
 "Gender?"
 
@@ -70,9 +70,9 @@ Dugu Qiuhun raged, grabbing his stun baton.
 
 ...
 
-After 4 hours of uninterrupted relay questioning, Han Yiping's mouth was pried open. On the 25th time answering "Who's your gang leader," he finally said "Liu Xiang."
+After four hours of uninterrupted relay questioning, Han Yiping's mouth was pried open. On the twenty-fifth time answering "Who's your gang leader," he finally said "Liu Xiang."
 
-He still tried denying after being caught on this, but under continuous bombardment, he finally completely broke down mentally.
+He still tried denying it after being caught, but under continuous bombardment, he finally broke down completely.
 
 Once a person submits and confesses, they tell everything. Han Yiping quickly revealed all he knew.
 

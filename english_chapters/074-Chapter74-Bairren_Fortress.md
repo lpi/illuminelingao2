@@ -1,8 +1,8 @@
 # Chapter 74: Bairren Fortress
 
-In the following days, Fu Youdi swiftly completed his transformation from honest farmer to petty tyrant. To his peasant mind, "a third for the middleman" was natural law.
+In the following days, Fu Youdi swiftly completed his transformation from honest farmer to petty tyrant. To his peasant mind, "skimming off the top" was natural law.
 
-At first, he just scooped himself more of the thick stuff, the meat, when distributing meals. Then he was also given work assignments. Wu De only told them daily quotas—not how to divide the work. So Fu Youdi assigned everything to the other four, doing almost nothing himself. Some resisted, also slacking; Fu Youdi didn't dare intervene then. But at mealtime, the power of food allocation showed—those who'd slacked got nothing but thin soup from the top. Wang Tian, also a local native, got along with him, becoming the favored one—less work, more food. The other three became victims: more work, less food. One evening at dinner, a small conflict erupted. Lin Xing led a revolt, knocking Fu Youdi face-first into the mud. Wu De didn't intervene in the rights and wrongs—he just had everyone involved lashed 50 times. Lin Xing, who struck first, got 100.
+At first, he just scooped himself more of the thick stuff, the meat, when distributing meals. Then he was also given work assignments. Wu De only told them daily quotas—not how to divide the work. So Fu Youdi assigned everything to the other four, doing almost nothing himself. Some resisted, also slacking; Fu Youdi didn't dare intervene then. But at mealtime, the power of food allocation showed—those who'd slacked got nothing but thin soup from the top. Wang Tian, also a local native, got along with him, becoming the favored one—less work, more food. The other three became victims: more work, less food. One evening at dinner, a small conflict erupted. Lin Xing led a revolt, knocking Fu Youdi face-first into the mud. Wu De didn't intervene in the rights and wrongs—he just had everyone involved lashed fifty times. Lin Xing, who struck first, got one hundred.
 
 Undoubtedly, that night the five prisoners' burning buttocks matched burning mutual hatred. Fu Youdi abandoned all pretense. He began openly shouting at Lin Xing, shamelessly skimming rations. The conflict deepened. Per Wu De's observation, the five split into three factions: Fu Youdi drew Wang Tian to his side; Lin Xing tried to resist; both tried to recruit the two neutral bystanders. Wu De sometimes deliberately created friction—citing poor work or inadequate cleaning—cutting rations. When one person's mistake starved everyone, mutual blame deepened their divisions.
 
@@ -14,7 +14,7 @@ Wu De chuckled. This outcome wasn't at all surprising. Human nature in the 17th 
 
 Wu De's new assignment was just a small episode in daily work. Though later seen as significant, at the time few paid attention. All focus was on highway construction progress.
 
-Except for minor leveling and shaping done by hand, the entire route used mechanized construction. The Building Group grew increasingly proficient at organizing work. By D+6—the seventh day of the ninth lunar month in the first year of Chongzhen, October 3, 1628—the full 12-kilometer Bopu–Bairren Rapids simple highway was completed, one day later than the Committee demanded. Though the terrain from Bairren Rapids to Bopu appeared level, there was actually slight gradient. The highway wasn't straight but gently curved.
+Except for minor leveling and shaping done by hand, the entire route used mechanized construction. The Building Group grew increasingly proficient at organizing work. By D+6—the seventh day of the ninth lunar month in the first year of Chongzhen, October 3, 1628—the full twelve-kilometer Bopu–Bairren Rapids simple highway was completed, one day later than the Committee demanded. Though the terrain from Bairren Rapids to Bopu appeared level, there was actually slight gradient. The highway wasn't straight but gently curved.
 
 The fortified posts along the highway were retained. In the future, they'd be expanded and hardened into small fortresses to protect the road.
 
@@ -22,19 +22,19 @@ As for Bairren Rapids itself—it would become the transmigrators' first city in
 
 The Building Group had already given this new city a simple, apt name: "Bairren Fortress."
 
-"Has a martial-arts-novel feel." Mei Wan stood spiritedly at Bairren Rapids' cliff edge. This was the spot where the 21st-century hydroelectric station's overflow dam stood. The drop to the powerhouse was about 16 meters. The Wenlan River made a sharp turn here. Nine rocky levels formed Bairren Rapids' sloping cascade—fast-flowing, thundering—the famous "Bairren Rapids Sound," audible for over twenty *li* around.
+"Has a martial-arts-novel feel." Mei Wan stood spiritedly at Bairren Rapids' cliff edge. This was the spot where the 21st-century hydroelectric station's overflow dam stood. The drop to the powerhouse was about sixteen meters. The Wenlan River made a sharp turn here. Nine rocky levels formed Bairren Rapids' sloping cascade—fast-flowing, thundering—the famous "Roar of Bairren Rapids," audible for over twenty *li* around.
 
 "Lord of Bairren Fortress!" Yan Quezhi waved his ranging pole, striking a pose. Several others also threw a few kung-fu gestures.
 
 "Is the master plan done?"
 
-"Done." Li Xiaolü unrolled a 1:1000 master-plan map. For this "base conveying the 21st century's torch of civilization," everyone from the Building Group to various Committee departments had offered views and suggestions. Li Xiaolü synthesized them, deciding to design according to late-1970s "socialist new countryside" planning concepts. There'd been specialized designs for "commune headquarters"-level townships—considering administration, education, small industry, and agricultural production buildings—a city-rural hybrid, balancing industry, agriculture, and sidelines in a new rural residential model.
+"Done." Li Xiaolu unrolled a 1:1000 master plan. For this "base conveying the 21st century's torch of civilization," everyone from the Building Group to various Committee departments had offered views and suggestions. Li Xiaolu synthesized them, deciding to design according to late-1970s "socialist new countryside" planning concepts. There'd been specialized designs for "commune headquarters"-level townships—considering administration, education, small industry, and agricultural production buildings—a city-rural hybrid, balancing industry, agriculture, and sidelines in a new rural residential model.
 
 Bairren Fortress's plan spread along both banks of the Wenlan River. Main city district and hydroelectric zone on the east bank; heavy industry on the west.
 
 The hydroelectric zone would hold the power station and water treatment plant. In the future, a small inland wharf and warehouse would be added.
 
-The main city was about 100 meters from the riverside hydroelectric zone. This plot had lower groundwater and good soil-bearing capacity. The entire surface sloped about 4% from south to north—natural drainage sufficient for rainwater.
+The main city was about one hundred meters from the riverside hydroelectric zone. This plot had lower groundwater and good soil-bearing capacity. The entire surface sloped about 4% from south to north—natural drainage sufficient for rainwater.
 
 At the main city's southern end was the water supply station. With the gradient, piped water needed no pressurization—a simple water tower could supply the whole city.
 
@@ -42,7 +42,7 @@ The main city was zoned by function:
 
 **Administrative Zone** — central area, along the north-south main road, government institutions arranged in sequence.
 
-**Cultural/Educational/Health Zone** — east of the administrative zone; planned schools, clinic, library, simple stadium and club.
+**Culture, Education, and Health Zone** — east of the administrative zone; planned schools, clinic, library, simple stadium and club.
 
 **Residential Zone** — northeastern area, largest footprint. Though simple dormitories didn't need this much space, considering all 500+ would eventually form families—possibly large ones—land was reserved generously.
 

@@ -1,18 +1,18 @@
 # Chapter 98: Li Minority Work (Part 1)
 
-After announcing twenty days' farm-leave, the entire camp erupted in joy. Many asked Wu Nanhai if they could buy raw rice instead of cooked—wanting to bring it home. He readily agreed, selling at the rice-bowl rate: 1 point per 100g mixed rice. Salted fish sales also surged. Except for the homeless who'd committed to staying, nearly all workers spent every last voucher.
+After announcing twenty days' farm-leave, the entire camp erupted in joy. Many asked Wu Nanhai if they could buy raw rice instead of cooked, wanting to bring it home. He readily agreed, selling at the rice-bowl rate: 1 point per 100g mixed rice. Salted fish sales also surged. Except for the homeless who'd committed to staying, nearly all workers spent every last voucher.
 
-Wu De said little—only that they must return on time. Anyone late must send word; otherwise, lateness meant double-penalty in point-deductions. Also, he had workers spread word to villages: anyone wanting to trade or work here was welcome—their persons and property guaranteed safe.
+Wu De said little—only that they must return on time. Anyone late must send word; otherwise, lateness meant a double penalty in point-deductions. Also, he had workers spread word to villages: anyone wanting to trade or work here was welcome—their persons and property guaranteed safe.
 
-Next day at dawn, workers left in small groups, bundles on backs wrapped in rattan and rags—salted fish and rice inside—happily departing. Some from the same village traveled together. Wu Nanhai watched their figures fade into morning mist, sighing—*birds with nests can't be domesticated.* Training new farmers would require starting with orphans.
+The next day at dawn, workers left in small groups, with bundles on their backs wrapped in rattan and rags—salted fish and rice inside—happily departing. Some from the same village traveled together. Wu Nanhai watched their figures fade into morning mist, sighing—*birds with nests can't be domesticated.* Training new farmers would require starting with orphans.
 
-Just thinking this, he spotted Zhang Xingjiao also carrying a small bundle, walking slowly outward with a wooden stick. He called: "Mr. Zhang going back too?"
+Just thinking this, he spotted Zhang Xingjiao also carrying a small bundle, walking slowly outward with a wooden stick. He called, "Mr. Zhang going back too?"
 
 Zhang Xingjiao had learned decent Mandarin by now—he'd already known some official speech. Hearing Wu Nanhai's question, he quickly bowed: "Chief Wu, I'm going back briefly—four or five days."
 
 "Family there?" Wu Nanhai had heard from Wu De about his tragic background—no home, nothing left.
 
-Zhang Xingjiao smiled bitterly: "What relatives would I have?" He touched his bundle. "When I was in trouble, some kind villagers looked after me. Thanks to the Masters' generosity—given so much—I'll bring these back as thanks. After this, I'm a dead man's servant. Wherever the Masters go, I follow..."
+Zhang Xingjiao smiled bitterly. "What relatives would I have?" He touched his bundle. "When I was in trouble, some kind villagers looked after me. Thanks to the Masters' generosity—having given so much—I'll bring these back as thanks. After this, I'm a dead man's servant. Wherever the Masters go, I follow..."
 
 *A man of loyalty indeed.* Wu Nanhai studied this Ming scholar—tattered robe, head shaved bald per regulations, now topped with a worn hat. Gray complexion, bewildered expression. Clearly, "joining the rebels" was still reluctant necessity for him.
 
@@ -40,21 +40,21 @@ Mu Min, who'd assisted Guo Yi's interrogations, volunteered for this task. Reaso
 
 Her Li knowledge easily dispelled the eight prisoners' wariness, getting them to reveal local Li affairs.
 
-All spoke Chinese—transmigrators surmised they were "cooked Li": registered, tax-paying Li subjects. Many such Li lived in Hainan's counties. Through conversation, Mu Min learned they called themselves "Bupei Li" *(note: this was indeed the Lingao County cooked-Li self-designation)*, heavily sinicized, speaking Qiongzhou dialect—Hainanese—which served as the island's lingua franca. They used Han surnames. Per their account, thirty had come; the county's summons had promised each 20 *jin* of salt.
+All spoke Chinese; the transmigrators surmised they were "cooked Li": registered, tax-paying Li subjects. Many such Li lived in Hainan's counties. Through conversation, Mu Min learned they called themselves "Bupei Li" *(note: this was indeed the Lingao County cooked-Li self-designation)*, heavily sinicized, speaking Qiongzhou dialect—Hainanese—which served as the island's lingua franca. They used Han surnames. Per their account, thirty had come; the county's summons had promised each 20 *jin* of salt.
 
-Questioning revealed most had some land, but yields far lower than Han fields. Most also rented land from *dong* chiefs (village heads), did odd jobs. In idle times, they hunted in mountains or gathered red-and-white rattan to sell at markets for salt, rice, tools. But reaching Han areas meant passing inspection checkpoints—worse, road military camps: light cases meant extorted tolls; heavy cases meant goods seized, lives lost. Most lived very hard.
+Questioning revealed most had some land, but yields were significantly lower than Han fields. Most also rented land from *dong* chiefs (village heads) and did odd jobs. In idle times, they hunted in the mountains or gathered red and white rattan to sell at markets for salt, rice, and tools. But reaching Han areas meant passing inspection checkpoints—worse, road military camps: light cases meant extorted tolls; heavy cases meant goods seized, lives lost. Most lived very hard.
 
 Roads to Li areas had not just checkpoints but military posts—this news caught Committee attention. Clearly Ming troops were stationed in Lingao, though their mission was defending against Li. From conversations, Mu Min sensed local Li harbored considerable grudges against the government. Thirty years ago, after the Tinan Village uprising, government troops had raided Li areas, indiscriminately killing many. They also hated Han peddlers at markets—mountain goods fetched little; even a wild boar earned only 2–3 *jin* of salt. They loved Han iron tools, but prices were absurd—several large baskets of grain for one sickle. Only *dong* chiefs and wealthy landlords could afford them.
 
 Mu Min's report showed the Committee that Hainan's ethnic issues were far more complex than imagined. Some proposed exploiting Li resentment toward government and military—using these eight prisoners to send teams deep into Li areas to mobilize masses. This would gain allies and a soldier-recruitment base. Since they often couldn't even get salt, recruiting soldiers would be much easier. Many in Military Group endorsed this, especially Wei Aiwen, who proposed recruiting Li and Miao warriors to form a mountain infantry battalion, enthusiastically promoting this idea. Establishing a local native army was clearly attractive. Since local Han feared "joining rebels," recruiting Li who didn't respect government authority—even harbored grudges—would be much easier.
 
-"Give them some captured weapons, arm all the Li—then Ming troops can't touch us." Wei Aiwen promoted his comprehensive plan. "We could also help remove some checkpoints leading to Li areas, annihilate those Ming soldiers—that would earn their complete trust." He volunteered as Li-area task-force leader.
+"Give them some captured weapons, arm all the Li—then Ming troops can't touch us," Wei Aiwen said, promoting his comprehensive plan. "We could also help remove some checkpoints leading to Li areas, annihilate those Ming soldiers—that would earn their complete trust." He volunteered as Li-area task-force leader.
 
 This bold plan was immediately opposed by all. Historically, Han-Li conflicts had economic and political factors, but years of mutual slaughter had created deep ethnic hatred. Current peace had lasted thirty years; transmigrators breaking—even provoking—it would be extremely dangerous, potentially plunging all Hainan into social chaos. Not yet stable, as a small-population transmigrator nation, even with Zentradi-level technology, they couldn't survive that.
 
 After discussion, everyone agreed: best to keep Li relations on a friendly footing—friendly meaning neither hostile nor allied. Open a trade route, exchange goods mutually. Try recruiting some Li soldiers.
 
-With this tone set, a trading party was assembled. Leader: Lu Rong—a Guangxi native who spoke Hakka, Hainanese, Cantonese, Lei, Zhuang, Min, and Southwest Mandarin dialects. Sales background, eloquent, outdoor enthusiast, knew some martial arts, had just returned from long-range reconnaissance-survey teams with local wilderness experience—very suited for this work.
+With this tone set, a trading party was assembled. The leader was Lu Rong, a Guangxi native who spoke Hakka, Hainanese, Cantonese, Lei, Zhuang, Min, and Southwest Mandarin dialects. He had a sales background, was eloquent, an outdoor enthusiast, knew some martial arts, and had just returned from a long-range reconnaissance survey team with local wilderness experience—very suited for this work.
 
 Mu Min went as "ethnic advisor." Wei Aiwen, as the recruitment plan's main advocate, also joined.
 
@@ -62,7 +62,7 @@ The twenty-person team each carried SKS rifles, machetes, and camping packs. Sur
 
 The Foreign Affairs and Commerce Committee prepared gifts and barter goods. Knowing Li areas lacked salt, the bulk was refined salt they'd brought, plus some novelties—they'd be dealing with *dong* chiefs, not poor commoners, so fancy-tech items were needed to impress.
 
-"We killed over twenty of their people—shouldn't we compensate? Give each family some silver." Wei Aiwen remembered. "I recall among minorities, killings can be settled through blood-money payment."
+"We killed over twenty of their people—shouldn't we compensate? Give each family some silver," Wei Aiwen said, remembering something. "I recall among minorities, killings can be settled through blood-money payment."
 
 "Unnecessary." Xiao Zishan objected. "First understand cause and effect—they joined the militia to attack us first. Releasing prisoners is already friendly enough—pay blood-money too? Please, we're not the Qing—winning battles then paying indemnities and ceding territory."
 

@@ -1,8 +1,8 @@
 # Chapter 77: Telecommunications
 
-Construction of transmigrator housing also commenced. Compared to previous infrastructure projects, this was simpler—prefab buildings were assembled like blocks, not difficult to build.
+Construction of transmigrator housing also commenced. Compared to previous infrastructure projects, this was simpler—prefab buildings were assembled like blocks—not difficult to build.
 
-The residential zone's foundation was raised 2 meters—first, to protect against possible floods; second, for defensive advantage if attacked. The entire foundation's slopes were stone-faced; the surface was hardened. The prefabs used the block-layout common in new villages—all buildings uniformly oriented north-south, arranged around a central plaza in seven clusters, numbered clockwise in Arabic numerals. Clusters One through Five were male singles dormitories; Cluster Six female singles; Cluster Seven for families. Each singles unit housed 4 people; families got one unit each. As originally planned, interiors were fitted for comfort: electric lights, power outlets—though no furniture yet, as lumber had to prioritize infrastructure. Even so, many were delighted—for the first time in over ten days, sleeping in a real room, laptops could finally charge, evenings no longer boring...
+The residential zone's foundation was raised two meters—first, to protect against possible floods; second, for defensive advantage if attacked. The entire foundation's slopes were stone-faced; the surface was hardened. The prefabs used the block-layout common in new villages—all buildings uniformly oriented north-south, arranged around a central plaza in seven clusters, numbered clockwise in Arabic numerals. Clusters One through Five were male singles dormitories; Cluster Six female singles; Cluster Seven for families. Each singles unit housed four people; families got one unit each. As originally planned, interiors were fitted for comfort: electric lights, power outlets—though no furniture yet, as lumber had to prioritize infrastructure. Even so, many were delighted—for the first time in over ten days, sleeping in a real room, laptops could finally charge, evenings no longer boring...
 
 The residential plaza had rows of drying racks installed. The row of buildings at the plaza's north end housed toilets and washrooms. Brand-new flushing toilets were unloaded from ships—not home-style seated toilets, but squatting toilets commonly called "Turkish-style"—the Committee felt fixtures not touching skin were more hygienic. Flushing water came directly from the river, stored in a simple tower behind the toilets. Bairren Fortress began dual-quality water supply from its very founding.
 
@@ -16,9 +16,9 @@ This put great pressure on the Communications Group, which had just received an 
 
 This request was ruthlessly rejected by the Committee. Ma Qianzhu instructed him to establish a communication center at Bairren Fortress ASAP.
 
-The Communications Group's pre-crossing plan actually adopted the now-obsolete PHS system *(known as "xiǎolíngtōng" or "Little Smart" in China)*. In practice, this system wasn't ideal—often a "Hello? Hello? Damn!" situation. But as crossing communication equipment, it had simple structure and low power consumption. As for poor signal—17th-century air had no radio interference, no towering buildings or high-voltage lines.
+The Communications Group's pre-crossing plan actually adopted the now-obsolete PHS system (known as "Little Smart" in China). In practice, this system wasn't ideal—often a "Hello? Hello? Damn!" situation. But as crossing communication equipment, it had simple structure and low power consumption. As for poor signal—17th-century air had no radio interference, no towering buildings or high-voltage lines.
 
-Li Yunxing had brought a discarded local telecom PHS base station and controller, plus 2 laptops, decommissioned telecom servers, various communication cables, interface equipment, communication protocols, and management software—a complete communication management suite. Enough to build a wireless communication network in this timespace.
+Li Yunxing had brought a discarded local telecom PHS base station and controller, plus two laptops, decommissioned telecom servers, various communication cables, interface equipment, communication protocols, and management software—a complete communication management suite. Enough to build a wireless communication network in this timespace.
 
 This PHS base station and controller could support over a thousand handsets within a radius of dozens of kilometers. Adding a few remote modules could extend range further—sufficient for internal base communication for a considerable period.
 
@@ -50,7 +50,7 @@ The PHS launch restored a familiar feeling for everyone. On handset distribution
 
 Someone was creative: "I want 444444."
 
-"Then you might as well get 514514," someone joked. *(Note: 514 sounds like "I want to die" in Mandarin.)*
+"Then you might as well get 514514," someone joked. (Note: 514 creates a homophone for "I want to die" in Mandarin.)
 
 Shao Zong sat behind a desk with a big box on it, shouting: "Don't crowd—one at a time! We're drawing numbers here—no choosing! Whatever you draw, that's yours. Hey hey hey—no taking one, looking, and throwing it back! No manners!"
 
@@ -86,7 +86,7 @@ Seeing the person who'd helped maintain order leaving without a number, he hurri
 
 *Damn—they really learned fast—mastered this game instantly.* Xiao Guo cursed internally, but his face remained utterly sincere: "No problem—just asking casually."
 
-"I'll leak a bit then." Shao Zong felt being too principled was inhuman. "The three of you—the Committee means to treat you differently. Just remember that."
+"I'll spill a bit then." Shao Zong felt being too principled was inhuman. "The three of you—the Committee means to treat you differently. Just remember that."
 
 *Treat differently?* What did that mean? Guo Yi fell into deep thought.
 

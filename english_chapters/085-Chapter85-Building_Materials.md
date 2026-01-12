@@ -6,7 +6,7 @@ Just as the Committee's professional groups were arguing over priority access to
 
 "What's the situation?"
 
-"They say the county conscripted them as crossbowmen. Thirty came; we captured eight." Ran Yao said over the phone. "Also, remember that family that accidentally got involved—"
+"They say the county conscripted them as crossbowmen. Thirty came; we captured eight," Ran Yao said over the phone. "Also, remember that family that accidentally got involved—"
 
 "Yes, the woman's a cop—assigned to you for interrogations."
 
@@ -34,13 +34,13 @@ Brick-and-tile production was quite elaborate. First, excavate raw clay—organi
 
 If transmigrators had to make and fire bricks themselves, efficiency would be unimaginable. But transmigrators had a combined brick-making machine, driven by a locomobile. Blank-making efficiency depended solely on how much raw clay they could excavate.
 
-Mei Wan found earthen round kilns too inefficient, requiring skilled masters for loading—not for manual-reading greenhorns. Fortunately, plenty of ready bricks were available. He started building a 16-chamber rotary kiln.
+Mei Wan found earthen round kilns too inefficient, requiring skilled masters for loading—not for manual-reading greenhorns. Fortunately, plenty of ready bricks were available. He started building a 16-chamber Hoffmann kiln.
 
-Rotary kilns were "Western kilns"—already outdated compared to modern tunnel kilns, but absolutely advanced technology in this timespace.
+Hoffmann kilns were "Western kilns"—already outdated compared to modern tunnel kilns, but absolutely advanced technology in this timespace.
 
-A continuous-production kiln, it could simultaneously load blanks, unload bricks, and clean. The kiln comprised many interconnected small chambers like a ring-shaped tunnel, with many kiln doors around it. All flues connected to a central main flue. Fuel was fed through top loading-holes. Working zones during operation: drying, preheating, firing, and cooling. In a 16-chamber kiln, Chamber 1 is unloading, Chamber 16 already cleaning, Chamber 15 loading; then Chamber 2 can unload, Chamber 1 cleans, Chamber 16 loads. Once ignited, it runs 24 hours continuously—far beyond traditional kilns in efficiency and heat utilization. An ordinary rotary kiln could produce over 50 million bricks annually.
+A continuous-production kiln, it could simultaneously load blanks, unload bricks, and clean. The kiln comprised many interconnected small chambers like a ring-shaped tunnel, with many kiln doors around it. All flues connected to a central main flue. Fuel was fed through top loading-holes. Working zones during operation: drying, preheating, firing, and cooling. In a 16-chamber kiln, Chamber One is unloading, Chamber Sixteen already cleaning, Chamber Fifteen loading; then Chamber Two can unload, Chamber One cleans, Chamber Sixteen loads. Once ignited, it runs twenty-four hours continuously—far beyond traditional kilns in efficiency and heat utilization. An ordinary Hoffmann kiln could produce over 50 million bricks annually.
 
-To save time, while installing machinery and building the rotary kiln, Mei Wan decided to first fire the already air-dried blanks. But loading traditional kilns was skilled work—neither transmigrators nor laborers had done it. News reached the Committee. Intelligence Group's Luo Duo again played his role as "walking encyclopedia"—quickly finding on a computer hard drive an electronic copy of a 1958 pamphlet *Traditional Methods for Making Bricks and Tiles*. Within an hour, this printed booklet was rushed to the kiln site. Laborers stared in amazement as this "pirate craftsman" used a book to teach them kiln-loading—*secrets only old masters knew!*
+To save time, while installing machinery and building the Hoffmann kiln, Mei Wan decided to first fire the already air-dried blanks. But loading traditional kilns was skilled work—neither transmigrators nor laborers had done it. News reached the Committee. Intelligence Group's Luo Duo again played his role as "walking encyclopedia"—quickly finding on a computer hard drive an electronic copy of a 1958 pamphlet *Traditional Methods for Making Bricks and Tiles*. Within an hour, this printed booklet was rushed to the kiln site. Laborers stared in amazement as this "pirate craftsman" used a book to teach them kiln-loading—*secrets only old masters knew!*
 
 Near the kiln were large thatch fields. Mei Wan asked laborers who'd once done casual work at the kiln—this was fuel specifically planted. Earthen kilns worked better with such "soft fuel"; hardwood burned too fiercely, hard to control. Travelers naturally appropriated this fuel.
 
@@ -60,7 +60,7 @@ Formed blanks were carted to the stacking yard. The original drying sheds were e
 
 Clearly, the machine's production speed vastly exceeded this era. Before evening, all the aged clay that Lingao brickmakers had prepared for months was exhausted. The machine had to stop temporarily.
 
-To build the rotary kiln, Mei Wan's other task was producing cement. For him, cement had always meant calling for delivery. Even cement used after D-Day came from the original timespace. Making it from scratch—he had no idea. He knew "crude cement" existed, but how to make it, what performance to expect—no clue.
+To build the Hoffmann kiln, Mei Wan's other task was producing cement. For him, cement had always meant calling for delivery. Even cement used after D-Day came from the original timespace. Making it from scratch—he had no idea. He knew "crude cement" existed, but how to make it, what performance to expect—no clue.
 
 In modern society, the cement industry had become highly specialized, mechanized large-scale production involving many special large equipment: crushers, rotary kilns, ball mills. Replicating such equipment was too extravagant for transmigrators. Even buying ready equipment and installing it—such giant equipment was beyond their current capabilities.
 

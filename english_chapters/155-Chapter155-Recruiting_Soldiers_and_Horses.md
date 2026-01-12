@@ -1,105 +1,107 @@
 # Chapter 155: Recruiting Soldiers and Horses
 
-"Once the Army and Navy are formally established—not only will weapon demand surge—training and ammunition storage are also issues." Ma Qianzhu said. "Two points."
+"Once the Army and Navy are formally established, not only will the demand for weapons surge, but we'll also face significant issues with training and ammunition storage," Ma Qianzhu stated during the meeting. "There are two main points to address."
 
-The Industrial Department must quickly establish ammunition supply systems for New Army and coastal fortress training.
+First, the Industrial Department needed to quickly establish an ammunition supply system for the New Army and the coastal fortress training.
 
-Black powder supply was ample—a 2.5-ton stockpile. Granulation treatment had greatly improved power. Sufficient for training and combat. But shells and Minié balls were zero stock—needed rush production.
+Fortunately, the supply of black powder was ample, with a 2.5-ton stockpile. The granulation treatment had greatly improved its power, making it sufficient for both training and combat. However, the stock of cannonballs and Minié balls was effectively zero—production needed to be rushed.
 
-Weapon manufacturing: focus on one or two types. Don't be greedy. If coke shortage caused steel shortage—concentrate on cast-iron cannons for now. The Trade Department would fully address coal supply.
+As for weapon manufacturing, Ma emphasized focus: "Concentrate on one or two types. Don't be greedy. If the coke shortage causes a steel shortage, then focus on cast-iron cannons for now. The Trade Department will fully address the coal supply issue."
 
-Must urgently manufacture prime movers—including steam engines and small diesels. Providing sufficient power machinery for the Navy's ship construction and modification.
+Second, they urgently needed to manufacture prime movers, including steam engines and small diesel engines, to provide sufficient power machinery for the Navy's ship construction and modification.
 
-"Naval ships—" Chen Haiyang reminded, "currently only two sailships. Tasks are too many. The Navy needs more ships."
+"Speaking of naval ships—" Chen Haiyang interjected, "currently we only have two sailing vessels. The tasks are too many. The Navy needs more ships."
 
-To meet current fishing, patrol, and transport needs—the Navy required at least 8–10 sailships. Displacement: minimum 50 tons, preferably 100+. Industrial seaborne demand was growing—small ships were impractical.
+To meet the current needs for fishing, patrols, and transport, the Navy required at least eight to ten sailing ships. The displacement needed to be a minimum of 50 tons, preferably over 100. As industrial demand grew, seaborne transport became critical, and small ships were simply impractical.
 
-Travelers had already discovered sizable boatyards at Lingao. The largest local vessels were called "Lingao draggers"—70+ ton displacement. Usable for fishing and cargo—but transmigrators considered them slightly small, too slow.
+The transmigrators had already discovered sizable boatyards in Lingao. The largest local vessels were known as "Lingao draggers," with a displacement of over 70 tons. While usable for fishing and cargo, the transmigrators considered them slightly too small and too slow.
 
-Building ships themselves: the Industrial Department and Navy could propose countless designs—even someone who'd drawn *Gloire* ironclad's lines and structure existed. But nobody had actual shipbuilding experience. Most experienced: Wen-Director and Wang Luobin—veteran ship model enthusiasts who'd built countless models. Deepest wooden-structure shipbuilding understanding.
+Building ships themselves was another option. The Industrial Department and Navy could propose countless designs—there was even someone who had drawn the lines and structure of the *Gloire* ironclad. But nobody had actual shipbuilding experience. The most experienced were Director Wen and Wang Luobin—veteran ship model enthusiasts who had built countless models and had the deepest understanding of wooden ship structures.
 
-Chen Haiyang proposed using Lingao's local shipbuilding resources. Per Long-Range Recon's report: Lingao's Baitu Harbor had several boatyards—capable of ordinary fishing boats and even 400-*liao* large ships. 400-*liao* was Ming's maximum civilian legal shipbuilding size.
+Chen Haiyang proposed using Lingao's local shipbuilding resources. According to a report from the Long-Range Reconnaissance Team, Lingao's Baitu Harbor had several boatyards capable of building ordinary fishing boats and even large 400-*liao* ships. The 400-*liao* vessel was essentially the maximum legal civilian shipbuilding size in the Ming Dynasty.
 
-Baitu Harbor had not just shipwrights—but substantial seasoned timber, some stored 3–4 years with proper dryness. Travelers could conveniently use these.
+Baitu Harbor didn't just have shipwrights; it also had substantial stocks of seasoned timber, some of which had been stored for three or four years to achieve the proper dryness. The transmigrators could conveniently appropriate these resources.
 
-"I propose we occupy Baitu Harbor. Relocate all shipwrights and materials to Bopu." Travelers would design while teaching modern techniques—quickly transforming shipwrights into modern workers.
+"I propose we occupy Baitu Harbor. Relocate all the shipwrights and materials to Bopu," Chen Haiyang suggested. "We can design the ships while teaching them modern techniques, quickly transforming these shipwrights into modern workers."
 
-"Agreed!" Zhang Bailin immediately supported—enthusiastic about any military action.
+"Agreed!" Zhang Bailin immediately voiced his support, enthusiastic about any proposed military action.
 
-"I also support Baitu occupation. This controls Lingao's entire shipbuilding industry. Lingao's fishermen and coastal shippers would be completely dependent on us." Ma Qianzhu also supported.
+"I also support the occupation of Baitu. This would give us control over Lingao's entire shipbuilding industry. Lingao's fishermen and coastal shippers would become completely dependent on us," Ma Qianzhu added.
 
-Baitu occupation was approved—to commence after the Army Training Battalion was formed.
+The occupation of Baitu Harbor was approved, scheduled to commence after the Army Training Battalion was formed.
 
-"Finally: Navy personnel recruitment and training." The Navy's Li Haiping said. "Ma-Commissioner mentioned Army handling this—I disagree. We're Navy, not Army Marines. Navy has specialized needs—Army can't truly understand—"
+"Finally: Navy personnel recruitment and training," said Li Haiping of the Navy. "Commissioner Ma mentioned the Army handling this, but I disagree. We're the Navy, not Army Marines. The Navy has specialized needs that the Army can't truly understand—"
 
-The Army's young turks—Wei Aiwen, Zhang Bailin—immediately looked displeased: clear implication that Army were bumpkins.
+The Army's "young turks"—Wei Aiwen and Zhang Bailin—immediately looked displeased. The clear implication was that the Army were landlubbers or bumpkins.
 
-"Let me clarify." Ma Qianzhu hastened. "Army responsibility is the recruit phase—Army has Training Battalion. Post-assignment, Navy handles its own training. As for soldier recruitment: future centralized under Military Committee—unrelated to Army or Navy."
+"Let me clarify," Ma Qianzhu hastened to intervene. "The Army's responsibility is the recruit phase—the Army has the Training Battalion. Post-assignment, the Navy will handle its own specialized training. As for soldier recruitment, in the future, it will be centralized under the Military Committee—unrelated to the Army or Navy individually."
 
-"Chief." Another commune member timidly entered Wu De's Bairren Commune office.
+"Chief." A commune member timidly entered Wu De's office at the Bairren Commune.
 
-"What is it?" Wu De was surprised—another enlistment referral?
+"What is it?" Wu De was surprised—was this another enlistment referral?
 
-"I, I want a document." The visitor seemed afraid addressing such an important chief.
+"I... I want a document." The visitor seemed afraid to address such an important chief.
 
-"Joining the military?"
+"You want to join the military?"
 
 "Y-yes—"
 
-Wu De sighed. Today alone, twenty-plus had come for enlistment referrals. Plus recent Mechanical Plant and other department recruitments—fifty full-labor males were gone. More of this and the commune would become a women's village.
+Wu De sighed. Today alone, over twenty people had come asking for enlistment referrals. Coupled with the recent recruitments by the Mechanical Plant and other departments, fifty able-bodied laborers were already gone. If this continued, the commune would turn into a village of women.
 
-Military benefits were perhaps too good. Wu De thought: 200kg rice settling allowance, 1-*liang* monthly salary, room and board—no wonder commune members wanted to enlist.
+The military benefits were perhaps too good. Wu De calculated: a 200kg rice settling allowance, a monthly salary of one *liang* of silver, plus room and board. It was no wonder the commune members were clamoring to enlist.
 
-"Chuyu, issue his certificate." Wu De said wearily. Still had to serve the bigger picture. Current priority was military expansion.
+"Chuyu, issue his certificate," Wu De said wearily. He still had to serve the bigger picture. The current priority was military expansion.
 
-"Yes, Master." Chuyu had become the unofficial commune secretary. After vetting and probation—at her insistence—she was assigned to Wu De. At the commune, she naturally took charge of his daily life. Finding cafeteria food unsatisfactory, she cooked herself—daily meals and laundry. Repeatedly hinting she could do more. Wu De hadn't expected: a has-been middle-aged man in the 21st century—in this timespace, young girls admired him. No wonder so many otaku infiltrated the expedition.
+"Yes, Master." Chuyu had become the unofficial commune secretary. After vetting and a probation period—and at her own insistence—she was assigned to Wu De. At the commune, she naturally took charge of his daily life. Finding the cafeteria food unsatisfactory, she cooked his meals herself and did his laundry, repeatedly hinting that she could do even more. Wu De hadn't expected this: a has-been middle-aged man in the 21st century was practically a celebrity here, admired by young girls. No wonder so many otaku had infiltrated the expedition.
 
-Actually, Chuyu was semi-literate—night school after joining the transmigrators only achieved partial literacy. "Documents" meant stamping pre-printed, pre-filled forms—hence "stamp secretary."
+In reality, Chuyu was only semi-literate; night school had only achieved partial literacy for her. "Documents" just meant stamping pre-printed, pre-filled forms—hence the nickname "rubber-stamp secretary."
 
-His phone suddenly rang—Li Haiping calling:
+His phone suddenly rang—it was Li Haiping calling.
 
-"Old Wu, our Navy's recruitment isn't going well. Army's hogging all the best physiques. Any ideas? You're also a Navy veteran—"
+"Old Wu, our Navy's recruitment isn't going well. The Army's hogging all the best physiques. Any ideas? You're a Navy veteran too—"
 
-"Alright, I'll promote when people apply."
+"Alright, I'll promote it when people apply."
 
-"Much appreciated! When writing referrals—specify Navy reporting."
+"Much appreciated! When writing referrals, specify they report to the Navy."
 
-Recruiting solely from the commune would severely deplete labor. Recruitment manager Xi Yazhou established a station at bustling East Gate Market.
+Recruiting solely from the commune would severely deplete their labor force. Recruitment manager Xi Yazhou had established a station at the bustling East Gate Market.
 
-The recruitment name wasn't "Transmigration Army"—but respectable "Bairren Militia." County authorities completely played dumb. Traditional bureaucratic wisdom: when you should be an ostrich—bury your head deep. Not knowing was better than knowing but not acting. Travelers had no concerns about the nearly naked Lingao county yamen taking action.
+The recruitment name wasn't "Transmigration Army," but the more respectable "Bairren Militia." The county authorities played completely dumb. Traditional bureaucratic wisdom dictated that when you should be an ostrich, you buried your head deep. Not knowing was better than knowing but failing to act. The transmigrators had zero concern that the toothless Lingao county yamen would take any action.
 
-"Damn—these benefits are too high?" Dongmen Chuiyu was on site maintaining recruitment order at East Gate Market. Looking at the large recruitment poster just hung on the screen wall: 2-*dan* (200kg) settling grain per soldier, room and board (20kg monthly ration), 1-*liang* silver monthly.
+"Damn—are these benefits too high?" Dongmen Chuiyu was on site maintaining order at the East Gate Market recruitment station. He looked at the large poster hung on the screen wall: 2 *dan* (200kg) of settling grain per soldier, room and board with a 20kg monthly ration, and one *liang* of silver monthly.
 
-But Xi Yazhou said benefits weren't high. Tianqi-era Liaodong garrisons already paid 2-*liang* monthly. By mid-Chongzhen, new recruits' monthly pay rose to 3.2-*liang*. If not for Ming military's endemic skimming—soldiers barely receiving anything—transmigrators would need 2-*liang* to attract anyone.
+But Xi Yazhou insisted the benefits weren't high. The Tianqi-era Liaodong garrisons were already paying two *liang* monthly. By the mid-Chongzhen era, new recruits' monthly pay would rise to 3.2 *liang*. If not for the endemic skimming in the Ming military—where soldiers barely received anything—the transmigrators would have needed to offer at least two *liang* to attract anyone.
 
-Zhang Bailin was under the screen wall recruiting locals—now understanding some Lingao dialect.
+Zhang Bailin stood under the screen wall recruiting locals, having picked up some of the Lingao dialect.
 
-"Brother, join our militia. One-*liang* monthly—even regulars don't get that. Plus room and board."
+"Brother, join our militia. One *liang* monthly—even regular soldiers don't get that. Plus room and board."
 
 "Soldiering? No way—lose your head."
 
-"Don't leave—three meals daily, salary too. Consider it?"
+"Don't leave—three meals daily, salary too. Why not consider it?"
 
-"I have wife and kids. Please spare me, Chief."
+"I have a wife and kids. Please spare me, Chief."
 
-"Bring family—we cover the settling allowance."
+"Bring your family—we cover the settling allowance."
 
 ...
 
-Per the Military Committee's plan: Army recruited 400 soldiers, 100 cadets. Navy: 100 soldiers, 100 cadets. Soldiers: ages 17–25. Cadets: 13–16. Cadets were the future technical backbone—besides military training, receiving specialized skill development.
+Per the Military Committee's plan, the Army recruited 400 soldiers and 100 cadets, while the Navy recruited 100 soldiers and 100 cadets. Soldiers were aged 17–25; cadets were 13–16. The cadets were the future technical backbone—besides military training, they would receive specialized skill development.
 
-During recruitment, most applicants didn't know their ages—giving rough years only. Some didn't even know there'd been a Tianqi era—thinking "Emperor Wanli" still reigned. Appearance: all dark and thin—hard to judge actual ages. Later, the Medical Group developed dental examination procedures—still approximate. Planned youth cadets: only about a dozen recruited.
+During recruitment, most applicants didn't know their exact ages, giving only rough years. Some were even unaware of the Tianqi era, thinking the Wanli Emperor still reigned. In appearance, they were all dark and thin, making it hard to judge their actual age. Later, the Medical Group would develop dental examination procedures, but even those were approximate. The planned youth cadet corps only managed to recruit about a dozen candidates.
 
-Lingao locals weren't enthusiastic. If not small freeholders, they were somewhat established tenants. Though struggling—they could fill their stomachs. Naturally uninterested in soldiering. But "Fulao" outsiders—migrants to Hainan for reclamation or labor—applied more. Mostly single—no attachments.
+The Lingao locals weren't enthusiastic. If they weren't small freeholders, they were somewhat established tenants. Though struggling, they could fill their stomachs and were naturally uninterested in soldiering. However, the "Fulao" outsiders—migrants to Hainan for land reclamation or labor—applied in greater numbers. They were mostly single men with no attachments.
 
-Some obviously overage, destitute types also came to enlist. All accepted—older ones served logistics. Currently the transmigrators needed population explosion. More people solved everything.
+Some obviously overage, destitute types also came to enlist. They were all accepted; the older ones would serve in logistics. Currently, the transmigrators just needed a population explosion. More people solved everything.
 
-But such soldiers were universally small—long-term malnutrition and hard labor had damaged health. Though enduring hardship, weight and strength tests exceeded their physiques.
+But such soldiers were universally small—long-term malnutrition and hard labor had damaged their health. Though they could endure hardship, the weight and strength tests exceeded their physiques.
 
-"A bit short. Not sturdy enough." Wei Aiwen was disappointed. These small natives didn't match his military appearance aesthetics. Commune applicants, better fed, had excellent physiques, first-rate spirit—Wei Aiwen unhesitatingly filed them under Army enlistment.
+"A bit short. Not sturdy enough," Wei Aiwen was disappointed. These small natives didn't match his aesthetic for a military force. The applicants from the commune, better fed and with first-rate spirit, had excellent physiques, so Wei Aiwen unhesitatingly filed them under Army enlistment.
 
-"Short is short—strong and resilient." Xi Yazhou wasn't picky. But height standards were already lowered to 155cm—truly minimal. Many still looked bony. 20kg monthly rations enough for them? Xi Yazhou worried.
+"Short is short—but they're strong and resilient," Xi Yazhou wasn't picky. But the height standards had already been lowered to 155cm—truly minimal. Many still looked bony. Would 20kg monthly rations be enough for them? Xi Yazhou worried.
 
-The Navy discovered Army was skimming the best physiques from enlistees. They demanded opening another Bopu station—promoting Navy benefits to fishermen. Fishermen were clearly more adventurous than farmers. Plus the Navy's famed iron ship and "fast ships"—recruiting 100+ was easy. Some even came from neighboring counties. Chen Haiyang was initially delighted—then realized: not Navy's superior appeal, but to worldly fishermen, joining a maritime group for piracy was already part of their livelihood. If things went well—stay permanently. Joining "Australian Baldies" wasn't different from joining the Zheng family. Looking at these half-fishing, half-pirate recruits—future political work needed real effort.
+The Navy discovered the Army was skimming the best physiques from the enlistees. They demanded the opening of another station at Bopu to promote Navy benefits directly to fishermen. Fishermen were clearly more adventurous than farmers. Plus, with the Navy's famed iron ship and "fast ships," recruiting over a hundred men was easy. Some even came from neighboring counties.
+
+Chen Haiyang was initially delighted, but then he realized the truth: it wasn't the Navy's superior appeal. To these worldly fishermen, joining a maritime group for piracy was already part of their livelihood. If things went well, they would stay permanently. Joining the "Australian Baldies" wasn't any different from joining the Zheng family. Looking at these half-fishing, half-pirate recruits, he knew that future political work would require real effort.
 
 **(End of Chapter)**

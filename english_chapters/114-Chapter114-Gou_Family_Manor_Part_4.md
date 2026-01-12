@@ -6,7 +6,7 @@ Wu De intended forcible demolition, naturally needing manpower. Coincidentally o
 
 Attendees included Military Group personnel and representatives from various professional committees. Gou Manor would be their first spoils of war. Though just a small tyrant's stronghold, it was prelude to future captures of larger county seats, prefectures, even the capital. How to pacify residents after occupation, how to inventory confiscated property, how to conduct propaganda—all needed preparation.
 
-Based on available intelligence, Gou Manor's defenses were unremarkable even by contemporary standards. Direct military breakthrough wasn't difficult. The Military Group proposed the simplest, safest plan: use rifles to clear wall defenders, then have armored construction machinery ram the gate. No wooden gate—even iron-plated—could withstand a multi-hundred-horsepower bulldozer. But this was somewhat extravagant. Engineering vehicles traveling from Bairren Fortress to Gou Manor—terrain was flat, no problem for tracked vehicles—but the distance was considerable. Besides fuel consumption, machinery work hours were significant.
+Based on available intelligence, Gou Manor's defenses were unremarkable even by contemporary standards. A direct military breakthrough wouldn't be difficult. The Military Group proposed the simplest, safest plan: use rifles to clear wall defenders, then have armored construction machinery ram the gate. No wooden gate—even iron-plated—could withstand a multi-hundred-horsepower bulldozer. But this was somewhat extravagant. Engineering vehicles traveling from Bairren Fortress to Gou Manor—the terrain was flat, so there was no problem for tracked vehicles—but the distance was considerable. Besides fuel consumption, machinery work hours were significant.
 
 Simpler alternative: assault teams using ladders or human pyramids to scale walls, seize the gate, then open it. But post-scaling, they'd likely face militia counterattacks—possibly close combat. Most Military Group members didn't fear bayonet fighting—but any casualties would be irreplaceable losses.
 
@@ -32,7 +32,7 @@ For detonators, the Chemistry Group couldn't produce mercury fulminate without m
 
 "Let's make a 'No-Conscience Cannon'! Simple to make, powerful." Zhang Bailin was excited. Sending explosive charges seemed insufficient—better to shell Gou Manor.
 
-"Completely unnecessary." He Ming shook his head repeatedly. "Mortar-launched charges have insufficient range and no accuracy. Who knows where they'd land?"
+"Completely unnecessary." He Ming shook his head repeatedly. "Mortar-launched charges have insufficient range and poor accuracy. Who knows where they'd land?"
 
 "Mm, too much collateral damage. If they land in residential areas, massive casualties. We're targeting Landlord Gou—ordinary people should be protected as much as possible." Wu Nanhai firmly opposed.
 
@@ -44,13 +44,13 @@ He Ming laughed: "Fifty SKS rifles suppressing the wall—that's enough firepowe
 
 "You don't know M43 round power?" Sniper Lin Shenhe smiled. "Within 100 meters, these can definitely penetrate those brick battlements."
 
-Fifty 20-round-magazine SKS-D semi-automatics firing continuously—firepower rivaling machine guns. Even invincible Iron Man couldn't stay—let alone throw rolling logs. 
+Fifty 20-round-magazine SKS-D semi-automatics firing continuously—firepower rivaling that of machine guns. Even invincible Iron Man couldn't stay—let alone throw rolling logs.
 
 "Still not satisfied without artillery." Zhang Bailin wouldn't give up.
 
 The gate-breaking plan was settled: Military Group provides suppressing fire on the wall; explosive charges blast the gate; everyone assaults into the manor.
 
-"After entering the manor, things aren't finished." He Ming pointed at the map. "The manor interior itself has nothing special—just ordinary civilian housing. We just need to hold intersections, patrol the walls, prevent escapes—this is crucial! The key is the Gou family compound. Once outer walls fall, all their forces will retreat inside for a last stand. So after entering, first priority: quickly seize roads to the compound's front and rear gates—prevent scattered retreaters from entering. The fewer who get inside, the easier to finish them."
+"After entering the manor, things aren't finished." He Ming pointed at the map. "The manor interior itself has nothing special—it's just ordinary civilian housing. We just need to hold intersections, patrol the walls, prevent escapes—this is crucial! The key is the Gou family compound. Once outer walls fall, all their forces will retreat inside for a last stand. So after entering, first priority: quickly seize roads to the compound's front and rear gates—prevent scattered retreaters from entering it. The fewer who get inside, the easier to finish them."
 
 Wu De said: "Interrogation revealed Gou Manor has over 200 militia and guards—mostly mainland fugitives with murder warrants. These people, cornered, will fight desperately—causing us much trouble."
 

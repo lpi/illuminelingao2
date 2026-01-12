@@ -1,6 +1,6 @@
 # Chapter 100: Li Minority Work (Part 3)
 
-Per pre-planned protocols, after entering mountain terrain, everyone switched to combat-ready stance, with advance scouts ahead. Mountains weren't precipitous. Along the way, small mountain-plots of nearly-harvest rice were visible; gentler slopes showed cultivation traces—the green forest like a patchy carpet, occasionally revealing yellow patches. This was the Li's *shanlang* cultivation—a near slash-and-burn primitive agriculture. Distant slopes showed scattered villages. With time to spare, they didn't hurry, walking and admiring scenery. Though autumn, Hainan's year-round summer-like climate meant flowers bloomed, vegetation flourished—exceptionally beautiful. Compared to the desolate wasteland outside the mountains, this was a different world. Atop a ridge, everyone stood gazing around. Wen Desi couldn't help praising:
+Per pre-planned protocols, after entering mountain terrain, everyone switched to a combat-ready stance, with advance scouts ahead. Mountains weren't precipitous. Along the way, small mountain-plots of nearly-harvest rice were visible; gentler slopes showed cultivation traces—the green forest like a patchy carpet, occasionally revealing yellow patches. This was the Li's *shanlang* cultivation—a nearly slash-and-burn primitive agriculture. Distant slopes showed scattered villages. With time to spare, they didn't hurry, walking and admiring scenery. Though autumn, Hainan's year-round summer-like climate meant flowers bloomed, vegetation flourished—exceptionally beautiful. Compared to the desolate wasteland outside the mountains, this was a different world. Atop a ridge, everyone stood gazing around. Wen Desi couldn't help praising:
 
 "Such a wonderful place."
 
@@ -22,7 +22,7 @@ Per pre-planned protocols, after entering mountain terrain, everyone switched to
 
 "Good though it is, it can't be spun into cloth."
 
-Silk-cotton fibers, compared to herbaceous cotton, were much shorter—unsuitable as textile material. But it grew rapidly; wood was light and soft; fibers short and fine, hollow over 86%, not easily water-soaked, pressure-resistant, warm, naturally antibacterial, resistant to insects and mold—useful for filling pillows and lifejackets.
+Silk-cotton fibers, compared to herbaceous cotton, were much shorter—unsuitable as textile material. But it grew rapidly; the wood was light and soft; fibers were short and fine, hollow over 86%, not easily water-soaked, pressure-resistant, warm, naturally antibacterial, and resistant to insects and mold—useful for filling pillows and lifejackets.
 
 Travelers had sporadically found silk-cotton trees along the Wenlan River, but this was their first time seeing such forests. If developed, there was great potential.
 
@@ -54,17 +54,17 @@ Travelers had sporadically found silk-cotton trees along the Wenlan River, but t
 
 ---
 
-Two native soldiers approached, calling out from a distance. They wore cloth shirts; lower bodies wrapped in triangular cloth strips like loincloths—resembling Japanese fundoshi *(this was traditional Li male dress)*. At waist: hook-knives—traditionally carried by all Li men, serving as both tool and weapon—with crossbow and arrows on back. Lu Rong spoke with them in Qiongzhou dialect, learning this was within a *dong*'s territory; the *dong* chief lived ahead in a place called Nanan Village *(this village is fictional)*.
+Two native soldiers approached, calling out from a distance. They wore cloth shirts; their lower bodies were wrapped in triangular cloth strips like loincloths—resembling Japanese fundoshi *(this was traditional Li male dress)*. At their waists were hook-knives—traditionally carried by all Li men, serving as both tool and weapon—with crossbows and arrows on their backs. Lu Rong spoke with them in Qiongzhou dialect, learning this was within a *dong*'s territory; the *dong* chief lived ahead in a place called Nanan Village *(this village is fictional)*.
 
-While talking, the prisoners behind grew agitated. Despite heavy salt packs, they rushed over. Both sides met—embracing, weeping—these two soldiers were from their village! Early morning, hunters had reported a strange party approaching—not many, not official troops, not individual or small-group Han peddlers. The *dong* chief, also a Ming-appointed local administrator responsible for maintaining order, had sent people to investigate.
+While talking, the prisoners behind grew agitated. Despite the heavy salt packs, they rushed over. Both sides met—embracing, weeping—these two soldiers were from their village! Early morning, hunters had reported a strange party approaching—not many, not official troops, not individual or small-group Han peddlers. The *dong* chief, also a Ming-appointed local administrator responsible for maintaining order, had sent people to investigate.
 
-From conversation, they learned: of thirty Li soldiers originally sent, five had escaped back. Throughout Li territory, word spread: a powerful pirate force from the sea had formidable firearms. Han peddlers from Han areas had embellished the Bairren Rapids battle; by now, transmigrators' terrifying reputation was widely known.
+From conversation, they learned that of the thirty Li soldiers originally sent, five had escaped back. Throughout Li territory, word spread that a powerful pirate force from the sea had formidable firearms. Han peddlers from Han areas had embellished the Bairren Rapids battle; by now, the transmigrators' terrifying reputation was widely known.
 
-Learning these were the "pirates" with supernatural power, the two soldiers showed fear. Lu Rong quickly explained: they weren't pirates but merchants; fighting at Bairren Rapids was forced self-defense. This visit had two purposes: first, return these eight prisoners; second, trade. Lu Rong opened a salt packet—snow-white refined salt gleaming in sunlight. Salt's power was tremendous. After licking to confirm it was real salt, both soldiers ran off at full speed.
+Learning these were the "pirates" with supernatural power, the two soldiers showed fear. Lu Rong quickly explained that they weren't pirates but merchants; fighting at Bairren Rapids was forced self-defense. This visit had two purposes: first, return these eight prisoners; second, trade. Lu Rong opened a salt packet—snow-white refined salt gleaming in the sunlight. Salt's power was tremendous. After licking to confirm it was real salt, both soldiers ran off at full speed.
 
 Lu Rong ordered everyone to wait. If Public Security Group's intelligence from Li prisoners was accurate, salt's power would suffice. Still, everyone was tense—fearing revenge attacks. Twenty-plus SKS rifles could handle one or two hundred people, but conflict would be hard to manage afterward; any casualties on their side would be irreparable loss.
 
-Shortly, ten-plus Li soldiers arrived, escorting a middle-aged man—dressed far more elaborately than the near-naked soldiers, in what appeared to be traditional Li brocade, head decorated with pheasant feathers—apparently a headman. Per prisoners, this was their *dong*'s *aoya* *(note: Li language for "old man"; before Liberation, common Li addressed upper-class headmen thus)*—second only to the local administrator.
+Shortly, ten-plus Li soldiers arrived, escorting a middle-aged man who was dressed far more elaborately than the near-naked soldiers, in what appeared to be traditional Li brocade, his head decorated with pheasant feathers—apparently a headman. Per prisoners, this was their *dong*'s *aoya* *(note: Li language for "old man"; before Liberation, common Li addressed upper-class headmen thus)*—second only to the local administrator.
 
 This *aoya* spoke excellent Qiongzhou dialect. He approached alone to the clearing between both groups, first driving his hook-knife into the ground.
 
@@ -74,13 +74,13 @@ This *aoya* spoke excellent Qiongzhou dialect. He approached alone to the cleari
 
 So Lu Rong walked out and placed his machete on the ground. Not just he—everyone in the party was sweating—he was only fifty-plus meters from those soldiers; one crossbow bolt to an area not protected by stab-proof vest, and the arrows were tipped with *jianxuefenghou* (blood-sealing-throat) poison.
 
-They talked for ten-plus minutes, then he returned—somewhat helplessly: "He won't let us enter the village. They'll buy the salt; prisoners he'll ransom with goods we want."
+They talked for ten-plus minutes, then he returned—somewhat helplessly. "He won't let us enter the village. They'll buy the salt; prisoners he'll ransom with goods we want."
 
 Wen Desi thought: returning empty-handed was useless. But Lu Rong was team leader; interfering in decisions seemed to violate Committee command-authority policy.
 
 So he asked tentatively: "Try negotiating more? Offer some gifts—"
 
-"Gifts!" Lu Rong laughed. "A year-plus retirement—I'd forgotten standard practice." He returned; both talked more. Shortly, Lu Rong came back beaming:
+"Gifts!" Lu Rong laughed. "A year-plus of retirement—I'd forgotten standard practice." He returned, and both talked more. Shortly, Lu Rong came back beaming:
 
 "Done. He agrees to take us near the village—but we can't enter. We can only trade outside the village. But he agrees to let us meet the *dong* chief."
 

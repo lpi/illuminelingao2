@@ -38,25 +38,25 @@ Wang Luobin said: "So we need to—"
 
 Wang Luobin laughed: "Little Du, you're too imaginative. First, there's no class enemy here; second, we're not Communists—"
 
-Xi Yazhou started laughing too, then suddenly stopped, looking thoughtful: "Actually, there's something to that." He thought. "This probably involves Landlord Gou."
+Xi Yazhou started laughing too, then suddenly stopped, looking thoughtful. "Actually, there's something to that." He thought for a moment. "This probably involves Landlord Gou."
 
-Wang Luobin said: "We've had zero contact with this so-called Landlord Gou. I was just watching from the dike when his people came to the village. At most he only knew we'd visited."
+Wang Luobin said, "We've had zero contact with this so-called Landlord Gou. I was just watching from the dike when his people came to the village. At most, he only knew we'd visited."
 
-"Never mind that now." Xi Yazhou waved, grabbed the walkie-talkie, called the guard team. "Quick—send a few people with Zhang Xingjiao. Bring that family with the girl disguised as a boy. Right—don't alert others. You know how to do this."
+"Never mind that now." Xi Yazhou waved his hand, grabbed the walkie-talkie, and called the guard team. "Quick—send a few people with Zhang Xingjiao. Bring that family with the girl disguised as a boy. Right—don't alert others. You know how to do this."
 
 Putting down the walkie-talkie, he turned up the kerosene lamp—the wind generator wasn't assembled yet—and addressed everyone:
 
-"Let's discuss defense." He spread a newly-drawn map of the salt-field area on the table.
+"Let's discuss defense." He spread a newly drawn map of the salt-field area on the table.
 
 "Ma'ao Salt Field is flat open ground—no defensible positions. The village itself has no fortifications. Our enemies: local landlord forces, bandits, and outside pirates. These three forces might even be colluding. If we're stationed here long-term, besides arming villagers, the camp itself needs fortification."
 
-"This temple's decent—foundation's already here. Pity the building's collapsed." Their current camp was at the village entrance's Ge Hong Temple. This Jin Dynasty Daoist scholar, famous alchemist, and medical-pharmaceutical expert was revered by many salt workers as the salt industry's patron saint. *(Note: Whether Hainan salt workers held this belief is unclear; different regions' salt workers seem to have different patron saints.)* Years of neglect had collapsed most buildings—only stone foundations and crumbling walls remained. Work-team tents were set up on these foundations.
+"This temple's decent—the foundation is already here. Pity the building's collapsed." Their current camp was at the village entrance's Ge Hong Temple. This Jin Dynasty Daoist scholar, famous alchemist, and medical-pharmaceutical expert was revered by many salt workers as the salt industry's patron saint. *(Note: Whether Hainan salt workers held this belief is unclear; different regions' salt workers seem to have different patron saints.)* Years of neglect had collapsed most buildings—only stone foundations and crumbling walls remained. Work-team tents were set up on these foundations.
 
 "Build a blockhouse?"
 
 "Bigger than that. We also need to protect produced salt."
 
-Just then, voices came from outside. Xi Yazhou said: "Du Wen—fetch candy and cups."
+Just then, voices came from outside. Xi Yazhou said, "Du Wen—fetch candy and cups."
 
 "You want candy?" Du Wen was confused.
 
@@ -64,19 +64,19 @@ Just then, voices came from outside. Xi Yazhou said: "Du Wen—fetch candy and c
 
 Du Wen went out.
 
-Shortly, guards led in the family, Zhang Xingjiao following. The two elderly trembled; the middle-aged man seemed reluctant—deliberately dawdling. The cross-dressing girl followed, head down.
+Shortly, guards led in the family, with Zhang Xingjiao following. The two elderly trembled; the middle-aged man seemed reluctant—deliberately dawdling. The cross-dressing girl followed, head down.
 
 Xi Yazhou quickly seated them and served tea. Years in the military plus years as corporate sales manager—his face immediately became warmly sincere.
 
-After the work team's day of propaganda and grain donations, original fear and hostility had somewhat softened.
+After the work team's day of propaganda and grain donations, their original fear and hostility had somewhat softened.
 
 Hearing transmigrators had come to the salt village for "rooting out the strong, eliminating evil, protecting the realm, securing the people," their faces showed confusion and disbelief. The burly man snorted and muttered.
 
-Xi Yazhou now understood some Lingao dialect—combined with his expressions, he roughly understood. He gently asked: what exactly had the transmigrators done wrong?
+Xi Yazhou now understood some Lingao dialect—combined with his expressions, he roughly understood. He gently asked what exactly the transmigrators had done wrong.
 
-Zhang Xingjiao translated. The other responded variously—sometimes coldly, sometimes mocking, sometimes angry. Regardless of attitude, Xi Yazhou maintained his most sincere smile, speaking very politely. After several exchanges, he gradually pieced together the full story.
+Zhang Xingjiao translated. The others responded variously—sometimes coldly, sometimes mocking, sometimes angry. Regardless of their attitude, Xi Yazhou maintained his most sincere smile, speaking very politely. After several exchanges, he gradually pieced together the full story.
 
-It turned out Landlord Gou had recently visited the village claiming the "short-haired Masters" at Bairren Rapids had commissioned him to collect 200 *yin* of salt. He'd also threatened: the short-haired Masters' firearms were formidable—sending troops would massacre everyone. News of the Bairren Rapids battle had already spread here with embellishments. Plus Wang Luobin had indeed visited to buy salt. After Landlord Gou's claims, already-struggling salt workers grew more desperate—over a dozen households immediately fled. Fearing everyone would run, Landlord Gou simply arrested the village head and clan elders, threatening no one could leave.
+It turned out Landlord Gou had recently visited the village claiming the "short-haired Masters" at Bairren Rapids had commissioned him to collect 200 *yin* of salt. He'd also threatened that the short-haired Masters' firearms were formidable—sending troops would massacre everyone. News of the Bairren Rapids battle had already spread here with embellishments. Plus Wang Luobin had indeed visited to buy salt. After Landlord Gou's claims, the already-struggling salt workers grew more desperate—over a dozen households immediately fled. Fearing everyone would run, Landlord Gou simply arrested the village head and clan elders, threatening that no one could leave.
 
 "Outrageous!" Wang Luobin nearly slammed the table. "How shameless!" All transmigrators present were shocked—this local tyrant they'd only heard about from Zhang Xingjiao actually had such tactics!
 
@@ -84,20 +84,20 @@ It turned out Landlord Gou had recently visited the village claiming the "short-
 
 Xi Yazhou immediately explained there'd been no such thing. True, they wanted salt—but through fair purchase, absolutely no forced demands. He pointed to the furious Zhang Xingjiao: "Ask this man whose ancestral grave Landlord Gou desecrated!"
 
-Ancients valued ancestral halls and tombs above all—desecrating graves meant deep blood-hatred. At this mention, Zhang Xingjiao flushed red and began speaking to the family—voice growing more agitated. Gradually the family's expressions shifted.
+Ancients valued ancestral halls and tombs above all—desecrating graves meant deep blood-hatred. At this mention, Zhang Xingjiao flushed red and began speaking to the family, his voice growing more agitated. Gradually the family's expressions shifted.
 
 Apparently, locals communicating with locals was more effective. Plus Zhang Xingjiao was educated—though without formal title, traditional Chinese society greatly respected learned people.
 
-From Zhang Xingjiao, he learned: this family was also surnamed Tan—cousins of the village head. Village head Tan Guiqiong; this man Tan Guihuang. The burly man was their son, Tan Chengqing—salt workers yearned for nothing but clear skies for salt-making. Tan Tianqing knew some martial arts, was honest and straightforward, frank in word and deed—quite respected among village youth.
+From Zhang Xingjiao, he learned that this family was also surnamed Tan—cousins of the village head, Tan Guiqiong. This man was Tan Guihuang. The burly man was their son, Tan Chengqing—salt workers who yearned for nothing but clear skies for salt-making. Tan Chengqing knew some martial arts, was honest, straightforward, and frank in word and deed—quite respected among village youth.
 
-After about half an hour, seeing the atmosphere was right, Xi Yazhou brought the conversation back: "Friends, I'm very sorry. We're unfamiliar with this area and didn't know Landlord Gou would use our name to extort and threaten. We didn't know your suffering. Now the entire village—men, women, old, young—has no food, no clothes; young women have no pants. We must first find solutions. Let's discuss together: getting grain, getting clothing, ensuring no one worries about food and clothes."
+After about half an hour, seeing the atmosphere was right, Xi Yazhou brought the conversation back. "Friends, I'm very sorry. We're unfamiliar with this area and didn't know Landlord Gou would use our name to extort and threaten. We didn't know your suffering. Now the entire village—men, women, old, young—has no food, no clothes; young women have no pants. We must first find solutions. Let's discuss together: getting grain, getting clothing, ensuring no one worries about food and clothes."
 
 "Is that possible?" The family stared at Xi Yazhou together.
 
 "Yes!" Xi Yazhou affirmed. "As long as everyone works together."
 
-Tan Tianqing spoke up excitedly: "As long as there's a way, we'll spare no effort."
+Tan Chengqing spoke up excitedly, "As long as there's a way, we'll spare no effort."
 
-Xi Yazhou, to dispel their long-held despair, emphasized: "We've come to help common people. Once we understand everyone's suffering, we'll definitely find solutions."
+Xi Yazhou, to dispel their long-held despair, emphasized, "We've come to help common people. Once we understand everyone's suffering, we'll definitely find solutions."
 
 **(End of Chapter)**

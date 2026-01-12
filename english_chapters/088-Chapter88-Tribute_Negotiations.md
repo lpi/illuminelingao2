@@ -76,7 +76,7 @@ Magistrate Wu was angry but couldn't stop him. Daily, he fumed in his reception 
 
 Secretary Wang, named Zhaomin, was Cantonese—years serving in various prefectural and county secretariats across the province, very familiar with local procedures.
 
-Secretary Wang pondered a while, then said quietly: "Your Honor, since we cannot expel pirates, we can only offer tribute."
+Secretary Wang pondered a while, then said quietly: "Your Honor, since we cannot expel pirates, we can only pay tribute."
 
 "Tribute?" Magistrate Wu was startled, nearly jumping up to curse this absurdity. But having been in local politics for years, he quickly composed himself.
 
@@ -90,7 +90,7 @@ Secretary Wang stroked his beard, smiling: "Call it expediency. The most pressin
 
 "Reasonable, reasonable." Wu Mingjin nodded repeatedly. "But this matter is hardly trivial—"
 
-"Your Honor, rest assured." Secretary Wang looked utterly confident. "Those eager to offer tribute to the pirates won't be us—but the gentry." He lowered his voice, saying much more.
+"Your Honor, rest assured." Secretary Wang looked utterly confident. "Those eager to pay tribute to the pirates won't be us—but the gentry." He lowered his voice, saying much more.
 
 Indeed, gentry worried about their harvests. Some had relatives missing in the "suppression campaign" and wanted to contact the pirates. Once Secretary Wang hinted slightly, everyone went to prepare these matters themselves.
 

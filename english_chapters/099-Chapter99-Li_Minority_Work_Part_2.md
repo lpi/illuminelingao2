@@ -1,10 +1,10 @@
 # Chapter 99: Li Minority Work (Part 2)
 
-This strange party marched along the road to Lipan District. Eight Li carried salt for trade; transmigrators were fully armed—they might encounter Ming troops or bandits, both equally apt to seize wealth on sight.
+This strange party marched along the road to Lipan District. Eight Li carried salt for trade; the transmigrators were fully armed—they might encounter Ming troops or bandits, both equally apt to seize wealth on sight.
 
-Travelers were already on the road. Seeing this odd procession approach, they all avoided from a distance. Farmers in fields weren't disturbed—still busy with pre-harvest work, paddy water already drained, rice nearly ripe. The accompanying Agriculture staff estimated potential yields.
+Travelers were already on the road. Seeing this odd procession approach, they all avoided it from a distance. Farmers in the fields weren't disturbed—still busy with pre-harvest work, paddy water already drained, rice nearly ripe. The accompanying Agriculture staff estimated potential yields.
 
-Walking less than an hour, the county seat appeared on the horizon. Two months ashore, transmigrators had already fought the Ming local government—but except for Military and Communications Groups' monitoring personnel, most were seeing Lingao's Ming administrative center for the first time. Previous tension had dissipated; city-wall militiamen had thinned; gates were open; people came and went—somewhat lively. At the gate, villagers sold vegetables, chickens, ducks, and firewood. A peaceful scene.
+After walking less than an hour, the county seat appeared on the horizon. Two months ashore, transmigrators had already fought the Ming local government—but except for Military and Communications Groups' monitoring personnel, most were seeing Lingao's Ming administrative center for the first time. Previous tension had dissipated; city-wall militiamen had thinned; gates were open; people came and went—it was somewhat lively. At the gate, villagers sold vegetables, chickens, ducks, and firewood. A peaceful scene.
 
 Seeing their approach, the city walls seemed briefly tense. Team leader Lu Rong spotted an armored man watching from the wall. To avoid misunderstanding, the group didn't approach the gate, passing at a distance. Farmers readying to flee, seeing them pass without incident, relaxed.
 
@@ -14,7 +14,7 @@ Per prisoners' accounts, their *dong* village was over 100 *li* from the county 
 
 "Lingao is itself a remote small county." Wen Desi was also in the party—though he'd joined purely from curiosity and to unwind. After D-Day, daily meetings, documents, and drafts left him busier than before, with no time for his beloved outdoor activities. This was a chance to recover.
 
-As for safety—he saw no danger. Someone who never removed stab-proof vest, kept pepper spray, enjoyed carrying and wielding long folding knives and 1.2-meter Western hand-and-a-half swords—whether Chinese pirates, Ming soldiers, rural militia, or bandits—all were trash. Plus, his twenty-odd companions were armed to the teeth, minus steel helmets—for mobility, they wore rattan safety hats, the Industrial Department's first successful batch after a month's research. Originally intended colonial-style, but the products looked somewhat mismatched. Still, with leather suspension installed, they felt decent; rear flaps added sunshade cloth, colloquially "butt-curtains."
+As for safety—he saw no danger. Someone who never removed his stab-proof vest, kept pepper spray, and enjoyed carrying and wielding long folding knives and 1.2-meter Western hand-and-a-half swords—whether Chinese pirates, Ming soldiers, rural militia, or bandits—all were trash to him. Plus, his twenty-odd companions were armed to the teeth, minus steel helmets—for mobility, they wore rattan safety hats, the Industrial Department's first successful batch after a month's research. Originally intended colonial-style, but the products looked somewhat mismatched. Still, with leather suspension installed, they felt decent; rear flaps added sunshade cloth, colloquially "butt-curtains."
 
 "Strange—with so much wasteland, why isn't anyone cultivating? Those prisoners, Li or Han, are either tenants or laborers. Water's available; soil doesn't look poor."
 
@@ -43,7 +43,7 @@ So he'd barely joined—but wife was the team's "ethnic advisor," clearly core p
 
 ---
 
-During noon rest, Communications Group radioed Bairren Fortress headquarters as routine, reporting all-clear. They'd agreed pre-departure: contact every three hours; expedition reports current position so HQ tracks movement. Everyone sampled Agriculture Department's newly-developed field rations: Wu Nanhai's personally-made, bizarrely-flavored "Jinhua Flaky Biscuits"; "Japanese Rice Balls" with rice vinegar and dried plums; and walnut-sized things of unknown composition, wrapped in bamboo tubes labeled "Soldier Provisions Pills" in non-standard Chinese—supposedly one equals one meal...
+During the noon rest, the Communications Group radioed Bairren Fortress headquarters as routine, reporting the all-clear. They'd agreed pre-departure to contact every three hours; the expedition would report their current position so HQ could track their movement. Everyone sampled Agriculture Department's newly-developed field rations: Wu Nanhai's personally-made, bizarrely-flavored "Jinhua Flaky Biscuits"; "Japanese Rice Balls" with rice vinegar and dried plums; and walnut-sized things of unknown composition, wrapped in bamboo tubes labeled "Soldier Provisions Pills" in non-standard Chinese—supposedly one equals one meal...
 
 "What is this stuff!" Lu Rong had eaten a rice ball so sour his teeth nearly fell out—though unpalatable, it successfully killed his appetite after half a day's walking; mission accomplished.
 
@@ -57,7 +57,7 @@ The journey was uneventful. Approaching Li territory, terrain grew rougher—gen
 
 Progress slowed. Survey team members periodically stopped to correct maps; some ran off to collect stone samples and plants. Everyone used these pauses to rest and stretch.
 
-Survey results were exciting: coal-belt distribution here! Though poor quality—low-caloric-value lignite with limited reserves—the belt should extend far south; modern Nanbao Coal Mine was roughly in this direction. Lignite wasn't great fuel but made excellent fertilizer. Most thrilling: many brown-iron-ore vein traces, shallowly buried, suitable for small-scale open-pit mining.
+The survey results were exciting: a coal belt distribution was here! Though of poor quality—low-caloric-value lignite with limited reserves—the belt should extend far south; the modern Nanbao Coal Mine was roughly in this direction. Lignite wasn't great fuel but made excellent fertilizer. Most thrilling: many brown-iron-ore vein traces, shallowly buried, suitable for small-scale open-pit mining.
 
 "We must open this trade route quickly." Wen Desi was very excited.
 
@@ -67,7 +67,7 @@ They'd passed two Ming military checkpoints and one camp. But seeing their full 
 
 "Mm." Wen Desi nodded. "First negotiate terms with the Li. We send technicians; they handle extraction. Exchange products—saves establishing a secondary base."
 
-After breakfast, per prisoners' account, they'd reached Li territory's edge. Han peddlers still occasionally passed; ahead was Juti Village with a large Ming camp called Nanlu Camp—garrisoning the strategic Fanbaoshanpass to Li territory. Though the camp had all-Li soldiers, and some extortion occurred, nothing serious.
+After breakfast, per the prisoners' account, they'd reached Li territory's edge. Han peddlers still occasionally passed; ahead was Juti Village with a large Ming camp called Nanlu Camp—garrisoning the strategic Fanbao Shan pass to Li territory. Though the camp had all-Li soldiers, and some extortion occurred, nothing serious happened.
 
 Wen Desi had learned from the Intelligence Group's *Li Affairs Bulletin*: Fanbaoshan terrain was treacherous, with only a one-person-wide mountain path. This was the main Han-Li boundary pass. Without security guarantees, best not to cross. These prisoners' *dong* villages were north of the pass; beyond Fanbaoshan were mostly "raw Li." Their dialects and customs differed from "cooked Li"; interactions were rare—only uniting during rebellions.
 

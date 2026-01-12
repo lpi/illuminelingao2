@@ -1,6 +1,6 @@
 # Chapter 69: Road Building (Part 2)
 
-After revising the road-building plan, the overall pace accelerated considerably. Wang Luobin kept his word. Through the personnel database, the Committee summoned everyone with tractor, construction machinery, or heavy truck experience. Bai Yu, the former tank soldier who'd been preparing to convert tractors into tanks and farm vehicles into infantry fighting vehicles to father the Travelers' armored corps, was once again ruthlessly conscripted and sent to the engineering team.
+After revising the road-building plan, the overall pace accelerated considerably. Wang Luobin kept his word. Through the personnel database, the Committee summoned everyone with tractor, construction machinery, or heavy truck experience. Bai Yu, the former tank soldier who'd been preparing to convert tractors into tanks and farm vehicles into infantry fighting vehicles to become the father of the Transmigrators' armored corps, was once again ruthlessly conscripted and sent to the engineering team.
 
 Mei Wan personally took the field, touring the site while teaching the new road-building workers how to use tools and do earthwork. Pitifully, most city-bred homebodies couldn't even hold a shovel properly. Asked to dig soil, trench, or level ground—not one did it right.
 
@@ -24,7 +24,7 @@ Mei Wan laughed. "What's your name?"
 
 "Well, I'm getting old and never made it big. Economy's bad now—lost my job again. Figured since I wasn't going anywhere, might as well try somewhere else."
 
-Mei Wan completed his rounds and returned to the tent. He was reasonably satisfied with overall progress. Crew chief Bing Feng came into the tent to report: the kitchen crew had just delivered a 1-ton water tank and salt had been allocated.
+Mei Wan completed his rounds and returned to the tent. He was reasonably satisfied with overall progress. Crew chief Bing Feng came into the tent to report: the kitchen crew had just delivered a one-ton water tank and salt had been allocated.
 
 "Still no hard hats?" Mei Wan asked.
 
@@ -38,11 +38,11 @@ Bing Feng was somewhat confused, not quite understanding what that meant. He mum
 
 Mei Wan lit a cigarette, his mind troubled. His thoughts should all be on this highway, but yesterday's meeting scene kept replaying. He hadn't expected the always-low-profile Zhuo Tianmin to make that move. *That was grandstanding.* Mei Wan thought bitterly: Zhuo Tianmin's architect and consultant certifications were probably very interesting to the Committee...
 
-For a moment, he felt crisis all around. Originally, he'd been quite satisfied with his Building Engineering Group lineup. Bing Feng, the deputy, was a structural engineer—quite specialized. Xiao Yan was a generalist—broad but not deep. Li Xiaolü had strong technical skills but was a woman, with a face that looked uninterested in everything.
+For a moment, he felt crisis all around. Originally, he'd been quite satisfied with his Building Engineering Group lineup. Bing Feng, the deputy, was a structural engineer—quite specialized. Xiao Yan was a generalist—broad but not deep. Li Xiaolu had strong technical skills but was a woman, with a face that looked uninterested in everything.
 
 But now things were different. Though he believed his management and coordination experience in civil engineering was rich, in terms of professional standards, he was clearly no match for this man.
 
-Lost in thought, the walkie-talkie reported: Section 1's 3-kilometer road-base work was complete; the paving team needed to enter—but road-surface material hadn't been determined. Mei Wan grabbed a notebook and a small shovel, left the tent, and walked along the soil-collection ditch, constantly shoveling up soil, examining it visually, pinching and rubbing it. Then noting something in his notebook. Meter after meter. This bewildered Yan Quezhi, who was measuring Wenlan River hydrological data.
+Lost in thought, the walkie-talkie reported: Section 1's three-kilometer road-base work was complete; the paving team needed to enter—but road-surface material hadn't been determined. Mei Wan grabbed a notebook and a small shovel, left the tent, and walked along the soil-collection ditch, constantly shoveling up soil, examining it visually, pinching and rubbing it. Then noting something in his notebook. Meter after meter. This bewildered Yan Quezhi, who was measuring Wenlan River hydrological data.
 
 "Manager Mei, what are you looking for?"
 
@@ -74,7 +74,7 @@ Lost in thought, the walkie-talkie reported: Section 1's 3-kilometer road-base w
 
 Soon, Mei Wan and Yan Quezhi discovered a sandy loam extraction site. If such ideal material wasn't found, Mei Wan could also modify soil based on conditions—but that meant extra steps and much more labor.
 
-Road-surface spreading was personally directed by Mei Wan. Simple highways had light traffic—no need for thick surfaces. 15-centimeter thickness with 2–3 roller compactions was essentially done. The surface was slightly crowned in the center for drainage.
+Road-surface spreading was personally directed by Mei Wan. Simple highways had light traffic—no need for thick surfaces. Fifteen-centimeter thickness with two or three roller compactions was essentially done. The surface was slightly crowned in the center for drainage.
 
 To increase surface strength, the crew mixed some pebbles into the surface soil. Since suitable stones were limited, the effect couldn't match a true gravel road. In other words, vehicles shouldn't drive in rain.
 

@@ -4,7 +4,7 @@ Someone proposed comprehensive interrogation and screening of prisoners—extrac
 
 Though some raised human-rights concerns for prisoners, many clearly had no interest in protecting native human rights but full interest in prisoner torture methods. Before Ran Yao figured out how to conduct interrogations, people volunteered various torture devices and beating techniques.
 
-"I'm interrogating prisoners, not filming 'Ten Tortures of the Qing Dynasty.'" Ran Yao smiled bitterly, repeatedly declining these enthusiastic proposals. But with so many prisoners and the Security Group having much other work, he couldn't handle everything himself. After thinking it over, he applied to the Committee to borrow two former colleagues holding temporary IDs.
+"I'm interrogating prisoners, not filming 'Manchu Torture.'" Ran Yao smiled bitterly, repeatedly declining these enthusiastic proposals. But with so many prisoners and the Security Group having much other work, he couldn't handle everything himself. After thinking it over, he applied to the Committee to borrow two former colleagues holding temporary IDs.
 
 Xiao Guo, who'd planned to prove himself in battle, had been issued a rifle but—wrong location—hadn't fired a single shot. Stuck doing battlefield cleanup, he was frustrated when a transfer order reassigned him to the Security Group. He was thrilled: *Finally back to old work!*
 
@@ -50,7 +50,7 @@ Prisoner name, address, age, occupation, family background—the Internal Affair
 
 Though the interrogation team created sufficient terror atmosphere, Guo Yi and Mu Min quickly learned Chinese peasants' inherent cunning. Everyone claimed to be three-generation poor peasants, not a tile overhead nor standing-room below, with eighty-year-old mothers above and eight-year-old sons below. Guo Yi was confused—*was "three-generation poor peasant" already this popular?*
 
-As for names and addresses—chaos, impossible to verify. Over 100 people supposedly came from eighty or ninety villages. Obviously, many were hiding their real situations. Many had rolled on the ground when captured, trying to use mud to disguise themselves—but river water had stripped their camouflage.
+As for names and addresses—chaos, impossible to verify. Over one hundred people supposedly came from eighty or ninety villages. Obviously, many were hiding their real situations. Many had rolled on the ground when captured, trying to use mud to disguise themselves—but river water had stripped their camouflage.
 
 Other era's interrogators would either be unable to sort through this mess of Zhang San, Li Si, and Wang Ermazi, or resort to torture. But for people from modern institutions, this wasn't a problem. Lies improvised on the spot were easily forgotten.
 
@@ -76,7 +76,7 @@ So Huang Village militia fought especially bravely, with the heaviest casualties
 
 "What about Huang Shoutong?" Guo Yi pressed.
 
-"Didn't see the Militia Commander." The officer said. "When our guns fired, the Commander dismounted to direct—then disappeared..."
+"Didn't see the Militia Commander," the officer said. "When our guns fired, the Commander dismounted to direct—then disappeared..."
 
 Others came from all over—most were long-term laborers sent by masters to make up numbers. Some were destitute outcasts, "without ties," sent by clans or villages to fight—meaning if they died, it didn't matter. Those reluctant to reveal their situations were mostly small landlords, owner-cultivators, and tenant farmers with some property—fearing involvement would lead pirates to plunder or extort their families. Many poor people, out of fear, also made things up.
 
