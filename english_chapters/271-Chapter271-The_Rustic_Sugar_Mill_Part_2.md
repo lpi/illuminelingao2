@@ -1,24 +1,24 @@
 # Chapter 271: The Rustic Sugar Mill (Part Two)
 
-But the color of this sugar appeared very dark—even darker than the ordinary brown sugar commonly seen, nearly what one would call "black sugar."
+However, this sugar was extremely dark—even darker than common brown sugar, bordering on "black sugar."
 
-The liquid draining from the earthenware vat was blackish in color. Wen Tong knew this was "molasses"—during the boiling process, as the granulated sugar continuously crystallized out, what remained was this dark mother liquor. This mother liquor still contained a considerable amount of sugar, but there was no economical means of separating it out. It wouldn't be until after the 1970s that the sugar content could be recovered. Before then, molasses was simply a by-product subject to comprehensive utilization. One of its most promising uses was in distilling spirits—rum, for instance, was made from molasses.
+The liquid draining from the earthenware vat was blackish in color. Wen Tong knew this was "molasses"—during the boiling process, as the granulated sugar continuously crystallized out, what remained was this dark mother liquor. This mother liquor still contained a considerable amount of sugar, but there was no economical means of separating it out. It wouldn't be until after the 1970s that the sugar content could be recovered efficiently. Before then, molasses was simply a by-product subject to general use. One of its most promising uses was in distilling spirits—rum, for instance, was made from molasses.
 
-The workers said what dripped down was called "*shaoshui* sugar." It could be further boiled into a type of black granulated sugar or used for making food products, but it was no longer suitable for external sale.
+The workers said what dripped down was called "*shaoshui* sugar." It could be further boiled into a type of black granulated sugar or used for food products, but it was no longer suitable for external sale.
 
-Wen Tong shook his head. This kind of black sugar wasn't worth making; its economic value was too low. Better to just distill liquor. He asked:
+Wen Tong shook his head. Producing this black sugar wasn't worth the effort; its economic value was too low. It would be better to simply distill it into liquor. He asked:
 
 "Does anyone here make white sugar or rock candy?"
 
 The workers all shook their heads. Liao Dahua translated, explaining that in Xuwen, Haikang, and other places, no one made white sugar or rock candy. All the sugar mills produced this kind of raw brown sugar. Some also made brick sugar. The method was to boil the cane juice to a paste following the same process as raw brown sugar, then pour it into a large iron pan and stir frequently with a wooden stick. Once crystallized, it was poured into a square frame and cut into blocks with a knife—that made brick sugar. Brick sugar was packaged in large bamboo baskets wrapped in dry cane leaves, fifty blocks per basket.
 
-Wen Tong recalled that the true method for making white sugar had emerged precisely in the late Ming Dynasty, using the technique of filtering with yellow mud water. Technically, it wasn't difficult. Why had no one in this area adopted it?
+Wen Tong recalled that the authentic method for producing white sugar had emerged precisely in the late Ming Dynasty, using the technique of filtering with yellow mud water. Technically, it wasn't difficult. Why had no one in this area adopted it?
 
-Wen Tong reviewed the entire sugar-making process in his mind. This sugar mill produced approximately 100 kilograms of raw brown sugar per day. The scale was pitifully small. Moreover, watching the operation just now, although the stoker leading the work was very familiar with the overall production flow, he clearly lacked experience in the actual operations. Whether it was the intensity of the fire, the timing for drawing off the sugar, or the quantity of lime to add, he seemed hesitant. The quality of the sugar produced was obviously not high. And because the stove's construction was crude, the fire was hard to regulate. Several pots of sugar syrup had been scorched. After adding lime, the sediment wasn't fully filtered before being poured out, resulting in a significant loss of sugar. There was still considerable room for improvement here.
+Wen Tong reviewed the entire sugar-making process in his mind. This mill produced approximately 100 kilograms of raw brown sugar per day—a pitifully small scale. Moreover, watching the operation just now, although the stoker leading the work was familiar with the overall production flow, he clearly lacked experience in the actual operations. Whether it was the intensity of the fire, the timing for drawing off the sugar, or the quantity of lime to add, he seemed hesitant. The quality of the sugar produced was obviously poor. And because the stove's construction was crude, the fire was hard to regulate. Several pots of sugar syrup had been scorched. After adding lime, the sediment wasn't fully filtered before being poured out, resulting in a significant loss of sugar. There was still considerable room for improvement here.
 
 While he was deep in thought, someone brought over several cane farmers from the vicinity. Wen Tong inquired about their situations one by one. These farmers' planting areas were all very small—the smallest only ten-odd *mu*, the largest just thirty or forty *mu*. According to them, each *mu* yielded a little over three *shi* of sugar. After growing and harvesting sugarcane, they brought it here for processing. The sugar mill used a sharecropping arrangement for toll processing: the mill took four parts, the cane farmer took six. In some places, farmers paid a fee for processing and kept all the product—when calculated, the costs were about the same either way.
 
-As for where the finished sugar went, according to the farmers, whether it was the mill's own product or the farmers' share, most of it ended up being transported to Hai'an Street in Haikang, where it was purchased by sugar hongs. These hongs were mostly opened by merchants from Chaozhou and Guangzhou who had flocked here specifically to engage in the export of raw sugar. Pack after pack of sugar was loaded onto ships at Hai'an Port and shipped out.
+As for where the finished sugar went, according to the farmers, whether it was the mill's own product or the farmers' share, most of it ended up being transported to Hai'an Street in Haikang, where it was purchased by sugar *hongs*. These *hongs* were mostly opened by merchants from Chaozhou and Guangzhou who had flocked here specifically to engage in the export of raw sugar. Pack after pack of sugar was loaded onto ships at Hai'an Port and shipped out.
 
 "How much net profit do you make growing sugarcane like this?" Wen Tong was curious.
 
@@ -48,7 +48,7 @@ Although he'd already identified many flaws in the process, technical improvemen
 
 "Don't worry too much about wages. We need people right now. Also, if you can recruit long-term workers, or if anyone is selling themselves into service, select honest and reliable people and take them all in."
 
-"Yes." He stepped forward and lowered his voice. "If there are suitable young women, should we buy a few to attend to Shopkeeper Wen and Master Chang's daily needs? Right now, Guangzhou only sent two rough maids. They're heavy-handed and clumsy—probably not good enough to serve you two properly."
+"Yes." He stepped forward and lowered his voice. "If there are suitable young women, should we purchase a few to attend to Shopkeeper Wen and Master Chang's daily needs? Right now, Guangzhou only sent two rough maids. They're heavy-handed and clumsy—probably not good enough to serve you two properly."
 
 "Good, good," Chang Shide quickly said. "Not too young, and not too skinny either."
 
@@ -66,13 +66,13 @@ That evening, the two maids sent from Guangzhou came to pay their respects. Thou
 
 "Old Chang, help me lather up," Wen Tong said to Chang Shide, who was soaking in the hot water with his eyes closed, enjoying himself.
 
-"Have Wen Xiu and his brother do it. Aren't they our manservants? That's exactly what they're for. Just let me enjoy a bit longer." Chang Shide soaked in the hot water with an expression of utter bliss.
+"Let Wen Xiu and his brother do it. Aren't they our manservants? That's exactly what they're for. Just let me enjoy a bit longer." Chang Shide soaked in the hot water with an expression of utter bliss.
 
 Wen Tong thought that made sense—plus he could get a back scrub while he was at it. So he called out loudly. Wen Xiu answered from the next room and immediately came in. He had changed into a short shirt and trousers and was barefoot.
 
 "Your Honor truly has a strong body," Wen Xiu said while vigorously scrubbing his back.
 
-"Hmph, him, with that skinny frame, strong? Look at my pecs—I don't swing that demon-head sword for nothing." Chang Shide splashed noisily.
+"Hmph, him, with that skinny frame, strong? Look at my pecs—I don't swing that ghost-head blade for nothing." Chang Shide splashed noisily.
 
 Wen Xiu didn't dare speak further. Wen Tong said, "Who taught you Mandarin?"
 
@@ -94,11 +94,11 @@ Chang Shide chuckled several times: "Young Guo really knows how to get things do
 
 "Your Honor truly has a fine physique." And he began scrubbing his back.
 
-"I'm thinking there are too many sugar mills. Why not just consolidate and shut some down, run a collective integrated factory? Bring all the sugarcane here for unified processing. Easier to scale up, and utilizing the bagasse would be simpler too."
+"Why not consolidate them? Shut down the scattered mills and run a centralized, integrated factory here. Bring all the sugarcane here for unified processing. Easier to scale up, and utilizing the bagasse would be simpler too."
 
 "I've thought of that, but farmers all like processing nearby. Who'd want to travel far and wide just to sell sugarcane? Too much hassle. And the roads here are terrible," Wen Tong said. "Let's see how the sugarcane estates are distributed. If they're too spread out, the sugar industry in Leizhou is going nowhere."
 
-The problems he was thinking about were actually far more complex. He had gotten a general picture of Leizhou's sugar industry today; what to do next would require further investigation. As for improvements, it was far more than just processing equipment and production processes. In the sugar mill, he had already examined the sugarcane used for juicing—it was actually bamboo cane. This was a variety of sugarcane native to China. Though it was a specialized sugar-making variety, its sugar content was still lower than that of "*Kunlun* cane"—even though the latter was actually a variety grown for chewing. Even in Leizhou, this favored land for sugarcane, bamboo cane's sugar content was only about 9%, far below the 14% standard common to modern sugar-producing varieties. From this perspective, there was great potential for improving cane varieties. The Agricultural Committee preserved seedlings of several superior sugarcane varieties, all of which could be tried here. As for field management, there was undoubtedly even more room for improvement.
+The problems he was thinking about were actually far more complex. He had gotten a general picture of Leizhou's sugar industry today; what to do next would require further investigation. As for improvements, it was far more than just processing equipment and production processes. In the sugar mill, he had already examined the sugarcane used for juicing—it was actually *bamboo* cane. This was a variety of sugarcane native to China. Though it was a specialized sugar-making variety, its sugar content was still lower than that of "*Kunlun* cane"—even though the latter was actually a variety grown for chewing. Even in Leizhou, this favored land for sugarcane, *bamboo* cane's sugar content was only about 9%, far below the 14% standard common to modern sugar-producing varieties. From this perspective, there was great potential for improving cane varieties. The Agricultural Committee preserved seedlings of several superior sugarcane varieties, all of which could be tried here. As for field management, there was undoubtedly even more room for improvement.
 
 "True— ah, ah, oh, that feels good. You've got some massage skills." Chang Shide, being attended to so comfortably, couldn't help letting out groans.
 

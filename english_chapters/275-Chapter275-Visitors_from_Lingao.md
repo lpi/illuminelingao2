@@ -2,9 +2,9 @@
 
 "These past few days, I've actually been watching. Most people are fine, working diligently and conscientiously. But some people..." Chang Shide pointed at seven or eight individuals lying face-down on straw mats, covered with straw curtains, their buttocks and thighs visibly swollen, moaning weakly.
 
-"After eating a few full meals, they got carried away. We originally made them village cadres as a sign of trust. Do the job well, and there would be more important work in the future. But they didn't appreciate it. They thought the stable rice bowl wasn't good enough and had to fish for illicit gains. Now the government has already dealt with them. We won't pursue the matter further here, but they've lost their village cadre positions, and the money they embezzled will be added to their debt—they can work it off in seventy or eighty years, perhaps.
+"After eating a few full meals, they got carried away. We originally made them village cadres as a sign of trust. Do the job well, and there would be more important work in the future. But they didn't appreciate it. They thought the stable rice bowl wasn't good enough and had to fish for illicit gains. Now the government has already dealt with them. We won't pursue the matter further here, but they've lost their positions, and the money they embezzled will be added to their debt—they can work it off over seventy or eighty years, perhaps."
 
-"As for those who realized their mistake and voluntarily returned what they took, we won't punish them here anymore—immediate dismissal, plus one to five years added to their labor term. We're lenient: no matter who it is, each person bears their own crime. No family members will be implicated." Chang Shide had already arranged for the people who had voluntarily returned their embezzlement and their families to be taken care of beforehand. As soon as he finished speaking, these people burst into tears and shouted:
+"As for those who realized their mistake and voluntarily returned what they took, we won't punish them here anymore—immediate dismissal, plus one to five years added to their labor term. We're lenient: no matter who it is, each person bears their own crime. No family members will be implicated." Chang Shide had already arranged for the people who had voluntarily returned their stolen goods and their families to be taken care of beforehand. As soon as he finished speaking, these people burst into tears and shouted:
 
 "The masters are benevolent!"
 
@@ -14,11 +14,11 @@
 
 The atmosphere infected the surrounding crowd, and the gathering grew somewhat lively. Chang Shide felt the effect was quite good. It seemed the *Propaganda and Agitation Manual* was pretty useful.
 
-"You sugar-boiling masters—" Chang Shide's finger swung toward them. A few days earlier, during the "killing the chicken to scare the monkey" operation, Wen Tong had deliberately not arrested any sugar industry workers to protect the technical personnel. But mandatory observation was required of everyone. After returning from the *yamen*, everyone had rushed to return the sugar they'd pilfered. To their surprise, Master Chang had only smiled mysteriously and refused to accept any of it, asking only that each person write a "confession of admission" acknowledgment. Those who couldn't write—no problem, there were pre-written forms; just fill in the numbers and press a thumbprint. These people had been worried for days. When summoned to today's mass meeting, each one was on edge. Now that they'd been called out, how could they hold up? They all fell to their knees in a rustle, their pleas for mercy an unbroken chorus.
+"You sugar-boiling masters—" Chang Shide's finger swung toward them. A few days earlier, during the "killing the chicken to scare the monkey" operation, Wen Tong had deliberately not arrested any sugar industry workers to protect the technical personnel. But mandatory observation was required of everyone. After returning from the *yamen*, everyone had rushed to return the sugar they'd pilfered. To their surprise, Master Chang had only smiled mysteriously and refused to accept any of it, asking only that each person write a "confession of admission." Those who couldn't write—no problem, there were pre-written forms; just fill in the numbers and press a thumbprint. These people had been worried for days. When summoned to today's mass meeting, each one was on edge. Now that they'd been called out, how could they hold up? They all fell to their knees in a rustle, their pleas for mercy an unbroken chorus.
 
 What Chang Shide revealed next was his bottom line: they were all to join the Leizhou Sugar Company collectively, no longer as day laborers. The benefits would be the same as the migrants: meals provided and wages paid. As for what they'd secretly skimmed off—that would be counted as an advance on their wages.
 
-Chang Shide spoke of how magnanimous and lenient he was being, but none of the people below were fools. They knew that if they dared utter the word "no," he held their "confessions" in hand and was on speaking terms with all the county *yamens*. He'd have them dragged to the *yamen* and beaten half to death in no time, left wearing cangues and feeding flies at the *yamen* gate like those unlucky sods. Whether willing or not, everyone said in unison: "We are willing to join the sugar factory."
+Chang Shide spoke of how magnanimous and lenient he was being, but none of the people below were fools. They knew that if they dared utter the word "no," he held their "confessions" in hand and was on speaking terms with all the county *yamens*. He'd have them dragged to the court and beaten half to death in no time, left wearing cangues and feeding flies at the *yamen* gate like those unlucky wretches. Whether willing or not, everyone said in unison: "We are willing to join the sugar factory."
 
 "Work hard, and no one will be shortchanged." Chang Shide looked at the long-faced sugar-boiling masters below and thought this deal was actually quite good.
 
@@ -26,9 +26,9 @@ Next, he reappointed the vacant village cadre positions. Originally, Wen Tong ha
 
 "Everyone work hard for our Leizhou Sugar Company and you won't lose out!" Chang Shide then announced: effective immediately, profits would be divided according to the rules used by Guo Yi's various enterprises in Guangzhou. The dividends would be split into thirteen major shares—ten shares to the shareholders, three shares for bonuses and welfare expenses for all Sugar Company employees. Everyone had a share, from the sugar-boiling masters to the field laborers.
 
-For the income adjustments, Chang Shide followed the wage system implemented by the Guangzhou Station in its various enterprises and established a grading system. All personnel were divided into two categories: agricultural workers and sugar workers, each with three to four levels based on ability. Village heads, militia captains, and similar positions were counted as agricultural workers, evaluated by ability, with additional position allowances on top.
+For the income adjustments, Chang Shide followed the wage system implemented by the Guangzhou Station and established a grading system. All personnel were divided into two categories: agricultural workers and sugar workers, each with three to four levels based on ability. Village heads, militia captains, and similar positions were counted as agricultural workers, evaluated by ability, with additional position allowances on top.
 
-To further raise labor productivity, besides offering shares for profit-sharing, Chang Shide also launched labor competitions at each estate—evaluated monthly. Whichever estate harvested the most cane, produced the most sugar with the least waste, received extra bonuses.
+To further raise labor productivity, besides offering profit-sharing, Chang Shide also launched labor competitions at each estate—evaluated monthly. Whichever estate harvested the most cane or produced the most sugar with the least waste received extra bonuses.
 
 Wen Tong and the others keenly felt the importance of grassroots cadres, so they launched a village cadre rotation training program. All newly appointed village cadres from each village were called to the South China Sugar Factory for training. Besides learning basic literacy, they were also taught knowledge of sugarcane cultivation, field management, and sugar production.
 
@@ -38,11 +38,11 @@ Chang Shide grew somewhat self-satisfied. Besides teaching the daily rotation tr
 
 "Teacher, I was wrong. Please forgive this student—" The Mandarin still sounded somewhat halting.
 
-"Let me discipline you properly, you bad child."
+"Let me discipline you properly, you bad student."
 
 Wen Tong, when passing by Chang Shide's room in the evening, would often hear this neither-here-nor-there yet soul-stirring Mandarin.
 
-"You big pervert." Wen Tong always sneered at this sort of S&M roleplay. At least the guy had some sense of brotherhood and hadn't dragged A-Zhu off to some "evening class"—he was very much in favor of her attending the teacher training class. Unfortunately, he was so exhausted dealing with sugar factory matters that by the time he got back to the compound each day, all he wanted was to sleep. He didn't even have the energy to make use of A-Zhu. Old Chang really did have the sturdier constitution—running around all day, then running around all night. Wen Tong couldn't help but feel melancholy: the gap between people, how could it be so big?
+"You big pervert." Wen Tong always sneered at this sort of kink play. At least the guy had some sense of brotherhood and hadn't dragged A-Zhu off to some "evening class"—he was very much in favor of her attending the teacher training class. Unfortunately, he was so exhausted dealing with sugar factory matters that by the time he got back to the compound each day, all he wanted was to sleep. He didn't even have the energy to make use of A-Zhu. Old Chang really did have the sturdier constitution—running around all day, then running around all night. Wen Tong couldn't help but feel melancholy: the gap between people, how could it be so big?
 
 Wen Tong's entire mind was focused on the technical improvements at the sugar factory lately. Of his two original directions for improvement, one—making white sugar—he had already achieved. Though the process was primitive and output was low, it was quite suitable for their current industrial level. Now it was a matter of how to scale up and improve efficiency.
 
@@ -76,15 +76,15 @@ A figure like this, unconnected to trade or industry—how had he suddenly appea
 
 As these wild thoughts ran through his head, Bei Wei had already come close. He was dressed in Ming-era clothing, in a short working outfit like a hired laborer. Behind him followed several unfamiliar, sturdy young men—probably all Special Reconnaissance Team members. Just as Chang Shide was about to speak, Bei Wei gave him a look, signaling him not to say anything. Without a word, he led his people and blended into the crew of laborers preparing to unload the machinery.
 
-The people who emerged next were the actual leaders of this cargo mission. One was Mei Lin from Lingao Construction Company—obviously here to handle the sugar factory's civil construction work. The other two Chang Shide didn't recognize, but they must be from the Machinery Department, here to assist with equipment installation. All three wore *zhiduo* robes and fake wigs and headwraps, looking completely out of place—awkward from head to toe.
+The people who emerged next were the actual leaders of this cargo mission. One was Mei Lin from Lingao Construction Company—obviously here to handle the sugar factory's civil construction work. The other two Chang Shide didn't recognize, but they must be from the Machinery Department, here to assist with equipment installation. All three wore *zhiduo* robes and wigs with headwraps, looking completely out of place—awkward from head to toe.
 
-"Welcome, welcome," Chang Shide hurried forward. Now that he was "stationed in the provinces," he had to be especially warm to cadres from "the capital." "Old Mei, so you're here on this trip? And these two gentlemen are...?"
+"Welcome, welcome." Chang Shide hurried forward. Now that he was "stationed in the provinces," he had to be especially warm to cadres from "the capital." "Old Mei, so you're here on this trip? And these two gentlemen are...?"
 
 Mei Lin quickly made introductions: "Both from the Machinery Factory. This is Xiao Gui—here to install the steam engine. And this is Chen Tianxiong—"
 
 "I'm Chen Tianxiong. The Executive Committee has assigned me to Leizhou specifically to handle the operation and commissioning of the sugar factory's mechanical equipment. I'll also train some workers on the side." The speaker was nearly forty, with a steady demeanor and a still-robust physique that wouldn't lose to a young man.
 
-"This is wonderful. I was just worrying about what to do for maintenance and upkeep after the machinery was installed!" He glanced around. "This isn't the place to talk. Let's go rest in that tea shed over there first."
+"This is wonderful. I was just worrying about what to do for maintenance and upkeep after the machinery was installed!" Chang Shide glanced around. "This isn't the place to talk. Let's go rest in that tea shed over there."
 
 Because there was a lot of cargo to unload, Chang Shide had long since arranged to reserve a tea shed for supervising the unloading and resting. The Qiwei escort guards stood watch all around.
 

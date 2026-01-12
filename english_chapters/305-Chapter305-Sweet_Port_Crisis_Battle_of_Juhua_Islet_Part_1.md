@@ -1,12 +1,12 @@
 # Chapter 305 - Sweet Port Crisis: Battle of Juhua Islet (Part 1)
 
-Why starboard and not port? This question was obviously meaningless. Le Lin had been in the Navy for months, and he understood the basic military principle of obeying orders.
+Why starboard and not port? This question was meaningless. Le Lin had been in the Navy for months, and he understood the basic military principle of obeying orders.
 
 "Aim directly at the hull," Xi Yazhou said with some regret. "It's a pity we don't have explosive shells; otherwise, one hit would be enough to sink a ship."
 
 "We can use incendiary shot," Le Lin suggested.
 
-The so-called "incendiary shot" was not a napalm bomb, white phosphorus, or thermite, but a solid iron ball heated until it glowed red. This device was quite effective, but gunners had to handle it with extreme caution. Consequently, neither Army nor Navy artillerymen particularly liked this type of ammunition.
+The so-called "incendiary shot" was not a napalm bomb, white phosphorus, or thermite, but a solid iron ball heated until it glowed red. This device was quite effective, but gunners had to handle it with extreme caution. Consequently, neither Army nor Navy artillerymen particularly liked using this type of ammunition.
 
 "Alright, use incendiary shot."
 
@@ -18,7 +18,7 @@ To facilitate naval firing, the four cannons were mounted on battery carriages f
 
 The nearest enemy ship on the starboard side was less than one nautical mile away. With the power of the M1857, the enemy was well within range, but Xi Yazhou did not order fire.
 
-His idea was to ensure a kill with the first strike: the *Great Whale* had to hold out for at least twenty minutes before A Squadron arrived from ten nautical miles away. Thus, the first volley had to score hits and inflict massive casualties; otherwise, a bitter struggle would ensue.
+His plan was to ensure a kill with the first strike: the *Great Whale* had to hold out for at least twenty minutes before Squadron A arrived from ten nautical miles away. Thus, the first volley had to score hits and inflict massive casualties; otherwise, a bitter struggle would ensue.
 
 The M1857's accuracy on land was naturally excellent, but hitting a target at 1,000 meters from a pitching deck was another matter entirely. Though not a naval enthusiast, Xi Yazhou knew that in the age of sail, naval gunnery only ensured consistent hits within 100 meters. The British even emphasized holding fire until within 50 meters.
 
@@ -36,7 +36,7 @@ Steps shuffled briefly across the ship, then silence returned.
 
 "Commence firing!" Xi Yazhou ordered. "Target: 3 o'clock."
 
-The order was immediately relayed to the deck. The straw mats covering the gun positions were swiftly thrown aside, and the sandbags obstructing the field of fire were pushed into the sea, revealing the four dark cast-iron cannon barrels.
+The order was immediately relayed to the deck. The straw mats covering the gun positions were swiftly thrown aside, and the sandbags obstructing the field of fire were pushed into the sea, revealing four dark cast-iron cannon barrels.
 
 "Range: two cables!" The rangefinder operator quickly called out the direct distance.
 
@@ -74,7 +74,7 @@ At the marine platoon leader's command, the marines behind the sandbags opened f
 
 Simultaneously, the four cannons aimed at the starboard enemy fired a beautiful broadside. Four hits out of four. The 12-pound iron balls tore a massive hole in the waterline of a twin-masted ship. It began to sink, and the pirates aboard scrambled into the sea, trying to climb onto another ship behind them.
 
-Use the marines' cheer rose from the deck. "One sunk, one set afire," Le Lin reported.
+A cheer rose from the deck. "One sunk, one set afire," Le Lin reported.
 
 "Good," Xi Yazhou replied. "Continue firing. Switch to canister!"
 
@@ -90,9 +90,9 @@ The duel continued for ten minutes. Both the enemy ships and the *Great Whale* w
 
 "Take cover!" Xi Yazhou shouted. Suddenly his head jolted, leaving him dizzy—a stone projectile had glanced off his helmet.
 
-The pirate ships began attacking with every available weapon. Bird-guns crackled; stone balls, iron shot, lead slugs, arrows, javelins, and torches rained down on the *Great Whale*. Despite the sandbag ramparts, casualties mounted. Xi Yazhou was nearly hit several times; for a split second, his calves trembled, and he desperately wanted to dive behind cover. But believing in his protagonist halo and "tyrant's aura," he stood firm on the sterncastle, issuing orders calmly, as if reviewing a ceremonial salute.
+The pirate ships began attacking with every available weapon. Bird-guns crackled; stone balls, iron shot, lead slugs, arrows, javelins, and torches rained down on the *Great Whale*. Despite the sandbag ramparts, casualties mounted. Xi Yazhou was nearly hit several times; for a split second, his calves trembled, and he desperately wanted to dive behind cover. But believing in his "heroic aura," he stood firm on the sterncastle, issuing orders calmly, as if reviewing a ceremonial salute.
 
-"Where is A Squadron?" Xi Yazhou looked calm but was panicking inside. If A Squadron didn't arrive soon, they would be forced into hand-to-hand combat.
+"Where is Squadron A?" Xi Yazhou looked calm but was panicking inside. If Squadron A didn't arrive soon, they would be forced into hand-to-hand combat.
 
 Casualties increased. The dead and wounded were moved to the lower deck for emergency treatment. Sailors scattered sand over the blood-slicked deck to prevent slipping.
 
@@ -110,13 +110,13 @@ The shouts of sailors, accompanied by the roar of guns and enemy screams, gave L
 
 The *Great Whale*, blazing with gunfire and wreathed in smoke, moved slowly like a fire-breathing dragon across the sea.
 
-Suddenly, Xi Yazhou noticed the enemy ships turning. A Squadron must be here! He grabbed his telescope. Indeed, in a gap in the smoke, two trawlers were approaching at full speed, white waves churning, naval ensigns flying.
+Suddenly, Xi Yazhou noticed the enemy ships turning. Squadron A must be here! He grabbed his telescope. Indeed, in a gap in the smoke, two trawlers were approaching at full speed, white waves churning, naval ensigns flying.
 
 "Finally!" he muttered.
 
 The arrival of the two trawlers ended the battle instantly. Gu Dachun, though shocked by the *Great Whale*'s firepower, had relied on his superior numbers. He believed that by swarming and boarding, he could still capture the ship, especially since his own three commanded vessels were largely intact. But the arrival of these two mastless, oarless fast ships told him immediately who he was facing.
 
-The opponents were the Australians who had defeated Liu Xiang and Zhu Cailao! No wonder their firepower was so terrifying! Gu Dachun was terrified. Compared to Master Zhu in Leizhou, Gu Dachun, who lived by the sea, had heard many rumors about the Australians—especially about their great iron ships and fast iron boats.
+The opponents were the Australians who had defeated Liu Xiang and Zhu Cailao! No wonder their firepower was so terrifying! Gu Dachun was filled with dread. Compared to Master Zhu in Leizhou, Gu Dachun, who lived by the sea, had heard many rumors about the Australians—especially about their great iron ships and fast iron boats.
 
 "Quick, signal to retreat!" Gu Dachun's face was pale as he gave the order.
 

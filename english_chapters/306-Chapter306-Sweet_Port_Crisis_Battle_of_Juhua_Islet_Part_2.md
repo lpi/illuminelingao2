@@ -28,15 +28,15 @@ The two trawlers followed at a leisurely pace. The commander, adhering to the pl
 
 Gu Dachun took the helm himself and was the first to rush into the Chrysanthemum Islets. This was familiar territory to him; he knew exactly where every reef and sandbar lay.
 
-At the artillery position at Cat's Leap Pass, Le Ying looked through his telescope. He saw the fleet reported by telegram minutes ago: six single- or twin-masted sailing ships speeding among the reefs, bays, and channels. Their skill in navigating such hazards amazed him. If not for Wu De's ambush plan, the Navy might not have dared chase them in here.
+At the artillery position at Cat's Leap Pass, Ying Yu looked through his telescope. He saw the fleet reported by telegram minutes ago: six single- or twin-masted sailing ships speeding among the reefs, bays, and channels. Their skill in navigating such hazards amazed him. If not for Wu De's ambush plan, the Navy might not have dared chase them in here.
 
-Now, on the islets and reefs near Cat's Leap Pass, artillerymen had deployed four batteries totaling ten cannons. The position Le Ying commanded had been surveyed by Wu De personally—conditions were excellent: large area, flat terrain. Thus, it hosted the heaviest 12-pounder cannons, commanded by Le Ying himself. The command post was also located here.
+Now, on the islets and reefs near Cat's Leap Pass, artillerymen had deployed four batteries totaling ten cannons. The position Ying Yu commanded had been surveyed by Wu De personally—conditions were excellent: large area, flat terrain. Thus, it hosted the heaviest 12-pounder cannons, commanded by Ying Yu himself. The command post was also located here.
 
-Three days ago, guided by Wang Big Beard, the Navy had transported the disassembled cannons here using light boats. Then, according to the survey, they hauled the guns onto the islets one by one. Using makeshift derricks and pulleys, the sailors and artillerymen overcame difficulties to move tons of cannon parts and ammunition onto four rocky islets. They constructed emplacements and camouflage, then began the long wait.
+Three days ago, guided by Wang the Bearded, the Navy had transported the disassembled cannons here using light boats. Then, according to the survey, they hauled the guns onto the islets one by one. Using makeshift derricks and pulleys, the sailors and artillerymen overcame immense difficulties to move tons of cannon parts and ammunition onto four rocky islets. They constructed emplacements and camouflage, then began the long wait.
 
-"All gun crews, attention!" Seeing the enemy ships approaching, Le Ying grabbed the walkie-talkie. "Prepare for combat!"
+"All gun crews, attention!" Seeing the enemy ships approaching, Ying Yu grabbed the walkie-talkie. "Prepare for combat!"
 
-Le Ying watched the ships closely. They were sailing straight into the trap. The four artillery positions wove a web of death over Cat's Leap Pass. Every topographical reference in this zone had been carefully measured and marked.
+Ying Yu watched the ships closely. They were sailing straight into the trap. The four artillery positions wove a web of death over Cat's Leap Pass. Every topographical reference in this zone had been carefully measured and marked.
 
 Gu Dachun glanced back. The two iron fast ships hadn't followed them in. He let out a huge sigh of relief.
 
@@ -48,23 +48,23 @@ The sea breeze picked up, and the waves grew turbulent.
 
 Just then, he saw a flash of fire from a nearby rocky islet, followed by the roar of a cannon.
 
-Following the first shot aimed and fired by Le Ying himself, the other batteries fired in sequence at intervals of seconds, allowing observers to accurately judge the impact points. Gu Dachun's flagship, leading the way, took concentrated fire. A 12-pound shell hit the deck directly, sending wood splinters flying and eliciting wails of agony. Gu Dachun was killed in this bombardment, struck by a piece of searing iron.
+Following the first shot aimed and fired by Ying Yu himself, the other batteries fired in sequence at intervals of seconds, allowing observers to accurately judge the impact points. Gu Dachun's flagship, leading the way, took concentrated fire. A 12-pound shell hit the deck directly, sending wood splinters flying and eliciting wails of agony. Gu Dachun was killed in this bombardment, struck by a piece of searing iron.
 
-"Correction!" Le Ying observed the fall of shot through his telescope. This was a perfect killing ground: the maximum distance between the islets serving as batteries was less than 500 meters, the minimum barely 100. The channel was narrow with almost no room to maneuver. The maze pirates used for escape had become their dead end. After a few initial misses, the gunners quickly corrected based on the splashes and surrounding landmarks. Their fire grew increasingly accurate. Although white smoke obscured the view from the batteries, Le Ying had placed hidden spotters on adjacent rocks to relay impact data via walkie-talkie.
+"Correction!" Ying Yu observed the fall of shot through his telescope. This was a perfect killing ground: the maximum distance between the islets serving as batteries was less than 500 meters, the minimum barely 100. The channel was narrow with almost no room to maneuver. The maze pirates used for escape had become their dead end. After a few initial misses, the gunners quickly corrected based on the splashes and surrounding landmarks. Their fire grew increasingly accurate. Although white smoke obscured the view from the batteries, Ying Yu had placed hidden spotters on adjacent rocks to relay impact data via walkie-talkie.
 
-When the smoke cleared, the waters of Cat's Leap Pass presented a dismal scene. All six ships had been hit and caught fire. Out of control, they drifted together, some already aground. Masts and sterncastles on many ships had been smashed by cannonballs; others were burning. Corpses and debris floated on the surface. A broken mast bobbed in the water, its sail still aflame. The scene was both terrifying and spectacular. Le Ying didn't care about the outcome of the battle—that was foreordained. He was more interested in which type of shell damaged the enemy ships most.
+When the smoke cleared, the waters of Cat's Leap Pass presented a dismal scene. All six ships had been hit and caught fire. Out of control, they drifted together, some already aground. Masts and sterncastles on many ships had been smashed by cannonballs; others were burning. Corpses and debris floated on the surface. A broken mast bobbed in the water, its sail still aflame. The scene was both terrifying and spectacular. Ying Yu didn't care about the outcome of the battle—that was foreordained. He was more interested in which type of shell damaged the enemy ships most.
 
 The result matched his estimate. For common vessels in Chinese waters, explosive shells were far more effective than solid shot. Since these ships rarely used hardwood—and even if they did, the hulls were thin—black powder shells could easily blast open the hull planks, far more effective than solid round shot that merely punched holes, and superior in anti-personnel effects.
 
-The bombardment lasted a full twenty minutes. Le Ying ordered a ceasefire. The six ships that had rushed into the ambush were paralyzed on the sea. From start to finish, not a single ship had managed to return fire. The rain of shells had destroyed all resistance almost instantly.
+The bombardment lasted a full twenty minutes. Ying Yu ordered a ceasefire. The six ships that had rushed into the ambush were paralyzed on the sea. From start to finish, not a single ship had managed to return fire. The rain of shells had destroyed all resistance almost instantly.
 
 "Send marines to search?" someone suggested.
 
-"Too dangerous." Le Ying looked at the burning ships. "According to the *Great Whale*'s telegram, three ships carried cannons. Who knows how much gunpowder is on board? If it detonates, it's no joke. Wait a while." He issued another order: "Have sampans rescue drowning pirates from a safe distance. Pick up anyone who can swim to the boat."
+"Too dangerous." Ying Yu looked at the burning ships. "According to the *Great Whale*'s telegram, three ships carried cannons. Who knows how much gunpowder is on board? If it detonates, it's no joke. Wait a while." He issued another order: "Have sampans rescue drowning pirates from a safe distance. Pick up anyone who can swim to the boat."
 
 When marines finally boarded the wrecks ashore, they had fished up about forty survivors from the water. There was no loot worth mentioning, so the Navy stripped all iron from the ships.
 
-Following Xi Yazhou's request, Le Ying had all corpses on deck and floating in the sea retrieved. He had the prisoners identify the leaders, then cut off their heads and packed them in boxes filled with lime. This medieval practice made Le Ying very uncomfortable.
+Following Xi Yazhou's request, Ying Yu had all corpses on deck and floating in the sea retrieved. He had the prisoners identify the leaders, then cut off their heads and packed them in boxes filled with lime. This "medieval" practice made Ying Yu very uncomfortable.
 
 Tranquility returned to the sea. The *Great Whale* lay at anchor, repairing masts and rigging damaged in battle. Sailors washed the deck. To lighten the load, some sandbags had been discarded, making the deck look much more spacious.
 

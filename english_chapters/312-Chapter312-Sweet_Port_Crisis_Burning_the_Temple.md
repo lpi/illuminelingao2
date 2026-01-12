@@ -16,7 +16,7 @@ Seeing the moon pass the zenith, he felt uneasy, constantly looking towards the 
 
 Li Yunsheng was one of the few indigenous members of the Special Reconnaissance Team brought by Beiwei from Lingao. Like the Army and Navy, the Special Recon Team had begun absorbing indigenous soldiers, but the standards were particularly strict. First, they had to be orphans with no ties; second, they had to be young—those over fourteen were rejected. Those with vagrant habits, slow reactions, or who loved to play petty tricks were all rejected. Finally, they had to pass a series of physical and skill tests—truly one in a hundred. Except for drill and cultural classes which were the responsibility of the Military and Political School, everything else was conducted within the Special Recon Team. They ate, lived, and trained together with the transmigrators of the Special Recon Team to form a strong sense of belonging and combat camaraderie.
 
-Beiwei instructed the team members: "Treat the cadets like your sons and brothers! They are not only the future seeds of the Special Recon Team! They are also the future guards of the Transmigation regime."
+Beiwei instructed the team members: "Treat the cadets like your sons and brothers! They are not only the future seeds of the Special Recon Team! They are also the future guards of the Transmigration regime."
 
 These cadets had only been trained for three months, and their missions were mainly reconnaissance. This was Li Yunsheng's first time going out alone to execute a mission.
 
@@ -36,7 +36,7 @@ Everyone gathered in a circle, hiding in a chaotic graveyard by the roadside. Li
 
 According to Li Yunsheng's description, the Zou Monk's Temple was large, with as many as four courtyards deep.
 
-"The punks are all gathered in the side rooms and under the eaves of the first courtyard," Li Yunsheng gestured. "So after dark, the temple sexton closed the gate to the second courtyard. The main gate closes relatively late. Besides the main gate, there is a back door behind the temple, but it doesn't connect to the front courtyard."
+"The thugs are all gathered in the side rooms and under the eaves of the first courtyard," Li Yunsheng gestured. "So after dark, the temple sexton closed the gate to the second courtyard. The main gate closes relatively late. Besides the main gate, there is a back door behind the temple, but it doesn't connect to the front courtyard."
 
 Based on his intelligence, Beiwei quickly formulated a plan. He divided the fifteen people into four groups, specified each group's combat division of labor, and then strictly laid down discipline: "This is close to Hai'an Street. Unless absolutely necessary, shooting is forbidden. Try to resolve the battle with knives and crossbows. Don't leave a single thing behind!"
 
@@ -44,21 +44,21 @@ Based on his intelligence, Beiwei quickly formulated a plan. He divided the fift
 
 With Li Yunsheng as the guide, walking in front with Beiwei, they followed the vegetable gardens, wheat fields, ditches, graves, and tree rows on the periphery of Hai'an Street, all the way to the back of a collapsed pavilion north of the Zou Monk's Temple. The team members silently took cover, watching the temple. Under the moonlight obscured by floating clouds, the surrounding scenery was clearly visible.
 
-The temple gate was actually half open. Two punks, probably drunk, were snoring asleep under the threshold. There were faint lights inside.
+The temple gate was actually half open. Two thugs, probably drunk, were snoring asleep under the threshold. There were faint lights inside.
 
 Beiwei carefully observed the surroundings with the only infrared telescope. Although the Zou Monk's Temple was on Hai'an Street, it was actually at the end of the street. The surroundings were very desolate, full of vegetable plots and chaotic grave piles. Only the open ground in front of the temple looked somewhat decent, with many sheds for small businesses set up—now it was midnight, so the sheds were naturally empty.
 
 A few minutes later, the temple door suddenly opened. Two people came out, each carrying something, looking around furtively before heading towards their hiding place.
 
-They slipped along the edge of the vegetable garden. Probably seeing no one around, they straightened up and walked over nonchalantly. Just as they rounded the corner, two team members hiding there silently pounced from behind, tackling them by the waist. The two punks were startled and were about to shout when their throats were choked by hands. They were dragged behind a grave, knife points aimed at their chests.
+They slipped along the edge of the vegetable garden. Probably seeing no one around, they straightened up and walked over nonchalantly. Just as they rounded the corner, two team members hiding there silently pounced from behind, tackling them by the waist. The two thugs were startled and were about to shout when their throats were choked by hands. They were dragged behind a grave, knife points aimed at their chests.
 
-The two punks were scared into lying back against the grave mound. They thought they were being robbed by bandits and begod repeatedly: "Great Kings spare our lives! The little ones have a few taels of silver on us, we offer it all to the Great Kings."
+The two thugs were scared into lying back against the grave mound. They thought they were being robbed by bandits and begged repeatedly: "Great Kings spare our lives! The little ones have a few taels of silver on us, we offer it all to the Great Kings."
 
-"No taking!" A team member flashed his knife.
+"Silence!" A team member flashed his knife.
 
 "Are you Zhao Jijiao's men?"
 
-The two looked at each other, seemingly realizing who the visitors were. One of them had already retracted half of his fear, grinning cheekily: "I wondered who it was, so it's the people from Huanan—"
+The two looked at each other, seemingly realizing who the visitors were. One of them had already retracted half of his fear, grinning cheekily: "I wondered who it was, so it's the people from South China Sugar—"
 
 Beiwei flicked his wrist, and a dagger sank into the man's chest. The man's eyes went wide instantly, his face full of disbelief, and he died.
 
@@ -68,11 +68,11 @@ Everyone immediately smelled a stench. The other one had lost control of his bow
 
 "Yes, yes, this lowly one is."
 
-The terrified punk answered hurriedly, daring not to put on an indifferent hooligan act anymore.
+The terrified thug answered hurriedly, daring not to put on an indifferent hooligan act anymore.
 
 "What were you doing going out at midnight?"
 
-"Going to Huanan to set fire."
+"Going to the factory to set fire."
 
 Searching their belongings, it was indeed true. Each carried a bundle of firewood stuffed with oil-soaked dry twigs, and they had fire starters on them.
 
@@ -92,7 +92,7 @@ Searching their belongings, it was indeed true. Each carried a bundle of firewoo
 
 "This the lowly ones don't know; silver and money are all managed by Zhao Jijiao. We get one tael for going to set a fire once. Ten taels if something burns!"
 
-The price was really not small. Beiwei listened to the Q&A. Master Zhu, you are truly generous.
+The price was really not small. Beiwei listened to the interrogation. Master Zhu, you are truly generous.
 
 "Where is Zhao Jijiao?"
 
@@ -118,21 +118,21 @@ Seeing the questioning was about done, Beiwei nodded. The interrogator thrust th
 
 They stripped the corpses and threw them into a deep pit in the chaotic graveyard—unclaimed bodies were often dumped here. The group headed straight for the Zou Monk's Temple. Beiwei left one person to keep watch outside the temple, led seven others to climb a human ladder over the north wall, stepped on the wall to climb a large pine tree, and slipped into the back of the first courtyard hall.
 
-The front hall was small in scale and looked quite dilapidated—completely mismatched with the halls behind. Moreover, there was a high wall separating the front and back. This was because the first courtyard had long been a gathering place for beggars, vagrants, and punks. To give these people a place to shelter from wind and rain and avoid nagging trouble, the renovation simply abandoned the first courtyard, directly refurbishing and expanding the rear three courtyards. Once the middle door was closed, it became a self-contained entity.
+The front hall was small in scale and looked quite dilapidated—completely mismatched with the halls behind. Moreover, there was a high wall separating the front and back. This was because the first courtyard had long been a gathering place for beggars, vagrants, and thugs. To give these people a place to shelter from wind and rain and avoid nagging trouble, the renovation simply abandoned the first courtyard, directly refurbishing and expanding the rear three courtyards. Once the middle door was closed, it became a self-contained entity.
 
 From the windows of the front hall, light shone out, accompanied by the noise of gambling and the gibberish of drunks. This group really knew how to enjoy nightlife.
 
-Under the gable wall, piles of thoroughly dried firewood and baskets of clear oil were stacked, along with many bamboo torches imported from north-south goods firms—the heads of these torches were processed to ignite easily and burn for a long time.
+Under the gable wall, piles of thoroughly dried firewood and baskets of clear vegetable oil were stacked, along with many bamboo torches imported from north-south goods firms—the heads of these torches were processed to ignite easily and burn for a long time.
 
 Beiwei led his men along the gable wall to the door. Squatting in the shadows and looking inside, the front hall didn't even have clay statues anymore, only empty pedestals and an incense table. A group of people was gathered around it, shouting and gambling. The floor on both sides was covered in straw, with people sleeping in disarray.
 
-Along the walls, there were many sticks of various sizes, presumably their weapons—using knives was a felony; the punks were very legally continuous and absolutely wouldn't let anyone catch them on that handle, so they strictly used sticks when committing violence.
+Along the walls, there were many sticks of various sizes, presumably their weapons—using knives was a felony; the thugs were very legally conscious and absolutely wouldn't let anyone catch them on that handle, so they strictly used sticks when committing violence.
 
 He soon confirmed that Zhao Jijiao was in the crowd. Capture the brigands, capture the king first; this man absolutely could not be allowed to live. Beiwei shrank back and signaled. Two team members rushed to the main gate, silently dispatched the sleepers on the threshold, dragged the bodies in, and dumped them under the gable. Several people busied themselves around the perimeter.
 
 "Action!"
 
-The four windows of the hall were smashed simultaneously, and four incendiary grenades werethrown in. These were the Molotov cocktails of this timeline—renamed Xu Yingjie Cocktails in this timeline to honor his great self-sacrifice in concocting this disgusting mixture.
+The four windows of the hall were smashed simultaneously, and four incendiary grenades were thrown in. These were the Molotov cocktails of this timeline—renamed "Xu Yingjie Cocktails" in this timeline to honor his great self-sacrifice in concocting this disgusting mixture.
 
 The porcelain bottles shattered on the ground, and flames ignited immediately. This flame not only had an extremely high temperature but also strong adhesion; it could sustain combustion even on steel plates until the fuel was consumed, far more intense than throwing torches.
 
@@ -150,13 +150,13 @@ Amidst the chaos, many bamboo tubes were thrown in, bursting on the ground. Grey
 
 Zhao Jijiao licked it—it was oil!
 
-This was clearly the clear oil he had bought, prepared to set fire to Huanan!
+This was clearly the clear oil he had bought, prepared to set fire to South China factory!
 
-His mind worked extremely fast; this was giving him a taste of his own medicine. It must be Huanan's men!
+His mind worked extremely fast; this was giving him a taste of his own medicine. It must be South China Sugar's men!
 
 They wanted to burn them to death!
 
-Thinking of this, Zhao Jijiao was terrified out of his wits. Forget the stick; he roared: "Everyone run! Huanan's men are he—"
+Thinking of this, Zhao Jijiao was terrified out of his wits. Forget the stick; he roared: "Everyone run! The factory's men are he—"
 
 Before the word "here" could leave his mouth, several more grenades were thrown in. One landed right beside him. The splashing high-temperature flames ignited the surrounding clear oil. He let out a scream and was instantly swallowed by the fire.
 

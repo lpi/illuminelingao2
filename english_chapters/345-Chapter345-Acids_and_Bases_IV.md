@@ -1,14 +1,14 @@
 # Chapter 345 - Acids and Bases (IV)
-    
-Xu Yingjie said: "Not exactly. We call it electrolyte; the caustic soda content inside is less than 10%, and there are many impurities, needing further separation treatment."
+
+Xu Yingjie said, "Not exactly. We call it electrolyte; the caustic soda content inside is less than 10%, and there are many impurities, needing further separation treatment."
 
 "Pay attention, chlorine gas!" Ji Situi patted Xu Yingjie's shoulder.
 
 "What, what." Bai Yu wanted to lean over to look.
 
-"Careful, don't move around." Xu Yingjie was a bit excited. What he was thinking about wasn't that chlorine could disinfect, purify the environment, or be used to make hydrochloric acid, but "Poison Gas".
+"Careful, don't move around." Xu Yingjie was a bit excited. What he was thinking about wasn't that chlorine could disinfect, purify the environment, or be used to make hydrochloric acid, but "Poison Gas."
 
-Although chlorine was common, it was the first poison gas put into combat in the history of modern warfare. During WWI, its battle results were remarkable, with countless souls lost to it. Moreover, chlorine was easy to produce and could act as a super weapon in this space-time. Whether Manchu White Armored Soldiers, Guanning Iron Cavalry, Gokenin, or Cromwell's Ironsides, encountering it meant only one thing: "Death".
+Although chlorine was common, it was the first poison gas put into combat in the history of modern warfare. During WWI, its battle results were remarkable, with countless souls lost to it. Moreover, chlorine was easy to produce and could act as a super weapon in this space-time. Whether Manchu White Bayara, Guanning Iron Cavalry, Gokenin, or Cromwell's Ironsides, encountering it meant only one thing: "Death."
 
 Currently, the transmigrators' industry couldn't manufacture gas pressure vessels yet, so storing chlorine was impossible. But Xu Yingjie knew there were many perverts in the Weapon Research Group; maybe they could come up with some wicked ideas.
 
@@ -36,11 +36,11 @@ After the milk of lime was saturated with chlorine absorption, it was pumped int
 
 As for the electrolyte continuously flowing out during electrolysis, it already contained about 10% caustic soda at this time. However, the sodium chloride content in it was higher; such caustic soda liquid couldn't be used and had to undergo concentration treatment.
 
-The equipment Ji Situi used for concentration was a big pot, directly heated and concentrated by coal ignited by firewood. The strong smell made everyone present who didn't wear labor protection glasses run out.
+The equipment Ji Situi used for concentration was a big pot, directly heated and concentrated by coal ignited by firewood. The strong smell made everyone present who didn't wear safety goggles run out.
 
 "Boiling it open like this, isn't the pollution too severe?" Bai Yu said.
 
-"Yes, but don't we lack evaporation pans? This also wastes coal!" Ji Situi said loudly because he was wearing a chemical protective mask, "We'll change it when the machinery factory can provide matching equipment later."
+"Yes, but don't we lack evaporation pans? This also wastes coal!" Ji Situi said loudly because he was wearing a chemical protective mask. "We'll change it when the machinery factory can provide matching equipment later."
 
 After boiling for quite a while, crystals precipitated at the bottom of the pot under the alkali liquid, accumulating more and more.
 
@@ -70,7 +70,7 @@ Even Shi Niaoren came. Seeing the 95% high-purity sodium chloride prepared for h
 
 With enough hydrochloric acid, the planned glucose manufacturing of the pharmaceutical factory could also be put on the construction agenda. Shi Niaoren immediately contacted Wu Nanhai, asking him to quickly provide starch raw materials so they could plan together to set up a glucose workshop immediately.
 
-As for Wu Nanhai, he was overjoyed to suddenly obtain the herbicide he hadn't even hoped for, immediately demanding all relevant output be allocated to him. He also asked with concern when ammonium sulfate could be produced for him, so he could release a super yield satellite with hybrid rice.
+As for Wu Nanhai, he was overjoyed to suddenly obtain the herbicide he hadn't even hoped for, immediately demanding all relevant output be allocated to him. He also asked with concern when ammonium sulfate could be produced for him, so he could release a record-breaking "satellite" yield with hybrid rice.
 
 Even people from the Ministry of Light Industry came to ask how much quota of caustic soda and sulfuric acid could be given to them. With these two things, they could provide snow-white paper; as for soap, it was even less of a problem. However, making soap required cooperation between the Chemical Department and the Light Industry Department, as the Chemical Department was supposed to obtain glycerol through the soap-making process.
 
@@ -102,8 +102,8 @@ Just as the sulfuric acid workshop stabilized, the electrolysis workshop had sev
 
 Shi Niaoren returned from visiting the Bopu Chemical Plant, incidentally settled the supply of several materials urgently needed by the pharmaceutical factory with the Planning Committee and Chemical Department, then went to the Bairen City dormitory area to take a sample before returning to the General Hospital.
 
-"One touch, touching..."
+"Touch once, touch again..."
 
-Humming *Eighteen Touches*, Shi Niaoren walked into Bairen General Hospital carrying several bags of poop. Ye Yuming passing by muttered in surprise: "Is this bro silly from smelling poop all day?"
+Humming *Eighteen Touches*, Shi Niaoren walked into Bairen General Hospital carrying several bags of poop. Ye Yuming passing by muttered in surprise, "Is this bro silly from smelling poop all day?"
 
 The real reason was naturally not so! Shi Niaoren sat in his "First Medical Examination Center in This Space-Time", crossed his legs confidently, piled up a bunch of stool sample jars, and smiled with ambition. The successful production launch of the Chemical Department reignited his enthusiasm for the pharmaceutical factory, which had gradually cooled down—increasing his drive greatly, pondering what other medicines could be made. This was better than ten years of hard internal training. There were people in the Transmigration Group!

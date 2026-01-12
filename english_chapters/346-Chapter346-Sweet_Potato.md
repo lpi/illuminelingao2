@@ -1,6 +1,6 @@
 # Chapter 346 - Sweet Potato
 
-reciprocate favors; Shi Niaoren wanted to do something to express his gratitude. No, not just to the Chemical Department, but also to the Industrial and Energy Committee, the Agricultural Committee, the Army and Navy, the Civil Affairs Committee...
+To reciprocate favors, Shi Niaoren wanted to do something to express his gratitude. No, not just to the Chemical Department, but also to the Industrial and Energy Committee, the Agricultural Committee, the Army and Navy, the Civil Affairs Committee...
 
 Counting on his fingers, it seemed there were too many departments and people to express gratitude to, and it was inconvenient to favor one over another. The best way seemed to be to send a token of friendship to the transmigrators in all these places.
 
@@ -22,7 +22,7 @@ Salt soda water was a labor protection supply and the best beverage for manual l
 
 But Shi Niaoren immediately realized he didn't have baking soda. Not only did he not have it, but the Chemical Department didn't have it either. Baking soda wasn't a rare item, but there had to be soda ash first. If the Soda Ash Plant didn't start work for a day, there would be no baking soda available for a day. So after thinking about this idea, he had to give it up first.
 
-Unable to make soda water, might as well make physiological saline first. Thinking of this, Shi Niaoren decided to visit the pharmaceutical factory. He was waiting for He Ping to arrange some administrative affairs and the barefoot doctor training class—this was the nickname they privately gave to the first doctor training class. Through network recruitment, the Ministry of Health found four or five transmigrators who vainly attempted to escape labor and satisfy special hobbies by studying medicine.
+Unable to make soda water, might as well make physiological saline first. Thinking of this, Shi Niaoren decided to visit the pharmaceutical factory. He was waiting for He Ping to arrange some administrative affairs and the "Mongol Doctor" training class—this was the nickname they privately gave to the first doctor training class. Through network recruitment, the Ministry of Health found four or five transmigrators who vainly attempted to escape labor and satisfy special hobbies by studying medicine.
 
 However, after waiting and waiting, He Ping didn't come. Just as he was waiting anxiously, a glasses-wearing man walking with legs apart arrived, with a number "007" impressively on his chest. Shi Niaoren looked closely; it turned out to be Dugu Qiuhun, the Director of East Gate Market Police Station.
 
@@ -34,9 +34,9 @@ Shi Niaoren inquired carefully, then lifted the clothes to look at the physical 
 
 "What is Chlamydia, inflammation?"
 
-"This..." Shi Niaoren thought for a moment, "No big problem, infection, infection." saying this he wrote a prescription, "Take the prescription to the pharmacy to get medicine from Hippo, tell Sister Li to give you an injection, and you'll be able to reassert your masculinity in two or three days." Shi Niaoren comforted him, then casually took out a small cardboard box from the desk and gave it to him, "Pay attention to safe entry and exit."
+"This..." Shi Niaoren thought for a moment. "No big problem, infection, infection." Saying this he wrote a prescription. "Take the prescription to the pharmacy to get medicine from He Pu, tell Sister Li to give you an injection, and you'll be able to reassert your masculinity in two or three days." Shi Niaoren comforted him, then casually took out a small cardboard box from the desk and gave it to him. "Pay attention to safe entry and exit."
 
-Dugu Qiuhun was startled: "Yes—!"
+Dugu Qiuhun was startled. "Yes—!"
 
 "It doesn't matter; it's not some severe ailment." Shi Niaoren smiled and said, "Better contact indigenous women less in the future."
 
@@ -48,7 +48,7 @@ Dugu Qiuhun was startled: "Yes—!"
 
 Now Shi Niaoren had no mind to wait for He Ping anymore. He left a note on his desk explaining several pending matters, then went to the farm.
 
-Wu Nanhai was not in the office. According to his office secretary Chu Qing: "Master is at the Grain Processing Plant, processing sweet potatoes."
+Wu Nanhai was not in the office. According to his office secretary Chu Qing, "Master is at the Grain Processing Plant, processing sweet potatoes."
 
 "By the river?" Shi Niaoren had never been to that place, only hearing there was a mill there processing rice for locals.
 
@@ -56,29 +56,29 @@ Wu Nanhai was not in the office. According to his office secretary Chu Qing: "Ma
 
 Since Wu Nanhai's Agricultural Committee moved to Bairen City and opened up the farm, sweet potatoes were the first batch of crops planted.
 
-As a crop with high and stable yields, sweet potato had characteristics of wide adaptability, strong stress resistance, drought tolerance, barrenness tolerance, and few pests and diseases. Besides serving as grain rations and feed, and manufacturing starch, even leaves could be utilized as high-quality green feed—almost no part was wasted. Planting in places with better water and fertilizer conditions, general yield per mu could reach 3000-5000 kilograms, with individual cases of 7500 kilograms per mu. Compared to hybrid rice which would fail after only being planted once, it was a more meaningful "Transmigration Artifact".
+As a crop with high and stable yields, sweet potato had characteristics of wide adaptability, strong stress resistance, drought tolerance, barrenness tolerance, and few pests and diseases. Besides serving as grain rations and feed, and manufacturing starch, even leaves could be utilized as high-quality green feed—almost no part was wasted. Planting in places with better water and fertilizer conditions, general yield per mu could reach 3000-5000 kilograms, with individual cases of 7500 kilograms per mu. Compared to hybrid rice which would fail after only being planted once, it was a more meaningful "Transmigration Artifact."
 
-However, in this space-time, sweet potatoes were not quite qualified as "Artifacts". Sweet potatoes were not fresh things here. Since the Wanli era, they had been introduced from the Philippines to China. They were first planted in Guangdong. Qiongzhou, facing it across the sea, enjoyed proximity and also had cultivation. When transmigrators went to the countryside, they often saw sweet potatoes.
+However, in this space-time, sweet potatoes were not quite qualified as "Artifacts." Sweet potatoes were not fresh things here. Since the Wanli era, they had been introduced from the Philippines to China. They were first planted in Guangdong. Qiongzhou, facing it across the sea, enjoyed proximity and also had cultivation. When transmigrators went to the countryside, they often saw sweet potatoes.
 
-Before planting sweet potatoes, for the sake of prudence, Wu Nanhai once asked Wang Tian—who counted as an expert at farming—how was the situation of planting sweet potatoes in Lingao? Wang Tian said: This thing has been planted in Lingao for seven or eight years. The earliest seed potatoes were introduced from Qiongshan side. Not a few people plant it. The advantage is it's trouble-free; just plant and it's done. Harvest the tubers, good for humans to eat and for feeding pigs. The growth period is short too; Lingao can harvest twice a year. It is an excellent miscellaneous grain—just not durable for storage. The local climate is humid, and sweet potatoes rot easily. Growers here don't know various cellar storage methods for sweet potatoes either. Some tried slicing and drying them for storage, but they also mold easily in the rainy season.
+Before planting sweet potatoes, for the sake of prudence, Wu Nanhai once asked Wang Tian—who counted as an expert at farming—how was the situation of planting sweet potatoes in Lingao? Wang Tian said: "This thing has been planted in Lingao for seven or eight years. The earliest seed potatoes were introduced from Qiongshan side. Not a few people plant it. The advantage is it's trouble-free; just plant and it's done. Harvest the tubers, good for humans to eat and for feeding pigs. The growth period is short too; Lingao can harvest twice a year. It is an excellent miscellaneous grain—just not durable for storage. The local climate is humid, and sweet potatoes rot easily. Growers here don't know various cellar storage methods for sweet potatoes either. Some tried slicing and drying them for storage, but they also mold easily in the rainy season."
 
 "The harvest is plentiful, and doesn't cost manpower or fertilizer. At most, one mu can harvest a thousand jin. But this thing can't stand storage. Small households planting too much is useless. Only big and small grain households with many long-term workers and livestock plant more."
 
 "Master Wu! Now there are so many long-term and short-term workers used in various villages in Bairen and Bopu, we could actually plant more sweet potatoes—giving long-term workers rice for every meal like this is a bit of a loss. Actually, half rice and half dried sweet potato shreds, giving half a bowl more in quantity, plus some salted vegetables and salted fish, is already heavy labor food. Saves grain very much." Wang Tian enthusiastically put forward suggestions. Then he presented the tricks he learned to save money for the master when he was a "head worker" for landlords to Wu Nanhai one by one like treasures.
 
-A complex expression flashed across Wu Nanhai's face. From a good side, this showed Wang Tian meant to "serve the master loyally"; from a bad side, Wang Tian's behavior was no different from a "traitor". Wu Nanhai used to hear people say: Foreigners coming to China were originally honest, all led astray by a group of fawning "traitors". Although biased, it was not unreasonable.
+A complex expression flashed across Wu Nanhai's face. From a good side, this showed Wang Tian meant to "serve the master loyally"; from a bad side, Wang Tian's behavior was no different from a "traitor." Wu Nanhai used to hear people say: Foreigners coming to China were originally honest, all led astray by a group of fawning "traitors." Although biased, it was not unreasonable.
 
 "This, discuss later, discuss later." Wu Nanhai couldn't harden his heart.
 
 Seeing Wu Nanhai's face uncertain, Wang Tian didn't know where he spoke wrong, and shut his mouth.
 
-Wu Nanhai thought for a moment and asked: "You said one mu can only harvest a thousand jin?" He didn't believe it. He knew when interning in the countryside that farmers could harvest two or three thousand jin per mu just by planting casually.
+Wu Nanhai thought for a moment and asked, "You said one mu can only harvest a thousand jin?" He didn't believe it. He knew when interning in the countryside that farmers could harvest two or three thousand jin per mu just by planting casually.
 
-Wang Tian said: "Only the first year can harvest more than two thousand jin, then fewer year by year. Little enough to be only eight or nine hundred jin."
+Wang Tian said, "Only the first year can harvest more than two thousand jin, then fewer year by year. Little enough to be only eight or nine hundred jin."
 
 "Impossible..."
 
-Fa Shilu nodded and reminded him: "Virus infection."
+Fa Shilu nodded and reminded him, "Virus infection."
 
 "Right, right, I actually forgot." Wu Nanhai looked ashamed. This was very basic knowledge, and he actually forgot it cleanly.
 
@@ -86,7 +86,7 @@ Sweet potatoes, also including tuber crops like potatoes, adopted asexual reprod
 
 During the autumn harvest season of 1957, Hongtong County in Shanxi produced the national "High Yield Record" for sweet potatoes at that time: Mamuxiang Fenming Agricultural Cooperative's sweet potato yield per mu was 5510 jin.
 
-Sweet potato yield of five thousand jin per mu was no longer a rare thing in the 21st century—new varieties of high-yield virus-free sweet potatoes, if planted carefully, would not have a yield lower than ten thousand jin in the first year. But in 1957 it was already number one in the country—this number one still had more or less some water (exaggeration). Without professional technical support, sweet potato yield was not ridiculously high.
+Sweet potato yield of five thousand jin per mu was no longer a rare thing in the 21st century—new varieties of high-yield virus-free sweet potatoes, if planted carefully, would not have a yield lower than ten thousand jin in the first year. But in 1957 it was already number one in the country—this number one still had more or less some exaggeration. Without professional technical support, sweet potato yield was not ridiculously high.
 
 To date, there were no high virus-resistant sweet potato varieties in agriculture, nor specific medicines to prevent and control viruses. Only by adopting virus-free technology could virus diseases be prevented and controlled, and sweet potato yield and quality improved.
 
@@ -106,6 +106,6 @@ The Ministry of Light Industry also had great interest in the harvest of large b
 
 "This thing sells very well." When Shi Niaoren ran to the bamboo shed known as the food factory, he saw Mo Xiaoan expounding: "It was an export material back then. Even now, dried sweet potato strips are also very popular snacks. In this space-time, sweet potatoes are still rare things; we can totally take the high-end route..."
 
-"I think this is suspenseful—" Wu Nanhai didn't look favorably on the dried sweet potato plan, "Locals in this space-time rarely eat snacks; only some wealthy and leisurely people eat them."
+"I think this is a long shot—" Wu Nanhai didn't look favorably on the dried sweet potato plan. "Locals in this space-time rarely eat snacks; only some wealthy and leisurely people eat them."
 
 "If there is no market in Lingao locally, we can export to Guangzhou."

@@ -2,23 +2,23 @@
 
 The next day, news of the fire at Zou Monk's Temple became a sensation. Many people went to watch the excitement at the ruins, which had already been burned into a pile of rubble. The fire had started so quickly and with such intensity that everyone said they had never seen anything like it—by the time the Hai'an Street Fire Brigade arrived under the protection of the local militia, the entire hall was already burning like a torch.
 
-Those in the know said that the excessive amount of firewood and clear oil piled under the gable walls was the culprit. The punks gambled and drank by lamplight in the hall every day; it was likely carelessness with the lights that started the fire.
+Those in the know said that the excessive amount of firewood and vegetable oil piled under the gable walls was the culprit. The thugs gambled and drank by lamplight in the hall every day; it was likely carelessness with the lights that started the fire.
 
 The destruction of Zhao Jijiao's gang did not elicit sympathy from anyone. Many were even happy that the street had one less gang of villains, saying it was retribution for their usual evil deeds.
 
-However, anyone who had heard of the open strife and veiled struggles between Huanan and Master Zhu didn't think so. This sudden, bizarre fire, from which not a single person in the room escaped, was indeed food for thought. The few punks who were luckily not in the temple and escaped with their lives all fled the next day—their noses were sharper than anyone's.
+However, anyone who had heard of the open strife and veiled struggles between South China Sugar and Master Zhu didn't think so. This sudden, bizarre fire, from which not a single person in the room escaped, was indeed food for thought. The few thugs who were luckily not in the temple and escaped with their lives all fled the next day—their noses were sharper than anyone's.
 
 The yamen runners detained the temple sexton and the fire-tender Taoist from the rear courtyard, but this didn't mean the county yamen considered the incident suspicious—it was purely routine extortion by the runners. Everyone in the temple insisted they heard no suspicious sounds. With some people's influence, the sexton's wife easily negotiated a price with the head of the "Fast Squad" in the teahouse opposite the yamen, and they were released.
 
-After bustling through the streets for a few days, the incident slowly faded. Arson incidents targeting Huanan naturally ceased completely. The sugar merchants who had originally refused to attend meetings now secretly communicated with Huanan through Feng Guangfeng.
+After bustling through the streets for a few days, the incident slowly faded. Arson incidents targeting the factory naturally ceased completely. The sugar merchants who had originally refused to attend meetings now secretly communicated with South China Sugar through Feng Guangfeng.
 
-Originally, everyone was not enthusiastic about the new Huanan Sugar Industry Guild. Now their attitude took a 180-degree turn; the sugar merchants became active. Chang Shide found that "talking business" could now go deeper. Chen Tianxiong seized the time to actively lobby the sugar merchants in private.
+Originally, everyone was not enthusiastic about the new Leizhou Sugar Industry Guild. Now their attitude took a 180-degree turn; the sugar merchants became active. Chang Shide found that "talking business" could now go deeper. Chen Tianxiong seized the time to actively lobby the sugar merchants in private.
 
 Zhu An sat with an iron face in the Haiyi Guild's council hall, seated at the head as usual. The twenty chairs on the left and right sides of the hall were full, occupied by the head shopkeepers of various sugar firms sitting upright.
 
 This was the first meeting of the Haiyi Guild called since Zhu An announced he was "ill." The topic was the rebuilding of Zou Monk's Temple. Third Master Zhu was now surrounded by enemies on all sides, everything falling apart: sugar refinery workers recruited, the Gu family pirates annihilated, sugar merchants betraying him, and Zhao Jijiao's gang inexplicably burned to death.
 
-He thought he held a handful of good cards, but now he was left empty-handed. Third Master Zhu couldn't think of anything else to use against Huanan. Open spears and hidden arrows—he had used them all. Huanan stood tall; not only did it stand, but it also dug out his foundation.
+He thought he held a handful of good cards, but now he was left empty-handed. Third Master Zhu couldn't think of anything else to use against South China Sugar. Open spears and hidden arrows—he had used them all. South China Sugar stood tall; not only did it stand, but it also dug out his foundation.
 
 Deep down, he knew he had failed, but Third Master Zhu was unwilling to accept defeat—he had dominated the Leizhou sugar market for thirty years and had long regarded his every word and deed as the embodiment of authority. When such authority was suddenly lost, he couldn't accept it emotionally.
 
@@ -78,7 +78,7 @@ The sugar merchants, originally just stirring, now became noisy. A moment later,
 
 Zhu An suddenly stood up and shouted: "You despicable, shameless villains!" His voice was so loud it instantly drowned out all others. "Short-sighted, every one of you! The Haiyi Guild is where you settle down and make a living; you are destroying your own foundation!" He roared, "Without my Haiyi Guild—"
 
-"The Haiyi Guild isn't named Zhu!" Feng Guangfeng loudly interrupted him. "For years, the Haiyi Guild has long been your Zhu family's, not everyone's!" He continued loudly: "I propose we invite Manager Wen of Huanan to preside over the big picture of the Haiyi Guild!"
+"The Haiyi Guild isn't named Zhu!" Feng Guangfeng loudly interrupted him. "For years, the Haiyi Guild has long been your Zhu family's, not everyone's!" He continued loudly: "I propose we invite Manager Wen of South China Sugar to preside over the big picture of the Haiyi Guild!"
 
 Wu Yi immediately jumped out: "The current situation can only be resolved by Manager Wen."
 
@@ -122,14 +122,14 @@ Feng Guangfeng was already waiting under the eaves, bowing with clasped hands. "
 
 Liu Yulin, owner of Risheng Firm, was the first to stand up and bow. Then all the shopkeepers of the sugar firms stood straight and bowed. Wen Tong smiled all the way, returning bows.
 
-"Shopkeepers, this is Manager Wen of Huanan Sugar Firm, also the Guild Master of the new Sugar Industry Guild." Wu Yi said loudly.
+"Shopkeepers, this is Manager Wen of South China Sugar, also the Guild Master of the new Sugar Industry Guild." Wu Yi said loudly.
 
 Wen Tong completely ignored Zhu An, whose face was full of flames and wished he could tear him apart. Standing in the center, he bowed in a circle:
 
-"Shopkeepers and owners of the sugar firms, Huanan is honored by your kindness to be moved to become the Guild Master of the Sugar Industry Guild. Huanan will regard this as an honor and a responsibility, daring to accept the command, only to give my all for the sugar industry of Leizhou until my dying day..." He glanced at Zhu An, suddenly feeling this man wasn't scary at all, even pitiful—he still didn't know what he was facing. If he knew, he wouldn't be this angry. "...Zhu An betrayed everyone's trust, controlled the Haiyi Guild for many years, abused power, appointed cronies, embezzled public funds, colluded with pirates, and seduced bandits..." He listed twenty crimes in one breath, each well-founded, mobilizing the emotions of the crowd who had dissented against Zhu An's actions for years, giving a sense of great satisfaction.
+"Shopkeepers and owners of the sugar firms, South China Sugar is honored by your kindness to be moved to become the Guild Master of the Sugar Industry Guild. We will regard this as an honor and a responsibility, daring to accept the command, only to give my all for the sugar industry of Leizhou until my dying day..." He glanced at Zhu An, suddenly feeling this man wasn't scary at all, even pitiful—he still didn't know what he was facing. If he knew, he wouldn't be this angry. "...Zhu An betrayed everyone's trust, controlled the Haiyi Guild for many years, abused power, appointed cronies, embezzled public funds, colluded with pirates, and seduced bandits..." He listed twenty crimes in one breath, each well-founded, mobilizing the emotions of the crowd who had dissented against Zhu An's actions for years, giving a sense of great satisfaction.
 
 "You, you—" Zhu An was so angry he couldn't speak. Indeed, these things were all true, but colluding with pirates and keeping bandits were for the survival of the entire Leizhou sugar industry—expedient measures weighing the lesser of two evils. Moreover, everyone reaped the benefits—for nearly twenty years, the sugar firms in Leizhou enjoyed peace; wasn't it the result of these expedient measures? Now they all became his crimes!
 
 If you want to condemn someone, you can always find a charge! Third Master Zhu's hands and feet went cold—the opponent not only had plenty of money and "force," but was also first-class in "Thick Black Theory"!
 
-Wen Tong spoke excitedly, "...I ask Third Master Zhu to step back from the torrential current bravely! Leave some room for us to see each other in the future, lest checking the accounts makes you a laughing stock!"
+Wen Tong spoke excitedly, "...I ask Third Master Zhu to retreat bravely from the torrent! Leave some room for us to see each other in the future, lest checking the accounts makes for an ugly scene!"

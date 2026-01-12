@@ -8,21 +8,21 @@ Setting aside the truth of this statement, Feng Guangfeng's arrival at least ind
 
 Feng Guangfeng hesitated for a moment before revealing the secret discussions among the many sugar firms of the Haiyi Guild over the past few days.
 
-Except for Master Zhu's Riyicheng, all other firms in the Haiyi Guild now believed it was time to make peace with Huanan. The immense strength Huanan had displayed in mobilizing capital and dealing with pirates made them clearly realize that Master Zhu's attempt to strangle Huanan was like a mantis trying to stop a chariot.
+Except for Master Zhu's Riyicheng, all other firms in the Haiyi Guild now believed it was time to make peace with the South China factory. The immense strength the factory had displayed in mobilizing capital and dealing with pirates made them clearly realize that Master Zhu's attempt to strangle them was like a mantis trying to stop a chariot.
 
-Therefore, they proposed: a truce. The Haiyi Guild would accept Huanan as a member, enjoying all treatment of the trade: hereafter, Huanan could acquire sugar in Leizhou as it pleased, provided it followed the guild's agreed pricing, without obstruction from other members; Huanan's sugar could be shipped out freely, with no interference from the guild.
+Therefore, they proposed a truce. The Haiyi Guild would accept South China Sugar as a member, enjoying all the privileges of the trade: hereafter, the company could acquire sugar in Leizhou as it pleased, provided it followed the guild's agreed pricing, without obstruction from other members; likewise, their sugar could be shipped out freely, with no interference from the guild.
 
-In return, they hoped Huanan would lower its price to 1.8 taels, while the Haiyi Guild raised theirs to 2 taels. This would attract farmers who hadn't sold yet to Hai'an Street.
+In return, they hoped South China Sugar would lower its acquisition price to 1.8 taels, while the Haiyi Guild raised theirs to 2 taels. This would attract farmers who hadn't sold yet to return to Hai'an Street.
 
-"This is unreasonable, I know," Feng Guangfeng said. "But these days, almost no guild members have received any sugar stocks. Huanan has acquired plenty this season and made big money. We beg you to show mercy and leave a path for your colleagues to survive!" He bowed deeply again.
+"This is unreasonable, I know," Feng Guangfeng said. "But these days, almost no guild members have received any sugar stocks. Your factory has acquired plenty this season and made big money. We beg you to show mercy and leave a path for your colleagues to survive!" He bowed deeply again.
 
-Wen Tong thought these conditions were absurd—this was suing for peace? Offering a seat in the Haiyi Guild was a great concession? As for free acquisition and shipping, wasn't Huanan free now? Of course, this "freedom" had been won by the Transmigration Group's guns. The Great Ancestor's saying "Political power grows out of the barrel of a gun" truly pierced the essence of things.
+Wen Tong thought these conditions were absurd—this was suing for peace? Offering a seat in the Haiyi Guild was a great concession? As for free acquisition and shipping, wasn't South China Sugar free now? Of course, this "freedom" had been won by the Transmigration Group's guns. The Great Ancestor's saying "Political power grows out of the barrel of a gun" truly pierced the essence of things.
 
-"Boss Feng!" Wen Tong thought for a moment. "This is strange talk! The acquisition of sugar stocks is a matter of the Haiyi Guild lowering prices itself. What does it have to do with Huanan? If you want to buy sugar now, just raise the price back up. Huanan promises not to raise prices further, anyway."
+"Boss Feng!" Wen Tong thought for a moment. "This is strange talk! The acquisition of sugar stocks is a matter of the Haiyi Guild lowering prices itself. What does it have to do with us? If you want to buy sugar now, just raise the price back up. We promise not to raise prices further, anyway."
 
-"This—" Feng Guangfeng was speechless. The argument was well-founded and irrefutable. He, too, felt that asking Huanan to adjust prices was hard to justify.
+"This—" Feng Guangfeng was speechless. The argument was well-founded and irrefutable. He, too, felt that asking them to adjust prices was hard to justify.
 
-"...Is joining the Haiyi Guild so rare a privilege?" Wen Tong laughed. "Isn't Huanan doing just fine so far? You've seen the end of those who tried crooked schemes. You people, naive! Truly too naive! To still harbor such thoughts at this stage!" He laughed loudly, displaying his "tyrant's aura." "If my employer didn't wish to be benevolent to the utmost, the Haiyi Guild would have been ashes long ago."
+"...Is joining the Haiyi Guild so rare a privilege?" Wen Tong laughed. "Isn't our factory doing just fine so far? You've seen the end of those who tried crooked schemes. You people, naive! Truly too naive! To still harbor such thoughts at this stage!" He laughed loudly, displaying an aura of command. "If my employer didn't wish to be benevolent to the utmost, the Haiyi Guild would have been ashes long ago."
 
 This laugh was hearty and unrestrained, sweeping away the gloom of months of anxiety. Even Zhou Shizhai, whose martial cultivation usually kept him "unmoved," smiled.
 
@@ -48,9 +48,9 @@ Chen Tianxiong already knew this from investigations. Seeing him speak without e
 
 "We need to take over this organization, the Haiyi Guild," Wen Tong said after seeing Feng Guangfeng out.
 
-Several key figures of Huanan had gathered in the room. Mei Lin had returned to Lingao; Xiao Gui and Beiwei were uninterested in business matters and didn't attend. Chang Shide, fresh from Lingao, was present.
+Several key figures of the South China factory had gathered in the room. Mei Lin had returned to Lingao; Xiao Gui and Beiwei were uninterested in business matters and didn't attend. Chang Shide, fresh from Lingao, was present.
 
-"Naturally. Otherwise, we could just wipe them out," Chen Tianxiong said. His thinking was more complex than Wen Tong's. Intelligence gathering had given him a good understanding of the Haiyi Guild's scale and capability. The twenty-one sugar firms had a minimum capital of over ten thousand taels each. Total capital exceeded five or six hundred thousand taels. If this money could be manipulated by the Transmigration Group, it would greatly benefit Huanan's next steps.
+"Naturally. Otherwise, we could just wipe them out," Chen Tianxiong said. His thinking was more complex than Wen Tong's. Intelligence gathering had given him a good understanding of the Haiyi Guild's scale and capability. The twenty-one sugar firms had a minimum capital of over ten thousand taels each. Total capital exceeded five or six hundred thousand taels. If this money could be manipulated by the Transmigration Group, it would greatly benefit the factory's next steps.
 
 Manipulation didn't mean possession. That would be naked robbery. Merely joining the "Haiyi Guild" as a member wouldn't allow manipulation. Although Master Zhu controlled the guild to an extent, he only managed to facilitate communication and unity; business was still done individually.
 
@@ -64,7 +64,7 @@ Manipulation didn't mean possession. That would be naked robbery. Merely joining
 
 "That's why now is the time," Chen Tianxiong said. "We ride the momentum of the great victory at Juhua Islet. While they're scared to death, we push it through in one go. Once they recover, we might not be able to control these sugar dogs!" He sipped his tea. "Complex hearts don't matter. The key is to hold onto the word 'profit'."
 
-The Haiyi Guild united against Huanan for profit; now they sought peace and prepared to abandon Master Zhu for profit. As long as Huanan Corporation could provide enough profit, these merchants would gladly obey.
+The Haiyi Guild united against South China Sugar for profit; now they sought peace and prepared to abandon Master Zhu, also for profit. As long as the South China parent company could provide enough profit, these merchants would gladly obey.
 
 "However, execution is difficult. The key is finding someone among them who knows the trade and the world. Only then will our words move them. Otherwise, if they're all bumpkins, we'll just be shouting at the wind!"
 

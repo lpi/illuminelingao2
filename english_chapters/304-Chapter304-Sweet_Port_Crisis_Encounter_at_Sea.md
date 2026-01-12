@@ -1,47 +1,47 @@
 # Chapter 304 - Sweet Port Crisis: Encounter at Sea
 
-To the east, roughly six nautical miles away, a column of ten or so vessels of varying sizes appeared.
+To the east, roughly six nautical miles away, a column of ten or so vessels of varying sizes appeared on the horizon.
 
 Le Lin, the first mate of the *Great Whale*, raised his telescope and studied the distant ships' course with intense concentration.
 
-A light breeze filled the *Great Whale*'s two stiff sails, pushing the ship along at two knots. The first mate checked his watch. They had been underway for two hours since leaving Hai'an harbor.
+A light breeze filled the *Great Whale*'s two stiff sails, pushing the ship along at a sluggish two knots. The first mate checked his watch. They had been underway for two hours since leaving Hai'an harbor.
 
-The *Great Whale* had entered Hai'an the previous night and offloaded two hundred *shi* of rice, then loaded two hundred *shi* of sugar. Originally, the plan excluded loading sugar—after all, the ship's mission was bait; in battle, cargo integrity was impossible. Whether soaked, burned, or bloodstained, the sugar would be unsaleable. Moreover, sugar was an excellent accelerant.
+The *Great Whale* had entered Hai'an the previous night, offloaded two hundred *shi* of rice, and then loaded two hundred *shi* of sugar. Originally, the plan excluded loading sugar—after all, the ship's mission was to serve as bait. In battle, preserving current cargo would be impossible. Whether soaked by seawater, burned by fire, or stained with blood, the sugar would be rendered unsaleable. Moreover, sugar was an excellent accelerant; a fire on board during combat would be no laughing matter.
 
-But loading no sugar would make the bait unconvincing—and the enemy had spies on Hai'an Street.
+But loading no sugar would make the bait unconvincing—the enemy certainly had spies on Hai'an Street watching their every move.
 
-Xi Yazhou raised his telescope. He had deleted too many posts from the Lingao BBS and his popularity had plummeted. He was eager for an opportunity to distinguish himself. This was a naval operation, but with key Navy personnel away, the *Great Whale* was designated as bait—essentially artillery and close-quarters combat—so an Army officer could command. Ship handling remained the Navy crew's responsibility.
+Xi Yazhou raised his telescope. He had recently deleted too many contentious posts from the Lingao BBS, causing his popularity to plummet. He was now eager for an opportunity to distinguish himself in the real world. This was a naval operation, but with so many key Navy personnel away on exploration missions and the *Great Whale* designated as bait—essentially a platform for artillery and close-quarters combat—an Army officer commanding the fighting force was deemed acceptable. Ship handling, of course, remained the Navy crew's responsibility.
 
-"First mate," he said. "Are those the pirates the Haiyi Guild hired?"
+"First mate," he said, turning to Le Lin. "Are those the pirates the Haiyi Guild hired?"
 
 "Very likely," Le Lin replied. "We can't be certain yet—wait until they get closer."
 
 "Good. Order a heightened alert. Everyone prepare."
 
-The order was relayed. Lookouts increased to four.
+The order was relayed immediately. Lookouts were increased to four.
 
-"Send a message to A Squadron: suspicious vessels sighted approximately six nautical miles away." Xi Yazhou stood on the sterncastle, feeling like a general—though the deck piled with burlap sacks detracted from the image.
+"Send a message to Squadron A: suspicious vessels sighted approximately six nautical miles from our position." Xi Yazhou stood on the sterncastle, feeling a bit like a general in a movie—though the deck, piled high with burlap sacks, rather detracted from the martial image.
 
-A Squadron—two trawlers providing cover—held station ten nautical miles south. Once combat commenced, they would rush to assist. If the enemy had fewer than four ships, they would destroy them; if more, they would defend the *Great Whale* and force the pirates toward Chrysanthemum Islets.
+Squadron A—consisting of two armed trawlers providing cover—held station ten nautical miles south. Their orders were to intervene once combat commenced to prevent the *Great Whale* from being overwhelmed. If the enemy had fewer than four ships, Squadron A would help destroy them on the spot; if there were more, they would use their speed and firepower to defend the *Great Whale* while herding the pirates toward the Chrysanthemum Islets, where the trap was set.
 
-The fleet closed rapidly at an estimated four knots, using sails plus six to eight sculling oars per ship.
+The enemy fleet closed rapidly. The breeze was light, yet they were approaching at an estimated four knots.
 
-"They're sculling hard to catch us," Le Lin observed.
+"They're using sculling oars," Le Lin observed. "They're rowing hard to catch us."
 
-"Pirates for certain!" Le Lin lowered his telescope.
+"Must be the pirates then." Le Lin lowered his telescope.
 
 "Agreed. All hands, battle stations!"
 
-The ship's bell clanged. Sailors and Army gunners sprinted to posts. Sugar sacks went below; sand-filled bags remained as emplacements. Seawater pumped onto decks guarded against incendiary attack.
+The ship's bell clanged urgently. Sailors sprinted to their posts, joined by Army gunners in gray uniforms with red collar patches. The sugar sacks stacked on the outer layer were moved below deck, while the sand-filled sacks remained to form defensive breastworks. Four 12-pounder cannons and their ammunition crates were deeply ensconced within these fortifications, covered by straw mats. Pumps began to cycle, dousing the sacks and deck with seawater to guard against incendiary attacks.
 
-The approaching fleet belonged to Gu Dachun—ten vessels including seven recently recruited freelance boats. Five thousand taels from Master Zhu and the previous raid's proceeds had emboldened him. This time, Master Zhu's message was explicit: seizing sugar was secondary; the goal was ensuring no ship except Haiyi Guild vessels would dare haul sugar from Leizhou.
+The approaching fleet belonged to Gu Dachun—ten vessels, including seven freelance boats he had recently recruited. The five thousand taels from Master Zhu, combined with the proceeds from his previous raid, had emboldened him. This time, Master Zhu's instructions were explicit: seizing sugar was secondary; the primary goal was terror. He wanted to ensure that no ship except those of the Haiyi Guild would dare haul sugar from Leizhou ever again.
 
-Gu Dachun intended to show no mercy. His three ships were armed with over a dozen cannons, but without competent gunners, combat would hinge on boarding. Pirates massed on deck, weapons ready.
+Gu Dachun intended to show no mercy. He had expanded his force by recruiting rough fishermen-turned-bandits from the lawless border region of Jiangping. He had also managed to procure over a dozen cannons from illicit workshops in Qinzhou, though good gunpowder was harder to find. His own three ships were now armed, but his crews were unskilled gunners who feared their own cannons as much as the enemy's. Thus, his strategy remained traditional: close in, board, and slaughter.
 
-Of ten enemy vessels, three were twin-masted with three to five cannons each. The remaining seven were smaller, carrying no artillery but packed with armed men. The enemy had eleven to fifteen cannons; the *Great Whale* had four. Over a hundred marines would face seven or eight hundred adversaries.
+Of the ten enemy vessels, three were twin-masted large ships carrying three to five cannons each. The remaining seven were smaller, lacking artillery but packed with armed men. The enemy fielded eleven to fifteen cannons against the *Great Whale*'s four. In manpower, over a hundred transmigrator-led marines faced seven or eight hundred desperate pirates.
 
-The transmigrators had to avoid boarding combat. Numbers would tell in close quarters—there was nowhere to run on a ship.
+The transmigrators had to avoid boarding combat at all costs. Numbers would tell in close quarters—there was nowhere to run on a ship.
 
-By eight o'clock, the pirate fleet had maneuvered one nautical mile upwind. Three twin-masted vessels took center; seven others fanned out to encircle the *Great Whale*.
+By eight o'clock, the pirate fleet had maneuvered into a position one nautical mile upwind. While illiterate, these pirates understood the basics of naval tactics: seize the weather gage. The three twin-masted vessels took the center, while the seven smaller boats fanned out to encircle the *Great Whale*—three to the right, four to the left—intending to swarm the target.
 
-"We must not let them near," Xi Yazhou told Le Lin. "Concentrate all firepower on one flank. All guns—target the starboard side."
+"We must not let them board," Xi Yazhou told Le Lin. "Concentrate all firepower on one flank. All guns—target the starboard side."

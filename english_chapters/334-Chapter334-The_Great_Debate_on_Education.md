@@ -1,14 +1,14 @@
 # Chapter 334 - The Great Debate on Education
 
-Lu Jia didn't recognize them either, or rather didn't recognize all of them. He was currently at a semi-illiterate level, but he had memorized them in class, so he pretended to recognize the characters, pointing his finger at the regulations and "reading" them line by line to him.
+Lu Jia didn't recognize them either, or rather didn't recognize all of them. He was currently at a semi-illiterate level, but he had memorized them class, so he pretended to recognize the characters, pointing his finger at the regulations and "reading" them line by line to him.
 
-Halfway through the "reading," the sound of a cloud gong (flat gong) came from outside. The children cheered: Time to eat! Looking at everyone jumping for joy, evidently, the food here was quite good.
+Halfway through the "reading," the sound of a cloud gong came from outside. The children cheered: "Time to eat!" Looking at everyone jumping for joy, evidently, the food here was quite good.
 
-There was no cafeteria here; everyone took their bowls and chopsticks to queue at the kitchen to get food, then returned to the dormitory to eat one portion per person. Fu Wuben saw that they were actually eating dry rice! There was also a small steamed fish, boiled vegetables, and a bit of egg stir-fried with fish meal. He couldn't help but feel a little excited. Such meals couldn't be eaten even during the busy farming season usually.
+There was no cafeteria here; everyone took their bowls and chopsticks to queue at the kitchen to get food, then returned to the dormitory to eat one portion per person. Fu Wuben saw that they were actually eating steamed rice! There was also a small steamed fish, boiled vegetables, and a bit of egg stir-fried with fish meal. He couldn't help but feel a little excited. Such meals couldn't be eaten even during the busy farming season back home.
 
-"Three meals a day: one dry, two porridge; the food is very good!"
+"Three meals a day: one with steamed rice, two with porridge; the food is very good!"
 
-When it was Fu Wuben's turn to get food, the person serving food said: "Newcomer? Show me your plaque."
+When it was Fu Wuben's turn to get food, the person serving said, "Newcomer? Show me your plaque."
 
 Looking at the bamboo plaque on his neck, the cook asked:
 
@@ -16,13 +16,13 @@ Looking at the bamboo plaque on his neck, the cook asked:
 
 "Mm, mm." Fu Wuben wondered why this question was asked when getting food.
 
-"Drink this." So he drank another dose of the bitter liquid medicine he drank during "purification."
+"Drink this." So he consumed another dose of the bitter liquid medicine he had drunk during "purification."
 
 Seeing him finish it, the cook gave him an extra fish cake.
 
-"You can eat Recuperation Meals for ten days!" Saying this, he wrote a few symbols with chalk on a wooden board.
+"You can eat Convalescent Meals for ten days!" Saying this, he wrote a few symbols with chalk on a wooden board.
 
-"You even have Recuperation Meals to eat." Yuan Fei was somewhat envious. This kind of treatment was usually only enjoyed by sick people.
+"You even have Convalescent Meals to eat." Yuan Fei was somewhat envious. This kind of treatment was usually only enjoyed by sick people.
 
 "I was sick." As Fu Wuben spoke, his heart felt warm, and he almost shed tears. For eleven years, for the first time, he felt he was living like a human being. Someone truly cared about him as a person, instead of treating him merely as a mouth to feed or half a laborer.
 
@@ -40,19 +40,19 @@ Phenomenon 1: Emails requesting the fulfillment of "Living Secretaries" increase
 
 Phenomenon 2: Signs of applying to adopt "apprentices," "adopted sons," and "adopted daughters" had appeared. Although currently the Executive Committee hadn't opened up "cross-gender adoption" except for a few special cases, otherwise there would probably be many people raising lolis now.
 
-However, the transmigrators were starting to scatter now. Once a major incident occurred, gathering the troops would probably face big problems. Xiao Zishan thought about whether to raise this issue at the Executive Committee's enlarged meeting while riding a Type-28 heavy-duty agricultural bicycle—he was going to the site of the new school today—one of the Transmigration Group's key projects, the National School, was about to be completed.
+However, the transmigrators were starting to scatter now. Once a major incident occurred, gathering the troops would probably face big problems. Xiao Zishan thought about whether to raise this issue at the Executive Committee's enlarged meeting while riding a Type-28 heavy-duty bicycle—he was going to the site of the new school today—one of the Transmigrators' key projects, the National School, was about to be completed.
 
 Since starting to take in orphans in Guangdong, the transmigrators had prioritized cultivating the next generation of successors from the indigenous population. Adults currently, regardless of age group, were inevitably tainted with various habits, mindsets, and lifestyles of this timeline. No matter how much indoctrination and brainwashing were done, residues would remain. The best way was to start with children, cultivating a new generation of laborers, soldiers, and administrative cadres ten or twenty years later.
 
-This educational vision would first benefit the so-called "children within the system" of the Transmigration Group. They had two sources: children of indigenous employees working for the transmigrators, and orphans collected from the mainland and locally. Especially the latter, they were the key objects of cultivation—their backgrounds were clean, without any family relations to care for or influence them. They regarded the transmigrators who saved them from the sea of bitterness as parents and gods.
+This educational vision would first benefit the so-called "children within the system" of the Transmigration Group. They had two sources: children of indigenous employees working for the transmigrators, and orphans collected from the mainland and locally. Especially the latter, they were the key objects of cultivation—their backgrounds were clean, without any family relations to care for or influence them. They regarded the transmigrators who saved them from the sea of misery as parents and gods.
 
-In the past half-year, the Transmigration Group had already set up several different systems of educational models. There were night schools promoted in rural areas; Rural Cadre Training Institutes run by Du Wen; literacy education run by quarantine camps; so-called military-political schools run by administrative and military systems; Hygiene Schools run by the Ministry of Health; National Schools taking in orphans; and finally, the vocational education "Apprentice Corps" run by the Industrial and Energy Committee.
+In the past half-year, the Transmigration Group had already set up several different systems of educational models. There were night schools promoted in rural areas; Rural Cadre Training Institutes run by Du Wen; literacy education run by quarantine camps; so-called military-political schools run by administrative and military systems; Health Schools run by the Ministry of Health; National Schools taking in orphans; and finally, the vocational education "Apprentice Corps" run by the Industrial and Energy Committee.
 
 Among these varied educational models, except for the Training Institutes using local dilapidated temples for classes, almost none had formal classrooms. Children generally received education in open-air grounds, doing homework and reciting books in dormitories on rainy days. The teaching conditions were too poor, so all education so far could only count as literacy and training in nature; continuing like this was not a long-term plan.
 
 Because there were too many names involving multi-headed management, and Zhou Dongtian felt at a loss on how to print textbooks—it seemed everyone prepared to create their own set of textbooks—the Executive Committee decided to uniformly organize all educational models to concentrate resources.
 
-On the issue of how to establish an education system, as usual, it divided into multiple debating factions. Doctor Zhong Lishi was most interested in this topic and proposed a plan first. Of course, this plan was also the most "high-end."
+On the issue of how to establish an education system, as usual, it divided into multiple debating factions. Dr. Zhong Lishi was most interested in this topic and proposed a plan first. Of course, this plan was also the most "high-end."
 
 Education would be divided into Public Schools and Private Schools. Private schools would be run by individuals; the government would not designate textbooks except for Mandarin and basic arithmetic but would use administrative and economic means to encourage private school teachers to use standard textbooks. Attending public schools would be free (taxes as usual); attending private schools at one's own expense would allow for discretionary tax reductions.
 
@@ -64,30 +64,30 @@ Hu Qingbai, as the People's Commissar for Education, immediately raised objectio
 
 Everyone also felt this system was too luxurious. Providing enough teachers in the short term alone was an insoluble problem. Then, another luxurious plan was proposed mainly by Army and Navy officers. They didn't care much about basic education but hitched a ride to talk big about military education.
 
-"Given the severe situation faced by our Transmigration Government, education must be militarized!" Zhang Berlin shouted this term without taboo, "No matter what education system is adopted, military training courses must be set up! At the same time, establish Army Junior Schools, Army Officer Schools..." Zhang Berlin was very enthusiastic, "In the future, we can establish an Army War College!"
+"Given the severe situation faced by our Transmigration Government, education must be militarized!" Zhang Berlin shouted this term without taboo. "No matter what education system is adopted, military training courses must be set up! At the same time, establish Army Junior Schools, Army Officer Schools..." Zhang Berlin was very enthusiastic. "In the future, we can establish an Army War College!"
 
 "The Navy demands the same treatment." Li Haiping did not yield. What the Army has, the Navy naturally must have too.
 
-"Red Brand Port Naval Officer School!" (Reference to Etajima)
+"Hongpai Port Naval Officer School!"
 
-"Red Brand Naval Academy!" Regarding this so-called Naval Officer School which was not even a shadow yet, different opinions on the name had already appeared within the Navy.
+"Hongpai Naval Academy!" Regarding this so-called Naval Officer School which was not even a shadow yet, different opinions on the name had already appeared within the Navy.
 
-"Pah, you traitor (Hanjoin). Do you also want to sing the *Warship March*?"
+"Pah, you *Hanjian* (traitor). Do you also want to sing the *Warship March*?"
 
 "The copyright of *Warship March* belongs to this officer!"
 
-"Then I wish 'Your Excellency' an early 'Jade Shattering' (Gyokusai/death in battle) for the Transmigration Group."
+"Then I wish 'Your Excellency' an early *Gyokusai* (shattering like jade) for the Senate."
 
 ...
 
 The military academies proposed by the Army and Navy immediately triggered a trend of various departments demanding to establish their own exclusive schools. The Ministry of Health wanted a Health School, Wu Nanhai wanted an Agricultural School, the Prospecting Team wanted a Geology School... Numerous and in full swing.
 
-"Enough!" Wen Desi interrupted everyone's discussion. "This isn't opening a thread on the BBS to discuss; saying anything goes, the flashier the better. Everyone keep your eyes realistic! Stop drawing big cakes (pie in the sky) constantly."
+"Enough!" Wen Desi interrupted everyone's discussion. "This isn't opening a thread on the BBS to discuss; saying anything goes, the flashier the better. Everyone keep your eyes realistic! Stop painting pie in the sky constantly."
 
-"In my opinion, currently focus on literacy classes and simple normal (teacher/pedagogical) education. Adding a simple Cadre Training Institute is enough." Ma Qianzhu said, "First, we don't need to care about universal education in Lingao; that isn't our business. We only need to cultivate basic applied talents currently needed by the Transmigration Group—soldiers knowing how to write and do addition, subtraction, multiplication, and division within 100 is enough. At most, engineers and artillerymen understanding four arithmetic operations plus simple geometric applications. Requirements for ordinary workers won't be much higher than soldiers. Administrative cadres knowing some abacus and the like..."
+"In my opinion, currently focus on literacy classes and simple teacher training. Adding a simple Cadre Training Institute is enough." Ma Qianzhu said. "First, we don't need to care about universal education in Lingao; that isn't our business. We only need to cultivate basic applied talents currently needed by the Transmigration Group—soldiers knowing how to write and do addition, subtraction, multiplication, and division within 100 is enough. At most, engineers and artillerymen understanding four arithmetic operations plus simple geometric applications. Requirements for ordinary workers won't be much higher than soldiers. Administrative cadres knowing some abacus and the like..."
 
-"Object!" Dr. Zhong said, "Riveters in the shipyard alone need to understand high school level solid geometry; how can workers from literacy classes learn the technology?"
+"Objection!" Dr. Zhong said. "Riveters in the shipyard alone need to understand high school level solid geometry; how can workers from literacy classes learn the technology?"
 
-"Illiterates can also be good workers. At most attend night school to patch up cultural lessons." Ma Qianzhu said, "In the enterprise where my elders worked, there were many skilled industrial workers who were illiterate before Liberation. After a little training in night school after Liberation, they could go up another level."
+"Illiterates can also be good workers. At most attend night school to patch up cultural lessons." Ma Qianzhu said. "In the enterprise where my elders worked, there were many skilled industrial workers who were illiterate before Liberation. After a little training in night school after Liberation, they could go up another level."
 
-Dr. Zhong disapproved: "This is a low-level application of empiricism; temporarily there is no problem, but what about after industrial upgrading? Technology always has to develop forward."
+Dr. Zhong disapproved. "This is a low-level application of empiricism; temporarily there is no problem, but what about after industrial upgrading? Technology always has to develop forward."
