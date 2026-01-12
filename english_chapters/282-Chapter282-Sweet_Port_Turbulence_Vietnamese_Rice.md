@@ -1,4 +1,4 @@
-# Chapter 282 Sweet Port Turbulence – Vietnamese Rice
+# Chapter 282: Sweet Port Turbulence — Vietnamese Rice
 
 Zhang Dabala didn't know where they were going either. The Quang Ninh area wasn't a pirate target. Only those small-time sea bandits who were neither Vietnamese nor Chinese—part-time fishermen who also robbed fishermen—had any interest in operating here. Zhang Dabala looked down on that lot. From him, Chang Shide confirmed a principle: every social group had its hierarchy.
 
@@ -26,11 +26,11 @@ Under Zhang Dabala's direction, the ship headed north. More vessels appeared on 
 
 Still the same old pirate swagger. Chang Shide cursed silently. Then he suddenly grew worried—Zhang Dabala surely had plenty of former pirate associates. The thousand *shi* of sugar on the ship was worth several thousand *liang* of silver. What if he got ideas... He broke into a cold sweat, touched the pistol at his waist, and hurried off to find Bei Kai, whispering urgently about whether this fat black pirate could be trusted.
 
-Bei Kai said: "Trustworthy or not, what can I do about it? Wasn't he recruited by the Foreign Affairs Ministry? We've got our New Army brothers on board—thirty or forty guns. Can't handle one of him? We're fine."
+Bei Kai said, "Trustworthy or not, what can I do about it? Wasn't he recruited by the Foreign Affairs Ministry? We've got our New Army brothers on board—thirty or forty guns. Can't handle one of him? We're fine."
 
 Before long, a town appeared on the coastline. It looked quite similar to a small Chinese county seat, but without walls. This seemed to be the mouth of a major river. Along the riverbank were stone wharves and wooden jetties, packed with vessels of all sizes. Some were clearly large ships from China.
 
-Zhang Dabala told everyone to stow the rifles and cannons below deck—there were Lê dynasty officials stationed here. Before they'd even docked, a small boat rowed over. A shifty-eyed, small-statured man in a blue-green official robe resembling a Great Ming official's, wearing an black gauze cap, scrambled aboard with remarkable agility. Zhang Dabala hurried over to meet him. The two jabbered at each other in a language no one understood. Then Zhang Dabala turned to Chang Shide:
+Zhang Dabala told everyone to stow the rifles and cannons below deck—there were Lê dynasty officials stationed here. Before they'd even docked, a small boat rowed over. A shifty-eyed, small-statured man in a blue-green official robe resembling a Great Ming official's, wearing an black gauze cap, scrambled aboard with remarkable agility. Zhang Dabala hurried over to meet him. The two jabbered at each other in a language no one understood. Then Zhang Dabala turned to Chang Shide.
 
 "He says he can register our ship under another Chinese ship that's already paid its fees. Only costs two hundred Spanish dollars."
 
@@ -46,19 +46,19 @@ Zhang Dabala turned and haggled with him some more. In the end, they closed at 3
 
 Thereupon the ship entered the harbor. According to Zhang Dabala, this place was called Hai Duong. It was a naturally formed trading port where Chinese merchants frequently came to trade. They brought large quantities of salt, porcelain, sugar, cloth, ironware, and all sorts of other goods, and took away mainly raw silk and betel nuts.
 
-Chang Shide asked curiously: "How do you know all these ins and outs?"
+Chang Shide asked curiously, "How do you know all these ins and outs?"
 
-Zhang Dabala scratched his scalp: "Back in the day, our boss was also a sea merchant—"
+Zhang Dabala scratched his scalp. "Back in the day, our boss was also a sea merchant..."
 
 "Oh, right, right." Chang Shide remembered—sea merchants and pirates in this era were basically the same people.
 
-Bei Kai whispered to Chang Shide: "This should be Hai Phong."
+Bei Kai whispered to Chang Shide, "This should be Hai Phong."
 
 "How do you know?"
 
-"The map." Bei Kai opened his notebook and pointed: "This river should be the Bach Dang River, located on the northeast side of the Red River Delta, on the northwest shore of the Gulf of Tonkin. Comparing the terrain features, this is the only place it could be."
+"The map." Bei Kai opened his notebook and pointed. "This river should be the Bach Dang River, located on the northeast side of the Red River Delta, on the northwest shore of the Gulf of Tonkin. Comparing the terrain features, this is the only place it could be."
 
-Le Lin also came over: "That's right. I just calculated the latitude and longitude..."
+Le Lin also came over. "That's right. I just calculated the latitude and longitude..."
 
 "Give it a rest. Yesterday you said we were near Saigon."
 
@@ -80,11 +80,11 @@ Moreover, the merchants at these trading houses looked at his unfamiliar face wi
 
 "Let's go look at the grain market prices."
 
-Zhang Dabala said: "Shopkeeper Chang doesn't necessarily need silver. Rice would work too?"
+Zhang Dabala said, "Shopkeeper Chang doesn't necessarily need silver. Rice would work too?"
 
-"That's right. I came mainly to buy rice." Chang Shide said.
+"That's right. I came mainly to buy rice," Chang Shide said.
 
-"That's easy then." Zhang Dabala said. "Hai Duong is a small place. Apart from Great Ming merchants, probably no one can come up with eight thousand *liang* of silver. But there are quite a few local landowners who can produce rice for trade. Just swap the sugar directly with them."
+"That's easy then," Zhang Dabala said. "Hai Duong is a small place. Apart from Great Ming merchants, probably no one can come up with eight thousand *liang* of silver. But there are quite a few local landowners who can produce rice for trade. Just swap the sugar directly with them."
 
 "Would they be willing?"
 
@@ -96,7 +96,7 @@ So they rested briefly at a tea house on the street corner and replenished their
 
 "Ridiculous pretension! Only the Great Ming has the right to call its ruler Emperor!" Chang Shide was already in a bad mood, and now he exploded.
 
-Zhang Dabala found this strange—these Australians shouldn't have any particular attachment to the Great Ming. He remarked casually: "He calls himself emperor behind closed doors. Just for the thrill of saying it."
+Zhang Dabala found this strange—these Australians shouldn't have any particular attachment to the Great Ming. He remarked casually, "He calls himself emperor behind closed doors. Just for the thrill of saying it."
 
 After a brief rest, the party continued inland. It was now spring, and the subtropical Tonkin landscape was already bathed in glorious sunshine. On both sides of the dirt road stretched vast expanses of verdant and golden fields—green from the rice seedlings swaying in the warm breeze, golden from rice not yet harvested. Under the hot sun, the air was fragrant with the scent of grain and young plants. Farmers in purplish-brown homespun were transplanting seedlings and reaping the harvest.
 
@@ -108,25 +108,25 @@ From time to time, one could see peasant women working in the fields. They wore 
 
 Others apparently shared similar feelings:
 
-"What a great place." The Army soldiers were whispering to each other.
+"What a great place." The soldiers were whispering to each other.
 
 "To be able to farm and live in a place like this—it'd be worth dying for."
 
 "You'd need your own land though. Being a tenant farmer means a lifetime of suffering."
 
-Chang Shide turned back to the soldiers: "If we distributed land to everyone here, would you be willing to come?"
+Chang Shide turned back to the soldiers. "If we distributed land to everyone here, would you be willing to come?"
 
-The soldiers all laughed: "Of course!" "My whole family would be willing!"
+The soldiers all laughed. "Of course!" "My whole family would be willing!"
 
 "What if the people here tried to drive you out?"
 
 "Then drive them all out!" came the collective reply.
 
-"Wait—keep the women! I don't have a wife yet." Some hothead interjected.
+"Wait—keep the women! I don't have a wife yet," some hothead interjected.
 
 The group burst into laughter, drawing stares from farmers in the nearby fields.
 
-Zhang Dabala could more or less understand some Mandarin, and he laughed too: "Shopkeeper Chang, are you planning to buy land here?"
+Zhang Dabala could more or less understand some Mandarin, and he laughed too. "Shopkeeper Chang, are you planning to buy land here?"
 
 "Something for the future." Chang Shide had actually just said it casually, to boost morale—always dangle a not-too-distant carrot in front of soldiers and workers.
 
@@ -134,27 +134,22 @@ As they bantered, an elephant came ambling slowly down the road. Most of the sol
 
 "Don't be afraid—it's an elephant. Very timid. Nobody startle it!" Chang Shide ordered.
 
-Zhang Dabala said quietly: "Don't worry, Shopkeeper. That's one of Vu Ngoc Giap's estate managers out on patrol."
+Zhang Dabala said quietly, "Don't worry, Shopkeeper. That's one of Vu Ngoc Giap's estate managers out on patrol."
 
 "Riding an elephant just to stroll around? Quite a spectacle."
 
 "Shopkeeper Chang, those two pisses you took just now were on Vu Ngoc Giap's land."
 
 "..." Chang Shide was instantly deflated. This landlord's style was truly something.
-
 The elephant rider wore black clothing and a conical hat, carrying a long whip. Though small, he looked quite imposing. Behind him followed over a dozen black-clad retainers.
-
-Zhang Dabala ran over and seemed to be talking. After a while, he came back and said: "The manager invites the Shopkeeper to come sit at the estate. This is promising!"
+Zhang Dabala ran over and seemed to be talking. After a while, he came back and said, "The manager invites the Shopkeeper to come sit at the estate. This is promising!"
 
 Though he still had doubts about Zhang Dabala's reliability, with things at this point, he couldn't very well say there might be security concerns and refuse to go. So he steeled himself and went along.
 
 Chang Shide's party was led by the manager to an estate. The estate had a somewhat odd Chinese-style courtyard—carved beams and painted rafters, quite elaborate, but somehow not quite right. Neither Chang Shide nor Bei Kai received the expected lavish hospitality. They waited until their tea had gone tasteless before a middle-aged man appeared, looking respectable enough. After communicating through Zhang Dabala, Chang Shide learned this person was merely a household steward. He couldn't help feeling slighted—after all, he was now a major figure shouldering responsibilities for the Transmigration Collective, and he couldn't even get an audience with some Vietnamese country squire?!
 
----
-
-PS: The following content is outside the 4000-word subscription limit.
-
+***
+**Note:**
+The following content is outside the 4000-word subscription limit.
 Due to insufficient historical sources on ancient Vietnam, all details about Vietnamese history in this and subsequent chapters are largely conjecture.
-
 Whether Hai Phong was called Hai Duong remains to be verified; the general location is similar.
-

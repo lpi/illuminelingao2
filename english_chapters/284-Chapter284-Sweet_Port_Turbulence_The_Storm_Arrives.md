@@ -1,4 +1,4 @@
-# Chapter 284 Sweet Port Turbulence – The Storm Arrives
+# Chapter 284: Sweet Port Turbulence — The Storm Arrives
 
 While Chang Shide was digging pits under Bei Kai's indiscriminate coal-hunting methodology, the South China Sugar Factory in Xuwen was quietly entering the eye of a storm.
 
@@ -6,7 +6,7 @@ The opening of the South China Sugar Trading House was extremely low-key—so lo
 
 The result was that business on the first day was very good. Though many people didn't know a new trading house had opened here, for the cane farmers bringing sugarcane for processing, being able to exchange sugar for silver without leaving the premises was far more convenient than having to drive their carts all the way to Hai'an Street to sell.
 
-Every farmer who sold sugar received a passbook recording their two-percent sugar payment. This novel practice intrigued the farmers, and many asked around: when could they withdraw this two percent? Liao Daxing followed Wen Tong's prepared script: he just said they'd be notified in due time. Though most people were skeptical about whether they'd really receive this two percent, it wasn't as if they were losing anything.
+Every farmer who sold sugar received a passbook recording their two-percent sugar payment. This practice intrigued the farmers, and many asked around: when could they withdraw this two percent? Liao Daxing followed Wen Tong's prepared script: he just said they'd be notified in due time. Though most people were skeptical about whether they'd really receive this two percent, it wasn't as if they were losing anything.
 
 Several peaceful days passed like this. They were collecting nearly a hundred *shi* of sugar daily. Though Wen Tong wasn't fully satisfied, considering they only had ten thousand *liang* of silver, he figured it was just as well that business wasn't too brisk—he couldn't afford it anyway. So he didn't worry about it.
 
@@ -32,9 +32,7 @@ This day, he had just gotten out of bed and felt light on his feet. The previous
 
 The two hurried to the trading house entrance. Though it wasn't yet time to take down the door boards, the open area outside was already crowded with farmers. Ox carts, carrying poles, handcarts, back-baskets—every kind of transport was loaded with sugar. And more people kept streaming in from the road. Everyone's face was tense, as if each person was hiding a great secret that they didn't dare share with anyone else, lest revealing it cost them their advantage.
 
-It did look quite strange, but neither Wen Tong nor Chen Tianxiong could identify the problem. Time passed second by second, and opening time was approaching. Wen Tong could only wave his hand and tell Liao Daxing:
-
-"Open up."
+It did look quite strange, but neither Wen Tong nor Chen Tianxiong could identify the problem. Time passed second by second, and opening time was approaching. Wen Tong could only wave his hand and tell Liao Daxing, "Open up."
 
 The moment the doors opened, before the staff had even brought out the scales, the waiting farmers surged forward. Everyone rushed toward the weighing stations at a near-run. In an instant, all four weighing stations were swamped. At first there was some order, with people lining up voluntarily. But more and more people kept flooding into the open area, all pressing toward the weighing stations. Order collapsed instantly. The entire area was packed with people. Oxen bellowed in distress among the crush.
 
@@ -44,31 +42,31 @@ Amid the chaos, someone's sugar basket apparently broke open. A despairing wail 
 
 His cry was immediately swallowed by the surging crowd and the impatient bellowing of oxen.
 
-Seeing the situation going wrong, Wen Tong knew something was seriously amiss, but now wasn't the time to figure out why. He quickly ordered Wen Qing: "Run to the Qiwei Escort Agency. Tell Liao Dahua to bring every escort guard he has available. Hurry!"
+Seeing the situation going wrong, Wen Tong knew something was seriously amiss, but now wasn't the time to figure out why. He quickly ordered Wen Qing, "Run to the Qiwei Escort Agency. Tell Liao Dahua to bring every escort guard he has available. Hurry!"
 
 "Yes!" Wen Qing turned to run.
 
 "Wait!" Wen Tong thought of something else—escort guards alone were too few. "Grab some militiamen along the way!"
 
-Liao Daxing quickly climbed onto a table and shouted at the top of his lungs:
+Liao Daxing quickly climbed onto a table and shouted at the top of his lungs.
 
 "Everyone, don't push! Line up! One at a time! South China Trading House is open all day—plenty of time—"
 
-He shouted until his voice was hoarse, but no one in the crowd responded. A terrible thought flashed through Liao Daxing's mind: though he didn't know why all these people were rushing to sell sugar, he'd experienced something similar before. A few years back, Leizhou had an unexpected heavy snowfall in winter. The following spring, when the government sold relief grain, people had swarmed to buy rice just like this—men, women, old, young, nearly bursting the shop. The stone counter had been crushed by the press of bodies. Before the yamen runners arrived to restore order, over a dozen people had been trampled to death.
+He shouted until his voice was hoarse, but no one in the crowd responded. A terrible thought flashed through Liao Daxing's mind: though he didn't know why all these people were rushing to sell sugar, he'd experienced something similar before. A few years back, Leizhou had an unexpected heavy snowfall in winter. The following spring, when the government sold relief grain, people had swarmed to buy rice just like this—men, women, old, young, nearly bursting the shop. The stone counter had been crushed by the press of bodies. Before the *yamen* runners arrived to restore order, over a dozen people had been trampled to death.
 
 Was today going to be the same? Terrified, Liao Daxing stood frozen on the table, not knowing what to shout anymore.
 
-Chen Tianxiong urged: "Manager Liao! Keep shouting! If you don't, it'll only get worse!"
+Chen Tianxiong urged, "Manager Liao! Keep shouting! If you don't, it'll only get worse!"
 
-"Yes, yes." Liao Daxing raised his voice again and resumed shouting: "Everyone, stay calm, take it slow..."
+"Yes, yes." Liao Daxing raised his voice again and resumed shouting. "Everyone, stay calm, take it slow..."
 
-Wen Tong wanted to get up there too and calm everyone down, but he didn't understand a word of Leizhou dialect. Getting up there would be useless. He was pacing frantically when Zhou Shizhai arrived with the factory workers' militia. The militiamen carried rattan batons and wore safety helmets.
+Wen Tong wanted to get up there too and calm everyone down, but he didn't understand a word of Leizhou dialect. Getting up there would be useless. He was pacing frantically when Zhou Shizhai arrived with the factory workers' militia. The militiamen carried rattan batons and wore hard hats.
 
 They charged in and quickly separated the crowd. This improved the chaotic situation somewhat. The clerks who had been pushed off their feet finally got back to their tables and resumed weighing sugar.
 
 Before long, the Qiwei Escort Agency people arrived too. Though few in number, they were experienced. They quickly set up checkpoints at the road entrances, holding back the stream of people and allowing only those who had formed lines to enter.
 
-Chen Tianxiong had an idea and ordered: "Manager Liao, immediately have the counter staff move the silver exchange area to the other side of the courtyard."
+Chen Tianxiong had an idea and ordered, "Manager Liao, immediately have the counter staff move the silver exchange area to the other side of the courtyard."
 
 This would prevent crowds from lingering too long at the trading house entrance, making it easier to disperse them.
 
@@ -76,9 +74,9 @@ This would prevent crowds from lingering too long at the trading house entrance,
 
 Meanwhile, Zhou Shizhai and the militia and escort guards cleared out the entry and exit routes. The crowd gradually dispersed, and the open area was no longer a seething mass of heads. Lines reformed. But those ten-plus minutes of chaos had left tragic traces: dozens of broken straw sandals, over a dozen crushed and ruined baskets, and sugar spilled all over the ground. Someone was crying while picking it up with their clothes.
 
-"What the hell is going on! This is insane!" Wen Tong said anxiously. Luckily there hadn't been any casualties, but hadn't this scene severely damaged the trading house's reputation? He quickly ordered Wen Xiu, who had just arrived: "Take some of the women and clean up all the sugar. Return it to them."
+"What the hell is going on! This is insane!" Wen Tong said anxiously. Luckily there hadn't been any casualties, but hadn't this scene severely damaged the trading house's reputation? He quickly ordered Wen Xiu, who had just arrived, "Take some of the women and clean up all the sugar. Return it to them."
 
-"This is suspicious. Very suspicious." Chen Tianxiong saw the situation and knew something was seriously wrong—something they didn't know about had happened. This chaotic scene was definitely not a good sign. A thought struck him, and he quickly told Wen Tong: "Get to the sugar factory right away. With so many people here, I'm worried they might cause trouble at the factory!"
+"This is suspicious. Very suspicious." Chen Tianxiong saw the situation and knew something was seriously wrong—something they didn't know about had happened. This chaotic scene was definitely not a good sign. A thought struck him, and he quickly told Wen Tong, "Get to the sugar factory right away. With so many people here, I'm worried they might cause trouble at the factory!"
 
 Wen Tong broke into a cold sweat: the escort guards and militia were all here at the trading house. What if this was a diversion? If someone set fire at the sugar factory... He quickly ordered Zhou Shizhai to take some escort guards back to the factory immediately and stay alert.
 
@@ -92,7 +90,7 @@ The escort guard had just left when Liao Dahua arrived, rushing into the courtya
 
 "What about Hai'an Street?" Wen Tong's mind suddenly clicked—it must be the Haiyi Hall stirring up trouble! "Haiyi Hall?!"
 
-Liao Dahua nodded vigorously: "Starting yesterday, they dropped the sugar price to one *liang* five *qian*!"
+Liao Dahua nodded vigorously. "Starting yesterday, they dropped the sugar price to one *liang* five *qian*!"
 
 Everyone was stunned. Dropping to one *liang* five *qian*—what were those sugar merchants thinking? No wonder the farmers were all flooding here. A difference of one *liang* per *shi* was no small matter! Were they planning to quit the business? For a moment, no one could make sense of it.
 
@@ -102,11 +100,11 @@ He didn't dare imagine the consequences. Wen Tong had never expected to face som
 
 "I'm just a sugar factory technician," he thought miserably, looking at the group of people staring wide-eyed, waiting for him to make a decision.
 
-Though the others didn't know the exact silver reserves, seeing Wen Tong's expression, they knew things weren't good. Chen Tianxiong said quietly: "Old Wen, how much do you have on hand? Tell us so we can figure something out together."
+Though the others didn't know the exact silver reserves, seeing Wen Tong's expression, they knew things weren't good. Chen Tianxiong said quietly, "Old Wen, how much do you have on hand? Tell us so we can figure something out together."
 
 "Just under ten thousand *liang*." Wen Tong instinctively held back.
 
-Now Liao Dahua understood too—the masters had run out of silver! He quickly said: "Shopkeeper, let me go check with Daxing right away and see how much has gone out so far!"
+Now Liao Dahua understood too—the masters had run out of silver! He quickly said, "Shopkeeper, let me go check with Daxing right away and see how much has gone out so far!"
 
 "Good, go quickly." Wen Tong was getting anxious now.
 
@@ -118,15 +116,14 @@ Wen Tong could only instruct Wen Xiu to relay a message: tell the clerks to slow
 
 But this wasn't a long-term solution. As more and more farmers arrived, if the pace was too slow, the crowd would back up, and when chaos broke out, it wouldn't be something they could contain.
 
-Liao Dahua said quietly: "Master, once we get through today, tomorrow we should also drop to one *liang* five *qian*."
+Liao Dahua said quietly, "Master, once we get through today, tomorrow we should also drop to one *liang* five *qian*."
 
 "That's all we can do." After thinking it over, Wen Tong saw no other option. Though this would be a blow to the South China Trading House's reputation, at least with everyone dropping prices together, they wouldn't be singled out.
 
-Chen Tianxiong said: "We'd better report to the Executive Committee and Guangzhou right away and ask for guidance."
+Chen Tianxiong said, "We'd better report to the Executive Committee and Guangzhou right away and ask for guidance."
 
 Wen Tong agreed. He quickly wrote a report and both sent a carrier pigeon to Guangzhou and dispatched someone directly to Lingao to deliver the message.
 
 But the flood of people showed no sign of abating. Finally, the crowds began backing up along the road. Everyone's face showed anxiety. The sugar price had crashed, and crashed this low—for farmers who had worked hard all year, this was a bolt from the blue. At this price, never mind making a profit—they might not even recover their costs! Especially those who'd taken out loans—they were frantic. They'd brought their sugar themselves, and sent wives and children ahead to ask if South China was still paying two *liang* five *qian*. Hearing that it was, they breathed a small sigh of relief. All they hoped for now was to get their turn as soon as possible and sell the sugar they'd worked so hard to produce.
 
 Though panicked, Liao Dahua kept some composure. He quickly had Wen Tong dispatch some women and children from among the factory workers to boil bitter herb tea and distribute it bucket by bucket, free of charge, to the queuing farmers to "cool their tempers." He also had makeshift shelters erected along the roadside for people to rest. The weather was already quite hot. Without intervention, they might well have people dying. To avoid queue disputes, he quickly purchased a batch of bamboo sticks and implemented a queue-and-number system: take a numbered stick when you line up, get called by number to the scales. The escort guards and militia worked together to maintain order. They managed to keep things under control.
-

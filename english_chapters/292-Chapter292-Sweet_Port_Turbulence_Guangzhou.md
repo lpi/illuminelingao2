@@ -1,6 +1,6 @@
-# Chapter 292 Sweet Port Turbulence – Guangzhou
+# Chapter 292: Sweet Port Turbulence — Guangzhou
 
-Ma Qianzhu asked: "Are there too many branches? How much manpower will be invested?"
+Ma Qianzhu asked, "Are there too many branches? How much manpower will be invested?"
 
 "Not much," Yan Ming said. "Our plan is to use local indigenous people as much as possible, sending one or two people to operate is enough. Just appearing as merchants."
 
@@ -20,9 +20,9 @@ Thinking this way, running a bank indeed had many benefits. Not to mention thing
 
 "Will this cause too many constraints on enterprises? Those in charge might be overly cautious."
 
-"No." Cheng Dong explained. "Establishing a bank and requiring all transactions to be recorded is just part of a sound financial system. It has nothing to do with who uses money or how much money, let alone interfering with specific operations."
+"No," Cheng Dong explained. "Establishing a bank and requiring all transactions to be recorded is just part of a sound financial system. It has nothing to do with who uses money or how much money, let alone interfering with specific operations."
 
-"The financial power of enterprises is still autonomous. This point will not change." Cheng Dong said.
+"The financial power of enterprises is still autonomous. This point will not change," Cheng Dong said.
 
 "In that case, Lingao should actually open a branch too."
 
@@ -70,17 +70,15 @@ The bits and pieces of funds he could borrow in this fragmented way probably wou
 
 However, if today's matter went smoothly, there might be a turn for the better.
 
-The sedan chair suddenly stopped. The attendant lifted the curtain and whispered: "Purple Clarity Pavilion is just ahead. Should we carry you in—"
+The sedan chair suddenly stopped. The attendant lifted the curtain and whispered, "Purple Clarity Pavilion is just ahead. Should we carry you in—"
 
-"No need!" Guo Yi knew that Purple Clarity Pavilion was now the top entertainment venue in Guangzhou, with many dignitaries coming and going. Carrying the sedan in was too conspicuous. He wasn't here to show off.
-
-"Go through the back door."
+"No need!" Guo Yi knew that Purple Clarity Pavilion was now the top entertainment venue in Guangzhou, with many dignitaries coming and going. Carrying the sedan in was too conspicuous. He wasn't here to show off. "Go through the back door."
 
 The back door was quiet and also had a dedicated sedan hall. Guo Yi's sedan was carried directly in. The steward of Purple Clarity Pavilion was already waiting.
 
-"Is the guest here?" His first words upon getting off the sedan showed the proprietor took this matter seriously. The steward busily answered: "Replying to Proprietor, they haven't all arrived yet."
+"Is the guest here?" His first words upon getting off the sedan showed the proprietor took this matter seriously. The steward busily answered, "Replying to Proprietor, they haven't all arrived yet."
 
-"Lead me to see Pei—Miss." He hesitated slightly when using this title, then thought since he was appearing as a transvestite anyway, he might as well accept it to avoiding problems later.
+"Lead me to see Pei—Miss." He hesitated slightly when using this title, then thought since he was appearing in a female guise anyway, he might as well accept it to avoid problems later.
 
 PEPI's boudoir was set in a small courtyard in the rear building. Flowers and trees were sparse in the yard; it was a quiet place amidst the noise. Guo Yi was also entering this place for the first time. Entering the room, he saw no maids, but a handsome youth came to greet him and serve him to change clothes.
 
@@ -88,11 +86,11 @@ If it were a year ago, Guo Yi would definitely be uncomfortable all over and ref
 
 Calmly letting the servant boy help him change into casual clothes and wiping his face with a hot towel brought to him, he sat down in the large room. Someone brought clear tea and four plates of tea snacks.
 
-Looking around, this room was luxurious enough. Full set of Guangdong sour branch wood furniture. In another spacetime, this set probably couldn't be bought for less than a million. The four walls hung many celebrity calligraphy and paintings, probably gifts from others. The most conspicuous was a floor-standing redwood clock, unique in Guangzhou city. The "internal organs" of this big clock were brought from another spacetime, only the casing was made by local craftsmen.
+Looking around, this room was luxurious enough. Full set of Guangdong rosewood furniture. In another spacetime, this set probably couldn't be bought for less than a million. The four walls hung many celebrity calligraphy and paintings, probably gifts from others. The most conspicuous was a floor-standing redwood clock, unique in Guangzhou city. The "internal organs" of this big clock were brought from another spacetime, only the casing was made by local craftsmen.
 
 What wasn't quite coordinated was the kerosene lamp on the table. Although a beautiful lampshade was added, the style didn't match the room at all. As for the row of rattan-shelled thermoses on the Fujian lacquered low cabinet, it gave people a sense of time and space disorder.
 
-The servant boy went to the curtain and said softly: "Proprietor Guo is here."
+The servant boy went to the curtain and said softly, "Proprietor Guo is here."
 
 PEPI, under the alias Pei Lixiu, opened the curtain personally and walked out gracefully. Due to managing Purple Clarity Pavilion and having many affairs these days, she had thinned a lot, conforming more to the aesthetic taste of this spacetime. Lightly powdered face, eyebrows like paintings, eyes flowing with waves—she had a different kind of exotic charm.
 
@@ -102,23 +100,22 @@ This curtsy was a formal recognition that Guo Yi was her employer in public. Alt
 
 Seeing the master arrive, the servant boy and maids naturally assumed they had intimate words to discuss. Without needing orders, they retreated.
 
-Guo Yi didn't stand on ceremony and went straight to the topic, whispering: "Who are we meeting?"
+Guo Yi didn't stand on ceremony and went straight to the topic, whispering, "Who are we meeting?"
 
-"A few foppish young masters." Seeing no one around, PEPI put away the romantic and graceful manner and sat with legs crossed. "Exhausted me!"
+"A few foppish young masters." Seeing no one around, Pei Lixiu put away the romantic and graceful manner and sat with legs crossed. "Exhausted me!"
 
-"Watch your image!" Seeing PEPI reveal her true form, Guo Yi busily reminded her.
+"Watch your image!" Seeing Pei Lixiu reveal her true form, Guo Yi busily reminded her.
 
-"It's fine. I'm not greeting guests here; they dare not come in!" PEPI stretched. "Got cigarettes?"
+"It's fine. I'm not greeting guests here; they dare not come in!" Pei Lixiu stretched. "Got cigarettes?"
 
 "Where would I find cigarettes for you? You have to be careful in this line of work; smelling of smoke is bad—"
 
-"Humph, this line of work?" PEPI turned away. "Purple Clarity Pavilion is a clean, proper business. You actually say such hurtful words..."
+"Humph, this line of work?" Pei Lixiu turned away. "Purple Clarity Pavilion is a clean, proper business. You actually say such hurtful words..."
 
-Sweat. Guo Yi really couldn't take it, getting goosebumps all over instantly.
+*Sweat*. Guo Yi really couldn't take it, getting goosebumps all over instantly.
 
 "Alright, I didn't say anything. I don't have cigarettes. Hurry and talk business."
 
-"Mm." PEPI took out a linen handkerchief to wipe her eyes—this handkerchief was a new product from Lingao Textile Factory recently, woven from local linen mixed with high-count long-staple cotton. Light and breathable, the hand feel was much better than silk.
+"Mm." Pei Lixiu took out a linen handkerchief to wipe her eyes—this handkerchief was a new product from Lingao Textile Factory recently, woven from local linen mixed with high-count long-staple cotton. Light and breathable, the hand feel was much better than silk.
 
 Luxury goods and consumer goods developed by Lingao were mostly sent to Guangzhou first, and many were prioritized for supply to Purple Clarity Pavilion to establish the brand. Once rich people liked them, the whole market would open up—in any era, rich people always lead the fashion consumption trend.
-

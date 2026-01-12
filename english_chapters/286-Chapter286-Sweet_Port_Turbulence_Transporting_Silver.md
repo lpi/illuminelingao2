@@ -1,4 +1,4 @@
-# Chapter 286 Sweet Port Turbulence – Transporting Silver
+# Chapter 286: Sweet Port Turbulence — Transporting Silver
 
 "And after we send the silver? According to Wen Tong's letter, he probably needs two hundred thousand *liang* to get through this crisis. Even if we borrow from the Gao family, and even if they're willing, that much cash can't be assembled immediately. The Guangzhou Station can ship fifty thousand right away; the other fifty thousand will still take time to raise."
 
@@ -6,7 +6,7 @@
 
 "Those are book figures. Nobody keeps that much cash sitting around—not the Gao family, not the Guangzhou Station. Large sums of cash... even if the Guangzhou Station immediately mobilizes local funds, it'll take at least seven or eight days."
 
-"Send whatever we have first. It's better than sitting around." Ma Qianzhu said. "If fifty thousand *liang* gets there, that'll give them at least a few more weeks of cushion. A lot can happen in a few weeks."
+"Send whatever we have first. It's better than sitting around," Ma Qianzhu said. "If fifty thousand *liang* gets there, that'll give them at least a few more weeks of cushion. A lot can happen in a few weeks."
 
 "Tell Guangzhou to prepare the silver. We'll send a ship to pick it up."
 
@@ -20,7 +20,7 @@
 
 "Alright. Let's do it that way."
 
-"Also, dispatch a radio team and necessary personnel to Leizhou immediately. This is urgent." Ma Qianzhu said. "Now we need to maintain constant communication with Leizhou!"
+"Also, dispatch a radio team and necessary personnel to Leizhou immediately. This is urgent," Ma Qianzhu said. "Now we need to maintain constant communication with Leizhou!"
 
 "Actually, I think we should just mobilize the Special Reconnaissance Team. Bei Wei is already in Leizhou. Just go in and decapitate their leadership..."
 
@@ -28,17 +28,19 @@
 
 "Let's prepare for both possibilities." Ma Qianzhu lived up to his reputation as a hardliner. "Work for a peaceful resolution, but if that fails, we're not here to play commercial war games. A quick and direct solution is also an option."
 
+***
+
 That evening, Bopu Port.
 
 Since morning, the seas had gradually grown rougher, reaching Force 5. Waves were high and crashing. By noon, conditions worsened. Not only the fishing boats working nearby, but even the Navy vessels that had been performing patrol and fishery protection—or perhaps more accurately, fishing protection racket—duties in the outer waters were ordered back to port. Inside Bopu Port, besides the vessels belonging to the Maritime Forces, a specially designated water area also accommodated quite a few fishing boats and passing vessels that had temporarily put in to weather the storm. Since a new lighthouse had been built on Bopu Point, and the Transmigration Collective had implemented scientific port construction and management, this had gradually become an important anchorage for transiting vessels.
 
 In the afternoon, it began to rain. The torrential downpour seemed to herald the onset of Lingao's rainy season. The sky darkened rapidly, turning as gloomy as dusk. All the lights in the Bopu camp were switched on. Except for sentries still standing watch, there was no activity outside the buildings. Even the usually bustling shipyard slipways had fallen silent. Besides the steam and coal smoke rising from the boiler room, there was only the rumbling of steam engines driving the drainage pumps. Occasionally, a few figures in rain gear would dash from one building to another.
 
-Through the pitch-black curtain of rain, a light suddenly tore through the murk along the road from Baireng direction. A Beijing 212 Jeep bounced along toward them. The vehicle stopped briefly at the guard post at the camp entrance.
+Through the pitch-black curtain of rain, a light suddenly tore through the murk along the road from the Baireng direction. A Beijing 212 Jeep bounced along toward them. The vehicle stopped briefly at the guard post at the camp entrance.
 
 "Pass!" The sentry was a local young man in his early twenties, wearing the Navy's blue uniform. Though not tall, months of military training had given him a distinctly soldierly bearing. Even wearing a straw rain cape and bamboo hat, he stood ramrod straight. The person in the car was pleased to see that he'd kept his rifle well-protected under the cape.
 
-An ID was handed out. He took it and, like a machine, went through the "identity check" procedure that his instructors had drilled into his head. Finally, he returned the ID to the vehicle. He stood at attention and saluted:
+An ID was handed out. He took it and, like a machine, went through the "identity check" procedure that his instructors had drilled into his head. Finally, he returned the ID to the vehicle. He stood at attention and saluted.
 
 "You may pass, People's Commissioner, Sir!"
 
@@ -56,7 +58,7 @@ Several nautical charts were spread on the table, along with the 24-hour weather
 
 "Forget the formalities—save that for when we have time. Let's talk about the mission." Wu De waved his hand. "Report! What's the status of the *Ascending Peace Island*?"
 
-"Yes, sir." Li Di reported: "After receiving the mission order, we inspected the vessel. Ship condition normal, engine normal. To ensure safety, we've replaced all anchor cables and rigging. Fuel is topped off."
+"Yes, sir." Li Di reported, "After receiving the mission order, we inspected the vessel. Ship condition normal, engine normal. To ensure safety, we've replaced all anchor cables and rigging. Fuel is topped off."
 
 "Personnel?"
 
@@ -72,7 +74,7 @@ Several nautical charts were spread on the table, along with the 24-hour weather
 
 "Then we'll staff with half and half."
 
-"Do it that way. And bring a few of the naval trainees on board." Wu De said. "Give them a lesson too—let them taste what the sea is like!"
+"Do it that way. And bring a few of the naval trainees on board," Wu De said. "Give them a lesson too—let them taste what the sea is like!"
 
 "Report: the Navy's first intake of trainees all went with the expedition fleet for practical training. The current batch is only the second intake—they've only been recruited and trained for a few weeks. Going to sea now, they probably won't be much use."
 
@@ -82,9 +84,7 @@ Several nautical charts were spread on the table, along with the 24-hour weather
 
 "All transmigrator crew members are to be issued modern weapons," Wu De gave instructions. "One hundred rounds per person, plus two grenades."
 
-They continued studying the charts and discussing the route... After over an hour of discussion, Wu De asked:
-
-"What's the weather looking like?"
+They continued studying the charts and discussing the route. After over an hour of discussion, Wu De asked, "What's the weather looking like?"
 
 "Weather conditions aren't ideal." Li Di brought over the forecast. "Barometric pressure indicates the wind and rain over the Qiongzhou Strait will probably continue for 24 hours. Currently northwest winds at 20 knots, wave height 2.5 meters."
 
@@ -100,7 +100,7 @@ Wu De calculated—that was Sea State 4. For typical modern vessels, this was no
 
 "Wait!" Wu De stopped him and addressed all the naval personnel in the room. "This mission may cost lives! Anyone who doesn't want to go, speak up now! As mission commander, I authorize him not to go! We'll replace him with indigenous personnel."
 
-Some had been about to counsel against setting out in such conditions, but now no one could speak up—who'd be the coward in front of everyone? So someone steeled himself and stepped forward to pledge:
+Some had been about to counsel against setting out in such conditions, but now no one could speak up—who'd be the coward in front of everyone? So someone steeled himself and stepped forward to pledge.
 
 "For the great cause of transmigration, we absolutely obey orders! The Executive Committee points the way, and that's where we'll sail the ship!"
 
@@ -108,7 +108,7 @@ Some had been about to counsel against setting out in such conditions, but now n
 
 ...
 
-The atmosphere was properly rallied now. The transmigrators in the room competed to display their "military bearing." Seeing this, Wu De nodded: "Everyone go prepare immediately. Assemble at the dock at 16:00 hours sharp for departure. Dismissed!"
+The atmosphere was properly rallied now. The transmigrators in the room competed to display their "military bearing." Seeing this, Wu De nodded. "Everyone go prepare immediately. Assemble at the dock at 16:00 hours sharp for departure. Dismissed!"
 
 After everyone had left, Wu De organized his written luggage from the car, changed into his own Navy work uniform, sea boots, and nautical rain jacket. He checked his Type 54 pistol and carefully secured it in a waterproof holster.
 
@@ -116,7 +116,7 @@ For him, sea conditions weren't the greatest enemy—the real concern was the se
 
 Through the window glass, he could see the lights of ships in the harbor flickering through the wind and rain. The tall crane also had position lights—lanterns marking the height in the air, as per the safety regulations from another spacetime. With a crane, shipbuilding would be faster and easier—too bad there still weren't enough people.
 
-While he was lost in thought, someone called from the doorway: "Report!"
+While he was lost in thought, someone called from the doorway. "Report!"
 
 "What is it?" Wu De turned around and saw a sailor standing there.
 
@@ -130,7 +130,7 @@ While he was lost in thought, someone called from the doorway: "Report!"
 
 When he'd left, he'd told Chu Yu he was going to the mainland on business. The little woman had been reluctant to part, looking unhappy. He'd said a few words of reassurance and thought that was the end of it. He hadn't expected her to follow him.
 
-Women—such a hassle! He muttered to himself, but he couldn't help feeling a warmth in his heart.
+*Women—such a hassle!* He muttered to himself, but he couldn't help feeling a warmth in his heart.
 
 "So, sir, should we bring her over?" The sentry, seeing he recognized the woman, asked.
 
@@ -144,7 +144,7 @@ Though the mission was urgent, this incident made him handle his affairs more br
 
 "I was afraid Master wouldn't go to the villa—that you'd just leave like this, and Chu Yu would miss you—"
 
-"Nonsense." Wu De scolded. "Am I that kind of person?!"
+"Nonsense," Wu De scolded. "Am I that kind of person?!"
 
 "Yes, Master." The woman obediently lowered her head.
 
@@ -153,4 +153,3 @@ Though the mission was urgent, this incident made him handle his affairs more br
 "It's nothing, Master." The woman briskly wiped the rain from her face. "The sentry here was very strict—wouldn't let me inside to take shelter from the rain..."
 
 "This is a military zone. Come on!" He waved his hand. "Let's go to the villa to talk."
-

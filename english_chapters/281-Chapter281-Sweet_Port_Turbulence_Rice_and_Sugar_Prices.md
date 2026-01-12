@@ -1,28 +1,28 @@
-# Chapter 281 Sweet Port Turbulence – Rice Prices and Sugar Prices
+# Chapter 281: Sweet Port Turbulence — Rice and Sugar Prices
 
-"Not now." Chang Shide said. "Explaining would take too much time. First, let's print them some kind of passbook to record the amounts. That way the cane farmers have something to hold onto, and it'll be easier to gather them for a meeting later."
+"Not now," Chang Shide said. "Explaining would take too much time. First, let's print them some kind of passbook to record the amounts. That way the cane farmers have something to hold onto, and it'll be easier to gather them for a meeting later."
 
-Wen Tong said with a smile: "Good idea. Where'd you come up with that?"
+Wen Tong smiled. "Good idea. Where'd you come up with that?"
 
 "You know those people who sell health products? They hook people in with free health checkups. If you don't give them some little benefits, who's going to come listen to your spiel?"
 
 "But how should we print this passbook? It has to be reusable, with space to write on." Wen Tong hesitated. "Should we ask Lingao for help?"
 
-Liao Daxing said: "This isn't hard to do. It's just making a little booklet for the cane farmers. Any paper shop can do it."
+Liao Daxing said, "This isn't hard to do. It's just making a little booklet for the cane farmers. Any paper shop can do it."
 
-"?" The transmigrators all looked at Liao Daxing in unison. Chang Shide asked: "They have passbooks here too?"
+"?" The transmigrators all looked at Liao Daxing in unison. Chang Shide asked, "They have passbooks here too?"
 
-Liao Daxing was a bit confused, and said: "Yes, every shop has them." He pulled a booklet from his sleeve and handed it over. Wen Tong unfolded it and saw that inside, in neat small script, were recorded transaction dates and amounts, with both parties' personal seals stamped on top.
+Liao Daxing was a bit confused and said, "Yes, every shop has them." He pulled a booklet from his sleeve and handed it over. Wen Tong unfolded it and saw that inside, in neat small script, were recorded transaction dates and amounts, with both parties' personal seals stamped on top.
 
 "This is the booklet from the grain trader that delivers our food."
 
-"Good, we'll use this kind." Wen Tong said happily. "Let's order three thousand to start."
+"Good, we'll use this kind," Wen Tong said happily. "Let's order three thousand to start."
 
-Liao Daxing was startled. Three thousand right off the bat—every paper shop in all of Leizhou could be turned upside down and they still wouldn't have that many. He quickly said: "There's no such supply. In my humble opinion, this kind of booklet is too large. Since it won't be used all that often, we should just have some custom-made right away. A smaller size will work fine—it'll be faster to make and cheaper too."
+Liao Daxing was startled. Three thousand right off the bat—every paper shop in all of Leizhou could be turned upside down and they still wouldn't have that many. He quickly said, "There's no such supply. In my humble opinion, this kind of booklet is too large. Since it won't be used all that often, we should just have some custom-made right away. A smaller size will work fine—it'll be faster to make and cheaper too."
 
-So the matter was settled. The group then discussed various arrangements for opening day. What gave Wen Tong a headache was the matter of gathering silver. He had long since learned that this area exported over two hundred thousand *shi* of sugar each year. He estimated that most of the sugar would still be purchased by the trading houses of Haiyi Hall, and their side could probably buy about twenty thousand *shi*. That would require roughly fifty thousand *liang* of silver. When the Guangzhou Station had arranged for Qiwei Escort Agency to set up in Leizhou, they had deposited ten thousand *liang* of cash locally. Wen Tong had brought another three thousand when he came to Leizhou. But this money had been nearly all spent on infrastructure, settling migrants, and cultivating relations with officials. The only funds available were the ten thousand *liang* in Guangzhou.
+So the matter was settled. The group then discussed various arrangements for opening day. What gave Wen Tong a headache was the matter of gathering silver. He had long since learned that this area exported over two hundred thousand *shi* of sugar each year. He estimated that most of the sugar would still be purchased by the trading houses of Haiyi Hall, and their side could probably buy about twenty thousand *shi*. That would require roughly fifty thousand *liang* of silver. When the Guangzhou Station had arranged for the Qiwei Escort Agency to set up in Leizhou, they had deposited ten thousand *liang* of cash locally. Wen Tong had brought another three thousand when he came to Leizhou. But this money had been nearly all spent on infrastructure, settling migrants, and cultivating relations with officials. The only funds available were the ten thousand *liang* in Guangzhou.
 
-That amount was far too short. The Guangzhou Station was certainly willing to provide full support—they said they could allocate a hundred thousand *liang* at any time—but the Great Ming had no remittance institutions. Silver had to be physically transported over a thousand *li*, which felt extremely unsafe.
+That amount was far too short. The Guangzhou Station was certainly willing to provide full support—they said they could allocate a hundred thousand *liang* at any time—but the Ming Dynasty had no remittance institutions. Silver had to be physically transported over a thousand *li*, which felt extremely unsafe.
 
 After racking their brains for a while without finding a suitable solution, one day Chang Shide took Liao Daxing to stroll around the county seat to clear their minds. This was his only hobby besides training his female slaves: wearing a silk *zhiduo* robe, striding proudly down the dusty, dirt streets. His unusual height, build, and fair skin made people step aside in awe—the feeling of being a big shot was quite nice. While strolling, Chang Shide quickly noticed a phenomenon: prices in Xuwen were very high!
 
@@ -40,13 +40,13 @@ Besides grain, everything here was more expensive than in Lingao—from firewood
 
 "Where does the grain from outside come from?"
 
-"It's shipped by sea, mostly from the north. Sea travel is unpredictable—pirates, storms, shipwrecks and losses can be huge. Since it's hard to ship here, naturally it's expensive."
+"It's shipped by sea, mostly from the north. Sea travel is unpredictable—pirates, storms, shipwrecks, and losses can be huge. Since it's hard to ship here, naturally it's expensive."
 
-Seeing that Chang Shide hadn't said anything, Liao Daxing licked his lips and smiled: "Actually, I have another thought, though I'm not sure if it's right—"
+Seeing that Chang Shide hadn't said anything, Liao Daxing licked his lips and smiled. "Actually, I have another thought, though I'm not sure if it's right..."
 
 "Let's hear it."
 
-"In my humble opinion, the key is that Leizhou has too much silver—"
+"In my humble opinion, the key is that Leizhou has too much silver."
 
 Chang Shide stopped walking and glanced at him, feeling quite surprised—he had assumed people of this era wouldn't understand this principle and would equate precious metals directly with wealth itself.
 
@@ -54,17 +54,17 @@ Chang Shide stopped walking and glanced at him, feeling quite surprised—he had
 
 "Yes," Liao Daxing saw that the master looked quite approving and quickly elaborated. "Leizhou exports over two hundred thousand *shi* of sugar every year, bringing in four or five hundred thousand *liang* of silver. With so much silver around, naturally all goods become expensive."
 
-"Yes, things are expensive here, but sugar is something everyone wants." Chang Shide mused. He seemed to dimly see a solution taking shape.
+"Yes, things are expensive here, but sugar is something everyone wants," Chang Shide mused. He seemed to dimly see a solution taking shape.
 
 "Manager Liao, how are the cane farmers' returns these days?"
 
 "Not bad, I suppose. Whatever the case, it's much better than growing rice!"
 
-"Mm." Chang Shide asked another question: "Do any ships from here go to Champa?"
+"Mm." Chang Shide asked another question. "Do any ships from here go to Champa?"
 
 "What for, going to Champa?" Liao Daxing felt this was odd. "Nobody here does overseas trade."
 
-The outline of a plan was gradually becoming clear in Chang Shide's mind. Somewhat excitedly, he clapped Liao Daxing on the shoulder: "Let's go. Back we go."
+The outline of a plan was gradually becoming clear in Chang Shide's mind. Somewhat excitedly, he clapped Liao Daxing on the shoulder. "Let's go. Back we go."
 
 That evening, unable to wait for the slow method of sending messages via carrier pigeon through Guangzhou, he wrote a secret letter directly and instructed the Qiwei Escort Agency to dispatch someone to Lingao by ship first thing the next morning. This matter required the Foreign Affairs Ministry's cooperation.
 
@@ -82,7 +82,7 @@ But this involved the issue of trading with Vietnam. Chang Shide didn't understa
 
 The Foreign Affairs Ministry didn't dare delay upon receiving this letter and immediately reported to the Executive Committee. In no time, all departments were in motion. The Intelligence Committee quickly announced that this plan was feasible: the Portuguese had once transported Chinese sugar to Vietnam and sold it at eight *liang* per *shi*! This was double the English purchase price in Guangzhou! The huge profits of maritime trade made everyone restless. Demands were made for the Executive Committee to immediately open the door to Vietnamese trade.
 
-"The time has come. Vietnam's abundant resources can no longer be left slumbering." Zealots agitated at the enlarged Executive Committee meeting. "Let's turn it into our raw materials base and market!"
+"The time has come. Vietnam's abundant resources can no longer be left slumbering," zealots agitated at the enlarged Executive Committee meeting. "Let's turn it into our raw materials base and market!"
 
 "Armed expedition!"
 
@@ -108,7 +108,7 @@ Though Zhang Dabala was past his fighting days, he was still a weathered old sea
 
 Zhang Xin saw at once that he was a suitable candidate. He hired him on the spot, making clear that he wouldn't need to risk his life—just interpret. Twelve Spanish dollars a month. Zhang Dabala, who'd been sipping thin gruel until he was sick of it, immediately boarded their pirate ship.
 
-Just before the *Great Whale* departed from the Hai'an Street dock, Chang Shide gave instructions to Wen Tong: "Old Wen, this trip will take at least ten days or so. The buildings are pretty much done now—don't wait any longer. You go ahead and arrange sugar purchasing here. We have ten thousand *liang* of silver to work with. That should be enough to hold until I get back."
+Just before the *Great Whale* departed from the Hai'an Street dock, Chang Shide gave instructions to Wen Tong. "Old Wen, this trip will take at least ten days or so. The buildings are pretty much done now—don't wait any longer. You go ahead and arrange sugar purchasing here. We have ten thousand *liang* of silver to work with. That should be enough to hold until I get back."
 
 "Good." Wen Tong gripped his hand firmly. What a great comrade—not only coming up with such a good idea but also volunteering to go to unfamiliar Vietnam to conduct trade and open new frontiers. Then he turned and saw A-Xiu carrying a basket, waiting to board. He thought this fellow was really hopeless.
 
@@ -127,4 +127,3 @@ They got lost!
 Le Lin's latitude and longitude calculations had been wildly inconsistent, with errors so large that no one trusted his measurements. Some had been grumbling that they should have hired a local helmsman rather than letting this amateur navigate.
 
 "You take the helm." Chang Shide finally kicked Le Lin aside and called Zhang Dabala over to pilot the ship.
-

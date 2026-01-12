@@ -1,4 +1,4 @@
-# Chapter 289 Sweet Port Turbulence – Confrontation
+# Chapter 289: Sweet Port Turbulence — Confrontation
 
 "That's right!" Wen Tong was also exhausted by this relentless commercial warfare. "Even if Guangzhou sends the silver, how many days will it last? Sooner or later we have to show our hand! With Bei Wei's men here, why not just wipe out Haiyi Hall in one go and see what other tricks they can pull?!"
 
@@ -8,11 +8,11 @@
 
 "He's been out for over two weeks; he should be back soon. Besides, the Executive Committee surely has ways to contact him." Wen Tong had made up his mind. "We'll radio the Executive Committee tonight, demanding decisive measures to strike back against the enemy's provocation."
 
-This essentially reclassified Haiyi Hall from a commercial competitor to an "enemy." And Uncle Lei Feng had long ago explained very clearly how to treat enemies.
+This essentially reclassified Haiyi Hall from a commercial competitor to an "enemy." And Comrade Lei Feng had long ago explained very clearly how to treat enemies.
 
 "I say we just go all the way. Have Bei Wei lead a special ops raid on Haiyi Hall, kill one or two ringleaders, and the rest will naturally be terrified. Then we go in, buy up their assets at low prices, and instantly unify the Leizhou sugar market!"
 
-"That's too vicious. It's practically robbery." Xiao Gui immediately objected. "Besides, Leizhou people aren't fools. If we do that, everyone will know we're the black hand behind it. Keeping the local gentry and officials terrified and guarded against us will make future work difficult."
+"That's too vicious. It's practically robbery," Xiao Gui immediately objected. "Besides, Leizhou people aren't fools. If we do that, everyone will know we're the black hand behind it. Keeping the local gentry and officials terrified and guarded against us will make future work difficult."
 
 "True. Killing one person or burning some assets to show them we're tough should be enough. They'll naturally back down. If they want to play for real, we're not afraid either."
 
@@ -20,13 +20,13 @@ This essentially reclassified Haiyi Hall from a commercial competitor to an "ene
 
 "They are the monopoly group," Wen Tong said. "Why don't you offer a suggestion then, old man?"
 
-"Hmm, I was thinking," Mei Lin said. "We can use both the carrot and the stick. Haiyi Hall is trying to squeeze us out for profit, but they haven't used extreme measures yet. If we suddenly go for the kill—whether killing people or burning houses—it's a bit excessive, right?" seeing everyone looking at him with disdain, he felt compelled to continue since he'd already started, "Take killing, for instance. If you kill someone, people fear you, and the crisis might pass. But a feud is forged—everyone has family, relatives, friends. There are always a few hard bones or desperate ones. What if they pull the same trick on us later? You can be a thief for a thousand days, but you can't guard against a thief for a thousand days."
+"Hmm, I was thinking," Mei Lin said. "We can use both the carrot and the stick. Haiyi Hall is trying to squeeze us out for profit, but they haven't used extreme measures yet. If we suddenly go for the kill—whether killing people or burning houses—it's a bit excessive, right?" Seeing everyone looking at him with disdain, he felt compelled to continue since he'd already started. "Take killing, for instance. If you kill someone, people fear you, and the crisis might pass. But a feud is forged—everyone has family, relatives, friends. There are always a few hard bones or desperate ones. What if they pull the same trick on us later? You can be a thief for a thousand days, but you can't guard against a thief for a thousand days."
 
 "Then kill them too. What's there to be afraid of! Men, women, old, young—kill them all! Leave not even chickens or dogs!" Wen Tong's face was dark and murderous. It seemed that when intellectuals got bloodthirsty, they were more terrifying than ordinary brutes.
 
 "Kill them all?!" Mei Lin disapproved even more. "Rooting out weeds isn't that easy. Besides, the methods are too cruel; it'll incite public anger. If you were a commoner, would you want to deal with a company that kills people at the drop of a hat and wipes out whole families?"
 
-Everyone felt there was reason in this. Chen Tianxiong said: "Old Mei makes sense, but right now being reasonable doesn't help. Do you have any ideas?"
+Everyone felt there was reason in this. Chen Tianxiong said, "Old Mei makes sense, but right now being reasonable doesn't help. Do you have any ideas?"
 
 "I do have an idea, though I don't know if it'll work," Mei Lin said. "Why not just go talk to Haiyi Hall? They've seen our factory's processing capacity. There's actually room for cooperation. Tempt these sugar merchants with joint shareholding. That way, the resistance to our controlling the Leizhou sugar industry would be much smaller."
 
@@ -38,9 +38,10 @@ Everyone felt there was reason in this. Chen Tianxiong said: "Old Mei makes sens
 
 "Enough 'I told you so's'—" Chen Tianxiong said. "Talking about it just makes us annoyed and doesn't help..."
 
-Just as they were at their wits' end, someone suddenly reported: "Someone from Guangzhou has arrived!"
+Just as they were at their wits' end, someone suddenly reported, "Someone from Guangzhou has arrived!"
 
-Everyone's spirits lifted. Wen Tong quickly said: "Invite them in, quick!"
+Everyone's spirits lifted. Wen Tong quickly said, "Invite them in, quick!"
+
 Wu De's arrival was a shot of adrenaline for everyone. Especially seeing that the Executive Committee had sent a leader of Executive Committee member rank personally to transport silver for the Leizhou Sugar Industry Company, the previously panic-stricken mood stabilized.
 
 "Everyone relax." Wu De knew what they were thinking as soon as he saw their expressions. "Silver? We have plenty. The Executive Committee will find ways to mobilize it for you. We will definitely win this sugar war."
@@ -59,7 +60,7 @@ Wen Tong outlined the situation roughly. Since the squeeze began, they had bough
 
 "There's at least one hundred fifty thousand *shi* of sugar outside waiting to be sold to us. If we continue to buy this slowly, it will lead to two results: one, the cane farmers will suffer losses because the pressed sugar spoils; two, they won't be able to wait and will have to sell to Haiyi Hall's sugar trading houses at the one *liang* five *qian* price. We lose either way."
 
-Wu De frowned: "Is the situation that bad?"
+Wu De frowned. "Is the situation that bad?"
 
 "Yes. Some heavily indebted farmers probably can't hold out much longer. We've learned a lot these past few days. Those farmers who borrowed money are being pressed hard by creditors and are desperate to liquidate."
 
@@ -69,7 +70,7 @@ Wu De listened carefully. Finally, when asking about their countermeasures, Wen 
 
 "One is to open the gates wide and buy as fast as possible. In the end, we gain both fame and profit. Of course, this is premised on being able to mobilize enough silver." Wen Tong touched his forehead. "This would naturally make everyone happy, and our situation would be easy to expand in the future. If there's no silver, the consensus is we have to use violent means. It's effective immediately, but cleaning up the mess afterward will be strenuous."
 
-After finishing, he added: "It's reached a life-or-death point for South China in Leizhou. The Executive Committee must make up its mind quickly!"
+After finishing, he added, "It's reached a life-or-death point for South China in Leizhou. The Executive Committee must make up its mind quickly!"
 
 "The Executive Committee has already made up its mind." Wu De knew he absolutely couldn't say anything discouraging at this moment. "You speed up acquisitions. The Executive Committee will move heaven and earth to raise the money. You must hold your ground here. Use violent means with caution; they are easy to use but hard to clean up after! The more critical the moment, the more calm you must be. Never give others a pretext. We must secure the fruit of this year's Leizhou sugar!" He thought for a moment. "I'll return to Lingao tonight and request an emergency meeting to discuss this."
 
@@ -85,11 +86,11 @@ Wen Tong instructed Liao Dahua and the others to prepare ox carts, laborers, and
 
 "Should we transport it at night? That way Haiyi Hall won't know our depth," Mei Lin said.
 
-Chen Tianxiong said: "No need. Haiyi Hall already knows our hand. Hai'an Street is their territory; our little tricks can't hide from them."
+Chen Tianxiong said, "No need. Haiyi Hall already knows our hand. Hai'an Street is their territory; our little tricks can't hide from them."
 
-Liao Dahua was also happy to hear that a large sum of silver had arrived. Unlike Wen Tong and the others, he had a blind worship for Proprietor Guo in Guangzhou. Hearing now that a ship from Guangzhou had brought silver, he felt even more that this proprietor had immense energy. He chimed in: "It's inconvenient to transport silver at night. It's dark, the porters can't see, and the journey isn't short. It's hard for the escorts to protect it. Better to do it in the day. Fifty thousand *liang* is a big number no matter what. People outside are jittery right now; might as well show it off!"
+Liao Dahua was also happy to hear that a large sum of silver had arrived. Unlike Wen Tong and the others, he had a blind worship for Proprietor Guo in Guangzhou. Hearing now that a ship from Guangzhou had brought silver, he felt even more that this proprietor had immense energy. He chimed in, "It's inconvenient to transport silver at night. It's dark, the porters can't see, and the journey isn't short. It's hard for the escorts to protect it. Better to do it in the day. Fifty thousand *liang* is a big number no matter what. People outside are jittery right now; might as well show it off!"
 
-Wu De nodded approvingly: "Right. Let's just show it off and demonstrate our resolve. Since the war is on, we have to fight until everyone in Leizhou Prefecture, high and low, is convinced!"
+Wu De nodded approvingly. "Right. Let's just show it off and demonstrate our resolve. Since the war is on, we have to fight until everyone in Leizhou Prefecture, high and low, is convinced!"
 
 "There's one more thing," Wen Tong said. "We have a large stock of sugar now. Since the *Ascending Peace Island* is here, why not ship a boatload of sugar to Guangzhou? Guo Yi said it can be liquidated once it gets there..."
 
@@ -114,4 +115,3 @@ Fortunately, even without those methods, the remaining moves were enough to make
 "Take people everywhere and find the big households that lent money to the cane farmers. Tell them to step up pressure on the farmers to repay debts!" Third Master Zhu's eyes shone.
 
 "Yes, Third Master!" The assignee agreed readily but hesitated slightly. "But Third Master, it's natural for creditors to press for debts, but if South China collapses, the farmers will simply have to sell at one *liang* five *qian*. Will the creditors worry that the farmers won't be able to pay back the debts—"
-

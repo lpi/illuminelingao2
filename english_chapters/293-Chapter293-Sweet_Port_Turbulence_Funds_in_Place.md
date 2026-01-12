@@ -1,14 +1,14 @@
-# Chapter 293 Sweet Port Turbulence – Funds in Place
+# Chapter 293: Sweet Port Turbulence — Funds in Place
 
-It turned out that the people Pepi had prepared to introduce to Guo Yi were all children of officials and gentry who frequently lingered at the Ziming Tower. Speaking of status, they weren't excessively high—either the son of a Grain Intendant, the young master or brother-in-law of a Vice General or Regional Commander, or the junior owner or nephew of a shopkeeper from a large business. They had some money in hand and mostly held some form of official degree. People with money and leisure naturally liked excitement. A place like Ziming Tower, which often had novel things, was naturally a place they frequently connected with.
+It turned out that the people Pepi had prepared to introduce to Guo Yi were all children of officials and gentry who frequently lingered at the Purple Clarity Pavilion. Speaking of status, they weren't excessively high—either the son of a Grain Intendant, the young master or brother-in-law of a Vice General or Regional Commander, or the junior owner or nephew of a shopkeeper from a large business. They had some money in hand and mostly held some form of official degree. People with money and leisure naturally liked excitement. A place like Purple Clarity Pavilion, which often had novel things, was naturally a place they frequently connected with.
 
 "There are a few young masters who want to meet you. They are all wealthy owners. It probably won't be hard for you to pull some funds from them."
 
 "I know about borrowing funds, but I didn't expect them to eagerly beg to see me. It's rare for creditors to be anxious to meet the borrower." Guo Yi was a bit surprised. The people he usually met were a mixed bag, including business partners and people from officialdom, but he rarely saw such young masters and dandies—they didn't do business, nor did they have demands, so they naturally wouldn't want to see him.
 
-"It's just that they heard you are a guest from overseas and got curious." Pepi smiled盈盈. She then recounted the details. It started with Pepi's casual chats while entertaining guests. When wealthy guests came to Ziming Tower to squander money, she, as the hostess, naturally had to accompany them for a while as a decoration. During the chat, she would talk about various sights and sounds of Australia for entertainment. These stories were originally materials approved by the Propaganda Department in Lingao, mainly promoting various benefits and strange tales of Australia, including fabricated history, mostly things like "Overseas Strange Tales." But they also included much content that the Transmigration Group preached to the people of the Ming Dynasty.
+"It's just that they heard you are a guest from overseas and got curious." Pepi smiled gracefully. She then recounted the details. It started with Pepi's casual chats while entertaining guests. When wealthy guests came to Purple Clarity Pavilion to squander money, she, as the hostess, naturally had to accompany them for a while as a decoration. During the chat, she would talk about various sights and sounds of Australia for entertainment. These stories were originally materials approved by the Propaganda Department in Lingao, mainly promoting various benefits and strange tales of Australia, including fabricated history, mostly things like "Overseas Strange Tales." But they also included much content that the Transmigration Group preached to the people of the Ming Dynasty.
 
-Such stories were inherently unique. The ingenuity of Australian goods, including the various novel amusements and enjoyments provided by this Ziming Tower, combined with Pepi's eloquence and detailed rendering, made many people deeply interested in Guo Yi, the proprietor of Ziming Tower.
+Such stories were inherently unique. The ingenuity of Australian goods, including the various novel amusements and enjoyments provided by this Purple Clarity Pavilion, combined with Pepi's eloquence and detailed rendering, made many people deeply interested in Guo Yi, the proprietor of Purple Clarity Pavilion.
 
 When hedonistic sons made friends, they never befriended plain and upright gentlemen; they insisted on making friends with "interesting" characters—either articulate, outstanding in appearance, or unconventional in conduct. These people kept pestering Pepi, wanting to meet the somewhat mysterious "Proprietor Guo."
 
@@ -16,7 +16,7 @@ When hedonistic sons made friends, they never befriended plain and upright gentl
 
 "Don't look down on them just because they are ordinary young masters; their family assets are quite substantial." Saying this, Pepi gently flipped her wrist, and an emerald ring sparkled on her finger. "This is their generosity."
 
-This ring had a market value of at least eight hundred taels of silver; this generosity could not be considered small.
+This ring had a market value of at least eight hundred *liang* of silver; this generosity could not be considered small.
 
 "Is this gift too heavy? There's no free lunch in the world." Guo Yi couldn't help but worry.
 
@@ -46,11 +46,11 @@ Guided by the maid, the two walked through the corridor, went down the stairs, a
 
 Pepi said, "The place is too cramped, and the layout is a bit messy. If we have the spare capacity, it would be best to renovate it."
 
-The implication was dissatisfaction with Ziming Tower's facilities. Ziming Tower was originally an old building that had been acquired and modified. At that time, Lingao's industrial system was still a blank slate, and the Executive Committee was unwilling to invest too many modern things here, so they could only renovate it according to the capabilities of this timeline. Because they were anxious to open up the situation, and the original decorations and facilities were still sixty or seventy percent new, they didn't make major adjustments or changes.
+The implication was dissatisfaction with Purple Clarity Pavilion's facilities. Purple Clarity Pavilion was originally an old building that had been acquired and modified. At that time, Lingao's industrial system was still a blank slate, and the Executive Committee was unwilling to invest too many modern things here, so they could only renovate it according to the capabilities of this timeline. Because they were anxious to open up the situation, and the original decorations and facilities were still sixty or seventy percent new, they didn't make major adjustments or changes.
 
-Guo Yi deeply agreed. With Pei Lixiu's appearance and conversation, although she attracted many dandies with temporary novel packaging, it was not a long-term plan after all. To keep Ziming Tower prosperous for a long time, there had to be constantly renewed tricks to lead Guangzhou's fashion trends.
+Guo Yi deeply agreed. With Pei Lixiu's appearance and conversation, although she attracted many dandies with temporary novel packaging, it was not a long-term plan after all. To keep Purple Clarity Pavilion prosperous for a long time, there had to be constantly renewed tricks to lead Guangzhou's fashion trends.
 
-Thinking of this, Guo Yi slowly said, "If you hadn't mentioned this, I would have forgotten. Lingao sent a list of the latest goods. Take a look later and see if there is anything that can be used in Ziming Tower. Calculate it before thinking about the reconstruction."
+Thinking of this, Guo Yi slowly said, "If you hadn't mentioned this, I would have forgotten. Lingao sent a list of the latest goods. Take a look later and see if there is anything that can be used in Purple Clarity Pavilion. Calculate it before thinking about the reconstruction."
 
 "If you ask me, we must first install a batch of sanitary ware, it's too inconvenient now..." Just as she was about to continue, seeing they were almost there, she quickly switched to a tone that was cloying enough to kill: "Proprietor, watch your step."
 
@@ -82,7 +82,7 @@ After thinking about it, the most profitable business in Guangzhou was maritime 
 
 But although Wu Zhixiang's father and brothers were officials in the capital, they were not influential big shots after all. Dong Jizhong's father was just a Vice General, and military ranks had always been worthless. Moreover, serving as an official in a foreign place, there was no one local to flatter them by letting them "insert shares" to carry goods or invest to make a small fortune. As for operating a ship to go to sea themselves, hearing about the perilous storms and pirates, the two really didn't have the guts. Entrusting others, they couldn't rest assured...
 
-Dong Jizhong also interrupted from the side, "They say maritime trade is a guaranteed profit, but the storms at sea are perilous. Zheng Nie—" he paused, "— Although Zheng Zhilong has accepted amnesty, the sea is still treacherous with three-foot waves even without wind! Very dangerous!" He smiled bitterly. "We have silver in vain, but we can't spend it."
+Dong Jizhong also interrupted from the side, "They say maritime trade is a guaranteed profit, but the storms at sea are perilous. Zheng the Traitor—" he paused, "—Although Zheng Zhilong has accepted amnesty, the sea is still treacherous with three-foot waves even without wind! Very dangerous!" He smiled bitterly. "We have silver in vain, but we can't spend it."
 
 After rambling to this point, Guo Yi already knew that these were just ordinary hedonistic sons. They were jealous watching others get rich, but didn't want to bear any risk or hardship, so they came to find him—such characters were easy to handle. He nodded immediately and said casually, "The sea is indeed turbulent; it is truly not a good business. You are both sons of a thousand gold; you cannot do such a business."
 
@@ -92,9 +92,9 @@ Another advantage was that because Wu Zhixiang's father and brother were in the 
 
 The two hit it off immediately. Capital, they had. But the Gao family monopolized the wholesale of Australian goods in the Guangzhou market. Thinking of getting some supply from his mouth was no different from snatching food from a tiger's mouth. Although Gao Ju was just a small commoner, he was connected to people in the palace, and it was heard that he was also connected to pirates; how could they dare to provoke him? As for Guo Yi, they had long heard of his name, but they had no interaction with him, and without a suitable intermediary, rashly visiting him might result in not even seeing him; even if they saw him, it would be too degrading if word got out.
 
-Thinking about it, they thought of Pei Lixiu of Ziming Tower. Hearing that this place was Guo Yi's property, then Pei Lixiu, who presided over Ziming Tower's business, must be the number one favorite beside Proprietor Guo, a favored concubine. If she introduced them and said a few good words at the critical moment, things would be much easier to accomplish.
+Thinking about it, they thought of Pei Lixiu of Purple Clarity Pavilion. Hearing that this place was Guo Yi's property, then Pei Lixiu, who presided over Purple Clarity Pavilion's business, must be the number one favorite beside Proprietor Guo, a favored concubine. If she introduced them and said a few good words at the critical moment, things would be much easier to accomplish.
 
-Having made up their minds, the two came to Ziming Tower every day, fawning over Pepi in every way, not hesitating to bribe her with heavy gifts. The goal was to have her whisper pillow talk, meet Guo Yi, and persuade this "God of Wealth of Australia" to leak some goods from between his fingers, which they could enjoy endlessly.
+Having made up their minds, the two came to Purple Clarity Pavilion every day, fawning over Pepi in every way, not hesitating to bribe her with heavy gifts. The goal was to have her whisper pillow talk, meet Guo Yi, and persuade this "God of Wealth of Australia" to leak some goods from between his fingers, which they could enjoy endlessly.
 
 "...Such a sum of money can't be used. We want to ask Proprietor Guo for advice on how we can use it to generate profit?" Dong Jizhong said. Although the words were polite, the meaning was clear: the only thing in Guo Yi's hands that guaranteed money was Australian goods.
 
@@ -108,8 +108,6 @@ But he didn't express his attitude at this moment; he would whet their appetites
 
 These days, whenever there was a banquet, Guo Yi drank "National Scholar Unrivaled," purely to advertise his own wine. He was a bit sick of drinking it. Hearing there was wine, he felt like rain after a long drought.
 
-There were also wine sales in Guangzhou of the Ming Dynasty. One was foreign goods, transported in wooden barrels, no different from 20th-century wine; the other was just yellow wine with raisins added. A place like Ziming Tower naturally used the former.
+There were also wine sales in Guangzhou of the Ming Dynasty. One was foreign goods, transported in wooden barrels, no different from 20th-century wine; the other was just yellow wine with raisins added. A place like Purple Clarity Pavilion naturally used the former.
 
-Wine was poured into the glass cup, crimson and beautiful. Guo Yi lifted it and drank a small mouthful. The wine taste wasn't astringent, but had some original sweet and sour taste; it indeed had a familiar fruity aroma of wine. He couldn't help but say: "Good wine!"
-
-(End of this chapter)
+Wine was poured into the glass cup, crimson and beautiful. Guo Yi lifted it and drank a small mouthful. The wine taste wasn't astringent, but had some original sweet and sour taste; it indeed had a familiar fruity aroma of wine. He couldn't help but say, "Good wine!"

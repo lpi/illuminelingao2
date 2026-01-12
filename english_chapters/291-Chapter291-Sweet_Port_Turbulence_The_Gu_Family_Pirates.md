@@ -1,4 +1,4 @@
-# Chapter 291 Sweet Port Turbulence – The Gu Family Pirates
+# Chapter 291: Sweet Port Turbulence — The Gu Family Pirates
 
 There were several such small bands of fisher-pirates in the area, and the Gu family group was considered somewhat powerful. These small pirate bands were quite a scourge in Leizhou, but to Haiyi Hall, they were nothing. Haiyi Hall organized its own militia. Every time sugar ships went to sea, they traveled in convoys with hundreds of sailors and militiamen. Such small pirate groups couldn't gnaw on them at all. Not only could they not gnaw, but they also risked breaking their teeth.
 
@@ -12,9 +12,9 @@ Over time, although nearby small pirate bands rose and fell—sometimes wiped ou
 
 Gu Dachun, as the gang leader, valued loyalty. Although his relationship with Haiyi Hall was merely mutual utilization, once when Third Master Zhu led a fleet and encountered a storm at sea, Gu Dachun happened to be sheltering near the shore. He braved the risk to sail out and guide most of the sugar ships to a sheltered spot. Third Master Zhu felt this man kept faith and valued righteousness, a very usable object, so he became sworn brothers with him. After years of association, their friendship grew deep, and Gu Dachun married his newly widowed sister to Third Master Zhu as the sixth concubine.
 
-In a sense, this was a political marriage. Third Master Zhu originally held this thought: firstly, the bride was a "remnant flower" remarrying; secondly, coming from a fishing family, how much beauty could she have? Presumably, the brother just loved his sister and wanted to give her a stable home. He would just marry her, arrange a place, and look after her with food and clothing.
+In a sense, this was a political marriage. Third Master Zhu originally held this thought: firstly, the bride was a "withered flower" remarrying; secondly, coming from a fishing family, how much beauty could she have? Presumably, the brother just loved his sister and wanted to give her a stable home. He would just marry her, arrange a place, and look after her with food and clothing.
 
-Unexpectedly, after marriage, it turned out otherwise. Although the sixth concubine came from a fishing family, her appearance was quite good, completely lacking the look of a sea family. Rare was that she was considerate in serving people, skilled in needlework and cooking. Asking revealed that this sister had been sold to a local wealthy household as a maid in early years and taken as a concubine. After the master died, she was expelled by the main wife. She served the over-fifty Third Master Zhu very comfortably.
+Unexpectedly, after marriage, it turned out otherwise. Although the sixth concubine came from a fishing family, her appearance was quite good, completely lacking the rough look of a sea family. Rare was that she was considerate in serving people, skilled in needlework and cooking. Asking revealed that this sister had been sold to a local wealthy household as a maid in early years and taken as a concubine. After the master died, she was expelled by the main wife. She served the over-fifty Third Master Zhu very comfortably.
 
 Since there was the Gu Dachun line, why not just use it? It would be of great benefit to himself and others. He made up his mind: use strong medicine!
 
@@ -46,7 +46,7 @@ Qiuhan was somewhat surprised. Master rarely mentioned her brother in front of h
 
 "Grind ink—" Just as he wanted to pick up the brush to write a letter, he felt it inappropriate. Once this letter fell into outsider hands, it would be big trouble. Better to let someone say it face to face.
 
-"Go back to your maiden home—" Third Master Zhu said in a low voice, "Tell your brother there is a huge fortune near Hai'an Street recently." He described the sugar ships that would soon leave port from South China Factory.
+"Go back to your maiden home—" Third Master Zhu said in a low voice. "Tell your brother there is a huge fortune near Hai'an Street recently." He described the sugar ships that would soon leave port from South China Factory.
 
 "Haiyi Hall won't have ships leaving port recently. Tell your brother, as long as he identifies the South China mark, just go for it!"
 
@@ -82,7 +82,7 @@ What the Finance Committee had its eye on was the remittance business. Simple re
 
 "The focus of our bank is on remittance, similar to *piaohao* business. After building credit for a few years, silver drafts will be able to circulate everywhere."
 
-Ma Qianzhu shook his head: "The Great Ming doesn't seem to have a huge demand for remittance!" Based on what they had seen and heard, the commodity economy of the Great Ming was just so-so. Although not necessarily primitive, it wasn't that advanced either. The so-called entry into the primary stage of capitalism was far from the truth.
+Ma Qianzhu shook his head. "The Great Ming doesn't seem to have a huge demand for remittance!" Based on what they had seen and heard, the commodity economy of the Great Ming was just so-so. Although not necessarily primitive, it wasn't that advanced either. The so-called entry into the primary stage of capitalism was far from the truth.
 
 "Not so. Although the scale of capital flow is not large, it exists. Leizhou sugar is an example. We believe that at least for Songjiang cloth, Jiangxi tea and porcelain, Jiangnan silk, and Fujian indigo, there are large-scale flows of silver and money." He took a breath. "Actually, even for this peripheral place of Hainan, according to the Intelligence Department's investigation, the annual betel nut and copra trade has a value of several tens of thousands of *liang*. In terms of scale, this is not small."
 
@@ -98,7 +98,7 @@ Another purpose for the Finance Committee to run a bank was to establish the cre
 
 Because silver drafts have different levels of credit. Unlike copper coins and silver ingots—the former is government credit, the latter is real precious metal. Whether a silver draft can stand hard in the market and how wide its effective range is depends largely on the strength and credit of the issuing money shop or draft bank. So some silver drafts only circulate in one place, while others can reach all directions. There are many tricks here. Cheng Dong didn't explain them one by one. He also pointed out that if the credit of silver drafts could be established, there would be huge benefits in capital mobilization and fundraising in the future.
 
-Wu Nanhai still objected: "Soon the Central Plains will be in turmoil. Doing draft remittance definitely involves setting up branches. Investing huge money and manpower, once war starts, won't it all be destroyed?"
+Wu Nanhai still objected, "Soon the Central Plains will be in turmoil. Doing draft remittance definitely involves setting up branches. Investing huge money and manpower, once war starts, won't it all be destroyed?"
 
 "No need," Yan Ming said. "We are not running a modern bank. No need to set up spots everywhere. Just set up spots in a few places where commerce is prosperous and officials gather. When necessary, we can also establish remittance alliances with capable local shops."
 
@@ -108,5 +108,4 @@ The idea of setting up spots was to open up a few key routes. Southwest, Northwe
 
 Suzhou and Songjiang were the richest in Southern Zhili. The Northern and Southern Capitals were capital cities where officials gathered, so naturally, they had to be prioritized. As for Qingjiangpu, although just a nameless small county town in the 20th century, it was a major wharf where north-south traffic converged in the Ming and Qing dynasties.
 
-At the turn of Ming and Qing, navigating the Grand Canal connecting north and south was difficult through locks, and sailing the Yellow River was dangerous. So travelers going north or south, except for grain transport boats, mostly had to abandon boats and land at Qingjiangpu, go north via the "Thoroughfare of Nine Provinces Wharf," cross the Yellow River to Wangjiaying, and take horses or hire carts to go north. Since this place was a transportation hub between north and south, commerce was naturally extremely prosperous. Locally there were also warehouses managed by the Ministry of Revenue and transport shipyards managed by the Ministry of Works, with many important officials like the Governor of Southern River stationed there. Every year the court would send down large sums for river control. The wealth of river officials was famous under heaven. Many officials and many merchants meant frequent flow of silver and money. It was a feng shui treasure land for remittance business.
-
+At the turn of Ming and Qing, navigating the Grand Canal connecting north and south was difficult through locks, and sailing the Yellow River was dangerous. So travelers going north or south, except for grain transport boats, mostly had to abandon boats and land at Qingjiangpu, go north via the "Thoroughfare of Nine Provinces," cross the Yellow River to Wangjiaying, and take horses or hire carts to go north. Since this place was a transportation hub between north and south, commerce was naturally extremely prosperous. Locally there were also warehouses managed by the Ministry of Revenue and transport shipyards managed by the Ministry of Works, with many important officials like the Governor of Southern River stationed there. Every year the court would send down large sums for river control. The wealth of river officials was famous under heaven. Many officials and many merchants meant frequent flow of silver and money. It was a feng shui treasure land for remittance business.

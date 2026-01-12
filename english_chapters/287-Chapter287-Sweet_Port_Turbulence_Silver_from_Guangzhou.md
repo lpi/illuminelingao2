@@ -1,10 +1,10 @@
-# Chapter 287 Sweet Port Turbulence – The Silver from Guangzhou
+# Chapter 287: Sweet Port Turbulence — The Silver from Guangzhou
 
 At the villa, Chu Yu removed her rain cape and hung it under the eaves, then hurried back to unfasten the buttons of his rain jacket. Wu De saw that beneath it, her blue cloth dress was completely soaked, covered with mud. Her legs were bare—just a pair of muddy feet now. Her hair was plastered into wet strands, her lips blue with cold, her body shivering. But on her back was a bundle.
 
 "What are you doing here? I told you I was going on a business trip!" Though moved, Wu De couldn't help scolding her for the sentimentality. "Coming out in this heavy rain—trying to get sick?" But there was already affection in his words.
 
-"I'm from servant stock—where would I get such delicate sensibilities?" Chu Yu didn't seem to mind. She ignored her own wet clothes. She took down the bundle from her back. "I saw Master forgot this. Since you're on a business trip, you'll certainly be going to territory under the officials' control. So I hurried to bring it."
+"I was born a servant—where would I get such delicate sensibilities?" Chu Yu didn't seem to mind. She ignored her own wet clothes. She took down the bundle from her back. "I saw Master forgot this. Since you're on a business trip, you'll certainly be going to territory under the officials' control. So I hurried to bring it."
 
 Opening it, he found a dark stab-resistant vest. In the past, whenever Wu De went to the countryside or the quarantine camp, he'd wear this for protection as long as the weather permitted. Recently, as conditions had improved and the weather had grown hot, he rarely wore it anymore.
 
@@ -18,7 +18,7 @@ Opening it, he found a dark stab-resistant vest. In the past, whenever Wu De wen
 
 "I'll remember." Wu De decided to be agreeable all the way. "You should hurry back now. I'll be setting out in a moment."
 
-"Master," Chu Yu dried her dripping hair, gave it a gentle toss, and nestled into Wu De's embrace, saying softly: "Master, please come back safe and sound—"
+"Master," Chu Yu dried her dripping hair, gave it a gentle toss, and nestled into Wu De's embrace, saying softly, "Master, please come back safe and sound—"
 
 Wu De felt a warmth in his heart. Nothing pleased a man more than having a woman devote herself to him completely as her anchor—even if she wasn't beautiful.
 
@@ -28,7 +28,7 @@ Wu De felt a warmth in his heart. Nothing pleased a man more than having a woman
 
 Wu De had wanted to reassure her and deny the whole rebellion thing, but on second thought—why deceive himself? So he nodded solemnly.
 
-...
+***
 
 The *Ascending Peace Island* left port, heading northwest toward Guangzhou Bay. An hour later, Bopu Port had vanished below the horizon. Only the lighthouse at Lingao Point could still be faintly seen.
 
@@ -44,7 +44,7 @@ After months of honest stone-breaking and ditch-digging in the labor reform brig
 
 "Have a drink to warm up first." Wu De unslung his canteen and handed it over. "What's our speed?"
 
-The first mate took the liquor, tilted his head back for a big gulp, then said: "Seven to eight-point-five knots."
+The first mate took the liquor, tilted his head back for a big gulp, then said, "Seven to eight-point-five knots."
 
 This was the speed with the diesel engine running—under these sea conditions, the engine's power was very useful for effective ship handling.
 
@@ -54,13 +54,13 @@ This was the speed with the diesel engine running—under these sea conditions, 
 
 So it seemed the rain was heavy, but the wind hadn't increased. This relieved Wu De slightly, but the barometer showed no signs of improvement.
 
-"Can't stop the ship. We need to sail day and night to make it in time." Wu De said. "Split the sailors and marines into two shifts for sleeping in rotation."
+"Can't stop the ship. We need to sail day and night to make it in time," Wu De said. "Split the sailors and marines into two shifts for sleeping in rotation."
 
 "Yes, sir—I'll go arrange it!" Wang the Bearded wiped his mouth and hurried out again.
 
 After arranging matters, Wu De put on his seaman's cap, fastened his rain jacket, and climbed up to the aft castle. The six trainees on their first voyage were curled up on the aft castle deck, vomiting. Several were already deathly pale.
 
-Seeing their commanding officer approach, the trainees struggled to stand up. Wu De stopped them: "Grab a rope and stand! First learn to keep your feet on deck!"
+Seeing their commanding officer approach, the trainees struggled to stand up. Wu De stopped them. "Grab a rope and stand! First learn to keep your feet on deck!"
 
 "Yes, sir!" The one in front managed a salute.
 
@@ -88,11 +88,11 @@ It had to be said that night sailing in this era, with virtually no navigational
 
 Wu De stepped out of the cabin. The deck was alive with activity. Sailors in short pants, barefoot, were lowering sails, tightening cables, covering cargo. Marines in long pants with blue armbands on their left arms were busy pumping water.
 
-Just then, a wave lifted the bow high. Seeing it, Wu De immediately shouted: "Hold on!!! Hold on!!!"
+Just then, a wave lifted the bow high. Seeing it, Wu De immediately shouted, "Hold on!!! Hold on!!!"
 
 Before he finished speaking, the ship plunged into the trough. Seawater swept across the entire deck.
 
-Wu De was also knocked down. He quickly grabbed a rope and struggled to his feet, shouting: "Count heads! Report losses!!!"
+Wu De was also knocked down. He quickly grabbed a rope and struggled to his feet, shouting, "Count heads! Report losses!!!"
 
 "Sailors—no casualties!!!" "Marines—no casualties!!" "Forward hatch damaged!! Taking water!!" "Midship hold—taking water!!"
 
@@ -110,7 +110,7 @@ Wu De ran to the stern. Following the direction indicated by the lookout, he saw
 
 At midnight, the wind raged and rain lashed. Wu De went down to the mid-hold. Off-duty sailors and marines were gathered together, eating. The four surviving trainees were huddled in a corner, quietly sobbing.
 
-Wu De sat down beside them and asked: "You all know now?"
+Wu De sat down beside them and asked, "You all know now?"
 
 The four said nothing, just kept crying.
 
@@ -122,7 +122,7 @@ The four said nothing, just kept crying.
 
 "I don't want to be a naval officer anymore, boo-hoo..." This one crying with snot running was probably fourteen or fifteen—clearly in shock.
 
-Wu De sighed and said: "Get some rest first. In two hours, you're back on watch! Anyone who doesn't want to be a naval trainee—I'll arrange your withdrawal when we get back!"
+Wu De sighed and said, "Get some rest first. In two hours, you're back on watch! Anyone who doesn't want to be a naval trainee—I'll arrange your withdrawal when we get back!"
 
 With that, he left the youngsters and returned to the captain's cabin.
 
@@ -140,13 +140,13 @@ Zhang Xin came to the dock and supervised loading the iron chests containing fif
 
 "This tight? Doesn't the Gao family owe us over a hundred thousand in payments?"
 
-"The Gao family's not the only one. Our accounts receivable are close to one hundred eighty thousand." Zhang Xin said. "But by convention, the first settlement isn't until the fifth day of the fifth lunar month. Merchants with goods out haven't collected payment yet. It's the same everywhere—nobody can produce much cash. The lending interest rates on the Guangzhou market are very high right now. Even if the Gao family can scrape together tens of thousands of *liang*, we'll have to pay interest—just less than the going rate."
+"The Gao family's not the only one. Our accounts receivable are close to one hundred eighty thousand," Zhang Xin said. "But by convention, the first settlement isn't until the fifth day of the fifth lunar month. Merchants with goods out haven't collected payment yet. It's the same everywhere—nobody can produce much cash. The lending interest rates on the Guangzhou market are very high right now. Even if the Gao family can scrape together tens of thousands of *liang*, we'll have to pay interest—just less than the going rate."
 
 "How high?" Wu De knew the Executive Committee was still worrying about where to find more silver.
 
-"The going market rate is two percent a month. The Gao family would probably accept one-point-five."
+"The going market rate is twenty percent a month. The Gao family would probably accept fifteen percent."
 
-"Monthly interest of 20%?!" Wu De nearly shouted. This loan-sharking was ridiculous. Annual rate was 240%!
+"Monthly interest of twenty percent?!" Wu De nearly shouted. This loan-sharking was ridiculous. Annual rate was 240%!
 
 "Even at this interest rate, as long as we complete the cargo turnaround within a month, we'll still make money. On sugar, whether it's English or Portuguese buyers, they're willing to pay cash. If it really comes to that, we can consider such short-term borrowing!" Zhang Xin pulled a copy of a document from his pocket. "This is another proposal from the Guangzhou Station to the Executive Committee. It's a bigger matter and might be too slow to save the immediate crisis. But if we can implement it, future cash flow will be much more comfortable. The telegram's already been sent—the Executive Committee should discuss it soon."
 
@@ -154,7 +154,6 @@ Zhang Xin came to the dock and supervised loading the iron chests containing fif
 
 Time was pressing. The *Ascending Peace Island* didn't linger in Guangzhou. After loading the silver and making some minor ship repairs, they replenished their fresh water and immediately set off for Leizhou.
 
-On the ship, Wu De opened the copy. It was a document drafted by the Guangzhou Station—a proposal jointly signed by the Station's three main commercial officers, suggesting that the Station's subordinate enterprises accept deposits from the families of officials and wealthy households in Guangzhou and throughout the Two Guangs and Fujian regions.
+On the ship, Wu De opened the copy. It was a document drafted by the Guangzhou Station—a proposal jointly signed by the Station's three main commercial officers, suggesting that the Station's subordinate enterprises accept deposits from the families of officials and wealthy households in Guangzhou and throughout Liangguang and Fujian.
 
 "Deposits?!" Wu De was so startled he jumped out of his chair. Only four words came to mind: "Pure fantasy!"
-
