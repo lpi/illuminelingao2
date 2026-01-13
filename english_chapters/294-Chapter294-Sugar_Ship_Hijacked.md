@@ -16,11 +16,11 @@ Guo Yi said to the two, "I have a question to ask."
 
 Wu Zhixiang looked at Dong Jizhong, seeking his opinion with his eyes.
 
-"Brother Ziyan," Dong Jizhong said, "There isn't much silver. I have fifty thousand, and Brother Wu has over thirty thousand. Together, it's just a figure of eighty or ninety thousand. Silver is inconvenient to leave sitting for long; it must be turned over quickly."
+"Brother Ziyan," Dong Jizhong said, "There isn't much silver. I have 50,000, and Brother Wu has over 30,000. Together, it's just a figure of 80,000 or 90,000. Silver is inconvenient to leave sitting for long; it must be turned over quickly."
 
-Nearly a hundred thousand silver, yet they said the amount wasn't large; what a lavish tone. The wealth of officialdom was truly appalling. Guo Yi thought, no wonder the Ming Dynasty was going to perish.
+Nearly 100,000 silver, yet they said the amount wasn't large; what a lavish tone. The wealth of officialdom was truly appalling. Guo Yi thought, no wonder the Ming Dynasty was going to perish.
 
-He nodded. "I understand your thoughts. Originally, this is no big deal. But for merchants, trust and righteousness are most important. Now, all Australian goods produced by Purple Treasure Studio are exclusively sold by Master Gao. It is inconvenient for me to go back on my word and distribute goods to you two without authorization. Otherwise, in this marketplace, my, Guo's, credit would be gone."
+He nodded. "I understand your thoughts. Originally, this is no big deal. But for merchants, trust and righteousness are most important. Now, all Australian goods produced by Purple Treasure Pavilion are exclusively sold by Master Gao. It is inconvenient for me to go back on my word and distribute goods to you two without authorization. Otherwise, in this marketplace, my, Guo's, credit would be gone."
 
 "This, we still ask Brother Ziyan to help!" Wu Zhixiang quickly pleaded.
 
@@ -40,13 +40,13 @@ He didn't say borrow; firstly, the interest to be paid for borrowing was extreme
 
 Wu Zhixiang said without thinking, "Good, good. I just don't know what the return is?"
 
-"It's hard to say, but according to the annual convention, for every *liang* of silver invested, a return of two *fen* is always there."
+"It's hard to say, but according to the annual convention, for every tael of silver invested, a return of 2% is always there."
 
 "How long will it take? It won't do if the time delay is too long." Dong Jizhong interrupted.
 
 Guo Yi nodded. "Of course! If it takes a year or half a year to get the capital and interest back, you two should just deposit it directly at the counter of a large business house. My business will see results in three months."
 
-Actually, it wouldn't even take a month. Guo Yi had calculated it himself; a shipload of sugar transported from Xuwen to Guangzhou could be sold off in as fast as ten days. Paying a total of two *fen* interest over three months was a heavy interest rate, but compared to the interest for borrowing, it was much lower. Moreover, in these three months, the money could change hands one or two more times, equivalent to using it three times over.
+Actually, it wouldn't even take a month. Guo Yi had calculated it himself; a shipload of sugar transported from Xuwen to Guangzhou could be sold off in as fast as ten days. Paying a total of 2% interest over three months was a heavy interest rate, but compared to the interest for borrowing, it was much lower. Moreover, in these three months, the money could change hands one or two more times, equivalent to using it three times over.
 
 Having his mind read, Dong Jizhong's face flushed slightly, and he busily said, "That's not what I meant! Brother Ziyan is helping us brothers so much! How could brothers dare to haggle over more or less? It's just that there are some inconveniences involved..." To show he wasn't talking nonsense, he awkwardly revealed a bit of news, saying that part of this silver was "temporarily borrowed public funds" and couldn't be kept in hand for long. Guo Yi thought, how much public funds could a Vice General father have? This money was probably soldier's pay.
 
@@ -54,7 +54,7 @@ Having his mind read, Dong Jizhong's face flushed slightly, and he busily said, 
 
 "Since it is settled, I wonder where the silver should be sent for collection?" Dong Jizhong was anxious to finalize the matter. "I will write a note immediately and tell someone to go back and withdraw it and send it to your residence immediately..."
 
-"No need," Guo Yi said decisively. "Since we are partners, the first priority is credit, and the second is procedure. When the time comes for your funds, I will have people from the Qiwei Escort Agency come to collect them. You two just need to instruct your doormen and accountants. I will instruct Purple Treasure Studio to issue a passbook for you, noting three months and calculating interest at two *fen*. If the market is good, a bonus will be presented according to the share capital. Is this acceptable?"
+"No need," Guo Yi said decisively. "Since we are partners, the first priority is credit, and the second is procedure. When the time comes for your funds, I will have people from the Qiwei Escort Agency come to collect them. You two just need to instruct your doormen and accountants. I will instruct Purple Treasure Pavilion to issue a passbook for you, noting three months and calculating interest at 2%. If the market is good, a bonus will be presented according to the share capital. Is this acceptable?"
 
 "Acceptable, acceptable!" These words made the two nod repeatedly, feeling that Proprietor Guo spoke and acted beautifully and reliably. They felt a few points more closeness towards him. Once the major event was settled, the mood naturally relaxed, and the subsequent drinking went smoother and smoother. Guo Yi also took the opportunity to inquire about a lot of official news.
 
@@ -66,9 +66,9 @@ This was generally consistent with the news Guo Yi had obtained from the court g
 
 The drinking lasted until three in the afternoon before they dispersed happily. Guo Yi explained a few important words to Pei Lixiu, especially asking her to pay attention to whether anyone coming to Purple Clarity Pavilion recently mentioned sugar. If there was important news, send someone to report it in time.
 
-The Transmigration Group's control over Leizhou sugar versus Haiyi Hall was bound to determine a winner. According to Guo Yi's view, no matter how strong Haiyi Hall was, it couldn't fight the strong dragon of the Transmigration Group. Even without using the Executive Committee's special forces, just relying on the operations here in Guangzhou, Haiyi Hall would undoubtedly lose in this sugar collection war—after successfully pulling two loans today, he became even more firm in this belief.
+The Transmigration Group's control over Leizhou sugar versus the Haiyi Guild was bound to determine a winner. According to Guo Yi's view, no matter how strong the Haiyi Guild was, it couldn't fight the strong dragon of the Transmigration Group. Even without using the Executive Committee's special forces, just relying on the operations here in Guangzhou, the Haiyi Guild would undoubtedly lose in this sugar collection war—after successfully pulling two loans today, he became even more firm in this belief.
 
-Now, regarding funds, the Transmigration Group was already holding the winning ticket. I'm afraid Haiyi Hall wouldn't expect the transmigrators to have the ability to get over a hundred thousand taels of silver so quickly. In the next few days, there should be more funds that could be mobilized—Pei Lixiu said that besides Wu and Dong, there were several other young masters from similar official families. He didn't dare say too much, but mobilizing another forty or fifty thousand silver shouldn't be a problem. The figure of two hundred thousand taels was enough to beat Haiyi Hall until they couldn't get up.
+Now, regarding funds, the Transmigration Group was already holding the winning ticket. I'm afraid the Haiyi Guild wouldn't expect the transmigrators to have the ability to get over 100,000 taels of silver so quickly. In the next few days, there should be more funds that could be mobilized—Pei Lixiu said that besides Wu and Dong, there were several other young masters from similar official families. He didn't dare say too much, but mobilizing another 40,000 or 50,000 silver shouldn't be a problem. The figure of 200,000 taels was enough to beat the Haiyi Guild until they couldn't get up.
 
 China has always been called a black hole for silver, and Guangzhou is probably the place that hoards the most silver. They say money is tight, but actually, there are plenty of people with large amounts of cash in hand! It's just a matter of figuring out how to dig it all out of them.
 
@@ -80,7 +80,7 @@ While contemplating in the sedan chair, the sedan chair suddenly stopped, and a 
 
 "Go to Qiwei!"
 
-Once the sedan curtain was lowered, they immediately went in the direction of the Qiwei Escort Agency. His heart was a bit anxious. Although he was ninety-nine percent sure about the Leizhou matter this time, the closer it got to the final moment, the less likely problems could occur. The key to this battle was the sugar price in Guangzhou. According to recent market trends, the price was climbing steadily and had reached three *liang* nine *qian* two *fen*. He already knew from the South China side that according to locals, Leizhou's sugar production this year was "average," meaning a standard level. However, Leizhou was not the only place in China that produced sugar; Fujian, close at hand, also produced sugar. He still knew nothing about the local market there. If a large batch of sugar arrived and the price fell, the large sum of high-interest borrowed funds would turn into a dose of poison!
+Once the sedan curtain was lowered, they immediately went in the direction of the Qiwei Escort Agency. His heart was a bit anxious. Although he was ninety-nine percent sure about the Leizhou matter this time, the closer it got to the final moment, the less likely problems could occur. The key to this battle was the sugar price in Guangzhou. According to recent market trends, the price was climbing steadily and had reached 3.92 taels. He already knew from the South China side that according to locals, Leizhou's sugar production this year was "average," meaning a standard level. However, Leizhou was not the only place in China that produced sugar; Fujian, close at hand, also produced sugar. He still knew nothing about the local market there. If a large batch of sugar arrived and the price fell, the large sum of high-interest borrowed funds would turn into a dose of poison!
 
 At this critical juncture, unexpected accidents were feared the most. Guo Yi had already instructed Sun Kecheng that the various branches and external counters should report every three days recently. If they encountered sugar goods passing through, they should try to find out the origin and production volume of the sugar, and where it was planned to be transported and sold. Instruct escort masters to visit tea houses more often, just to obtain useful news in these places—even a few words were sometimes extremely critical.
 
@@ -100,13 +100,13 @@ Guo Yi felt a tightness in his heart. Could it be the *Dengyingzhou*? That ship 
 
 "It's the *Guang Bing*!"
 
-The *Guang Bing* was a double-masted Guangdong ship with a capacity of over 100 tons. It was a vessel belonging to the Highland Shipyard dedicated to coastal freight.
+The *Guang Bing* was a double-masted Guangdong ship with a capacity of over 100 tons. It was a vessel belonging to the Gaodi Shipyard dedicated to coastal freight.
 
-The so-called Highland Shipyard was a freight shipping company jointly run by the Guangzhou Station and the Qiwei Escort Agency to make up for Lingao's lack of water transport capacity. All used were small coastal cargo ships purchased locally, and the sailors were also hired locally. The shipping company was managed by the Guangzhou Station and did not belong to the jurisdiction of the Maritime Power Department. The only business was running the Lingao-Guangzhou route.
+The so-called Gaodi Shipyard was a freight shipping company jointly run by the Guangzhou Station and the Qiwei Escort Agency to make up for Lingao's shipping shortage. All used were small coastal cargo ships purchased locally, and the sailors were also hired locally. The shipping company was managed by the Guangzhou Station and did not belong to the jurisdiction of the Maritime Power Department. The only business was running the Lingao-Guangzhou route.
 
 Because business was busy, the fleet expanded quickly. Now it already possessed six double-masted ships, named starting with 'Guang' and ordered by Heavenly Stems, from *Guang Jia* all the way to *Guang Geng*. They bore more than half of the task of transporting various materials to Lingao.
 
-Originally, Highland ships mostly returned from Lingao empty—the so-called "Australian goods" were small in quantity and high in value, so for safety reasons, they were always transported by the Maritime Power Department's *Dengyingzhou*. Right now, the South China Factory had a backlog of granulated sugar, and Guangzhou was also anxious to recoup funds. After discussion, both sides decided to use the empty ships of the Highland Shipyard returning from Lingao to load granulated sugar on the way back. It was a convenient and profitable thing; who knew such a thing would happen!
+Originally, Gaodi ships mostly returned from Lingao empty—the so-called "Australian goods" were small in quantity and high in value, so for safety reasons, they were always transported by the Maritime Power Department's *Dengyingzhou*. Right now, the South China Factory had a backlog of granulated sugar, and Guangzhou was also anxious to recoup funds. After discussion, both sides decided to use the empty ships of the Gaodi Shipyard returning from Lingao to load granulated sugar on the way back. It was a convenient and profitable thing; who knew such a thing would happen!
 
 Because the sea surface was not peaceful, although there were no cannons on the shipyard's ships, sailors were equipped with swords, spears, and matchlock guns for self-defense, and special escort masters for sea routes were assigned to hold the line. The route basically didn't go into the outer ocean, only sailing in the inner ocean. Although the journey was slightly longer this way, it was safer. So the ships ran for several months without any incidents—how did an accident happen as soon as sugar was loaded?
 
@@ -116,7 +116,7 @@ Sun Kecheng whispered, "The ship came back, but five people died."
 
 "Can the ship still be used?" After asking this, he couldn't help regretting it. Asking about the ship's condition before the casualties of subordinates was a bit too chilling. He hurriedly added a sentence, "Are there any wounded?"
 
-"The ship is at the dock, looking for someone for repairs. There is some minor damage, but no major obstruction!" Sun Kecheng said. "The sailors are all resting at Highland Inn. Some are injured and doctors are being called!"
+"The ship is at the dock, looking for someone for repairs. There is some minor damage, but no major obstruction!" Sun Kecheng said. "The sailors are all resting at Gaodi Inn. Some are injured and doctors are being called!"
 
 "Is the ship captain alright? What about the escort masters?"
 
@@ -124,4 +124,4 @@ Sun Kecheng whispered, "The ship came back, but five people died."
 
 Although death in the escort agency was not rare, these two were old hands who had worked together for years. Naturally, the sentiment was different from the new recruits recently.
 
-"People cannot be brought back to life. I will definitely provide generous compensation here!" Guo Yi quickly patted his chest. "First send two hundred *liang* of silver as a condolence gift to each of the bereaved families. As for the compensation matters, you watch over it for me first, and we'll discuss it together later—don't be afraid to spend money!"
+"People cannot be brought back to life. I will definitely provide generous compensation here!" Guo Yi quickly patted his chest. "First send 200 taels of silver as a condolence gift to each of the bereaved families. As for the compensation matters, you watch over it for me first, and we'll discuss it together later—don't be afraid to spend money!"

@@ -1,4 +1,4 @@
-# Chapter 314 - Sweet Port Crisis: Dust Settles
+# Chapter 314: Sweet Port Turbulence — Dust Settles
 
 Third Master Zhu laughed hideously and slammed the table: "Good! You have guts." Saying this, he picked up the porcelain bowl in front of him and smashed it viciously under the table.
 
@@ -24,7 +24,7 @@ Sure enough, from afar came the sound of "Clang—Clang—Clang..." gongs. Seven
 
 While they were hesitating, the main gate was banged loudly.
 
-"Why is the door closed so tight in broad daylight! What tricks are you playing? I am Head Constable Li from the county yamen! Open the door!"
+"Why is the door closed so tight in broad daylight! What tricks are you playing? I am Head Constable Li from the county *yamen*! Open the door!"
 
 Zhu An's men who closed the door dared not keep it shut, and the burly men holding sticks had to scatter to the sides.
 
@@ -62,13 +62,13 @@ Outdated. Although his eyes were sharp enough to chop Wen Tong into minced meat,
 
 "Master Zhou has good kung fu."
 
-"Call me 'Comrade'." Zhou Shizhai patted the dust off his hands.
+"Call me 'Comrade.'" Zhou Shizhai patted the dust off his hands.
 
 Zhu An and his gang left in embarrassment through the back door, and the magistrate's sedan chair arrived at the gate at this moment. Wen Tong straightened his clothes and went out respectfully to welcome him.
 
 Inviting the County Magistrate to make a procession to the Haiyi Guild, sit with Wen Tong for a cup of tea, and exchange a few polite words cost Chen Tianxiong five hundred taels. Besides that, it also included a promise to increase the "regular fees" paid to the magistrate from the sugar industry by fifty percent annually. The price was high, but it was worth it.
 
-The life of the Haiyi Guild ended on this day. The next day, the county yamen received two petitions: one was a joint application from the twenty member firms of the Haiyi Guild to dissolve the Haiyi Guild, and the other was naturally a joint application from South China Sugar and twenty industry peers to establish an Industry Guild. Under South China Sugar's active lobbying, this was already a matter of course. The county yamen quickly approved: "Granted as requested."
+The life of the Haiyi Guild ended on this day. The next day, the county *yamen* received two petitions: one was a joint application from the twenty member firms of the Haiyi Guild to dissolve the Haiyi Guild, and the other was naturally a joint application from South China Sugar and twenty industry peers to establish an Industry Guild. Under South China Sugar's active lobbying, this was already a matter of course. The county *yamen* quickly approved: "Granted as requested."
 
 The plaque of the Haiyi Guild was taken down and immediately replaced with the plaque of the Leizhou Sugar Industry Guild.
 
@@ -104,11 +104,11 @@ The money was paid by everyone, but they were actually Third Master Zhu's privat
 
 Chang Shide thought, *that's true*. But if this group remained on Hai'an Street, they would still be a force in Third Master Zhu's hands. Zhu An hadn't used them before, but now it couldn't be ruled out that he might jump over the wall in desperation and let them come out to cause trouble. It was still necessary to eliminate this possible hidden danger as much as possible.
 
-The rebuilding of Zou Monk's Temple was also announced by Chang Shide to everyone; the cost would be borne independently by South China Sugar. Peers originally thought they would be assessed another fee for this matter; seeing South China Sugar's stance, their goodwill increased a few points.
+The rebuilding of Monk Zou's Temple was also announced by Chang Shide to everyone; the cost would be borne independently by South China Sugar. Peers originally thought they would be assessed another fee for this matter; seeing South China Sugar's stance, their goodwill increased a few points.
 
-So soon a group of construction workers came from Lingao, set up reed mat walls around Zou Monk's Temple, and began major construction. It was said that because the project was huge and would take a long time, fearing the original temple sexton would lose his livelihood, the factory specially renovated another small temple in the county town for him to preside over. The sexton, his wife, and the fire-tender Taoist moved away happily.
+So soon a group of construction workers came from Lingao, set up reed mat walls around Monk Zou's Temple, and began major construction. It was said that because the project was huge and would take a long time, fearing the original temple sexton would lose his livelihood, the factory specially renovated another small temple in the county town for him to preside over. The sexton, his wife, and the fire-tender Taoist moved away happily.
 
-No one expected that the newly renovated Zou Monk's Temple would actually be the location of the future Xuwen Intelligence Station. The factory also acquired a lot of wasteland around the temple, hired people to clear it, reportedly preparing to build a charity school and a benevolent hall. This action further left South China Sugar a reputation for being public-spirited and righteous in Xuwen and Leizhou.
+No one expected that the newly renovated Monk Zou's Temple would actually be the location of the future Xuwen Intelligence Station. The factory also acquired a lot of wasteland around the temple, hired people to clear it, reportedly preparing to build a charity school and a benevolent hall. This action further left South China Sugar a reputation for being public-spirited and righteous in Xuwen and Leizhou.
 
 One morning, as Feng Guangfeng was walking to a teahouse he frequented, someone saw him talking to a person not far from the teahouse. Then Feng Guangfeng got into a two-person small sedan chair and headed north.
 
@@ -133,3 +133,5 @@ Hearing this, Wen Tong said seriously: "Richangji must continue. South China Sug
 Chang Shide also said: "Right, he contributed the most to this matter; he can't end up with nothing. Otherwise, how will others look at us in the future?"
 
 "I have three points," Chen Tianxiong said. "One, the Sugar Industry Guild will come forward to hold a grand public memorial service. Everyone in the guild will attend, giving him utmost posthumous glory; two, the silver for the seven thousand *shi* of sugar has been paid; the warehouse receipts must be handed to him as soon as possible to comfort his wife; three, select an honest and reliable clerk from his own firm to manage on his behalf. The Sugar Industry Guild will be responsible for supervising the operation."
+
+**(End of Chapter)**

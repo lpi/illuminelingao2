@@ -1,135 +1,137 @@
 # Chapter 300: Sweet Port Turbulence — Buying Off
 
-Seeing this ancient "worker leader" looking ashen-faced, Chen Tianxiong felt a surge of disdain in his heart. He originally thought this person could at least mobilize hundreds of workers and counted as somewhat of a figure, but he didn't expect him to be so unworthy. It seemed Xiao Zhanfeng's description of him as having a "hard mouth but soft bones" was not wrong at all.
+Seeing this ancient "worker leader" turn ashen-faced, Chen Tianxiong felt a surge of disdain. He had originally thought the man could at least mobilize a few hundred workers and counted for something, but he hadn't expected him to be so pathetic. It seemed Xiao Zhanfeng's description of him as "all bark and no backbone" was spot-on.
 
-"You, get up and speak," Chen Tianxiong was a bit disgusted. "South China also knows the suffering of you sugar shed workers. That's why my master appointed me to come and make friends with you, so we don't hurt the harmony between us."
+"Stand up and speak," Chen Tianxiong said with a hint of disgust. "South China Sugar knows the suffering of you sugar mill workers. That's why my boss sent me to make friends with you, so we don't damage our friendly relations."
 
-Hearing the meaning in the other party's words that they wouldn't take his life, Lin Zhuang finally came back to his senses. Carefully savoring Master Chen's words, it seemed this matter could still be discussed. He answered carefully, "Your honor sees clearly! We sugar shed workers originally lived from hand to mouth, a livelihood where water never covered our feet. Now that everyone's source of income is cut off, and many have families to support, livelihood is truly difficult. To make ends meet, we had no choice but to accept Master Zhu's silver. It's not that we have anything against South China..."
+Hearing the implication that they wouldn't take his life, Lin Zhuang finally came back to his senses. Carefully savoring Master Chen's words, it seemed the matter was still open for discussion. He answered carefully, "Your Honor sees clearly! We sugar mill workers have always lived hand to mouth, barely keeping our heads above water. Now that everyone's income is cut off, and many have families to support, life is truly difficult. To make ends meet, we had no choice but to accept Third Master Zhu's silver. It's not that we have anything against South China Sugar..."
 
-He was quite shrewd, not mentioning a word about South China squeezing the sugar sheds into closing and causing the workers' unemployment, to avoid angering the other party.
+He was shrewd enough not to mention a word about South China Sugar forcing the sugar mills to close and causing the workers' unemployment, lest he anger his counterpart.
 
 Chen Tianxiong remained silent, watching how he would continue.
 
-"As for the rumors outside that sugar shed workers are going to cause trouble at South China, that is absolutely non-existent. On this, I dare to pat my chest."
+"As for the rumors that sugar mill workers are going to cause trouble at South China Sugar—that is absolutely not true. I stake my reputation on it."
 
-"So, the widespread rumors outside that the sugar shed masters want to burn incense and swear an oath to attack South China are fake?"
+"So the widespread rumors that sugar mill masters want to burn incense and swear an oath to attack South China Sugar are false?"
 
-"Preparing to burn incense, this is true." Lin Zhuang knew this matter absolutely couldn't be denied, so he had to fudge the details at the critical point. "But it's not like the rumors! It's just to let everyone stick together to tide over the difficulties, not specifically to deal with South China."
+"There are plans to burn incense, yes." Lin Zhuang knew this couldn't be denied, so he had to hedge on the key point. "But it's not as the rumors say! It's just to let everyone stick together through the hard times, not specifically to target South China Sugar."
 
-These remarks could barely smooth things over, but Chen Tianxiong had no intention of debating right or wrong with him—originally, there was no right or wrong in this matter.
+These remarks could barely hold together, but Chen Tianxiong had no intention of debating right or wrong with him—there was no right or wrong in this matter anyway.
 
-"That the multitude of the sugar sheds have fallen to this state today, South China originally has a share of responsibility. My master often sighs about this, saying he let everyone down! To remedy this, my master is now willing to accept everyone into the factory to work. As long as they can work, regardless of gender, old or young, a wage will be dispensed. Since you are the leader, I will make the decision for him: after the matter is done, I will give you a separate gratuity. What do you think?"
+"That so many sugar mill workers have fallen to this state today—South China Sugar acknowledges a share of responsibility. My boss often sighs about this, saying he let everyone down! To remedy this, my boss is now willing to hire everyone into the factory. As long as they can work, regardless of sex, age, or infirmity, they'll receive wages. Since you're the leader, I'll make the decision for him: after the matter is done, I'll give you a separate bonus. What do you say?"
 
-These words were spoken very clearly. Although Lin Zhuang still felt a sense of abruptness, the meaning was clear. South China was willing to let all unemployed sugar boiling workers enter the factory. For everyone, this was of course a remarkably good thing; at least the livelihood of these several hundred people was guaranteed, and he could give an account to everyone.
+These words were spoken clearly. Although Lin Zhuang still felt a sense of suddenness, the meaning was plain. South China Sugar was willing to let all the unemployed sugar boilers enter the factory. For everyone, this was of course an enormous benefit—at least these several hundred people's livelihoods would be guaranteed, and he could justify himself to them.
 
-But this matter was a good thing for everyone, but not necessarily for him. Once everyone entered the factory, what use would there be for him, the leader? Naturally, the current various benefits would be gone. Besides, he had taken more than two hundred *liang* of silver from Master Zhu before and after. Now, without doing what he promised Master Zhu, and defecting to South China instead, wasn't he a standard "traitor"? South China was not to be trifled with, and Master Zhu was also not to be trifled with.
+But while this was good for everyone, it wasn't necessarily good for him. Once everyone entered the factory, what use would he, the leader, be? Naturally, all his current benefits would vanish. Besides, he had taken more than two hundred taels of silver from Third Master Zhu. Now, without doing what he'd promised Third Master Zhu and defecting to South China Sugar instead—wouldn't that make him a standard "turncoat"? South China Sugar was not to be trifled with, and neither was Third Master Zhu.
 
-At this, he couldn't help but feel greatly hesitant, delaying and not daring to agree.
+He couldn't help but hesitate, delaying and not daring to agree.
 
-"What, you have concerns?" Chen Tianxiong saw his expression changing and knew what he was thinking. He didn't point it out first, letting him state his plans himself.
+"What, you have concerns?" Chen Tianxiong saw his expression shifting and knew what he was thinking. He didn't point it out, letting him state his own plans.
 
-"Master Chen, your honor sees clearly! This is naturally a huge good thing for our sugar shed workers. But Master Zhu is warm-hearted and has been helping everyone for the past two months. I'm afraid if I go back and say this, everyone won't listen to me..."
+"Master Chen, Your Honor sees clearly! This is naturally a huge blessing for our sugar mill workers. But Third Master Zhu has been warm-hearted, helping everyone these past two months. I'm afraid if I go back and say this, not everyone will listen to me..."
 
-Chen Tianxiong laughed loudly. "Joke. Not eating South China's white rice, but insisting on eating Haiyi Hall's moldy stale rice? Is there such a person in the world who talks about loyalty like this?"
+Chen Tianxiong laughed loudly. "What a joke. Refusing South China Sugar's white rice to eat the Haiyi Guild's moldy leftovers? Is there really such a loyal person in the world?"
 
-Lin Zhuang had bitterness he couldn't express. The silver Master Zhu allocated to him might not be enough for everyone to eat white rice, but white rice porridge would have been possible. But since he embezzled more than half of it himself, he could only buy the cheapest moldy stale rice to make up the numbers. When workers had complaints, he pushed the blame saying Haiyi Hall gave little money, so they could only make do not to starve to death. So Master Zhu's status in the workers' hearts wasn't necessarily that high.
+Lin Zhuang had bitter words he couldn't speak. The silver Third Master Zhu allocated to him might have been enough for everyone to eat white rice, but since he had pocketed more than half himself, he could only buy the cheapest moldy stale rice to make up the numbers. When workers complained, he pushed the blame, saying the Haiyi Guild gave too little money, so they could only make do without starving. Thus, Third Master Zhu's standing among the workers wasn't necessarily that high.
 
-Now if he went back and told everyone, most workers would naturally be willing to go to South China. In this way, he couldn't explain it to Master Zhu no matter what. Even if he didn't make him suffer, asking him to spit out all the silver would force him to death.
+Now if he went back and told everyone, most workers would naturally be willing to go to South China Sugar. This way, there would be no explaining things to Third Master Zhu. Even if Third Master Zhu didn't make him suffer directly, demanding he spit out all the silver would force him to death.
 
-Lin Zhuang looked at Zhou Shizhai, then at Chen Tianxiong, rolling his eyes, surprisingly unable to answer.
+Lin Zhuang looked at Zhou Shizhai, then at Chen Tianxiong, rolling his eyes helplessly, unable to answer.
 
-Just as he was hesitating and silent, he suddenly felt his eyes light up—Chen Tianxiong put the small chest he brought with him today on the table and lifted the lid: inside were rows of neatly stacked foreign dollars, all exposed, brand new clusters, shining with silver light. In addition, there was a pile of broken silver and a few "medium ingots." Estimated to be around a hundred *liang*. Needless to say, this was prepared to be given to him.
+Just as he was hesitating in silence, his eyes suddenly lit up—Chen Tianxiong placed the small chest he had brought on the table and lifted the lid. Inside were rows of neatly stacked silver dollars, all exposed, brand new and clustered, shining with silver light. In addition, there was a pile of broken silver and a few "medium ingots"—estimated to be around a hundred taels. Needless to say, this was prepared for him.
 
-"This is five hundred 'Double Pillars' silver dollars," Chen Tianxiong said. "Converted to silver, it's nearly four hundred *liang*. It counts as the settling-in allowance from South China to the unemployed workers. It will be distributed once the recruitment is successful. In addition, another one hundred *liang* is a personal gift to you."
+"This is five hundred 'Double Pillar' silver dollars," Chen Tianxiong said. "Converted to silver, it's nearly four hundred taels. Consider it a settling-in allowance from South China Sugar for the unemployed workers. It will be distributed once the recruitment succeeds. In addition, another one hundred taels is a personal gift to you."
 
-Speaking a number was one thing; having this solid silver placed in front of eyes was another matter. Chen Tianxiong knew that nothing could move people's hearts more than real gold and white silver delivered before their eyes. These hundreds of foreign dollars were specially prepared for this use. He was very patient, letting Lin Zhuang think all he wanted.
+Speaking a number was one thing; having solid silver placed before one's eyes was another matter entirely. Chen Tianxiong knew that nothing moved hearts like real gold and gleaming silver delivered in person. These hundreds of silver dollars were specially prepared for this purpose. He was very patient, letting Lin Zhuang think all he wanted.
 
-"Everything need not be forced." Chen Tianxiong spoke. "If you have difficulties, you might as well speak straightforwardly."
+"There's no need to force anything," Chen Tianxiong said. "If you have difficulties, speak frankly."
 
-"Oh... Yes, yes..." Lin Zhuang woke up from a dream.
+"Oh... yes, yes..." Lin Zhuang snapped out of his reverie.
 
-He had mixed in the *Jianghu* after all. In a flash of thought, he came up with another set of rhetoric.
+He had spent time in the underworld, after all. In a flash of thought, he came up with another approach.
 
-"Master Chen!" He put on an extremely sincere expression. "Please understand! Since I was entrusted by the workers of the sugar shed, I must find a proper way out for them. Now South China is willing to accept them to work. Endless gratitude; I thank the noble proprietor on behalf of the workers first!" Saying this, he bowed to the ground, then changed the subject. "It's just that I, the person in the middle, have many difficulties. Honest people don't speak false words in front of each other. There must also be a certain explanation for Master Zhu's side; otherwise, if I damage his face, I, a small fire-burning worker, cannot bear the responsibility!"
+"Master Chen!" He put on an extremely sincere expression. "Please understand! Since I was entrusted by the sugar mill workers, I must find a proper way out for them. Now that South China Sugar is willing to employ them—endless gratitude! I thank the honorable boss on behalf of the workers first!" Saying this, he bowed deeply, then changed the subject. "It's just that I, the middleman, have many difficulties. To speak honestly before honest people—there must also be a certain explanation for Third Master Zhu's side. Otherwise, if I damage his face, I, a lowly fire-stoking worker, cannot bear the responsibility!"
 
-"What difficulties do you have? Just speak!" Chen Tianxiong expected he was probably trying to fight for some more personal benefits.
+"What difficulties do you have? Just say it!" Chen Tianxiong figured he was probably angling for more personal benefits.
 
-"Yes, I only beg the noble boss to understand," he said. "Please allow the burning incense and swearing oath at Zou Monk Temple tomorrow to continue as scheduled..."
+"Yes, I only beg the honorable boss to understand," he said. "Please allow the burning of incense and swearing of oaths at Monk Zou's Temple tomorrow to continue as scheduled..."
 
-"Oh, and then?" Chen Tianxiong remained noncommittal.
+"Oh? And then?" Chen Tianxiong remained noncommittal.
 
-"Burning incense is just going through the motions to fob off Master Zhu's side, to avoid his nagging. It counts as a delaying tactic. I, the lowly one, will go again to talk it over with the workers. When the time is ripe, I will naturally send someone to give news. At that time, the noble boss just needs to dispatch one or two capable people to come and recruit directly. It's just—" he whispered, "I, the lowly one, won't be able to mix in Xuwen in the future. I have to ask the noble boss to bestow some travel expenses..."
+"Burning incense is just going through the motions to stall Third Master Zhu's side and avoid his badgering. It's a delaying tactic. I will then go and talk it over with the workers. When the time is ripe, I will naturally send someone with news. At that time, the honorable boss just needs to dispatch one or two capable people to come and recruit directly. It's just—" he whispered, "I won't be able to stay in Xuwen in the future. I have to ask the honorable boss for some travel expenses..."
 
-This set of words from Lin Zhuang sounded comprehensive and reasonable basically. In reality, it was still a delaying tactic of straddling two boats. His calculation was: use burning incense and swearing oaths to fob off Haiyi Hall. Here, take South China's money first and make an empty promise to South China. Then leak a little wind to Master Zhu: saying South China attempted to "amnesty" the unemployed workers through recruitment. Master Zhu would naturally have to spend money to let him hold the fort. Although the truth would be exposed sooner or later this way, he could muddle through for a while. If it really didn't work, he would just roll up his bundle and leave.
+This speech from Lin Zhuang sounded comprehensive and reasonable. In reality, it was still a delaying tactic of playing both sides. His calculation was: use the incense-burning and oath-swearing to stall the Haiyi Guild; here, take South China Sugar's money first and make an empty promise. Then leak a little rumor to Third Master Zhu—saying South China Sugar was attempting to "co-opt" the unemployed workers through recruitment. Third Master Zhu would naturally have to spend money to let him keep things under control. Although the truth would be exposed sooner or later, he could muddle through for a while. If it really didn't work, he would just pack his bags and leave.
 
 This little scheme naturally couldn't deceive Chen Tianxiong.
 
-"Burning incense and swearing oaths is absolutely not allowed." Chen Tianxiong vetoed it immediately. Although burning incense and swearing oaths was a ceremony, it was a clear declaration by the sugar shed workers to be enemies with South China. After this, if South China used hard tactics, it would be bullying; if soft tactics, it would be losing dignity, extremely passive.
+"Burning incense and swearing oaths is absolutely not allowed." Chen Tianxiong vetoed it immediately. Although burning incense and swearing oaths was just a ceremony, it was a clear declaration by the sugar mill workers of hostility toward South China Sugar. After that, if South China Sugar used force, it would look like bullying; if they used soft tactics, it would look undignified—extremely passive either way.
 
-"If it is not allowed, I really can't explain it to Master Zhu. I still ask the noble boss to understand and grant me a way to live!"
+"If it's not allowed, I really can't explain it to Third Master Zhu. I beg the honorable boss to understand and grant me a way to live!"
 
-Chen Tianxiong gave a "humph". "Master Lin! I advise you to think clearly. Don't think about the trick of straddling two boats." He sneered. "My master sees the unemployed sugar shed workers are pitiful and wants to give them a way to live. Since you are unwilling. If you want to take people to burn incense and swear oaths, just go. South China won't stop you either."
+Chen Tianxiong gave a "humph." "Master Lin! I advise you to think clearly. Don't think you can play both sides." He sneered. "My boss sees the unemployed sugar mill workers are pitiful and wants to give them a way to live. Since you're unwilling... if you want to take people to burn incense and swear oaths, go ahead. South China Sugar won't stop you."
 
-Lin Zhuang was greatly anxious. If Chen Tianxiong really flicked his sleeves and left, the matter would be irretrievable. Once the fighting started, he would become a pawn for Haiyi Hall to cross the river. Whether he could get Master Zhu's care in the end, regardless of who won or lost, would depend on his conscience.
+Lin Zhuang grew greatly anxious. If Chen Tianxiong really stormed off, the matter would be irretrievable. Once fighting started, he would become a sacrificial pawn for the Haiyi Guild. Whether he could get Third Master Zhu's protection in the end—regardless of who won or lost—would depend entirely on Third Master Zhu's conscience.
 
-"This, let's discuss again! Discuss again!"
+"Wait, let's discuss this! Let's discuss!"
 
-"It doesn't matter whether we discuss it or not." Chen Tianxiong laughed suddenly, saying as he closed the silver chest. "I also know you, old brother, run around outside, so I'll speak to you briskly." Chen Tianxiong said, "I just want one sentence from you. Yes, or no?"
+"It doesn't matter whether we discuss it or not." Chen Tianxiong suddenly laughed, closing the silver chest as he spoke. "I know you're a man of the world, so I'll speak to you plainly." He continued, "I just want one word from you. Yes, or no?"
 
-The gleaming white foreign dollars were tantamount to being put away. It seemed that with just one sentence from him, the matter would be dropped. Giving up such a situation easily felt "unbearable" in his heart, so he answered indiscriminately, "I will think of a way. I will definitely get this matter done."
+The gleaming white silver dollars were as good as put away. It seemed that with just one word from him, the matter would be dropped. Giving up such an opportunity felt unbearable, so he answered hastily, "I'll think of a way. I'll definitely get this done."
 
-"Good, straightforward!" Chen Tianxiong knew he had entered the trap. "My master said: since we are recruiting, there must be a roster. There will be a settling-in allowance upon entering the factory. The settling-in allowance will naturally be distributed by you, old brother; we won't question it. Just don't know if you, old brother, can give a list?"
+"Good, that's straightforward!" Chen Tianxiong knew he had taken the bait. "My boss said: since we're recruiting, there must be a roster. There will be a settling-in allowance upon entering the factory. The settling-in allowance will naturally be distributed by you; we won't question it. I just wonder if you can provide a list?"
 
-A roster, he naturally had. This was Lin Zhuang's capital for eating. Master Zhu also looked at the roster at the beginning and knew he had hundreds of people to use before he was willing to give him silver. This Master Chen nominally wanted to calculate the settling-in fees, but in reality, mostly wanted to see how much strength he had. This had to be shown off well. In addition, whenever there was money like pay or settling-in fees, usually there was a twenty percent secret kickback for the handler. Lin Zhuang naturally knew this. Therefore, he was greatly excited and busy said:
+A roster—he naturally had one. This was Lin Zhuang's meal ticket. Third Master Zhu had also looked at the roster at the beginning and, knowing he had hundreds of people to use, had been willing to give him silver. This Master Chen ostensibly wanted to calculate settling-in fees, but in reality probably wanted to see how much strength he had. This was worth showing off. Besides, whenever there were payments like wages or settling-in fees, customarily there was a twenty-percent kickback for the handler. Lin Zhuang naturally knew this. He grew excited and quickly said:
 
-"I have it, I have it, but there is only one original book of the roster. I have to find someone to copy it..."
+"I have it, I have it, but there's only one original copy of the roster. I'll have to find someone to copy it..."
 
-"No problem," Chen Tianxiong answered very crisply. "I have a correspondence secretary here."
+"No problem," Chen Tianxiong answered crisply. "I have a clerk here."
 
-"That's good," saying this, Lin Zhuang took out a rough blue cloth bundle from his bosom, opened it carefully, inside was a tattered document holder, clamping a book-like thing made of rough bamboo paper, with "United in Heart and Virtue" written on it.
+"Good." With that, Lin Zhuang took a rough blue cloth bundle from his shirt, opened it carefully. Inside was a worn document folder, holding a booklet made of coarse bamboo paper with "United in Heart and Mind" written on it.
 
-"This is the roster. It was originally made when going to the county *yamen* to sue," Lin Zhuang said. "The names were written by a hired scribe, but everyone pressed a thumbprint behind each one."
+"This is the roster. It was originally made when we went to the county *yamen* to file a lawsuit," Lin Zhuang said. "The names were written by a hired scrivener, but everyone pressed a thumbprint behind their own."
 
-Looking at the booklet, it was greasy and filthy. Opening it to look, sure enough: names were listed row by row. Behind each name, red thumbprints were densely pressed, and the *Du*, *Tu*, and Village of the individual's household registration were written. Some names also had notes of job types like "Sugar Boiling," "Fire Burning." It should be the real roster without a doubt.
+Looking at the booklet, it was greasy and filthy. Opening it revealed names listed row by row, each followed by dense red thumbprints, along with the *Du*, *Tu*, and village of the individual's household registration. Some names also had notes of job types like "Sugar Boiling" or "Fire Stoking." It was undoubtedly the genuine roster.
 
-"A total of one hundred and seventy-four people. There are also twenty-some apprentices with nowhere to go who aren't on the booklet."
+"One hundred seventy-four people in total. There are also about twenty apprentices with nowhere to go who aren't in the booklet."
 
-"Wait a moment, I'll order someone to copy it down." Saying this, he handed the original booklet to Xiao Zhanfeng next door, letting him copy it down immediately.
+"Wait a moment; I'll have someone copy it." He handed the original booklet to Xiao Zhanfeng next door, instructing him to copy it immediately.
 
-Xiao Zhanfeng carried an ink box with him and immediately started copying. To avoid sitting in boredom, Chen Tianxiong simply had someone bring a few pots of wine and seven or eight side dishes, pulling Lin Zhuang to drink. He tried hard to appease him and even found out a lot about Master Zhu and Haiyi Hall from his mouth.
+Xiao Zhanfeng carried an ink box with him and began copying at once. To avoid sitting in boredom, Chen Tianxiong simply had someone bring several pots of wine and seven or eight side dishes, pulling Lin Zhuang to drink. He worked hard to appease him and even learned quite a bit about Third Master Zhu and the Haiyi Guild from his mouth.
 
-When the wine was finished, the roster was also copied. Chen Tianxiong returned the original booklet as it was. Said:
+When the wine was finished, the roster was also copied. Chen Tianxiong returned the original booklet intact and said:
 
-"You go back and think about it properly. Early morning the day after tomorrow, I will listen for your news!" Saying this, he pushed a fifty-*liang* ingot in front of him. "Take this fifty *liang* first."
+"Go back and think about it carefully. The morning after next, I'll wait for your news!" Saying this, he pushed a fifty-tael ingot in front of him. "Take these fifty taels first."
 
-Lin Zhuang was instantly overjoyed, but still had to be polite verbally. "There is no such rule!"
+Lin Zhuang was instantly overjoyed but still had to be polite. "There's no such rule!"
 
-"Rules are made by people. My rule has always been like this. You take these fifty *liang* of silver first, so you will have energy when doing things for me."
+"Rules are made by people. My rule has always been this: take these fifty taels of silver first, so you'll have energy when doing things for me."
 
-"Easy to say, easy to say," Lin Zhuang was already speaking indiscriminately.
+"Certainly, certainly," Lin Zhuang was already speaking without restraint.
 
-The matter was done, no need to stay here. The three left Aunt Ai's house and went back to Dachang Rice Shop. Xiao Zhanfeng asked, "Is what Lin Zhuang said reliable?"
+The matter was done, so there was no need to stay. The three left Sister Ai's house and returned to the Dachang Grain Firm. Xiao Zhanfeng asked, "Is what Lin Zhuang said reliable?"
 
-"Naturally unreliable." Chen Tianxiong said, "But I still have an ambush waiting for him. He will see color as soon as he returns to Zou Monk Temple."
+"Naturally not." Chen Tianxiong said, "But I still have an ambush waiting for him. He'll get a nasty shock as soon as he returns to Monk Zou's Temple."
 
-"What if he doesn't go back? You gave him fifty *liang* of silver; maybe he will spend it recklessly here again."
+"What if he doesn't go back? You gave him fifty taels of silver; maybe he'll spend it recklessly here again."
 
-"Now is his life-or-death moment; wouldn't he have to go back and think about it properly?" Chen Tianxiong was very confident. "I'm afraid he has lost interest in gambling and whoring."
+"This is his critical juncture—wouldn't he have to go back and think things over?" Chen Tianxiong was very confident. "I'd wager he's lost all interest in gambling and whoring."
 
-He stopped and said, "Zhanfeng, I think you don't need to go home either. Move to South China. We just happen to lack a clerk to handle paperwork. We'll dispense a few *liang* of silver to you every month, and you will have a place to settle."
+He stopped and said, "Zhanfeng, I think you don't need to go home either. Move to South China Sugar. We happen to need a clerk to handle paperwork. We'll pay you a few taels of silver each month, and you'll have a place to settle."
 
-"Many thanks for the trouble." Xiao Zhanfeng politely declined. "However, it is better for me to maintain a free body now. Whatever I say or do will be more convenient."
+"Many thanks for the trouble." Xiao Zhanfeng politely declined. "However, it's better for me to maintain a free agent status for now. Whatever I say or do will be more convenient."
 
-Chen Tianxiong thought it was correct; he was thoughtful.
+Chen Tianxiong thought it over and agreed—the man was thoughtful.
 
-"Take this silver and use it first." Seeing he was really destitute, although rejected once yesterday, Chen Tianxiong still took out some broken silver. "Count it as me lending it to you!"
+"Take this silver and use it first." Seeing he was really destitute, although rejected once the previous day, Chen Tianxiong still took out some broken silver. "Consider it a loan from me!"
 
-"No, no." Xiao Zhanfeng still shook his head. "It's not that I am being pretentious! Now is not the time to take your silver! When the time comes for me to come out and speak, if people say I took your silver, not only will my words not ring true, but even what I said before will be regarded as farting by others!"
+"No, no." Xiao Zhanfeng still shook his head. "It's not that I'm being pretentious! Now is not the time to take your silver! When the time comes for me to speak out, if people say I took your silver, not only will my words carry no weight, but everything I said before will be dismissed as hot air!"
 
-"No one knows about this matter." Chen Tianxiong disapproved.
+"No one knows about this," Chen Tianxiong dismissed the concern.
 
-"Heaven knows, Earth knows, you know, I know; how can you say no one knows!" Xiao Zhanfeng said impassionedly. "A heavy man stands straight and walks upright in the world. If there is, there is; if there isn't, there isn't."
+"Heaven knows, Earth knows, you know, I know—how can you say no one knows!" Xiao Zhanfeng said with conviction. "A true gentleman stands straight and walks upright in the world. If something is true, it's true; if not, it's not."
 
-"Good, then I won't force it." Chen Tianxiong couldn't help but feel heartfelt admiration for this old intellectual.
+"Very well, then I won't press you." Chen Tianxiong couldn't help but feel genuine admiration for this old intellectual.
 
-"But in your current situation, food and clothing are worrying. You can't disturb Aunt Liu every day."
+"But in your current situation, food and clothing are worrying. You can't keep troubling Auntie Liu every day."
+
+**(End of Chapter)**

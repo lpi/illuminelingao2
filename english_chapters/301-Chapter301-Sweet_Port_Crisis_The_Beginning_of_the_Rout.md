@@ -1,32 +1,32 @@
-# Chapter 301 - Sweet Port Crisis: The Beginning of the Rout
+# Chapter 301: Sweet Port Turbulence — The Rout Begins
 
-"It's fine. I make a few coins every day writing letters for people in front of the county yamen. If things get really desperate, I still have my cousin..." At this, his cheeks flushed slightly. "...we're engaged. My uncle and aunt aren't mercenary people. They could always spare a few meals."
+"It's fine. I make a few coins every day writing letters for people in front of the county *yamen*. If things get really desperate, I still have my cousin..." At this, his cheeks flushed slightly. "...we're engaged. My uncle and aunt aren't snobbish people. They can always spare me a few meals."
 
-Chen Tianxiong smiled faintly, thinking he should give the young man a small mirror as a token of gratitude later.
+Chen Tianxiong smiled faintly, making a mental note to give the young man a small mirror as a token of gratitude later.
 
-Returning to the South China Sugar Company, Chen Tianxiong made further arrangements, specifically sending someone into the city to keep an eye on Lin Zhuang to see if he was reckless enough to completely abandon all restraint. If Lin Zhuang simply took the silver and continued to drink himself into a stupor at a brothel, the plan would need adjustment. Word came back quickly: Lin Zhuang had left the county seat and returned to Monk Zou's Temple.
+Returning to South China Sugar, Chen Tianxiong made further arrangements, specifically sending someone into the city to keep an eye on Lin Zhuang—to see if he was reckless enough to abandon all restraint. If Lin Zhuang simply took the silver and went back to drinking himself into a stupor at a brothel, the plan would need adjusting. Word came back quickly: Lin Zhuang had left the county seat and returned to Monk Zou's Temple.
 
 "Old Chen, why do you insist on winning over Lin Zhuang?" Wen Tong asked.
 
-"He's the head of the sugar refinery workers. He has at least some influence," Chen Tianxiong replied. "If only our people go to persuade them, it might have some effect, but his word carries more weight."
+"He's the head of the sugar mill workers. He has at least some influence," Chen Tianxiong replied. "If only our people go to persuade them, it might have some effect, but his word carries more weight."
 
 "And if he keeps stalling? Refuses to help?"
 
-"Then he leaves us no choice." Chen Tianxiong was prepared for this. "He handed over his ledger for us to copy—that's tantamount to handing us his own queue to pull. With this," he waved the copy of the list, "he couldn't deny it even if he wanted to."
+"Then he leaves us no choice." Chen Tianxiong was prepared for this. "He handed over his roster for us to copy—that's tantamount to handing us his own pigtail to pull. With this," he waved the copy of the list, "he couldn't deny it even if he wanted to."
 
 "Clever," Wen Tong said with genuine admiration. "How did you get him to take the bait?"
 
-"It's all thanks to the twenty percent kickback on the settlement feels. Money blinds the best of us," Chen Tianxiong said. "The moment I dangled the settlement allowance in front of him, he couldn't control himself."
+"It's all thanks to the twenty-percent kickback on settling-in fees. Money blinds the best of us," Chen Tianxiong said. "The moment I dangled the settling-in allowance in front of him, he lost all self-control."
 
-"Even settlement money has a kickback? This world is dark as hell," Wen Tong sighed. "By the way, Chang Shide is back."
+"Even the settling-in money has a kickback? This world is really damn dark," Wen Tong sighed. "By the way, Chang Shide is back."
 
 "Why didn't I see him?"
 
-"He's in Lingao, preparing to execute the mission." Wen Tong explained the specific plan the Executive Committee and South China Sugar factory had developed to deal with the pirates. "The Navy wants us to gather more intelligence on these pirates—root them out entirely to avoid future troubles."
+"He's in Lingao, preparing to execute the mission." Wen Tong explained the specific plan the Executive Committee and South China Sugar had developed to deal with the pirates. "The Navy wants us to gather more intelligence on these pirates—root them out entirely to avoid future troubles."
 
 "I understand." In truth, Chen Tianxiong had no leads on this matter, but where there was a will, there was a way. Intelligence work depended on legwork. "But right now we need to focus on the 'pacification' effort. What did Wu De say about our request?"
 
-Such large-scale matters involving the absorption of local natives were now under the jurisdiction of the Civil Affairs Committee—essentially, Wu De's domain.
+Such matters involving large-scale absorption of local natives were now under the jurisdiction of the Civil Affairs Committee—essentially, Wu De's domain.
 
 "Wu De approved it, but he wants us to submit a report on how to arrange this labor force," Wen Tong said. "Should they be settled locally, or transferred to Lingao?"
 
@@ -40,19 +40,19 @@ Such large-scale matters involving the absorption of local natives were now unde
 
 "The factory can't accommodate everyone immediately, but their wages should be enough to support their dependents," Wen Tong said. "I plan to pay half in coin and half in rice—rice prices are high here, so using the Vietnamese rice that Chang Shide ships in is more economical. Once the enterprise expands, we can gradually employ family members as well."
 
-This was indeed a good approach. After Chang Shide established the maritime rice-sugar trade route between Xuwen and Vietnam, the South China factory effectively had access to a vast granary.
+This was indeed a good approach. After Chang Shide established the maritime rice-sugar trade route between Xuwen and Vietnam, South China Sugar effectively had access to a vast granary.
 
-Even so, once the "pacification" was complete, feeding nearly a thousand people would become the factory's responsibility. Before, no one had cared for them, but once they had a master, any mishap could spark unrest.
+Even so, once the "pacification" was complete, feeding nearly a thousand people would become the factory's responsibility. Before, no one had cared for them—but once they had a master, any mishap could spark unrest.
 
-"Food is easy to solve—Chang Shide has brought rice; there's enough for any amount," Chen Tianxiong said. "If there's a delay, we can have Dachang Rice Shop advance some."
+"Food is easy to solve—Chang Shide has brought rice; there's enough for any amount," Chen Tianxiong said. "If there's a delay, we can have the Dachang Grain Firm advance some."
 
-"They'll need settlement fees too," Wen Tong said. "One silver dollar per worker at minimum."
+"They'll need settling-in fees too," Wen Tong said. "At least one silver dollar per worker."
 
 "Naturally. It's a show of our sincerity."
 
-"But we can't let Lin Zhuang distribute the money. He's too greedy—he'd pocket at least half. We can't be played for fools."
+"But we can't let Lin Zhuang distribute the money. He's too greedy—he'd pocket at least half. We can't be taken for fools."
 
-"Of course. Winning hearts is our prerogative." Chen Tianxiong smiled coldly. "I'm more afraid he'll cut and run with the whole lot."
+"Of course. Winning hearts is our prerogative." Chen Tianxiong smiled coldly. "I'm more worried he'll cut and run with the whole lot."
 
 They calculated the approximate amounts of silver and grain needed, how to arrange the workers, and documented every detail.
 
@@ -62,21 +62,21 @@ They calculated the approximate amounts of silver and grain needed, how to arran
 
 ***
 
-After Chen Tianxiong left, Lin Zhuang found his courage bolstered by the silver in his pocket. He had originally planned to linger another day at Madam Ai's establishment, but thinking of the complex situation—both South China and the Haiyi Guild were watching him—his value had indeed increased, with the advantage of playing both sides. But how could he maintain this "one foot in each boat" arrangement? That would require considerable scheming. Though reluctant, he hurried away from Madam Ai's and headed back.
+After Chen Tianxiong left, Lin Zhuang's courage was bolstered by the silver in his pocket. He had originally planned to linger another day at Sister Ai's establishment, but thinking of the complex situation—both South China Sugar and the Haiyi Guild were watching him—his value had indeed increased, with the advantage of playing both sides. But how could he maintain this "straddling two boats" arrangement? That would require considerable scheming. Staying at the brothel any longer meant losing control of the situation. Though reluctant, he hurried away from Sister Ai's and headed back.
 
-On the way, he first stopped at the rice shop and used the few taels of loose silver to buy old rice, instructing them to deliver it to Monk Zou's Temple. He was a regular customer here, so the shop naturally complied.
+On the way, he first stopped at a rice shop and used the few taels of loose silver to buy old rice, instructing them to deliver it to Monk Zou's Temple. He was a regular customer here, so the shop naturally complied.
 
-Then he visited a money shop and deposited the intact silver ingots that Chen Tianxiong had given him. He hurried back to Monk Zou's Temple. He had a room there—arranged by Master Zhu at the temple's expense. A bachelor and a down-on-his-luck drifter, money slipped through his fingers the moment he touched it. Usually, he hung around the sugar refineries; he had no proper furnishings, just a bamboo bed and a few ragged clothes—nothing worth stealing. Returning to the temple, he ignored everyone, went straight to his room, closed the door, lay on his bed, and began to deliberate.
+Then he visited a money exchanger and deposited the intact silver ingots that Chen Tianxiong had given him. He hurried back to Monk Zou's Temple. He had a room there—arranged by Third Master Zhu at the temple's expense. A bachelor and a down-on-his-luck drifter, money slipped through his fingers the moment he touched it. Usually, he hung around the sugar mills; he had no proper furnishings, just a bamboo bed and a few ragged clothes—nothing worth stealing. Returning to the temple, he ignored everyone, went straight to his room, closed the door, lay on his bed, and began to deliberate.
 
-Straddling two boats and playing both sides was well and good, but it couldn't last forever. Sooner or later, he would have to choose: the Haiyi Guild or South China Sugar.
+Straddling two boats and playing both sides was all well and good, but it couldn't last forever. Sooner or later, he would have to choose: the Haiyi Guild or South China Sugar.
 
 On this point, Lin Zhuang felt no inner conflict. In his view, the South China people were ultimately outsiders. No matter how capable they were, they couldn't defeat the deeply entrenched Haiyi Guild—at best, the two sides would eventually negotiate a truce. Siding with the Haiyi Guild was the safe bet.
 
-But the South China people were much more generous than Master Zhu. That Manager Chen he had met today—fifty taels on the spot! Master Zhu had never shown such munificence. Lin Zhuang couldn't help but sigh. If only their positions could be swapped, he would devote himself heart and soul to Manager Chen.
+But the South China people were far more generous than Third Master Zhu. That Manager Chen he had met today—fifty taels on the spot! Third Master Zhu had never shown such munificence. Lin Zhuang couldn't help but sigh. If only their positions could be swapped, he would devote himself heart and soul to Manager Chen.
 
-What made his mouth water most was the five hundred "Double Column" silver dollars. Such a large sum—Lin Zhuang had never seen anything like it. He schemed about how to get his hands on that money—or at least a portion.
+What made his mouth water most was the five hundred "Double Pillar" silver dollars. Such a large sum—Lin Zhuang had never seen anything like it. He schemed about how to get his hands on that money—or at least a portion.
 
-The incense-burning oath couldn't be delayed any further. He had already decided on this. Any more delay would leave him with nothing to tell Master Zhu. Master Zhu expected him to use the ceremony to incite unrest; failing to incite unrest was already a concession, but if he couldn't even go through the motions, he would have no future prospects.
+The incense-burning oath couldn't be delayed any further. He had already decided on this. Any more delay would leave him with nothing to tell Third Master Zhu. Third Master Zhu expected him to use the ceremony to incite unrest; failing to incite unrest was already a concession, but if he couldn't even go through the motions, he would have no future prospects.
 
 The problem was that once he took the oath, he would be violating his promise to Manager Chen. If they flew into a rage, crushing him would be effortless. He couldn't afford not to guard against this.
 
@@ -88,27 +88,27 @@ He quickly rose and opened the door, inviting Ma Sanqiang inside.
 
 "Brother Lin!" Ma Sanqiang came straight to the point. "Someone just delivered rice, but it's stale rice again. How are we supposed to eat this?"
 
-"Since when can't you eat stale rice?" Lin Zhuang knew he was here to complain about this again and was greatly displeased—one of his main reasons for staying at the brothel was to avoid these people. Even destitute enough to sleep in a temple, they still picked at everything.
+"Since when can't you eat stale rice?" Lin Zhuang knew he was here to complain about this again and was greatly displeased—one of his main reasons for staying at the brothel was to avoid these people. Even destitute enough to sleep in a temple, they still had to nitpick everything.
 
 Seeing his indifferent attitude, Ma Sanqiang trembled with anger. "Can we eat it? You try eating it!" He opened a cloth bundle, revealing rice that was broken beyond recognition, much of it discolored, blackened, and yellowed, full of chaff and sand. It hardly qualified as rice—more like sweepings from the warehouse floor.
 
-Lin Zhuang felt a twinge of guilt. The silver he had spent on rice was only a little over three taels, and he had told the shop to "buy as much as possible, the more the better"—naturally, they had sold him the cheapest rice available. The final price was three *qian* per *shi*, but he hadn't expected the quality to be this abysmal! This was barely fit for pigs.
+Lin Zhuang felt a twinge of guilt. The silver he had spent on rice was only a little over three taels, and he had told the shop to "buy as much as possible, the more the better"—naturally, they had sold him the cheapest rice available. The final price was three *qian* per *shi*, but he hadn't expected the quality to be this abysmal! This stuff was barely fit for pigs.
 
 "It's still rice," he said stubbornly. "It fills the stomach. We can't be picky now."
 
-"This isn't about being picky! This stuff is worse than eating chaff." Ma Sanqiang had noticed that Lin Zhuang never ate at the temple, and though he dressed in rags, he hadn't lost weight—in fact, he had gained some. This had long irked him.
+"This isn't about being picky! This stuff is worse than chaff." Ma Sanqiang had noticed that Lin Zhuang never ate at the temple, and though he dressed in rags, he hadn't lost weight—in fact, he had gained some. This had long irked him.
 
-Lin Zhuang instead steadied himself, spreading his hands: "What can I do? Master Zhu only gives this much money. I'm no rich man—I can't conjure silver from thin air. Fine rice is two taels per *shi*. How can we feed this many people?"
+Lin Zhuang steadied himself, spreading his hands: "What can I do? Third Master Zhu only gives this much money. I'm no rich man—I can't conjure silver from thin air. Fine rice is two taels a *shi*. How can we feed this many people?"
 
 This argument was hard to refute. Although Ma Sanqiang strongly suspected Lin Zhuang was skimming for himself, he had no proof and couldn't speak too forcefully.
 
-"I don't believe Master Zhu would only give this little? Is this how you do a good deed?"
+"I don't believe Third Master Zhu would only give this little. Is this how you do a good deed?"
 
-"Master Zhu was never doing this to be charitable—" Lin Zhuang started to say, then realized how bad this would sound if it reached Master Zhu's ears. He quickly amended: "What I mean is, Master Zhu's aid to everyone is already a great kindness. There should be some repayment! When I asked you all to strike at the South China factory, everyone hemmed and hawed—" Feeling his argument was now justified, his voice rose three notches. "How am I supposed to explain myself to Master Zhu?!"
+"Third Master Zhu was never doing this to be charitable—" Lin Zhuang started to say, then realized how bad this would sound if it reached Third Master Zhu's ears. He quickly amended: "What I mean is, Third Master Zhu's aid to everyone is already a great kindness. There should be some repayment! When I asked you all to strike at the South China Sugar factory, everyone hemmed and hawed—" Feeling his argument was now justified, his voice rose three notches. "How am I supposed to explain myself to Third Master Zhu?!"
 
-"I won't do anything illegal," Ma Sanqiang's stance hardened as well. "Let me tell you straight—someone's already offered me work at the South China factory. I remembered that we all banded together to file our petition, so I didn't want to undermine the group for the sake of a full belly, and I refused. Now I see it was pointless." He cupped his fists in salute. "Brother Lin, take care of yourself!" With that, he strode out.
+"I won't do anything illegal," Ma Sanqiang said, his stance hardening. "Let me tell you straight—someone's already offered me work at South China Sugar. I remembered that we all banded together to file our petition, so I didn't want to undermine the group for a full belly, and I refused. Now I see it was pointless." He cupped his fists in salute. "Brother Lin, take care of yourself!" With that, he strode out.
 
-Lin Zhuang was thunderstruck. "Someone offered him work at the South China factory"—the words echoed in his mind. Manager Chen had clearly said he wanted Lin Zhuang's help with the "pacification"—so why had they already extended their reach here? He rushed out after him. In the courtyard, Ma Sanqiang and the group of fellow villagers who usually gathered around him were all packing their belongings.
+Lin Zhuang was thunderstruck. "Someone offered him work at South China Sugar"—the words echoed in his mind. Manager Chen had clearly said he wanted Lin Zhuang's help with the "pacification"—so why had they already extended their reach here? He rushed out after him. In the courtyard, Ma Sanqiang and the group of fellow villagers who usually gathered around him were all packing their belongings.
 
 "Sanqiang, let's talk this over!" He grabbed Ma Sanqiang's hand. "Come back, let's discuss this. Don't undermine everyone!" He lowered his voice. "Help me keep things together, and I'll make it worth your while!"
 
@@ -116,16 +116,18 @@ A look of disgust crossed Ma Sanqiang's face. He said loudly: "I don't want it. 
 
 More than a dozen Qinzhou workers followed him out. Lin Zhuang stamped his feet in frustration, but he knew there was no stopping them. Seeing the other workers and their families whispering among themselves, their spirits unsettled, Lin Zhuang cursed silently—Manager Chen, you're too ruthless! You must have had people working among the laborers all along!
 
-"Master Lin," a sugar-boiling craftsman sidled up to him quietly, "lately some people who used to work at the refineries have been coming around, probably the South China people…"
+"Master Lin," a master sugar-boiler sidled up to him quietly, "lately some people who used to work at the sugar mills have been coming around, probably South China people..."
 
 "Why didn't you tell me sooner?"
 
-"You're never around. Where was I supposed to find you?" The man was displeased, complaining. "You don't care about what happens here at all!"
+"You're never around. Where was I supposed to find you?" The man was displeased, complaining. "You don't seem to care about what happens here at all!"
 
 Lin Zhuang had no response. He realized Chen Tianxiong had checkmated him; if he cooperated with the "pacification," fine—but if he tried any tricks, Chen had already prepared to undercut him completely. In one stroke, his dream of playing both sides was shattered.
 
-He gritted his teeth: Manager Chen, you started this; don't blame me for what comes next. He resolved to proceed with the incense-burning ceremony as planned—it was only a day away. That evening, he summoned the more influential sugar refinery workers for a meeting. But to his surprise, their attitudes had changed dramatically.
+He gritted his teeth: Manager Chen, you started this; don't blame me for what comes next. He resolved to proceed with the incense-burning ceremony as planned—it was only a day away. That evening, he summoned the more influential sugar mill workers for a meeting. But to his surprise, their attitudes had changed dramatically.
 
-Among the unemployed workers, those most eager to riot and smash the South China factory were the sugar-boiling masters. Yet these men were unwilling to act themselves—while they bore the greatest resentment toward the factory, their past wages had been higher, leaving them with some savings. They weren't as desperate as the other workers and didn't want trouble for themselves.
+Among the unemployed workers, those most eager to riot and smash up South China Sugar were the master sugar-boilers. Yet these men were unwilling to act themselves—while they bore the greatest resentment toward the factory, their past wages had been higher, leaving them with some savings. They weren't as desperate as the other workers and didn't want trouble for themselves.
 
-As for the ordinary laborers who had nothing, they had previously been the angriest, unanimous in their opposition to the South China factory, ready at any moment to go on a rampage. But now things had changed—word had spread that the factory was willing to hire them as workers. With a glimmer of hope, naturally no one was willing to commit such illegal acts. No matter how Lin Zhuang agitated, they cited concerns about breaking the law and the consequences; others lamented that their families had long been starving, and if they were thrown in jail, their families would surely perish. Some even proposed outright that everyone go work for the South China factory.
+As for the ordinary laborers who had nothing, they had previously been the angriest, unanimous in their opposition to South China Sugar, ready at any moment to go on a rampage. But now things had changed—word had spread that the factory was willing to hire them as workers. With a glimmer of hope, naturally no one was willing to commit such illegal acts. No matter how Lin Zhuang agitated, they cited concerns about breaking the law and the consequences; others lamented that their families had long been starving, and if they were thrown in jail, their families would surely perish. Some even proposed outright that everyone go work for South China Sugar.
+
+**(End of Chapter)**

@@ -16,17 +16,17 @@ When hedonistic sons made friends, they never befriended plain and upright gentl
 
 "Don't look down on them just because they are ordinary young masters; their family assets are quite substantial." Saying this, Pepi gently flipped her wrist, and an emerald ring sparkled on her finger. "This is their generosity."
 
-This ring had a market value of at least eight hundred *liang* of silver; this generosity could not be considered small.
+This ring had a market value of at least 800 taels of silver; this generosity could not be considered small.
 
 "Is this gift too heavy? There's no free lunch in the world." Guo Yi couldn't help but worry.
 
-"Where did you eat for free?" Pepi acted bored, lifting her orchid finger to look at the new nail art on her finger.
+"Where did you eat for free?" Pepi acted bored, lifting her pinky to look at the new nail art on her finger.
 
 "?!" Guo Yi looked surprised.
 
 Pepi knew he had misunderstood and stomped her foot in embarrassment and anxiety. "You person, why do your thoughts always wander to the crooked path all day long!" Saying this, she stomped her foot and was about to go inside.
 
-"Misunderstanding, misunderstanding, don't go, don't go—" Guo Yi quickly grabbed her, feeling like he had become the protagonist in a Qiong Yao drama.
+"Misunderstanding, misunderstanding, don't go, don't go—" Guo Yi quickly grabbed her, feeling like he had become the protagonist in a soap opera.
 
 "Hmph." Pepi turned back. "I am Proprietor Guo's person. No matter how hedonistic they are, they can't have ideas about me. Even if they do, Lixiu cannot yield—"
 
@@ -50,7 +50,7 @@ The implication was dissatisfaction with Purple Clarity Pavilion's facilities. P
 
 Guo Yi deeply agreed. With Pei Lixiu's appearance and conversation, although she attracted many dandies with temporary novel packaging, it was not a long-term plan after all. To keep Purple Clarity Pavilion prosperous for a long time, there had to be constantly renewed tricks to lead Guangzhou's fashion trends.
 
-Thinking of this, Guo Yi slowly said, "If you hadn't mentioned this, I would have forgotten. Lingao sent a list of the latest goods. Take a look later and see if there is anything that can be used in Purple Clarity Pavilion. Calculate it before thinking about the reconstruction."
+Thinking of this, Guo Yi slowly said, "If you hadn't mentioned this, I would have forgotten. Lingao sent a list of the latest goods. Take a look later and see if there is anything that can be used in Purple Clarity Pavilion. Calculate it before thinking about the renovation."
 
 "If you ask me, we must first install a batch of sanitary ware, it's too inconvenient now..." Just as she was about to continue, seeing they were almost there, she quickly switched to a tone that was cloying enough to kill: "Proprietor, watch your step."
 
@@ -98,7 +98,7 @@ Having made up their minds, the two came to Purple Clarity Pavilion every day, f
 
 "...Such a sum of money can't be used. We want to ask Proprietor Guo for advice on how we can use it to generate profit?" Dong Jizhong said. Although the words were polite, the meaning was clear: the only thing in Guo Yi's hands that guaranteed money was Australian goods.
 
-Guo Yi knew he had encountered an excellent opportunity, so he calculated carefully for a while. Since they had money they couldn't spend, it was idle money. Not only could it be borrowed in the short term, but if handled well, this fund could be occupied for long-term operations. He just didn't know exactly how much they had. Presumably, one person would have ten or twenty thousand silver.
+Guo Yi knew he had encountered an excellent opportunity, so he calculated carefully for a while. Since they had money they couldn't spend, it was idle money. Not only could it be borrowed in the short term, but if handled well, this fund could be occupied for long-term operations. He just didn't know exactly how much they had. Presumably, one person would have 10,000 or 20,000 of silver.
 
 But he didn't express his attitude at this moment; he would whet their appetites first. He only responded vaguely: "Easy to discuss, easy to discuss."
 

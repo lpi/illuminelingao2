@@ -1,6 +1,6 @@
-# Chapter 285: Sweet Port Turbulence — Escalation
+# Chapter 285: Sweet Port Turbulence – Escalation
 
-The first heart-stopping day passed like this. That night, not just Wen Tong—all the transmigrators at the South China Sugar Factory were like ants on a hot pan. Everyone realized they faced a challenge here and were in the midst of a crisis. For Wen Tong, there were now two options. First, transfer cash from Guangzhou and Lingao. With enough silver, the current crisis could immediately turn into a windfall—the South China Trading House buying sugar at the original price would not only yield huge de facto profits but would also give it immense credibility in Leizhou. But arithmetic quickly reminded him: this was impossible. Over two hundred thousand *shi* of sugar in Leizhou—even if he ultimately bought only a third, that would require nearly two hundred thousand *liang* of silver. An astronomical figure. Never mind that Lingao certainly couldn't produce that much—even Guo Yi in Guangzhou would have to bankrupt the entire Guangzhou Station to meet it.
+The first heart-stopping day passed like this. That night, not just Wen Tong—all the transmigrators at the South China Sugar Factory were like ants on a hot wok. Everyone realized they faced a challenge here and were in the midst of a crisis. For Wen Tong, there were now two options. First, transfer cash from Guangzhou and Lingao. With enough silver, the current crisis could immediately turn into a windfall—the South China Trading House buying sugar at the original price would not only yield huge de facto profits but would also give it immense credibility in Leizhou. But arithmetic quickly reminded him: this was impossible. Over 200,000 *shi* of sugar in Leizhou—even if he ultimately bought only a third, that would require nearly 200,000 taels of silver. An astronomical figure. Never mind that Lingao certainly couldn't produce that much—even Guo Yi in Guangzhou would have to bankrupt the entire Guangzhou Station to meet it.
 
 Xiao Gui said, "Have Lingao send over a batch of luxury goods—mirrors, glassware, that sort of thing..."
 
@@ -8,13 +8,13 @@ Xiao Gui said, "Have Lingao send over a batch of luxury goods—mirrors, glasswa
 
 "Fair point." Xiao Gui thought that whether ancient or modern, real gold and silver were always more useful than goods.
 
-"The second option," Wen Tong said, "is to simply cut the purchase price tomorrow. Once we cut the price, this situation will immediately improve, and we can continue normal purchasing. Of course, this means we'd lose the chance to take down Haiyi Hall's monopoly on Leizhou in one stroke. This is the safer approach, and probably the only one."
+"The second option," Wen Tong said, "is to simply cut the purchase price tomorrow. Once we cut the price, this situation will immediately improve, and we can continue normal purchasing. Of course, this means we'd lose the chance to take down the Haiyi Guild's monopoly on Leizhou in one stroke. This is the safer approach, and probably the only one."
 
 "If only Old Chang could get back soon. He'll definitely bring rice back, and if we pay for sugar with rice, the farmers should still accept it." Wen Tong sighed. But in his heart, he knew this was impossible.
 
 "I guess that's all we can do." Everyone fell silent. That night, Wen Tong was restless and irritable. Even A-Zhu, who was preparing to offer herself as a pillow companion, was scolded and sent away.
 
-The next day, at first light, Wen Tong hastily washed up and brought his people to the trading house entrance. The scene outside nearly stopped his breathing. A dark mass of farmers stretched from the gate all the way to the main road. There had to be several thousand people, at least—and it looked like they'd arrived overnight. Apparently, word of Haiyi Hall's price cut had already spread throughout Xuwen. Everyone who still had unsold sugar was flooding toward South China, their last hope.
+The next day, at first light, Wen Tong hastily washed up and brought his people to the trading house entrance. The scene outside nearly stopped his breathing. A dark mass of farmers stretched from the gate all the way to the main road. There had to be several thousand people, at least—and it looked like they'd arrived overnight. Apparently, word of the Haiyi Guild's price cut had already spread throughout Xuwen. Everyone who still had unsold sugar was flooding toward South China, their last hope.
 
 Chen Tianxiong and the others arrived too. Even Xiao Gui came—no one had the heart to train apprentices now.
 
@@ -28,9 +28,9 @@ Liao Daxing was giving orders to a clerk to write up the new price board, ready 
 
 "What intelligence?" Wen Tong tensed up.
 
-"All over Hai'an Street—and in Xuwen town too—people are saying the South China Factory uses sorcery. That it produces sugar out of thin air. So now sugar from South China is everywhere, prices have dropped badly, and all sugar is unsellable..."
+"All over Hai'an Street—and in Xuwen Town too—people are saying the South China Factory uses sorcery. That it produces sugar out of thin air. So now sugar from South China is everywhere, prices have dropped badly, and all sugar is unsellable..."
 
-"Absolute rubbish!" Wen Tong was so angry he clenched his teeth. What kind of rumor was this? Despicable! Utterly despicable! "The sugar price in Guangzhou is clearly three *liang* eight *qian*! Where's this price drop?"
+"Absolute rubbish!" Wen Tong was so angry he clenched his teeth. What kind of rumor was this? Despicable! Utterly despicable! "The sugar price in Guangzhou is clearly 3.8 taels! Where's this price drop?"
 
 "Well... the farmers are ignorant, and Guangzhou is over a thousand *li* away. Nobody can verify it."
 
@@ -38,7 +38,7 @@ Chen Tianxiong said, "Looks like someone is exploiting this information gap."
 
 "Enough analysis—let's make a decision!" Wen Tong's mood was growing frantic. "What do we do about the purchase price?! Do we change it or not?"
 
-Before anyone else could speak, Liao Dahua jumped in. "We can't change it! The streets are full of talk now. People are saying the whole thing is South China's fault. If South China doesn't buy at two *liang* five *qian*, they're going to go to the authorities and say South China is under suspicion of practicing sorcery..."
+Before anyone else could speak, Liao Dahua jumped in. "We can't change it! The streets are full of talk now. People are saying the whole thing is South China's fault. If South China doesn't buy at 2.5 taels, they're going to go to the authorities and say South China is under suspicion of practicing sorcery..."
 
 "Bullshit! The county would listen to their nonsense?"
 
@@ -60,13 +60,13 @@ Everyone's mind flashed to reports they'd seen on online forums about mass incid
 
 If they cut prices now, according to Liao Dahua's intelligence, the bomb someone had prepared for them would immediately blow the South China Factory to smithereens. If they kept buying at the original price, though they'd still face crisis after scraping by for a few more days, at least they'd have buffer time. If they could come up with a counter-strategy in time, this might even become a golden opportunity to unify the Leizhou sugar industry.
 
-"Let's do it this way. Manager Liao, go tell them to keep buying at two *liang* five *qian*..."
+"Let's do it this way. Manager Liao, go tell them to keep buying at 2.5 taels..."
 
 Before he could finish, Wen Xiu came stumbling in. "Bad... bad news..."
 
 "What is it?" Everyone's faces changed. Had the proletarian masses already started their assault?
 
-"The farmers outside—I don't know who told them, but they're all saying South China is going to buy at one *liang* five *qian* today. Someone's stirring them up, saying this whole thing is South China's fault, and if South China dares to cut the price, they'll make South China pay for it..."
+"The farmers outside—I don't know who told them, but they're all saying South China is going to buy at 1.5 taels today. Someone's stirring them up, saying this whole thing is South China's fault, and if South China dares to cut the price, they'll make South China pay for it..."
 
 "Bastards!" Seeing the enemy pressing step by step, Wen Tong knew there was no time to waste. He quickly ordered Wen Xiu, "Run out and tell Liao Daxing to hang up the price board immediately. Price unchanged!"
 
@@ -82,13 +82,13 @@ Liao Dahua said, "That's easy to handle. First, take them off their positions an
 
 "But then we'll have no local clerks who can communicate with the farmers. Leizhou dialect is notoriously difficult even among Cantonese speakers."
 
-"I'll go to Xuwen town right now and ask the shops and warehouses we know to spare one or two people each. Add in the local people from the escort agency, and that should be enough."
+"I'll go to Xuwen Town right now and ask the shops and warehouses we know to spare one or two people each. Add in the local people from the escort agency, and that should be enough."
 
 "Good, go quickly. Opening time is almost here!"
 
 On one side they were rearranging the clerks; on the other side they called Zhou Shizhai over and ordered him to not only mobilize the militia but also organize all the factory's men and able-bodied women. Production was to be suspended. Everyone was to be given a club, ready to defend the factory and protect equipment and warehouses.
 
-"Tell everyone, if trouble breaks out, just hit—hit hard! If someone gets killed, the masters will find someone to take the blame for them! Five hundred *liang* compensation for each death! Any injuries, South China will support them for life! As long as the machines and warehouses are protected, everyone gets ten *liang* of silver!"
+"Tell everyone, if trouble breaks out, just hit—hit hard! If someone gets killed, the masters will find someone to take the blame for them! 500 taels compensation for each death! Any injuries, South China will support them for life! As long as the machines and warehouses are protected, everyone gets 10 taels of silver!"
 
 "I'll go give the orders immediately!" Zhou Shizhai knew the stakes and hurried off to make arrangements. Xiao Gui also rushed back to the boiler room to raise the pressure—if anyone stormed the sugar factory, they could use the steam engine to power the water pump and spray the crowd.
 
@@ -110,7 +110,7 @@ The disturbance in the crowd grew louder and louder, about to become uncontrolla
 
 Clerks came out and quickly hung up the board.
 
-Every eye in the crowd focused on the board. It clearly displayed: two *liang* five *qian*.
+Every eye in the crowd focused on the board. It clearly displayed: 2.5 taels.
 
 A sigh of relief swept through the crowd like a gust of wind.
 
@@ -120,17 +120,17 @@ This declaration, combined with the unchanged price, temporarily calmed the rest
 
 The Executive Committee received the urgent dispatch that same day. The Foreign Affairs Ministry convened an emergency meeting. Since this involved allocating funds, it became a joint meeting between the Finance Ministry and Foreign Affairs Ministry.
 
-"Right now, Lingao's entire silver reserve is less than forty thousand *liang*." Cheng Dong lowered his voice when mentioning the silver figure—this was one of the Transmigration Collective's top secrets.
+"Right now, Lingao's entire silver reserve is less than 40,000 taels." Cheng Dong lowered his voice when mentioning the silver figure—this was one of the Transmigration Collective's top secrets.
 
-Forty thousand *liang* could only buy sixteen thousand *shi* of sugar. For the hundred-thousand-plus *shi* of sugar poised to flood South China's doorstep, this was a drop in the bucket.
+40,000 taels could only buy 16,000 *shi* of sugar. For the 100,000-plus *shi* of sugar poised to flood South China's doorstep, this was a drop in the bucket.
 
 "Out of money? Don't we still have some from selling to Macau?"
 
-"Those Indian bills of exchange can't be cashed in Leizhou—we'd have to go to Macau at least. Besides, it's only about twenty thousand pesos."
+"Those Indian bills of exchange can't be cashed in Leizhou—we'd have to go to Macau at least. Besides, it's only about 20,000 pesos."
 
 "Have the Guangzhou Station raise it."
 
-"I've contacted the Guangzhou Station," Cheng Dong said. "The original plan was for the Guangzhou Station to raise a hundred thousand *liang* and send it to Leizhou specifically to purchase Leizhou sugar. But shipping that much cash was too difficult, and security couldn't be guaranteed. So they adopted the idea of Chang Shide from Leizhou Sugar Industry: use some Leizhou sugar to exchange for Vietnamese rice, then use Vietnamese rice to buy Leizhou sugar. It was a good concept, and no one anticipated this kind of 'rush to sell' event. With so much supply suddenly flooding in, the silver hadn't been transferred."
+"I've contacted the Guangzhou Station," Cheng Dong said. "The original plan was for the Guangzhou Station to raise 100,000 taels and send it to Leizhou specifically to purchase Leizhou sugar. But shipping that much cash was too difficult, and security couldn't be guaranteed. So they adopted the idea of Chang Shide from Leizhou Sugar Industry: use some Leizhou sugar to exchange for Vietnamese rice, then use Vietnamese rice to buy Leizhou sugar. It was a good concept, and no one anticipated this kind of 'rush to sell' event. With so much supply suddenly flooding in, the silver hadn't been transferred."
 
 Wen Desi said, "This is tricky. The risks are significant, but we should still transfer cash to Leizhou. The *Great Whale* probably won't be back anytime soon."
 

@@ -1,4 +1,4 @@
-# Chapter 287: Sweet Port Turbulence — The Silver from Guangzhou
+# Chapter 287: Sweet Port Turbulence – The Silver from Guangzhou
 
 At the villa, Chu Yu removed her rain cape and hung it under the eaves, then hurried back to unfasten the buttons of his rain jacket. Wu De saw that beneath it, her blue cloth dress was completely soaked, covered with mud. Her legs were bare—just a pair of muddy feet now. Her hair was plastered into wet strands, her lips blue with cold, her body shivering. But on her back was a bundle.
 
@@ -40,11 +40,11 @@ Wu De sat in the captain's cabin, watching the sea through the glass window. The
 
 This first mate had been promoted from among their captured pirates. His surname was Wang, and because of his thick beard, everyone called him Wang the Bearded. Wang the Bearded had originally been a small boat owner with his own two-masted vessel, doing coastal trade and transport. Until one day he was robbed by the Red Hairs at sea, leaving him with nothing. So he'd simply became a pirate—unfortunately, on his very first raid with his bosses, he'd been wiped out by the transmigrators. Pulled from the sea with a belly full of water, Wang the Bearded had been left on the beach to die. A transmigrator from the Navy, seeing his good physique and figuring he'd make a useful laborer, charitably hung him upside down to drain the water and saved his life.
 
-After months of honest stone-breaking and ditch-digging in the labor reform brigade, he'd passed the preliminary political screening. The assessment concluded that Wang the Bearded had been a pirate only briefly, hadn't developed deep bandit habits, and had few connections to pirate networks—qualifying him as "usable and reformable." Since he was also familiar with the coastal routes, he'd been recruited by the Navy. After several months of service, having passed a second secret political review by the Political Security Directorate, his trust level was upgraded to Grade IIB, and he was appointed first mate on the *Ascending Peace Island*.
+After months of honest stone-breaking and ditch-digging in the labor reform brigade, he'd passed the preliminary political screening. The assessment concluded that Wang the Bearded had been a pirate only briefly, hadn't developed deep bandit habits, and had few connections to pirate networks—qualifying him as "usable and reformable." Since he was also familiar with the coastal routes, he'd been recruited by the Navy. After several months of service, having passed a second secret political review by the Political Security Bureau, his trust level was upgraded to Grade IIB, and he was appointed first mate on the *Ascending Peace Island*.
 
 "Have a drink to warm up first." Wu De unslung his canteen and handed it over. "What's our speed?"
 
-The first mate took the liquor, tilted his head back for a big gulp, then said, "Seven to eight-point-five knots."
+The first mate took the liquor, tilted his head back for a big gulp, then said, "7 to 8.5 knots."
 
 This was the speed with the diesel engine running—under these sea conditions, the engine's power was very useful for effective ship handling.
 
@@ -134,19 +134,19 @@ A night of wind and rain, and the next day at dawn, the sky began to brighten. T
 
 The handover point was at the Guangzhou docks. Qiwei Escort Agency personnel provided escort the entire way, mobilizing almost half the agency's manpower—by now, Qiwei had become effectively a subsidiary of the Guangzhou Station, with two-thirds of its business serving the Station.
 
-Zhang Xin came to the dock and supervised loading the iron chests containing fifty thousand *liang* of silver onto the ship.
+Zhang Xin came to the dock and supervised loading the iron chests containing 50,000 taels of silver onto the ship.
 
-"This is fifty thousand. We're in contact with the Gao family to raise more cash, but funds are hard to mobilize right now..." Zhang Xin reported.
+"This is 50,000. We're in contact with the Gao family to raise more cash, but funds are hard to mobilize right now..." Zhang Xin reported.
 
 "This tight? Doesn't the Gao family owe us over a hundred thousand in payments?"
 
-"The Gao family's not the only one. Our accounts receivable are close to one hundred eighty thousand," Zhang Xin said. "But by convention, the first settlement isn't until the fifth day of the fifth lunar month. Merchants with goods out haven't collected payment yet. It's the same everywhere—nobody can produce much cash. The lending interest rates on the Guangzhou market are very high right now. Even if the Gao family can scrape together tens of thousands of *liang*, we'll have to pay interest—just less than the going rate."
+"The Gao family's not the only one. Our accounts receivable are close to 180,000," Zhang Xin said. "But by convention, the first settlement isn't until the fifth day of the fifth lunar month. Merchants with goods out haven't collected payment yet. It's the same everywhere—nobody can produce much cash. The lending interest rates on the Guangzhou market are very high right now. Even if the Gao family can scrape together tens of thousands of taels, we'll have to pay interest—just less than the going rate."
 
 "How high?" Wu De knew the Executive Committee was still worrying about where to find more silver.
 
-"The going market rate is twenty percent a month. The Gao family would probably accept fifteen percent."
+"The going market rate is 20% a month. The Gao family would probably accept 15%."
 
-"Monthly interest of twenty percent?!" Wu De nearly shouted. This loan-sharking was ridiculous. Annual rate was 240%!
+"Monthly interest of 20%?!" Wu De nearly shouted. This loan-sharking was ridiculous. Annual rate was 240%!
 
 "Even at this interest rate, as long as we complete the cargo turnaround within a month, we'll still make money. On sugar, whether it's English or Portuguese buyers, they're willing to pay cash. If it really comes to that, we can consider such short-term borrowing!" Zhang Xin pulled a copy of a document from his pocket. "This is another proposal from the Guangzhou Station to the Executive Committee. It's a bigger matter and might be too slow to save the immediate crisis. But if we can implement it, future cash flow will be much more comfortable. The telegram's already been sent—the Executive Committee should discuss it soon."
 

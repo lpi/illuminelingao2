@@ -1,4 +1,4 @@
-# Chapter 315 - Acquiring Dachang
+# Chapter 315: Acquiring Dachang
 
 Immediately, Liao Daxing was summoned, and these matters were explained to him one by one. Liao Daxing said: "It is hard for the Masters to think so thoroughly! Shopkeeper Feng must be grateful knowing this in the netherworld. However, there is one point the Masters have overlooked—"
 
@@ -6,7 +6,7 @@ In any merchant family, financial affairs are managed by the head of the house. 
 
 Many businesses look prosperous while the head of the house is alive, but once he dies suddenly, it is equivalent to total bankruptcy of credit. After the funeral is done, the family also declines.
 
-"Not to mention anything else, just take the warehouse receipt left by Shopkeeper Feng. The orphans and widow of the Feng family won't get the price of 3.8 taels per stone. Most likely, they will be forced to sell it cheaply to other sugar firms. If the other party has some conscience, they might offer 2.5 taels; if they are blinded by greed, selling for 1.7 or 1.8 taels would be considered good!"
+"Not to mention anything else, just take the warehouse receipt left by Shopkeeper Feng. The orphans and widow of the Feng family won't get the price of 3.8 taels per *shi*. Most likely, they will be forced to sell it cheaply to other sugar firms. If the other party has some conscience, they might offer 2.5 taels; if they are blinded by greed, selling for 1.7 or 1.8 taels would be considered good!"
 
 "That dark?!" Everyone was surprised. Was there no professional loyalty left?
 
@@ -40,13 +40,13 @@ To speed up the acquisition speed, Wen Tong seconded a large number of skilled c
 
 "Mm, but we promised these sugar merchants 3.8 taels. What if Guangzhou can't sell at this price? Although we monopolize Leizhou sugar sales, if the demand is small, we are helpless."
 
-"In Guangzhou, last week's market price was already 3.95 taels. The British are willing to pay four taels per stone; the price won't come down in the short term."
+"In Guangzhou, last week's market price was already 3.95 taels. The British are willing to pay four taels per *shi*; the price won't come down in the short term."
 
 "There is also selling to Vietnam." Chang Shide was very confident. "Wu Yujia doesn't have silver there, but he has plenty of rice. We'll exchange it all for rice, then talk business with Boss Zhu of Dachang."
 
-Bringing in Dachang Grain Firm as a partner was Chang Shide's idea. In his official document to Lingao, he argued: Although South China Sugar opening a wholly-owned rice firm would yield much higher profits, they lacked experienced and reliable managers to run it, that was one; secondly, South China Sugar was already "thunderous" in Leizhou. If they blatantly intervened in the rice business after securing the sugar industry, it would inevitably cause fear in the local business community, leading to boycotts—money can't all be earned; winning hearts is more important.
+Bringing in Dachang Grain Firm as a partner was Chang Shide's idea. In his official document to Lingao, he argued: Although South China Sugar opening a wholly-owned rice firm would yield much higher profits, they lacked experienced and reliable managers to run it—that was one; secondly, South China Sugar was already "thunderous" in Leizhou. If they blatantly intervened in the rice business after securing the sugar industry, it would inevitably cause fear in the local business community, leading to boycotts—money can't all be earned; winning hearts is more important.
 
-Dachang Grain Firm was the local merchant most friendly to South China Sugar from the beginning. Not that Boss Zhu Fusheng of Dachang had any foresight, but his sense of smell was sharper than other rice firms, and his capital was the largest. When the immigrants organized by South China Sugar first arrived, he scented the opportunity and came to sell grain, offering very good trading terms: South China Sugar could take grain at any time, settle accounts on the three festivals, and enjoy promotions like getting one stone free for every twenty bought. This solved the headache of organizing large-scale grain supplies for Wen Tong and the others.
+Dachang Grain Firm was the local merchant most friendly to South China Sugar from the beginning. Not that Boss Zhu Fusheng of Dachang had any foresight, but his sense of smell was sharper than other rice firms, and his capital was the largest. When the immigrants organized by South China Sugar first arrived, he scented the opportunity and came to sell grain, offering very good trading terms: South China Sugar could take grain at any time, settle accounts on the three festivals, and enjoy promotions like getting one *shi* free for every twenty bought. This solved the headache of organizing large-scale grain supplies for Wen Tong and the others.
 
 To keep this big client, Zhu Fusheng did his utmost to satisfy every request from South China Sugar and contributed significantly during South China Sugar's confrontation with the Haiyi Guild—of course, he had selfish motives too, as South China Sugar still owed him several thousand taels in accounts payable.
 
@@ -86,7 +86,7 @@ Chang Shide was full of confidence: "It might have been difficult in the past, b
 
 "Although doing that is easy, it is harmful to our reputation after all. I have an idea, but we need to tip off Old Zhu beforehand. Like this—"
 
-Before long, a terrible piece of news spread through the streets and alleys of Xuwen County: South China Sugar serves to open a rice firm immediately! This news terrified grain merchants across Xuwen and even Leizhou. The Rice Industry Guild was in chaos; the executive on duty and major rice firm bosses all came to visit, trying to glean some news from Wen Tong.
+Before long, a terrible piece of news spread through the streets and alleys of Xuwen County: South China Sugar is to open a rice firm immediately! This news terrified grain merchants across Xuwen and even Leizhou. The Rice Industry Guild was in chaos; the executive on duty and major rice firm bosses all came to visit, trying to glean some news from Wen Tong.
 
 Wen Tong's answer was decisive: No, South China Sugar does not plan to open a rice firm itself; there is no such thing.
 
@@ -133,3 +133,5 @@ When the clouds scattered and rain ceased, and Wen Tong went limp all over about
 "Did she become a pirate later?" Wen Tong thought of her background and teased. He didn't notice Ah Zhu's face had changed. She forced a smile:
 
 "Master is joking. Her family was poor, so she was sold to a wealthy family as a maid since childhood. Recently she has nowhere to go and wants to find a place to serve a new master. She has good looks, a good temper, and is good at needlework..."
+
+**(End of Chapter)**

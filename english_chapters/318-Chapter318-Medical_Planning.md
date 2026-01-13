@@ -1,8 +1,8 @@
 # Chapter 318 - Medical Planning
 
-Now Hippo and Shi Niaoren tied off the arterial vessels together and cut them to minimize bleeding during the dissection. Shi Niaoren picked up the aspirator tube from the instrument rack above the dissection table, stepped on the pneumatic valve, and sucked out the blood flowing into the abdominal cavity, then sucked out the blood from the thoracic cavity.
+Now Hippo and Shi Niaoren tied off and cut the arterial vessels to minimize bleeding during the dissection. Shi Niaoren picked up the aspirator tube from the instrument rack above the dissection table, stepped on the pneumatic valve, and suctioned out the blood pooling in the abdominal and thoracic cavities.
 
-When Hippo began to peel the scalp, preparing to open the skull, someone finally couldn't hold it back and rushed out to vomit.
+When Hippo began to peel back the scalp to prepare for the craniotomy, someone finally couldn't hold it back and rushed out to vomit.
 
 "Shall we take a break?" Ai Beibei asked.
 
@@ -10,21 +10,21 @@ When Hippo began to peel the scalp, preparing to open the skull, someone finally
 
 After a ten-minute break, the dissection continued. Ai Beibei asked if anyone wanted to leave. The result was that no one withdrew. It seemed they were teachable material after all. Only by passing this test could they have hope of becoming doctors.
 
-However, when the saw cut into the skull, someone did leave, only returning after quite a while. The sound of the surgical saw frictioning back and forth between the skull bones was chilling; only Hippo, who had worked in orthopedics, felt nothing strange about it.
+However, when the saw cut into the skull, someone did leave, only returning after quite a while. The rasping sound of the surgical saw grinding against the skull bones was chilling; only Hippo, who had worked in orthopedics, felt nothing strange about it.
 
-Shi Niaoren carefully pried open the skull cap, revealing the meninges wrapping the brain. This stimulation was enough to make first-year medical students with weak nerves faint. He glanced at the nurses again. It looked like they could hold on. He noticed that some eyes even revealed a kind of euphoric fanaticism.
+Shi Niaoren carefully pried open the skull cap, revealing the meninges wrapping the brain. This stimulation was enough to make first-year medical students with weak nerves faint. He glanced at the nurses again. It looked like they could hold on. He noticed that some eyes even revealed a kind of fanatical euphoria.
 
 "Attention! I'm cutting."
 
-Shi Niaoren warned, then used sharp scissors to cut the large vein running from front to back in the center of the meninges. He suddenly realized he had forgotten the name of this artery—*Am I getting old?* Blood immediately gushed out, flowing onto the scissors and fingers. He noted the blood was fluid with no signs of embolism. This person clearly didn't die of cerebral infarction. After carefully observing the meninges, he picked them open, exposing the brain. He used a scalpel to carefully separate the brain from the spinal cord and gently removed the brain. At this moment, Ai Beibei brought over a glass jar half-filled with formalin. Shi Niaoren slowly placed the brain inside. The condition of this brain was very good; Shi Niaoren decided to keep it as a specimen.
+Shi Niaoren warned, then used sharp scissors to cut the large vein running from front to back in the center of the meninges. He suddenly realized he had forgotten the name of this artery—*Am I getting old?* Blood immediately gushed out, flowing onto the scissors and his fingers. He noted the blood was fluid with no signs of coagulation. This person clearly didn't die of cerebral infarction. After carefully observing the meninges, he peeled them back, exposing the brain. He used a scalpel to carefully separate the brain from the spinal cord and gently removed the organ. At this moment, Ai Beibei brought over a glass jar half-filled with formalin. Shi Niaoren slowly placed the brain inside. The condition of this brain was very good; Shi Niaoren decided to keep it as a specimen.
 
 "This is the human brain. If the entire human body is a country, the human brain is the Imperial Court." He explained in simple language, then covered the distinctions and functions of the cerebrum, cerebellum, and brainstem. Shi Niaoren's scalpel then turned to the heart.
 
-Shi Niaoren removed the heart from the corpse and observed it carefully there. Now he turned his gaze to the female nurses and said:
+Shi Niaoren removed the heart from the corpse and observed it carefully. Now he turned his gaze to the female nurses and said:
 
 "The greatest possibility inducing sudden death is coronary heart disease. Let's first check if this deduction fits."
 
-The female nurses were now numb, starting to focus their attention on the organs themselves, watching intently as he deftly opened the cardiac arteries.
+The female nurses were now numb to the gore, focusing their attention on the organs themselves, watching intently as he deftly opened the cardiac arteries.
 
 "We should find an embolism point here..." He pointed with the tip of a metal probe. "But there is nothing. On the main branch of the coronary artery, there are absolutely no traces of blood clots."
 
@@ -58,7 +58,7 @@ Health School students had all learned to suture wounds, but opportunities for p
 
 The corpse was cleaned with water, lifted from the table onto a cart, and covered with white cloth. In a while, it would be sent to Cuigang for burial—although the dissection room was a basement and the temperature was lower, with so many people crowded together, it was still over twenty degrees. The corpse would rot quickly. In a formal medical school or hospital, they usually wouldn't need to do this themselves as someone would handle it, but here they had to do it themselves.
 
-They changed clothes, came out of the dissection room, and returned to the ground. Hippo exhaled a breath of turbid air and wiped the sweat from his forehead.
+They changed clothes, came out of the dissection room, and returned to the ground level. Hippo exhaled a breath of turbid air and wiped the sweat from his forehead.
 
 "Need to install an air conditioner."
 
@@ -78,6 +78,8 @@ Hippo felt an indescribably ambiguous feeling as this young girl approached him.
 
 Guo Fu caught up with the other girls. They were all asking what she was thinking when suturing the corpse and if she was scared. She answered casually, thinking of Dr. He's very different gaze—her face reddened again.
 
+***
+
 After Ai Beibei sent the girls away, she went to the Chiefs' Conference Room as usual to attend the weekly Monday hospital meeting. The so-called Chiefs' Conference Room was a comfortably furnished large room with huge glass panes in the windows, containing a few old sofas where they could sit comfortably to chat, read newspapers and books. When they had nothing to do, they liked to sit here; it felt more like their original timeline.
 
 He Ping was participating in the circumnavigation of the island and hadn't returned from sea yet. His wife, Zhao Yanmei, came instead. She was a mold laboratory technician at a pharmaceutical factory and her participation in the transmigration was purely due to being deceived—He Ping lied that a boss wanted to open a pharmaceutical factory.
@@ -88,7 +90,7 @@ Now Shi Niaoren was indeed preparing to let her be in charge of the pharmaceutic
 
 In a while, Yang Baogui also arrived, his arms still wet, smelling of disinfectant all over.
 
-"Meeting again, I was breeding cows for the farm."
+"Meeting again, I was just breeding cows for the farm."
 
 The last to enter was Liu San, a Master of Traditional Chinese Medicine. He was now the Chief of the TCM Department, but he rarely appeared in the hospital, mostly working on medicinal cultivation at Wu Nanhai's farm.
 
@@ -106,7 +108,7 @@ This microbiology culture room was crucial for the hospital. Now they could fina
 
 "Judging from the current situation, the infection rate of parasites has risen significantly. This indicates that the trend of eating indiscriminatingly in the wild is rising again. We need to notify the Propaganda Department to strengthen education on this," Shi Niaoren summarized. "Next, let Director Ai talk about medical education."
 
-Ai Beibei adjusted her glasses. because she had been in the US for many years, her Mandarin accent was a bit strange.
+Ai Beibei adjusted her glasses. Because she had been in the US for many years, her Mandarin accent was a bit strange.
 
 "The health training class we took over from the Military and Political School system is currently mainly focused on nursing teaching. I should say this is far from enough. At least we need to train medics with primary diagnostic and treatment levels.
 
@@ -120,6 +122,6 @@ Although the barefoot doctor system was eliminated after the Reform and Opening 
 
 Zhang Ziyi nodded. This was beyond doubt.
 
-"Actually, they can only be counted as orderlies. They have too few internship opportunities, and various consumables and medicines are insufficient." Zhang Ziyi said, "No specimens, no equipment. Apart from alcohol and cotton wool, the things nurses can use are almost zero. Not even Mercurochrome."
+"Actually, they can only be counted as orderlies using modern standards. They have too few internship opportunities, and various consumables and medicines are insufficient." Zhang Ziyi said, "No specimens, no equipment. Apart from alcohol and cotton wool, the things nurses can use are almost zero. Not even Mercurochrome."
 
 Probably to enhance the effect, Zhang Ziyi counted on her fingers: "Up to now, the only things nurses can use freely are: medical alcohol and saline for washing. We can't even prepare physiological saline for injection."

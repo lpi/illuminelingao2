@@ -1,4 +1,4 @@
-# Chapter 304 - Sweet Port Crisis: Encounter at Sea
+# Chapter 304: Sweet Port Turbulence — Encounter at Sea
 
 To the east, roughly six nautical miles away, a column of ten or so vessels of varying sizes appeared on the horizon.
 
@@ -6,7 +6,7 @@ Le Lin, the first mate of the *Great Whale*, raised his telescope and studied th
 
 A light breeze filled the *Great Whale*'s two stiff sails, pushing the ship along at a sluggish two knots. The first mate checked his watch. They had been underway for two hours since leaving Hai'an harbor.
 
-The *Great Whale* had entered Hai'an the previous night, offloaded two hundred *shi* of rice, and then loaded two hundred *shi* of sugar. Originally, the plan excluded loading sugar—after all, the ship's mission was to serve as bait. In battle, preserving current cargo would be impossible. Whether soaked by seawater, burned by fire, or stained with blood, the sugar would be rendered unsaleable. Moreover, sugar was an excellent accelerant; a fire on board during combat would be no laughing matter.
+The *Great Whale* had entered Hai'an the previous night, offloaded two hundred *shi* of rice, and then loaded two hundred *shi* of sugar. Originally, the plan excluded loading sugar—after all, the ship's mission was to serve as bait. In battle, preserving the cargo would be impossible. Whether soaked by seawater, burned by fire, or stained with blood, the sugar would be rendered unsaleable. Moreover, sugar was an excellent accelerant; a fire onboard during combat would be no laughing matter.
 
 But loading no sugar would make the bait unconvincing—the enemy certainly had spies on Hai'an Street watching their every move.
 
@@ -16,7 +16,7 @@ Xi Yazhou raised his telescope. He had recently deleted too many contentious pos
 
 "Very likely," Le Lin replied. "We can't be certain yet—wait until they get closer."
 
-"Good. Order a heightened alert. Everyone prepare."
+"Good. Order heightened alert. Everyone prepare."
 
 The order was relayed immediately. Lookouts were increased to four.
 
@@ -32,9 +32,9 @@ The enemy fleet closed rapidly. The breeze was light, yet they were approaching 
 
 "Agreed. All hands, battle stations!"
 
-The ship's bell clanged urgently. Sailors sprinted to their posts, joined by Army gunners in gray uniforms with red collar patches. The sugar sacks stacked on the outer layer were moved below deck, while the sand-filled sacks remained to form defensive breastworks. Four 12-pounder cannons and their ammunition crates were deeply ensconced within these fortifications, covered by straw mats. Pumps began to cycle, dousing the sacks and deck with seawater to guard against incendiary attacks.
+The ship's bell clanged urgently. Sailors sprinted to their posts, joined by Army gunners in gray uniforms with red collar patches. The sugar sacks stacked on the outer layer were moved below deck, while the sand-filled sacks remained to form defensive breastworks. Four twelve-pounder cannons and their ammunition crates were deeply ensconced within these fortifications, covered by straw mats. Pumps began to cycle, dousing the sacks and deck with seawater to guard against incendiary attacks.
 
-The approaching fleet belonged to Gu Dachun—ten vessels, including seven freelance boats he had recently recruited. The five thousand taels from Master Zhu, combined with the proceeds from his previous raid, had emboldened him. This time, Master Zhu's instructions were explicit: seizing sugar was secondary; the primary goal was terror. He wanted to ensure that no ship except those of the Haiyi Guild would dare haul sugar from Leizhou ever again.
+The approaching fleet belonged to Gu Dachun—ten vessels, including seven freelance boats he had recently recruited. The five thousand taels from Third Master Zhu, combined with the proceeds from his previous raid, had emboldened him. This time, Third Master Zhu's instructions were explicit: seizing sugar was secondary; the primary goal was terror. He wanted to ensure that no ship except those of the Haiyi Guild would dare haul sugar from Leizhou ever again.
 
 Gu Dachun intended to show no mercy. He had expanded his force by recruiting rough fishermen-turned-bandits from the lawless border region of Jiangping. He had also managed to procure over a dozen cannons from illicit workshops in Qinzhou, though good gunpowder was harder to find. His own three ships were now armed, but his crews were unskilled gunners who feared their own cannons as much as the enemy's. Thus, his strategy remained traditional: close in, board, and slaughter.
 
@@ -45,3 +45,5 @@ The transmigrators had to avoid boarding combat at all costs. Numbers would tell
 By eight o'clock, the pirate fleet had maneuvered into a position one nautical mile upwind. While illiterate, these pirates understood the basics of naval tactics: seize the weather gage. The three twin-masted vessels took the center, while the seven smaller boats fanned out to encircle the *Great Whale*—three to the right, four to the left—intending to swarm the target.
 
 "We must not let them board," Xi Yazhou told Le Lin. "Concentrate all firepower on one flank. All guns—target the starboard side."
+
+**(End of Chapter)**

@@ -1,12 +1,12 @@
-# Chapter 290: Sweet Port Turbulence — Dirty Tricks
+# Chapter 290: Sweet Port Turbulence – Dirty Tricks
 
-"Tell them not to worry. As long as they're willing to put in the effort, you can squeeze oil from stones. Besides, do they dare to nitpick with Haiyi Hall?" Third Master Zhu sniffed disdainfully. "When Haiyi Hall tightens the money supply, those money-grubbing dogs will be crying for their parents."
+"Tell them not to worry. As long as they're willing to put in the effort, you can squeeze oil from stones. Besides, do they dare to nitpick with the Haiyi Guild?" Third Master Zhu sniffed disdainfully. "When the Haiyi Guild tightens the money supply, those money-grubbing dogs will be crying for their parents."
 
-As the Sugar Industry Guild, Haiyi Hall was powerful and wealthy. It was not only the local sugar giant but also effectively controlled local finance. Ordinary merchants and landlords really didn't dare to cross them.
+As the Sugar Industry Guild, the Haiyi Guild was powerful and wealthy. It was not only the local sugar giant but also effectively controlled local finance. Ordinary merchants and landlords really didn't dare to cross them.
 
-"You," he pointed to another subordinate standing aside, "go tell Zhao the Chicken Foot: tell him to watch South China closely. Within three to five days, South China will definitely have problems. Strike when the opportunity arises!"
+"You," he pointed to another subordinate standing aside, "go tell Zhao Jijiao: tell him to watch South China closely. Within three to five days, South China will definitely have problems. Strike when the opportunity arises!"
 
-Then he instructed several other subordinates to implement various tasks. He didn't fully trust Zhao the Chicken Foot's men, so he arranged his own manpower separately. Keeping this group of riffraff on the payroll was mainly so he could use these rolling bandit-meats as scapegoats if something went wrong.
+Then he instructed several other subordinates to implement various tasks. He didn't fully trust Zhao Jijiao's men, so he arranged his own manpower separately. Keeping this group of riffraff on the payroll was mainly so he could use these rolling bandit-meats as scapegoats if something went wrong.
 
 After sending everyone away, Third Master Zhu closed his eyes to rest for a while. The plan was proceeding step by step. As soon as South China's cash flow broke, all the methods would be unleashed. He doubted they could withstand this chain of tactics.
 
@@ -32,7 +32,7 @@ Just knowing the number of chests naturally didn't tell him how much silver ther
 
 "Replying to Third Master, just one person!"
 
-That meant each chest was at most a thousand *liang* of silver. Third Master Zhu felt slightly relieved. But on second thought, even at a thousand *liang* a chest, that was one hundred thousand *liang*. If South China really got their hands on a hundred thousand *liang*, his plan to squeeze them down would fail—not only fail, but the consequences of not collecting sugar this year would be unimaginable!
+That meant each chest was at most 1,000 taels of silver. Third Master Zhu felt slightly relieved. But on second thought, even at 1,000 taels a chest, that was 100,000 taels. If South China really got their hands on 100,000 taels, his plan to squeeze them down would fail—not only fail, but the consequences of not collecting sugar this year would be unimaginable!
 
 Sweat began to bead on his forehead.
 
@@ -52,11 +52,11 @@ The strategy master's brush flew, quickly writing down these questions, then loo
 
 Zhu An painfully felt that communication speed with Guangzhou was too slow. The things he wanted to inquire about weren't secrets. An investigator could visit a few guild teahouses in a day, sit and listen, and know exactly where South China's silver came from and under what terms. Unfortunately, a round trip for this precious news would take at least ten days. In ten days, god knows what else might happen!
 
-With this silver, South China immediately increased its purchasing intensity. The weighing stations increased to ten. The unease and restlessness that had been swelling were once again suppressed. The *Ascending Peace Island* left the dock that night, fully loaded with nearly 600 *shi* of sugar. This news threw Haiyi Hall into turmoil. This was disastrous! Two ships had already transported sixteen hundred *shi* of sugar. If South China kept transporting received sugar away to liquidate it endlessly, Third Master Zhu's plan would be completely ruined—commoners outside didn't know, but everyone in the sugar business knew clearly: Guangzhou sugar price was three *liang* eight *qian*. Shipping sugar out meant earning money back!
+With this silver, South China immediately increased its purchasing intensity. The weighing stations increased to ten. The unease and restlessness that had been swelling were once again suppressed. The *Ascending Peace Island* left the dock that night, fully loaded with nearly 600 *shi* of sugar. This news threw the Haiyi Guild into turmoil. This was disastrous! Two ships had already transported 1,600 *shi* of sugar. If South China kept transporting received sugar away to liquidate it endlessly, Third Master Zhu's plan would be completely ruined—commoners outside didn't know, but everyone in the sugar business knew clearly: Guangzhou sugar price was 3.8 taels. Shipping sugar out meant earning money back!
 
 "Third Master! Stop holding out! If this goes on, we won't have food to eat this year!" The fat manager of "Riyuelai" begged bitterly.
 
-"I haven't collected even five thousand *shi* of sugar yet! It all went cheap to the South China Factory!"
+"I haven't collected even 5,000 *shi* of sugar yet! It all went cheap to the South China Factory!"
 
 "What do we do? Looks like they have silver again."
 
@@ -64,19 +64,19 @@ With this silver, South China immediately increased its purchasing intensity. Th
 
 The commotion made Third Master Zhu irritable. He shouted, "What's the noise!" He stood up and glared at everyone. They all involuntarily lowered their voices.
 
-"You lot, charmingly shortsighted!" Third Master Zhu scolded. "Just staring at the few coins in front of you! The knife is already at our necks, yet you're thinking about the profit in your own homes. If we don't finish off South China, in a few years, the sugar-boiling masters begging under the porch of Zou Monk's Temple will be our seniors!"
+"You lot... shortsighted fools!" Third Master Zhu scolded. "Just staring at the few coins in front of you! The knife is already at our necks, yet you're thinking about the profit in your own homes. If we don't finish off South China, in a few years, the sugar-boiling masters begging under the porch of Patriarch Zou's Temple will be our seniors!"
 
 He waved his hand. "Are sugar-boiling masters arrogant? You've all been in this business for decades. Last year, how much silver did it cost to hire a master? Three meals a day, meat at every meal, or he'd walk immediately. This year? Give his whole family bowls of rough rice and he'll work for you day and night! You all want to end up like them?!"
 
 At these words, everyone's faces turned dark. South China's strength was obvious. Whether it was clever contraptions or sorcery, South China had indeed changed the sugar industry situation in Leizhou of the past hundred years. Now South China was pressing step by step, not only getting into sugar boiling but also sticking a foot into the most profitable transportation and sales sector. Judging by the ability South China had already shown, controlling all of Leizhou's sugar exports probably wasn't a daydream.
 
-"Why don't we make peace with South China?" Feng Guangfeng suggested. "Let South China join Haiyi Hall too. Every family gives up a share to South China so everyone can eat. And South China is good at boiling sugar, high yield and good quality. If we cooperate, we might not lose out."
+"Why don't we make peace with South China?" Feng Guangfeng suggested. "Let South China join the Haiyi Guild too. Every family gives up a share to South China so everyone can eat. And South China is good at boiling sugar, high yield and good quality. If we cooperate, we might not lose out."
 
 Everyone buzzed again. This idea didn't sound bad. South China had strong power and unique sugar-boiling skills. Uniting might not be a bad thing.
 
 "You're all confused!" Seeing his calculations about to fail, Third Master Zhu said deeply, "What is South China here for? Isn't it to swallow Leizhou sugar whole! They have wealth and power; would they be willing to share with us?"
 
-"I oppose too!" The young master of "Rixiecheng" also jumped out. "South China haven't fully fledged yet. If we don't take this chance to knock them out, when they are full-fledged, Haiyi Hall will have to change its name to South China Hall!"
+"I oppose too!" The young master of "Rixiecheng" also jumped out. "South China haven't fully fledged yet. If we don't take this chance to knock them out, when they are full-fledged, the Haiyi Guild will have to change its name to South China Guild!"
 
 "Besides," Third Master Zhu knew these people couldn't get past greed, "Leizhou sugar only has this much share. If we give South China a share, how much? Too little, they won't be satisfied. Too much, we lose out."
 
@@ -94,9 +94,9 @@ A while later, someone brought in a man in ragged clothes. This man had large ha
 
 "Humph!" Third Master Zhu looked unhappy. "Silver? You think I run a charity here?"
 
-"Beg Master for mercy!" The man lowered his head. "We... also have no choice. Several hundred mouths to feed. Fifty *liang* of silver, we've been spending it tightly..."
+"Beg Master for mercy!" The man lowered his head. "We... also have no choice. Several hundred mouths to feed. 50 taels of silver, we've been spending it tightly..."
 
-This man was named Lin Zhuang, originally a local sugar-boiling worker. This year, because South China Factory opened, sugar-boiling workers lost jobs in large numbers and livelihoods were difficult. He was elected to present a petition to the *yamen* requesting a ban on South China's machine sugar production, but it was rejected. With no way out, he had to seek help from Third Master Zhu of Haiyi Hall and received fifty *liang* of silver in aid.
+This man was named Lin Zhuang, originally a local sugar-boiling worker. This year, because South China Factory opened, sugar-boiling workers lost jobs in large numbers and livelihoods were difficult. He was elected to present a petition to the *yamen* requesting a ban on South China's machine sugar production, but it was rejected. With no way out, he had to seek help from Third Master Zhu of the Haiyi Guild and received 50 taels of silver in aid.
 
 But this aid wasn't unconditional. Third Master Zhu had instructed him to take men and mix outside the sugar trading houses, looking for opportunities to cause trouble.
 
@@ -108,19 +108,19 @@ But this aid wasn't unconditional. Third Master Zhu had instructed him to take m
 
 Lin Zhuang seemed moved by his words, kowtowed again, and said loudly, "Third Master rest assured. Whether we are trash or not, we'll show Third Master in a few days!"
 
-Third Master Zhu nodded. "Tell everyone, if trouble happens and you get lawsuits, go in and I, Third Master Zhu, will naturally look after you. Haiyi Hall will support your families! For those dead or injured, Haiyi Hall pays the compensation silver!"
+Third Master Zhu nodded. "Tell everyone, if trouble happens and you get lawsuits, go in and I, Third Master Zhu, will naturally look after you. The Haiyi Guild will support your families! For those dead or injured, the Haiyi Guild pays the compensation silver!"
 
 He gave Lin Zhuang a few more instructions. Lin Zhuang's face looked uglier and uglier, but in the end, he nodded.
 
 "Third Master Zhu, leave this to us. But your words must count!"
 
-"When have I, Third Master Zhu, ever not owned up to my words?" Zhu An said seriously, shouting, "Men, bring fifty *liang* of silver for Lin Zhuang first!" He lowered his voice, "After it's done, there will be another reward for you!"
+"When have I, Third Master Zhu, ever not owned up to my words?" Zhu An said seriously, shouting, "Men, bring 50 taels of silver for Lin Zhuang first!" He lowered his voice, "After it's done, there will be another reward for you!"
 
 Lin Zhuang's face flushed, and he responded, "Good, I'll go arrange it now."
 
 Watching Lin Zhuang leave, Third Master Zhu chuckled inwardly. Just this sugar worker causing trouble would be enough for them to swallow.
 
-Then he called a sedan chair to go home, planning to nap before making further plans. However, the arrival of the fifty thousand silver agitated him badly. A sure thing had suddenly developed a twist.
+Then he called a sedan chair to go home, planning to nap before making further plans. However, the arrival of the 50,000 silver agitated him badly. A sure thing had suddenly developed a twist.
 
 "Is South China really not fated to die?" Third Master Zhu suddenly had such a strange thought. He had dominated Hai'an Street for decades. There had been outsiders trying to dip their fingers into this fat meat, and every time he had beaten them off with various methods. Why was South China so hard to chew?
 

@@ -1,12 +1,12 @@
-# Chapter 286: Sweet Port Turbulence — Transporting Silver
+# Chapter 286: Sweet Port Turbulence – Transporting Silver
 
-"And after we send the silver? According to Wen Tong's letter, he probably needs two hundred thousand *liang* to get through this crisis. Even if we borrow from the Gao family, and even if they're willing, that much cash can't be assembled immediately. The Guangzhou Station can ship fifty thousand right away; the other fifty thousand will still take time to raise."
+"And after we send the silver? According to Wen Tong's letter, he probably needs 200,000 taels to get through this crisis. Even if we borrow from the Gao family, and even if they're willing, that much cash can't be assembled immediately. The Guangzhou Station can ship 50,000 right away; the other 50,000 will still take time to raise."
 
 "Is that right? Guangzhou's revenues have been good—and there's the payment from the Gao family..."
 
 "Those are book figures. Nobody keeps that much cash sitting around—not the Gao family, not the Guangzhou Station. Large sums of cash... even if the Guangzhou Station immediately mobilizes local funds, it'll take at least seven or eight days."
 
-"Send whatever we have first. It's better than sitting around," Ma Qianzhu said. "If fifty thousand *liang* gets there, that'll give them at least a few more weeks of cushion. A lot can happen in a few weeks."
+"Send whatever we have first. It's better than sitting around," Ma Qianzhu said. "If 50,000 taels gets there, that'll give them at least a few more weeks of cushion. A lot can happen in a few weeks."
 
 "Tell Guangzhou to prepare the silver. We'll send a ship to pick it up."
 
@@ -14,7 +14,7 @@
 
 "Send the *Ascending Peace Island*. It has an engine—four days round trip should be enough." Ma Qianzhu said with some regret, "Too bad it's back in Lingao now. If it were in Guangzhou, that would be ideal!"
 
-"Should we also buy rice in Guangzhou and ship it? Guangzhou rice is one *liang* three *qian*—there'd be a nice profit margin..."
+"Should we also buy rice in Guangzhou and ship it? Guangzhou rice is 1.3 taels—there'd be a nice profit margin..."
 
 "No, now is not the time," Yan Ming immediately vetoed this proposal. "The more critical the crisis, the more we have to show we have strength. Paying with rice might work normally. Right now, everything must be done in silver—give the rumor-mongers no opening. Otherwise, once confidence collapses, it will trigger an attack on South China."
 
@@ -24,7 +24,7 @@
 
 "Actually, I think we should just mobilize the Special Reconnaissance Team. Bei Wei is already in Leizhou. Just go in and decapitate their leadership..."
 
-"Don't need to go that far yet. It would make things blow up. They're not just commoners either. If they want to get serious, the South China Sugar Factory isn't necessarily their match—we still don't have the advantage in Leizhou." Wen Desi thought military intervention seemed inappropriate. Though the Special Reconnaissance Team could certainly smash this "Haiyi Hall" that Wen Tong reported on, these people might be future partners. The ideal approach was still to tame them through commercial means. Only then would they truly submit to the Transmigration Collective.
+"Don't need to go that far yet. It would make things blow up. They're not just commoners either. If they want to get serious, the South China Sugar Factory isn't necessarily their match—we still don't have the advantage in Leizhou." Wen Desi thought military intervention seemed inappropriate. Though the Special Reconnaissance Team could certainly smash this "Haiyi Guild" that Wen Tong reported on, these people might be future partners. The ideal approach was still to tame them through commercial means. Only then would they truly submit to the Transmigration Senate.
 
 "Let's prepare for both possibilities." Ma Qianzhu lived up to his reputation as a hardliner. "Work for a peaceful resolution, but if that fails, we're not here to play commercial war games. A quick and direct solution is also an option."
 
@@ -32,7 +32,7 @@
 
 That evening, Bopu Port.
 
-Since morning, the seas had gradually grown rougher, reaching Force 5. Waves were high and crashing. By noon, conditions worsened. Not only the fishing boats working nearby, but even the Navy vessels that had been performing patrol and fishery protection—or perhaps more accurately, fishing protection racket—duties in the outer waters were ordered back to port. Inside Bopu Port, besides the vessels belonging to the Maritime Forces, a specially designated water area also accommodated quite a few fishing boats and passing vessels that had temporarily put in to weather the storm. Since a new lighthouse had been built on Bopu Point, and the Transmigration Collective had implemented scientific port construction and management, this had gradually become an important anchorage for transiting vessels.
+Since morning, the seas had gradually grown rougher, reaching Force 5. Waves were high and crashing. By noon, conditions worsened. Not only the fishing boats working nearby, but even the Navy vessels that had been performing patrol and fishery protection—or perhaps more accurately, fishing protection racket—duties in the outer waters were ordered back to port. Inside Bopu Port, besides the vessels belonging to the Maritime Forces, a specially designated water area also accommodated quite a few fishing boats and passing vessels that had temporarily put in to weather the storm. Since a new lighthouse had been built on Bopu Point, and the Senate had implemented scientific port construction and management, this had gradually become an important anchorage for transiting vessels.
 
 In the afternoon, it began to rain. The torrential downpour seemed to herald the onset of Lingao's rainy season. The sky darkened rapidly, turning as gloomy as dusk. All the lights in the Bopu camp were switched on. Except for sentries still standing watch, there was no activity outside the buildings. Even the usually bustling shipyard slipways had fallen silent. Besides the steam and coal smoke rising from the boiler room, there was only the rumbling of steam engines driving the drainage pumps. Occasionally, a few figures in rain gear would dash from one building to another.
 
@@ -42,7 +42,7 @@ Through the pitch-black curtain of rain, a light suddenly tore through the murk 
 
 An ID was handed out. He took it and, like a machine, went through the "identity check" procedure that his instructors had drilled into his head. Finally, he returned the ID to the vehicle. He stood at attention and saluted.
 
-"You may pass, People's Commissioner, Sir!"
+"You may pass, Commissar, Sir!"
 
 The Jeep's wheels spun for a moment, then headed into the camp interior. The roads inside the camp had been roughly surfaced with coal slag and steel slag, leaving no puddles. The going was quick. Soon the vehicle arrived near a modified shipping container house by the dock.
 
@@ -50,11 +50,11 @@ Light shone from the building's windows. The person in the car jumped down nimbl
 
 Everyone inside stood up when they saw him enter, snapping to attention with a sharp rustle. Everyone wore the First Year naval uniforms.
 
-"Sit!" The newcomer was none other than Wu De. Having a People's Commissioner of his rank take charge was a last resort. The transmigrator naval veterans had either left with the expedition fleet or were needed to operate the fishing trawlers defending Bopu. With no suitable candidates left, Wu De had volunteered for this mission. After all, when it came to experience operating motor sailing vessels, no one had more than this former Navy officer and son of a fishing family.
+"Sit!" The newcomer was none other than Wu De. Having a Commissar of his rank take charge was a last resort. The transmigrator naval veterans had either left with the expedition fleet or were needed to operate the fishing trawlers defending Bopu. With no suitable candidates left, Wu De had volunteered for this mission. After all, when it came to experience operating motor sailing vessels, no one had more than this former Navy officer and son of a fishing family.
 
 Several nautical charts were spread on the table, along with the 24-hour weather forecast from the Lingao weather station—a modest operation, but reasonably accurate for short-term local forecasts.
 
-"People's Commissioner! Maritime Forces, Bopu Port Master and Bopu Fortress Area..." Li Di stood up and was about to recite his full title.
+"Commissar! Maritime Forces, Bopu Port Master and Bopu Fortress Area..." Li Di stood up and was about to recite his full title.
 
 "Forget the formalities—save that for when we have time. Let's talk about the mission." Wu De waved his hand. "Report! What's the status of the *Ascending Peace Island*?"
 
@@ -82,7 +82,7 @@ Several nautical charts were spread on the table, along with the 24-hour weather
 
 "Yes, sir!" Li Di immediately phoned the school: pull six of the older trainees from the second-year naval trainee squad.
 
-"All transmigrator crew members are to be issued modern weapons," Wu De gave instructions. "One hundred rounds per person, plus two grenades."
+"All transmigrator crew members are to be issued modern weapons," Wu De gave instructions. "100 rounds per person, plus two grenades."
 
 They continued studying the charts and discussing the route. After over an hour of discussion, Wu De asked, "What's the weather looking like?"
 
@@ -114,13 +114,13 @@ After everyone had left, Wu De organized his written luggage from the car, chang
 
 For him, sea conditions weren't the greatest enemy—the real concern was the security of the silver once it was on board. Such a huge sum of silver couldn't be loaded unnoticed. If some group targeted this wealth and tried a hijacking at sea, with the *Ascending Peace Island*'s armament, they could handle two or three ships. Any more would be a struggle. Then they'd have no choice but to run at full speed. Don't let the diesel engine or propeller have any problems...
 
-Through the window glass, he could see the lights of ships in the harbor flickering through the wind and rain. The tall crane also had position lights—lanterns marking the height in the air, as per the safety regulations from another spacetime. With a crane, shipbuilding would be faster and easier—too bad there still weren't enough people.
+Through the window glass, he could see the lights of ships in the harbor flickering through the wind and rain. The tall crane also had position lights—lanterns marking the height in the air, as per the safety regulations from another timeline. With a crane, shipbuilding would be faster and easier—too bad there still weren't enough people.
 
 While he was lost in thought, someone called from the doorway. "Report!"
 
 "What is it?" Wu De turned around and saw a sailor standing there.
 
-"Is this... Commissioner Wu?"
+"Is this... Commissar Wu?"
 
 "That's me."
 

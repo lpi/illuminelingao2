@@ -1,18 +1,18 @@
-# Chapter 306 - Sweet Port Crisis: Battle of Juhua Islet (Part 2)
+# Chapter 306: Sweet Port Turbulence — Battle of Chrysanthemum Islets (Part 2)
 
 Xi Yazhou checked his watch. Exactly twenty minutes had passed since he sent the second telegram.
 
-"You guys are brutally punctual!" Xi Yazhou cursed, relieved. Only then did he realize he was soaked in cold sweat.
+"You guys are damn punctual!" Xi Yazhou cursed, relieved. Only then did he realize he was soaked in cold sweat.
 
-"First Mate Le, send marines to prepare to board the derelicts. Safety first!" He took off his steel helmet. It bore several dents from hard impacts; the thing was useful, or his skull would have blossomed long ago.
+"First Mate Le, send marines to prepare to board the derelicts. Safety first!" He took off his steel helmet. It bore several dents from hard impacts; the thing was useful, or his head would have been smashed open long ago.
 
 As his mind and body relaxed, he suddenly felt a sharp pain in his leg. Looking down, he saw a large bloodstain on his trousers. A slight movement brought intense pain.
 
-"I'm actually wounded—"
+"I'm actually wounded..."
 
-Hearing Xi Yazhou was hurt, Le Lin hurried over with a medic. Although Xi Yazhou had deep reservations about the native medics, he couldn't be picky now. The medic tore open his trousers. There was a bloody gouge on his calf, flesh torn open, bleeding considerably—likely caused by shrapnel. Watching the medic skillfully use chopsticks to hold an alcohol cotton ball for disinfection, Xi Yazhou couldn't help but think of scenes from movies about Norman Bethune.
+Hearing Xi Yazhou was hurt, Le Lin hurried over with a medic. Although Xi Yazhou had deep reservations about the native medics, he couldn't be picky now. The medic cut open his trouser leg. There was a bloody gouge on his calf, flesh torn open, bleeding considerably—likely caused by shrapnel. Watching the medic skillfully use chopsticks to hold an alcohol cotton ball for disinfection, Xi Yazhou couldn't help but think of scenes from movies about Norman Bethune.
 
-The medic examined the wound and concluded no foreign object was embedded; applying medicine and bandaging would suffice, no stitching required. Xi Yazhou felt his leg wasn't seriously impaired. But he worried about tetanus from the shrapnel. Though the medic applied some ointment, who knew what it was? Xi Yazhou knew the Ministry of Health and the Agricultural Committee's biological lab had set up a pharmaceutical factory, making both TCM reagents and Western medicines. He was highly skeptical of the stuff coming out of Shi Niaoren's workshop. He decided that upon returning to Lingao, he would go to the hospital for a checkup, or at least get a tetanus shot...
+The medic examined the wound and concluded no foreign object was embedded; applying medicine and bandaging would suffice—no stitching required. Xi Yazhou felt his leg wasn't seriously impaired. But he worried about tetanus from the shrapnel. Though the medic applied some ointment, who knew what it was? Xi Yazhou knew the Health Department and the Agricultural Commission's biological lab had set up a pharmaceutical factory, making both traditional Chinese medicine and Western medicines. He was highly skeptical of the stuff coming out of Shi Niaoren's workshop. He decided that upon returning to Lingao, he would go to the hospital for a checkup, or at least get a tetanus shot...
 
 Despite these thoughts, his face maintained a resolute expression, though he grimaced slightly at the sting of alcohol during the cleaning.
 
@@ -24,13 +24,13 @@ The two trawlers followed at a leisurely pace. The commander, adhering to the pl
 
 "Lingering ghosts!" Gu Dachun spat. He had already fled; why were these Australians still chasing so relentlessly? Even if they were government troops, the ships and men abandoned earlier should have been enough for them to claim credit.
 
-"It's fine! We'll be in the Chrysanthemum Islets soon. No one can get through that maze of bays and shoals but us." Gu Dachun was slightly relieved seeing the enemy wasn't gaining, though following closely.
+"It's fine! We'll be in the Chrysanthemum Islets soon. No one can get through that maze of bays and shoals but us." Gu Dachun was slightly relieved seeing the enemy wasn't gaining, though they followed closely.
 
 Gu Dachun took the helm himself and was the first to rush into the Chrysanthemum Islets. This was familiar territory to him; he knew exactly where every reef and sandbar lay.
 
 At the artillery position at Cat's Leap Pass, Ying Yu looked through his telescope. He saw the fleet reported by telegram minutes ago: six single- or twin-masted sailing ships speeding among the reefs, bays, and channels. Their skill in navigating such hazards amazed him. If not for Wu De's ambush plan, the Navy might not have dared chase them in here.
 
-Now, on the islets and reefs near Cat's Leap Pass, artillerymen had deployed four batteries totaling ten cannons. The position Ying Yu commanded had been surveyed by Wu De personally—conditions were excellent: large area, flat terrain. Thus, it hosted the heaviest 12-pounder cannons, commanded by Ying Yu himself. The command post was also located here.
+Now, on the islets and reefs near Cat's Leap Pass, artillerymen had deployed four batteries totaling ten cannons. The position Ying Yu commanded had been surveyed by Wu De personally—conditions were excellent: large area, flat terrain. Thus, it hosted the heaviest twelve-pounder cannons, commanded by Ying Yu himself. The command post was also located here.
 
 Three days ago, guided by Wang the Bearded, the Navy had transported the disassembled cannons here using light boats. Then, according to the survey, they hauled the guns onto the islets one by one. Using makeshift derricks and pulleys, the sailors and artillerymen overcame immense difficulties to move tons of cannon parts and ammunition onto four rocky islets. They constructed emplacements and camouflage, then began the long wait.
 
@@ -48,7 +48,7 @@ The sea breeze picked up, and the waves grew turbulent.
 
 Just then, he saw a flash of fire from a nearby rocky islet, followed by the roar of a cannon.
 
-Following the first shot aimed and fired by Ying Yu himself, the other batteries fired in sequence at intervals of seconds, allowing observers to accurately judge the impact points. Gu Dachun's flagship, leading the way, took concentrated fire. A 12-pound shell hit the deck directly, sending wood splinters flying and eliciting wails of agony. Gu Dachun was killed in this bombardment, struck by a piece of searing iron.
+Following the first shot aimed and fired by Ying Yu himself, the other batteries fired in sequence at intervals of seconds, allowing observers to accurately judge the impact points. Gu Dachun's flagship, leading the way, took concentrated fire. A twelve-pound shell hit the deck directly, sending wood splinters flying and eliciting wails of agony. Gu Dachun was killed in this bombardment, struck by a piece of searing iron.
 
 "Correction!" Ying Yu observed the fall of shot through his telescope. This was a perfect killing ground: the maximum distance between the islets serving as batteries was less than 500 meters, the minimum barely 100. The channel was narrow with almost no room to maneuver. The maze pirates used for escape had become their dead end. After a few initial misses, the gunners quickly corrected based on the splashes and surrounding landmarks. Their fire grew increasingly accurate. Although white smoke obscured the view from the batteries, Ying Yu had placed hidden spotters on adjacent rocks to relay impact data via walkie-talkie.
 
@@ -70,7 +70,7 @@ Tranquility returned to the sea. The *Great Whale* lay at anchor, repairing mast
 
 In this battle, the *Great Whale* suffered eight dead and twenty wounded. The bodies of the fallen were wrapped in white cloth and laid along the gunwale, a cannonball tied to each man's feet.
 
-"Pity we don't have a national flag yet, otherwise we should drape one over each of them," Xi Yazhou said with emotion. Although casualties were inevitable in war, seeing soldiers trained by the transmigrators themselves die was sorrowful.
+"Pity we don't have a national flag yet; otherwise, we should drape one over each of them," Xi Yazhou said with emotion. Although casualties were inevitable in war, seeing soldiers trained by the transmigrators themselves die was sorrowful.
 
 "Sound the bugle!" As the mournful bugle call rang out, the bodies were slid one by one into the sea. All sailors and gunners saluted.
 
@@ -81,3 +81,5 @@ The two trawlers returned from the Chrysanthemum Islets. Seeing the sea burial u
 "Reply: 'Salute to all officers and men of the Glorious Navy!'" Xi Yazhou said.
 
 The two trawlers, one ahead and one behind, escorted the *Great Whale* as it sailed toward Lingao. Behind them, black smoke still rose from the burning pirate fleet in the Chrysanthemum Islets.
+
+**(End of Chapter)**

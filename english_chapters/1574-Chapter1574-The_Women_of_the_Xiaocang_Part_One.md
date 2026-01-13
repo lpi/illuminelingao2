@@ -58,7 +58,7 @@ Judging by the strange intonation, it was definitely a foreigner. But even Miss 
 
 Although they had never met, Lin Ziqi knew this blonde girl must be the Portuguese maiden who had caused quite a stir at the auction, attracting bids from several Senators before finally being bought by Lin Hanlong—this had become an urban legend in the Senate.
 
-"Let me introduce everyone. This is Sonia Lili Sharpel."
+"Let me introduce everyone. This is Sonia Lily Sharpel."
 
 "A naturalist from Lisbon," the girl quickly added before Qian Duoduo could finish.
 

@@ -1,16 +1,16 @@
-# Chapter 311 - Sweet Port Crisis: Special Ops Equipment
+# Chapter 311: Sweet Port Turbulence — Special Ops Equipment
 
 "How did the fire start earlier?" Chang Shide asked Ma Sanqiang again.
 
 "Reporting to the owner: it was the little ones being careless with candles, causing the owner to worry," Ma Sanqiang replied respectfully.
 
-"Be careful in the future. Clean up the fire scene, and be careful!"
+"Be careful in the future. Clean up the scene."
 
-"Yes," Ma Sanqiang responded, turned around, and shouted loudly, "Everyone be careful with fire in the future, don't let it catch fire again!"
+"Yes," Ma Sanqiang responded, turned around, and shouted loudly, "Everyone watch the fire carefully from now on, don't let it happen again!"
 
 "How badly is the child hurt?"
 
-"Not lightly," Ma Sanqiang looked worried. "We've already sent someone to fetch a doctor."
+"It's bad," Ma Sanqiang looked worried. "We've already sent someone to fetch a doctor."
 
 "Go to the accounting room and draw twenty taels of silver for expenses. Hire a better doctor." Chang Shide turned and walked away.
 
@@ -20,7 +20,7 @@ Liao Daxing caught up a few steps and whispered, "Owner, you must think thrice a
 
 "Mm." Chang Shide didn't explain much.
 
-"People like them aren't afraid of beatings or killing; even the yamen can't do anything about them. But their skill in causing trouble is number one under heaven. Why forge this grudge with them?"
+"People like them aren't afraid of beatings or death; even the *yamen* can't do anything about them. But their skill in causing trouble is unrivaled under heaven. Why forge this grudge with them?"
 
 "Forge a grudge?" Chang Shide gave a profound smile. "It won't happen. No grudge will be forged." Saying this, he walked inside on his own.
 
@@ -28,7 +28,7 @@ That was the inner courtyard; no one except the owners' confidants could enter. 
 
 Chang Shide stood in the courtyard for a moment, breathing in the sugary, slightly choking air of the sugar refinery. A moment later, one of Beiwei's indigenous team members quietly approached.
 
-"Chief Bei asks you, now that the situation has been interrogated out, what do you plan to do with the person? Send him back to Lingao or—"
+"Chief Bei asks: now that we've interrogated the situation out of him, what do you plan to do? Send him back to Lingao or—"
 
 "Dispose of him immediately," Chang Shide said. "I'm heading over now."
 
@@ -80,7 +80,7 @@ The rest quickly vaulted over the wall and swiftly opened a small door in the wa
 
 "We knew you were coming when you ran out of the street intersection," Beiwei turned off the flashlight and walked out from the shadows. "'Clear' could have been shouted a bit louder."
 
-The leader didn't blush at all, brazenly saying, "Training the team, you know, having some modern awareness."
+The leader didn't blush at all, brazenly saying, "Training the team, you know, building some modern awareness."
 
 "Formalism kills people," Beiwei said. "Come in."
 
@@ -88,7 +88,7 @@ The visitor was named Chen Sigen, dressed in standard Special Recon Team gear, t
 
 This time, he brought ten soldiers to reinforce Beiwei—the Executive Committee considered that Beiwei had only brought three or four men to Leizhou. The South China factory now had plenty of sugar and silver; if any situation arose requiring handling, the hastily formed militia would be useless.
 
-These soldiers included Special Recon Team cadets and sharp soldiers draftees from various units for rotation training. They were the most elite soldiers of the indigenous troops.
+These soldiers included Special Recon Team cadets and sharp soldiers drafted from various units for rotation training. They were the most elite soldiers of the indigenous troops.
 
 "Let the soldiers shower and rest." Beiwei looked at everyone, covered in dirt and salt stains. "Tell Wen Qing to ask the kitchen to give them something to eat."
 
@@ -102,7 +102,7 @@ Beiwei could only smile bitterly. It was completely dark after 7 PM, and now it 
 
 As he spoke, a black-clad man came in panting like a bull. It was Xu Yingjie from the Industrial and Energy Committee. Running in the wild in the dark was a first for him. And for safety, he carried the box containing secret equipment himself—it didn't feel like much at first, but later became dead heavy.
 
-Both men went to shower before returning to Beiwei's command post. Beiwei lit another candle laid out, and invited Chen Tianxiong over. Chang Shide sent A-Luo to bring a lot of food. Chen Sigen and Xu Yingjie were starving and wolfed down the simple food.
+Both men went to shower before returning to Beiwei's command post. Beiwei lit another candle, and invited Chen Tianxiong over. Chang Shide sent A-Luo to bring a lot of food. Chen Sigen and Xu Yingjie were starving and wolfed down the simple food.
 
 "How is the situation?" Chen Sigen asked.
 
@@ -116,13 +116,13 @@ Chen Tianxiong said, "We'll make a move very soon. You came just in time. I was 
 
 Xu Yingjie grinned: "Don't look at my treasures, look at this." He opened two rattan suitcases placed under the table to show everyone.
 
-"This is the latest emergency equipment kit designed by the Weaponry Group of the Industrial and Energy Committee." Speaking of this, Xu Yingjie turned his head and asked with a smile, "Chen Tianxiong, you've read 'The Deer and the Cauldron', right? You know Duke Wei's life-saving three-piece set?"
+"This is the latest emergency equipment kit designed by the Weaponry Group of the Industrial and Energy Committee." Speaking of this, Xu Yingjie turned his head and asked with a smile, "Chen Tianxiong, you've read *The Deer and the Cauldron*, right? You know Duke Wei's life-saving three-piece set?"
 
-"The Invulnerable Silkworm Vest, the dagger that slices iron like mud, and the 'Holding Sand Shooting Shadows'?" Chen Tianxiong said, "If you don't count Shuang'er... Except for the messy hidden weapons, I've already prepared a set for myself. Has the Industrial Committee developed stab-proof vests?"
+"The Invulnerable Silkworm Vest, the dagger that slices iron like mud, and the 'Sand-Blasting Shadow-Shooter'?" Chen Tianxiong said. "If you don't count Shuang'er... Except for the messy hidden weapons, I've already prepared a set for myself. Has the Industrial Committee developed stab-proof vests?"
 
-Xu Yingjie picked up an 18cm long tube from the box and said, "Since you already have a stab-proof vest, I won't introduce the chainmail. This is the sleeve arrow developed by the Weaponry Group. You must have heard of it. It holds 6 steel needles internally, can penetrate 2mm iron plate within 10 meters, powered by gunpowder. Very quiet."
+Xu Yingjie picked up an 18cm long tube from the box and said, "Since you already have a stab-proof vest, I won't introduce the chainmail. This is the sleeve arrow developed by the Weaponry Group. You must have heard of it. It holds six steel needles internally, can penetrate 2mm iron plate within ten meters, powered by gunpowder. Very quiet."
 
-"Gunpowder powered, do you light it with a fuse?"
+"Gunpowder powered—do you light it with a fuse?"
 
 "There is a small revolving igniter. Press it once to fire one shot. However, there is a delay after pressing, about two seconds..."
 
@@ -132,7 +132,7 @@ Xu Yingjie picked up an 18cm long tube from the box and said, "Since you already
 
 Chen Tianxiong's interest grew. He turned it over and over for a while and asked, "Where is the bullet casing?"
 
-Chang Shide spoke up: "It's just like a Roman candle firework: ammo is loaded sequentially in a tube, separated by clay cakes."
+Chang Shide spoke up: "It's just like a Roman candle: ammo is loaded sequentially in a tube, separated by clay cakes."
 
 "Old Chang, you know about this?"
 
@@ -140,13 +140,13 @@ Chang Shide spoke up: "It's just like a Roman candle firework: ammo is loaded se
 
 "Isn't that just an iron tube fire lance?" Chen Tianxiong said. "Putting it in my sleeve, I'd be afraid of blowing my arm off."
 
-"It won't. The safety is very good. According to our tests, its success rate is as high as 87.53%!" He added, "Even if it explodes, it'll at most scorch some skin..."
+"It won't. The safety is remarkably high. According to our tests, its success rate is 87.53%!" He added, "Even if it explodes, it'll at most scorch some skin..."
 
 "Alright, alright, stop blowing smoke. I definitely won't use this thing," Chen Tianxiong refused sternly.
 
 Beiwei couldn't help saying, "Even if you guys aren't willing to make Derringers, at least make some flintlock pistols. What counts as this?"
 
-Xu Yingjie didn't mind. He took out another bag and poured out several oval balls the size of pigeon eggs, wrapped in various colored papers. "This white one is a smoke bomb, yellow is sulfur, blue is tear gas, and red is the most dangerous—a small high-explosive grenade, exclusive to Intelligence and Special Recon teams! The power is relatively small, but definitely easier to use than the No. 1, 2, and 3 grenades equipping the New Army. Tear the outer package before use, light the black surface part with an open flame. It has a 5-second delay. This thing has a drawback: it must be kept dry. The packaging must remain intact. So," he pulled out a bamboo tube, "this is a dedicated storage container. Each tube holds three, and the lid gaps are sealed with wax."
+Xu Yingjie didn't mind. He took out another bag and poured out several oval balls the size of pigeon eggs, wrapped in various colored papers. "This white one is a smoke bomb, yellow is sulfur, blue is tear gas, and red is the most dangerous—a small high-explosive grenade, exclusive to Intelligence and Special Recon teams! The power is relatively small, but definitely easier to use than the No. 1, 2, and 3 grenades equipping the New Army. Tear the outer package before use, light the black surface part with an open flame. It has a five-second delay. This thing has a drawback: it must be kept dry. The packaging must remain intact. So," he pulled out a bamboo tube, "this is a dedicated storage container. Each tube holds three, and the lid gaps are sealed with wax."
 
 "This is a bit like ninja equipment," Chen Tianxiong commented. "Just that lighting it is troublesome. Better than nothing."
 
@@ -158,9 +158,9 @@ The mouth of the porcelain bottle was stopped very tightly and sealed with wax.
 
 "I added white phosphorus to this incendiary bomb. It catches fire when it smashes. No need to light a cloth strip beforehand. But be extremely careful normally! If it breaks, it's a disaster," he urged.
 
-Finally, he took out a wine-bottle-shaped object from the box and said, "This is an epoch-making product, the ancestor of the RPG, a handheld shotgun cannon. Hardwood structure, 30-meter range, can create a kill zone of 5 meters radius, similar to a modern shotgun effect. Disposable. This is a brand new idea from the Weaponry Group! Impressive, right?"
+Finally, he took out a wine-bottle-shaped object from the box and said, "This is an epoch-making product, the ancestor of the RPG: a handheld shotgun cannon. Hardwood structure, thirty-meter range, can create a kill zone of five meters radius, similar to a modern shotgun effect. Disposable. This is a brand new idea from the Weaponry Group! Impressive, right?"
 
-"Japanese ninjas have a weapon called a 'hand cannon' (handheld ozutsu), which is about the same as yours."
+"Japanese ninjas have a weapon called a 'hand cannon' (handheld *ōzutsu*), which is about the same as yours."
 
 "Is that so? We'll just exterminate the ninjas later," Xu Yingjie said nonchalantly.
 
@@ -169,3 +169,5 @@ Finally, he took out a wine-bottle-shaped object from the box and said, "This is
 Xu Yingjie nodded and said: "You can rest assured about this. It has enough strength for one shot."
 
 Besides these, there were a dozen pyrotechnic signalers and illumination rockets. Though small, they were very useful. Seeing these things, Chen Tianxiong, besides lamenting everyone's creativity, could see that Lingao's industrial capability had stepped up another level. Many things required chemical products. It seemed the Industrial and Energy Committee was very diligent; engineering men were indeed pragmatic.
+
+**(End of Chapter)**

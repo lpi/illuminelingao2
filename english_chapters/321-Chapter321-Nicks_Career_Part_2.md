@@ -2,7 +2,7 @@
 
 As time passed, the material conditions of the farm gradually improved. Nick's horse breeding career also began to flourish. The farm rebuilt permanent stables according to horse breeding requirements, established a dedicated water supply system for horses, and fenced off a small piece of land as a paddock for horses to move freely.
 
-To solve the problem of concentrated feed, he visited the Planning Committee several times and received permission to include the purchase or requisition of oats, alfalfa, and other bean miscellaneous grains in the procurement list. Wu Nanhai also promised to include these feed varieties in the planting plan. Throughout the winter, he was busy finding suitable feed for the horses. To let them breed in spring, he had to fatten up the stallions and mares—feeding them only grass would merely keep them alive.
+To solve the problem of concentrated feed, he visited the Planning Committee several times and received permission to include the purchase or requisition of oats, alfalfa, and other legumes and miscellaneous grains in the procurement list. Wu Nanhai also promised to include these feed varieties in the planting plan. Throughout the winter, he was busy finding suitable feed for the horses. To let them breed in spring, he had to fatten up the stallions and mares—feeding them only grass would merely keep them alive.
 
 Fortunately, after capturing Gou Family Village, there were many miscellaneous grains in the seized provisions. Nick treasured them like gems. He pestered Ma Qianzhu for a whole day and finally got his hands on all bean varieties except soybeans, mung beans, and red beans—including the bean dregs left over from future tofu making, which he also told Wu Nanhai to count as horse feed.
 
@@ -42,7 +42,7 @@ Nick calmed everyone down and asked a boy working in the stable to lead Da Tie b
 
 "Washing horse hooves requires the technique of grabbing the hoof," Nick said. "Little Tartar, you come and brush 'Celeron's' hoof."
 
-These horses collected from this timeline were all named after Intel and AMD processors. The natives just couldn't figure out why a perfectly good horse wasn't called Sai Hu (Rivalling Tiger) or Sai Long (Rivalling Dragon), but had to be called "Sai Yang" (Rivalling Sheep/Celeron). Could it be that Australian sheep ran very fast?
+These horses collected from this timeline were all named after Intel and AMD processors. The natives just couldn't figure out why a perfectly good horse wasn't called "Sai Hu" (Rivalling Tiger) or "Sai Long" (Rivalling Dragon), but had to be called "Sai Yang" (Celeron/Rivalling Sheep). Could it be that Australian sheep ran very fast?
 
 "Yes!" Little Tartar answered loudly and led "Celeron" over.
 
@@ -78,7 +78,7 @@ Nick then guided the others for a while, inspected the horses exercising in the 
 
 The tall stable was one of the landmark buildings of the farm. Not only did the local natives click their tongues in wonder when they saw it, but even the transmigrators were full of curiosity about this building. The entire building was a brick-and-wood structure, long and narrow, with a high pointed roof. Ventilation and lighting were very good. The floors of the double-row stables were all compacted lime-sand-clay mixture. The bedding straw was changed daily to ensure the cleanliness of the stable—lacking veterinary drugs, they had to strengthen hygiene measures to ensure the horses got sick less or not at all. Yang Baogui also sprinkled lime daily on the ground at the entrance and exit of the stable as a simple disinfection measure.
 
-Since the number enough horses increased, Nick also had more hands under him. He despised the people Wu De found among the immigrant natives who claimed to have horse-raising experience as ignorant; many of their horse-raising experiences were completely wrong. So he simply didn't want any of them.
+Since the number of horses increased, Nick also had more hands under him. He despised the people Wu De found among the immigrant natives who claimed to have horse-raising experience as ignorant; many of their horse-raising methods were completely wrong. So he simply didn't want any of them.
 
 "Correcting mistakes is harder than starting from scratch on a blank sheet of paper."
 
@@ -100,7 +100,7 @@ Suddenly the phone rang; it was Yang Baogui calling.
 
 "Come to the Lotus Pavilion for lunch, Wu Nanhai is treating."
 
-The Lotus Pavilion was a dedicated venue for corruption in the Demonstration Farm. Beside it was a small lake now planted full of lotus roots, so everyone called it that.
+The Lotus Pavilion was a dedicated venue for "corruption" (feasting) in the Demonstration Farm. Beside it was a small lake now planted full of lotus roots, so everyone called it that.
 
 "Why treat for no reason?"
 

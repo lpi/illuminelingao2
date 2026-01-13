@@ -1,4 +1,4 @@
-# Chapter 308 - Sweet Port Crisis: Suing for Peace
+# Chapter 308: Sweet Port Turbulence — Suing for Peace
 
 This meant, naturally, that apart from a small faction closely aligned with Master Zhu, he represented the attitude of the majority of sugar firms.
 
@@ -8,7 +8,7 @@ Setting aside the truth of this statement, Feng Guangfeng's arrival at least ind
 
 Feng Guangfeng hesitated for a moment before revealing the secret discussions among the many sugar firms of the Haiyi Guild over the past few days.
 
-Except for Master Zhu's Riyicheng, all other firms in the Haiyi Guild now believed it was time to make peace with the South China factory. The immense strength the factory had displayed in mobilizing capital and dealing with pirates made them clearly realize that Master Zhu's attempt to strangle them was like a mantis trying to stop a chariot.
+Except for Master Zhu's Riyicheng, all other firms in the Haiyi Guild now believed it was time to make peace with the South China factory. The immense strength the factory had displayed in mobilizing capital and dealing with pirates made them clearly realize that Master Zhu's attempt to strangle them was akin to a mantis trying to stop a chariot.
 
 Therefore, they proposed a truce. The Haiyi Guild would accept South China Sugar as a member, enjoying all the privileges of the trade: hereafter, the company could acquire sugar in Leizhou as it pleased, provided it followed the guild's agreed pricing, without obstruction from other members; likewise, their sugar could be shipped out freely, with no interference from the guild.
 
@@ -18,31 +18,31 @@ In return, they hoped South China Sugar would lower its acquisition price to 1.8
 
 Wen Tong thought these conditions were absurd—this was suing for peace? Offering a seat in the Haiyi Guild was a great concession? As for free acquisition and shipping, wasn't South China Sugar free now? Of course, this "freedom" had been won by the Transmigration Group's guns. The Great Ancestor's saying "Political power grows out of the barrel of a gun" truly pierced the essence of things.
 
-"Boss Feng!" Wen Tong thought for a moment. "This is strange talk! The acquisition of sugar stocks is a matter of the Haiyi Guild lowering prices itself. What does it have to do with us? If you want to buy sugar now, just raise the price back up. We promise not to raise prices further, anyway."
+"Boss Feng!" Wen Tong thought for a moment. "This is curious logic! The acquisition of sugar stocks is a matter of the Haiyi Guild lowering prices itself. What does it have to do with us? If you want to buy sugar now, just raise the price back up. We promise not to raise prices further."
 
-"This—" Feng Guangfeng was speechless. The argument was well-founded and irrefutable. He, too, felt that asking them to adjust prices was hard to justify.
+"This—" Feng Guangfeng was speechless. The argument was well-founded and irrefutable. He, too, felt that asking them to adjust prices was difficult to justify.
 
-"...Is joining the Haiyi Guild so rare a privilege?" Wen Tong laughed. "Isn't our factory doing just fine so far? You've seen the end of those who tried crooked schemes. You people, naive! Truly too naive! To still harbor such thoughts at this stage!" He laughed loudly, displaying an aura of command. "If my employer didn't wish to be benevolent to the utmost, the Haiyi Guild would have been ashes long ago."
+"...Is joining the Haiyi Guild so rare a privilege?" Wen Tong laughed. "Isn't our factory doing just fine so far? You've seen the end of those who tried crooked schemes. You people! Naive! Truly too naive! To still harbor such thoughts at this stage!" He laughed loudly, displaying an aura of command. "If my employer didn't wish to be benevolent to the utmost, the Haiyi Guild would have been ashes long ago."
 
 This laugh was hearty and unrestrained, sweeping away the gloom of months of anxiety. Even Zhou Shizhai, whose martial cultivation usually kept him "unmoved," smiled.
 
 Had this been said half a month ago, Feng Guangfeng might have taken it for bluster. Now, his back was soaked in sweat.
 
-"Yes, yes," Feng Guangfeng bowed again. "Regarding past events, we were blind, our hearts clouded by lard! We offered great offense! But we still ask the managers to facilitate this matter. The large and small members of the Haiyi Guild will be indebted!"
+"Yes, yes," Feng Guangfeng bowed again. "Regarding past events, we were blind, our hearts clouded by grease! We offered great offense! But we still ask the managers to facilitate this matter. The large and small members of the Haiyi Guild will be indebted!"
 
-This was a dilemma. An outright refusal might unite them more closely, forcing them to follow Zhu An to the bitter end. It would also lose the perfect opportunity to absorb the Haiyi Guild. But agreeing would mean breaking faith with the Leizhou farmers.
+This was a dilemma. An outright refusal might unite them more closely, forcing them to follow Master Zhu to the bitter end. It would also lose the perfect opportunity to absorb the Haiyi Guild. But agreeing would mean breaking faith with the Leizhou farmers.
 
 This matter required caution. Wen Tong and Chen Tianxiong exchanged glances. Wen Tong said, "How about this: Boss Feng, please return for now. We need to discuss this before making a decision."
 
-"Yes, then this lowly one awaits good news." Feng Guangfeng knew such a major matter wouldn't receive an immediate promise. Terms would likely be set, which was expected.
+"Yes, then this humble one awaits good news." Feng Guangfeng knew such a major matter wouldn't receive an immediate promise. Terms would likely be set, which was expected.
 
 Chen Tianxiong nodded. "If we need to find you, where should we go?"
 
 "Go to the Dachang Rice Shop and ask Boss Zhu to pass a message. He is my fellow townsman."
 
-"Boss Zhu... isn't he from Qinzhou?" Chen Tianxiong asked deliberately. "I recall the owners and shopkeepers of the Haiyi Guild are mostly from Swatow and Canton."
+"Boss Zhu... isn't he from Qinzhou?" Chen Tianxiong asked deliberately. "I recall the owners and shopkeepers of the Haiyi Guild are mostly from Shantou and Guangzhou."
 
-"I am not from there." Feng Guangfeng didn't hide it, explaining how, as a clerk at Richangji, he was chosen by the owner to marry into the family and inherit the business.
+"I am not from those parts," Feng Guangfeng didn't hide it, explaining how, as a clerk at Richangji, he was chosen by the owner to marry into the family and inherit the business.
 
 Chen Tianxiong already knew this from investigations. Seeing him speak without evasion suggested Boss Feng was honest. This attitude was good.
 
@@ -62,7 +62,7 @@ Manipulation didn't mean possession. That would be naked robbery. Merely joining
 
 "Fine. But persuading this group to join a joint-stock company will be hard. Human hearts are complex."
 
-"That's why now is the time," Chen Tianxiong said. "We ride the momentum of the great victory at Juhua Islet. While they're scared to death, we push it through in one go. Once they recover, we might not be able to control these sugar dogs!" He sipped his tea. "Complex hearts don't matter. The key is to hold onto the word 'profit'."
+"That's why now is the time," Chen Tianxiong said. "We ride the momentum of the great victory at Chrysanthemum Islets. While they're scared to death, we push it through in one go. Once they recover, we might not be able to control these sugar dogs!" He sipped his tea. "Complex hearts don't matter. The key is to hold onto the word 'profit.'"
 
 The Haiyi Guild united against South China Sugar for profit; now they sought peace and prepared to abandon Master Zhu, also for profit. As long as the South China parent company could provide enough profit, these merchants would gladly obey.
 
@@ -105,3 +105,5 @@ They immediately summoned Liao Daxing and asked about the firms under the Haiyi 
 "Good person, skilled in business. Rare to find someone who isn't obsessed with money! Several small firms respect him and don't look down on him as a live-in son-in-law."
 
 Knowing the guild's structure and maladies confirmed that recruiting small firms was viable. The question remained: how?
+
+**(End of Chapter)**
