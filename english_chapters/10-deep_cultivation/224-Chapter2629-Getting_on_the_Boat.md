@@ -1,0 +1,65 @@
+# Chapter 2629: Getting on the Boat
+
+Li Guangyuan watched dumbfounded, thinking silently in his heart: My Great Ming actually has such god-like skills. If able to collect such strange people widely, driving as vanguards, should be invincible properly. Great cause of driving out Kun is hopeful!
+
+Arriving in the mansion, Li Guangyuan first arranged for them to rest in a side courtyard. After everyone washed and changed clothes, drank a cup of herbal tea, a servant came to invite: "Master has prepared wine banquet in the outer study. Please everyone attend the banquet."
+
+Following the servant to the outer study, Li Guangyuan was already welcoming at the courtyard gate. After another round of modesty, he let Monk Haixiang sit as the guest of honor. Everyone drank and chatted happily at the table. Luo Hetu was good at drinking, talking again about the story of following Luo Heying to fight bloody battle at Sanliang back then. Everyone praised by beating rhythm. Speaking of Qingxia story, it was another sighing and lamenting. All said if people under heaven were like this girl, why worry Kun thief bandits not extinguished.
+
+Several people chatted into the harbor (got along well). Wine was added and added again, until lamp lighting time. At this moment Luo Hetu was dead drunk, sent back to side courtyard to rest by two family members. Only Li Guangyuan, Luo Heying and Gou Xunli three people remained at the table. Li Guangyuan let family members remove leftover banquet first, changed a few delicate snacks, brewed new tea of the year. Only then turned into the main topic.
+
+"Master, Brother Lin, this time Kun thief bandits raid Guangzhou Prefecture again, pretending title and establishing system. Have the heart to occupy a corner here, or plan to wave army north, chasing deer in Central Plains?"
+
+"Qiongzhou Kun thief bandits won't go back." Luo Heying answered first, "But saying they wave army north, chasing deer in Central Plains, involves nonsense too—fear they can't swallow the fat meat of Guangdong."
+
+After speaking he smiled, lifting tea cup—drinking not new tea, but Australian Water chilled with well water. Stroked beard stained with Australian Water. This Australian Water was most clearing cool and removing fire, especially chilled with well water, a burst of relaxed and happy heart. Then continued: "Kun thief bandits granted bogus positions widely in various prefectures, departments, counties; must harbor thought of managing Two Guangs. Now Kun thief bandits' new laws emerge one after another. Heard engaging in Civil Service Examination again. Already harboring heart of occupying this southern sky corner."
+
+This didn't count as any rare judgment. Even Li Guangyuan living in secluded countryside, rarely entering city, knew current situation more or less from outsiders' mouths. Kun thief bandits occupying Guangnan was already a settled situation—if not settled situation, he wouldn't take risk to mix in this muddy water.
+
+"...Just that wanting to advance north again involves ten thousand difficulties. Kun thief bandits using troops is different from roving bandits. Roving bandits all use coerced weeds (bad people) as vanguards, elites behind. Looking momentum terrible, sweeping three or five counties every uprising can claim hundred thousand crowd. What Kun thief bandits use are self-trained elite soldiers. Every time wanting to attack somewhere, always gather elite soldiers in one place first. Also borrowing Kun thief bandits' firearms sharpness. Even if government can have million strong soldiers, always can't beat them."
+
+These few sentences were originally not Luo Heying's insight, but information obtained from chatting with a Righteous Gentleman Huang years ago. Speaking of this Righteous Gentleman Huang, although met only once back then, the two cherished each other. Righteous Gentleman Huang had seen battle array with Kun thief bandits with real knives and real spears back then. Speaking of various situations of Kun thief bandits, much better than this Monk Haixiang beside claiming to be "Kun Affairs Expert."
+
+After speaking, he first looked at Li Guangyuan's face to judge whether these words were said too heavily, suspected of boosting others' aspiration and extinguishing own prestige. Seeing Li Guangyuan indeed revealing hesitating look, hurriedly circled words back: "That Kun army is elite, after all quantity is still much fewer. Even if he is iron all over, how many nails can he hit? These Two Guangs span thousands of *li*, big mountains range upon range. Also countless Liang, Dong, Yao... originally mostly generation not submitting to King's transformation. Now Kun thief bandits come, will only take opportunity to cause chaos. And everywhere has many Righteous Gentlemen of the Court raising troops. Kun thief bandits divide troops everywhere, already having fatigue state."
+
+These words couldn't be said to be lies. Starting from capturing Guangzhou in 1635, endless public security war unfolded everywhere in Two Guangs. Especially various places in Northern Guangdong, once like raging fire. However, after the whole year of 1636 public security rectification, this situation of beacon fires everywhere already improved greatly. Although public security war still existed sporadically in many places, there was never the situation of local precariousness like piled eggs from end of 1635 to beginning of 1636 again.
+
+But for Li Guangyuan situated in Senate's "Key Governance Area" Dongguan County, news from afar was truly limited. He only faintly heard of some riot matters. To what step the situation developed, he had completely no concept, could only listen to the two talking nonsense.
+
+Gou Xunli also hurriedly came to add oil and vinegar: "What Brother Luo said is very true. Although Kun thief bandits claim to be descendants of Former Song, appearance similar. However, smelling mutton rank (barbarian) for a long time, cutting hair short clothes, practicing Kun rites Kun customs, absolutely not Chinese (*Zhonghua*). Their people are few. Since landing bewitching countryside foolish people, leading crowd driving with profit, completely no great righteousness, only because righteousness is in my Great Ming. Kun thief bandits' momentum looks ferocious, actually afraid of my Great Ming very much. Former Commander He drove Kun Battle defeat. Surrendered soldiers received by Kun thief bandits were all sentenced to evil labor service and bitter toil, to wear down their will. Poor monk met Commander He's soldiers returned from Qiongzhou in Guangzhou Prefecture, all said Kun thief bandits drove very bitterly. Often heard roving bandits, Eastern Barbarians mostly recruited surrendered soldiers to fill battalions. But Kun thief bandits don't use. Not unable to use but dare not use. Prefectures and counties invaded by Kun thief bandits also have scum among scholars following. Kun thief bandits all dare not use, confining in 'Study Class,' teaching learning of barbarians. Graduate with Kun learning test, only then can grant tiny minor official. Although Kun learning has various ingeniousness, its benefit is all in industry and commerce. Not like my China's Way of Confucius and Mencius, vast and mighty, up and down thousand years. Ruling all living beings under heaven with learning of industry and commerce, all are divergent paths. This truly Hu barbarians have no hundred year fortune; Kun people must also know it. Therefore Kun thief bandits fear my Great Ming's Righteousness!"
+
+Since escaping form Guangzhou City, this was the first time Gou Xunli could express chest righteousness directly like this. A speech very cheerful. He scanned Li, Luo two people, finding them still carefully pondering his essay of Distinction between Hua and Yi. Amidst complacency, busy pulled back his galloping high theory, "When poor monk was in Lingao back then, observing Kun thief bandits training troops, indeed had surpassing points. Leading soldiers though many, like arm using finger, orders solemn. However, every soldier trained by Kun thief bandits cost very heavy. Provisions, salary, military weapons, not without ten times of our soldiers. Kun thief bandits value commerce, feeding military capital with profit of doing business. Lamentable my Great Ming's merchants, bewitched by fly-head small profit, colluding communicating channels, but didn't expect wealth capital today, all became swords of tomorrow."
+
+Speaking here, Gou Xunli suddenly found Master Li drinking bubbling Australian Water leisurely and contentedly. Isn't this Australian Water also transported by merchants? This group of "Anti-Kun" gentlemen accepted it peacefully. Truly indescribable funny. Secretly shameful and indignant in heart. However he was "guest" after all, naturally couldn't criticize others, only holding tea cup to drink a mouthful, suppressing fire in heart.
+
+Li Guangyuan had bellyful of calculations at this moment. He was unwilling to raise troops to resist Kun rashly. First his capital was limited, just mere hundreds of manor household long-term workers. As long as Kun thief bandits raised troops to punish, this Li Family Enclosure would vanish in ashes instantly. Arrival of people with exceptional ability more or less gave him a little courage, but merely these were not enough to make him make up mind.
+
+Li Guangyuan's anti-Kun motivation was quite complex. Among it there were both property loss caused to him by Kun thief bandits "Clarifying Fields and Acres"; also contained resentment of losing face because close clan relatives and trusted followers were caught; but the most critical was the desire for "Becoming Official" deep in his heart.
+
+Correct. This Li family patriarch with quite some power locally, although clan flourishing, property numerous, yet no Provincial Graduate (*Juren*) appeared in the clan so far. Speaking of whole county, his family could only count as "Big Household," still couldn't be called "Gentry" (*Jinshen*).
+
+Without prominent official rank, Li family in Dongguan was always a head lower than others. Dealing with gentry also couldn't take advantage every time. Handling affairs, things others could handle with one name card, he had to spend large handfuls of silver.
+
+Rewarding imperial examinations, encouraging clan children to study these things, he naturally also did. But although Li clan spanned long, truly rising started only from Li Guangyuan's father generation. Wanting to have breakthrough in imperial examinations was truly a bit hurried.
+
+Therefore he cared about "Side Doors" quite much. When Imperial Academy opened donations, he donated Imperial Student (*Jiansheng*) for clan children—but this was different from proper imperial examination rank after all.
+
+A few days ago, a past friend came to visit specially, hinting him Court was about to counterattack. As long as he could "Raise troops to respond," official rank wouldn't be a problem. Li Guangyuan then made up the determination to get on the boat.
+
+Luo Heying inserted one or two sentences from time to time on one side, while noticing Li Guangyuan's expression. He also understood although Li Guangyuan "got on the boat," still was "rat head two ends" (indecisive), needed something to confirm his heart.
+
+He suddenly seemed to remember something, saying: "Brother Li, I brought you a few strange books this time."
+
+Saying, yelled personal servant boy to go fetch books. Li Guangyuan received book feeling paper quality very fine. Looking again at this book cover, painted a silver-armored warrior holding falchion, carrying hard bow on back, riding on a black horse. That horse front hooves raised neighing standing head high amidst sky-filling wind and snow. Seeing this painting felt warrior's bleak killing aura sandwiching wind and snow in painting blowing on face. Side of painting had a line of running script "Big Snow Fills Bow and Knife," also a line of tough small characters "History of Great Ming Managing Liaodong." Looking carefully again, found the title "War History Research" five Song typeface characters turning scenery into煞 (*sha* - killing/spoiling) exceptionally, which were ignored just now attracted by warrior portrait. Under these five characters were small characters "Liaodong War Situation Special Album." Below book cover listed "Impact of Deng Lai Rebellion on Liaodong Situation," "Brief Analysis of Eight Banners System," "History of Huang Taiji Ascending Throne"... Li Guangyuan shook head straightly reading. Such a good General Exiting Frontier Picture was ruined by these scribble scamper characters.
+
+Monk Haixiang recognized this book at a glance, "Is this Kun people's *War History Research*?"
+
+Luo Heying asked with feigned surprise: "Monk Haixiang read this book."
+
+"This book circulated in Guangzhou Prefecture and Jiangnan area last year. I and Academic Society fellows also studied together."
+
+"Please Mister criticize and explain for us."
+
+Monk Haixiang didn't decline either, picking key points inside, said a round again. Li Guangyuan listened while flipping a few pages casually, looked roughly.
+
+**(End of Chapter)**

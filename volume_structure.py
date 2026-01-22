@@ -1,0 +1,290 @@
+#!/usr/bin/env python3
+"""
+Extract volume structure from Qidian page content and create title-based mapping.
+This creates a lookup table from chapter title -> (volume, position_in_volume)
+"""
+
+# Volume structure parsed from Qidian webpage
+# Format: (volume_folder, volume_chinese_name, list_of_chapter_titles)
+
+VOLUMES = [
+    ("00-extras-fanworks", "同人作", [
+        "常师德对其指控的答辩",
+        "若干大结局",
+        "张应宸的关于新道教的同人",
+        "临高启明演义版楔子",
+    ]),
+    ("01-setting_sail", "第一卷 启航", [
+        "虫洞降临",
+        "文总的野望",
+        "掘金－－高举之惑",
+        "掘金――澳洲海商",
+        "神话的破灭",
+        "克拉克瓷（一）",
+        "克拉克瓷（二）",
+        "台湾还是海南",
+        "新社会与旧社会",
+        "秘宅",
+        "奴仆（一）",
+        "奴仆（二）",
+        "老工人",
+        "会议－－第一次分组",
+        "会议――能源问题",
+        "会议――机械与化工",
+        "会议――娘子军",
+        "会议――吃与住",
+        "军事问题",
+        "北美分舵",
+        "武器问题",
+        "北美分舵的第五个人",
+        "高青的烦恼",
+        "高举的烦恼",
+        "恩威并重",
+        "羊城暗哨",
+        "来了新人",
+        "黄雀会",
+        "消失的文总",
+        "17世纪的推理",
+        "起威镖局",
+        "应对",
+        "救票",
+        "弹无虚发",
+        "余波",
+        "先知",
+        "暂别大明",
+        "意外来客",
+        "初来乍到",
+        "人事",
+        "船只（一）",
+        "船只（二）",
+        "准备出发",
+        "前夜",
+    ]),
+    ("02-new_world", "第二卷 新世界", [
+        "新世界",
+        "临高角",
+        "新开始",
+        "港口建设（一）",
+        "港口建设（二）",
+        "港口建设（三）",
+        "厕所",
+        "剪彩",
+        "营地",
+        "意外的偷渡者",
+        "说服",
+        "临高城",
+        "临高人的对策",
+        "侦察队",
+        "遇伏",
+        "奋战",
+        "百仞滩（一）",
+        "百仞滩（二）",
+        "锻炼锻炼",
+        "筑路（一）",
+        "筑路（二）",
+        "黄大户",
+        "邬德的新任务（一）",
+        "邬德的新任务（二）",
+        "邬德的新任务（四）",
+        "百仞城",
+        "水与电（一）",
+        "水与电（二）",
+        "电信",
+        "临高的反攻（一）",
+        "临高的反攻（二）",
+        "临高的反攻（三）",
+        "战后（一）",
+        "战后（二）",
+        "审俘（一）",
+        "审俘（二）",
+        "建筑材料",
+        "水泥",
+        "思想动态",
+        "行款",
+        "议和（一）",
+        "议和（二）",
+        "新农庄（一）",
+        "新农庄（二）",
+        "新农庄（三）",
+        "用工制度（一）",
+        "用工制度（二）",
+        "信用（一）",
+        "信用（二）",
+        "黎区工作（一）",
+        "黎区工作（二）",
+        "黎区工作（三）",
+        "贸易协定",
+        "盐场（一）",
+        "盐场（二）",
+        "群众工作",
+        "发动群众（一）",
+        "发动群众（二）",
+        "发动群众（三）",
+        "发动群众（四）",
+        "新的教育",
+        "军事体育",
+        "苟家庄（一）",
+        "苟家庄（二）",
+        "苟家庄（三）",
+        "苟家庄（四）",
+        "破寨",
+        "土飞机",
+        "发财致富",
+        "开会",
+        "初雨",
+        "东门市",
+        "东门吹雨和独孤求婚的野望",
+        "商业规划",
+        "妇女合作社",
+        "开业大吉",
+        "广州行（一）",
+        "广州行（二）",
+        "广州行（三）",
+        "广州行（四）",
+        "人市（一）",
+        "人市（二）",
+        "广州先遣站",
+        "电台",
+        "紫明楼",
+        "检疫所（一）",
+        "检疫所（二）",
+        "新血",
+        "成果和展望",
+        "新体制（一）",
+        "新体制（二）",
+        "东门市派出所（一）",
+        "东门市派出所（二）",
+        "东门市派出所（三）",
+        "海军",
+        "第一次临高角海战",
+        "大明海盗船",
+        "上墩",
+        "炼钢",
+        "铸炮（一）",
+        "铸炮（二）",
+        "铸炮（三）",
+        "试炮",
+        "Armstrong大炮",
+        "诸彩老",
+        "新军的构想",
+        "招兵买马",
+        "某男人",
+        "失败的硝化棉",
+        "炸药工厂",
+        "枪与炮",
+        "训练",
+        "军装",
+        "攻心为上（一）",
+        "攻心为上（二）",
+        "练兵",
+        "排枪和神枪手",
+        "海陆纠纷",
+        "葬礼",
+        "百图村远征",
+        "草地计划",
+        "武装游行",
+        "占领百图村",
+        "战评",
+        "林功劳和张机器",
+        "400料广船",
+        "诸彩老袭来",
+        "奇怪的胜利（一）",
+        "奇怪的胜利（二）",
+        "船影",
+        "中西联合海盗船队",
+        "刘香的算盘",
+        "博铺之战（一）",
+        "博铺之战（二）",
+        "博铺之战（三）",
+        "健全制度的讨论",
+        "迪亚娜.门多萨",
+        "共建和谐临高（一）",
+    ]),
+    ("03-vip", "VIP卷", [
+        "共建和谐临高（二）",
+        "共建和谐临高（三）",
+        "新年",
+        "除夕电影",
+        "贺电",
+        "送温暖",
+        "夜谈",
+        "魏爱文的新年晚会",
+        "玻璃",
+        "试制",
+        "紫珍斋",
+        "生意",
+        "生意（二）",
+        "东方亮，西方也亮",
+        "郭逸的报告",
+        "澳门游",
+        "销赃",
+        "魏斯.兰度",
+        "传教问题",
+        "天上掉下来个李华梅",
+        "诱饵",
+        "苟二出山",
+        "潘多拉盒子",
+        "粮食流通券",
+        "流通",
+        "教会",
+        "谈判",
+        "协议",
+        "万人体育场",
+        "竹筋砼",
+        "大会（一）",
+        "大会（二）",
+        "大会（三）",
+        "大会（四）",
+        "合理负担",
+        "保安团",
+        "宴请",
+        "庆功表彰大会",
+        "阅兵",
+        "建立新体系",
+    ]),
+]
+
+# Note: This is a partial list. The full list would include all volumes.
+# For now, let's create a mapping system that can work with what we have.
+
+import json
+
+def normalize_title(title):
+    """Normalize a title for matching - remove punctuation variations, whitespace, etc."""
+    import re
+    # Remove common variations
+    title = title.replace("－－", "-").replace("――", "-").replace("－", "-").replace("—", "-")
+    title = title.replace("(", "（").replace(")", "）")
+    title = title.replace(".", "")
+    title = re.sub(r'\s+', '', title)
+    title = re.sub(r'（修改）$', '', title)
+    title = re.sub(r'(大改)$', '', title)
+    title = re.sub(r'\(二更\)$', '', title)
+    title = re.sub(r'（本日第二更）$', '', title)
+    return title.lower()
+
+def build_title_to_volume_map():
+    """Build a mapping from normalized title -> (volume_folder, position, original_title)"""
+    mapping = {}
+    for volume_folder, volume_name, titles in VOLUMES:
+        for idx, title in enumerate(titles):
+            norm_title = normalize_title(title)
+            mapping[norm_title] = {
+                "volume_folder": volume_folder,
+                "position": idx + 1,
+                "original_title": title,
+                "volume_name": volume_name
+            }
+    return mapping
+
+if __name__ == "__main__":
+    mapping = build_title_to_volume_map()
+    print(f"Built mapping with {len(mapping)} titles")
+    print("\nSample entries:")
+    for i, (k, v) in enumerate(list(mapping.items())[:5]):
+        print(f"  '{k}' -> {v}")
+    
+    # Save to JSON for use by reorganize script
+    with open("/Users/lipi/illuminelingao2/title_mapping.json", "w", encoding="utf-8") as f:
+        json.dump(mapping, f, ensure_ascii=False, indent=2)
+    print(f"\nSaved mapping to title_mapping.json")

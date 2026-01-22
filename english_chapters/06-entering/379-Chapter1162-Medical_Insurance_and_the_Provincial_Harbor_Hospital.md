@@ -1,0 +1,35 @@
+# Chapter 1162 - Medical Insurance and the Provincial-Harbor Hospital
+
+Commissar Shi Niaoren's cabin was located at the end of the ship farthest from the engine room. The wall facing the engine room was stacked with large bags stuffed with coconut fiber—a token gesture at best, designed to protect the leader in case of a boiler explosion. Whether it was the 854, 901, or any of the other steamships hailed as "the pride of Lingao industry," this was roughly the state of their safety in the eyes of Senate members. And the facts bore this out.
+
+At the moment, Shi Niaoren was seated at the desk in his cabin, leafing through a thick book before him with a sour expression on his face. Since the voyage began, his expression hadn't been good—though of course this wasn't because of the seasickness he'd claimed to his accompanying staff. Rather, it was because what lay before him wasn't actually a book but a detailed set of regulations for public medical care for naturalized citizens, handed over by the Civil Affairs Department during his rest stop in Lingao after concluding the previous leg of the tour.
+
+When chatting with Elder physicians of domestic origin, Shi Niaoren would occasionally drop the phrase "back when I was in the United States." But he never mentioned how, during his medical practice in the United States, he'd been constrained by medical insurance. Who would have thought that having traveled back in time to over a hundred years before America was even founded, he'd still be having to deal with medical insurance—and moreover, an entirely new system of his own making. The thought put Shi Niaoren in a particularly foul mood.
+
+In the latter half of the previous year, at an expanded Executive Committee meeting, the Finance Department had proposed implementing a monetized settlement system in the health sector. Drug and equipment allocations would no longer be free; instead, all health services would be assigned specific prices.
+
+This wasn't aimed at the Health Department alone. Fiscal Controller Cheng Dong had raised the idea of implementing monetized accounting across all agencies, enterprises, institutions, factories, and commercial units multiple times. This was just the beginning of implementation—and the Health Department was the pilot unit.
+
+Commissar Shi had no objections to monetized accounting itself. Without it, the Finance Department had no way to account for currency issuance, economic output, fiscal expenditure, and other such matters. But what came next caught him off guard.
+
+Implementing monetized accounting wasn't particularly difficult—it just meant more accounting work. In the past, the Health Department only needed to requisition supplies and fill out requests. Now, in addition to filing requests, they also had to calculate everything in Trading Vouchers according to a price list. Of course, the money calculated was just recorded in ledgers and processed through De Long Bank. The impact on the Health Department was simply the addition of a few more accountants, cashiers, and clerks.
+
+Elders and naturalized citizens now had a few more steps when seeking medical treatment. Before, they only needed to register. Now they had to fill out triplicate forms listing the itemized costs of drugs and treatment, then submit them separately to the Civil Affairs Department and the Finance Department. For this purpose, the three hospitals under the Health Department had specifically hired a batch of cashiers to handle this.
+
+But then things took an unexpected turn. The Civil Affairs Department subsequently required the Health Department to formulate clinical pathways for common diseases affecting naturalized citizens, to guide the treatment activities of naturalized medical personnel. At the time, the Health Department hadn't thought much of it. Aside from the larger hospitals staffed with Elder physicians, medical care for naturalized citizens—beyond public health education and epidemic prevention—was basically just dealing with trauma and everyday headaches and fevers. The Health Department reorganized the contents of the common disease manual given to naturalized medical personnel who had attended the accelerated training program and submitted it to the Civil Affairs Department.
+
+What they hadn't expected was that several months later, the Finance Department and Civil Affairs Department jointly issued a document, based on the clinical pathways submitted by the Health Department, guiding treatment activities for naturalized citizens with public medical coverage—and setting cost limits. Without special circumstances, for patients entering pathway treatment, any costs exceeding the limit due to deviations from the pathway would have to be borne by the medical institution itself; the public medical system would refuse to pay.
+
+The Civil Affairs Department's rationale was: modern medicine is built on a foundation of enormous high-tech investment. Based on experience from the original timeline, the growth of medical expenses basically outpaced economic development and residents' income growth.
+
+Currently, all diagnostic and treatment activities for naturalized military personnel and employees were covered by the public medical system, provided free of charge. Medical care provided to non-employee naturalized citizens in areas under Senate control was also essentially half-sold, half-given. Such was the Senate's political superiority.
+
+But the Civil Affairs Department argued: although the overall medical enterprise was still quite rudimentary, if no restrictions were placed on public medical payments, in an empire where technological leaps were happening every moment, a welfare burden too unwieldy to manage might form too early, affecting long-term future governance.
+
+Upon hearing this rationale, Commissar Shi immediately retorted: "Does a starving ghost need to worry about obesity?" He then "candidly exchanged views" and had a "full exchange of opinions" with the relevant responsible personnel from the Civil Affairs Department and the Finance Department they'd brought along, "enhancing mutual understanding." The talks were "productive," and both sides "fully reserved their positions."
+
+Commissar Shi was well aware that certain figures in Finance had a hand in this—their goal being nothing more than what they'd been energetically promoting: "perfecting the social insurance system."
+
+Shi Niaoren's position was: the Senate's health system's medical activities for naturalized citizens were still very primitive—half of common internal medical treatments were, in the view of the Elders, essentially placebo therapy—and urgently needed substantial development. Setting such economic restrictions on primitive medical activities this early would certainly constrain the development and progress of the Senate's medical enterprise. Medicine was a highly practical science; binding the hands of practice prematurely would be detrimental to improving medical standards.
+
+(End of Chapter)
