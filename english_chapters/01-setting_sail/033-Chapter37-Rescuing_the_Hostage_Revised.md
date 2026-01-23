@@ -18,7 +18,7 @@ The moment the girl stepped out, Boss Wang hurried up to her:
 
 "Send the information to the usual place. I'll be staying in Guangzhou a while longer." She called out "Let's go." From the shadows emerged another slender figure wrapped in a black cloak. The two jumped ashore and quickly vanished into the darkness.
 
-After a long while, two accomplices emerged from the cabin: "Boss Wang—what about us?"
+After a long while, two accomplices emerged from the cabin. "Boss Wang—what about us?"
 
 "Hmph, how can we not eat the fat meat that's fallen into our hands?" Boss Wang spat into the water to show his contempt. "Who does she think she is? Just an errand-runner for the Grand Chief."
 
@@ -28,7 +28,7 @@ After a long while, two accomplices emerged from the cabin: "Boss Wang—what ab
 
 "Ten Great Tortures of the Ming—is that a thing?" The underling looked puzzled.
 
-His companion knew he was really just reluctant to pay for a new hideout, and also fond of his paramour on this boat—keeping the profits in the family.
+His companion knew Boss Wang was really just reluctant to pay for a new hideout, and also fond of his paramour on this boat—keeping the profits in the family.
 
 But it was true this place had too many eyes. Master Gao wasn't someone to take lightly either. They'd need extra precautions. After some thought, he ordered his men:
 
@@ -130,7 +130,7 @@ Lin Shenhe didn't move. He didn't immediately eject the shell—to keep the barr
 
 From the fourth bullet on, the impact points stabilized—three consecutive shots almost all at the 8-ring. He re-adjusted the sights. The next five shots all landed in the 10-ring.
 
-"That should be good enough." Lin Shenhe looked at the remaining ammunition. There wasn't much ammunition left. He'd wanted to fire ten more rounds.
+"That should be good enough." Lin Shenhe looked at the remaining ammunition. There wasn't much left. He'd wanted to fire ten more rounds.
 
 "Nice shooting." Beiwei gave a simple assessment. "But on the battlefield you're shooting at people. Can you pull the trigger?"
 

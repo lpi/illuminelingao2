@@ -6,7 +6,7 @@ A full pot of rice was made and immediately sent to the camp. Thirty servings di
 
 Another fellow squeezed forward, thrusting his large wooden bowl before him, clutching a work-point voucher. His words were unclear, but obviously meant "one bowl of rice." Hu Yicheng shook his head and ladled another bowl—this guy seemed to be on his fourth. Quite the powerhouse.
 
-Xiong Buyou edged nervously toward Wu De, whispering: "Old Wu, isn't this too much eating? Won't they burst?"
+Xiong Buyou edged nervously toward Wu De, whispering, "Old Wu, isn't this too much eating? Won't they burst?"
 
 Wu De shook his head. "Don't worry—farmers can eat. Back home, old-timers often ate a *jin* per meal. Because their meals had no oil, their appetites were big."
 
@@ -22,13 +22,13 @@ Hearing this, many looked disappointed. The earlier commotion gradually died dow
 
 "Nothing at all?"
 
-Hu Yicheng spread his hands: "Even borrowed the Military Group's night-shift food for you. I'll prepare more tomorrow—that salted fish isn't popular in the cafeteria anyway."
+Hu Yicheng spread his hands. "Even borrowed the Military Group's night-shift food for you. I'll prepare more tomorrow—that salted fish isn't popular in the cafeteria anyway."
 
 "The fish was killed once when caught, then killed again by your cooking," Xiong Buyou said solemnly.
 
-Watching the dispersing crowd, Wu De instructed Lin Xing: "Tell everyone not to leave. Calculate how much they want—we'll fetch the goods immediately!"
+Watching the dispersing crowd, Wu De instructed Lin Xing, "Tell everyone not to leave. Calculate how much they want—we'll fetch the goods immediately!"
 
-Hu Yicheng rushed to say: "This won't work. It's almost dark—how can we go to Bopu now?!"
+Hu Yicheng rushed to say, "This won't work. It's almost dark—how can we go to Bopu now?!"
 
 "I'll go personally." Wu De saw this as a perfect opportunity to establish credit. For both work-point vouchers and these "pirates" to truly gain locals' trust, they must keep their word—especially on small matters, where proper attitude mattered most.
 
@@ -46,7 +46,7 @@ Hu Yicheng rushed to say: "This won't work. It's almost dark—how can we go to 
 
 "True, but even one night's delay won't collapse our credit. Stores run out of stock too—we don't need to go this far."
 
-"Whether it's necessary, I know very well!" Wu De grew irritated. These bureaucrats didn't understand how hard winning hearts was. Salted fish tomorrow would be fine—but the effect wouldn't be as good as tonight. Trust took enormous effort to build; such opportunities shouldn't be missed.
+"Whether it's necessary, I know very well!" Wu De grew irritated. These bureaucrats did not understand how hard winning hearts was. Salted fish tomorrow would be fine—but the effect would not be as good as tonight. Trust took enormous effort to build; such opportunities should not be missed.
 
 "Alright then." Hearing his insistence, Xiao Zishan finally relented, assigning a Beijing 212. He added: since they were going, bring more things back—"Don't waste the trip."
 
@@ -64,7 +64,7 @@ In the car, Wu Nanhai requested some farmers be transferred from the Labor Group
 
 "No problem. Here's inside information." Wu De feigned mystery. "They're about to send people to Guangzhou."
 
-Wu Nanhai was startled: "How do you know? I'm a Committee member."
+Wu Nanhai was startled. "How do you know? I'm a Committee member."
 
 "Don't forget I'm from Military Group." Wu De smirked. "Military Group people know everything now—they're notifying Xi Yazhou to select security personnel. And apparently he's going too."
 
@@ -114,9 +114,9 @@ Wu Nanhai suddenly understood—immediately feeling disbelief.
 
 "But—" Wu Nanhai found this reasoning weak. "Even if we can't trust her, there's no need to... that..."
 
-Wu De chuckled: "Indeed excessive. After this incident, the Committee finally decided to send people to Guangzhou ASAP."
+Wu De chuckled. "Indeed excessive. After this incident, the Committee finally decided to send people to Guangzhou ASAP."
 
-Wu Nanhai suddenly got goosebumps: "My god—to buy women?!"
+Wu Nanhai suddenly got goosebumps. "My god—to buy women?!"
 
 Wu De smiled mysteriously, kept driving—essentially confirming.
 
@@ -124,8 +124,8 @@ Wu De smiled mysteriously, kept driving—essentially confirming.
 
 "For me, having a woman to cook and do laundry would be satisfying." Wu De sighed. "This doing my own laundry, eating cafeteria food—when will it end..."
 
-Chatting, they quickly reached Bopu, grabbed several buckets of salted fish, strapped them to the vehicle, and headed back. Night had fallen; the road was pitch black. Driving with headlights wasn't too hard; pillbox lights along the way served as guiding beacons. They returned smoothly to camp.
+Chatting, they quickly reached Bopu, grabbed several buckets of salted fish, strapped them to the vehicle, and headed back. Night had fallen; the road was pitch black. Driving with headlights was not too hard; pillbox lights along the way served as guiding beacons. They returned smoothly to camp.
 
-The dispersed laborers were reassembled. A bucket of salted fish was opened. Wu De announced robustly: open supply—buy as much as you want. Workers hesitated; not many stepped forward. Some carefully wrapped remaining vouchers in rags, hiding them in clothing. Ma Peng was one—he thought, when there's a chance, he'd bring his family here for a good meal.
+The dispersed laborers were reassembled. A bucket of salted fish was opened. Wu De announced robustly: open supply—buy as much as you want. Workers hesitated; not many stepped forward. Some carefully wrapped remaining vouchers in rags, hiding them in clothing. Ma Peng was one—he thought, when there is a chance, he would bring his family here for a good meal.
 
 **(End of Chapter)**

@@ -8,7 +8,7 @@ The Executive Committee's mood wasn't so optimistic. They weren't worried about 
 
 Items found on the dead criminals were miscellaneous—silver coins, copper cash, flint, tobacco pouches—but the most valuable was a letter. Its contents were mundane: greetings, inquiries about whether entrusted goods had been sold, and so on. But the signature read: "Zhou Rui of Min'an, bowing."
 
-If not for the arrival of the capital's transmigration-faction member, the young history graduate student Yu Eshui—note, not a young history *scholar*—this letter might have been overlooked. After reading it, Comrade Yu informed the Executive Committee that this Zhou Rui of Min'an was probably one of Zheng Zhilong's cousin Zheng Cai's "yinan" (sworn adopted sons/servants).
+If not for the arrival of the capital's transmigration-faction member, the young history graduate student Yu Eshui—note, not a young history *scholar*—this letter might have been overlooked. After reading it, Comrade Yu informed the Executive Committee that this Zhou Rui of Min'an was probably one of Zheng Zhilong's cousin Zheng Cai's *yinan* (sworn adopted sons/servants).
 
 So-called *yinan* were common in Chinese maritime merchant circles of that era. Overseas trade was risky, so wealthy families kept *yinan* or *yi'er*—adopted sons/servants—to brave the waves while their biological sons stayed home and enjoyed the profits. Some became *yinan* due to debt. These adopted sons had low social status—essentially commercial semi-slaves, lifetime professional managers who weren't allowed to change employers. The Zheng family maintained many such "professional managers"; the famous official Zheng Tai under Koxinga started as such an *yinan*.
 
@@ -54,9 +54,9 @@ Gao Ju startled, looking around nervously. Seeing no one, he answered quietly:
 
 "Careful! It's not the Depot Lord, but another. How does brother know the Nine Thousand Years' title?"
 
-"We've been in the Ming long enough to learn a thing or two." Xiao Zishan adopted an air of deep meaning—"I know more than I'm saying"—baiting his curiosity.
+"We've been in the Ming long enough to learn a thing or two." Xiao Zishan adopted an air of deep meaning—*I know more than I'm saying*—baiting his curiosity.
 
-Gao Ju took the bait: "Brother knows what trade I'm in." He sighed. "That I've conducted business peacefully all this time is thanks to a Eunuch Yang in the palace."
+Gao Ju took the bait. "Brother knows what trade I'm in." He sighed. "That I've conducted business peacefully all this time is thanks to a Eunuch Yang in the palace."
 
 He briefly explained his relationship with Eunuch Yang—essentially that Yang was his backer. The profit-sharing details he naturally omitted, but Xiao Zishan could imagine—any Chinese person would guess. No matter how "purely friendly" one claimed such relationships to be.
 

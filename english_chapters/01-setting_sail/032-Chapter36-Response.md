@@ -2,11 +2,11 @@
 
 "Sleep is the state closest to death"—Director Wen woke from his dream with this phrase inexplicably springing to mind. He opened his eyes. A pale-red canopy with watergrass patterns swayed and rippled above him; a faint fragrance wafted to his nostrils. He closed his eyes to enjoy it—then suddenly snapped them open again. *Where am I?!*
 
-If Director Wen hadn't already experienced the wormhole, he would have been ninety percent certain he'd soul-transmigrated. His brain cleared slightly: wasn't he staying in the mansion Gao Ju had given them? That bed had a canopy, but just an ordinary blue cotton curtain. Nothing this feminine. Where exactly was this?
+If Director Wen hadn't already experienced the wormhole, he would have been ninety percent certain he had soul-transmigrated. His brain cleared slightly: wasn't he staying in the mansion Gao Ju had given them? That bed had a canopy, but just an ordinary blue cotton curtain. Nothing this feminine. Where exactly was this?
 
-He hurried to sit up, but his head felt heavy and his limbs ached and felt weak—no strength at all. He looked around: a tiny room, no windows on any side. Besides the large bed beneath him, there was only a small table and a chair. On the table sat a vase and potted plants; two landscape paintings hung on the wall.
+He hurried to sit up, but his head felt heavy and his limbs ached, utterly devoid of strength. He looked around: a tiny room, no windows on any side. Besides the large bed beneath him, there was only a small table and a chair. On the table sat a vase with potted plants; two landscape paintings hung on the wall.
 
-He quickly got up to dress and discovered his stab-resistant vest, belt, and waterproof boots were gone. His ever-present folding knife, stun gun, and pepper spray had all vanished. This alarmed him considerably. As a longtime practicing "survivalist," these items were practically Wen Desi's protective talismans. Now, in an unknown situation, with all his defenses stripped away...
+He quickly moved to dress and discovered his stab-resistant vest, belt, and waterproof boots were gone. His ever-present folding knife, stun gun, and pepper spray had all vanished. This alarmed him considerably. As a longtime practicing "survivalist," these items were practically Wen Desi's protective talismans. Now, in an unknown situation, with all his defenses stripped away...
 
 While he was alarmed, the door creaked. In came a lean man of medium build, his complexion revealing a vicious streak. Director Wen was no fool—one glance told him the visitor was no good person. With his own situation unclear, he decided to say nothing.
 
@@ -14,13 +14,13 @@ While he was alarmed, the door creaked. In came a lean man of medium build, his 
 
 "May I ask who you are?"
 
-The man chuckled coldly and sprawled in the chair: "We all make our living on the sea. We've heard that Shopkeeper Wen came from Australia and made a fortune selling rare goods. We'd like to know where your ship is moored and what your sailing route is—so we brothers can look out for each other on the water."
+The man chuckled coldly and sprawled in the chair. "We all make our living on the sea. We've heard that Shopkeeper Wen came from Australia and made a fortune selling rare goods. We'd like to know where your ship is moored and what your sailing route is—so we brothers can look out for each other on the water."
 
 Wen Desi didn't answer, only asking: "Where is this place?"
 
-The man laughed: "This is merely a temporary lodging for Shopkeeper Wen. No need to know. We're very curious about Australian affairs—we hope the shopkeeper won't be stingy with information." His expression turned threatening.
+The man laughed. "This is merely a temporary lodging for Shopkeeper Wen. No need to know. We're very curious about Australian affairs—we hope the shopkeeper won't be stingy with information." His expression turned threatening.
 
-Director Wen thought: *You skinny little runt—you think I'm scared of you?* In normal circumstances, he would have already given the man a thorough beating. But his hands and feet were weak and aching—he could barely move. Better not to take reckless risks. He could only respond:
+Director Wen thought: *You skinny little runt—you think I'm scared of you?* Under normal circumstances, he would have already given the man a thorough beating. But his hands and feet were weak and aching—he could barely move. Better not to take reckless risks. He could only respond:
 
 "Certainly. What would you like to know?"
 
@@ -52,11 +52,11 @@ Boss Wang seemed quite wary of this girl; he hurriedly stood and offered his sea
 
 "Oh, Boss Wang, don't say that. I'm not some villain. I'm someone with a reputation on the seas. Why be so secretive? I'm Li Siya—" She stood up, lifted her skirt hems with both hands, placed her right foot back, and gave a graceful curtsy. Director Wen's brain buzzed. *Could this girl also be a transmigrator? Were there others in this world besides them?!*
 
-Forcing himself to stay calm, he stood and gave a slight bow: "I am Wen Desi."
+Forcing himself to stay calm, he stood and gave a slight bow. "I am Wen Desi."
 
-Now it was Li Siya's turn to be slightly startled: "Australia also practices Western etiquette?"
+Now it was Li Siya's turn to be slightly startled. "Australia also practices Western etiquette?"
 
-Wen Desi noticed the girl's hair and pupils had a slight brown tint; her long hair was slightly curly. He guessed she probably had Portuguese blood—such local-born mixed-race were common in Macau, with some even having two Portuguese parents. The curtsy was simply Western manners. Reassured, he smiled:
+Wen Desi noticed the girl's hair and pupils had a slight brown tint; her long hair was slightly curly. He guessed she probably had Portuguese blood—such local-born mixed-race individuals were common in Macau, with some even having two Portuguese parents. The curtsy was simply Western manners. Reassured, he smiled:
 
 "In Australia, we normally practice Western etiquette."
 

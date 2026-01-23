@@ -4,7 +4,7 @@ The transmigrators' meals since D-Day had consisted of rice and seafood. After a
 
 The result was that whether it was smoked fish or fish cakes, everything tasted strange and failed to excite the palate. Sometimes the Cafeteria Office improved meals using reserve canned goods, but the quantities were minuscule relative to the population. A single can of luncheon meat for two people would be nauseatingly rich, while one can shared among ten meant almost no one received any.
 
-One day, Wu Nanhai furtively brought Wu De a smoked sausage. In another time and space, he wouldn't have glanced at this, but now it seemed incredibly delicious, even though it lacked pepper and contained only garlic. Wu Nanhai repeatedly urged secrecy, especially from Nick—this was horse-meat sausage made from his "Blue Lightning." The Australian racehorse's remains had been quietly embezzled as the Agriculture Group's private stash. Nick's occasional pilgrimages to the racehorse's grave found it empty; even the bones had been secretly collected. Wu Nanhai planned to make bone-meal fertilizer.
+One day, Wu Nanhai furtively brought Wu De a smoked sausage. In another time and space, he would not have glanced at this, but now it seemed incredibly delicious, even though it lacked pepper and contained only garlic. Wu Nanhai repeatedly urged secrecy, especially from Nick—this was horse-meat sausage made from his "Blue Lightning." The Australian racehorse's remains had been quietly embezzled as the Agriculture Group's private stash. Nick's occasional pilgrimages to the racehorse's grave found it empty; even the bones had been secretly collected. Wu Nanhai planned to make bone-meal fertilizer.
 
 The dead horses dragged back after defeating the "First Counter-Encirclement"—as everyone called it after the *Lingao Express* started publishing—became their first real meat improvement in over a month. The six pigs sent by the local gentry became the cafeteria's rare delicacy.
 
@@ -28,7 +28,7 @@ This comprehensive utilization plan hit one big problem: no one knew how to slau
 
 Wu Nanhai summoned Yang Baogui. Everyone naturally assumed that since he had successfully butchered and sectioned several dead horses for the Cafeteria Office, he could handle pig slaughtering. But the veterinarian shook his head—taking a pig's life was easy, but slaughtering was skilled work. Done wrong, you would ruin the meat. He cited the EU example: to implement animal humanitarianism, the EU had washed out centuries-old slaughter methods in favor of humane electrocution, and now EU pork tasted terrible.
 
-Finally, the Military Group veterans solved the problem. What military company didn't raise pigs? Come the New Year's feast, their own mess squads organized the slaughter. Some had helped in the mess halls. Several veterans rolled up their sleeves, boiled big pots of water, and killed all the pigs efficiently.
+Finally, the Military Group veterans solved the problem. What military company did not raise pigs? Come the New Year's feast, their own mess squads organized the slaughter. Some had helped in the mess halls. Several veterans rolled up their sleeves, boiled big pots of water, and killed all the pigs efficiently.
 
 Yang Baogui and Shi Niaoren formed an inspection team, performing on-site quarantine. These pigs were reasonably healthy—no serious parasitic infections—but they advised cooking all meat thoroughly.
 
@@ -42,11 +42,11 @@ As the entire industrial center shifted toward Bairren Rapids, various supportin
 
 *Navy!* Wu Nanhai thought. Eating problems were still unsolved, and someone was already proposing a navy. Seeing his tent of over a month being dismantled made him sentimental. He tossed the nylon nets Wu De had given him onto the farm truck. Wu De the fisherman was now happily running his labor-reform squad, daily tormenting natives with work and brainwashing. Had he stayed in the Fishery Group, would Chen Haiyang have suddenly proposed a navy?
 
-This farm truck had a long string of two-wheeled carts—abandoned militia vehicles—hitched behind it, loaded with the Agriculture Group's belongings: small tools, irrigation equipment, sprayers, complete agricultural experimental equipment, veterinary instruments, seeds, cages of chickens, ducks, and rabbits... The farm trucks were becoming trains here. He didn't know much about vehicles, but surely this couldn't be right. During difficulties, they would make do—hopefully the truck held up until everything was transported.
+This farm truck had a long string of two-wheeled carts—abandoned militia vehicles—hitched behind it, loaded with the Agriculture Group's belongings: small tools, irrigation equipment, sprayers, complete agricultural experimental equipment, veterinary instruments, seeds, cages of chickens, ducks, and rabbits... The farm trucks were becoming trains here. He did not know much about vehicles, but surely this could not be right. During difficulties, they would make do—hopefully the truck held up until everything was transported.
 
-Yang Baogui waved a homemade whip, directing his six dogs running front and back, driving the newly formed marching column: several pigs, a pair of donkeys, and three horses. These large animals didn't get vehicle rides; they would walk to their new home. These breeding animals were precious, so the Military Group sent seven or eight escorts.
+Yang Baogui waved a homemade whip, directing his six dogs running front and back, driving the newly formed marching column: several pigs, a pair of donkeys, and three horses. These large animals did not get vehicle rides; they would walk to their new home. These breeding animals were precious, so the Military Group sent seven or eight escorts.
 
-"Old Yang, hard work." Wu Nanhai walked to his side. "Let's walk together." Livestock farming wasn't his specialty; he wanted to chat with the veterinarian.
+"Old Yang, hard work." Wu Nanhai walked to his side. "Let's walk together." Livestock farming was not his specialty; he wanted to chat with the veterinarian.
 
 "It's far—over ten kilometers. Can your body handle it?" Yang Baogui eyed his somewhat pudgy frame.
 

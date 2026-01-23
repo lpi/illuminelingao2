@@ -1,32 +1,32 @@
 # Chapter 29: Kindness and Authority, Both Applied
 
-The four visitors spent the rest of that day productively. Master Gao's table of food and wine consisted of the "Four Great Courses"—twelve dishes.
+The four visitors spent the rest of that day productively. Master Gao's table of food and wine consisted of the "Four Great Courses"—twelve dishes in all.
 
-The cuisine differed from modern Cantonese cooking, but natural ingredients and careful preparation made for rich, fresh, succulent flavors. A thick soup of "Xi Shi's Tongue" clams was particularly excellent, drawing appreciative nods from everyone.
+The cuisine differed from modern Cantonese cooking, but natural ingredients and careful preparation produced rich, fresh, succulent flavors. A thick soup of "Xi Shi's Tongue" clams proved particularly excellent, drawing appreciative nods from everyone.
 
-Beiwei thought: *Being a leader really is great. Where would ordinary folks get to indulge like this in the Ming Dynasty?* While musing, Gao Qing's wife, Gao Xian, brought out a freshly reheated main dish—a full plate of meatballs the size of pigeon eggs, floating in shallow clear broth, glistening and tender, sprinkled with bright green scallions.
+Beiwei thought: *Being a leader really is grand. Where would ordinary folks get to indulge like this in the Ming Dynasty?* While musing, Gao Qing's wife, Gao Xian, brought out a freshly reheated main dish—a full plate of meatballs the size of pigeon eggs, floating in shallow clear broth, glistening and tender, sprinkled with bright green scallions.
 
-Wen Desi picked up his spoon first. One bite, and fresh, clean flavors filled his palate, with a subtle tingle of Sichuan pepper in the aftertaste. Director Wen had mixed in social circles back home; though not one for lavish banquets, his dining experience was among the best of the transmigrators. But this mouthful stumped him—he couldn't identify what it was. It seemed like chicken but also like seafood. He asked:
+Wen Desi picked up his spoon first. One bite, and fresh, clean flavors filled his palate, with a subtle tingle of Sichuan pepper in the aftertaste. Director Wen had mixed in social circles back home; though not one for lavish banquets, his dining experience was among the best of the transmigrators. Yet this mouthful stumped him—he couldn't identify what it was. It seemed like chicken but also like seafood. He asked:
 
 "What is this?"
 
-"'Land and Sea Treasure.'" Gao Xian replied softly. "Soft-shelled turtle, silver fish, chicken, frog, and white shrimp, all mixed together. Does it please you, sir?"
+"'Land and Sea Treasure,'" Gao Xian replied softly. "Soft-shelled turtle, silver fish, chicken, frog, and white shrimp, all mixed together. Does it please you, sir?"
 
 "Excellent—truly delicious."
 
 "Mm, indeed very good."
 
-"The landlord class really does live decadently." Engineer Wang wore an envious expression—clearly wanting to be decadent but unable.
+"The landlord class really does live decadently," Engineer Wang wore an envious expression—clearly wanting to be decadent himself but unable.
 
 "Such a fuss over some meatballs!" Beiwei curled his lip.
 
-"Almost every dish has Sichuan pepper—it ruins what would otherwise be wonderful flavor." Wen Desi shook his head regretfully. "The ingredients are so fresh and natural..."
+"Almost every dish has Sichuan pepper—it overwhelms what would otherwise be wonderful flavor." Wen Desi shook his head regretfully. "The ingredients are so fresh and natural..."
 
 "That seems to be a Ming-era habit. The Ming was also an important market in the Southeast Asian spice trade."
 
-"That entrepôt trade is worth doing."
+"That entrepôt trade is worth pursuing."
 
-As they talked, Gao Xian brought out six small plates of cured snacks to accompany the wine. She came to warm the wine, but found the jar of Jinhua wine untouched. She hesitated:
+As they talked, Gao Xian brought out six small plates of cured snacks to accompany the wine. She came to warm the wine but found the jar of Jinhua wine untouched. She hesitated:
 
 "The masters don't drink wine?"
 
@@ -36,13 +36,13 @@ As they talked, Gao Xian brought out six small plates of cured snacks to accompa
 
 "Flower essence—like cologne?" Everyone was startled.
 
-"Yes, I distilled it myself. Right now I have rice-leaf and perilla. If the masters don't mind, please try some."
+"Yes, I distilled it myself. Currently I have rice-leaf and perilla. If the masters don't mind, please try some."
 
 It turned out to be aromatic essential oil distilled from plant leaves and flowers. Ming-era distilling technology was already mature; small alembics, besides making liquor, were commonly used for flower essences.
 
 Diluted with clear water, it had an elegant, refreshing fragrance.
 
-But Xiao Zishan grew suspicious. This Gao Xian was supposedly a tenant farmer's wife who did menial work—yet she knew how to make flower essence and understood fine recipes... He studied the woman more carefully and found in her movements and bearing a certain refinement, not the awkwardness of her husband.
+But Xiao Zishan grew suspicious. This Gao Xian was supposedly a tenant farmer's wife who did menial work—yet she knew how to make flower essence and understood fine recipes... He studied the woman more carefully and found in her movements and bearing a certain refinement, nothing like the awkwardness of her husband.
 
 Intent on investigating, he stopped her. "Sister Gao, you've served in a grand household before, haven't you?"
 
@@ -56,7 +56,7 @@ Gao Xian stammered: "I... the other servant women taught me... forgive my presum
 
 "This servant is thirty."
 
-Xiao Zishan looked at her face—darkened now, but showing traces of youthful beauty—and thought of Gao Lujie's appearance, the age difference between this couple. He understood seven or eight parts of it, though there was no need to speak aloud now.
+Xiao Zishan looked at her face—darkened by labor now, but showing traces of youthful beauty—and thought of Gao Lujie's appearance, the age difference between this couple. He understood seven or eight parts of it, though there was no need to speak aloud just yet.
 
 After a moment's thought, he glanced outside the hall. No one else was there; Gao Qing was probably working in the back courtyard.
 
@@ -82,13 +82,13 @@ Beiwei had been a revolutionary soldier under the red flag; he couldn't stand se
 
 "And he's promised you—if one day we return to Australia, he'll take you back into the Gao household. Is that so?!"
 
-Gao Xian trembled—*the masters know everything!* She silently cursed her husband for his lack of backbone. Every time Steward Yan coaxed and threatened, he agreed to let him search around. Though nothing had been discovered, this was still the crime of betraying one's masters!
+Gao Xian trembled—*the masters know everything!* She silently cursed her husband for his lack of backbone. Every time Steward Yan cajoled and threatened, he agreed to let him search around. Though nothing had been discovered, this was still the crime of betraying one's masters!
 
 "This servant deserves death. It's all my husband's fault..." Gao Xian prostrated herself, confessing everything about Steward Yan's visits during their absences.
 
 "My husband is soft-eared and weak-minded; he was foolish to heed that man's nonsense," Gao Xian sobbed. "I beg the masters, considering his age and his leg ailment, to spare him the household punishment. This servant is willing to take double punishment on his behalf."
 
-Everyone listened, finding it matched their prior estimates. Seeing her beg so pitifully for her husband, they couldn't help but feel sympathy. *You don't know how sweet the new society is until you've been in the old one.*
+Everyone listened, finding it matched their prior estimates. Seeing her beg so pitifully for her husband, they couldn't help but feel sympathy. *You don't know how sweet the new society is until you've experienced the old one.*
 
 Xiao Zishan deliberately waited, then heaved a theatrical sigh:
 
@@ -146,7 +146,7 @@ To gain loyalty: first, one must have power—no one is loyal to the weak; secon
 
 "I read that the time-travel predecessors had it easy—a few words and their followers would kowtow."
 
-"Maybe we don't have that 'main-character aura'?"
+"Maybe we lack that 'main-character aura'?"
 
 "You can have it—I don't want it..."
 

@@ -4,11 +4,11 @@
 
 The Committee already had ledgers, but fifty-plus days ashore had changed numbers and categories, so corrections were needed.
 
-**Seeds**: 100 kg of hybrid rice. This "crossing superweapon" wasn't as magical as legend claimed. Essentially plant-kingdom "mules," they had many advantages but couldn't reproduce. Wu Nanhai brought these to achieve a first-year bumper harvest, stabilizing grain reserves. With grain, everything else followed.
+**Seeds**: 100 kg of hybrid rice. This "crossing superweapon" was not as magical as legend claimed. Essentially plant-kingdom "mules," they had many advantages but could not reproduce. Wu Nanhai had brought these to achieve a first-year bumper harvest, stabilizing grain reserves. With grain, everything else followed.
 
 Other rice varieties included 50 kg each of twenty types, totaling 1,000 kg. This included 1960s–70s Lingao-adapted high-yield, lodging-resistant varieties like Guangguichao and Shuanggui.
 
-High-yield sweet potatoes for future promotion: 100 kg. While 1628 Hainan should already have sweet-potato cultivation, these were quality seed tubers. Potatoes: 100 kg. Lingao's conditions weren't ideal for potatoes, but this crop worked as a vegetable, grain, and feed, offering great potential when promoted to the mainland. Also: 20 kg of kudzu and 20 kg of quality alfalfa seeds.
+High-yield sweet potatoes for future promotion: 100 kg. While 1628 Hainan should already have sweet-potato cultivation, these were quality seed tubers. Potatoes: 100 kg. Lingao's conditions were not ideal for potatoes, but this crop worked as a vegetable, grain, and feed, offering great potential when promoted to the mainland. Also: 20 kg of kudzu and 20 kg of quality alfalfa seeds.
 
 Corn, wheat, and barley: 100 kg each. Various beans—soybeans, mung beans, adzuki beans, black beans, etc.—10 kg each.
 
@@ -18,9 +18,9 @@ Corn, wheat, and barley: 100 kg each. Various beans—soybeans, mung beans, adzu
 
 Before boarding, he had also bought several 1 kg packets of Hainan-suitable fruit seeds.
 
-Finally, he hadn't forgotten tobacco—his little vice. 10 kg of tobacco seeds would bring a future tobacco-industry monopoly. Wu Nanhai had already planned to manufacture his own cigarettes once the tobacco grew.
+Finally, he had not forgotten tobacco—his little vice. 10 kg of tobacco seeds would bring a future tobacco-industry monopoly. Wu Nanhai had already planned to manufacture his own cigarettes once the tobacco grew.
 
-All seeds had proper packaging with a two-year shelf life. Some varieties weren't suited locally—prepared for northern regions—so he had bought vacuum-packed versions with seven or eight years of storage.
+All seeds had proper packaging with a two-year shelf life. Some varieties were not suited locally—prepared for northern regions—so he had bought vacuum-packed versions with seven or eight years of storage.
 
 "That's the seeds." Ye Yuming continued. "Also some seedlings—must be transplanted to the nursery ASAP."
 
@@ -28,7 +28,7 @@ All seeds had proper packaging with a two-year shelf life. Some varieties weren'
 
 **Livestock and poultry**: currently 6 pigs—two pairs of Landrace and one pair of Northeast Min pigs. Landrace from Denmark were lean-meat pigs, used as crossbreeding sires. Northeast Min pigs from the northeast were local breeds—tolerant of rough feed, with high litter sizes—used as crossbreeding dams. This breed also had especially high fat-deposition ratios, which was useful for obtaining animal fats. Now they also had four local piglets.
 
-**Horses**: only one pair of Tieling draft horses—a relatively scarce type in ancient China. Nick's two racehorses weren't originally under their management, but after "Blue Lightning" died, a heartbroken Nick put "Aranchi" under Agriculture Committee care. Initially, Wu Nanhai was very reluctant—Nick's care requirements were annoying: feed five times daily, give it warm water to drink... Until Yang Baogui said this old racehorse still had value—it was a mare.
+**Horses**: only one pair of Tieling draft horses—a relatively scarce type in ancient China. Nick's two racehorses were not originally under their management, but after "Blue Lightning" died, a heartbroken Nick put "Aranchi" under Agriculture Committee care. Initially, Wu Nanhai was very reluctant—Nick's care requirements were annoying: feed five times daily, give it warm water to drink... Until Yang Baogui said this old racehorse still had value—it was a mare.
 
 "If it were a stallion, it would've been gelded at age two or three during racing training—it would be useless now." Yang Baogui was fairly satisfied with this horse.
 
@@ -68,8 +68,7 @@ Wu Nanhai built grape trellises over courtyard paths, planted fruit trees on sid
 
 "You're turning the whole yard upside down!" Huang Dashan pushed his two-wheeled cart over—just transferred to the Agriculture Committee through the Personnel Group. His cart held his luggage.
 
-"Hehe, in a while, this place will be fragrant with flowers and fruit." Wu Nanhai admired the messy bamboo-and-rope trellises. He glanced at the thick-spectacled newcomer:
-"You are?"
+"Hehe, in a while, this place will be fragrant with flowers and fruit." Wu Nanhai admired the messy bamboo-and-rope trellises. He glanced at the thick-spectacled newcomer: "You are?"
 
 "I'm Huang Dashan. Here's my transfer order." Huang Dashan pulled a small slip from his pocket.
 
@@ -81,7 +80,7 @@ Wu Nanhai built grape trellises over courtyard paths, planted fruit trees on sid
 
 "Under the fruit trees would work—grape trellises are actually the best spot." Huang Dashan surveyed the area. "Start with easy oyster mushrooms—easy to grow, high yield. No shed needed. When conditions allow, build specialized cultivation sheds. I brought quite a few cultures. But I'll need a room for my lab—I brought standard biochem lab equipment." He added: "Preferably an isolated building, far from other living things..."
 
-"Hm?" Wu Nanhai didn't understand his meaning but nodded anyway.
+"Hm?" Wu Nanhai did not understand his meaning but nodded anyway.
 
 Yang Baogui received a room as a veterinary office plus a bedroom. His carefully guarded boxes—hidden in tents and prefabs, painstakingly carried throughout the journey—finally had a stable home. Inside was complete animal medical equipment and reference books. Wu Nanhai planned to dedicate one room for storing all brought agricultural books, planting manuals, and instructional video discs—a specialized agricultural library.
 

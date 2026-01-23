@@ -1,18 +1,18 @@
 # Chapter 97: Credit (Part 2)
 
-Work-point voucher statistics from the first issuance and recovery were quickly compiled: 815.3 points issued, 334 points recovered—a 40% same-day recovery. First-time recipients eager to convert to goods was understandable. Over the next few days, remaining tokens gradually returned, but much slower than expected. Wu Nanhai breathed relief—on issuance day, he'd consumed about 60 extra kilograms of rice and grains.
+Work-point voucher statistics from the first issuance and recovery were quickly compiled: 815.3 points issued, 334 points recovered—a 40% same-day recovery. First-time recipients eager to convert to goods was understandable. Over the next few days, remaining tokens gradually returned, but much slower than expected. Wu Nanhai breathed relief—on issuance day, he had consumed about 60 extra kilograms of rice and grains.
 
-But work-point voucher credit was basically established. Though some remained skeptical, these paper slips genuinely bought extra food from the food cart daily. Next, Wu Nanhai began selling locally-produced rice wine—5 points per 250g bottle. To prevent drunken incidents, weekly sales were limited to one bottle per person. But sales were surprisingly poor—puzzling Wu Nanhai. This batch was from Zhang Xingfu's prisoner-affairs tribute; he'd specifically asked prisoners, who all said it was the county's better rice wine.
+But work-point voucher credit was basically established. Though some remained skeptical, these paper slips genuinely bought extra food from the food cart daily. Next, Wu Nanhai began selling locally-produced rice wine—5 points per 250g bottle. To prevent drunken incidents, weekly sales were limited to one bottle per person. But sales were surprisingly poor—puzzling Wu Nanhai. This batch was from Zhang Xingfu's prisoner-affairs tribute; he had specifically asked prisoners, who all said it was the county's better rice wine.
 
 If it was quality, why such low sales? After weeks of working with the Production Team, he could now roughly communicate in a Lingao-Mandarin hybrid. Most answered: "Too expensive—can't afford."
 
-Hearing this, Wu De laughed happily: "Good news."
+Hearing this, Wu De laughed happily. "Good news."
 
 "What's good about it?" Wu Nanhai had hoped wine would reclaim some vouchers, reducing grain consumption.
 
 "It means they recognize the voucher's value!" Wu De said. "They think it's money now—that's why they feel this way. If these were 1949 Gold Yuan Certificates, would anyone care about prices? Just being able to buy anything would be enough."
 
-Wu Nanhai suddenly understood, chuckling ruefully. He'd never considered this.
+Wu Nanhai suddenly understood, chuckling ruefully. He had never considered this.
 
 "You didn't think from their perspective—and many here haven't either, assuming these people should naturally trust the voucher's value." Wu De smiled wryly. "It's all about what you think they should do, what I think they should do. Right? Everyone forgets these are living people too—each with their own calculations. Why should they easily trust you?"
 
@@ -30,13 +30,13 @@ The new Production Team captain wore brand-new homespun clothes styled after tra
 
 "Go on."
 
-Lin Xing knelt and kowtowed before speaking. Many Production Team members were tenant farmers; they'd been away over a month now. The autumn harvest was imminent, and many worried that without returning to harvest, their families would lack labor, couldn't gather grain, and couldn't pay rent—if landlords evicted them, the whole family would starve.
+Lin Xing knelt and kowtowed before speaking. Many Production Team members were tenant farmers; they had been away over a month now. The autumn harvest was imminent, and many worried that without returning to harvest, their families would lack labor, could not gather grain, and could not pay rent—if landlords evicted them, the whole family would starve.
 
 "Everyone chose me to beg the Master's mercy—let everyone return to see family, finish this season's farmwork, then come back." Lin Xing kowtowed again.
 
-Wanting to go home? It wasn't surprising to Wu De. Unattached singles were a minority; most Production Team members owned no land but had families—impossible to abandon. Such thoughts were completely reasonable.
+Wanting to go home? It was not surprising to Wu De. Unattached singles were a minority; most Production Team members owned no land but had families—impossible to abandon. Such thoughts were completely reasonable.
 
-But once released, would they return? Wu De wasn't certain. From gathered intelligence on laborer attitudes, most felt working here was similar to laboring for landlords; after implementing work-points, enthusiasm had increased. But how many would work for them long-term and permanently?
+But once released, would they return? Wu De was not certain. From gathered intelligence on laborer attitudes, most felt working here was similar to laboring for landlords; after implementing work-points, enthusiasm had increased. But how many would work for them long-term and permanently?
 
 He hesitated, first dismissing Lin Xing.
 
@@ -70,11 +70,11 @@ This inflammatory speech stirred resonance in many. Seeing whispers spread, Xiao
 
 "What's to fear?" Xiao Bailang dismissed. "Collaborators are always abundant—Green Standard armies, Peace Armies, Imperial Collaboration Armies. Give them food and recruit as many fighters as you want—"
 
-Cheng Dong, the pacifist, couldn't bear it: "So you want us to match Tungusic savages' or Japanese devils' moral standards?"
+Cheng Dong, the pacifist, could not bear it. "So you want us to match Tungusic savages' or Japanese devils' moral standards?"
 
 "What do you think we are?" Xiao Bailang snorted. "What right do we have to be here? By what authority do we occupy this land? Is Lingao transmigrators' 'inseparable territory since ancient times'? We're timespace invaders—stop the cosmetic pretense!"
 
-The meeting threatened to lose control. So far, no one had publicly supported Xiao Bailang—but clearly his words were highly inflammatory. Wen Desi sensed danger. This naked, morally-indifferent, interest-supremacist expression had powerful mass appeal. Deep down, he didn't actually dislike Xiao Bailang's speech—essentially correct. But many things couldn't be said so nakedly—dangerous.
+The meeting threatened to lose control. So far, no one had publicly supported Xiao Bailang—but clearly his words were highly inflammatory. Wen Desi sensed danger. This naked, morally-indifferent, interest-supremacist expression had powerful mass appeal. Deep down, he did not actually dislike Xiao Bailang's speech—essentially correct. But many things could not be said so nakedly—dangerous.
 
 Thinking how to stop this, Zhan Wuya stood up and called out: "Little Xiao, stop talking! People should have some bottom line—we can't just do whatever benefits us."
 
@@ -82,7 +82,7 @@ Thinking how to stop this, Zhan Wuya stood up and called out: "Little Xiao, stop
 
 "Bullshit!" Zhan Wuya exploded in fury. "Two days ago, if I hadn't rushed over to cut the power, you'd only have one hand left today! By your logic—how many hands you have, why should I care?!"
 
-Xiao Bailang deflated. Wen Desi silently thanked luck—honestly, continuing this debate could've led anywhere. Though Xiao Bailang's extremist proposal wouldn't pass, debate's rifts would be hard to mend. Fortunately, Zhan Wuya stepped in—he knew nothing about this minor incident—but no time for details. Seizing this pause, he quickly stood:
+Xiao Bailang deflated. Wen Desi silently thanked luck—honestly, continuing this debate could have led anywhere. Though Xiao Bailang's extremist proposal would not pass, the debate's rifts would be hard to mend. Fortunately, Zhan Wuya stepped in—he knew nothing about this minor incident—but no time for details. Seizing this pause, he quickly stood:
 
 "Everyone, stop arguing. Please focus on the topic. How can we maximize our interests while ensuring our environment remains stable long-term?"
 

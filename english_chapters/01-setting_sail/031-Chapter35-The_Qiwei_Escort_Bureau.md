@@ -1,22 +1,22 @@
 # Chapter 35: The Qiwei Escort Bureau
 
-"Help rescue a hostage?" The elderly manager of the Qiwei Escort Bureau, Sun Kecheng, rolled his eyes around and fixed them on Sun Chang, who had come to summon him.
+"Help rescue a hostage?" The elderly manager of the Qiwei Escort Bureau, Sun Kecheng, rolled his eyes and fixed them on Sun Chang, who had come to summon him.
 
-This Sun Chang fellow—by martial lineage he was his disciple-nephew and also a distant relative—but his too-blunt personality made him unpopular. After drifting to Guangzhou, he had simply become someone's slave. Sun Kecheng often felt regret about this—what a waste of his martial skills.
+This Sun Chang fellow—by martial lineage his disciple-nephew and also a distant relative—but his too-blunt personality made him unpopular. After drifting to Guangzhou, he had simply become someone's slave. Sun Kecheng often felt regret about this: what a waste of his martial skills.
 
-He had considered finding Sun Chang a place at the escort bureau, but the market for escort services had been bad these past years, and business was far worse than before. An escort bureau wasn't like other trades where adding a person just meant another pair of chopsticks. In the escort business, each position served a purpose: when you had work, you had people; more work meant hiring more, which meant more expenses with little profit margin. When business was slow, you didn't lay off—everyone tightened their belts together. With business down, naturally they couldn't add staff.
+He had considered finding Sun Chang a place at the escort bureau, but the market for escort services had been poor these past years, and business was far worse than before. An escort bureau wasn't like other trades where adding a person just meant another pair of chopsticks. In the escort business, each position served a purpose: when you had work, you had people; more work meant hiring more, which meant more expenses with little profit margin. When business was slow, you didn't lay off—everyone tightened their belts together. With business down, naturally they couldn't add staff.
 
 "Yes, my masters request that you come to discuss the matter."
 
 Sun Kecheng was somewhat confused. He recalled that Sun Chang served at the mansion of the great Haopan Street merchant Gao Ju. This Master Gao was a well-connected figure in Guangzhou—why, when robbed, would he seek them out instead of official channels?
 
-As for hostage rescue, escort bureaus weren't particularly interested. Relations between escort services and bandits were based on harmony—using secret argot, "making friends"—not all-out, life-or-death battles. To rescue a hostage was like snatching meat from a wolf's jaws. Anyone bold enough to kidnap someone in the provincial capital city was no petty thief—it meant a vicious fight to the death. Win or lose, once their identity was exposed through involvement, they'd have made enemies with the bandits for good.
+As for hostage rescue, escort bureaus weren't particularly interested. Relations between escort services and bandits were based on harmony—using secret argot, "making friends"—not all-out, life-or-death battles. To rescue a hostage was like snatching meat from a wolf's jaws. Anyone bold enough to kidnap someone in the provincial capital was no petty thief—it meant a vicious fight to the death. Win or lose, once their identity was exposed through involvement, they'd have made enemies with the bandits for good.
 
-But the current situation was difficult. Since the first year of Tianqi, disorder had grown everywhere, escort routes had become increasingly perilous, and income kept dropping. The bureau had a hundred mouths to feed, up and down...
+But the current situation was difficult. Since the first year of Tianqi, disorder had grown everywhere, escort routes had become increasingly perilous, and income kept dropping. The bureau had a hundred mouths to feed, top to bottom...
 
-After much deliberation, he finally agreed to take the job. First, this business could relieve half the bureau's financial strain. Second, according to his disciple-nephew, these new masters were Australian sea merchants—this piqued Sun Kecheng's interest. Australian goods had gained sudden fame recently. These merchants were not only wealthy but treated people generously; they had even permitted him to restore his original surname. They were benevolent gentlemen. For reasons of both sentiment and profit, he should help.
+After much deliberation, he finally agreed to take the job. First, this business could relieve half the bureau's financial strain. Second, according to his disciple-nephew, these new masters were Australian sea merchants—this piqued Sun Kecheng's interest. Australian goods had gained sudden fame recently. These merchants were not only wealthy but treated people generously; they had even permitted Sun Chang to restore his original surname. They were benevolent gentlemen. For reasons of both sentiment and profit, he should help.
 
-Xiao Zishan and Ran Yao viewed the Qiwei Escort Bureau manager that Sun Chang had strongly recommended with some skepticism. They had expected a burly giant, bearded face, the type from martial-arts films. Instead, what arrived was a middle-aged man wearing a plain silk cap and a cross-collared jacket—just like ordinary folk on the street. Though his steps were still steady, he didn't look like a martial-arts hero.
+Xiao Zishan and Ran Yao viewed the Qiwei Escort Bureau manager that Sun Chang had strongly recommended with some skepticism. They had expected a burly giant with a bearded face—the type from martial-arts films. Instead, what arrived was a middle-aged man wearing a plain silk cap and a cross-collared jacket, just like ordinary folk on the street. Though his steps were still steady, he didn't look like a martial-arts hero.
 
 But they urgently needed someone to gather information. Gao Di had already volunteered to go out, but no one dared pin all hopes on a few children. They recounted the whole affair, including the investigation results.
 
@@ -38,7 +38,7 @@ After hearing Xiao Zishan's briefing and investigative conclusions, Sun Kecheng 
 
 "They're fishermen?"
 
-Sun Kecheng said: "Though the *Danjia* make their living on the water, some are fishermen. But not all fishermen are *Danjia*." He explained that the *Danjia* engaged in all kinds of water-based trades; their boats could be found at almost every inlet and fork of the Pearl River.
+"Though the *Danjia* make their living on the water, some are fishermen. But not all fishermen are *Danjia*." He explained that the *Danjia* engaged in all kinds of water-based trades; their boats could be found at almost every inlet and fork of the Pearl River.
 
 If there was a *Danjia* person among the kidnappers, things became much clearer. Director Wen was very likely being held on some boat on the water. This was the South City—climb over the city wall and you were at the Pearl River. Once the criminals boarded a boat, they had the whole sea to escape to. Moreover, the *Danjia* were an extremely closed community with dialects and customs distinct from land-dwellers. Without someone familiar with their inner circles, gathering information would be very difficult.
 
@@ -48,7 +48,7 @@ Hearing this, everyone's hearts sank. This was bad.
 
 "The masters needn't despair. It's not that difficult. Though the *Danjia* and land-dwellers have no dealings and are mutually hostile, they wouldn't be behind a kidnapping. It must be outside criminals in league with pleasure-boat prostitutes. These prostitutes often engage in illicit activities—that knockout incense isn't something common in the *jianghu* underworld; it's more like what water-based prostitutes use to rob men of their money."
 
-He smiled confidently: "Master Wen should be on one of those flower boats."
+He smiled confidently. "Master Wen should be on one of those flower boats."
 
 "Where do these flower boats moor?"
 
