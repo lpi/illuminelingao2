@@ -28,7 +28,7 @@ A nearby servant hurried to pick them up. Master Gao snatched them away and exam
 
 Then came some transparent boxes, some square, some round, all fitted with lids that sealed tightly. They resembled glassware Master Gao had purchased from the Folangjiren, but weighed far less and didn't break.
 
-There were also shiny little knives, a hooded poncho made of some material that looked like glass yet was waterproof like oilcloth... all sorts of curious things. Master Gao surveyed the table laden with goods, equal parts astonished and delighted. Delighted that these were rare treasures that could be resold at good prices; wary that these people behaved furtively and their background was unclear. After a moment's hesitation, the desire for profit overcame his misgivings. Besides, his own business was foreign trade and smuggling—what did it matter whether they were Folangjiren or Australians? Since they had come to his residence, it made no sense to turn away windfall profit.
+There were also shiny little knives, a hooded poncho made of some material that looked like glass yet was waterproof like oilcloth... all sorts of curious things. Master Gao surveyed the table laden with goods, equal parts astonished and delighted. Delighted that these were rare treasures he could resell at good prices; wary that these people behaved furtively and their background was unclear. After a moment's hesitation, the desire for profit overcame his misgivings. Besides, his own business was foreign trade and smuggling—what did it matter whether they were Folangjiren or Australians? Since they had come to his residence, it made no sense to turn away windfall profit.
 
 "What price do you wish for these rare goods?" Master Gao asked carefully, having made up his mind.
 
@@ -38,7 +38,7 @@ The three expected this fair, refined Ming-era gentleman to purchase such a pric
 
 "That is... truly too dear." Master Gao shook his head repeatedly. "Such glassware is also brought by the Folangjiren from Aomen. Large glass bowls and bottles fetch no more than three taels apiece. Small ones, only about a tael. This cup..." He shook his head again—implying three taels at most.
 
-These three felt as though cold water had been poured over them. They stared at each other: so the legendary must-have time-travel commodity—the glass cup—was not actually valuable...
+The three felt as though cold water had been poured over them. They stared at each other: so the legendary must-have time-travel commodity—the glass cup—was not actually valuable...
 
 Seeing the negotiation was about to fall apart, Xiao Zishan surmised that their estimates had been off. He cupped his hands and said: "Having lived overseas for so long, we are ignorant of local prices. May we ask Master Gao for guidance?"
 
@@ -63,7 +63,7 @@ What interested Master Gao most was the mirror inside the compact. He explained 
 
 Everyone was chagrined: even our proud advantage of several centuries' extra knowledge could not necessarily best these people.
 
-During the conversation, Master Gao also probed them about Australia's customs and conditions. Xiao Zishan deflected with vagueness, saying only that their nation favored blue, that master craftsmen abounded and produced curious wares, that they built their nation on industry and commerce, that the people loved empty talk and constantly formed factions around various causes, but such mobs assembled and scattered just as quickly. When asked who their ruler was, he said: "Our nation has one lord, titled 'Eight Chi.' Below him is a powerful minister who handles military and civil affairs, titled 'Xiaomi.' Noble and commoner alike worship a divine messenger called 'Admin.'" Master Gao clicked his tongue in wonder.
+During the conversation, Master Gao also probed them about Australia's customs and conditions. Xiao Zishan deflected with vagueness, saying only that their nation favored blue, that master craftsmen abounded and produced curious wares, that they built their nation on industry and commerce, that the people loved empty talk and constantly formed factions around various causes, but such mobs assembled and scattered just as quickly. When asked who their ruler was, he said: "Our nation has one lord, titled 'Bachi.' Below him is a powerful minister who handles military and civil affairs, titled 'Xiaomi.' Noble and commoner alike worship a divine messenger called 'Admin.'" Master Gao clicked his tongue in wonder.
 
 As the conversation went on, the three completely forgot their earlier warning not to drink the tea; by the time they rose to take their leave, they had drained their cups dry. This earned a private sneer from Master Gao. Before departing, they closed the deal: the "Australian sea merchants" would supply the first batch of goods in three days, with a promise to bring more novelties.
 

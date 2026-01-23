@@ -28,7 +28,7 @@ Wen Desi opened his laptop and showed them photos taken at the scene. The mutila
 
 With the era established, what did they actually intend to do?
 
-A wormhole leading to an alternate timespace held monumental significance for the scientific community. But the three men in the bathroom were clearly not physicists—a Nobel Prize was not in the cards. If this were to be reported as major news, none of them worked in media; at best, they would be the principals in the story. Naturally, as the discoverer, Director Wen would receive brief mention in the news. Beyond that, all three harbored rather conspiratorial thoughts: given the potentially enormous consequences, the wormhole's existence might very well be entirely suppressed—just as Americans had long suspected there was an Area 51—and in that case, their prospects would be rather grim.
+A wormhole leading to an alternate timespace held monumental significance for the scientific community. But the three men in the bathroom were clearly not physicists—a Nobel Prize was not in the cards. If this were to be reported as major news, none of them worked in media; at best they would be the principals in the story. Naturally, as the discoverer, Director Wen would receive brief mention in the news. Beyond that, all three harbored rather conspiratorial thoughts: given the potentially enormous consequences, the wormhole's existence might very well be entirely suppressed—just as Americans had long suspected there was an Area 51—and in that case, their prospects would be rather grim.
 
 Apart from the wormhole's property owner—since ownerless objects belong to their discoverer, Wen Desi could be considered the wormhole's owner—the other two understood clearly that this was an opportunity. If Wen Desi truly intended to pursue some physics prize or to attempt his "solo, bidirectional, low-profile crossing," he would never have made that post.
 
@@ -44,7 +44,7 @@ After a brief discussion, there in Wen Desi's bathroom, the initial Executive Co
 
 How would they create their new world? The ancients were not mindless NPCs—in wisdom they were no less than modern people. They lacked neither courage nor strength. As for environmental adaptability, pampered modern folk could not begin to compare. Though these three enjoyed reading time-travel and alternate-history novels, at least they knew they possessed no "aura of a true king."
 
-The one advantage the transmigrators had over the people of that era was three hundred additional years of civilizational accumulation.
+The one advantage transmigrators had over the people of that era was three hundred additional years of civilizational accumulation.
 
 "Scale and standardization," said Wang Luobin, "are the keys to victory. An industrialized society is capable of defeating any ancient society."
 
@@ -63,7 +63,7 @@ Of course, theoretically subsequent participants would also bring capital, but n
 
 Utilizing the bidirectional crossing to exploit price differences between the two timespaces seemed the most realistic method for quickly raising funds.
 
-Using modern products to reap enormous profits in an ancient era—this was the tried-and-true wealth-building technique in every time-travel novel. Everyone immediately thought of glass mirrors, glass cups, matches, wristwatches, and other trademark transmigrator treasures. Countless predecessors had relied on these to make their fortunes in alternate timespaces, digging up their first pot of gold and embarking on their road to hegemony.
+Using modern products to reap enormous profits in an ancient era—this was the tried-and-true wealth-building technique in every time-travel novel. Everyone immediately thought of glass mirrors, glass cups, matches, wristwatches, and other trademark transmigrator treasures. Countless predecessors had relied on these to make their fortunes in alternate timespaces, digging up their first pot of gold and setting out on the road to hegemony.
 
 Xiao Zishan contributed the large quantity of promotional giveaways he had accumulated over the years out of a fondness for small bargains:
 
@@ -71,7 +71,7 @@ Plastic powder compacts with mirrors, melamine bowls, spoons, and chopsticks, sm
 
 Venetian glass mirrors in the seventeenth century were luxury items even in Europe and nonexistent in Asia. From this perspective, mirrors represented a monopoly. Then there were the unbreakable bowls and plates, the transparent lunch boxes... even the empty purified-water bottles they had just drunk from—any of these were novelties unseen in that timespace. Theoretically, they could charge whatever they wanted: one hundred taels per compact, two thousand taels per cup, one hundred taels per bowl... hadn't countless transmigrator predecessors done exactly this?
 
-All three felt their blood pressure rise, excited by the golden future before them. Wen Desi even began to feel a twinge of regret—perhaps risking a solo bidirectional crossing really could have unified the world.
+All three felt their blood pressure rise, excited by the golden future unfolding before them. Wen Desi even began to feel a twinge of regret—perhaps risking a solo bidirectional crossing really could have unified the world.
 
 "But if we just go over like this, the moment we reach the city gate, we'll be arrested as Japanese pirates and hauled off to the Maritime Defense Magistrate's office," Wang Luobin recalled a practical issue.
 
@@ -113,7 +113,7 @@ Suddenly Xiao Zishan slapped the table and laughed:
 
 "We're so stupid! Why are we always thinking about how to get into Guangzhou? Aren't we *in* Guangzhou?"
 
-Everyone's eyes lit up. Indeed—since the wormhole's entry and exit points were identical in both timespaces, as long as they crossed within the Ming-era boundaries of Guangzhou city, they would enter directly inside the city. And if any crisis arose, they could simply open the wormhole and escape back.
+Everyone's eyes lit up. Indeed—since the wormhole's entry and exit points were identical in both timespaces, as long as they crossed within the Ming-era boundaries of Guangzhou city, they would emerge directly inside the city. And if any crisis arose, they could simply open the wormhole and escape back.
 
 The crossing point they chose was Haopan Street, originally in the riverfront zone south of Guangzhou city. This area had been a commercially developed region since the Southern Song dynasty; commerce flourished even more in the early Ming. When the new city walls were expanded during the Jiajing reign, this commercial district along the Pearl River was included within them. From then on, Guangzhou's southern city wall stood directly on the banks of the Pearl River.
 

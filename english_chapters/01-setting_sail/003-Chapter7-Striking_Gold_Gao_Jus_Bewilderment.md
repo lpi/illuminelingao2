@@ -26,7 +26,7 @@ They set the time for around five in the morning—*mao* first watch in ancient 
 
 ---
 
-These past few days, the great Master Gao Ju had been unable to sleep soundly at night. The dogs in the back warehouse courtyard never stopped barking after dark. His guards had gone to check several times but found nothing amiss. The warehouse yard was merely a storage area; its walls were not only high, but flanked by side-courts and alleys. Even a first-rate cat burglar would have difficulty sneaking anyone in. Thus suspicion and superstition took hold; people said that at midnight, an eerie light would sometimes appear in the courtyard. For a time, the Gao household was on edge—daytime was manageable, but after dark, the warehouse became a place everyone avoided. Even the heavens had been strange lately: thunder rumbling at dusk, yet no rain; the sky frequently turning an uncanny shade of purple. Master Gao himself had not been in good spirits; even his favorite concubine had not been graced with his company.
+These past few days, the great Master Gao Ju had been unable to sleep soundly at night. The dogs in the back warehouse courtyard never stopped barking after dark. His guards had gone to check several times but found nothing amiss. The warehouse yard was merely a storage area; its walls were not only high but flanked by side-courts and alleys. Even a first-rate cat burglar would have difficulty sneaking anyone in. Thus suspicion and superstition took hold; people said that at midnight, an eerie light would sometimes appear in the courtyard. For a time, the Gao household was on edge—daytime was manageable, but after dark, the warehouse became a place everyone avoided. Even the heavens had been strange lately: thunder rumbling at dusk, yet no rain; the sky frequently turning an uncanny shade of purple. Master Gao himself had not been in good spirits; even his favorite concubine had not been graced with his company.
 
 It was not ghosts that Master Gao feared—rather, it was that this back courtyard warehouse held the key to his livelihood and his life. Of the hundred-odd shops on Haopan Street, every single one had made its fortune through foreign trade with barbarians. Now, all the goods and silver he had acquired from the Folangjiren the previous winter had been converted into what the Folangjiren favored: raw silk, silk fabric, and porcelain. He had also prepared large quantities of saltpeter and ironware—items the court had explicitly banned from export. If something went wrong, it would be his head—and losing his head would be the least of it. Half of his vast enterprise belonged to Eunuch Yang in the palace. Though Eunuch Yang was not as prominent as the Nine-Thousand-Year-Old, it would be no trouble at all for him to reduce Gao's entire family to ash.
 
@@ -52,7 +52,7 @@ At this thought, great fear seized him. His earlier notion of simply having his 
 
 "We have them surrounded with bows and firearms in the back courtyard," the guard glanced at Master Gao's expression. "From their manner, it seems they bear no ill intent..."
 
-"Fools!" No ill intent, yet they came to his back courtyard—what for, to press soy sauce?
+"Fools!" No ill intent, yet they came to his back courtyard—what for, to borrow soy sauce?
 
 "Master, these men carry no weapons. This is something the leader among them tossed to me"—the guard quickly produced a small box from his jacket—"He also said a great deal, but I couldn't understand much of it."
 

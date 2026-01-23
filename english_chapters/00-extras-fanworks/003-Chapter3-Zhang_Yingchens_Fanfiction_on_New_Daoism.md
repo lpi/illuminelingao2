@@ -12,7 +12,7 @@ The poor quality of Daoist and Buddhist clergy has given Lingao's folk religions
 
 After meeting with the Lingao Monastery and that Rector Wu, I am convinced that if the Lingao Church develops without any counterbalance, it will ultimately attain the status of state religion under the transmigrators' regime.
 
-Yet most of our fellow transmigrators seem not to realize what a state religion entails. Yes, at present our traversal collective is an elite influenced by atheism, and the Lingao Church—constrained by the Religious Affairs Office—cannot compete with us on any level. However, in this seventeenth century, where neither universal education nor materialist thought has yet spread, the Church will doubtless wield a far broader influence than our educational efforts.
+Yet most of our fellow transmigrators seem not to realize what a state religion truly entails. Yes, at present our traversal collective is an elite shaped by atheism, and the Lingao Church—constrained by the Religious Affairs Office—cannot compete with us on any level. However, in this seventeenth century, where neither universal education nor materialist thought has yet taken root, the Church will doubtless wield far broader influence than our educational efforts.
 
 We transmigrators may be immune to their supernatural claptrap, but what of our descendants, our subjects? Obviously we will not use Marxist-Leninist materialism or any industrial-society theory to shape the majority of them. In fact, judging by the behavior of the "soy sauce faction" that dominated the Maid Revolution, they will not concern themselves with this issue either.
 
@@ -32,7 +32,7 @@ For instance, Christianity, influenced by Roman pagan beliefs, began incorporati
 
 Even our Religious Affairs Office's Father Bai and Rector Wu, when spreading Christianity, must accommodate the customs of the Great Ming.
 
-That doctrine gets distorted by contact with alien civilizations is an inevitable problem in missionary work. Though we Lingao collective possess knowledge and historical experience far surpassing this era, this issue still cannot be avoided. However, Lingao's thought is destined to replace old thought; Lingao's religion is destined to replace old religion—whether Roman Catholicism, Orthodoxy, Buddhism, or traditional Daoism, all will inevitably be replaced by Lingao's religion. This is a great war of ideology, with no room for tenderness or modest yielding.
+That doctrine becomes distorted upon contact with alien civilizations is an inevitable problem in missionary work. Though we of the Lingao collective possess knowledge and historical experience far surpassing this era, this issue cannot be avoided. Yet Lingao's thought is destined to replace old thought; Lingao's religion is destined to replace old religion—whether Roman Catholicism, Orthodoxy, Buddhism, or traditional Daoism, all will inevitably be supplanted. This is a great war of ideology, with no room for tenderness or modest yielding.
 
 Throughout history, ordinary administrative measures have been unable to eliminate old religions. Only when a people completely convert to a new religion do they thoroughly break with the old. That is to say, only religion can eliminate religion.
 
@@ -74,7 +74,7 @@ Thirty years after this magnum opus was published, the famous "Rites Controversy
 
 When He Ying received Zhang Yingchen's letter, the tall Mongolian doctor had already boarded a ship bound for the mining district.
 
-Holding this document—more a work plan than a personal letter—He Ying could not help but admire this charlatan's courage and drive.
+Holding this document—more a work plan than a personal letter—He Ying could not help but admire the charlatan's courage and drive.
 
 He sat down, unfolded the letter paper, and slowly read the parting words of Lingao's first Chancellor and Chairman of the Daoist Council:
 

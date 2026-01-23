@@ -44,7 +44,7 @@ Gao Ju dismissed the maids and summoned two trusted servants. He slipped the key
 
 "Open the door."
 
-The old servant produced a key and let them in. On the wall of the inner room was an iron-clad door. Unbolting it, they stepped out and found themselves outside the estate entirely. Before them lay an extremely secluded cobblestone path running along the city wall's base. On one side was wasteland beneath the foundations; on the other, high rear walls of wealthy households. No one was about; weeds grew wild. They occasionally passed branching alleys.
+The old servant produced a key and let them in. On the wall of the inner room was an iron-clad door. Unbolting it, they stepped out and found themselves outside the estate entirely. Before them lay an extremely secluded cobblestone path running along the base of the city wall. On one side was wasteland beneath the foundations; on the other, high rear walls of wealthy households. No one was about; weeds grew wild. They occasionally passed branching alleys.
 
 "The alleys lead to the main road out front; their entrances all have wooden gates normally kept locked. Though this path is public land, ordinary people cannot get in."
 
@@ -80,6 +80,6 @@ Yet before long, Zheng Zhilong, Zhong Lingxiu, Li Kuiqi, and other pirate fleets
 
 So pirate activity was concentrated along the Fujian coast. This information boosted their confidence—at least initially, they wouldn't face BOSS-level figures like Zheng Zhilong or Li Kuiqi.
 
-"Still, caution is best." Gao Ju reminded them: though Guangdong's coast had no major pirates, small pirate and bandit gangs were as numerous as hairs on an ox. They were strangers here; mooring and disembarking required particular care.
+"Still, caution is best," Gao Ju reminded them: though Guangdong's coast had no major pirates, small pirate and bandit gangs were as numerous as hairs on an ox. They were strangers here; mooring and disembarking required particular care.
 
 **(End of Chapter)**

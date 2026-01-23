@@ -2,7 +2,7 @@
 
 Where should they cross over? This wasn't merely a matter of location—it determined their opening base.
 
-A good start was half the battle. The transmigrators all loved strategy games and understood that securing a favorable starting position was key. For them, such a base needed to satisfy:
+A good start was half the battle. The transmigrators all loved strategy games and understood that securing a favorable starting position was key. For them, such a base needed to satisfy several criteria:
 
 1. A solid agricultural foundation to guarantee food supply.
 2. A sufficient population base for post-crossing industrialization.
@@ -40,7 +40,7 @@ From the start, the transmigrators would face punitive expeditions from local fo
 
 Hainan also had long-standing Li-Han tensions. Since the Yuan dynasty, a Li uprising had occurred somewhere on the island roughly every three years. Less than thirty years before their 1627 crossing point—in the twenty-seventh year of Wanli (1599)—the Li leader Ma Shi of Ding'an had risen up, with Li people in Dan, Ya, and Lin responding. The Ming mobilized a hundred thousand troops to suppress it. Peaceful coexistence with the Li people was another problem.
 
-Finally, pirate raids on Hainan had been rampant; many county towns lacked north-facing gates. In the late Ming, the South China Sea was an era when Chinese and foreign maritime traders and pirates displayed their abilities freely. Whether traders or pirates, when plunder beckoned, none would pass it up. Hainan, on major sea routes, had long suffered. The transmigrators, carrying countless modern tools and goods, would be a fat sheep every party coveted.
+Finally, pirate raids on Hainan had been rampant; many county towns lacked north-facing gates. In the late Ming, the South China Sea was an era when Chinese and foreign maritime traders and pirates displayed their abilities freely. Whether traders or pirates, when plunder beckoned, none would pass up the opportunity. Hainan, on major sea routes, had long suffered. The transmigrators, carrying countless modern tools and goods, would be a fat sheep every party coveted.
 
 Viewed this way, although Hainan's foundation was better than Taiwan's, the pressures were also greater.
 
@@ -80,7 +80,7 @@ When the topic drifted to whether treasure ships were wooden ten-thousand-tonner
 
 "Even if we got enough refugees onto the island, the follow-up work would be difficult. These refugees are destitute—they need epidemic prevention, relief, resettlement, housing, seeds, farm tools... Where do all these come from? With our early-stage capabilities, handling this would be beyond us. Hainan has at least a four-hundred-thousand population base—sufficient for early-stage development."
 
-The earlier debate had exhausted most enthusiasm, and some irrational remarks had generated distaste. Xiao Zishan's well-reasoned statement won over the majority. Hainan was confirmed through a vote.
+The earlier debate had exhausted most enthusiasm, and some irrational remarks had generated distaste. Xiao Zishan's well-reasoned statement won over the majority. Hainan was confirmed by a vote.
 
 In the late-Ming timespace, Hainan comprised Qiongzhou Prefecture, governing three subprefectures and ten counties: Qiongshan, Chengmai, Lingao, Ding'an, Wenchang, Lehui, Huitong, Changhua, Lingshui, and Gan'en; the subprefectures of Dan, Wan, and Ya.
 

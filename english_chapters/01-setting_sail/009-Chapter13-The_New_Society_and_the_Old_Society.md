@@ -8,7 +8,7 @@ Parliamentary democracy? Separation of powers? Constitutional monarchy? Authorit
 
 Everyone wanted to be the theorist of the New World.
 
-The debates were intensely lively, with all manner of views emerging in endless succession. To revise history, to usurp the Ming or supplant the Qing, was the dream of many. But what kind of new world to build was clearly contested. From democracy versus dictatorship, peace versus militarism, parliament versus centralization... down to uniform design, whether to mandate universal education, what language the military should use for drill commands, even the peerage system—everything was fought over. Spittle and invective flew together; labels and cudgels came in every color.
+The debates were intensely lively, with all manner of views emerging in endless succession. To revise history, to usurp the Ming or supplant the Qing, was the dream of many. But what kind of new world to build was clearly contested. From democracy versus dictatorship, peace versus militarism, parliament versus centralization... down to uniform design, whether to mandate universal education, what language the military should use for drill commands, even the peerage system—everything was fought over. Spittle and invective flew together; labels and rhetorical cudgels came in every color.
 
 The Executive Committee took an attitude of non-participation and no comment. Since everyone wanted to argue, let them argue to their hearts' content. Better now than on the beaches of Hainan. Besides, people revealed their true colors online—this would deepen their understanding and help select suitable core personnel.
 
@@ -40,7 +40,7 @@ Wen Desi and Wang Luobin exchanged a glance; they could roughly guess Master Gao
 
 Only—how exactly did one wear Ming-era attire? They couldn't make heads or tails of it. None were Hanfu enthusiasts, and after much fumbling, they managed more or less to get dressed. The steward came in to serve tea, saw their caps askew and collars crooked—utterly disheveled—and had to summon a maidservant.
 
-Wealthy families in Guangdong customarily kept servant girls. The steward knew these guests were people the master wished to cultivate, so the maids he called were of good quality: two fifteen- or sixteen-year-old girls with bright, sparkling eyes, pretty and charming. They came in, curtsied gracefully, and began helping them out of their poorly-donned garments. Director Wen had seen his share of romantic scenes, but having such soft little *loli* hands touching and tugging at him while loosening his clothes—even he found it a bit much. *Now this is a man's paradise!* he thought.
+Wealthy families in Guangdong customarily kept servant girls. The steward knew these guests were people the master wished to cultivate, so the maids he called were of good quality: two fifteen- or sixteen-year-old girls with bright, sparkling eyes, pretty and charming. They came in, curtsied gracefully, and began helping them out of their poorly donned garments. Director Wen had seen his share of romantic scenes, but having such soft little hands touching and tugging at him while loosening his clothes—even he found it a bit much. *Now this is a man's paradise!* he thought.
 
 Lost in reverie, he caught a glimpse of Xiao Zishan wearing the same enraptured expression. He chuckled:
 
@@ -58,7 +58,7 @@ Wang Luobin shook his head vigorously: "She's a middle-schooler! How could I!"
 
 "So if she were a high-schooler, you could?" Xiao Zishan teased. "Raise her first; in a few years she'll be ripe..."
 
-"A *loli cultivation plan*?" Wen Desi interjected. "I'm rather interested myself." He looked the girls up and down appraisingly. Though these two were a bit thin and small, they were fair-skinned with delicate features—with better nutrition, good stock...
+"A cultivation plan?" Wen Desi interjected. "I'm rather interested myself." He looked the girls up and down appraisingly. Though these two were a bit thin and small, they were fair-skinned with delicate features—with better nutrition, good stock...
 
 While the big bad wolf's eyes roved over the little white rabbits, the curtain parted and Master Gao strode in. Seeing the scene, he smiled faintly. These sea merchants spent years in the wind and waves; once ashore, every one was a hungry ghost for women. The Dutch and Portuguese were even worse—they'd take any kind.
 

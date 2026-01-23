@@ -30,7 +30,7 @@ Had they not come in broad daylight the previous time and left the same way, he'
 
 "Master Gao, the goods."
 
-Under the study veranda, servants had piled four or five cardboard boxes from the courtyard. Paper cargo boxes—a first for him. His heart pounded. Days earlier, he'd secretly doused the sample merchandise with chicken blood; the next day, items remained perfectly fine—not transformed into dirt clods or wooden dolls. Only then had he relaxed.
+Under the study veranda, servants had piled four or five cardboard boxes from the courtyard. Paper cargo boxes—a first for him. His heart pounded. Days earlier, he'd secretly doused the sample merchandise with chicken blood; the next day, the items remained perfectly fine—not transformed into dirt clods or wooden dolls. Only then had he relaxed.
 
 "Steward Yan, inventory these," Master Gao instructed.
 
@@ -52,7 +52,7 @@ Xiao Zishan reflected on humanity's primal yearning for light. What they'd assum
 
 "Made in our country," Wen Desi smiled with a merchant's cunning. "Two hundred taels will suffice."
 
-"A marvel!" Master Gao circled the lamp, mesmerized, turning the knob to dim and brighten the flame at will. He knew this object, oddly shaped and fitted with expensive glass, was essentially a common lamp. Yet ten times brighter, no smell, no smoke, adjustable. Were Australian craftsmen all reincarnations of Lu Ban?
+"A marvel!" Master Gao circled the lamp, mesmerized, turning the knob to dim and brighten the flame at will. He knew this object, oddly shaped and fitted with expensive glass, was essentially a common lamp. Yet it was ten times brighter, with no smell, no smoke, and adjustable. Were Australian craftsmen all reincarnations of Lu Ban?
 
 A thought struck him. "This oil—this 'kerosene'—does Australia produce it?"
 
