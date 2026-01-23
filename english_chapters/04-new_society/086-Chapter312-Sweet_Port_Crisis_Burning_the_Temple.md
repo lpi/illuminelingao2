@@ -1,187 +1,191 @@
 # Chapter 312: Sweet Port Turbulence — Burning the Temple
 
-Xu Yingjie said, "This equipment hasn't been tested in actual combat yet. Hearing there was an operation in Leizhou, I brought it along. You can all rest assured; weapon trials have been conducted many times. I only brought them because they are relatively mature."
+Xu Yingjie said, "This equipment hasn't seen actual combat yet. When I heard there was an operation in Leizhou, I brought it along. Rest assured—we've conducted extensive trials. I only brought items that are relatively mature."
 
-Chang Shide said, "Just in time for an operation. Some things can be tested." He turned to look at Beiwei.
+Chang Shide nodded. "Just in time for an operation. We can test some of these properly." He turned to Beiwei.
 
-Beiwei nodded: "Good."
+"Good," Beiwei agreed.
 
-"As for the rest, this sleeve arrow concept isn't bad, but I feel it's a bit dangerous," Chen Tianxiong pondered for a moment. "Issue it as emergency equipment to the subordinates. I want five sets of chainmail vests. Although I have protection myself, the managers at the sugar refinery don't; I'm asking on their behalf."
+"As for the rest—the sleeve arrow concept isn't bad, but I find it rather dangerous." Chen Tianxiong pondered for a moment. "Issue them as emergency equipment to the subordinates. I want five sets of chainmail vests. I have protection myself, but the managers at the sugar refinery don't. I'm asking on their behalf."
 
-"We can't make too many chainmail vests right now; materials are limited. Only two sets. I brought four sets of sleeve arrows; equip them to the subordinates first."
+"We can't manufacture too many chainmail vests at present—materials are limited. I can only provide two sets. I brought four sleeve arrows; equip the subordinates first."
 
-At midnight, the moon had already moved west, obscured by drifting clouds, leaving everything on the earth in a state of semi-darkness. Dew floated on the ground, and the group gathered in the courtyard was already slightly damp. Li Yunsheng's sweat-soaked body felt a bit cool under the breeze.
+---
 
-Seeing the moon pass the zenith, he felt uneasy, constantly looking towards the direction of Xuwen County.
+Past midnight, the moon had already drifted westward, obscured by ragged clouds, leaving everything on earth suspended in half-darkness. Dew floated low over the ground, and the group gathered in the courtyard was already damp with it. Li Yunsheng's sweat-soaked body felt cool under the faint breeze.
 
-Li Yunsheng was one of the few indigenous members of the Special Recon Team brought by Beiwei from Lingao. Like the Army and Navy, the Special Recon Team had begun absorbing indigenous soldiers, but the standards were particularly strict. First, they had to be orphans with no ties; second, they had to be young—those over fourteen were rejected. Those with vagrant habits, slow reactions, or who loved to play petty tricks were all rejected. Finally, they had to pass a series of physical and skill tests—truly one in a hundred. Except for drill and cultural classes which were the responsibility of the Military and Political School, everything else was conducted within the Special Recon Team. They ate, lived, and trained together with the transmigrators of the Special Recon Team to form a strong sense of belonging and combat camaraderie.
+Watching the moon pass its zenith, he grew increasingly uneasy, his eyes constantly seeking the direction of Xuwen County.
 
-Beiwei instructed the team members: "Treat the cadets like your sons and brothers! They are not only the future seeds of the Special Recon Team! They are also the future guards of the Transmigration regime."
+Li Yunsheng was one of the few indigenous members of the Special Reconnaissance Team whom Beiwei had brought from Lingao. Like the Army and Navy, the Reconnaissance Team had begun absorbing indigenous soldiers, though the standards were particularly exacting. Candidates had to be orphans—no family ties whatsoever. They had to be young: anyone over fourteen was rejected outright. Those with vagrant habits, slow reactions, or who exhibited petty cunning were similarly dismissed. Finally, they had to pass a brutal series of physical and skill tests—truly one in a hundred. Except for drill and cultural classes, which fell under the Military and Political School, all training was conducted within the Special Reconnaissance Team itself. The cadets ate, lived, and trained alongside the transmigrator operatives, forging unbreakable bonds of belonging and combat brotherhood.
 
-These cadets had only been trained for three months, and their missions were mainly reconnaissance. This was Li Yunsheng's first time going out alone to execute a mission.
+Beiwei's standing order to the team was clear: "Treat the cadets like your sons and brothers. They are not only the future seeds of the Special Reconnaissance Team—they are also the future guardians of the Transmigration regime."
 
-He disguised himself as a betel nut vendor, hawking his wares all the way from Xuwen County directly to Hai'an Street. To avoid suspicion, he kept selling until afternoon, finally circling around to Monk Zou's Temple. Using the opportunity of selling betel nuts, he toured the front and back, inside and out. Following his usual training requirements, he memorized the building structure and every entrance and exit. Then he returned to Hai'an Street, found a dilapidated temple to rest, and didn't come out until it was completely dark to wait at the intersection.
+These cadets had trained for only three months, and their missions were primarily reconnaissance. This was Li Yunsheng's first time executing a mission alone.
 
-According to the plan, at midnight, Chief Bei would personally bring people to meet him, and then take action based on the intelligence.
+He had disguised himself as a betel nut vendor, hawking his wares all the way from Xuwen County to Hai'an Street. To avoid arousing suspicion, he continued selling through the afternoon, finally working his way around to Monk Zou's Temple. Under cover of peddling, he toured the grounds—front and back, inside and out—memorizing the building's structure and every entrance and exit as his training demanded. Then he returned to Hai'an Street, found a dilapidated temple to rest in, and waited until full darkness before moving to the designated rendezvous.
 
-While he was getting anxious, he saw a row of figures walking swiftly from the field ridges. There were vague white cloth strips on their arms—the identification signal. He hurriedly asked:
+According to the plan, Chief Bei would personally bring men at midnight. They would then act based on the intelligence gathered.
+
+Growing anxious, Li Yunsheng finally spotted a row of figures approaching swiftly along the field ridges. White cloth strips flickered on their arms—the recognition signal. He challenged them immediately.
 
 "Password?"
 
-"Sweep!" It was Beiwei's voice; he had indeed led the team personally.
+"Sweep!" Beiwei's voice. He had indeed led the team himself.
 
-The whole team had fifteen people, including those Beiwei brought from Lingao last time and the newcomers this time. Spirits were high and courage full. Xu Yingjie also tagged along, aiming to observe the practical effects of the weapons on site.
+The full team numbered fifteen, including those Beiwei had brought from Lingao previously and the new arrivals. Spirits ran high. Xu Yingjie had tagged along as well, determined to observe the weapons' performance firsthand.
 
-Everyone gathered in a circle, hiding in a chaotic graveyard by the roadside. Li Yunsheng reported the intelligence he had gathered during the day and roughly drew the topography of Monk Zou's Temple on the ground with twigs and small stones.
+They gathered in a huddle, concealing themselves among the chaotic grave mounds beside the road. Li Yunsheng reported the intelligence he had gathered during the day, sketching the topography of Monk Zou's Temple on the dirt with twigs and small stones.
 
-According to Li Yunsheng's description, Monk Zou's Temple was large, with as many as four courtyards deep.
+According to his reconnaissance, Monk Zou's Temple was extensive—fully four courtyards deep.
 
-"The thugs are all gathered in the side rooms and under the eaves of the first courtyard," Li Yunsheng gestured. "So after dark, the temple keeper closed the gate to the second courtyard. The main gate closes relatively late. Besides the main gate, there is a back door behind the temple, but it doesn't connect to the front courtyard."
+"The thugs are gathered in the side rooms and under the eaves of the first courtyard." Li Yunsheng indicated the positions with his finger. "After dark, the temple keeper closes the gate to the second courtyard. The main gate closes later. Besides the main entrance, there's a back door behind the temple, but it doesn't connect to the front courtyard."
 
-Based on his intelligence, Beiwei quickly formulated a plan. He divided the fifteen people into four groups, specified each group's combat division of labor, and then strictly laid down discipline: "This is close to Hai'an Street. Unless absolutely necessary, shooting is forbidden. Try to resolve the battle with knives and crossbows. Don't leave a single thing behind!"
+Drawing on this intelligence, Beiwei formulated his plan swiftly. He divided the fifteen men into four groups, assigned each group its combat role, and laid down strict discipline. "We're close to Hai'an Street. Unless absolutely necessary, no firearms. Resolve this with blades and crossbows. And leave nothing behind."
 
-"Move out!" Beiwei pulled down his hood.
+"Move out." Beiwei pulled down his hood.
 
-With Li Yunsheng as the guide, walking in front with Beiwei, they followed the vegetable gardens, wheat fields, ditches, graves, and tree rows on the periphery of Hai'an Street, all the way to the back of a collapsed pavilion north of Monk Zou's Temple. The team members silently took cover, watching the temple. Under the moonlight obscured by drifting clouds, the surrounding scenery was clearly visible.
+With Li Yunsheng guiding, walking point alongside Beiwei, they threaded through vegetable gardens, wheat fields, irrigation ditches, grave mounds, and tree rows on the outskirts of Hai'an Street, eventually reaching the collapsed pavilion north of Monk Zou's Temple. The team members took cover in silence, watching the temple. Under the drifting cloud-veiled moon, the surrounding landscape was dimly visible.
 
-The temple gate was actually half open. Two thugs, probably drunk, were snoring asleep under the threshold. There were faint lights inside.
+The temple gate stood half-open. Two thugs—evidently drunk—sprawled snoring beneath the threshold. Faint light flickered within.
 
-Beiwei carefully observed the surroundings with the only infrared telescope. Although Monk Zou's Temple was on Hai'an Street, it was actually at the end of the street. The surroundings were very desolate, full of vegetable plots and chaotic grave piles. Only the open ground in front of the temple looked somewhat decent, with many sheds for small businesses set up—now it was midnight, so the sheds were naturally empty.
+Beiwei carefully surveyed the surroundings through the team's only infrared telescope. Though Monk Zou's Temple technically stood on Hai'an Street, it occupied the far end, isolated amid vegetable plots and chaotic grave clusters. Only the open ground before the temple appeared somewhat maintained, crowded with merchant stalls—all empty now at this midnight hour.
 
-A few minutes later, the temple door suddenly opened. Two people came out, each carrying something, looking around furtively before heading towards their hiding place.
+Minutes passed. Suddenly the temple door swung open. Two figures emerged, each carrying a bundle. They glanced furtively in all directions before heading toward the team's hiding place.
 
-They slipped along the edge of the vegetable garden. Probably seeing no one around, they straightened up and walked over nonchalantly. Just as they rounded the corner, two team members hiding there silently pounced from behind, tackling them by the waist. The two thugs were startled and were about to shout when their throats were choked by hands. They were dragged behind a grave, knife points aimed at their chests.
+The pair crept along the vegetable garden's edge. Seeing no one about, they straightened and walked more openly. Just as they rounded a corner, two team members hiding there pounced silently, tackling them around the waist. The thugs started to cry out, but hands clamped over their throats. They were dragged behind a grave mound, knife points pressed to their chests.
 
-The two thugs were scared into lying back against the grave mound. They thought they were being robbed by bandits and begged repeatedly: "Great Kings, spare our lives! We little ones have a few taels of silver with us, we offer it all to the Great Kings."
+The two thugs went limp against the grave, terror replacing bravado. Believing they were being robbed, they groveled immediately. "Great Kings, spare us! We're just small fry—we've got a few taels of silver on us. It's all yours!"
 
-"Silence!" A team member flashed his knife.
+"Silence!" A team member flashed his blade.
 
 "Are you Zhao Jijiao's men?"
 
-The two looked at each other, seemingly realizing who the visitors were. One of them, recovering half his wits, grinned cheekily: "I wondered who it was, so it's the people from South China Sugar—"
+The two exchanged glances, and comprehension seemed to flicker in their eyes. One of them recovered half his wits and managed a sickly grin. "I was wondering who it might be—so it's the South China Sugar folks—"
 
-Beiwei flicked his wrist, and a dagger sank into the man's chest. The man's eyes went wide instantly, his face full of disbelief, and he died.
+Beiwei's wrist flicked. A dagger sank into the man's chest. His eyes went wide with disbelief, and he died.
 
-Everyone immediately smelled a stench. The other one had lost control of his bowels.
+Immediately the stench of loosened bowels filled the air. The other thug had lost all control.
 
 "Are you Zhao Jijiao's subordinate?"
 
-"Yes, yes, this lowly one is."
+"Yes—yes, I am—"
 
-The terrified thug answered hurriedly, daring not to put on an indifferent hooligan act anymore.
+The terrified man answered instantly, all pretense of swagger gone.
 
 "What were you doing going out at midnight?"
 
-"Going to the factory to set fire."
+"Going to the factory to set a fire."
 
-Searching their belongings, it was indeed true. Each carried a bundle of firewood stuffed with oil-soaked dry twigs, and they had fire starters on them.
+They searched the bodies. Indeed: each carried a bundle of firewood stuffed with oil-soaked kindling, along with fire-starters.
 
-"Who told you to go?"
+"Who sent you?"
 
-"It, it was our boss."
+"It—it was our boss."
 
 "Zhao Jijiao?"
 
-"Yes, yes, it's him."
+"Yes, yes, him."
 
-"Who gave the money for the arson?"
+"Who's paying for the arson?"
 
-"Heard Zhao Jijiao say it was given by Third Master Zhu."
+"I heard Zhao Jijiao say it was Third Master Zhu."
 
 "How much?"
 
-"This the lowly ones don't know; silver and money are all managed by Zhao Jijiao. We get one tael for going to set a fire once. Ten taels if something burns!"
+"That—that we don't know. Silver and money, Zhao Jijiao handles all of it. We get one tael per job. Ten if something actually burns!"
 
-The price was really not small. Beiwei listened to the interrogation. Master Zhu, you are truly generous.
+The price was not insignificant. Beiwei listened to the interrogation. *Master Zhu, you are generous indeed.*
 
-"Where is Zhao Jijiao?"
+"Where is Zhao Jijiao now?"
 
-"Just, just gambling inside the front hall."
+"He's—he's gambling inside the front hall."
 
-"How many people are inside?"
+"How many men inside?"
 
 "Twenty-something."
 
-"Are they all inside?"
+"All of them?"
 
-"One went out to set a fire yesterday and hasn't come back! There are also a few drinking outside."
+"One went out to set a fire yesterday and hasn't come back! And there are a few drinking outside."
 
 "How many haven't returned?"
 
-"Three or four. People come and go; this lowly one doesn't know fully. Beg the Master for mercy!"
+"Three or four. People come and go—I don't know exactly. Please, Master, have mercy!"
 
-"Does Zhao Jijiao have any acquaintances or friends outside?"
+"Does Zhao Jijiao have friends or contacts outside?"
 
 "Just a regular whore he visits sometimes."
 
-Seeing the questioning was about done, Beiwei nodded. The interrogator thrust the knife forward, finishing him off.
+Seeing the interrogation was complete, Beiwei nodded. The interrogator thrust his knife forward, finishing the man.
 
-They stripped the corpses and threw them into a deep pit in the chaotic graveyard—unclaimed bodies were often dumped here. The group headed straight for Monk Zou's Temple. Beiwei left one person to keep watch outside the temple, led seven others to climb a human ladder over the north wall, stepped on the wall to climb a large pine tree, and slipped into the back of the first courtyard hall.
+They stripped the corpses and threw them into a deep pit amid the chaotic graves—unclaimed bodies were routinely dumped here. The group then advanced on Monk Zou's Temple. Beiwei left one man to watch outside, led seven others to scale the north wall using a human ladder, stepped onto the wall, climbed a large pine tree, and slipped into the rear of the first courtyard hall.
 
-The front hall was small in scale and looked quite dilapidated—completely mismatched with the halls behind. Moreover, there was a high wall separating the front and back. This was because the first courtyard had long been a gathering place for beggars, vagrants, and thugs. To give these people a place to shelter from wind and rain and avoid nagging trouble, the renovation simply abandoned the first courtyard, directly refurbishing and expanding the rear three courtyards. Once the middle door was closed, it became a self-contained entity.
+The front hall was modest in scale and visibly dilapidated—completely incongruous with the buildings behind it. Moreover, a high wall separated front from back. This was because the first courtyard had long served as a gathering place for beggars, vagrants, and thugs. To give these people shelter while avoiding constant nuisance, the renovation had simply abandoned the first courtyard, refurbishing and expanding only the rear three. With the middle gate closed, the back courtyards became a world unto themselves.
 
-From the windows of the front hall, light shone out, accompanied by the noise of gambling and the gibberish of drunks. This group really knew how to enjoy nightlife.
+Light spilled from the front hall's windows, accompanied by the din of gambling and the slurred babble of drunks. The gang clearly knew how to enjoy their evenings.
 
-Under the gable wall, piles of thoroughly dried firewood and baskets of clear vegetable oil were stacked, along with many bamboo torches imported from north-south goods firms—the heads of these torches were processed to ignite easily and burn for a long time.
+Stacked beneath the gable wall lay piles of bone-dry firewood and baskets of clear vegetable oil, along with numerous bamboo torches imported from north-south goods firms—their heads treated to ignite easily and burn long.
 
-Beiwei led his men along the gable wall to the door. Squatting in the shadows and looking inside, the front hall didn't even have clay statues anymore, only empty pedestals and an incense table. A group of people was gathered around it, shouting and gambling. The floor on both sides was covered in straw, with people sleeping in disarray.
+Beiwei led his men along the gable to the doorway. Crouching in the shadows, he peered inside. The hall lacked even clay idols now—only empty pedestals and a bare incense table remained. A crowd huddled around it, shouting and gambling. Straw covered the floor on both sides, littered with sleeping bodies.
 
-Along the walls, there were many sticks of various sizes, presumably their weapons—using knives was a felony; the thugs were very legally conscious and absolutely wouldn't let anyone catch them on that handle, so they strictly used sticks when committing violence.
+Sticks of various sizes leaned against the walls—presumably their weapons. Using blades was a serious crime, and the thugs were remarkably law-conscious on that point: they strictly employed sticks when committing violence, lest anyone catch them on a felony charge.
 
-He soon confirmed that Zhao Jijiao was in the crowd. To catch bandits, first catch the ringleader; this man absolutely could not be allowed to live. Beiwei shrank back and signaled. Two team members rushed to the main gate, silently dispatched the sleepers on the threshold, dragged the bodies in, and dumped them under the gable. Several people busied themselves around the perimeter.
+He soon confirmed Zhao Jijiao was among the gamblers. To catch bandits, first catch the ringleader. This man could not be permitted to live. Beiwei withdrew and signaled. Two team members rushed to the main gate, silently dispatched the sleepers on the threshold, dragged the bodies inside, and dumped them beneath the gable. Others busied themselves around the perimeter.
 
 "Action!"
 
-The four windows of the hall were smashed simultaneously, and four incendiary grenades were thrown in. These were the Molotov cocktails of this timeline—renamed "Xu Yingjie Cocktails" in this timeline to honor his great self-sacrifice in concocting this foul mixture.
+The hall's four windows shattered simultaneously, and four incendiary grenades arced inside. These were the Molotov cocktails of this timeline—renamed "Xu Yingjie Cocktails" to honor his great sacrifice in concocting the foul mixture.
 
-The porcelain bottles shattered on the ground, and flames ignited immediately. This flame not only had an extremely high temperature but also strong adhesion; it could burn even on steel plates until the fuel was consumed, far more intense than throwing torches.
+The porcelain bottles smashed against the floor and ignited instantly. The flames burned at extraordinary temperatures with fierce adhesive properties—they could consume steel until the fuel was exhausted, far more devastating than torches.
 
-One of the first batch of grenades fell on a straw bed, and flames leaped up instantly. Before the people inside could react, a second batch was thrown in. One hit directly on the gambling table; the burning mixture splashed onto people, instantly setting them on fire. Screams and cries for help erupted in the chaos.
+One of the first grenades landed on a straw bed, and flames leapt up at once. Before the men inside could react, a second volley followed. One struck the gambling table directly; burning liquid splashed onto bodies, setting them ablaze. Screams and desperate cries for help erupted amid the chaos.
 
 "Quick, put out the fire!"
 
-"It's burning, it's burning!"
+"It's burning! Burning!"
 
-"Go get water!"
+"Get water!"
 
-Amidst the chaos, many bamboo tubes were thrown in, bursting on the ground. Grey powder exploded everywhere; the choking smell of pepper made the people inside cough and sneeze, making the scene even more chaotic.
+In the pandemonium, bamboo tubes were thrown through the windows, bursting on impact. Grey powder exploded everywhere. The choking reek of pepper sent the men inside into fits of coughing and sneezing, compounding the chaos.
 
-"Someone's crashing the place! Grab weapons!" Zhao Jijiao reacted quickly, kicking over the burning table. Covering his nose with his sleeve, he quickly extricated himself from the pile of people to grab a stick from the side. Just then, a large black object was thrown through the window, landing at the base of the wall and shattering with a snap, splashing liquid all over him.
+"Someone's attacking! Grab weapons!" Zhao Jijiao reacted quickly, kicking over the burning table. Covering his nose with his sleeve, he fought through the crush of bodies toward the weapons stacked against the wall. Just then, a large dark object sailed through a window, smashing at the base of the wall and drenching him in liquid.
 
-Zhao Jijiao tasted it—it was oil!
+Zhao Jijiao tasted it. Oil.
 
-This was clearly the clear oil he had bought, prepared to set fire to South China factory!
+This was clearly the same oil he had purchased—oil meant to burn the South China factory.
 
-His mind worked extremely fast; this was giving him a taste of his own medicine. It must be South China Sugar's men!
+His mind worked with desperate speed. Someone was giving him a taste of his own medicine. It had to be the Sugar Company's men.
 
-They wanted to burn them to death!
+They meant to burn them alive.
 
-Thinking of this, Zhao Jijiao was terrified out of his wits. Forget the stick; he roared: "Everyone run! The factory's men are he—"
+Terror seized him. Forget the stick. He roared: "Everyone run! The factory's men are he—"
 
-Before the word "here" could leave his mouth, several more grenades were thrown in. One landed right beside him. The splashing high-temperature flames ignited the surrounding clear oil. He let out a scream and was instantly swallowed by the fire.
+Before the word "here" left his mouth, more grenades flew in. One landed right beside him. High-temperature flames splashed through the pooled oil. He let out a scream and was swallowed by fire.
 
-Those quickest to react ran to the hall door, only to find it already aflame. Unbeknownst to them, dry wood had been piled at the door and was burning fiercely. The bravest rushed out, only to be shot back by crossbows from those waiting outside. The arrow-struck men fell directly into the fire, screamed once, and stopped moving.
+Those quick enough to react rushed for the hall door, only to find it already ablaze. Unbeknownst to them, dry wood had been piled at the entrance and was burning furiously. The bravest charged through anyway—only to be driven back by crossbow bolts from the men waiting outside. Those struck fell directly into the flames, screamed once, and went still.
 
-The dry wood and clear oil piled under the gable walls were ignited. The sea breeze blew strongly, and the entire front hall was soon enveloped in flames.
+The firewood and oil beneath the gable walls ignited. The sea breeze blew strong, and the entire front hall was soon sheathed in flame.
 
-The fire grew larger and larger. Screams and cries for help were carried far by the wind, but this place was still some distance from Hai'an Street. Being midnight, the street's fire brigade dared not come out alone to save it.
+The fire swelled. Screams and cries for help carried far on the wind, but the temple stood at some distance from Hai'an Street proper, and at this midnight hour, the street's fire brigade dared not venture out alone to fight it.
 
-Beiwei listened intently. In the distance, the fire gongs signaling an emergency were beating loudly; presumably, the local militia was also gathering.
+Beiwei listened intently. In the distance, fire gongs clanged their urgent alarm; presumably the local militia was mobilizing as well.
 
-Running from Hai'an Street to here would take at least five minutes. By the time they finished forming up and set out, his men would be long gone.
+From Hai'an Street to here would take at least five minutes on foot. By the time they mustered and set out, his men would be long gone.
 
-Beiwei asked, "Has the fire spread to the back?"
+"Has the fire spread to the back?" Beiwei asked.
 
-"No," a team member reported. "There is some distance, and the partition wall is a fire wall. Probably when building it, they feared fire in the front courtyard."
+"No," reported a team member. "There's some distance, and the partition wall is a fire wall. They probably feared a front-courtyard fire when they built it."
 
-"Mm." Beiwei responded. That was best. Not to protect cultural relics, but Monk Zou's Temple was, after all, renovated collectively by the Hai'an sugar merchants. Burning it completely would provoke them too much.
+"Mm." That was for the best—not out of concern for cultural relics, but because the temple had been collectively renovated by the Hai'an sugar merchants. Burning it completely would provoke them unnecessarily.
 
-"Anyone come out from the back?"
+"Anyone emerge from the rear?"
 
-"Heard movement of people getting up, but no one opened the door! Sounds like someone is splashing water on the door from inside!"
+"I heard movement—people getting up—but no one opened the door. Sounds like they're splashing water on it from inside."
 
-This was a measure to prevent the fire from spreading. Them not coming out relieved Beiwei; he didn't want unnecessary killing.
+They were preventing the fire from spreading. The fact that they hadn't come out relieved Beiwei; he had no desire for unnecessary killing.
 
-Seeing the fire was already massive and the sounds inside gradually fading, he waved his hand: "Withdraw!"
+Seeing the fire now raging fully and the sounds from within gradually fading, he waved his hand.
+
+"Withdraw."
 
 **(End of Chapter)**

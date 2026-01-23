@@ -1,128 +1,137 @@
-# Chapter 265 Coconuts
+# Chapter 265 — Coconuts
 
-"Actually, there's no need to station so many transmigrators at the strongholds. One leader is enough. Maybe even zero is fine." Jiang Qiuyan was full of enthusiasm now that he had started talking. "We can adopt the method of immigrating and settling the borders. Move ten or twenty households of natives directly here, distribute land and houses to them, organize them into a collective farm or a military-agricultural colony. Establish a strict paramilitary organization, appoint a chief and deputy chief among them, issue weapons, conduct regular training. Wouldn't that solve both defense and development problems?"
+"We don't need to station so many transmigrators at these outposts. One leader is enough—perhaps even none." Jiang Qiuyan was warming to his subject now. "We can adopt a settle-the-frontier model. Move ten or twenty native households directly here. Distribute land and houses. Organize them into a collective farm or a military-agricultural colony. Establish strict paramilitary structures: appoint a headman and deputy, issue weapons, conduct regular training. Defense and development problems—solved in one stroke."
 
-"This sounds like the 'Strategic Hamlet Program' applied by the US military in Vietnam!"
+"That sounds like the Strategic Hamlet Program the Americans used in Vietnam."
 
-"Whatever village it is, as long as it solves the problem, it's a good village."
+"Call it whatever you like. If it works, it's a good program."
 
-"Moreover, moving whole families here is also good for the mental health of the stationed personnel. The emotional stability of a person guarding an empty fort alone and a person surrounded by dozens of households of subordinates living and working in peace is completely different. It also creates a sense of belonging and responsibility among the immigrants," Jiang Qiuyan said.
+"Furthermore, transplanting entire families benefits the mental health of our stationed personnel. The emotional state of someone guarding an empty fort alone is nothing like that of someone surrounded by dozens of dependent households working the land." Jiang Qiuyan pressed on. "It also instills a sense of belonging and responsibility among the settlers."
 
-"This is a good idea!" Chen Haiyang slapped his thigh. "Not only here, but the Changhua base can also handle it this way. That way we don't need to leave too many troops."
+"Excellent idea!" Chen Haiyang slapped his thigh. "Not just here—we can handle Changhua the same way. That frees us from leaving so many troops."
 
-Wang Luobin said, "The problem is, who do we migrate? We originally lack population in Lingao."
+Wang Luobin raised a practical concern. "The question is, who do we relocate? Lingao is already short of people."
 
-"There are plenty of people here!" Jiang Qiuyan pointed towards the stockade of Anyoule Market not far away. "Aren't there one or two hundred households living there? They are all fishermen or boat people. Aren't fishermen the best candidates for developing coastline bases? As long as we give them enough benefits—land, houses, and stability—are we afraid they won't switch sides to us?"
+"People are right here!" Jiang Qiuyan swept a hand toward the stockade of Anyoule Market across the bay. "A hundred or two hundred households live there—fishermen, boat folk. Aren't fisher families ideal candidates for developing coastal bases? Give them enough incentives—land, houses, security—and they'll come over."
 
-"Good, good, I think it's feasible!" Wang Luobin walked back and forth excitedly. "And this can also serve as a pilot for our future local administration—using immigrants to control immigrants!"
+"Yes, yes—I think it's feasible." Wang Luobin began pacing with excitement. "And this can serve as a pilot for future local administration—*using immigrants to govern immigrants*!"
 
-Chen Haiyang said, "Let's first establish the base, and then lure... no, recruit refugees. With our material conditions, attracting a dozen or twenty households to rely on us shouldn't be difficult. However, the first batch of stationed personnel still has to be our own people. Once everything is on the right track, we can switch to the local settlement mode."
+Chen Haiyang nodded. "Let's build the base first, then... recruit—" he caught himself, "—refugees. Given our material advantages, attracting a dozen or twenty households shouldn't be difficult. However, the first garrison must still be our own people. Once everything is running smoothly, we transition to the local settlement model."
 
-The work of building the stronghold was handed over comprehensively to Zhang Xingpei. Yu Eshui, serving as "Chief Supervisor," squatted on the construction site every day in high spirits. Wang Luobin concentrated on surveying nearby resources, while Chen Haiyang took people to do an important task: picking coconuts.
+Construction of the stronghold was placed under Zhang Xingpei's comprehensive direction. Yu Eshui, as "Chief Supervisor," squatted on the site daily, spirits high. Wang Luobin focused on surveying nearby resources, while Chen Haiyang led a team on an important mission: harvesting coconuts.
 
-There were large coconut groves on the seaside of Yulin Harbor. The greyish-white trunks were slanted, and the huge, drooping pinnate leaves swayed in the wind, making a rustling sound. Under the leaves hung bunches of coconuts. The sea breeze blew gently, carrying the unique refreshing scent of the seaside.
+---
 
-"This is truly a standard tropical landscape!" Chen Haiyang sighed with emotion.
+Vast coconut groves lined the shores of Yulin Harbor. Grayish-white trunks leaned at angles; huge pinnate fronds drooped and rustled in the breeze. Beneath the leaves hung heavy bunches of fruit. The sea wind blew gently, carrying the unmistakable freshness of salt air and tropical growth.
 
-"It will be ours from now on!" Liu Zheng felt refreshed. "I'll contract 500 *mu* of land here in the future to open a high-end resort."
+"Now *this* is a textbook tropical landscape." Chen Haiyang let out a contented sigh.
 
-"Stop dreaming. Be careful the Executive Committee assigns you here to guard the coconuts."
+"And soon it will all be ours!" Liu Zheng's exhaustion melted away. "I'm contracting five hundred *mu* here someday and opening a luxury resort."
 
-Coconuts were good things. The copious coconut water was germ-free raw water, which could be drunk directly or used as glucose injection in emergencies. The coconut meat was rich in fat and protein. Dried copra had an oil content of 60-65% and was an excellent oil crop. The remaining residue after oil extraction could be used as high-quality feed or fertilizer. The hard coconut shell could be made into activated carbon, which was the raw material for gas masks—indispensable for the chemical and military industries. The fibrous coconut coir outside the coconut shell was elastic, rot-resistant, and durable, a superior material for making cables, brushes, woven fabrics, and filling materials.
+"Keep dreaming. More likely the Executive Committee assigns you to guard the coconuts."
 
-The entire coconut was a treasure. The Executive Committee had long coveted this resource. Coconuts grew everywhere in Hainan, but large-scale exploitable coconut groves were mainly in the Wenchang and Sanya areas. Although there were also some in Lingao, the quantity was small and scattered.
+Coconuts were treasure incarnate. The copious water inside was sterile and could be drunk directly—or, in emergencies, used as a glucose infusion. The meat was rich in fat and protein. Dried copra contained sixty to sixty-five percent oil, making it an exceptional oil crop. Press-cake residue served as premium animal feed or fertilizer. The hard shell could be processed into activated carbon—raw material for gas masks, indispensable to both the chemical and military industries. The fibrous husk outside the shell was elastic, rot-resistant, and durable: ideal for ropes, brushes, woven goods, and padding.
 
-The coconuts here were mostly wild, ownerless objects. Whoever picked them owned them. Chen Haiyang commanded the sailors to come ashore, preparing to sweep all the coconuts on the nearby coastline back to the ship.
+Every part of the coconut was useful. The Executive Committee had coveted this resource for months. Coconuts grew throughout Hainan, but exploitable groves of any scale were concentrated in Wenchang and Sanya. Lingao had a few, scattered and meager.
 
-But picking coconuts was not an easy task. The coconut trees here were all very tall, generally over ten meters, and straight without branches. Unlike other fruit trees suitable for climbing, sailors who were usually nimble at climbing masts were dumbfounded by these coconut trees.
+Here, most palms were wild—ownerless. Whoever picked owned. Chen Haiyang ordered the sailors ashore, intent on stripping every coconut from the surrounding coastline.
 
-Several people tried to climb up, but without tools, they slid down after climbing two or three meters. One person finally managed to climb to the top, but he hugged the tree trunk and didn't know how to act—he had to hold the tree with one hand and pick with the other, but coconuts didn't grow singly; they grew in bunches. The thick stems were very tough. He pulled and tugged for a long time but couldn't pull one down. Instead, he exhausted himself and slid down dejectedly.
+Harvesting, however, proved no simple matter. The trees were uniformly tall—typically exceeding ten meters—and ramrod straight without branches. Unlike fruit trees that invited climbing, they defeated even sailors accustomed to scrambling up masts.
 
-"Use a saw! Bring a saw up!"
+Several men attempted the ascent. Without proper tools, they slid back down after two or three meters. One fellow finally reached the crown—only to hang there, arms wrapped around the trunk, unsure how to proceed. You needed one hand to grip the tree and the other to pick—but coconuts didn't grow singly; they clustered in bunches on thick, fibrous stems. He tugged and pulled for what seemed an eternity, unable to detach a single fruit. Exhausted, he slid back down in defeat.
 
-Another sailor brought a hand saw and climbed up. He started sawing at the stem of a coconut bunch. Unexpectedly, the coconuts were heavy. Once the stem was sawed halfway, it couldn't support the weight and broke directly. A large bunch of coconuts, weighing twenty or thirty catties, smashed straight down at the head of the person below.
+"Use a saw! Take a saw up!"
 
-"Ouch!" A scream.
+Another sailor ascended with a hand saw and began sawing at the stem of a bunch. Halfway through, the weight of the cluster—twenty or thirty catties—snapped the weakened stem. The entire mass plummeted toward the man below.
 
-Fortunately, the person below dodged fast. The coconuts brushed past his scalp and hit his shoulder, immediately swelling it up high. If it had hit the head, he would have likely suffered a concussion.
+"Ouch!" A sharp cry.
 
-"Damn it, can't we even deal with a few coconuts?" Chen Haiyang was furious. "Use guns! Shoot them down!"
+Fortunately, reflexes saved him. The coconuts grazed his scalp and struck his shoulder, which swelled immediately. A direct hit to the head might have meant a concussion.
 
-"That's a waste of bullets."
+"Damn it—can't we deal with a few coconuts?" Chen Haiyang's temper flared. "Use guns! Shoot them down!"
 
-"We can reimburse it! Shoot!"
+"That's a waste of ammunition."
 
-Gunshots rang out, "Bang! Bang!" The Type 1644 rifles fired continuously. Coconuts fell one by one from the tree mixed with branches and leaves. Everyone disregarded the danger and rushed up to grab them.
+"I'll authorize reimbursement. Fire!"
 
-"Ha, not small!" Chen Haiyang picked one up and shook it, feeling the heavy sloshing inside. "Smash it open and try!"
+Gunshots cracked. *Bang! Bang!* Type 1644 rifles barked in rapid succession. Coconuts rained from the canopy amid shredded leaves and branches. Danger forgotten, everyone rushed forward to gather them.
 
-After smashing two, everyone drank the coconut water to their heart's content. The refreshing sweetness chilled their hearts.
+"Ha—not small at all." Chen Haiyang hefted one and shook it; the sloshing weight inside was palpable. "Crack it open. Let's taste."
 
-"Good stuff! Definitely good stuff!" Everyone praised in unison.
+After splitting two, everyone drank coconut water until satisfied. Cool, sweet, and refreshing—it chilled them to the core.
 
-"But shooting with rifles isn't a long-term solution. Bullets also cost money," Liu Zheng said as he gnawed on the coconut meat. "It's too uneconomical. And shooting one by one is too slow."
+"Good stuff. Definitely good stuff." The unanimous verdict.
 
-"I have a way!" A sailor beside them wiped his mouth after drinking enough. "When we were in our hometown, we used 'climbing hooks' to climb utility poles. That thing is much easier to use than climbing with bare hands."
+"But shooting with rifles is no long-term solution. Bullets cost money." Liu Zheng gnawed at the white meat. "Far too uneconomical. And one at a time is painfully slow."
 
-"Right! Why didn't I think of that!"
+"I have an idea!" A sailor wiped his mouth. "Back home, we used climbing spikes to scale utility poles. Much easier than bare-handing it."
 
-The ship's carpenter immediately set to work, using steel bars to bend into hooks and fastening them to leather boots to make simple "climbing spikes." With this tool, plus a safety rope around the waist, climbing trees became easy and safe. One person climbed up with a machete, and with a few chops, a whole bunch of coconuts fell down. The people below only had to be careful to dodge.
+"Right—why didn't I think of that?"
 
-In one afternoon, they harvested thousands of coconuts. They were piled up like a small mountain on the deck.
+The ship's carpenter set to work at once: bending steel rods into hooks and fastening them to leather boots to fashion crude "climbing spikes." With this gear, plus a safety rope around the waist, ascending became quick and safe. A man climbed up with a machete; a few strokes, and an entire bunch dropped. Those below needed only to dodge.
 
-That night, the *Hangzhou* was brightly lit. Because the generator was running, the lights on the ship were exceptionally bright. Li Huamei, dressed in black night clothes, quietly touched the stern of the *Hangzhou* from the darkness.
+By dusk, they had harvested thousands of coconuts—heaped like a small mountain on deck.
 
-She wasn't here to assassinate anyone, nor to damage the ship. She was just too curious about these "Australians." Especially about their ships that could sail without wind. This question scratched at her heart like a kitten's paw for days.
+---
 
-Ever since she boarded the *Hangzhou*, she had been observing secretly, trying to find the propulsion device of this ship. But apart from the two "propellers" underwater at the stern that she couldn't figure out, she didn't find any oars or sculls. And those two iron leaf things stopped moving once the ship anchored. What exactly made the ship move?
+That night, the *Hangzhou* blazed with light. The generator was running, and the ship's lamps shone brilliantly.
 
-Today, taking advantage of the chaotic night with most people busy building the stronghold ashore and the crew on the ship exhausted and sleeping soundly, she decided to infiltrate the cabin to verify her conjecture.
+Li Huamei, clad in black night clothes, crept silently toward the stern from the darkness.
 
-She deftly climbed up the stern along the anchor chain. The deck was silent except for the rhythmic "chug-chug" sound coming from the middle of the cabin. She knew that was the "machine" working.
+She had not come to assassinate anyone, nor to sabotage the vessel. She was simply consumed by curiosity about these "Australians"—above all, about their ships that could sail without wind. The question had clawed at her mind for days.
 
-She touched the door of the engine room. The door was unlocked. A wave of heat mixed with the smell of oil rushed to her face. She slipped in.
+Since boarding the *Hangzhou*, she had observed covertly, searching for the propulsion mechanism. Apart from two "propellers" beneath the stern—iron leaf–shaped objects she could not fathom—she found no oars, no sweeps, nothing. And those iron leaves had stopped rotating the moment the ship dropped anchor. What, then, made it move?
 
-The engine room was brightly lit. A huge iron lump was roaring in the middle. The huge flywheel was spinning rapidly, making people dizzy.
+Tonight, with most of the crew ashore building the fort and the shipboard watches exhausted from labor, she resolved to infiltrate the hold and test her hypothesis.
 
-"So this is the 'machine'?" Li Huamei looked at this steel monster in shock. She couldn't understand how this thing, without eating grass or meat, could contain such terrifying power.
+She scaled the stern along the anchor chain with practiced ease. The deck was silent save for a rhythmic *chug-chug-chug* emanating from somewhere amidships. That, she knew, was the "machine" at work.
 
-She carefully approached. The machine was exuding amazing heat. Next to the machine, there was an iron barrel connected to the machine with a copper pipe. She touched the copper pipe; it was slightly vibrating, and seemed to have liquid flowing inside.
+She approached the engine room door. Unlocked. A wave of heat, thick with the smell of oil, washed over her. She slipped inside.
 
-"Could it be drinking water?" She was curious. She followed the copper pipe to the iron barrel, unscrewed the lid, and dipped her finger in to taste it.
+The compartment blazed with light. A massive iron hulk roared at its center. An enormous flywheel spun so rapidly it blurred, making her dizzy.
 
-"Pah! Pah!" It tasted pungent and bitter, definitely not water. It looked like some kind of oil, but had a very strange smell, completely different from the vegetable oil and tung oil she usually saw.
+*So this is the machine?* Li Huamei stared at the steel monster in shock. She could not comprehend how something that consumed neither grass nor meat could contain such terrifying power.
 
-"So this monster drinks oil?" She was secretly amazed. Oil was expensive stuff. This monster was so big; how much oil did it have to drink in a day! No wonder these Australians were so rich; just raising this iron beast was not something ordinary people could afford.
+She edged closer. The machine radiated ferocious heat. Beside it stood an iron drum connected to the main body by a copper pipe. She touched the pipe—vibrating faintly, liquid flowing within.
 
-Just as she was entranced by her inspection, footsteps suddenly came from the stairs above. Someone was coming down!
+*Could it be drinking water?* Curious, she followed the pipe to the drum, unscrewed the cap, and dipped a finger in.
 
-Li Huamei was startled and hurriedly looked around for a place to hide. But the engine room was empty at a glance, with nowhere to hide.
+She spat immediately. The taste was pungent and bitter—definitely not water. It resembled oil, yet the odor was utterly foreign, nothing like the vegetable oil or tung oil she knew.
 
-"Little Zhao, go check the oil pressure. I think the sound is a bit wrong."
+*So this monster drinks oil?* Amazement deepened. Oil was expensive. A beast this size must consume staggering quantities. No wonder these Australians were so wealthy—merely feeding this iron creature was beyond ordinary means.
 
-"Okay, Squad Leader."
+As she studied the machinery, footsteps sounded on the stairs above. Someone was coming down.
 
-Two people wearing blue work clothes walked down. Li Huamei had no choice; she gritted her teeth, rolled swiftly on the spot, and got under the base of the diesel engine.
+Li Huamei's heart lurched. She scanned the compartment for a hiding place, but the engine room was starkly open; cover was nonexistent.
 
-The space below was narrow and covered in oil sludge. She lay flat on the ground, not daring to breathe loudly. The huge roar of the diesel engine covered the sound of her heartbeat.
+"Little Zhao, check the oil pressure. The sound seems off."
 
-The two maintenance workers walked to the side of the machine, checked the instruments, and touched various parts.
+"Yes, Squad Leader."
+
+Two men in blue work clothes descended. Li Huamei had no choice. She gritted her teeth, rolled swiftly across the deck plates, and slid beneath the diesel engine's mounting frame.
+
+The space was cramped and slick with sludge. She pressed herself flat, scarcely daring to breathe. The thunderous roar of the engine drowned her hammering pulse.
+
+The two mechanics walked to the machine, checked instruments, felt various components.
 
 "Everything looks normal."
 
-"Maybe I heard it wrong. This Changchai engine is old after all; it's inevitable for it to be a bit loose."
+"Maybe I misheard. This Changchai engine is getting old—some looseness is inevitable."
 
-"Squad Leader, how much longer do we have to stay here? I'm almost suffocating from the heat."
+"Squad Leader, how much longer are we stuck down here? I'm suffocating in this heat."
 
-"Bear with it. Once the fort ashore is built, we can go down to rest."
+"Bear with it. Once the fort ashore is finished, we can rest below."
 
-The two chatted for a few more words before turning to leave. Li Huamei waited until their footsteps disappeared before crawling out from under the machine. Her black night-travel suit was now covered in black oil stains, looking extremely wretched.
+They exchanged a few more words, then climbed back up. Li Huamei waited until their footsteps faded before worming out from beneath the frame. Her black attire was now smeared with black oil stains—a wretched sight.
 
-"Phew, that was close!" She wiped the cold sweat (and oil dirt) from her forehead. Although she didn't fully understand the principle of this "Changchai," she at least confirmed one thing: this "iron beast" indeed relied on "drinking oil" to exert force. As for how it turned oil into power, that was beyond her understanding.
+*Phew—that was close.* She wiped cold sweat (and grease) from her forehead. Though she still did not fully understand the principle behind this "Changchai," she had confirmed one thing: the iron beast did indeed "drink oil" to generate force. As for how oil became power—that remained beyond her grasp.
 
-"Australians are truly unfathomable." She sighed lightly, carefully retreated out of the engine room, and disappeared into the night.
+*These Australians are truly unfathomable.* She sighed softly, retreated from the engine room with utmost care, and vanished into the night.
 
-***
-Note: This explanation is free.
-Changchai: Refers to Changzhou Diesel Engine. A very common brand of diesel engine in China, widely used in agricultural machinery and small ships.
+---
 
+**Note:** This explanation is free.
+
+*Changchai* refers to Changzhou Diesel Engine—a very common brand in China, widely used in agricultural machinery and small watercraft.
+
+**(End of Chapter)**

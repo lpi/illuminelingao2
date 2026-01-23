@@ -1,115 +1,115 @@
 # Chapter 481 - Autumn Levy (Part 32)
 
-"Isn't Delong already handling collections?" Yan Ming was quite sensitive about this jurisdictional issue.
+"Isn't Delong already handling collections?" Yan Ming bristled at this encroachment on his territory.
 
-"Delong is managing the county treasury, but it's not the collection authority—paying taxes to a bank doesn't mean the bank is collecting taxes."
+"Delong manages the county treasury, but managing funds isn't the same as collecting taxes. When someone pays their taxes at a bank, that doesn't make the bank a tax collector."
 
-"You mean to set up something like a tax bureau?"
+"So you're proposing something like a tax bureau?"
 
-"Precisely. This agency will need to be established sooner or later. We'll start with this year's grain collection." Wu De explained his concept to everyone. The reason for calling it the "Grain Collection Bureau" was that they still needed to use the Great Ming's official façade temporarily.
+"Precisely. Such an agency will need to exist sooner or later—we might as well begin with this year's grain collection." Wu De laid out his vision. The name "Grain Collection Bureau" was strategic: they still needed the Great Ming's official façade to lend legitimacy.
 
-"This Grain Collection Bureau will nominally be a temporary agency under the county yamen. We'll invite Wu Ya—the County Deputy—to serve as Director-General. Of course, he's just a figurehead. This way, many things can be conducted in the name of the Lingao County yamen. When necessary, we can even deploy 'official forces'..."
+"Nominally, the Grain Collection Bureau will operate as a temporary agency under the county yamen. We'll invite Wu Ya—the County Deputy—to serve as Director-General. A figurehead, naturally. This arrangement allows us to conduct business under the yamen's authority and, when necessary, deploy 'official forces'..."
 
-"What official forces? Aren't they just our own people?"
+"Official forces? You mean our own people in disguise?"
 
-"Ha, true enough." Wu De smiled. "The main task of the Grain Collection Bureau is to assist Delong in collecting autumn grain. Meanwhile, our Leadership Group's primary work will be surveying and re-measuring the land."
+"Ha, precisely." Wu De smiled. "The Grain Collection Bureau's primary mission is to assist Delong in collecting autumn grain. Meanwhile, our Leadership Group will focus on surveying and re-measuring the county's land."
 
-From this autumn through next spring would be the phase for conducting a comprehensive fact-finding investigation of Lingao's land and grain production conditions—preparatory work for the new tax system. From next summer onward, they would formally implement the new tax system.
+The work would unfold in phases. From this autumn through next spring, they would conduct a comprehensive investigation of Lingao's land ownership and grain production—laying the groundwork for the new tax system. Beginning next summer, formal implementation would begin.
 
-First would be a cleanup of land property rights: reissuing land deeds and verifying taxable land. Because the Household Clerk had long been manipulating the fish-scale registers for personal gain, the registers no longer matched actual land ownership.
+The first order of business was clarifying land property rights: reissuing deeds and verifying taxable acreage. Years of manipulation by the Household Clerk had rendered the fish-scale registers a fiction—the records bore little resemblance to actual ownership.
 
-Second would be clearing hidden land, "false registrations," and fields that had escaped taxation through various other means.
+Second came the clearing of hidden land: properties concealed through "false registrations" or various schemes to escape taxation.
 
-Finally, they would conduct a basic investigation of the fertility, cultivation, and harvest conditions of the land as a basis for setting tax rates.
+Finally, they would assess the fertility, cultivation practices, and harvest yields of each parcel—essential data for setting fair tax rates.
 
-"...This will require help from the Agricultural Committee. I've already discussed it with Wu Nanhai. He'll assign us a group of personnel with agricultural expertise to serve as consultants for surveying land conditions. Once we've thoroughly investigated everything, we can design new tax rates and collection methods."
+"...This will require the Agricultural Committee's assistance. I've already spoken with Wu Nanhai. He'll assign personnel with agricultural expertise to serve as consultants during the land surveys. Once we've gathered thorough data, we can design new tax rates and collection methods."
 
-"So the Household Office will essentially be defunct after this."
+"So the Household Office becomes obsolete after this."
 
-"Of course. In the future, they'll only need to handle routine administrative paperwork. Though there may still be some matters requiring the retained personnel's services."
+"Essentially, yes. Future duties will be limited to routine administrative paperwork, though we may retain some personnel for specialized tasks."
 
-"Clearing the land will surely face enormous resistance. The gentry and grain households will react very intensely."
+"Clearing the hidden land will face enormous resistance. The gentry and grain households will react violently."
 
-"Their passion should have been pretty much exhausted by this incident. Even if they want to cause trouble, we'll now know how to deal with it."
+"Their passion should be well exhausted after this incident. Even if they stir up trouble, we now know how to handle them."
 
-The greatest benefit was that through this incident, they had roughly grasped how the gentry and major households would react, what they were capable of, and which individuals reacted most intensely. Though Chen Minggang's "land survey" had ulterior motives, it had given Wu De and the others an opportunity to observe how the gentry and major households responded.
+The greatest dividend from this affair was insight. They now understood how the gentry and major households would react, the limits of their capabilities, and which individuals harbored the fiercest opposition. Though Chen Minggang's "land survey" had been a vehicle for corruption, it had inadvertently provided Wu De and his colleagues a preview of local resistance patterns.
 
-The Grain Collection Bureau then plunged into the intense work of sorting through the account books. Grain runners from the study class and retained Household Office personnel who had "performed well" were assigned to assist with the organization. All account books were re-registered using modern formats according to Sun Xiao's instructions.
+The Grain Collection Bureau plunged into the grueling work of organizing account books. Grain runners from the study class, along with Household Office personnel who had "demonstrated good behavior," were assigned to assist. Under Sun Xiao's direction, all records were re-entered using modern accounting formats.
 
-Re-registering the fish-scale registers took considerable effort. Though Yu Eshui had boasted confidently at the time, once the actual goods were in hand, he found himself overwhelmed for a while. They had to bring in classical Chinese specialists and recruit literate employees to help. Fortunately, with Zhou Qi, who had followed Chen Minggang for nearly twenty years, they managed to decipher the cryptic data and land maps.
+Re-registering the fish-scale registers proved herculean. Yu Eshui had boasted confidently, but once the actual documents were in hand, he found himself overwhelmed. Classical Chinese specialists and literate employees had to be recruited. Fortunately, Zhou Qi—who had served under Chen Minggang for nearly two decades—helped decipher the cryptic entries and land maps.
 
-Based on this working ledger, cross-referenced with collection records, each household's payment amounts were verified. New "grain notices" were then issued according to the principle of refunding overpayments and collecting underpayments.
+Using this working ledger, cross-referenced against collection records, each household's payment history was verified. New "grain notices" were then issued according to the principle of refunding overpayments and collecting shortfalls.
 
-"The silver that Chen Minggang's gang extorted from grain households under the guise of 'land surveying'—we need to investigate that thoroughly as well." Wu De looked at the newly transcribed ledger of "land survey" bribes. "How much Chen Minggang himself got, and how much each of his subordinates got—every bit must be completely investigated!"
+"The silver that Chen Minggang's gang extorted under the guise of 'land surveying'—we need a thorough accounting." Wu De examined the newly transcribed ledger of bribes. "How much Chen Minggang pocketed personally, how much each subordinate received—every coin must be traced!"
 
-"There's no need to investigate all this, is there? Their assets all belong to us now anyway..."
+"Is that really necessary? Their assets all belong to us now anyway..."
 
 "No. After investigation, all these bribes must be returned."
 
-"Is that really necessary?" Sun Xiao was quite surprised. "These were bribes paid willingly to Chen Minggang's gang. One party offered, another accepted. Even under modern law, there's no provision for returning bribe money."
+"Is that wise?" Sun Xiao was taken aback. "These were bribes willingly paid to Chen Minggang's gang. One party offered, the other accepted. Even under modern law, there's no provision for returning bribe money."
 
-"No." Wu De shook his head. "Pay attention: these bribes were given specifically for the land survey matter. We need to draw a clear line separating ourselves from it."
+"Pay attention." Wu De shook his head. "These bribes were specifically connected to the land survey. We need to draw a clear line of separation."
 
-Wu De intended to use the bribe returns to inform grain households: the land survey would continue. Don't think bribes could get you exempted.
+Wu De intended the refunds to send an unmistakable message: the land survey would proceed. Bribes could not buy exemption.
 
-"This really seems like an unnecessary gesture." Sun Xiao found it quite painful to part with the money.
+"This really seems like an unnecessary gesture." Sun Xiao winced at the thought of parting with the money.
 
-"Giving up a little is insignificant." Wu De said. "Establishing proper rules for these grain households is what's truly important."
+"A small sacrifice." Wu De was unmoved. "Establishing proper rules for these grain households—that's what truly matters."
 
 ---
 
-News of the changes at the county yamen gradually reached the ears of the common people and the gentry households alike. The sudden changes, the citywide lockdown, and the atmosphere of fear from the mass arrests had everyone in the city and surrounding countryside quite nervous for a while. But when they saw everything continuing as normal, with no change of flags above the city gates, they relaxed. Apart from many unfamiliar faces, the county yamen operated as usual. It was currently the busy farming season, and by custom the yamen wasn't accepting complaints and the magistrate wasn't holding court sessions. But Magistrate Wu was still carried about in his sedan chair to make several trips to the countryside—reportedly to "inspect typhoon and flood prevention work."
+News of the upheaval at the county yamen gradually filtered down to commoners and gentry alike. The sudden changes, the citywide lockdown, the palpable atmosphere of fear from the mass arrests—all of it had set nerves on edge throughout the city and surrounding countryside. But when daily life continued uninterrupted and the same flags still flew above the city gates, tension slowly ebbed. Apart from many unfamiliar faces, the yamen operated as before. The busy farming season meant the magistrate wasn't hearing cases—by custom, complaints went unheard and court was adjourned. Yet Magistrate Wu still made his ceremonial rounds in his sedan chair, touring the countryside to "inspect typhoon and flood prevention work."
 
-Huang Binkun, who had run about most vigorously in the previous phase, had fallen into a bewildered sense of powerlessness. By rights, he should be happy. All his activities, running about and lobbying everywhere, had finally thwarted the Australians' scheme to use clerks for grain collection in the county. Now grain collection was suspended, and Chen Minggang's entire gang of grain runners had been swept away. The gentry and grain households had finally vented their anger.
+Huang Binkun, who had been the most active agitator in recent weeks, now found himself adrift in bewildered impotence. By all rights, he should be celebrating. His tireless lobbying had seemingly thwarted the Australians' scheme to use clerks for county grain collection. Now collection was suspended, and Chen Minggang's entire network of grain runners had been swept away. The gentry and grain households had finally vented their fury.
 
-But to this day, he still couldn't be certain whether it was his activities that had produced results, or whether the Baldies had intended to do this all along.
+Yet even now, he couldn't determine whether his efforts had achieved this result—or whether the Baldies had intended this all along.
 
-If it was about controlling the county yamen—they hadn't touched the county's officials, yet they'd purged all the clerks who handled actual business! Clerks might be hateful, but without this lot, no one could administer the county's affairs. Didn't the Baldies understand this?
+If the goal was controlling the yamen, why had they left the county's officials untouched while purging every clerk who actually administered its affairs? Clerks might be despised, yet without them, no one could govern the county. Surely the Baldies understood this?
 
-To find out what the Baldies were really planning, he tried to find acquaintances in the yamen to gather information. The Huang family had always been well-connected at the yamen; there were plenty of acquaintances willing to take Huang money. But now this place where you could previously learn anything if you were willing to spend suddenly became tightly secured. Not a shred of detailed information leaked out. The few remaining familiar faces saw Huang Binkun coming to inquire and fell silent, even firmly refusing to take silver—this behavior was practically the sun rising in the west.
+Seeking to divine their true intentions, he attempted to gather information through his yamen connections. The Huang family had always maintained excellent relations there—plenty of acquaintances were willing to accept Huang silver. But this institution, where any secret could once be purchased, had become an impenetrable fortress. Not a whisper of useful intelligence leaked out. The few remaining familiar faces saw Huang Binkun approaching with questions and fell silent, firmly refusing even his silver. Such behavior was practically the sun rising in the west.
 
-He had no choice but to frequently visit the proclamation wall by the yamen entrance to see if any notices had been posted.
+Left with no alternatives, he found himself frequenting the proclamation wall by the yamen entrance, checking for new notices.
 
-The wall, weathered and faded by rain, now bore several brand-new announcements. A crowd had gathered to read them. Huang Binkun's spirits lifted immediately, and he hurried over.
+The weathered, rain-faded wall now displayed several crisp announcements. A crowd had gathered to read them. Huang Binkun's spirits lifted, and he hurried over.
 
 Seeing his scholar's attire, someone called from behind:
 
 "Scholar! Help us read it!"
 
-Huang Binkun read aloud as he skimmed. The first notice announced the establishment of the Grain Collection Bureau. It denounced at length the various abuses of using grain runners for past collections and declared that from this day forth, the practice of the Household Office employing private grain runners was abolished. A specialized agency—the Grain Collection Bureau—would now handle these matters.
+Huang Binkun read aloud as he scanned. The first notice announced the establishment of the Grain Collection Bureau. It denounced at length the various abuses of using grain runners for past collections and declared that henceforth, the practice of the Household Office employing private grain runners was abolished. A specialized agency—the Grain Collection Bureau—would now handle these matters.
 
 "Grain Collection Bureau—is that a new office?"
 
-"Quiet, let him read on."
+"Quiet! Let him continue."
 
-Pressed by the crowd, Huang Binkun had no time to ponder the implications and began reading the second announcement.
+Pressed by the crowd, Huang Binkun had no time to ponder the implications. He began reading the second announcement.
 
-This one was peculiar: it concerned the agency management of the county treasury. Henceforth, all deposits and withdrawals from the county treasury would be handled by Delong Grain Trading Company.
+This one was peculiar: it concerned the agency management of the county treasury. Henceforth, all deposits and withdrawals would be handled by Delong Grain Trading Company.
 
-Huang Binkun's experience was limited, and for a moment he was dumbfounded—could a county treasury really be "managed" this way?
+Huang Binkun's experience was limited; for a moment, he stood dumbfounded. Could a county treasury really be "managed" this way?
 
-The commoners also couldn't quite understand what this "treasury agency" meant. Everyone knew Delong Grain Trading Company—that big grain establishment at East Gate Market. Every day, fully-loaded ox-carts came and went, looking quite impressive and prosperous. The circulation coupons most useful for buying things at East Gate Market were issued by this firm.
+The commoners also struggled to grasp what "treasury agency" meant. Everyone knew Delong Grain Trading Company—that large grain establishment at East Gate Market. Fully-loaded ox-carts came and went daily, an impressive display of prosperity. The circulation coupons most useful for purchasing goods at East Gate Market were issued by this very firm.
 
-While everyone was buzzing with discussion, Huang Binkun slipped away amid the confusion. Though he didn't understand exactly how the county treasury would be "managed," he understood the notice's statement that all monetary and grain transactions for the county yamen would be handled at Delong.
+While everyone buzzed with discussion, Huang Binkun slipped away amid the confusion. Though he didn't fully understand how the treasury would be "managed," the notice's meaning was clear: all monetary and grain transactions for the county yamen would flow through Delong.
 
-Connecting this with the Grain Collection Bureau business, everything suddenly became clear. The Baldies were seizing control of the county's fiscal power! This way, the yamen's Household Office would lose all real authority—grain collection would become the business of the Australian-controlled Grain Collection Bureau. This so-called Grain Collection Bureau was clearly the Australians' handiwork.
+Connecting this with the Grain Collection Bureau, the picture crystallized. The Baldies were seizing control of the county's fiscal power! The Household Office would be stripped of all real authority—grain collection would become the business of the Australian-controlled Grain Collection Bureau. This so-called Bureau was clearly the Australians' creature.
 
-Truly pressing forward step by step. Huang Binkun thought: now the Baldies were no longer content to merely interfere with county administration from outside the walls—they were openly and directly inserting themselves.
+*Truly pressing forward step by step.* Huang Binkun thought: the Baldies were no longer content to merely influence county administration from outside its walls—they were openly and directly inserting themselves into its operations.
 
-He wandered to the side of the county yamen. This area had formerly been where the county's clerks congregated—runners who worked at the yamen mostly lived here. He thought he'd seek out some of their family members and perhaps glean something from the women and children.
+He wandered toward the side of the county yamen. This area had formerly been where the county's clerks congregated—runners who worked at the yamen mostly lived here. Perhaps he could glean something from their women and children.
 
-But the alley entrance was empty and deserted, with the wooden gate barrier closed. At the gate stood a militia guard from the Militia Squad holding a wooden staff. What kind of protocol was this? Huang Binkun found it strange. He was about to inquire when the militia guard shouted: "What do you want?"
+But the alley entrance was empty and deserted, the wooden gate barrier closed. A militia guard from the Militia Squad stood at the entrance, holding a wooden staff. This was new. Huang Binkun found it strange. He was about to inquire when the guard shouted: "What do you want?"
 
-The accent was definitely not local. This startled Huang Binkun. To his knowledge, the county's militiamen were all locals—because the position exempted one from corvée and taxes, outsiders had no chance at such benefits.
+The accent was definitely not local. This startled Huang Binkun. To his knowledge, the county's militiamen were all locals—the position exempted one from corvée and taxes, making it a prize beyond outsiders' reach.
 
-Looking at the man's stance holding the staff, and the short stubble of hair visible beneath his cap, Huang Binkun immediately recognized him—this was a "fake Baldy"! Most likely one of those militia soldiers they'd organized.
+Studying the man's stance and the stubble of cropped hair visible beneath his cap, Huang Binkun recognized him immediately—a "fake Baldy"! Most likely one of those militia soldiers they had organized.
 
-Huang Binkun said he was looking for someone, but no matter what he said, he was refused entry. The other man clearly didn't consider this distinguished *xiucai* worth any respect. Apart from repeating "No passage allowed," he said nothing.
+Huang Binkun explained he was looking for someone, but regardless of what he said, he was refused entry. The guard clearly considered this distinguished *xiucai* unworthy of respect. Beyond repeating "No passage allowed," he said nothing.
 
 Huang Binkun pulled a string of copper coins from his sleeve and pressed them forward: "Friend, be a good fellow and accommodate me!"
 
-"I don't take money." The militia guard pushed his hand back forcefully—if Huang Binkun hadn't had some martial training, he probably would have fallen on his backside.
+"I don't take money." The militia guard shoved his hand back forcefully—had Huang Binkun lacked some martial training, he would likely have landed on his backside.
 
-"Ungrateful wretch!" he cursed inwardly and slunk away in embarrassment, pocketing the coins.
+"Ungrateful wretch!" he cursed inwardly, slinking away in embarrassment as he pocketed the coins.
 
 **(End of Chapter)**

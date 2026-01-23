@@ -1,113 +1,113 @@
 # Chapter 271: The Rustic Sugar Mill (Part Two)
 
-However, this sugar was extremely dark—even darker than common brown sugar, bordering on "black sugar."
+The sugar, however, was extraordinarily dark—darker even than common brown sugar, verging on black.
 
-The liquid draining from the earthenware vat was blackish in color. Wen Tong knew this was "molasses"—during the boiling process, as the granulated sugar continuously crystallized out, what remained was this dark mother liquor. This mother liquor still contained a considerable amount of sugar, but there was no economical means of separating it out. It wouldn't be until after the 1970s that the sugar content could be recovered efficiently. Before then, molasses was simply a by-product subject to general use. One of its most promising uses was in distilling spirits—rum, for instance, was made from molasses.
+A tarry liquid drained from the earthenware vat, and Wen Tong recognized it immediately: molasses. As granulated sugar crystallized during boiling, this dark mother liquor remained behind, still rich with sugar that no economical process could extract. Not until after the 1970s would technology make recovery viable. For now, molasses served only general purposes—the most promising being distillation. Rum, after all, was born from precisely this byproduct.
 
-The workers said what dripped down was called "*shaoshui* sugar." It could be further boiled into a type of black granulated sugar or used for food products, but it was no longer suitable for external sale.
+The workers called what dripped down "*shaoshui* sugar." It could be reboiled into a coarse black granulate or used in food preparation, but it would never fetch a decent price at market.
 
-Wen Tong shook his head. Producing this black sugar wasn't worth the effort; its economic value was too low. It would be better to simply distill it into liquor. He asked:
+Wen Tong shook his head. The economics simply didn't justify the effort. Better to distill the stuff into spirits.
 
-"Does anyone here make white sugar or rock candy?"
+"Does anyone here produce white sugar?" he asked. "Or rock candy?"
 
-The workers all shook their heads. Liao Dahua translated, explaining that in Xuwen, Haikang, and other places, no one made white sugar or rock candy. All the sugar mills produced this kind of raw brown sugar. Some also made brick sugar. The method was to boil the cane juice to a paste following the same process as raw brown sugar, then pour it into a large iron pan and stir frequently with a wooden stick. Once crystallized, it was poured into a square frame and cut into blocks with a knife—that made brick sugar. Brick sugar was packaged in large bamboo baskets wrapped in dry cane leaves, fifty blocks per basket.
+The workers shook their heads in unison, and Liao Dahua translated their answer: throughout Xuwen, Haikang, and the surrounding districts, no one refined white sugar or crystallized rock candy. Every mill produced only raw brown sugar—some also made brick sugar, boiling the cane juice to a thick paste, then stirring it in a large iron pan until crystals formed. The solidified mass was poured into square frames, sliced into blocks, and packed fifty to a bamboo basket lined with dried cane leaves.
 
-Wen Tong recalled that the authentic method for producing white sugar had emerged precisely in the late Ming Dynasty, using the technique of filtering with yellow mud water. Technically, it wasn't difficult. Why had no one in this area adopted it?
+Wen Tong frowned. He knew perfectly well that the authentic method for producing white sugar had emerged in precisely this era—the late Ming Dynasty—using yellow clay water as a filter. The technique posed no great difficulty. Why had no one in Leizhou adopted it?
 
-Wen Tong reviewed the entire sugar-making process in his mind. This mill produced approximately 100 kilograms of raw brown sugar per day—a pitifully small scale. Moreover, watching the operation just now, although the stoker leading the work was familiar with the overall production flow, he clearly lacked experience in the actual operations. Whether it was the intensity of the fire, the timing for drawing off the sugar, or the quantity of lime to add, he seemed hesitant. The quality of the sugar produced was obviously poor. And because the stove's construction was crude, the fire was hard to regulate. Several pots of sugar syrup had been scorched. After adding lime, the sediment wasn't fully filtered before being poured out, resulting in a significant loss of sugar. There was still considerable room for improvement here.
+He mentally reviewed the entire operation he had just witnessed. This mill produced roughly a hundred kilograms of raw brown sugar per day—a pitiful output. Worse, though the stoker supervising the work seemed familiar with the general flow, he fumbled the actual execution. His fire control was uncertain, his timing for drawing off the sugar hesitant, his lime dosages guesswork. The result was obvious: poor-quality sugar. The crude stove construction made flame regulation nearly impossible, and several batches of syrup had scorched. Sediment from the lime clarification wasn't fully filtered before the pour, wasting considerable sugar. The room for improvement was vast.
 
-While he was deep in thought, someone brought over several cane farmers from the vicinity. Wen Tong inquired about their situations one by one. These farmers' planting areas were all very small—the smallest only ten-odd *mu*, the largest just thirty or forty *mu*. According to them, each *mu* yielded a little over three *shi* of sugar. After growing and harvesting sugarcane, they brought it here for processing. The sugar mill used a sharecropping arrangement for toll processing: the mill took four parts, the cane farmer took six. In some places, farmers paid a fee for processing and kept all the product—when calculated, the costs were about the same either way.
+While Wen Tong pondered, someone ushered in several cane farmers from the vicinity. He questioned each in turn. Their holdings were modest—the smallest just over ten *mu*, the largest barely forty. According to them, each *mu* yielded a little more than three *shi* of sugar. After harvest, they brought their cane here for processing under a sharecropping arrangement: four parts to the mill, six to the farmer. Some mills charged a flat processing fee instead, but the final accounting came out roughly equal.
 
-As for where the finished sugar went, according to the farmers, whether it was the mill's own product or the farmers' share, most of it ended up being transported to Hai'an Street in Haikang, where it was purchased by sugar *hongs*. These *hongs* were mostly opened by merchants from Chaozhou and Guangzhou who had flocked here specifically to engage in the export of raw sugar. Pack after pack of sugar was loaded onto ships at Hai'an Port and shipped out.
+As for the finished product, the farmers explained that whether the sugar belonged to the mill or to themselves, most of it traveled to Hai'an Street in Haikang, where the trading houses—*hongs*—bought it up. These establishments were largely run by merchants from Chaozhou and Guangzhou who had descended on the region specifically to corner the raw sugar export trade. Pack after pack was loaded onto ships at Hai'an Port and carried away.
 
-"How much net profit do you make growing sugarcane like this?" Wen Tong was curious.
+"What sort of net profit does sugarcane bring you?" Wen Tong asked.
 
-"About six or seven thousand *wen* per *mu*," one of the farmers said. "The taxes are quite heavy, but the returns are still decent. The trouble is the interest rate is high. After paying back principal and interest, there's barely anything left."
+"Around six or seven thousand *wen* per *mu*," one farmer replied. "The taxes bite deep, but the returns are fair enough. The real trouble is the interest. By the time we've repaid principal and interest, there's barely anything left."
 
-"Interest?" Wen Tong found this strange. Did growing sugarcane require taking on debt?
+"Interest?" Wen Tong was surprised. He hadn't realized sugarcane farming required borrowing.
 
-"Your Honor wouldn't know the hardships of us farmers." The cane farmer smiled bitterly. "Although growing sugarcane returns aren't small, it consumes a lot of water and fertilizer. Buying fertilizer alone is a major expense. If the sky doesn't send rain, we have to hire people to irrigate. When it's time to harvest the cane, we have to hire laborers again. Even the smallest plot costs at least four or five thousand *wen*. Country folk don't have ready cash, so we have to go borrow."
+The farmer smiled bitterly. "Your Honor wouldn't know our hardships. Sugarcane devours water and fertilizer. Fertilizer alone is a major expense. When the rains don't come, we must hire men to irrigate. When harvest arrives, we hire laborers again. Even the smallest plot costs four or five thousand *wen* to work. Country folk don't keep that kind of cash on hand, so we borrow."
 
-The loan interest was fifteen to twenty percent—seemingly not that high. But after the sugar was processed, it had to be split with the creditor. In this way, the profit was cut in half out of thin air. Both Wen Tong and Chang Shide felt this usury was truly ruthless.
+The interest rates ran fifteen to twenty percent—not outrageous on paper. But after processing, the sugar had to be split with the creditor, effectively halving the farmer's profit. Both Wen Tong and Chang Shide recognized the arrangement for what it was: ruthless usury dressed in respectable clothes.
 
-"I understand." Wen Tong nodded. "I'm the new owner here, so I should give everyone some benefits. This crushing season, anyone who brings sugarcane to me for processing will only be charged three parts."
+"I understand," Wen Tong said. "I'm the new owner here, and I ought to offer some benefit to the people. This crushing season, anyone who brings sugarcane to me for processing will be charged only three parts."
 
-"Thank you, Shopkeeper, for your kindness!" The cane farmers were so grateful they nearly fell to their knees to kowtow. This was essentially waiving one part—every household would be able to keep considerably more money.
+The farmers' gratitude was so intense they nearly prostrated themselves. Waiving one part meant every household would keep significantly more of what they had earned.
 
-After sending everyone off, Wen Tong returned to the hall. Liao Dahua and the others followed closely behind.
+After seeing them off, Wen Tong returned to the hall with Liao Dahua and the others trailing behind.
 
-"Manager Liao, you're the manager of the branch here. I've been taking up your time for days now. The Haikang branch—" Wen Tong felt apologetic.
+"Manager Liao, you run the branch here, and I've been monopolizing your time for days. The Haikang office—" Wen Tong began apologetically.
 
-"It's nothing, nothing," Liao Dahua quickly said. "The Haikang branch was opened precisely for Manager Guo's sake in the first place. Anything the old gentleman instructs, this humble one naturally devotes his full effort to." Although he was the manager of the Qiwei branch, he wasn't actually a martial escort. He was originally a bankrupt petty merchant. The Qiwei branch in Leizhou wasn't intended for escort work but to assist Manager Guo in commerce—someone like him was perfectly suited to run it.
+"Think nothing of it," Liao Dahua interjected. "The Haikang branch exists to serve Manager Guo's interests. Whatever the old gentleman requires, I naturally devote my full attention." Though he held the title of branch manager, he was no martial escort—just a bankrupt petty merchant. The Qiwei presence in Leizhou wasn't about guarding caravans; it was about facilitating Manager Guo's commercial ventures. Someone like Liao Dahua was ideally suited for the role.
 
-"The old gentleman." Wen Tong thought Guo Yi really was quite full of himself these days. He said, "Right now there's no one here. We need to hire people to help. We need a foreman for the long-term laborers, and we need to hire a master sugar-boiler. These are pressing matters. We're strangers here with no local knowledge, so I'll have to trouble you."
+*The old gentleman.* Wen Tong suppressed a smirk. Guo Yi was certainly enjoying his status these days. Aloud, he said, "Right now we've got no one here. We need to hire staff—a foreman for the laborers, and a proper sugar-boiling master. These are urgent matters, and we're outsiders with no local connections. I'll have to rely on you."
 
-Although he'd already identified many flaws in the process, technical improvements couldn't be accomplished in a day or two. They required not only equipment but also modifications to basic facilities. Right now, he simply didn't have time for that. With the crushing season about to begin, for the time being it was best to follow established practices and get sugar produced as quickly as possible.
+He had already catalogued the operation's many flaws, but technical improvements required time, equipment, and facility upgrades—none of which he could afford right now. With the crushing season imminent, the sensible approach was to follow established practices and simply get sugar into production.
 
-"Easy, easy." Liao Dahua nodded repeatedly. "Leave it all to this humble one. I'll have it sorted within three days."
+"Easy," Liao Dahua assured him, nodding vigorously. "Leave it to me. I'll have everything arranged within three days."
 
-"Don't worry too much about wages. We need people right now. Also, if you can recruit long-term workers, or if anyone is selling themselves into service, select honest and reliable people and take them all in."
+"Don't pinch pennies on wages—we need bodies immediately. And if you can recruit long-term workers, or if anyone is selling themselves into service, take in anyone honest and reliable."
 
-"Yes." He stepped forward and lowered his voice. "If there are suitable young women, should we purchase a few to attend to Shopkeeper Wen and Master Chang's daily needs? Right now, Guangzhou only sent two rough maids. They're heavy-handed and clumsy—probably not good enough to serve you two properly."
+"Understood." Liao Dahua stepped closer and lowered his voice. "If suitable young women are available, should I purchase a few to attend to Shopkeeper Wen and Master Chang's... daily needs? The two maids Guangzhou sent are rather rough—probably not up to proper service."
 
-"Good, good," Chang Shide quickly said. "Not too young, and not too skinny either."
+"Yes, yes," Chang Shide said quickly. "Not too young, and not too thin."
 
-Wen Tong gave him an awkward look. This guy was way too eager. It wasn't that he didn't have such thoughts himself—the Executive Committee had authorized them to recruit and employ indigenous people locally. But to be so eager to find women right after arriving would look bad if word got back.
+Wen Tong shot him an awkward look. The man was entirely too eager. It wasn't that Wen Tong lacked similar thoughts—the Executive Committee had authorized local recruitment, after all—but showing such obvious appetite for women immediately upon arrival would reflect poorly if word reached Lingao.
 
-"I think we should hold off on that," Wen Tong said. "We've just arrived in Leizhou. We still need to visit various places, which might take several weeks. Buying a maidservant for the journey would be troublesome. It's more convenient to have those two servant boys accompany us." The two servant boys standing nearby, upon hearing this, both blushed red and stood mute.
+"Let's hold off on that," Wen Tong said. "We've only just arrived. We still need to inspect the other properties, which may take weeks. Acquiring a maidservant for the road would be inconvenient. The two servant boys will do." The boys in question stood nearby, faces flushing crimson, saying nothing.
 
-Liao Dahua paused, his eyes sweeping the room. Suddenly, it dawned on him:
+Liao Dahua paused. His gaze swept the room, and sudden comprehension dawned on his face.
 
-"Yes, yes, this humble one spoke out of turn."
+"Yes, yes—forgive me. I spoke out of turn."
 
-Neither of the two men understood what he had "suddenly realized," but there was too much to do now, so they didn't pursue it. By now, it was getting late. Liao Dahua and the others took their leave and withdrew. The escort guards he'd brought were all stationed around the estate for protection. Liao Dahua didn't dare let down his guard—Xuwen had the most chaotic public order in all of Leizhou Prefecture, with all manner of bandits running rampant. Sugarcane estates and sugar mills with relatively more property were all targets for robbery. Zhou Shizhai and Li Biao stayed in the outer room of their quarters, ready to respond at any moment.
+Neither transmigrator understood what the man thought he had realized, but there was too much to do to pursue the matter. Evening was approaching. Liao Dahua and the others took their leave. The escort guards he had brought stationed themselves around the estate perimeter. In Xuwen—the most lawless corner of Leizhou Prefecture, where bandits of every stripe preyed on anyone with property—sugarcane estates and sugar mills made tempting targets. Zhou Shizhai and Li Biao settled into the outer chamber, ready to respond at a moment's notice.
 
-That evening, the two maids sent from Guangzhou came to pay their respects. Though not the burly, stout type, they looked thin and wizened but were in fact quite strong. First, they brought over newly made bathing tubs—deep and large. Then, in an endless stream, they carried in bucket after bucket of hot water and lots of soap beans. After traveling for two days through dust and wind, a good bath was exactly what was needed. Wen Tong immediately stripped naked and soaked in the hot water for a long while before climbing out. He sat on a bamboo stool and lathered himself with soap beans. Although the soap beans didn't spread smoothly, where they did touch the skin felt slippery and rich, with a subtle fragrance—much better than the soap issued by the office in Lingao.
+That evening, the two maids from Guangzhou came to pay their respects. Though thin and weathered rather than burly, they proved surprisingly strong. They produced two deep bathing tubs—newly made—then carried in bucket after bucket of steaming water along with ample soap beans. After two days on dusty roads, a proper bath was precisely what the two men needed. Wen Tong stripped and sank into the hot water, soaking until his muscles loosened, then climbed out to sit on a bamboo stool and lather himself. The soap beans didn't spread as smoothly as modern soap, but where they touched skin, they felt slick and rich, carrying a subtle natural fragrance far superior to the industrial product issued by the offices in Lingao.
 
-"Old Chang, help me lather up," Wen Tong said to Chang Shide, who was soaking in the hot water with his eyes closed, enjoying himself.
+"Old Chang," Wen Tong called to his companion, who lay submerged with eyes closed, radiating contentment. "Help me scrub my back."
 
-"Let Wen Xiu and his brother do it. Aren't they our manservants? That's exactly what they're for. Just let me enjoy a bit longer." Chang Shide soaked in the hot water with an expression of utter bliss.
+"Have Wen Xiu and his brother do it. They're our manservants—that's exactly what they're for. Let me enjoy this a while longer." Chang Shide didn't open his eyes.
 
-Wen Tong thought that made sense—plus he could get a back scrub while he was at it. So he called out loudly. Wen Xiu answered from the next room and immediately came in. He had changed into a short shirt and trousers and was barefoot.
+Fair enough, Wen Tong decided—he could get a proper back scrub out of it. He called out, and Wen Xiu answered from the adjacent room, appearing moments later barefoot in a short shirt and trousers.
 
-"Your Honor truly has a strong body," Wen Xiu said while vigorously scrubbing his back.
+"Your Honor has a strong body," the boy remarked while working vigorously at Wen Tong's back.
 
-"Hmph, him, with that skinny frame, strong? Look at my pecs—I don't swing that ghost-head blade for nothing." Chang Shide splashed noisily.
+Chang Shide snorted from the tub. "Him? That skinny frame? Look at these pecs—I don't swing the ghost-head blade for nothing." He slapped the water for emphasis.
 
-Wen Xiu didn't dare speak further. Wen Tong said, "Who taught you Mandarin?"
+Wen Xiu wisely held his tongue. Wen Tong, ignoring the display, asked, "Who taught you Mandarin?"
 
-"It was Steward Sun."
+"Steward Sun, sir."
 
-Wen Tong and Chang Shide had been told before departure that Steward Sun was Sun Chang, one of the main indigenous staff of the Guangzhou Station.
+Wen Tong and Chang Shide had been briefed before departure: Steward Sun was Sun Chang, one of the key indigenous staff at the Guangzhou Station.
 
-"Young Guo must have quite a few people under him over there."
+"Young Guo must have quite the operation over there."
 
-Wen Xiu hesitated for a moment, unsure whether this "Young Guo" in the master's mouth was the same Manager Guo they revered almost like a deity. After a moment's hesitation, he answered:
+Wen Xiu hesitated, uncertain whether this casual "Young Guo" referred to the Manager Guo his peers revered almost as a deity. After a moment, he answered carefully: "Yes, several dozen people at least." He continued scrubbing diligently. "Everyone learns Mandarin from Steward Sun. Manager Guo says it's to prepare for the masters who'll come in the future—"
 
-"Yes, several dozen people at least." Wen Xiu scrubbed him diligently and thoroughly. "Everyone follows Steward Sun in learning Mandarin. Manager Guo says it's all to prepare for the masters coming in the future—"
+Chang Shide chuckled. "Young Guo really does know how to lay groundwork. We've barely arrived in Leizhou and the servants already speak our language. Otherwise, we'd have no one to give orders to." He yawned. "Today was tedious. Felt like watching some village folk performance. Anyway—have you worked out any improvement plans for the sugar-making?"
 
-Chang Shide chuckled several times: "Young Guo really knows how to get things done. We just arrived in Leizhou and the servants are all ready. Otherwise, we wouldn't even have anyone to order around who speaks the language." He yawned. "Today was really boring. It reminded me of watching folk performances. By the way, have you got any improvement plans for sugar-making?"
+"Improvements exist," Wen Tong replied, "but there's no time for major changes now. We'll make do with what we have." He signaled, and Wen Xiu scooped clean water to rinse him. The warmth cascading over his body was deeply pleasant. "Tomorrow I'll inspect the fields. After that, we need to visit the other estates and mills to assess their conditions."
 
-"There are improvements to be made, but there's no time for major changes right now. We'll just make do for now." Wen Tong signaled, and Wen Xiu scooped clean water from a nearby bucket to rinse him off. The warm water washing over his body was very pleasant. "Tomorrow I'll go down to the fields for a look, and then we need to visit the other estates and sugar mills to see their situations."
+"Come scrub my back!" Chang Shide heaved himself from the tub. His body was considerably more robust than Wen Tong's—somewhat heavy, yes, but regular exercise and months of physical labor since D-Day had layered muscle across his chest, abdomen, and thighs. Wen Xiu eyed the physique with mingled awe and envy.
 
-"Come, scrub my back too!" Chang Shide climbed out. His body was much more robust than Wen Tong's. Although he was a bit fat, he exercised often, and since D-Day he had done plenty of physical labor—his chest, abdomen, and thighs were all well-muscled. Wen Xiu looked at his body with a mix of awe and envy, and said with an ingratiating smile:
+"Your Honor truly has a fine build," the boy said ingratiatingly as he began scrubbing.
 
-"Your Honor truly has a fine physique." And he began scrubbing his back.
+"Why not consolidate everything?" Chang Shide asked. "Close the scattered mills and centralize operations here. Bring all the cane in for unified processing. Easier to scale up, and bagasse utilization becomes simpler."
 
-"Why not consolidate them? Shut down the scattered mills and run a centralized, integrated factory here. Bring all the sugarcane here for unified processing. Easier to scale up, and utilizing the bagasse would be simpler too."
+"I've considered it," Wen Tong said. "But farmers prefer processing nearby. Who wants to haul sugarcane across terrible roads just to have it crushed? We'll need to see how the estates are distributed. If they're too scattered, the sugar industry here has no future."
 
-"I've thought of that, but farmers all like processing nearby. Who'd want to travel far and wide just to sell sugarcane? Too much hassle. And the roads here are terrible," Wen Tong said. "Let's see how the sugarcane estates are distributed. If they're too spread out, the sugar industry in Leizhou is going nowhere."
+In truth, the problems occupying his mind ran far deeper than logistics. He had gained a general picture of Leizhou's sugar industry today; determining the path forward would require more investigation. The improvements he envisioned extended well beyond equipment and processes. At the mill, he had examined the cane being crushed—*bamboo* cane, a variety native to China. Though specialized for sugar production, its sucrose content remained inferior to *Kunlun* cane, a chewing variety. Even here in Leizhou, one of China's prime sugarcane regions, *bamboo* cane yielded only about 9% sugar—far below the 14% standard of modern cultivars. The potential for varietal improvement was enormous. The Agricultural Committee maintained seedlings of several superior strains, all suitable for trial here. Field management, too, offered vast room for advancement.
 
-The problems he was thinking about were actually far more complex. He had gotten a general picture of Leizhou's sugar industry today; what to do next would require further investigation. As for improvements, it was far more than just processing equipment and production processes. In the sugar mill, he had already examined the sugarcane used for juicing—it was actually *bamboo* cane. This was a variety of sugarcane native to China. Though it was a specialized sugar-making variety, its sugar content was still lower than that of "*Kunlun* cane"—even though the latter was actually a variety grown for chewing. Even in Leizhou, this favored land for sugarcane, *bamboo* cane's sugar content was only about 9%, far below the 14% standard common to modern sugar-producing varieties. From this perspective, there was great potential for improving cane varieties. The Agricultural Committee preserved seedlings of several superior sugarcane varieties, all of which could be tried here. As for field management, there was undoubtedly even more room for improvement.
+"True—ah, ah, that's good. You've got real skill." Chang Shide groaned with pleasure under Wen Xiu's ministrations.
 
-"True— ah, ah, oh, that feels good. You've got some massage skills." Chang Shide, being attended to so comfortably, couldn't help letting out groans.
+"We servants have learned the full repertoire of attending to our masters," Wen Xiu said, working his hands across Chang Shide's back.
 
-"We humble servants have learned the full set of skills for serving our masters." Wen Xiu massaged his back ingratiatingly.
+"What about rough processing at each location, then centralizing the brown sugar here for final refining into white?"
 
-"What if we did rough processing at each location and then centralized the brown sugar here for final processing into white sugar?"
+"That's worth considering too. But we'll need to assess each site first."
 
-"I've thought about that too, but we'll need to see the situations at each place first."
+When they finished bathing, the maids returned to haul away the dirty water and tidy the room, collecting the discarded clothes for washing. Before long, dinner appeared. There was even liquor—*Xuwen Ye*, a local brew made from jackfruit. Liao Dahua and Zhou Shizhai joined them at the table. The two escorts drank sparingly; Wen Tong had never been much of a drinker anyway. The result was that Chang Shide consumed virtually the entire supply. He wasn't drunk, exactly, but he was decidedly unsteady. Wen Tong had to summon Wen Xiu to help the man back to his room.
 
-After they finished bathing, the maids came again to dump out the dirty water and tidy up the room. They took away the clothes they'd changed out of to wash. Before long, dinner was laid out. There was even liquor—Xuwen's local "*Xuwen Ye*," a rustic brew made from jackfruit. At the table, Liao Dahua and Zhou Shizhai served as dining companions. Both men had a token drink. Wen Tong wasn't much of a drinker anyway, so basically all the liquor ended up being consumed by Chang Shide. Although not drunk, he was quite tipsy. Wen Tong had no choice but to call Wen Xiu to help the fellow back to his room. He had originally wanted to discuss some matters with him in the evening, but now it seemed he'd just have to go to bed as soon as it got dark.
+So much for the evening's discussion, Wen Tong thought. Apparently, they would all be going to bed as soon as darkness fell.
 
 **(End of Chapter)**

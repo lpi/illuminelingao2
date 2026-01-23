@@ -1,123 +1,125 @@
 # Chapter 333 - The Students
 
-"I think they are preparing to press oil. Coconut Oil Poached Fish."
+"I suspect they're planning to press oil. Coconut-poached fish, perhaps."
 
-"Just hearing that makes me want to vomit," Shi Niaoren said. "But most likely they're preparing to make soap."
+"The thought alone makes me nauseous," Shi Niaoren said. "More likely they're gearing up for soap production."
 
-"They won't be making soap on a large scale anymore," Jiang Qiuyan said. "This expedition discovered a large amount of *Gleditsia* (honey locust) resources. I estimate everyone will be using *Gleditsia* pods for a long time."
+"Actually, large-scale soap-making is being discontinued." Jiang Qiuyan shook his head. "The expedition discovered abundant *Gleditsia*—honey locust—resources. I expect everyone will be washing with *Gleditsia* pods for quite a while."
 
-"Does *Gleditsia* have sterilizing effects for hand washing?"
+"Does *Gleditsia* have any antibacterial properties for hand-washing?"
 
-"I don't know, probably."
+"No idea. Probably."
 
-Saying this, he took out several thick, crumpled notebooks encrusted with salt grains from his portable box. They contained medical records, health diaries, and disease conditions written along the journey.
+With that, he produced several thick, salt-crusted notebooks from his portable case, their pages crumpled and stained. They contained medical records, health diaries, and disease observations compiled throughout the voyage.
 
-"Everyone organize these things together when you have time. I'm a psychiatrist after all; doing this is a bit unfamiliar to me."
+"When you have time, organize these materials together. I'm a psychiatrist, after all—this sort of work isn't really my specialty."
 
-Fu Wuben was taken to Boys' Dormitory No. 1—besides gender segregation, the quarantine camp was now also segregated by age. Orphans and single men were no longer put together. The reason was that incidents of adults snatching children's food and even sodomy had occurred in the Bopu quarantine camp. Although the perpetrators paid a painful price—sentenced to life imprisonment at hard labor in the labor reform team—the transmigrators still decided to separate adults and children to prevent such scandals from continuing.
+---
 
-Dormitory No. 1 was where children who entered during the same period stayed. Less than ten people lived on the thirty bunk beds. The room was empty; a few children were sitting by the bedside reading aloud, while a few others were fighting and playing with each other. Like him, they were all bald and wearing tight-fitting blue cloth jackets with standing collars.
+Fu Wuben was escorted to Boys' Dormitory No. 1. The quarantine camp now segregated by both gender and age. Orphans and single men were no longer housed together—a policy change prompted by incidents at the Bopu camp, where adults had been caught stealing food from children, and worse, cases of sodomy had been discovered. Though the perpetrators paid dearly—sentenced to lifetime hard labor in the reform brigade—the transmigrators had decided to separate the populations entirely to prevent further scandals.
 
-The beds were covered with straw mats, clean and tidy, with a folded single quilt made of blue cloth similar in color and material to their uniforms. There was a simple sedge pillow. Besides these, there was a small cabinet made of unpainted white wood by the bed.
+Dormitory No. 1 housed children admitted during the same period. Fewer than ten occupied the thirty bunk beds, leaving the room feeling cavernous. Several boys sat on their mattress edges, reading aloud; others wrestled and roughhoused. Like Fu Wuben, they were all bald and dressed in close-fitting blue jackets with mandarin collars.
 
-Fu Wuben knew the rules of being a newcomer; after entering, he stood properly first to see if a "boss" would come out to assign a bunk. But after waiting for a long time, no one spoke, so he carefully chose a bunk that looked unoccupied and put down the luggage he had just received.
+The beds held woven straw mats, clean and orderly, with folded single quilts of the same blue cloth as their uniforms. Simple sedge pillows completed the bedding. Beside each bunk stood a small cabinet of unpainted white wood.
 
-"Hey!" someone shouted. Fu Wuben was startled, hurriedly picked up his things again, and stood blankly by the bed.
+Fu Wuben understood newcomer protocol. He took a position just inside the door, standing properly, waiting to see if a "boss" would emerge to assign him a bed. But no one spoke. After a long silence, he cautiously selected an apparently unoccupied bunk and set down his belongings.
 
-A boy ran over. "Newcomer! You can't put luggage directly on the bed! If Teacher Bai sees it, you'll get beaten."
+"Hey!" someone shouted. Fu Wuben flinched, snatched up his things, and stood frozen by the bedside.
+
+A boy trotted over. "New arrival! You can't put your stuff directly on the bed! If Teacher Bai catches you, there'll be a beating."
 
 "Then where should I put it?" Fu Wuben asked, then added ingratiatingly, "Senior Brother."
 
-"Senior Brother?" The boy was stunned, then laughed. "I'm not your Senior Brother, I'm called Lu Jia! I'm from Xuankuodu!" Mentioning he was from Xuankuodu, he seemed to puff out his chest proudly.
+"Senior Brother?" The boy blinked, then laughed. "I'm not your senior brother! I'm Lu Jia, from Xuankuodu!" At the mention of his hometown, he puffed his chest with evident pride.
 
-Xuankuodu meant people from the county seat, the so-called "city folk." The sense of superiority of being a "city person" was also very common in ancient times.
+Xuankuodu meant the county seat proper—"city folk." The age-old superiority of urbanites over rustics, it seemed, transcended the centuries.
 
-"Isn't your family just tenant farmers planting school fields? Barbarians living by the city gate." Several boys nearby immediately chimed in. "What's there to be arrogant about?"
+"Your family are just tenant farmers working school fields," several boys nearby jeered. "Barbarians camped by the city walls. What's there to brag about?"
 
-"My family are official tenants..."
+"We're *official* tenants—"
 
-"So what if official tenants? Still poor enough to show your butt."
+"So what? Still poor enough to show your ass."
 
-"I am from XX Village." Fu Wuben carefully didn't join this conversation about the truth.
+"I'm from XX Village," Fu Wuben offered carefully, declining to join the dispute.
 
-"Heard about it! A lot of people from your place arrived recently," Lu Jia said. "The rules here are strict; things must be arranged neatly and not placed randomly."
+"I've heard of it! Lots of people from your area lately." Lu Jia nodded. "The rules here are strict. Everything has to be arranged just so—nothing placed at random."
 
-"I'm from Thirteen Villages!" A boy ran over. "My name is Yuan... Yuan..." He finally remembered his newly acquired official name: "Yuan Fei!"
+"I'm from the Thirteen Villages too!" A second boy ran up. "My name is Yuan... Yuan..." He struggled to recall his recently assigned official name. "Yuan Fei!"
 
-"You guys from Thirteen Villages are all bandit spawn!" Before the two could narrate their hometown friendship, a discordant voice came from another corner of the room. This was an older-looking boy. A large scar on his forehead made him look very ferocious.
+"You Thirteen Villages types are all bandit spawn!" Before the two could bond over their shared origins, a discordant voice cut across the room. This came from an older-looking boy with a jagged scar crossing his forehead, giving him a ferocious aspect.
 
-"You're talking nonsense!" Yuan Fei screamed angrily. "My dad isn't a bandit!"
+"That's a lie!" Yuan Fei shrieked, face reddening. "My father's no bandit!"
 
-"Your grandpa was a bandit, your whole family, whole village are bandits!" The scarred boy shouted, unwilling to show weakness. The two glared at each other, looking like they would fight immediately and eat each other alive. Fu Wuben was scared into hiding backward.
+"Your grandfather was a bandit! Your whole family, your whole village—bandits, all of you!" The scarred boy matched his volume. The two glared at each other, looking ready to tear into each other with teeth and nails. Fu Wuben edged backward.
 
-"This is Wu Xiang," Lu Jia whispered. "Heard his family was harmed by Dang Namen's gang. So now he's like a psycho. Whoever says they are from Thirteen Villages, he immediately acts like they are irreconcilable enemies."
+"That's Wu Xiang," Lu Jia murmured. "Word is his family was destroyed by Dang Namen's gang. Now he's half-mad. Anyone mentions Thirteen Villages, he goes off like a sworn enemy."
 
-"Will he hit people—" Fu Wuben thought, *I am also from the Thirteen Villages area; getting beaten for no reason isn't worth it.*
+"Will he hit me—" Fu Wuben thought uneasily. *I'm from the Thirteen Villages area too. Being beaten for nothing isn't worth it.*
 
-"Don't worry, he dares not. Last time he fought with Yuan Fei and got dragged out and whipped thoroughly; now he only dares to roar," Lu Jia said nonchalantly. "If he causes trouble again, he'll be taken to the labor reform team."
+"Don't worry. He doesn't dare anymore. Last time he and Yuan Fei came to blows, they dragged him out and caned him bloody. Now he only dares to shout." Lu Jia shrugged. "If he causes trouble again, he'll be shipped to the labor reform brigade."
 
-Sure enough, the two people's glaring contest ended after killing each other with eyes for a few minutes. Yuan Fei said, "Great, now that you're here, we from Thirteen Villages don't have to take that psycho's useless anger anymore."
+Sure enough, the standoff ended after several minutes of mutual death-glares. No one threw a punch. Yuan Fei turned to Fu Wuben with satisfaction. "Good—now that you're here, we Thirteen Villages people don't have to take that lunatic's abuse anymore."
 
-"You'd better save it," Lu Jia said. "The Australian Chiefs strictly forbid forming factions based on hometowns or clans. Watch out for the rattan cane!"
+"I'd save that sentiment," Lu Jia warned. "The Australian Chiefs strictly forbid cliques based on hometown or clan. Mind the rattan cane."
 
-"I am not a bandit family member!" Yuan Fei looked aggrieved. "Bandit children are all locked in a separate camp over by the church! Heard they want them to be foreign monks!"
+"I'm not a bandit's son!" Yuan Fei's expression turned wounded. "The real bandit children are locked in a separate camp by the church! I heard they're going to make them into foreign monks."
 
-"Why make them be monks?" Fu Wuben asked strangely.
+"Why would they do that?" Fu Wuben asked, puzzled.
 
-"Who knows," Lu Jia said. "Organize your things first."
+"Who knows." Lu Jia waved the question away. "Get your things organized first."
 
-Fu Wuben opened the bag he received. There were many things inside: a set of clothes identical to what he was wearing, a cap with a brim, two sets of underwear, socks—the underwear and socks were very soft and had no stitching lines, surprising him greatly. These were products made by Bairen Textile Mill using primitive knitting machines.
+Fu Wuben opened the satchel he had been issued. It was stuffed with more than he had ever owned: a second set of clothes identical to what he wore, a cap with a brim, two sets of underclothes, socks. The underwear and socks were soft, with no stitching seams—a mystery that astonished him. These were products from the Bairen Textile Mill, made on primitive knitting machines.
 
-Then there were two long towels, one white and one blue. Thick and soft, covered in loops. Lu Jia told him, "This is called a *maojin* (towel). White for washing face, blue for bathing." Fu Wuben had never used a face towel growing up, and now hearing he had to use two, he instantly wondered if he had come to the wrong place—even landlord grain households weren't this particular.
+Then came two long towels, one white and one blue, thick and plush, covered in tiny loops. Lu Jia explained: "This is called a *maojin*—a towel. White for washing your face, blue for bathing." Fu Wuben had never used a face towel in his life; now he was expected to use two? He wondered if he had stumbled into the wrong world. Even landlords weren't this particular.
 
-He knew the wooden toothbrush was for brushing teeth; landlords in his village used them. They looked similar. Of course, he himself never used one.
+The wooden toothbrush, he recognized—wealthy households in his village used similar implements. Of course, he himself never had.
 
-A bamboo tube cup for drinking and rinsing mouth, plus a big bowl, chopsticks, and spoon for eating.
+A bamboo cup for drinking and rinsing, plus a large bowl, chopsticks, and a spoon for meals.
 
-"Master thought so thoughtfully."
+"My master thought of everything."
 
-"Everyone is like this, nothing rare." Lu Jia put on an old-timer "I know everything" appearance. Then he taught him to categorize and place things in stipulated places: clothes must be folded neatly in the cabinet, towels must be hung unfolded, even the direction chopsticks were placed had rules.
+"Everyone gets the same. Nothing special." Lu Jia assumed the air of a seasoned insider. He proceeded to demonstrate how to categorize and store belongings in their designated places: clothes folded precisely in the cabinet, towels hung unfolded, chopsticks oriented just so.
 
-"Australians hate messiness the most. Everything has rules, even shitting!" Lu Jia described exaggeratedly. "And they are very afraid of dirt, bathing every day! Those who violate rules will be dragged out to have their buttocks beaten." Saying this he shivered, probably remembering the feeling of getting beaten. "Whipped with rattan canes." Saying this he subconsciously touched his butt.
+"The Australians hate disorder. Everything has rules—even taking a shit!" Lu Jia's voice dropped conspiratorially. "And they're terrified of dirt. They bathe *every day*! Anyone who breaks the rules gets dragged out for a caning." He shuddered, perhaps recalling his own experience. "Rattan canes." His hand unconsciously drifted to his backside.
 
-Just as they were talking, Fu Wuben's stomach suddenly felt a burst of cramping pain.
+As he spoke, Fu Wuben felt a sudden cramping pain in his gut.
 
-"Can't hold it! Where is the latrine?"
+"Can't hold it! Where's the latrine?"
 
-"Run left after exit, there is a house with two doors." Before Lu Jia finished, Fu Wuben was about to run.
+"Turn left out the door. There's a building with two entrances. But wait—" Before Lu Jia could finish, Fu Wuben was already bolting for the exit.
 
-"Don't run, take toilet paper!" Lu Jia gave him toilet paper. Fu Wuben ran wildly without saying a word.
+"Don't forget the toilet paper!" Lu Jia thrust a wad at him. Fu Wuben grabbed it without breaking stride.
 
-When Fu Wuben returned to the dormitory, his legs could hardly walk; his stomach was churning violently. After he came out, the older child on duty outside made him wash his hands, and he had to rub a piece of slippery stuff on his hands until foam appeared before washing it clean.
+When he staggered back to the dormitory, his legs were barely functioning and his stomach still churned violently. An older boy on duty outside made him wash his hands, rubbing a slippery substance against his palms until foam appeared before he was allowed to rinse.
 
-Fu Wuben's diarrhea would continue for two days until the effects of the deworming medicine wore off.
+Fu Wuben's diarrhea would persist for two days, until the deworming medication ran its course.
 
-Everyone talked for a while longer. It turned out everyone's background was different. Lu Jia was an apprentice recruited by Wu Nanhai.
+Eventually the boys resumed their chatter, sharing their varied backgrounds. Lu Jia, it emerged, was an apprentice recruited by Wu Nanhai.
 
-"That day Master Wu walked around the fields with the County Director of Education and took me in." He said triumphantly, "He even said I was something 'teachable'?"
+"Master Wu was walking around the fields with the County Director of Education, and he picked me right on the spot." Lu Jia's chest swelled. "He even said I was 'teachable,' or something like that."
 
-Yuan Fei was recruited together when Du Wen took in orphans in the Thirteen Villages area—he wasn't really an orphan, but hearing that children going to Bairen could get free food and clothing and learn to read, many families feeling burdened by large populations sent their children over, and the Work Team accepted them all.
+Yuan Fei had been collected when Du Wen's Work Team gathered orphans in the Thirteen Villages area. He wasn't technically an orphan, but when word spread that children sent to Bairen received free food, clothing, and education, many overburdened families had volunteered their offspring. The Work Team accepted them all.
 
-As for that Wu Xiang, he ran to East Gate Market himself, asking to defect to freedom—origins varied.
+As for Wu Xiang, he had fled to East Gate Market on his own initiative, begging to join the transmigrators. Origins, clearly, varied widely.
 
-There were two types of children here: "Sponsored Students"—sent or adopted by transmigrators personally, relevant upbringing costs deducted from their own income, taken back by "Masters" for self-education after simple basic literacy and military training; "State Students"—children collected from various channels, raised and educated uniformly by the Ministry of Education, then sent to various places according to learning conditions.
+Two categories of children existed here: "Sponsored Students," adopted or sent by individual transmigrators, whose upbringing costs were deducted from their sponsors' income, to be reclaimed after completing basic literacy and military training; and "State Students," gathered through various channels, raised and educated uniformly by the Ministry of Education, then assigned according to aptitude and performance.
 
-Just as they were talking, shouting came from outside: "Attention! Officer inspection." With this long shout, the children in the room hurriedly put down things in their hands and all stood by their beds, standing straight.
+A shout rang from outside: "Attention! Officer inspection!" The children in the room immediately dropped whatever they held and scrambled to their beds, standing ramrod straight.
 
-"Stand properly, quick!" Lu Jia reminded him. Fu Wuben imitated his appearance, standing stiffly straight.
+"Stand properly! Quick!" Lu Jia hissed. Fu Wuben mimicked the posture, rigid and uncertain.
 
-The person who came was an officer wearing an Army uniform—during the quarantine period, conducting basic military training for everyone to strengthen their organization, discipline, and obedience was a unanimous resolution of the Executive Committee. So it was stipulated that Army and Navy officers take turns serving as instructors for the quarantine camp. The person coming was exactly Zhang Berlin.
+The arriving officer wore an Army uniform. During the quarantine period, basic military training for all inductees—to instill organization, discipline, and obedience—was an Executive Committee mandate. Army and Navy officers rotated through as instructors. Today's visitor was Zhang Berlin.
 
-Standing closest to the door, Lu Jia saw Zhang Berlin enter and shouted: "Attention!"
+Lu Jia, standing nearest the door, spotted him first. "Attention!"
 
-Zhang Berlin scanned the entire room and returned a salute.
+Zhang Berlin surveyed the room and returned a crisp salute.
 
-"Report to Sir! Dormitory No. 1 has twelve actual persons, twelve persons present! Please instruct."
+"Sir! Dormitory Number One reports twelve persons authorized, twelve present! Awaiting instructions!"
 
-Zhang Berlin waved his hand, walked along the aisle between beds, looking at every bed and the cabinet beside it, occasionally wiping the furniture with a hand wearing a white glove to see if there was dust. When he made this move, a child was sweating cold sweat on his forehead.
+Zhang Berlin signaled acknowledgment and proceeded down the aisle between bunks, inspecting each bed and cabinet. Occasionally he ran a white-gloved hand along a surface, checking for dust. One boy began to sweat visibly.
 
-Finally, he expressed satisfaction with the hygiene and order situation here and walked out. Then the shout from the next dormitory was heard.
+Finally, Zhang Berlin pronounced himself satisfied with the sanitary conditions and departed. Moments later, the shout echoed from the adjacent dormitory.
 
-Fu Wuben broke out in a cold sweat. Lu Jia said proudly, "See how big the rules are here? There are dormitory regulations on the wall; you'd better memorize them."
+Fu Wuben let out a shaky breath. Lu Jia smirked. "See how strict the rules are here? There are dormitory regulations on the wall. You'd better memorize them."
 
-"I can't read," Fu Wuben said embarrassedly.
+"I can't read," Fu Wuben admitted, embarrassed.

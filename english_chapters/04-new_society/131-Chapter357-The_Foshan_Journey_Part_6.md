@@ -1,6 +1,6 @@
 # Chapter 357 - The Foshan Journey (Part 6)
 
-Calm down! Stay calm! Liu San told himself. What's done is done—panicking won't help. Besides, they weren't some Ming commoners. So what if they killed an Embroidered Guard brat? If it came down to it, they could just kidnap her and use her as a sex slave back home.
+*Calm down! Stay calm!* Liu San told himself. *What's done is done—panicking won't help. Besides, they weren't some Ming commoners. So what if they killed an Embroidered Guard brat? If it came down to it, they could just kidnap her and use her as a sex slave back home.*
 
 With this thought, his mood settled considerably. He picked up the teapot and poured Huang Tianyu a cup, signaling him to calm down.
 
@@ -72,11 +72,11 @@ So she was a runaway. Liu San thought this was trickier. Whether what she said w
 
 "Thank you, uncle." Li Yongxun now wore the expression of an innocent, repentant young girl. "But uncle, I have nowhere to go now..."
 
-Liu San thought: this is bad—this girl is latching onto us. "You should go home."
+Liu San thought: *This is bad—this girl is latching onto us.* "You should go home."
 
 "I won't! Father wants me to marry some pretty boy! Besides, it's thousands of *li* from here to Nanjing—uncle, you'd really feel comfortable letting little Qianqian travel alone?"
 
-Sweat! Liu San and Huang Tianyu exchanged looks. We're not that close! Whether you marry a pretty boy or an ugly brute has nothing to do with us—we're not here to liberate women.
+*Sweat!* Liu San and Huang Tianyu exchanged looks. *We're not that close! Whether you marry a pretty boy or an ugly brute has nothing to do with us—we're not here to liberate women.*
 
 "Then the lady can suit herself," Huang Tianyu said, realizing this girl was trouble.
 
@@ -100,7 +100,8 @@ Huang Tianyu coughed. "Look, we're all men here, with no womenfolk. Taking a you
 
 "Hmph hmph, you think I haven't been to one? Scared the madam and the pimps senseless." Li Yongxun seemed quite proud of her talisman. "You wouldn't dare—unless you think the Embroidered Guard are all good-for-nothings."
 
-The Embroidered Guard really were good-for-nothings—Huang Tianyu grumbled internally. No matter how fearsome a secret police organization, didn't they all get wiped out by Li Zicheng and Hong Taiji alike? But saying that aloud wouldn't be wise.
+*The Embroidered Guard really were good-for-nothings*—Huang Tianyu grumbled internally. No matter how fearsome a secret police organization, didn't they all get wiped out by Li Zicheng and Hong Taiji alike? But saying that aloud wouldn't be wise.
+
 "...Besides, I think you uncles are all good people."
 
 Receiving a "good person card" out of nowhere was rather depressing. Most depressed was Huang Tianyu—he'd played the "good man" role to the letter.
@@ -109,7 +110,7 @@ After talking round and round, they simply couldn't convince this girl. Finally 
 
 "I have a sworn sister who married someone in Foshan. I want to go to her home. Just consider it doing a good deed—escort me part of the way, won't you?"
 
-Liu San had thought of just tying her up securely, booking a room, and having the inn feed her well for a few days before releasing her. But upon reflection, this would cause Qiwei considerable trouble. Qiwei was, after all, a Guangzhou Station property—it was already a big target; attracting Embroidered Guard attention would be even worse.
+Liu San had thought of just tying her up securely, booking a room, and having the inn feed her well for a few days before releasing her. But upon reflection, this would cause Qiwei considerable trouble. Qiwei was, after all, a Guangzhou Station property—it was already a big target. Attracting Embroidered Guard attention would be even worse.
 
 Since she insisted on coming, they might as well bring her along. Once in Foshan—whether or not she truly had a sworn sister there—at least they could deal with her however necessary without implicating the Guangzhou Station. Guangzhou to Foshan was quite close. The inn staff said it was only a two-day journey by inland boat through densely populated areas. Nothing major could go wrong.
 
@@ -117,7 +118,7 @@ Thinking this through, he nodded. "Alright, we'll take you to Foshan. But first 
 
 "Fine." Li Yongxun promptly wrote out the document. Liu San took it, blew it dry, and tucked it away.
 
-"It's already the third watch. It's getting late—" Liu San thought they'd need to arrange a room for her.
+"It's already the third watch. Getting late—" Liu San thought they'd need to arrange a room for her.
 
 Huang Tianyu said, "Let Miss Li sleep in my room. I'll come sleep in yours."
 
@@ -127,7 +128,7 @@ Huang Tianyu said, "Let Miss Li sleep in my room. I'll come sleep in yours."
 
 "Very well." They instructed Gao Di to release Shucui and retrieve Li Yongxun's bundle. Chen Tong was sent to check on Shopkeeper Yang's room to make sure he hadn't been disturbed.
 
-Early the next morning, at dawn, Liu San and Huang Tianyu rose to wash up, then went to Li Yongxun's room first. The girl had already changed into neat, simple clothes—a blue cotton outfit that made her look like an ordinary little maidservant. She carried a bundle on her back, plus a long cloth-wrapped bundle tied together with an umbrella.
+Early the next morning at dawn, Liu San and Huang Tianyu rose to wash up, then went to Li Yongxun's room first. The girl had already changed into neat, simple clothes—a blue cotton outfit that made her look like an ordinary little maidservant. She carried a bundle on her back, plus a long cloth-wrapped bundle tied together with an umbrella.
 
 Huang Tianyu asked, "What's in there?"
 

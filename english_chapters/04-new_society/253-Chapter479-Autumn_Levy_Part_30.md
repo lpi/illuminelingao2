@@ -42,7 +42,7 @@ Finally, he concluded there was no more oil to squeeze from Little Hu. He ordere
 
 Whenever "struggle" was involved, Du Wen always participated. This time was no exception. Though she wasn't part of the Leadership Group, she had invited herself as a "consultant" and done considerable preparation work and creative planning for the struggle session.
 
-Mobilizing the masses through the liaisons turned out to be not difficult at all. Ordinary people thoroughly detested the clerks' abuses. Where once they could only bow and scrape, enduring their humiliation and extortion, now they could suddenly take open revenge. Passions immediately ran high. Before long, over two hundred people had been organized from villages across the county. Du Wen followed instructions, prioritizing those with high "grudge values"—those with blood debts were best.
+Mobilizing the masses through the liaisons turned out to be not difficult at all. Ordinary people thoroughly detested the clerks' abuses. Where once they could only bow and scrape, enduring humiliation and extortion in silence, now they could suddenly take open revenge. Passions immediately ran high. Before long, over two hundred people had been organized from villages across the county. Du Wen followed instructions, prioritizing those with high "grudge values"—those with blood debts were best.
 
 Among the "masses" was also the indigenous propaganda performance artist Gou Buli. He would attend this struggle session presenting himself as someone driven to familial ruin by "flying apportionment." Of course, since quite a few people in the county seat recognized him, Gou Buli couldn't publicly recount his tragic history this time. He would have to blend into the crowd and work as an agitator.
 
@@ -96,13 +96,13 @@ Apart from demonstrations on rabbits and similar animals during training, no one
 
 Zhou Dongtian had no interest in watching copper clamps being attached to a man's nipples or other parts of his anatomy. He lit a cigarette, knowing his apprentices were at this moment connecting wires to the hand-cranked telephone. Without conductive gel available in this timeline, the effect would be somewhat diminished.
 
-"You are the first personage of the Great Ming to receive this treatment." Zhou Dongtian murmured to himself.
+"You are the first personage of the Great Ming to receive this treatment," Zhou Dongtian murmured to himself.
 
 Several minutes later, muffled screams could be heard from behind the closed door. *Don't overdo it,* Zhou Dongtian thought—*if he dies, that would be awkward.*
 
 He finished his cigarette and walked back inside. Chen Minggang was strapped stark naked to the chair, face drenched in sweat, body still trembling uncontrollably.
 
-"You see, this device is quite different from the torture instruments at the county yamen." Zhou Dongtian said mildly. "You won't die. You won't be maimed. If you're willing, you could live many more years, hale and hearty. And for all those years, I could treat you to this seventeen or eighteen times a day..."
+"You see, this device is quite different from the torture instruments at the county yamen," Zhou Dongtian said mildly. "You won't die. You won't be maimed. If you're willing, you could live many more years, hale and hearty. And for all those years, I could treat you to this seventeen or eighteen times a day..."
 
 He signaled again. His men immediately began cranking the telephone. Chen Minggang's body arched violently like a fish, went rigid for several seconds, then began jumping uncontrollably in the chair. A string of shrieks echoed through the room.
 

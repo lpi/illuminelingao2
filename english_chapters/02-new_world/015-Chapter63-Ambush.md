@@ -92,7 +92,7 @@ The Ming family tensed, unable to guess what Xiao Zishan was plotting. As for Gu
 
 Seeing their heavy luggage, Xiao Zishan called a beach farm truck to take them to the riverbank.
 
-"This is as far as we go." He made one last sincere attempt: "This is 17th-century Hainan... so..." Then he only saw seven backs departing at full speed.
+"This is as far as we go." He made one last sincere attempt: "This is seventeenth-century Hainan... so..." Then he only saw seven backs departing at full speed.
 
 As both groups harbored suspicions—each thinking the other was planted by the bandits—they walked in silence at first. Then the Ming family gradually fell behind.
 

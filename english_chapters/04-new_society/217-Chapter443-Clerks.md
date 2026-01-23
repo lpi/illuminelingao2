@@ -1,83 +1,88 @@
-# Chapter 443 Clerks
+# Chapter 443 - Clerks
 
-Lingao's commodity economy level was very poor. There was little silver circulating in the market, so silver prices were relatively high, while grain prices were low. Collecting taxes in silver inevitably meant collecting much more grain. The price difference between incoming and outgoing seemed minute, but when accumulated, the figures became very large.
+Lingao's commodity economy remained woefully underdeveloped. Silver circulated rarely, making its price relatively high while grain prices stayed low. Collecting taxes in silver inevitably meant extracting far more grain than the nominal amount. The price differential between incoming and outgoing seemed minute on any single transaction, but when accumulated, the figures became enormous.
 
-The total taxable official land in Lingao was 1,660 *qing* and 98 *mu*. Levying 9 *li* per *mu* meant roughly 15,000 taels of silver. Although some land was taxed at 4 *li* and some was exempt, the total would still be nearly 10,000 taels. For such a small county town, the burden of surcharges was almost unbearably large.
+The total taxable official land in Lingao amounted to 1,660 *qing* and 98 *mu*. At 9 *li* per *mu*, the levy would reach roughly 15,000 taels of silver. Though some land was taxed at 4 *li* and certain parcels were exempt, the total would still approach 10,000 taels—an almost unbearable burden for such a small county.
 
-So when it came time to collect grain, the silver price would rise very high. This was not only a huge burden for grain-paying households but also not easy for the county. In the past, without surcharges, paying grain tax was somewhat easier. Since the first surcharge at the end of the Wanli reign, the county yamen had to urge grain tax collection and collect silver, running themselves ragged.
+Consequently, when grain collection season arrived, silver prices would surge. This created a huge burden not only for grain-paying households but also for the county administration itself. In earlier times, before the surcharges, paying the grain tax had been somewhat manageable. But ever since the first Liao Supplies surcharge at the end of the Wanli reign, the county yamen had been forced to urge tax collection and gather silver, running themselves ragged in the process.
 
-What made it most difficult for Wu Mingjin and others was that Lingao was far from the emperor's reach, and the county yamen's authority was very limited. Not to mention the county gentry, even ordinary local landlords who built forts for self-protection paid taxes quite arbitrarily. The government simply couldn't ask too many questions. As for the countless "hidden fields" reclaimed privately, they were impossible to count.
+What made the situation most difficult for Wu Mingjin and his staff was Lingao's remoteness—far from the emperor's reach—which severely limited the yamen's authority. Never mind the county gentry; even ordinary local landlords who had built forts for self-protection paid their taxes rather arbitrarily. The government simply couldn't press too hard. As for the countless "hidden fields" reclaimed privately, they were impossible to enumerate.
 
-However, in the past, relying on Wu Mingjin's methods and Wang Zhaomin's running around, Lingao's autumn tax could finally be completed on time. Last year, although the Australians came, the other party didn't interfere much with the autumn tax collection, so this task was managed. Later, although a "reasonable burden" was implemented, that had nothing to do with the county yamen.
+In the past, relying on Wu Mingjin's methods and Wang Zhaomin's tireless efforts, Lingao's autumn tax could at least be completed on schedule. Last year, though the Australians had arrived, they hadn't interfered much with autumn tax collection, so the task was managed. Later, though a "Reasonable Burden" was implemented, that had nothing to do with the county yamen.
 
-This year's situation was somewhat subtle. The Australians openly reclaimed wasteland and planted crops themselves. Wang Zhaomin had a great hidden worry.
+This year's situation, however, was subtly different. The Australians were now openly reclaiming wasteland and planting crops themselves. This gave Wang Zhaomin considerable hidden worry.
 
-What hidden worry? This brings us to "proxy registration" (*guiji*). Some families, to evade government taxes, often adopted the method of bringing their land to "cast themselves under a master," registering under the name of a landlord with an examination degree or power. Actually, tax exemptions in the Ming dynasty had clear regulations—officials of certain ranks were exempt for so much, *juren* for so much, *shengyuan* for so much. But in actual operation, it often greatly exceeded the set rules. In Lingao, there was no lack of such examples. There weren't many gentry with degrees in Lingao, but there were many powerful landlords. "Proxy registering" under powerful landlords wasn't legally exempt from tax, but for the county yamen, a basic principle for local officials was not to offend the county's big households. They often had to turn a blind eye to the collected figures. Generally speaking, both sides managed to get by.
+What worry? This brings us to "proxy registration"—*guiji*. To evade government taxes, some families would "cast themselves under a master," registering their land under the name of a landlord with an examination degree or power. In principle, Ming dynasty tax exemptions had clear regulations: officials of certain ranks were exempt for specified amounts, *juren* for their amount, *shengyuan* for theirs. But actual practice often wildly exceeded these rules. Lingao was no exception. The county had few degree-holding gentry but many powerful landlords. "Proxy registering" under such landlords wasn't legally tax-exempt, yet the county yamen—bound by the basic principle that local officials shouldn't offend influential households—often turned a blind eye to the discrepancies. Generally speaking, both sides managed to get by.
 
-Now the Australians were considered the top powerful household in Lingao County. If they openly refused to pay a single grain of rice, and the county yamen was helpless about it, many small and medium landlords or independent farmers who were watching might cast themselves under their door. Lingao's autumn tax collection would shrink significantly. This was a very bad omen for both Wu Mingjin and Wang Zhaomin—it not only concerned Wu Mingjin's performance evaluation but also both their pockets. For local officials, the benefits of floating collection and surcharges on taxes were a reliable and risk-free income.
+Now, however, the Australians stood as the most powerful household in all of Lingao County. If they openly refused to pay a single grain of rice and the county yamen proved helpless against them, many small and medium landlords—even independent farmers watching from the sidelines—might cast themselves under their protection. Lingao's autumn tax revenues would shrink dramatically. This portended disaster for both Wu Mingjin and Wang Zhaomin—affecting not only the Magistrate's performance evaluation but also both their pockets. For local officials, the benefits from floating collection and tax surcharges represented reliable, risk-free income.
 
-After much thought, Wang Zhaomin proposed that the only way was to negotiate with the Australians and ask them to set an example. Judging by the Australians' performance over the past year, they didn't want to be enemies with the Great Ming government and were sometimes even willing to spend money to buy a good image. So as long as the price was right, the other party wouldn't necessarily refuse sternly.
+After much deliberation, Wang Zhaomin proposed that the only path forward was to negotiate with the Australians and ask them to set an example by paying taxes. Judging from the Australians' behavior over the past year, they didn't wish to make enemies of the Great Ming government and were sometimes even willing to spend money to buy a favorable image. If the price was right, perhaps they wouldn't refuse outright.
 
-How could Xiong Buyou know his calculations? He was pondering what the other party actually meant.
+How could Xiong Buyou know his calculations? He was pondering what the other party actually wanted.
 
-"This county's grain tax is very light," Wang Zhaomin said quickly, seeing him pretending to ponder. "The official levy is only three *dou* five *sheng* per *mu*. For your several thousand *mu* of land, Bairen Village just needs to start with a tax for five hundred *mu*."
+"This county's grain tax is quite light," Wang Zhaomin said quickly, seeing him appear to deliberate. "The official levy is only three *dou* five *sheng* per *mu*. For your several thousand *mu* of land, Bairen Village need only start with a tax assessment for five hundred *mu*."
 
-Xiong Buyou shook his head: "Private Secretary Wang, I have to report this matter to the Executive Committee before I can give you a reply."
+Xiong Buyou shook his head. "Private Secretary Wang, I must report this matter to the Executive Committee before I can give you a reply."
 
-"Naturally." Wang Zhaomin was overjoyed to see there was room for discussion, thanking him repeatedly. If he didn't already know clearly that these Hair Bandits were impervious to oil and salt, he probably would have promised him a heavy benefit.
+"Naturally." Wang Zhaomin was delighted to see there was room for discussion and thanked him repeatedly. Were it not for his firm knowledge that these Hair Bandits were impervious to oil and salt, he probably would have promised substantial benefits on the spot.
 
-Xiong Buyou hurriedly reported to Wu De after returning. This matter immediately aroused Wu De's high attention, so the Executive Committee immediately held a meeting to discuss it.
+Xiong Buyou reported to Wu De immediately upon returning. The matter aroused Wu De's keen attention, and the Executive Committee convened at once to discuss.
 
-"This is a good thing delivered to our door!" Wen Desi beamed with delight. "I was thinking about how to persuade them, but they delivered themselves to our door!"
+"This is a gift delivered right to our door!" Wen Desi beamed with delight. "I was wondering how to persuade them, and here they've come to us first!"
 
-"That's not the same thing, is it?" Ma Qianzhu immediately sang a different tune. "He wants us to pay grain tax, not asking us to farm taxes."
+"That's not quite the same thing, is it?" Ma Qianzhu immediately objected. "He wants us to pay grain tax, not asking us to collect it."
 
-"Although it's not the same thing, Wang Zhaomin has exposed his bottom," Wen Desi used a vulgar metaphor.
+"Though it's not identical, Wang Zhaomin has revealed his hand," Wen Desi said, employing a vulgar metaphor.
 
-"Originally we didn't know how much pressure Lingao County faced regarding grain collection. Now it seems their pressure is huge." Wen Desi analyzed, "Judging from Wang Zhaomin's request, it at least exposes serious difficulties in the Lingao County Yamen's grain collection."
+"Originally, we had no idea how much pressure Lingao County faced regarding grain collection. Now it's clear their pressure is enormous." Wen Desi analyzed the situation. "Judging from Wang Zhaomin's request, it exposes serious difficulties in the Lingao County Yamen's grain collection."
 
-Since there were difficulties in grain collection, the Crossing Group had much to work with.
+Where there were difficulties, the Crossing Group had opportunities.
 
-However, they were still completely in the dark about exactly where the difficulty lay. Before taking the next step, they had to figure out the county yamen's cards.
+However, they remained completely in the dark about the precise nature of these difficulties. Before taking the next step, they needed to understand the county yamen's cards.
 
-For this kind of thing, naturally, asking the clerk of the "Revenue Section" in the county yamen was the most direct way.
+For such information, the most direct approach was naturally to consult the clerk of the "Revenue Section" in the county yamen.
 
-But this wasn't easy. In the county yamen, there were the so-called "Three Classes and Six Rooms." The heads of these three classes and the clerks of the six rooms were not easy to deal with. Only the clerks were familiar with the grassroots affairs of yamen large and small. This was their "capital." The true situation, as well as keys and tricks, were secrets not passed to outsiders. So although there was no written rule for "hereditary" clerks, invisible father-to-son transmission formed a hereditary custom. These people were all seasoned old clerks, familiar with official business to the extreme, and also well-versed in worldly wisdom and officialdom philosophy. Transmigrators couldn't control or buy them off at all, so the Executive Committee's policy toward this group was to first appease them for use, and thoroughly purge them once the time was ripe.
+But this was far from easy. The county yamen had the "Three Classes and Six Rooms." The leaders of these three classes and the clerks of the six rooms were notoriously difficult to handle. Only the clerks truly understood the grassroots workings of every yamen, large and small—this was their "capital." The real situation, the keys and tricks of the trade, were secrets never shared with outsiders. Though no written rule mandated "hereditary" clerkships, an invisible father-to-son transmission formed just such a custom. These people were all seasoned officials, intimately familiar with government business and thoroughly versed in worldly wisdom and bureaucratic philosophy. The Transmigrators could neither control nor buy them off. The Executive Committee's policy toward this group was to appease them temporarily for their usefulness, then purge them thoroughly once the time was ripe.
 
-The clerk of the Revenue Section in Lingao County was named Chen Minggang, a local. It was said his ancestors had been clerks in Lingao County since the Song dynasty. His family held many secret books passed down, and he was extremely familiar with county affairs. Everyone had to give him face; he was a figure who could really get things done locally. Gou Da and Gou Er ran wild in Lingao, and Chen Minggang had received huge benefits—actually, in Ran Yao's view, gangs like Gou Da and Gou Er might seem clamorous and powerful for a time, but eradicating them wasn't hard; once they fell, they scattered. Figures like Chen Minggang, deeply rooted and intertwined, were the true "invisible black hands behind the scenes."
+The Revenue Section clerk in Lingao County was named Chen Minggang—a local. It was said his ancestors had served as clerks in Lingao County since the Song dynasty. His family held many secret books passed down through generations, and his knowledge of county affairs was encyclopedic. Everyone had to show him respect; he was a figure who could actually get things done locally. The Gou brothers had run wild in Lingao for years, and Chen Minggang had profited handsomely from the arrangement.
 
-In the county, he was also an indispensable favorite. That Wang Zhaomin could collect the autumn grain every year owed much to Chen Minggang. In fact, whether one could establish a good cooperative relationship with the county Revenue Section clerk directly affected whether the Magistrate's tenure would be smooth.
+Actually, in Ran Yao's assessment, gangs like the Gou brothers might seem clamorous and powerful for a time, but eradicating them wasn't particularly difficult—once they fell, their followers scattered. Figures like Chen Minggang, with their deep roots and extensive networks, were the true "invisible black hands behind the scenes."
 
-Therefore, even Wang Zhaomin, a powerful figure in the county, had to affectionately call him "Old Eight" when seeing Chen Minggang—Chen Minggang was the eighth in his generation, implying familiarity without standing on ceremony.
+Within the county administration, Chen Minggang was an indispensable favorite. That Wang Zhaomin could collect the autumn grain year after year owed much to his assistance. In fact, whether a magistrate could establish a good working relationship with the Revenue Section clerk directly determined whether his tenure would proceed smoothly.
 
-Because the Revenue Section clerk concerned the entire county's taxes, he was an extremely critical figure. Wu De had always wanted to win him over, sending Xiong Buyou to socialize with him several times, and Lin Baiguang had also gone out to face him, but the results were unsatisfactory.
+Therefore, even Wang Zhaomin, a powerful figure in the county, had to address him affectionately as "Old Eight" upon meeting—Chen Minggang ranked eighth in his generation. The nickname implied familiarity without standing on ceremony.
 
-Chen Minggang wasn't an upright person, nor could he be said to have a stance. his attitude was slippery to the extreme. Towards the Transmigrators, he tried his best to be perfunctory. Whatever request or matter, he never delayed, nor did he demand various customary fees. It could be said he gave 120 percent face. But when it involved critical issues, especially land quantity and tax burden, he always played dumb, saying half and hiding half, sometimes simply rambling with obscure terminology, leaving the Transmigrators confused.
+Because the Revenue Section clerk controlled the county's entire tax apparatus, he was an extremely critical figure. Wu De had long sought to win him over, sending Xiong Buyou to socialize with him on several occasions. Lin Baiguang had also made overtures. The results were uniformly unsatisfying.
 
-In the Political Security Bureau's dossiers, Chen Minggang had a lot of black materials. It could be said he was one of the clerks with the greatest popular indignation in the county, even more guilty of heinous crimes than the clerk of the Punishment Section. Zhang Xingjiao also hated this person to the bone—after all, his family's ruin started precisely from the Revenue Section colluding with Gou Da and Gou Er to play the trick of "property gone, tax remains."
+Chen Minggang wasn't an upright man, nor could he be said to hold any particular principles. His attitude was slippery to the extreme. Toward the Transmigrators, he strove to be perfunctory in every way. Whatever request or matter arose, he never delayed, nor did he demand the customary fees—he gave one hundred and twenty percent face. But whenever critical issues came up, especially regarding land quantities and tax burdens, he played dumb, saying half and hiding half, sometimes simply rambling in obscure terminology until the Transmigrators left utterly baffled.
 
-But now, the Transmigrators still had to use him for a stage. Xiong Buyou immediately had someone prepare a card inviting Chen Minggang to a chat at the teahouse in front of the county yamen.
+In the Political Security Bureau's files, Chen Minggang had accumulated abundant black materials. He was considered one of the most reviled clerks in the county—guilty of even more heinous crimes than the Punishment Section clerk. Zhang Xingjiao particularly hated this man. After all, his family's ruin had begun precisely with the Revenue Section colluding with the Gou brothers to execute the scheme of "property gone, tax remains."
 
-Generally speaking, the street in front of the county yamen was always the busiest place in the county, and there were always a few businesses like teahouses opposite the yamen. Here, there were "scribes" specially issued "stamps" by the government to write petitions and complaints for people as a profession, and also experienced pettifoggers who hooked three sides, all customarily nesting in the teahouse in front of the yamen waiting for customers or looking for business opportunities. Yamen clerks, runners, long-term attendants, and private secretaries of all kinds also mostly used this place to communicate news, negotiate, collude in fraud, and haggle with the outside world. To get things done at the county yamen, this was the best window.
+For now, however, the Transmigrators still needed to use him. Xiong Buyou immediately sent someone to prepare an invitation card, requesting Chen Minggang's presence at the teahouse across from the county yamen.
 
-Lingao County was a small county without so many tricks, but the general situation was about the same, just on a smaller scale. So although the teahouse was small, it existed.
+Generally speaking, the street before the county yamen was always the busiest place in any county seat, and a few businesses like teahouses invariably operated opposite the yamen. Here, "scribes" with government-issued "stamps" wrote petitions and complaints as a profession, and experienced pettifoggers who could work all angles nested in the teahouse awaiting customers or seeking business opportunities. Yamen clerks, runners, long-term attendants, and private secretaries of all types used this place as well—to exchange information, negotiate, collude in fraud, and haggle with the outside world. For anyone wanting to get things done at the county yamen, this was the best window.
 
-Xiong Buyou was already a "celebrity" in this county. Who didn't know he was the big boss of the Australians specialized in contacting the county? So as soon as he arrived at the shop, a waiter immediately led him to a private room in the back.
+Lingao was a small county without so many schemes, but the general situation was much the same, just on a smaller scale. Though the teahouse was modest, it existed.
 
-Though called a private room, it was extremely small, just holding a table and a few chairs, and the tea wasn't necessarily high quality. Anyway, people came to drink tea mainly to discuss matters; drinking tea was secondary.
+Xiong Buyou was already a "celebrity" in the county. Who didn't know he was the Australians' main liaison with local authorities? As soon as he arrived at the shop, a waiter immediately led him to a private room in the back.
 
-When Xiong Buyou dealt with county clerks, he generally met here, mainly because it was an environment familiar to the clerks, enough to make them feel at ease. Additionally, the Executive Committee had another layer of concern: they didn't want to call clerks directly to Bairen City for secret talks, to avoid outsiders thinking the Crossing Group had too deep a relationship with local clerks. Talking in this place for "eating negotiation tea" and "talking terms" was more suitable.
+The private room was extremely small—just a table and a few chairs fit inside. The tea wasn't necessarily fine quality. But then, people came to drink tea mainly to discuss business; the tea itself was secondary.
 
-Not long after, Chen Minggang arrived. He was near fifty, with a dark face and a slightly stout figure. constrained by status, his dress wasn't very splendid, but the material and workmanship were very exquisite. He held a Sichuan fan in his hand.
+When Xiong Buyou dealt with county clerks, he generally met them here. The familiar environment put the clerks at ease. Additionally, the Executive Committee had another consideration: they didn't want to summon clerks directly to Bairen City for secret talks, lest outsiders think the Crossing Group maintained too deep a relationship with local officials. This teahouse, the customary venue for "negotiation tea" and "talking terms," was more suitable.
 
-The waiter led him in. Chen Minggang's attitude toward the Transmigrators could be described as respectful and submissive; he bowed every time they met.
+Before long, Chen Minggang arrived. He was nearly fifty, with a dark complexion and a slightly stout figure. Constrained by his status, his attire wasn't particularly splendid, though the material and workmanship were clearly exquisite. He carried a Sichuan fan in one hand.
 
-"No need for ceremony, sit! Sit!" Xiong Buyou greeted.
+The waiter led him inside. Chen Minggang's attitude toward the Transmigrators could only be described as respectful and submissive; he bowed each time they met.
 
-*(The following is beyond 3000 words, not charged)*
+"No need for ceremony—sit, sit!" Xiong Buyou gestured.
+
+---
+
 *Notes:*
-*1. Liao Supplies surcharge in the 2nd year of Chongzhen was 9 li, though it varied slightly by region. Not delving into details.*
-*2. I couldn't find the exact Liao Supplies surcharge for Lingao. Calculating directly using Lingao's taxable acreage here is definitely inaccurate. I found a figure for Yancheng County in Huai'an Prefecture: Liao Supplies in the 3rd year of Tianqi were 23,000 taels. Yancheng wasn't an economically developed area, but certainly much better than Lingao.*
-*3. The tax of three dou five sheng is the average level in the Ming dynasty. Checking Qiongzhou Prefecture's levy standards, there are eighteen grades. Three dou five sheng is the most common. So I used this figure.*
 
-(End of Chapter)
+*1. The Liao Supplies surcharge in the 2nd year of Chongzhen was 9 li, though it varied slightly by region. Not explored in detail here.*
+
+*2. I couldn't find the exact Liao Supplies surcharge for Lingao. Calculating directly using Lingao's taxable acreage here is necessarily imprecise. I found a figure for Yancheng County in Huai'an Prefecture: Liao Supplies in the 3rd year of Tianqi were 23,000 taels. Yancheng wasn't an economically developed area, but certainly more prosperous than Lingao.*
+
+*3. The tax of three dou five sheng represents the average Ming dynasty level. Checking Qiongzhou Prefecture's levy standards, there are eighteen grades. Three dou five sheng is most common, so I used this figure.*
+

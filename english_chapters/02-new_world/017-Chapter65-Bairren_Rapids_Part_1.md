@@ -86,7 +86,7 @@ Guo Yi hurried forward and honestly described everything that had happened on th
 
 "Do not mind—fake police credentials are everywhere now." She plopped down on a rock, gesturing at the stone beside her. Her staring husband quickly sat down.
 
-*Damn—so obedient.* Before Guo Yi could despise the husband, Mu Min began talking about internal system matters. Both were in the same system—different departments, but enough common ground. Through conversation, he learned this lady was impressive: three years in Public Order, five in Criminal Investigation, one in Political Affairs—a capable all-rounder. As they talked, Guo Yi noticed her wariness diminishing. He suddenly realized: *This woman is vetting my "background"*—even with 100% authentic credentials, only an insider could know system internals.
+*Damn—so obedient.* Before Guo Yi could despise the husband, Mu Min began talking about internal system matters. Both were in the same system—different departments, but enough common ground. Through conversation, he learned this lady was impressive: three years in Public Order, five in Criminal Investigation, one in Political Affairs—a capable all-rounder. As they talked, Guo Yi noticed her wariness diminishing. He suddenly realized: *This woman is vetting my "background"*—even with one hundred percent authentic credentials, only an insider could know system internals.
 
 *Formidable!* Guo Yi secretly felt ashamed. The gap between people—how could it be so big?
 

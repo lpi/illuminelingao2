@@ -1,6 +1,6 @@
 # Chapter 378 - Farmland Construction
 
-Behind the levee lay the first-phase 1,500 *mu* of high-yield fields. After consultation, Yan Quezhi, Wu Nanhai, Fa Shilu and others decided the high-yield, stable-yield farmland must meet these standards: drought resistance achieving "90 days without rain, still harvest guaranteed"; flood drainage meeting "once-in-ten-years" (by 20th century standards), "five-day downpour causes no disaster"; riverside flood levees withstanding "once-in-twenty-years" flood levels plus Force 8 winds without breach or overflow; land improvement achieving topsoil depth of five *cun* for paddies, one *chi* for dry fields—greatly enhancing water and nutrient retention.
+Behind the levee lay the first-phase 1,500 *mu* of high-yield fields. After consultation, Yan Quezhi, Wu Nanhai, Fa Shilu and others decided the high-yield, stable-yield farmland must meet these standards: drought resistance achieving "90 days without rain, still harvest guaranteed"; flood drainage meeting "once-in-ten-years" standards (by 20th century measures), ensuring "five-day downpours cause no disaster"; riverside flood levees withstanding "once-in-twenty-years" flood levels plus Force 8 winds without breach or overflow; land improvement achieving topsoil depth of five *cun* for paddies, one *chi* for dry fields—greatly enhancing water and nutrient retention.
 
 Fields would be laid out in grids, with large grid areas for agricultural machinery operation. Drainage and irrigation would use separate channels. Ditches, channels, roads, and tree lines would be coordinated. Particularly the trees—planned establishment of farmland windbreaks to reduce annual summer-autumn typhoon damage. Field roads must accommodate mechanized farm vehicles.
 
@@ -14,15 +14,15 @@ After vegetation clearing, four bulldozers arrived, commanded by Armored Corps C
 
 Step one: use bulldozers for comprehensive land leveling across the development area. Remove residual vegetation, relocate large stones—the latter requiring special care to avoid damaging blades and tracks. Each bulldozer was accompanied by an Army squad in dispersed formation, scouting ahead.
 
-"Feels like infantry-tank coordination." Yan Quezhi climbed onto the cab to tell Bai Yu.
+"Feels like infantry-tank coordination," Yan Quezhi observed, climbing onto the cab to tell Bai Yu.
 
-"If bulldozer fuel and spare parts were unlimited, I'd drive straight to Beijing! Why bother with this land-clearing and road-building?" Bai Yu kept eyes forward, hands constantly pushing and pulling control levers. Occasionally he barked into the radio, ordering other tractors to "watch spacing, maintain coordination."
+"If bulldozer fuel and spare parts were unlimited, I'd drive straight to Beijing! Why bother with this land-clearing and road-building?" Bai Yu kept his eyes forward, hands constantly pushing and pulling control levers. Occasionally he barked into the radio, ordering other tractors to "watch spacing, maintain coordination."
 
 "A tractor armored division?" Yan Quezhi immediately pictured it: dust rolling along dirt roads, an endless column of Dongfanghong tractors crushing the earth, tractors packed with infantry dubbed "tractor grenadiers" in bearskin caps carrying Minié rifles...
 
 How strange it felt! Yan Quezhi shook his head.
 
-"Nothing impossible about it." Bai Yu was confident. "Mountains and waterways won't work, but on the North China Plain, absolutely devastating. Look at this—" He pointed at several protruding metal fixtures outside the cab—clearly added later, not original equipment.
+"Nothing impossible about it," Bai Yu said confidently. "Mountains and waterways won't work, but on the North China Plain, absolutely devastating. Look at this—" He pointed at several protruding metal fixtures outside the cab—clearly added later, not original equipment.
 
 "What are these?" Yan Quezhi shouted.
 
@@ -30,7 +30,7 @@ How strange it felt! Yan Quezhi shook his head.
 
 "Getting hit directly by such a big iron ball—wouldn't the driver inside bleed from nose and mouth?"
 
-"The enemy has to hit first." Bai Yu seemed unconcerned. "Besides, we won't just sit and take it. Look up there."
+"The enemy has to hit first," Bai Yu seemed unconcerned. "Besides, we won't just sit and take it. Look up there."
 
 The tractor's roof now sported something like a car sunroof, with rail-like features around it. The skylight was open, bringing cool air to the sweltering cab.
 
@@ -38,11 +38,13 @@ The tractor's roof now sported something like a car sunroof, with rail-like feat
 
 "Very creative—"
 
-"That's nothing. I studied weapons design and engineering." This former armored corps officer was quite pleased. "There's also a flamethrower tractor conversion kit. Sadly fuel's short—Executive Committee won't let me test it."
+"That's nothing. I studied weapons design and engineering." This former armored corps officer was quite pleased. "There's also a flamethrower tractor conversion kit. Sadly fuel's short—the Executive Committee won't let me test it."
 
 He went on about several weapons he'd designed, all centered on tractors, trucks, motorcycles, even bicycles. His latest design: mounting four "handheld shotgun cannons" on a Type 28 reinforced agricultural bicycle—using the bike's fast mobility for close-range fire, disrupting enemy formations. Another conversion added a rifle-firing mount on bicycles so riders could shoot while cycling—also compatible with crossbows.
 
 Generally, Bai Yu's designs were quite "modern." He sneered at the "retro faction" weapon designers led by Lin Shenhe.
+
+---
 
 After clearing, waste soil excavated from various construction sites was trucked in. Yan Quezhi planned to elevate Meitai Yang as much as possible—even 10-20 centimeters would help—while disposing of construction waste soil.
 
@@ -60,6 +62,8 @@ These naturally-contoured hill reservoirs could regulate water supply, beautify 
 
 Besides dam construction, Wang Luobin selected several locally-adapted commercial tree species from the farm nursery to reforest hills around the reservoirs. Experimentally, he built a small hydroelectric station at one larger reservoir. But generating capacity was too small and only intermittent—not very useful, purely for research purposes.
 
+---
+
 Agricultural water infrastructure construction was proceeding vigorously. Wu Nanhai went to the Executive Committee to find Ma Qianzhu about the fertilizer problem.
 
 Because Meitai Yang's chronic waterlogging had caused very poor soil fertility. Lime application could only neutralize acidity, not increase soil fertility or trace elements.
@@ -70,7 +74,7 @@ Applying only farmyard manure and green manure seemed like large quantities but 
 
 "Nitrogen's easy—have the Executive Committee get us lignite or peat. But phosphorus and potassium fertilizer—where do I find those?" Wu Nanhai muttered. "Not enough bone meal either."
 
-"Both lignite and peat work." Fa Shilu said. "Natural compound fertilizer containing nitrogen, phosphorus, and potassium—much more efficient. But for soil improvement, quantities won't be enough. Best to have dedicated phosphorus and potassium fertilizers."
+"Both lignite and peat work," Fa Shilu said. "Natural compound fertilizer containing nitrogen, phosphorus, and potassium—much more efficient. But for soil improvement, quantities won't be enough. Best to have dedicated phosphorus and potassium fertilizers."
 
 Potassium fertilizer could be met through potassium chloride byproduct from the Salt Refinery's bittern processing. Combined with potassium in peat and lignite, roughly sufficient.
 

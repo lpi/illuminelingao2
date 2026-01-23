@@ -1,12 +1,12 @@
 # Chapter 210 - Food Circulation Vouchers
 
-The next agenda item was the question of currency reform. Thanks to the modern internet, this group of modern people from all walks of life almost all had some smattering of economics—and these smatterings came from different economic theories. In the dormitory quarters, future economic structure and monetary policy were the fourth most popular topic among the idle transmigrators, after official ranks, succession, and women. Like the old days on forums, many people debated with various half-baked theories about things they didn't really understand, mouths foaming, until fists were about to fly.
+The next agenda item was the question of currency reform. Thanks to the modern internet, this group of modern people from all walks of life almost all had some smattering of economics—and these smatterings came from different economic theories. In the dormitory quarters, future economic structure and monetary policy were the fourth most popular topic among the idle transmigrators, after official ranks, succession, and women. Like the old days on forums, many people debated with various half-baked theories about things they did not really understand, mouths foaming, until fists were about to fly.
 
 But for Cheng Dong, all these theories were meaningless to the Finance and Banking Committee. Anyone who had studied a bit of history knew that ancient Chinese society was fundamentally a natural economy: self-sufficiency was the norm, and commodity exchange was poorly developed.
 
-However, it wasn't until they came to Linggao in this timeline, actually met the local people, and witnessed the society and commercial environment of the period that the transmigrators realized just how "naturally economic" an era they had entered. Especially in a backward, purely agricultural county like Linggao. Though the late Ming was supposedly the era of capitalist sprouts in China, in Linggao there was no capitalism to speak of—even the simplest commodity exchange was pitifully rare.
+However, it was not until they came to Linggao in this timeline, actually met the local people, and witnessed the society and commercial environment of the period that the transmigrators realized just how "naturally economic" an era they had entered. Especially in a backward, purely agricultural county like Linggao. Though the late Ming was supposedly the era of capitalist sprouts in China, in Linggao there was no capitalism to speak of—even the simplest commodity exchange was pitifully rare.
 
-The entire county had only fourteen markets, and these fourteen markets were so small they couldn't compare to the farmers' markets in the residential neighborhoods some of them had known in their previous time. Some markets didn't even have buildings—just a patch of mud and a few thatched sheds. In what little market circulation existed, barter predominated. Whether peasants paying rent to landlords or landowners paying grain taxes to the yamen, everything was done in grain. Most peasants and landowners lived self-sufficient lives, with only a very few commodities purchased at market. Even these transactions were often conducted through barter—homespun cloth, mountain specialties, and the like. Even the yamen paid its runners and minor clerks in grain and cloth.
+The entire county had only fourteen markets, and these fourteen markets were so small they could not compare to the farmers' markets in the residential neighborhoods some of them had known in their previous time. Some markets did not even have buildings—just a patch of mud and a few thatched sheds. In what little market circulation existed, barter predominated. Whether peasants paying rent to landlords or landowners paying grain taxes to the yamen, everything was done in grain. Most peasants and landowners lived self-sufficient lives, with only a very few commodities purchased at market. Even these transactions were often conducted through barter—homespun cloth, mountain specialties, and the like. Even the yamen paid its runners and minor clerks in grain and cloth.
 
 Consequently, in this locality, never mind the "banknotes" seen in movies and television—even silver was rarely seen. The limited currency in circulation consisted mainly of various copper coins. According to Treasury statistics, the coins circulating most commonly on the market included Tang, Song, and Ming dynasty coins. Even Han dynasty wuzhu coins from long ago were in circulation.
 
@@ -26,7 +26,7 @@ Second, considering the notorious reputation of the Ming dynasty's precious pape
 
 From this perspective, a silver dollar system seemed suitable.
 
-However, others raised different views, arguing that the timing for silver dollars wasn't ripe.
+However, others raised different views, arguing that the timing for silver dollars was not ripe.
 
 Linggao's economy was underdeveloped, with small market scale and limited resource production. Even half-treasury-tael silver dollars would have too much purchasing power. After all, the price of rice in Linggao was only about one tael and three mace, meaning half a treasury tael could buy approximately thirty-six kilograms of rice. For small payments, this was still too large. The transmigrator regime would inevitably have to continue issuing subsidiary coinage.
 
@@ -40,7 +40,7 @@ The form used "yuan" as the unit, to avoid confusion with old units like "wen," 
 
 As long as the transmigrator regime held sufficient grain, this paper currency's creditworthiness could be guaranteed—and the transmigrators had full confidence in their agriculture.
 
-In the long run, the grain standard was merely a stopgap measure. But given current capabilities, this system was relatively safe and acceptable—after all, the transmigrators had already established considerable credibility locally. Promoting this "grain ticket" shouldn't face too much difficulty.
+In the long run, the grain standard was merely a stopgap measure. But given current capabilities, this system was relatively safe and acceptable—after all, the transmigrators had already established considerable credibility locally. Promoting this "grain ticket" should not face too much difficulty.
 
 "I'm still skeptical whether paper money can actually be used," said Li Haiping from the Navy at the discussion meeting, finding the whole thing dubious. "Don't tell me about Song and Yuan dynasty paper currency—that was government-issued. No matter how debased a government becomes, it still has some credit before it completely collapses. What do we have that would make the common people trust us?"
 
@@ -66,6 +66,6 @@ Cheng Dong explained that the reason for not exchanging was that Ming dynasty cu
 
 Someone asked: "I want to know how much ability we actually have to manipulate Linggao's rice market. Since rice is the backing, won't fluctuations in rice prices cause the currency's actual purchasing power to rise and fall?"
 
-"That's indeed a problem," Cheng Dong admitted. Grain wasn't like precious metals such as gold and silver, whose value was relatively stable. Grain was affected by many external factors. "But I believe that across all of Linggao, the transmigrator government is fully capable of controlling rice prices."
+"That's indeed a problem," Cheng Dong admitted. Grain was not like precious metals such as gold and silver, whose value was relatively stable. Grain was affected by many external factors. "But I believe that across all of Linggao, the transmigrator government is fully capable of controlling rice prices."
 
-(End of Chapter)
+**(End of Chapter)**

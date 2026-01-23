@@ -1,91 +1,93 @@
 # Chapter 343 - Acids and Bases (II)
 
-Raw lacquer harvested from lacquer trees was unafraid of almost any corrosion, whether water, strong acid, or strong alkali. Lingao didn't produce lacquer trees, but Guangdong had plenty. The Industrial and Energy Committee imported some; Xu Yingjie mixed a large vat of it to a suitable consistency, then soaked straw ropes in it to replace asbestos ropes and water glass. However, he also paid a price—although he wore full-body protection, his hands still got "lacquer allergy." His fingers were all swollen, and he had to rest for several days in a row.
+Raw lacquer harvested from lacquer trees was impervious to nearly any form of corrosion—water, strong acids, strong alkalis. Lingao itself didn't produce lacquer trees, but Guangdong had them in abundance. The Industrial and Energy Committee had imported a supply, and Xu Yingjie had mixed a large vat of lacquer to an ideal consistency, then soaked straw ropes in it as a substitute for asbestos rope and water glass.
 
-Ji Situi casually picked a jar and tried the threaded lid. "This jar is not bad. To maintain long-term production, the demand for chemicals like sulfuric acid, nitric acid, and hydrochloric acid... will be huge in the future." Ji Situi said, "I have another list, for chemical equipment. Hurry up and organize people to make them."
+He paid a price for his efforts. Despite wearing full-body protection, his hands succumbed to lacquer allergy. His fingers swelled painfully, and he was forced to rest for several days.
 
-"Make more?" Xiao Bailang complained incessantly. "I haven't had a good sleep for three or four days. The ceramic factory only has a dozen people including coolies. This work is too much!" He took the list, which listed over thirty large and small water vats of different sizes, and some other ceramic ware.
+Ji Situi picked up one of the jars and tested the threaded lid. "These will do nicely. To sustain long-term production, we're going to need enormous quantities of sulfuric acid, nitric acid, hydrochloric acid..." He produced a sheet of paper. "Here's another list—chemical equipment. Please organize your people to start production as quickly as possible."
 
-"Making so many water vats! Are you making pickles?"
+"More?" Xiao Bailang groaned. "I haven't slept properly in three or four days. The ceramic factory only has a dozen workers, laborers included. This is too much!" He scanned the list, which specified over thirty water vats of varying sizes, along with assorted other ceramic ware.
 
-"It does have something to do with salt," Ji Situi said. "They are all for engineering use. Hurry up, please."
+"This many vats! Are you making pickles?"
 
-"Then give some overtime pay. The ceramic artisans here have been working day and night recently."
+"It does involve salt, in a manner of speaking," Ji Situi said. "But they're for industrial processes. Please hurry."
 
-"Ask Wu De for overtime pay; where would I get circulation coupons." Ji Situi wasn't interested in the welfare of the natives. "Didn't they work day and night firing kilns in Fujian too? Did kiln owners give them overtime pay?"
+"Then give us overtime pay. The potters here have been working day and night."
 
-"You capitalist are too black-hearted..."
+"Take that up with Wu De—where would I find circulation coupons?" Ji Situi had no interest in labor welfare discussions. "Didn't they work day and night firing kilns back in Fujian? Did their masters give them overtime pay?"
 
-Ji Situi interrupted his complaining. "I need this urgently; please hurry up."
+"You capitalist black-heart—"
 
-After the jars were transported back, Ji Situi built a straw shed next to the sulfuric acid plant and slept for a while. At night, after 12 hours were up, he instructed people to rake out all the firewood with iron rods, immediately organized people to load a layer of crushed stones about the size of ore into the furnace, and then loaded wood into the four hearths to light the fire.
+Ji Situi cut him off. "This is urgent. Please hurry."
 
-Seeing the fire was strong, Ji Situi instructed workers to add top-quality Hong Gai anthracite; the firepower immediately became fierce, and flames shot up from the entire sulfuric acid plant.
+Once the jars were transported back, Ji Situi built a straw shelter beside the sulfuric acid plant and caught a few hours of sleep. That night, after twelve hours had passed, he directed his workers to rake out all the firewood with iron rods, then immediately loaded a layer of crushed stones—roughly ore-sized—into the furnace. Wood was loaded into the four hearths and lit.
 
-"Alright, except for people watching the furnace and adding fire, everyone else go rest. Come back to start work the morning after tomorrow!"
+When the fire was burning strongly, Ji Situi ordered the addition of top-grade Hong Gai anthracite. The flames intensified immediately; tongues of fire shot up across the entire installation.
 
-Seeing he didn't need to do much for now, Ji Situi rushed to the next construction site—the Caustic Soda Workshop.
+"Good. Everyone except the furnace watch can rest. Report back the morning after tomorrow!"
 
-The Synthetic Ammonia and Combined Alkali Plant could only produce soda ash. Caustic soda, used widely in industry, was relatively easier to produce, and raw materials were simple too—salt electrolysis. Not only could caustic soda be obtained, but many useful by-products could also be produced, including another important chemical raw material: hydrochloric acid. Saving the installation of a dedicated hydrochloric acid production line was the benefit of the chemical combined manufacturing method.
+Seeing there was nothing further requiring his immediate attention, Ji Situi hurried to the next construction site—the Caustic Soda Workshop.
 
-Even the Ministry of Light Industry had been eyeing the caustic soda issue—this concerned two fist products of the Ministry of Light Industry: white paper and soap. Ji Situi decided to settle it all at once this time.
+The Synthetic Ammonia and Combined Alkali Plant could only produce soda ash. Caustic soda, which had far broader industrial applications, was comparatively easier to manufacture. The raw material was simple: electrolyzed salt. The process yielded not only caustic soda but also valuable byproducts, including another essential chemical: hydrochloric acid. Producing hydrochloric acid as a byproduct eliminated the need for a dedicated production line—one of the key advantages of integrated chemical manufacturing.
 
-"Herding one sheep is herding, herding two is also herding; let the able do more work." Ji Situi thought while walking towards the caustic soda workshop. Just then, a train delivering building materials to the caustic soda plant passed by. He hurriedly jogged a few steps and climbed on, planting his butt on a pile of reed mats.
+Even the Ministry of Light Industry had taken an interest in caustic soda production. Two of their flagship products—white paper and soap—depended on it. Ji Situi decided to address everything in one go.
 
-"Who is it! Do you have a death wish climbing the train!" Someone on the traction tractor in front roared.
+*Herding one sheep is herding; herding two is also herding. Let the capable do more.* With this thought, Ji Situi set off for the caustic soda workshop. A train carrying building materials to the site happened to be passing; he jogged a few steps to catch up, climbed aboard, and settled himself on a pile of reed mats.
 
-"You count as a train?"
+"Who's there? Do you have a death wish climbing onto the train?" someone on the traction tractor shouted.
 
-"If not a train, what is it?" While talking, this train had already arrived at the construction site of the caustic soda workshop, which was under construction.
+"You call this a train?"
 
-Ji Situi got off the car and saw the person wearing a safety helmet turned out to be Bing Feng—it seemed this caustic soda plant workshop would definitely be a steel frame structure.
+"What else would it be?" Before they could continue, the flatbed cars arrived at the caustic soda workshop construction site.
 
-Sure enough, this caustic soda workshop was crude enough, but compared to the sulfuric acid workshop currently exposed to the open air, at least it had a cover—the electrolysis workshop involved electricity issues and couldn't be exposed to wind and rain. The entire building was a frame structure of brick columns and wooden beams. Except for a few key areas with walls, other places were all open-style, conducive to ventilation. The precious and fragile transformer had a separate transformer room with glass windows for easy observation.
+Ji Situi hopped off and saw the man in the safety helmet was Bing Feng—which confirmed that this workshop would feature a steel frame structure.
 
-The total area of the workshop was about five hundred square meters. The ground was paved with bricks. Chang Kaishen was leading Ling Tian and several indigenous apprentices to install a transformer: converting alternating current sent from Bopu Power Station into direct current, so it could be used for electrolysis.
+Indeed, the caustic soda workshop was crude, but at least it had a roof—unlike the sulfuric acid workshop, still exposed to open sky. Electrolysis involved electrical equipment that couldn't be left in wind and rain. The building was a frame structure of brick columns and wooden beams, mostly open-sided for ventilation, with walls only in critical areas. The precious, fragile transformer had its own separate room, fitted with glass windows for easy observation.
 
-Ten electrolytic cells had been installed in place. Ji Situi originally considered purchasing ready-made ones, but the weight made him give up this idea. Finally, only core components were purchased from the another timeline. The tank body was manufactured locally. Square tanks formed by weaving steel bars and pouring cement and sand, each tank 1.4 meters long, 0.8 meters wide, and 0.4 meters high. The inside of the tank was lined with ceramic tiles to avoid corrosion. An iron wire mesh was inlaid flat inside the tank 0.1 meters from the bottom. Each tank was also equipped with a wooden lid coated with wood tar pitch for corrosion protection.
+The workshop covered roughly five hundred square meters. The floor was brick-paved. Chang Kaishen and Ling Tian were leading several indigenous apprentices through a transformer installation: converting the alternating current supplied by Bopu Power Station into the direct current required for electrolysis.
 
-The heavy reinforced concrete electrolytic cells were supported by a hardwood board, suspended on two brick-built bottom supports as an insulation measure.
+Ten electrolytic cells had already been positioned. Ji Situi had originally considered purchasing ready-made units, but their weight made that impractical. In the end, only core components were purchased from the modern timeline; the tank bodies were manufactured locally. Each cell was a square tank—1.4 meters long, 0.8 meters wide, 0.4 meters high—formed by weaving steel bars and pouring cement and sand. The interior was lined with ceramic tiles to prevent corrosion. An iron wire mesh lay flat inside each tank, positioned ten centimeters from the bottom. Each cell was fitted with a wooden lid coated in wood tar pitch for corrosion protection.
 
-Ji Situi checked the quality of each tank for leaks and insecure tile lining. He found that linoleum coated with wood tar pitch was also laid between the supports as an extra insulation measure. Being careful was never wrong—400 Amperes of current, this was no joke.
+The heavy reinforced concrete cells were supported by hardwood boards, suspended on two brick-built supports for insulation.
 
-"Can this be safe?" Ji Situi looked at this makeshift appearance. He really felt uneasy.
+Ji Situi inspected each cell for leaks and loose tiles. He noticed that linoleum coated with wood tar pitch had also been laid between the supports as an additional insulation measure. When working with four-hundred-ampere currents, one could never be too careful.
 
-"Roughly safe, can't say absolutely." Ling Tian said, "Using electricity still relies on being careful yourself. Pay attention to wearing safety gear and doing safety education well."
+"Is this safe?" Ji Situi studied the makeshift appearance with unease.
 
-"The pressure is so heavy." Ji Situi already foresaw that the chemical plant wouldn't be peaceful in the future. "Indigenous methods kill people."
+"Reasonably so—no absolute guarantees," Ling Tian admitted. "Working with electricity ultimately comes down to being careful. Safety gear and safety training are essential."
 
-He walked around again. Outside the house, a chlorine absorption tower assembled from water vats had been set up. The chlorine gas produced during electrolysis would react with slaked lime in this tower to obtain bleaching powder. It was a cheap, effective, and widely usable disinfectant.
+"A heavy burden." Ji Situi could already envision the chemical plant's troubled future. "Indigenous methods get people killed."
 
-Returning from the caustic soda workshop and resting for a while, the furnace warming work was finally almost over. At this time, everyone who had any relation to chemical engineering came.
+He made a circuit of the grounds. Outside the building, a chlorine absorption tower assembled from water vats stood ready. Chlorine gas produced during electrolysis would react with slaked lime in this tower to produce bleaching powder—a cheap, effective, widely useful disinfectant.
 
-"We are going to go without sleep for two or three days continuously," Ji Situi said, calling people to drag out several boxes from the shed. "These are protective suits; distribute them first, don't lose them! Now you can't find a single mask or pair of goggles anywhere!"
+After returning from the caustic soda workshop for a brief rest, the furnace warming was finally complete. By then, everyone with any connection to chemical engineering had gathered.
 
-Ji Situi brought a lot of various safety gear used in chemical engineering—these things couldn't be replenished anywhere for a while. He brought enough consumables for almost ten years.
+"We're looking at two or three days without sleep," Ji Situi announced, gesturing for workers to drag out several boxes from the shelter. "Protective equipment—distribute it first. Don't lose any of it! Masks and goggles are irreplaceable right now."
 
-Everyone put on full sets of protective suits, wore safety glasses and chemical masks. Then work started under Ji Situi's command.
+Ji Situi had brought substantial quantities of chemical safety gear—enough consumables for nearly a decade. These items couldn't be replaced locally for the foreseeable future.
 
-Ji Situi first closed the blocking plate of the chimney, then pulled open the drawing plate of the converter. Turned on the blower. He constantly measured with thermometers at various inlets. When the inlet temperature of the First Converter reached 450℃, Ji Situi instructed people to open the top cover of the converter and load quartz sand and catalyst. Then covered the top lid well and smeared acid-proof mud—with soda ash industry, water glass was no longer a rare item, and porcelain powder was even less so, so Ji Situi had no intention of saving at all, sealing both top lids tightly without stinginess.
+Everyone donned full protective suits, safety glasses, and chemical masks. Work commenced under Ji Situi's direction.
 
-Seeing him seal the top lids, Xu Yingjie led people to start adding crushed ore into the furnace. 20 kilograms per furnace. Then closed the furnace door. At the same time, added 98% concentrated sulfuric acid collected from the Planning Committee warehouse into the absorption tower as a starter to begin acid circulation.
+First, Ji Situi closed the chimney's blocking plate and opened the converter's drawing plate. He activated the blower and began measuring temperatures at various inlets. When the First Converter inlet reached 450°C, he ordered the top cover opened and catalyst loaded—quartz sand and iron catalyst. The lid was secured and sealed with acid-resistant mud. With soda ash production looming, water glass was no longer scarce, and porcelain powder was even more abundant. Ji Situi applied the sealant liberally, ensuring both lids were perfectly sealed.
 
-Ji Situi tested the sulfur dioxide concentration at the outlet of the First Converter; at this time it was already close to 70%. He knew sulfuric acid production was basically successful. After acid circulation started in the absorption tower, 1.5 liters of acid were showering every ten seconds. The tower temperature had risen to 60℃, so he instructed people to turn on water cooling.
+Once sealing was complete, Xu Yingjie led teams to begin feeding crushed ore into the furnace—twenty kilograms per chamber. Furnace doors were secured. Simultaneously, 98% concentrated sulfuric acid from the Planning Committee warehouse was loaded into the absorption tower as a starter, beginning acid circulation.
 
-In this way, ore was added to one furnace every hour, four furnaces circulating feeding and slag removal, and the indigenous sulfuric acid plant started running like this. As long as stable feeding and firing were maintained, a workshop of this scale could operate 345 days a year, producing 98% concentrated sulfuric acid.
+Ji Situi tested sulfur dioxide concentration at the First Converter outlet. The reading was already approaching seventy percent—a confirmation that sulfuric acid production was essentially successful. After acid circulation commenced in the absorption tower, 1.5 liters of acid were showering every ten seconds. Tower temperature had risen to 60°C. Ji Situi ordered water cooling activated.
 
-Ji Situi and others didn't have time to cheer for this great moment, but busy working while explaining production key points to indigenous workers—on-site observation was more intuitive than pure classroom teaching, adapting to the cultural level of indigenous workers.
+From there, the process became routine: ore was loaded into one furnace every hour. The four chambers rotated through feeding and slag removal cycles, and the indigenous sulfuric acid plant was running. As long as stable feeding and firing were maintained, a workshop of this scale could operate 345 days per year, producing 98% concentrated sulfuric acid.
 
-Of course, once running, unless maintenance or other urgent matters occurred, the furnace wouldn't be stopped—after all, warming the furnace took a long time and a lot of fuel, which was economically very uneconomical.
+Ji Situi and his team had no time to celebrate this milestone. They worked continually while explaining key production points to the indigenous workers—hands-on observation was far more effective than classroom instruction, especially given the workers' educational backgrounds.
 
-However, Ji Situi only had 20 tons of pyrite in total; running at full speed, it would be consumed in less than a month. When pyrite would be transported again depended on how fast shipbuilding was—but by that time, sulfuric acid from coal coking should be mass-produced. Sulfuric acid production here wouldn't be too important. Ji Situi was already considering that if sulfuric acid from the coal chemical plant was enough, he could use the equipment here to make ammonium sulfate from pyrite as fertilizer.
+Once running, the furnace would not be stopped except for maintenance or emergencies. Rewarming took too long and consumed too much fuel to be economical.
 
-The first batch of 98% concentrated sulfuric acid was produced; they were carefully loaded into custom-made jars and sealed well. Then the outside of the lid was sealed with plaster paste. An earthenware cap was covered on top—to prevent rain.
+Nevertheless, Ji Situi had only twenty tons of pyrite in total. At full production, it would be consumed in under a month. When the next supply would arrive depended on shipbuilding progress—but by then, coal coking should be producing sulfuric acid in quantity. This facility's output would become less critical. Ji Situi was already considering alternative uses: if the coal chemical plant's sulfuric acid output proved sufficient, this equipment could be repurposed to produce ammonium sulfate fertilizer from pyrite.
 
-"Does this method work?" Xu Yingjie was used to seeing modern industrial packaging; now suddenly seeing earthenware jars looking identical to yellow wine jars, he found it inconceivable and had a very unreliable feeling.
+The first batch of 98% concentrated sulfuric acid was carefully loaded into the custom-made jars and sealed. Plaster paste was applied over the lids, and earthenware caps were placed on top to protect against rain.
 
-"Sulfuric acid has been produced for two hundred years. Rest assured. They were all packaged like this in the past," Ji Situi said.
+"Will this method hold up?" Xu Yingjie, accustomed to modern industrial packaging, found the sight of earthenware jars—identical to wine vessels—deeply incongruous. It seemed profoundly unreliable.
 
-After pasting labels of "98% Concentrated Sulfuric Acid," production date, and production location on the jars, they were carefully loaded into wooden crates specially made by the woodware factory, one or two per crate. Straw ropes were wound around jars inside the crate for shock absorption cushioning. Then they were loaded onto the train and transported to the chemical hazardous goods warehouse.
+"Sulfuric acid has been produced for two hundred years. Trust me—it was all packaged this way in the past," Ji Situi assured him.
 
-After the initial victory of sulfuric acid, Ji Situi led indigenous workers to produce while teaching for more than ten days, until the indigenous workers basically mastered the production technology and process, and memorized all safety production regulations.
+Labels were affixed to each jar: "98% Concentrated Sulfuric Acid," along with production date and location. The jars were carefully placed in wooden crates, one or two per crate, custom-made by the woodware factory. Straw rope was wound around each jar for shock absorption. Then the crates were loaded onto the train and transported to the chemical hazardous goods warehouse.
+
+After this initial victory, Ji Situi led the indigenous workers through more than ten days of production-and-instruction, continuing until the workers had essentially mastered the technology and memorized all safety regulations.

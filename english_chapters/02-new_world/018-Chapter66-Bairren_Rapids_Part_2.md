@@ -66,7 +66,7 @@ Their expedition went smoothly. Along the way, Old Master Ming recognized more f
 
 *Such impossibly low probability—no, something that should not even be possible—why did it happen to me? Why not win twenty million in the lottery instead?!* Guo Yi felt like a thousand arrows through his heart.
 
-After standing dumbstruck for a while, there was nothing to discuss. Get back to Bopu—fast. At least there was a group of 21st-century modern people there, and more importantly, they were all Chinese. Xue Ziliang, deeply shaken, muttered in English the whole way back, nonstop.
+After standing dumbstruck for a while, there was nothing to discuss. Get back to Bopu—fast. At least there was a group of twenty-first-century modern people there, and more importantly, they were all Chinese. Xue Ziliang, deeply shaken, muttered in English the whole way back, nonstop.
 
 ---
 

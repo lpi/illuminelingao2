@@ -28,7 +28,7 @@ Upon receiving orders, Beiwei immediately drafted three well-rested personnel fr
 
 "Your mission is not combat. Focus on monitoring. Do not kill unless necessary."
 
-Given this mission, the squad wore camouflage. Besides rifles, they brought a scoped Saiga-308, infrared binoculars, and a 2-watt radio.
+Given this mission, the squad wore camouflage. Besides rifles, they brought a scoped Saiga-308, infrared binoculars, and a two-watt radio.
 
 Night cross-country might challenge ordinary people, but not soldiers—especially those equipped with low-light night-vision goggles. The slight difficulty was that they had no map of this timespace's Lingao. Judging position during movement was hard. So Beiwei decided to follow the river: according to the current timespace's geographic data, following the river upstream twelve kilometers reached the county seat, with landmarks like Bairren Rapids as reference. Combined with compass and map reading, even without a guide, they would not get lost.
 

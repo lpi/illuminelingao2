@@ -1,125 +1,125 @@
 # Chapter 349 - Products of the Pharmaceutical Factory
 
-While Huang Dashan was trial-producing Sweet Potato Kvass, Shi Niaoren was washing bottles at the pharmaceutical factory—glass bottles applied for from the Planning Committee for a long time had finally arrived. Most were produced by the glass factory, and some were recycled and sterilized. Thousands of bottles of various sizes were placed in rattan baskets, piling up the entire courtyard of the pharmaceutical factory. Bottle specifications ranged from 500ml for physiological saline to small medicine vials.
+While Huang Dashan was trial-producing Sweet Potato Kvass, Shi Niaoren was washing bottles at the pharmaceutical factory. Glass bottles—long-requested from the Planning Committee—had finally arrived. Most were produced by the glass factory; some were recycled and sterilized. Thousands of bottles in various sizes were arranged in rattan baskets, filling the pharmaceutical factory's entire courtyard. Specifications ranged from 500ml containers for physiological saline down to small medicine vials.
 
-So the entire pharmaceutical factory staff washed bottles for a good half day. The washed bottles were pushed into the steam room for high-temperature steam sterilization—this was also the most effective large-scale sterilization method in the pharmaceutical factory at present.
+The entire staff spent half a day washing bottles. The cleaned containers were then wheeled into the steam room for high-temperature steam sterilization—currently the most effective large-scale sterilization method available to the pharmaceutical factory.
 
-With these bottles, the pharmaceutical factory could officially produce finished products—otherwise, there was no place to put the products. Zhao Yanmei set up an all-glass equipment distillation room; besides distilling medical distilled water, it was also used to make Chinese herbal medicine extracts for injection use.
+With these bottles, the factory could finally produce finished products. Previously, there had been nowhere to put the output. Zhao Yanmei had established an all-glass distillation room, used for producing medical distilled water and extracting Chinese herbal medicine concentrates for injectable use.
 
-Shi Niaoren gazed at this not-too-complex but bulky distillation facility, marveling that the glass factory's level was advancing by leaps and bounds. Such complex shapes, numerous thick and thin pipes, multi-way connectors, and valves. Alcohol lamps for heating flickered with blue flames; evaporating dishes contained many yellow and white plant flowers; liquid bubbled slightly; steam passed through pipes, went through the serpentine glass tube condenser, and finally fell drop by drop into the collection bottle.
+Shi Niaoren studied this somewhat ungainly but not overly complex distillation apparatus, marveling at the glass factory's advancing capabilities. The array of intricate shapes, thick and thin pipes, multi-way connectors, and valves was impressive. Alcohol lamps flickered with blue flames beneath evaporating dishes containing yellow and white plant flowers. Liquid bubbled gently; steam traveled through pipes, passed through serpentine glass condenser tubes, and finally dripped into collection bottles.
 
-The whole scene looked very strange, neither sci-fi nor fantasy, but like a mad scientist's underground laboratory in some low-budget movie.
+The whole scene had an otherworldly quality—neither science fiction nor fantasy, but rather like a mad scientist's underground laboratory from some low-budget film.
 
-"What is being done here?"
+"What's being produced here?"
 
-"Distilling and extracting Honeysuckle, medicine for heatstroke prevention, specifically treating summer heat colds. Liu San said this could serve as a base liquid to make Shuanghuanglian preparations." Hu Yicheng was in charge of this distillation room today, happy not to have to go to the underground strain room for continuous culture.
+"Distillation and extraction of honeysuckle—medicine for heatstroke prevention, specifically for summer heat colds." Hu Yicheng was on duty in the distillation room today, grateful to escape the basement strain cultivation facility. "Liu San says this can serve as a base liquid for Shuanghuanglian preparations."
 
-"Is this safe or not?" He muttered. Chinese medicine injection ingredients were unclear with many impurities; injecting normally into the human body like this, once an allergic reaction occurred, even resuscitation couldn't be done.
+"Is this safe?" Shi Niaoren murmured. Chinese medicine injections contained unclear ingredient profiles and numerous impurities. Injecting such mixtures into humans invited allergic reactions—and if one occurred, resuscitation might not be possible.
 
-Hu Yicheng saw his thoughts. "Oral concentrated liquid. Drinking it causes diarrhea at most; it definitely won't kill anyone."
+Hu Yicheng anticipated his concern. "This is for oral concentrated liquid. At worst, drinking it causes diarrhea. It definitely won't kill anyone."
 
-"I just feel it's risky, so I worry." Shi Niaoren sighed.
+"The risk still troubles me." Shi Niaoren sighed.
 
-"After distilling this batch, we prepare to make Bupleurum Injection. The difficulty is somewhat smaller. Liu San dried a lot of it in the yard. Very effective for fever and colds."
+"After this batch, we're preparing to make Bupleurum Injection. The difficulty is somewhat lower. Liu San has dried a substantial supply in the courtyard. It's quite effective for fever and colds."
 
-"But this set of equipment is a bit low in efficiency."
+"Your efficiency with this equipment seems limited."
 
-Liu San walked out from inside. "Already ordered another set. Being made in the glass factory. This time heating plans to use steam heating. Much more efficient than burning alcohol lamps here, and temperature is easy to control too. Minister, come sit in my room."
+Liu San emerged from inside. "We've already ordered another set. The glass factory is fabricating it now. This time we're planning steam heating—far more efficient than burning alcohol lamps, and easier temperature control." He gestured toward his workspace. "Minister, please come sit."
 
-Saying this, he led him into his Traditional Chinese Medicine pharmaceutical workshop.
+He led Shi Niaoren into his Traditional Chinese Medicine pharmaceutical workshop.
 
-This workshop was actually a large room of about a hundred square meters with a high ceiling. Earthenware pots on a row of stoves were bubbling and boiling Chinese medicine. On the operating table, hay cutters for cutting medicine, mortars of various materials, sixteen-tael small scales for Chinese medicine... various equipment Shi Niaoren had seen or hadn't seen were piled everywhere. Some were brought by Liu San himself, and some were custom-made here.
+This workshop occupied a large room of approximately one hundred square meters with high ceilings. A row of earthenware pots on stoves bubbled with Chinese medicine. The operating table was crowded with equipment—hay cutters for slicing herbs, mortars of various materials, sixteen-tael scales for Chinese medicine—items both familiar and unfamiliar to Shi Niaoren. Some Liu San had brought himself; others had been custom-made locally.
 
-Shi Niaoren sniffed the medicinal smell filling the air and found a stool to sit down.
+Shi Niaoren inhaled the medicinal aroma filling the air and found a stool.
 
-"These are some medicines I compounded myself." Liu San enthusiastically showed him a row of paper boxes and small porcelain bottles on the table.
+"These are medicines I've compounded personally." Liu San enthusiastically presented a row of paper boxes and small porcelain bottles arranged on the table.
 
-"This is Hemostatic Powder," Liu San picked up a small porcelain bottle, "Made from Japanese Thistle (*Cirsium japonicum*). Function is cooling blood and stopping bleeding: used for bleeding syndromes caused by blood heat reckless movement, such as hematemesis, epistaxis, metrorrhagia, hematuria, etc.; dispersing stasis, detoxifying and subsiding swelling: used for heat toxin carbuncle and swelling, oral administration or external application..."
+"This is Hemostatic Powder." He picked up a small porcelain bottle. "Made from Japanese Thistle—*Cirsium japonicum*. Functions include cooling blood and stopping bleeding: for bleeding syndromes caused by blood heat running recklessly—hematemesis, epistaxis, metrorrhagia, hematuria, and similar conditions. Also disperses stasis, detoxifies, and reduces swelling: for heat-toxin carbuncles, administered orally or applied externally..."
 
-"Alright, alright, stop reciting your Chinese medicine books." Shi Niaoren looked skeptically. He knew Chinese medicine had a characteristic wherein almost every medicinal material could list a huge pile of "effective against so-and-so symptoms", but actually very few could truly play a key role. "Does it work?"
+"Enough—stop reciting your Chinese medicine textbooks." Shi Niaoren regarded the bottle skeptically. He knew Chinese medicine had a characteristic whereby virtually every medicinal material could claim effectiveness against an enormous list of symptoms—yet genuinely critical applications were rarely so broad. "Does it actually work?"
 
-"Of course it works. Field bleeding, immediately find Japanese Thistle water decoction for oral administration, effective immediately. Crushing for external application also stops bleeding."
+"Absolutely. For field bleeding, immediately find Japanese Thistle, prepare a water decoction for oral administration—effective instantly. Crushing for external application also stops bleeding."
 
-Shi Niaoren thought there probably was some component inside that could reduce blood clotting time; it could be organized for research—future military combat demand for hemostatic drugs wouldn't be small.
+Shi Niaoren considered that some component must be reducing blood clotting time. This warranted organized research—future military operations would create substantial demand for hemostatic drugs.
 
-"Also: Tincture soaked out with ethanol can lower blood pressure and inhibit human tuberculosis bacilli."
+"Additionally: tincture extracted with ethanol can lower blood pressure and inhibit human tuberculosis bacilli."
 
-"Sounds not bad."
+"Promising."
 
-"This is Gastritis Pill, treating stomach pain, acid reflux, gastric ulcer, and duodenal ulcer, etc. Main ingredient is Cuttlebone. I got it from the seafood processing factory. Can also make hemostatic medicine; treating knife wounds is very effective."
+"This is Gastritis Pill—for stomach pain, acid reflux, gastric ulcers, duodenal ulcers, and similar conditions. The primary ingredient is Cuttlebone, obtained from the seafood processing factory. It can also be made into hemostatic medicine; very effective for knife wounds."
 
-"This is Pig Bile Pill." Liu San said, "It treats many things, but I know Dean, you aren't interested in these. However, there is one use you will definitely think is useful."
+"This is Pig Bile Pill." Liu San continued. "It treats many things, but I know the Dean isn't interested in comprehensive lists. However, there's one use you'll definitely appreciate."
 
-"Oh? What."
+"Oh? What's that?"
 
-"Stopping cough." Liu San said, "Pig bile powder's cough-stopping effect has passed pharmacological tests. Can also treat night blindness."
+"Cough suppression." Liu San said. "Pig bile powder's cough-suppressing effect has passed pharmacological testing. It also treats night blindness."
 
-"Opium Tincture." Liu San took out another bottle with a danger mark. "Can be used for suppressing cough, stopping diarrhea, and relieving pain."
+"Opium Tincture." Liu San produced another bottle bearing a danger mark. "Can be used for cough suppression, diarrhea control, and pain relief."
 
-"How about addictiveness?"
+"What about addiction potential?"
 
-Liu San spread his hands. "Hard to say; needs animal experiments. But I studied with Dean Zhao and Little Hu, and also flipped through medical books; made completely according to pharmacopoeia requirements. Harmfulness won't be too big; just control usage."
+Liu San spread his hands. "Difficult to say without animal testing. But I studied with Dean Zhao and Little Hu, consulted medical references, and prepared it according to pharmacopoeia specifications. Harmfulness should be minimal as long as usage is controlled."
 
-"Don't make it in the form of a panacea." Shi Niaoren instructed, "Divide into three varieties. Diarrhea and pain relief medicine are best made into tablets—easy to take; cough medicine made into syrup. Regardless of which medicine, while ensuring efficacy, minimize opium content to avoid producing addiction."
+"Don't produce it as a general panacea," Shi Niaoren instructed. "Divide it into three products. Diarrhea and pain relief medicines should be tablets—convenient for administration. Cough medicine should be syrup. Regardless of formulation, minimize opium content while maintaining efficacy—to prevent addiction."
 
-Although opium addiction wasn't as severe as modern hard drugs, withdrawal was also very troublesome.
+Opium addiction wasn't as severe as modern hard drugs, but withdrawal remained extremely troublesome.
 
-"Okay, we'll modify the formula." Liu San casually noted down his request. Then took out a small wooden box, opened it mysteriously: "Dr. Shi, taste it?"
+"Understood. We'll modify the formula." Liu San noted the request casually, then produced a small wooden box and opened it with theatrical mystery. "Dr. Shi, care to sample?"
 
-Shi Niaoren looked; inside the box was a kind of semi-withered leaf, rolled into balls.
+Shi Niaoren looked inside. The box contained a dried, semi-withered leaf rolled into balls.
 
-"Betel nut?" He picked one up and stuffed it into his mouth. Extremely bitter.
+"Betel nut?" He picked one up and placed it in his mouth. Extremely bitter.
 
-"It's Coca leaf."
+"Coca leaf."
 
-"Mmh..." Shi Niaoren almost vomited on the spot.
+"Mmh..." Shi Niaoren nearly spat it out.
 
-"Rest assured, won't get addicted." Liu San laughed mischievously. "Or at most as addictive as betel nut."
+"Relax—it won't cause addiction." Liu San grinned mischievously. "Or at worst, no more addictive than betel nut."
 
-Shi Niaoren of course knew that in South America, chewing Coca leaves could count as a "national habit". Indians used it to refresh their minds, eliminate fatigue, and increase strength; also used to ward off cold, cure diseases, relieve discomfort caused by stomach cramps, rheumatism, headaches, etc. It was a mass pastime item.
+Shi Niaoren knew perfectly well that in South America, chewing coca leaves was practically a national pastime. Indigenous people used it to sharpen their minds, eliminate fatigue, increase stamina; also to ward off cold, treat illness, and relieve discomfort from stomach cramps, rheumatism, headaches, and other ailments. It was a mass consumer product.
 
-"This is leaf picked from Coca trees in the farm. Trees are too small; only picked a very small bit. Everyone got a little share." Liu San said, "After yield goes up later, we can pick in large quantities."
+"These leaves were picked from coca trees at the farm. The trees are still small—we only got a tiny amount. Everyone received a small share." Liu San said. "Once yields increase, we can harvest in quantity."
 
-"What's the meaning of wanting this thing?"
+"What's the purpose of pursuing this?"
 
-"Coca leaves can also make medicine." Liu San said, "Using this to replace cigarettes as a pastime for the army and laborers, wouldn't it be better."
+"Coca leaves are also medicinal." Liu San replied. "Using these instead of cigarettes as a diversion for soldiers and laborers—wouldn't that be preferable?"
 
-"This—" Shi Niaoren thought this was too awesome. However, Coca leaves indeed had a strong spirit-invigorating effect, truly useful for the army and laborers. "Is it a bit too much." After all, Coca leaf was also a soft drug. Although addictiveness wasn't strong.
+"That's—" Shi Niaoren found the proposal rather extreme. Still, coca leaves did offer genuine stimulant effects and had real utility for military and labor applications. "Perhaps excessive?" Coca leaf was, after all, a mild drug—even if not strongly addictive.
 
-"Amphetamine was prepared by Yankees for soldiers in World War III back then; they were much bigger believers in 'universal values' than us. Coca leaf isn't as toxic as Amphetamine." Saying this he took out a bottle from behind again. Poured Shi Niaoren a full cup of dark liquid. "Try drinking."
+"The Americans supplied Amphetamine to their soldiers during World War II, and they were much bigger believers in 'universal values' than us. Coca leaf is far less toxic than Amphetamine." Liu San produced another bottle and poured Shi Niaoren a full cup of dark liquid. "Try this."
 
-"What is this?" Shi Niaoren suddenly became alert.
+"What is it?" Shi Niaoren's guard went up instantly.
 
 "Cola."
 
-"Cola? This thing is rare now." Shi Niaoren looked softly but suspiciously, took a sip, and indeed it was the taste of Cola. A bit sweeter, just without gas—like Cola that had been left for a long time and went flat.
+"Cola? That's rare nowadays." Shi Niaoren examined the liquid suspiciously, took a sip—and indeed, it tasted like Cola. Somewhat sweeter, lacking carbonation—like Cola that had been sitting too long and gone flat.
 
-"You mixed it yourselves?"
+"You made this yourselves?"
 
-"Right, put in Coca leaf distillate inside." Seeing Shi Niaoren about to flare up, Liu San hurriedly added a sentence, "Very little. Almost negligible. As long as we have baking soda, we can put Cola into production."
+"Correct. Contains coca leaf distillate." Seeing Shi Niaoren's alarm, Liu San hastened to add: "In very small amounts. Almost negligible. Once we have baking soda, we can put Cola into production."
 
-Really strange: Shi Niaoren thought to himself, soda water didn't succeed, but Kvass and Cola both came out. He decided not to tangle further, lest there be some strange things wanting him to be a guinea pig. Asked:
+Strange indeed: Shi Niaoren reflected that soda water hadn't materialized, yet Kvass and Cola had both appeared. He decided not to pursue further inquiry, lest something else strange require him to serve as guinea pig.
 
-"How is the extraction of Willow Bark I mentioned last time going?"
+"How is the willow bark extraction I mentioned previously progressing?"
 
-Willow bark has been a commonly used antipyretic and analgesic in Europe and Asia since ancient times; the effective component within is salicylic acid. Modern drug Aspirin was born based on the analysis of this drug.
+Willow bark had been a commonly used antipyretic and analgesic in both Europe and Asia since ancient times. Its active component was salicylic acid—the foundation from which the modern drug Aspirin was developed.
 
-Aspirin was chemically synthesized; for the transmigrators' chemical level, it was still too early. But extracting effective components from willow bark wasn't hard to do and could also play a certain role.
+Aspirin was chemically synthesized, still beyond the transmigrators' current capabilities. But extracting active compounds from willow bark wasn't particularly difficult and could deliver useful results.
 
-"Doing it, extracted some. But there aren't many willow trees here," Liu San said.
+"We're working on it. Some has been extracted. But willow trees are scarce here," Liu San reported.
 
-"We can ask Wu Nanhai to plant more by the river. Decorates the scenery and serves as raw material." Shi Niaoren knew the effective medicinal components contained in willow bark and willow leaves were very few, and the effect extracted was also limited. But Aspirin was a very useful analgesic and antipyretic, also having anticoagulant and anti-rheumatic functions. At the current stage, it was the best panacea.
+"We should ask Wu Nanhai to plant more along the rivers. They'll beautify the scenery while serving as raw material." Shi Niaoren knew the effective medicinal compounds in willow bark and leaves were present in very low concentrations; extracted products would have limited potency. But Aspirin was an extraordinarily useful analgesic and antipyretic with anticoagulant and anti-rheumatic properties. At the current stage, it was the closest thing to a panacea.
 
-Liu San said, "I have a request, hope Minister speaks to the Executive Committee."
+Liu San said, "I have a request. I hope the Minister will raise it with the Executive Committee."
 
-"Oh, what request do you have?"
+"Oh? What request?"
 
-"Acquire the herbal medicine shop in the county town."
+"Acquire the herbal medicine shop in the county seat."
 
-"Runshitang?" Shi Niaoren knew Liu San often went to this pharmacy to buy medicine and process medicinal materials, cooperating happily with the other party. "Aren't you cooperating quite well."
+"Runshitang?" Shi Niaoren knew Liu San frequently visited this pharmacy to purchase medicine and process materials. Their cooperation seemed harmonious. "Aren't you working well together?"
 
-"Shopkeeper Yang's thinking is okay; trusting them to do things counts as reliable too. But I am not the owner; many things are inconvenient to decide myself. Wasting a few professionals inside in vain." He poured himself a cup of "Cola". "Besides, the foundation of the herbal medicine shop is too thin, can't even go to the medicine market, and precious medicinal materials are never stocked. As a partner, it's too weak. Need to give it blood transfusion. I originally wanted to inject capital myself, but I have no silver..."
+"Shopkeeper Yang's thinking is sound, and he's reliable enough for routine matters. But since I'm not the owner, many decisions aren't mine to make. Several skilled professionals there are being underutilized." He poured himself a cup of "Cola." "Besides, the pharmacy's foundation is too thin—they can't even participate in medicine markets, and precious materials are never stocked. As a partner, they're too weak. They need an infusion of resources. I originally wanted to invest personally, but I have no silver..."
 
-"Let the Executive Committee acquire it, then you go be the shopkeeper?"
+"You want the Executive Committee to acquire it, then install yourself as shopkeeper?"
 
-"I don't want to be the shopkeeper—being the owner guiding them how to do it is enough. Shopkeeper Yang inside doesn't have much insight, but the person loves to learn. Is a malleable talent."
+"I don't want to be the shopkeeper—being the owner who guides their operations is enough. Shopkeeper Yang inside lacks broader vision, but he's eager to learn. A trainable talent."

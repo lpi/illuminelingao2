@@ -1,10 +1,10 @@
 # Chapter 470 - Autumn Levy (Part 21)
 
-The assembly chorused "Aye!" Sun Ruiwu and Wu Ya felt their hearts sink—this was shaping up to be a major prosecution. Where exactly the Australians' arrows were aimed, the two of them still didn't know. But that the county's landscape would be dramatically transformed after this case was beyond doubt.
+The assembly chorused "Aye!" in unison. Sun Ruiwu and Wu Ya felt their hearts sink—this was shaping up to be a major prosecution. Where exactly the Australians aimed their arrows, neither could say. But that the county's landscape would be dramatically transformed after this case seemed beyond doubt.
 
-With the city gates and yamen under control, Wu De had already moved his command post to Zhang Youfu's manor for closer direction of operations. Zhang Youfu's entire family, including his employees, had been gathered up and sent to the East Gate Market, where they would be hosted with good food and drink for a few days.
+With the city gates and yamen under control, Wu De had already relocated his command post to Zhang Youfu's manor to direct operations from closer range. Zhang Youfu's entire household, including his employees, had been rounded up and sent to the East Gate Market, where they would be "hosted" with good food and drink for a few days.
 
-"Get on the phone to the Planning Committee immediately. Have them dispatch two hundred sets of Ming-era clothing to Zhang Youfu's manor. Make it fast." Wu De was issuing orders at a large wooden table.
+"Get on the phone to the Planning Committee immediately. Have them dispatch two hundred sets of Ming-era clothing to Zhang Youfu's manor. Make it fast." Wu De issued orders from behind a large wooden table.
 
 "Have the interpreters we pulled from the Citizens' School arrived?"
 
@@ -18,21 +18,21 @@ At the county yamen, Zhou Dongtian wasted no time exercising his new authority. 
 
 "This is Master Zhou," Jail Warden Sun said tersely by way of introduction. "He has come specifically to assist in handling the knife-and-arrow intimidation case. His instructions are as good as mine—and as good as Magistrate Wu's wishes. Do you both understand?"
 
-The two men had no idea what this was all about but could only respond, "Yes."
+The two men had no idea what this was about but could only respond, "Yes."
 
 "Good. Take extra men and search the city for the knife-throwers and arrow-shooters. You have one day. And make sure you actually catch the culprits—don't just grab random people to take the fall." Zhou Dongtian smiled as he tossed down the order tablet.
 
-Fu He withdrew, nodding obsequiously. The task wouldn't be difficult. Lingao's county seat was tiny. His constables, along with their unofficial helpers, could turn the place inside out in half a day. Besides, the sort of person who would personally carry out such a task was typically a street ruffian or lowlife. He knew exactly how many such characters the county had.
+Fu He withdrew, nodding obsequiously. The task would not be difficult. Lingao's county seat was tiny. His constables, along with their unofficial helpers, could turn the place inside out in half a day. Besides, the sort of person who would personally carry out such a task was typically a street ruffian or lowlife. He knew exactly how many such characters the county harbored.
 
-The trouble was that this matter involved Chen Minggang. If he actually captured someone and brought them before the court, these petty scoundrels would confess everything the moment the magistrate glared at them—no torture needed. Then his grievance with Old Eight would be set.
+The trouble was that this matter involved Chen Minggang. If he actually captured someone and brought them before the court, these petty scoundrels would confess everything the moment the magistrate glared at them—no torture needed. Then his grievance with Old Eight would be cemented.
 
-He decided he'd better go talk to Chen Minggang first. If Chen Minggang was cooperative and willing to pay up, he'd naturally help smooth things over. If not, it would have to be handled officially.
+He decided he had better go talk to Chen Minggang first. If Chen Minggang was cooperative and willing to pay up, he would naturally help smooth things over. If not, it would have to be handled officially.
 
-Chen Minggang was at that moment in his residence conferring with his subordinates. He had learned of this development the day before and been thoroughly startled. He hadn't ordered anyone to do this! Yet once it happened, everyone in the county would assume it was his doing!
+Chen Minggang was at that moment in his residence conferring with his subordinates. He had learned of this development the day before and been thoroughly startled. He had not ordered anyone to do this! Yet once it happened, everyone in the county would assume it was his doing!
 
-What exactly was going on? Chen Minggang pondered but couldn't figure it out. But he immediately understood: he had now become a thorn in the gentry's eyes. Could Huang Binkun have arranged this?
+What exactly was going on? Chen Minggang pondered but could not figure it out. But he understood one thing immediately: he had now become a thorn in the gentry's eyes. Could Huang Binkun have arranged this?
 
-He sent people out to gather information, but none of them returned. Just as he was growing frantic, someone reported: Fu He had arrived.
+He sent people out to gather information, but none returned. Just as he was growing frantic, someone reported: Fu He had arrived.
 
 Fu He was the Constable Squad chief. They had little contact ordinarily, so his sudden visit clearly meant something. Chen Minggang quickly said, "Show him in!"
 
@@ -40,7 +40,7 @@ Fu He entered and wasted no time on pleasantries. He simply stared at Chen Mingg
 
 Fu He sneered. "Old Eight! You've been too bold! Did you really think this Lingao County belongs to the Chen family?"
 
-"The knife-and-arrow business wasn't my doing," Chen Minggang denied flatly.
+"The knife-and-arrow business was not my doing," Chen Minggang denied flatly.
 
 "Whether it was you or not—you can explain that to the officials when you're summoned to court."
 
@@ -58,7 +58,7 @@ This sum satisfied Fu He. Taking the silver, he said with a smile, "Old Eight, y
 
 ---
 
-Watching Fu He's departing figure, Chen Minggang sneered. Huang Binkun did it? If you actually produce that testimony, you're the one looking for trouble! Huang Binkun was no ordinary person—the second son of Huang Shoutong, the greatest local strongman in Lingao, and a proper county school student. To finger him as the mastermind without the Punishment Clerk and the secretary all colluding together would be impossible.
+Watching Fu He's departing figure, Chen Minggang sneered. *Huang Binkun did it? If you actually produce that testimony, you're the one looking for trouble!* Huang Binkun was no ordinary person—the second son of Huang Shoutong, the greatest local strongman in Lingao, and a proper county school student. To finger him as the mastermind without the Punishment Clerk and the secretary all colluding together would be impossible.
 
 Fu He took the silver and returned to the teahouse opposite the county yamen where he usually worked cases. He summoned three of the county's riffraff, promised each two taels of silver, and designated them as the knife-throwing and arrow-shooting "culprits."
 
@@ -96,15 +96,15 @@ With everything arranged, he left You Guotuan in charge at the yamen and went ou
 
 "There was really no need to tame them. Just arrest them all. Didn't we prepare replacements?"
 
-"That was my original thought too. Rely on violent methods to reshuffle the deck—simple and clean." Wu De said. "But since we still need to fly the Ming flag for a while longer, we have to maintain Lingao County yamen as 'Ming on the outside, Australian on the inside.' The routine administrative affairs also have to be handled, like how should grain levies be processed? What procedures apply? How should documents from higher yamen be answered? Only the clerks understand these Ming administrative procedures. So it's necessary to retain some of them."
+"That was my original thought too. Rely on violent methods to reshuffle the deck—simple and clean." Wu De said. "But since we still need to fly the Ming flag for a while longer, we must maintain Lingao County yamen as 'Ming on the outside, Australian on the inside.' The routine administrative affairs also have to be handled—how should grain levies be processed? What procedures apply? How should documents from higher yamen be answered? Only the clerks understand these Ming administrative procedures. So it's necessary to retain some of them."
 
 "If we do that, won't they just use that to hold us hostage again?"
 
-"Heh heh, Ming officials were easily held hostage by them because they were part of the same system. Officials wanted peaceful careers and personal profit. We're only borrowing this skin temporarily—we don't want to be Ming officials." Wu De said. "They can deceive us once, but they won't have a second chance. Once the first person makes that mistake, I believe no one else will repeat it."
+"Heh heh, Ming officials were easily held hostage because they were part of the same system. Officials wanted peaceful careers and personal profit. We're only borrowing this skin temporarily—we don't want to be Ming officials." Wu De said. "They can deceive us once, but they won't have a second chance. Once the first person makes that mistake, I believe no one else will repeat it."
 
-He continued, "And even if they're all the most stubborn villains, they still have wives and children. I believe that to reach the point of disregarding one's wife and children, one must have an extraordinarily strong faith."
+He continued, "And even if they're all the most stubborn villains, they still have wives and children. I believe that to reach the point of disregarding one's wife and children, one must have extraordinarily strong faith."
 
-The clerks' faith was in making money. That kind of faith generally couldn't withstand testing.
+The clerks' faith was in making money. That kind of faith generally could not withstand testing.
 
 After discussing the next day's interrogation procedures and key points with Zhou Dongtian, Wu De contacted Yang He to confirm whether the "study class" barracks prepared specifically for the yamen clerks were ready for immediate use. Then he inquired about the arrival status of the army personnel being dispatched.
 

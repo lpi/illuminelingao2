@@ -1,111 +1,111 @@
 # Chapter 381 - Suspect Elements
 
-"Why capture them alive? Just kill them and be done with it—avoid future trouble." Lin Chuanqing said.
+"Why bother capturing them alive? Kill them and be done with it—spare ourselves future complications." Lin Chuanqing's tone was matter-of-fact.
 
-Gao Xiaosong said: "We need to question them properly—how they came, how many arrived."
+"We need proper interrogation first," Gao Xiaosong countered. "Find out how they arrived, how many there are."
 
-*Zhenhai* went to full alert status, beginning a carpet search of Dongsha Island. The other transmigrators aboard found this strange, but Lin Chuanqing only said they'd found signs of pirate activity; for safety they needed a thorough search.
+*Zhenhai* went to full alert. A carpet search of Dongsha Island commenced immediately. The other transmigrators aboard found this peculiar, but Lin Chuanqing offered only a terse explanation—signs of pirate activity had been discovered, necessitating a thorough sweep for safety.
 
-The search naturally produced no results. They even found fishermen's graves overgrown with brush, but no living persons—and no fresh signs of human activity.
+The search yielded nothing. They found fishermen's graves choked with undergrowth, but no living souls and no fresh traces of human presence.
 
-Though filled with worry, lingering longer wouldn't yield new discoveries. After completing the guano mining mission, they returned. The unloaded guano immediately sparked a scramble. Under the agriculture-priority policy, most went to the Agricultural Committee. The Chemistry Department got the remainder.
+Though anxiety gnawed at them, lingering longer would produce no new discoveries. After completing the guano mining operation, they set course for home. The unloaded guano sparked an immediate scramble among departments. Under the prevailing agriculture-priority policy, the lion's share went to the Agricultural Committee, with the Chemistry Department claiming the remainder.
 
-After hearing their report about a possible modern vessel at Dongsha Island, the Executive Committee convened a secret hearing with core and security department heads, briefing them on the situation.
+Upon hearing the report of a possible modern vessel at Dongsha Island, the Executive Committee convened a secret hearing. Only core leadership and security department heads attended the briefing.
 
-The news shocked everyone. If other wormholes existed and others had also arrived in this time-space, it would pose a major threat to the transmigrator collective. Setting aside everything else, the mystique that made them seem all-powerful would be exposed by such a person. If they'd already pledged allegiance to some local faction, using their modern technology and knowledge in service—the consequences would be unthinkable.
+The news sent a ripple of alarm through the room. If other wormholes existed—if others from their time had also crossed into this era—the implications for the transmigrator collective were grave. Setting aside everything else, the mystique that made them appear omnipotent to the locals would shatter the moment such a person was exposed. And if these newcomers had already pledged allegiance to some native faction, placing their modern knowledge and technology in service to a rival power... the consequences were unthinkable.
 
-"You're certain it's an American fishing vessel?"
+"You're certain it was an American fishing vessel?"
 
-"I didn't say that." Lin Chuanqing said. "I only said: the iron framework above water is very similar to American ocean fishing vessel tripod masts I've seen—almost identical."
+"I said nothing of the sort." Lin Chuanqing's voice was measured. "I said the iron framework visible above the waterline bore a striking resemblance to the tripod masts I've seen on American ocean fishing vessels. Almost identical, in fact."
 
-"Americans?" Everyone was somewhat alarmed. Could Xue Ziliang and Salina have other companions?
+"Americans?" A current of unease passed through the assembly. Could Xue Ziliang and Salina have had unknown companions?
 
-Ma Qianzhu said: "I suggest immediately detaining these two Americans."
+Ma Qianzhu spoke first: "I recommend immediate detention of those two Americans."
 
-"Such panic seems excessive." Ran Yao objected. "The Security Bureau has conducted multiple reviews. Only those two ATF agents came to China to investigate the North American branch—and they entered through airport customs. There's no reason they'd use a fishing boat."
+"That seems rather excessive." Ran Yao's objection was calm but firm. "The Security Bureau has conducted multiple reviews. Only those two ATF agents came to China to investigate the North American branch—and they entered through airport customs with proper documentation. There's no logical reason they would have used a fishing boat."
 
 "Could it be another ship from the North American branch?"
 
-"Obviously impossible." Ran Yao said. "No one from North America mentioned such a thing. A ship sinking at Dongsha would be major news—impossible not to mention."
+"Obviously impossible," Ran Yao said. "No one from North America ever mentioned such a thing. A ship sinking at Dongsha would have been major news—something people would talk about."
 
-"Something might have happened en route." Ma Qianzhu said meaningfully. "Americans, hmph—the North American branch. Back then, wasn't Shi Niaoren a self-nominated volunteer..."
+"Something might have happened en route." Ma Qianzhu's voice carried an edge. "Americans... the North American branch. Let's not forget—back then, wasn't Shi Niaoren a self-nominated volunteer..."
 
-This comment carried ominous undertones.
+The implication hung heavy in the air.
 
-"Such suspicion is pointless." Wu De said. "If we could cross the wormhole, perhaps others did too. Why must it connect to our own people?"
+"Such suspicion is pointless," Wu De interjected. "If we could cross the wormhole, perhaps others did too. Why must it necessarily connect to our own people?"
 
-Wen Desi said: "Rather than suspecting ourselves first, let's consider the more likely scenario: if people from our same time-space also crossed over, what's our stance?"
+Wen Desi steered the discussion back to pragmatics: "Rather than suspecting ourselves first, let's consider the more likely scenario. If people from our original time-space also crossed over, what should our stance be?"
 
-"If it's just a few people willing to integrate into our collective and follow all our rules, we can consider acceptance." Wu De said.
+"If it's just a few individuals willing to integrate into our collective and abide by our rules, we can consider acceptance," Wu De said.
 
-"Agreed." Wen Desi said. "If these people have already pledged allegiance to some local faction in this time-space, acceptance is out of the question."
+"Agreed." Wen Desi nodded. "But if these people have already pledged allegiance to some local faction, acceptance is out of the question."
 
-What to do if not accepted—though unspoken, everyone understood the implication. No one objected. Compared to indigenous inhabitants, this group feared people from their own time-space even more. Everyone agreed.
+What would happen if acceptance were denied remained unspoken, yet everyone understood the implication. No one raised an objection. Compared to the indigenous inhabitants, other time-travelers posed a far greater threat. On this point, consensus was unanimous.
 
-"Alright, I also agree." Ma Qianzhu said. "But if accepting, we must conduct strict political vetting and maintain long-term controlled usage."
+"Alright, I concur," Ma Qianzhu said. "But if we do accept them, we must implement rigorous political vetting and maintain long-term supervised deployment."
 
-"That said, whether these people even exist is still uncertain." Ran Yao said. "We should thoroughly investigate. Someone should immediately go to Dongsha Island, dive down, and conduct a complete survey of the vessel. We might even obtain useful information."
+"That said, whether these people even exist remains uncertain." Ran Yao brought the discussion back to ground. "We need a thorough investigation. Someone should return to Dongsha Island immediately, dive down, and conduct a complete survey of the wreck. We might recover useful intelligence."
 
-Everyone agreed this news would remain confidential for now. Bai Guoshi, Lin Chuanqing, and Gao Xiaosong were all notified to keep secret. Subsequent matters would be handled entirely by the Political Security Bureau. Ran Yao was immediately authorized to requisition personnel and equipment for an investigation of the suspected Dongsha wreck.
+The assembly agreed to maintain strict confidentiality. Bai Guoshi, Lin Chuanqing, and Gao Xiaosong were all instructed to keep silent. All subsequent matters would be handled exclusively by the Political Security Bureau. Ran Yao received immediate authorization to requisition personnel and equipment for investigating the suspected Dongsha wreck.
 
-After the meeting, Ma Qianzhu kept Ran Yao behind:
+After the meeting adjourned, Ma Qianzhu detained Ran Yao.
 
-"The Political Security Bureau should conduct an internal investigation." Ma Qianzhu deliberated before finally voicing his opinion.
+"The Political Security Bureau should conduct an internal investigation," Ma Qianzhu said, choosing his words with deliberation.
 
-"You suspect the North American branch people?" The so-called North American branch members were the Qian brothers who came by sailboat, plus Zhou Weisen.
+"You suspect the North American branch people?" The so-called North American branch members included the Qian brothers, who had arrived by sailboat, and Zhou Weisen.
 
-"No—also those who came by airplane." Ma Qianzhu said, standing and pacing his office. "We must be on guard. Once we succeed, this parallel time-space will never have an America. To ensure America's founding in this time-space doesn't disappear, perhaps they've long planned to sabotage our operation..."
+"Not just them—the ones who came by airplane as well." Ma Qianzhu rose and began pacing his office. "We must be on our guard. Once we succeed here, this parallel time-space will never produce an America. To ensure America's founding in this timeline doesn't vanish, perhaps they've been planning to sabotage our operation all along..."
 
-Ran Yao was dumbstruck, not knowing what to say. Director Ma's words weren't unreasonable, but the conspiracy theory seemed excessive. Besides, whether America would exist in a parallel time-space—what did that matter to the 21st-century American government?
+Ran Yao stared, momentarily at a loss for words. Director Ma's reasoning wasn't entirely without merit, but the conspiracy theory seemed stretched beyond credibility. Besides, whether America would exist in a parallel time-space—what conceivable concern was that to the 21st-century American government?
 
-Ran Yao said carefully: "I think that possibility is very low." He continued: "Among our entire team, returnees from North America are the most numerous. They willingly abandoned everything, bringing families to follow the transmigrator collective to an unfamiliar time-space. They couldn't possibly intend to sabotage our operation—what good would destroying the collective do them? The American government surely can't open another wormhole to bring them back. If we collapse—they perish too."
+"I think that possibility is extremely remote," Ran Yao said carefully. He continued: "Among our entire group, returnees from North America are the most numerous. They willingly abandoned everything—brought their families across to join us in an unfamiliar time-space. They couldn't possibly intend to sabotage our operation. What would destroying the collective gain them? The American government certainly can't open another wormhole to retrieve them. If we collapse, they perish with us."
 
-Ma Qianzhu silently regarded Ran Yao: "Mm, you have a point. But this matter is significant. We can't be careless about our internal personnel either. Better to conduct a review—see if there are any suspicious people or activities."
+Ma Qianzhu regarded Ran Yao in silence for a long moment. "Mm, you make a fair point. But this matter is too significant to be careless about our internal security. Better to conduct a review—determine if there are any suspicious individuals or activities."
 
 "Internal investigations require written Executive Committee approval."
 
 "I'll raise it at the next meeting."
 
-Ran Yao returned to his office, carefully considering Ma Qianzhu's words. His concerns weren't unreasonable, but no evidence suggested internal traitors in the transmigrator collective. Rashly launching such an investigation, if leaked, would be like poking a tiger's backside.
+Ran Yao returned to his office, turning Ma Qianzhu's words over in his mind. The concerns weren't unreasonable, but no evidence suggested traitors existed within the transmigrator collective. Rashly launching such an investigation, if word leaked, would be like poking a tiger in the hindquarters.
 
-After much thought, he decided to use the investigation as an opportunity: have Zhou Weisen join this mission. There was ample justification—he was the only person in the transmigrator collective with a diving certification. Thoroughly investigating this ship required him.
+After considerable thought, he decided to use the investigation as an opportunity: have Zhou Weisen join the mission. The justification was sound—he was the only person in the transmigrator collective with a diving certification. A thorough investigation of the ship required his expertise.
 
-If that ship truly connected to North American branch people, some clues would surely emerge.
+If that vessel truly connected to North American branch personnel, some clue would surely surface.
 
-Ran Yao called Liu Zheng to immediately draft documents organizing the "Dongsha-Xisha Survey Team." Liu Zheng was puzzled—why was this under Political Security Bureau jurisdiction?
+Ran Yao summoned Liu Zheng to immediately draft documents organizing the "Dongsha-Xisha Survey Team." Liu Zheng was puzzled—why did this fall under Political Security Bureau jurisdiction?
 
-"Honestly, it's just a cover." Ran Yao said. "Handle it through normal mission procedures."
+"Honestly, it's just cover," Ran Yao explained. "Process it through normal mission procedures."
 
 "So do we actually conduct research, or just sail around—"
 
-"Of course. Proper scientific survey. Completely official mission."
+"Research. Proper scientific survey. Completely official mission."
 
 "Organizing such an expedition requires Executive Committee authorization."
 
-"No problem." Ran Yao produced documents. "Mission orders are here."
+"Already taken care of." Ran Yao produced the documents. "Mission orders are right here."
 
-"Alright." Liu Zheng said meaningfully. "You want to designate specific people to go?"
+"Understood." Liu Zheng's tone was knowing. "You want to designate specific personnel?"
 
-"Bai Guoshi from your department, plus Zhou Weisen—he can dive. I know he's not in your department; issue documents for temporary transfer. Should be no problem."
+"Bai Guoshi from your department, plus Zhou Weisen—he can dive. I know he's not in your department; issue documents for a temporary transfer. Should be no problem."
 
-"Fine." Liu Zheng agreed despite his confusion.
+"Fine." Liu Zheng agreed, though puzzlement lingered in his expression.
 
-When Zhou Weisen received notice to immediately pack and prepare for departure, he didn't know he'd become an investigation subject. He was in the pharmaceutical factory's biology lab, concentrating on his biological specialty—also the factory's most technically challenging area: vaccine development.
+When Zhou Weisen received notice to pack immediately for departure, he had no idea he'd become an investigation subject. At that moment, he was in the pharmaceutical factory's biology lab, absorbed in his specialty—also the factory's most technically demanding work: vaccine development.
 
-"They want me to join the Dongsha-Xisha Survey Team?" Zhou Weisen was baffled. "I just started my main job—why send me surveying again?"
+"They want me on the Dongsha-Xisha Survey Team?" Zhou Weisen was bewildered. "I just started my main assignment—why am I being sent on another expedition?"
 
-Being skilled in outdoor activities, familiar with firearms, and experienced in wilderness survival and hunting, he'd been serving as outdoor activities instructor for the Army, Navy, Special Reconnaissance, and Long-Range Reconnaissance teams, also teaching people to dive. Just days ago he'd been transferred to the pharmaceutical factory for biology research. Now suddenly being sent on an expedition perplexed him.
+His outdoor skills—familiarity with firearms, wilderness survival expertise, hunting experience—had made him the default instructor for the Army, Navy, Special Reconnaissance, and Long-Range Reconnaissance units, along with teaching diving. Just days earlier he'd been transferred to the pharmaceutical factory for biology research. This sudden reassignment made no sense.
 
-Perplexed or not, a sailing trip to tropical waters seemed fine—at least temporary escape from this tedious work. And from the insatiable Miss Mendoza. Western women were indeed hard to satisfy.
+Puzzled or not, a sailing trip to tropical waters sounded agreeable enough—at least a temporary escape from this tedious laboratory work. And from the insatiable Miss Mendoza. Western women, he reflected, were decidedly hard to satisfy.
 
-Lin Chuanqing naturally was again assigned as expedition ship captain. This time they used a small 50-ton single-masted lateen vessel also equipped with diesel engine, specifically for marine surveying and short-distance sea transport.
+Lin Chuanqing was naturally assigned again as expedition ship captain. This time they would use a small fifty-ton single-masted lateen vessel equipped with a diesel engine, purpose-built for marine surveying and short-distance coastal transport.
 
-Ran Yao planted one investigator among the indigenous crew and one among the transmigrators. Their task: during the entire investigation, watch for any unusual behavior among expedition members.
+Ran Yao planted one investigator among the indigenous crew and another among the transmigrators. Their orders: observe all expedition members throughout the mission for any unusual behavior.
 
-As the investigation team prepared to set out, Wu De summoned all village liaisons from near Nanbao to Bairren City. He issued orders to deliver lignite and peat within ten days. Each village received quotas from five to twenty tons based on able-bodied men. Every hundred "heavy *jin*" of lignite or peat could offset one "heavy *jin*" of public grain.
+As the investigation team prepared for departure, Wu De summoned all village liaisons from the Nanbao region to Bairren City. He issued orders to deliver lignite and peat within ten days, assigning quotas ranging from five to twenty tons per village based on their able-bodied male population. Every hundred "heavy *jin*" of lignite or peat could offset one "heavy *jin*" of public grain.
 
-The liaisons looked at each other blankly, wondering what bizarre scheme these Australians were hatching now. What use was that black stuff?
+The liaisons exchanged bewildered glances, wondering what peculiar scheme these Australians were hatching now. What possible use could they have for that black stuff?
 
-Mining the black coal was easy enough, but transporting so much to Bairren City was quite troublesome. The road from Nanbao to Bairren was difficult to travel. Normally, people didn't even come to the county town without business—let alone transport so much to East Gate Market, even farther than the county. The liaisons all looked troubled, requesting deadline extensions. Wu De knew the Agricultural Committee urgently needed this fertilizer, but understanding the long, difficult road to Bairren, he agreed to some grace period to spare the people's labor.
+Mining the coal was easy enough, but transporting such quantities to Bairren City posed considerable difficulties. The road from Nanbao to Bairren was notoriously hard to travel. Normally, villagers wouldn't venture to the county town without pressing business—let alone haul heavy loads all the way to East Gate Market, even farther than the county seat itself. The liaisons looked troubled, requesting extensions. Wu De understood the Agricultural Committee's urgent need for fertilizer, but recognizing the long and difficult road to Bairren, he granted additional time to spare the people excessive labor.
 
 (End of Chapter)

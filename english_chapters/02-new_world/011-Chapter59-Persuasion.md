@@ -56,7 +56,7 @@ Dr. Zhong was quite relaxed: "What comes, stays. These are useful talents. We ca
 
 "An ABC. Doesn't identify with you at all."
 
-"Here? Who can he identify with—17th-century English or Dutch? Only we represent advanced civilization. He'll have to accept that whether he wants to or not." Wang Luobin was fairly optimistic.
+"Here? Who can he identify with—seventeenth-century English or Dutch? Only we represent advanced civilization. He'll have to accept that whether he wants to or not." Wang Luobin was fairly optimistic.
 
 "True. Isn't New York still a village right now?"
 
@@ -120,7 +120,7 @@ Xiao Zishan nodded: "Fine then. I suggest we inspect their belongings, keep what
 
 ---
 
-Guo Yi didn't face the torture he'd imagined. He even received some mantou and pickled vegetables. After eating, he was taken to a cabin. On the table sat a stainless-steel pot and some half-empty dishes. Xue Ziliang was wolfing down mantou, slurping congee noisily. This 100kg hulk's eating manner was quite ugly. Salina looked haggard—a day without food had sunken her eyes, her blue eyes listless. She held a half-eaten mantou, seemingly unable to swallow.
+Guo Yi didn't face the torture he'd imagined. He even received some mantou and pickled vegetables. After eating, he was taken to a cabin. On the table sat a stainless-steel pot and some half-empty dishes. Xue Ziliang was wolfing down mantou, slurping congee noisily. This 100-kilogram hulk's eating manner was quite ugly. Salina looked haggard—a day without food had sunken her eyes, her blue eyes listless. She held a half-eaten mantou, seemingly unable to swallow.
 
 Even as an ABC, apparently, she still had a Chinese stomach. The pure Western woman clearly suffered from culture shock.
 

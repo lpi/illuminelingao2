@@ -8,13 +8,13 @@
 
 "There is one." Lin Baiguang was clearly confident.
 
-Ran Yao still felt uncertain—in his view, Lin Baiguang's entire plan carried extreme risks, only someone believing in "protagonist halo" would attempt it.
+Ran Yao still felt uncertain—in his view, Lin Baiguang's entire plan carried extreme risks. Only someone believing in a "protagonist halo" would attempt it.
 
 "I'll act according to circumstances. Enemy work never has a 100% success rate anyway." He held his ground.
 
 "Fine, one last question." Ran Yao said. "If Zhu Cailao demands you reveal the Australians' origins, explain the big iron ship and fast ships' secrets, or similar sensitive questions—how will you answer?"
 
-"According to the *Capture Handbook* of course." This handbook, initiated by Ma Qianzhu, had been revised to its seventh edition under Political Security Bureau oversight, constantly enriching details on the original framework, even incorporating many indigenous rumors about them, making it increasingly credible.
+"According to the *Capture Handbook* of course." This handbook, initiated by Ma Qianzhu, had been revised to its seventh edition, constantly enriching details, even incorporating indigenous rumors to make it increasingly credible.
 
 "What if he doesn't believe you? Or worse—say he decides to torture you—" Ran Yao observed his reaction. "Can you hold out?"
 
@@ -36,13 +36,13 @@ Ran Yao felt he'd said enough to fulfill his duty.
 
 This kid was quite philosophical. But clearly very ambitious.
 
-After Lin Baiguang left, Ran Yao phoned Executive Committee Chairman Wen Desi. He'd barely started reporting Lin Baiguang's plan when Wen Desi interrupted:
+After Lin Baiguang left, Ran Yao phoned Executive Committee Chairman Wen Desi. He'd barely started reporting when Wen Desi interrupted:
 
 "This matter will be directly handled by your Political Security Bureau. No need to report details. I'll handle any coordination needed."
 
 Ran Yao hung up, pondered Wen Desi's words for several minutes, then began drafting the Rong Operation implementation outline.
 
-Shi Shisi heard that Australians wouldn't directly accept the boss's terms, instead sending someone to Nanri Island to negotiate with Zhu Cailao personally. He felt somewhat hesitant but agreed. Ma Qianzhu's judgment was correct—the other side urgently needed aid.
+Shi Shisi heard that Australians wouldn't directly accept the boss's terms, instead sending someone to Nanri Island to negotiate personally. He felt somewhat hesitant but agreed. Ma Qianzhu's judgment was correct—the other side urgently needed aid.
 
 "You want to see Chief Zhu—I won't stop you. But understand: he's been in a bad mood lately. You people really hit him hard last year. You may not get a warm reception." Shi Shisi had built basic friendship with Lin Baiguang these past days.
 
@@ -58,7 +58,7 @@ Promises might be worthless in another time-space, but here, Lin Baiguang believ
 
 Bai Guoshi's expression was grave.
 
-The sampan's passengers said nothing. At low tide they'd already used the sampan to closely examine the mast, finding weld seams and nuts. Except for Lingao, nothing manufactured in this time-space would bear electric welding marks. Zhou Weisen had merely confirmed again.
+The sampan's passengers said nothing. At low tide they'd already examined the mast closely, finding weld seams and nuts. Except for Lingao, nothing manufactured in this time-space would bear electric welding marks. Zhou Weisen had merely confirmed again.
 
 "What kind of ship?"
 
@@ -72,11 +72,9 @@ This suggested the ship's origins were truly unclear.
 
 "The bottom's four or five meters down. The ship's settled on the reef plate, positioned straight. But entering the cabin with snorkeling gear is too dangerous." Zhou Weisen shook his head. "Need scuba diving."
 
-Exploring a sunken ship's interior was quite specialized diving activity. Zhou Weisen was an experienced diver. Though he'd never done wreck diving, he felt confident attempting a small fishing boat at four or five meters depth. But the equipment wasn't cooperating.
+Exploring a sunken ship's interior was specialized diving activity. Zhou Weisen was experienced, but wreck diving required proper equipment. Both he and the Planning Committee warehouse had diving equipment—from simplest snorkeling to common scuba to heavy diving gear—plus compressed air cylinders sufficient for diving use.
 
-Zhou Weisen personally and the Planning Committee warehouse both had diving equipment—from simplest snorkeling to common scuba diving to cumbersome heavy diving gear. Besides Zhou Weisen's own eight air cylinders of various sizes, the warehouse held many large and small compressed air cylinders, sufficient for diving use.
-
-Transmigrators couldn't manufacture oxygen-nitrogen mixed gas, but ordinary compressed air diving could handle depths up to 70 meters. Manufacturing compressed air was within the Industrial Committee's capabilities.
+Transmigrators couldn't manufacture oxygen-nitrogen mixed gas, but ordinary compressed air diving could handle depths up to 70 meters.
 
 Zhou Weisen had just used snorkeling equipment, holding his breath to explore. His underwater time was merely two or three minutes—barely enough to identify the ship type.
 
@@ -84,106 +82,78 @@ Zhou Weisen had just used snorkeling equipment, holding his breath to explore. H
 
 "Sharks are gathering again!" Gao Xiaosong noticed ten-odd sharks patrolling the clear water. "You'll need the shark suit."
 
-Sharks driven off by repellent were slowly returning to cruise the atoll, unconcerned about the sailing ship off Dongsha Island, even beginning to circle around them.
+Sharks driven off by repellent were slowly returning, even beginning to circle around them.
 
-"I told you not to throw garbage in the sea, you idiots!" Lin Chuanqing cursed the indigenous sailors in mixed Hokkien and English.
+"I told you not to throw garbage in the sea!" Lin Chuanqing cursed the indigenous sailors.
 
-"I think we should both go down—safer. Watch each other's backs." Zhou Weisen said. "Sharks aren't a big issue—I checked, no aggressive species here. For safety, we'll release a packet of shark repellent powder."
+"I think we should both go down—safer. Watch each other's backs." Zhou Weisen said. "Sharks aren't a big issue—no aggressive species here. For safety, we'll release shark repellent powder."
 
-"It's fine—just some sharks swimming around."
+They retrieved two sets of scuba equipment from below. Zhou Weisen decided against wearing the chainmail shark suit—the wreck's tight interior spaces could snag and trap him.
 
-Lin Chuanqing said it was fine, but inwardly felt nervous. Sharks always made scalps tingle, especially swimming right beside you.
-
-They went below to the cabin, retrieving two sets of scuba equipment—both Zhou Weisen's personal gear. The Planning Committee warehouse had several sets, but Zhou Weisen disdained them, only taking some air cylinders and two chainmail-like shark suits worn over dive wetsuits. These were quite cumbersome. Zhou Weisen decided against wearing one after much deliberation—the wreck's tight interior spaces could snag and trap him.
-
-Lin Chuanqing wasn't so calm, still donning one. Besides that, he brought the essential ropes and mesh bags for wreck diving—the latter for retrieving items.
+Lin Chuanqing wasn't so calm, donning one. Besides that, he brought essential ropes and mesh bags for wreck diving—the latter for retrieving items.
 
 "If something happens, use this." Zhou Weisen gave Lin Chuanqing a powerful diving speargun—CO2-propelled, effective range 20 meters. "Only use it as last resort."
 
-Finally, each took a diving knife for personal protection. They agreed that Zhou Weisen, the more skilled diver, would enter the cabin while Lin Chuanqing guarded outside.
+Each took a diving knife for personal protection. They agreed Zhou Weisen would enter the cabin while Lin Chuanqing guarded outside.
 
 "Alright, let's go!"
 
-Yellow shark repellent powder thrown into the water gradually dispersed; sharks retreated again.
+Yellow shark repellent powder dispersed in the water; sharks retreated.
 
-Zhou Weisen touched the knife at his waist, adjusted his belt, donned his oxygen mask, opened the valve, and rolled into the water. He adjusted while slowly swimming forward, breathing gradually normalizing.
+Zhou Weisen donned his mask, opened the valve, and rolled into the water. He descended about four or five meters, checking his dive watch—exactly 12:10 PM. He'd brought two 15-liter cylinders, each with independent supply systems. For diving at most 10 meters deep, his backup was 200% redundant. But he didn't dare be careless—wreck diving's danger coefficient was extreme.
 
-He continued descending about four or five meters, only a meter from the reef plate bottom. He checked his dive watch—exactly 12:10 PM. He'd brought two 15-liter cylinders, each with independent supply systems. For diving at most 10 meters deep, his backup was 200% redundant. But he didn't dare be careless—wreck diving's danger coefficient was extreme. Interior spaces were cramped and dim; trapped in a cabin, semi-competent Lin Chuanqing couldn't be counted on for rescue.
+Bottom visibility was good. Sunlight filtered through rippling waves, illuminating the grayish-white seafloor. The mysterious sunken ship sat on the reef plate less than 20 meters away, settled upright like a model ship in an aquarium.
 
-He relaxed his body, extended his legs, rhythmically kicking his fins to adjust his position. Bottom visibility was good—not as clear as famous diving destinations he'd visited, but quite decent.
+He felt a tap on his shoulder—Lin Chuanqing holding the speargun. He gave a thumbs-up—everything OK. They swam forward together.
 
-Sunlight filtered through the surface's rippling waves, illuminating the grayish-white seafloor. The bottom was coral reef plate, branching and forking—Dongsha Island was just the exposed portion of these coral reefs. The mysterious sunken ship sat on the reef plate less than 20 meters away, settled perfectly upright, like a model ship in an aquarium.
+The deep seabed was all coral sand and reef plate. Fish swam around. Zhou Weisen was careful—coral reefs held not just sharks but more terrifying creatures. Moray eels hiding in reef crevices were especially horrifying—these things could grow over 3 meters long.
 
-He suddenly felt a light tap on his shoulder—Lin Chuanqing in his mask, expression unreadable, holding the speargun.
+They crossed the reef plate to the wreck. From underwater, preservation was excellent. Seaweed attached to deck and hull drifted in the current—the ship had clearly been here for a while. Based on attached sediment and shellfish, at least six months. The surrounding reef plate had no scattered items; it looked like someone had opened the sea valves and scuttled it deliberately.
 
-He gave a thumbs-up—everything OK, proceed. The two swam forward side by side.
+At the stern, he noticed the propeller was bent, the rudder partially damaged—looked like it had struck rocks. The white protective paint still looked new. Even quite a few pilothouse windows remained intact.
 
-The rubber wetsuit felt hot and sticky. Oxygen from the cylinder seemed to carry a rubbery smell. Zhou Weisen was familiar with this sensation. He concentrated on maintaining steady pace, swimming evenly toward the coral reef plate and the wreck.
+He used his diving knife to clear away glass from a broken pilothouse window. The cabin had become a marine organism paradise; a startled small octopus jetted past him. Zhou Weisen steadied himself—he didn't know if the ship held victims' remains.
 
-The deep seabed was all coral sand and reef plate, sunlight-reflected, glittering. Occasional patches of seaweed among the sand. Fish swam around the reef plate. Zhou Weisen was very careful—coral reefs held not just sharks but more terrifying fish. Moray eels hiding in reef crevices were especially horrifying—these things could grow over 3 meters long, full of sharp teeth. In his view, far more frightening than ordinary sharks.
+But the pilothouse held nothing. He couldn't find the crucial ship's log, nor any registration documents or port papers.
 
-They crossed the reef plate. Ahead appeared a large coral rock formation, shaped somewhat like a giant plate. The wreck sat at this "plate's" edge. Coral branches ahead grew denser, surrounded by schools of beautiful small fish. Zhou Weisen slowed his movements, signaling with his left hand to pause advance. No shark signs nearby, though hard to say. He cautiously swam a wide circle around the wreck.
+He found only some charts and navigation materials—completely empty-handed otherwise.
 
-From underwater, the ship's preservation was excellent. Main structure completely intact. Seaweed attached to deck and hull drifted in the current—this ship had clearly been here quite a while. Based on attached sediment, shellfish, and seaweed, at least six months. The surrounding reef plate had no scattered items; it didn't look like a storm had sent it down, but rather like someone had opened the sea valves and scuttled it.
+Securing a safety line to the pilothouse, he continued deeper. The ship's interior was neat and clean. No structural damage, no scattered items—evidently no violent impact when sinking.
 
-As he observed, Lin Chuanqing swam over. Zhou Weisen signaled: get closer, circle the ship once more, closely examine its condition.
+He noticed emergency kits near the pilothouse had been removed, while those deeper inside remained intact. He reached the first compartment below deck—door closed. He tried pushing—surprised to find it locked. Every cabin door was locked. How strange—who locks doors when abandoning ship?
 
-At the stern, he noticed the propeller was bent, the rudder partially damaged—looked like it had struck rocks. Overall, the hull showed no damage except some coral-scraping marks on the bottom. The white protective paint on the hull still looked new. Even quite a few pilothouse windows remained intact.
-
-Finally, they returned to the pilothouse, landing on the foredeck. Zhou Weisen signaled Lin Chuanqing—he was entering the ship here. The other nodded, gesturing with the CO2 speargun—at 20 meters, it was sufficient to kill a large shark, though such killing would only attract more sharks.
-
-He carefully used his diving knife to clear away glass from the broken pilothouse window—first legs, then body, finally head. Lin Chuanqing held the porthole with one hand, passing in the diving light with the other.
-
-His first exploration target was the pilothouse—to determine the ship's identity, this was the most important place.
-
-The cabin had become a marine organism paradise; a startled small octopus jetted past him like an airplane. Zhou Weisen steadied himself—he didn't know if the ship held victims' remains. If so, perhaps their personal effects might offer clues.
-
-But the pilothouse held nothing. He couldn't find the crucial ship's log, nor any registration documents, port papers, or other materials proving the ship's identity or origin.
-
-Zhou Weisen only found some charts, tide tables, and other essential navigation materials—completely empty-handed otherwise.
-
-He secured one end of the rope coil to the pilothouse—a safety line for return, essential equipment for wreck diving. Without it, one could easily get lost in the ship's internal maze. Opening his dive light, he continued swimming deeper.
-
-The ship's interior was neat and clean. Besides some marine life drifting through, no signs of disturbance. No structural damage to the hull, no scattered items—evidently the ship hadn't experienced violent impact or turbulence when sinking.
-
-On the bulkhead was an emergency kit. He noticed the emergency kit near the pilothouse had been removed, while those deeper inside remained intact. He reached the first compartment below deck—door closed. He tried pushing—surprised to find it locked. Further exploration revealed every cabin door was locked. How strange—who locks doors when abandoning ship?
-
-Mysteries multiplied. Most peculiar: nowhere on the ship bore markings of its name or registration port—normally present on many pieces of equipment. These areas had all been carefully ground away or covered with paint. Clearly, the owner had deliberately ensured no one could discover the ship's true identity.
+Most peculiar: nowhere on the ship bore markings of its name or registration port—areas normally present on equipment. These had all been carefully ground away or painted over. Clearly, the owner had ensured no one could discover the ship's true identity.
 
 Thirty minutes later, a mesh bag of items was pulled up on a rope, followed by both men surfacing.
 
-The mesh bag contained objects Zhou Weisen had retrieved from the cabin: some navigation materials, an emergency kit originally mounted on a bulkhead, a fire axe, plus some cans and bottles. Several people squatted on deck examining these dripping salvage items.
+The bag contained objects from the cabin: navigation materials, an emergency kit, a fire axe, cans and bottles. From these, Lin Chuanqing reconfirmed: this was apparently an American-built small fishing boat.
 
-From these small objects, Lin Chuanqing reconfirmed: this small fishing boat was apparently built in America.
+"Nothing identifying it," Zhou Weisen said while removing equipment. "Not just no ship's log—no navigation documents at all. Ship's clock is gone. Even equipment nameplates were removed. Even smuggling boats aren't this secretive."
 
-"Nothing identifying it," Zhou Weisen said while removing his equipment. "Not just no ship's log—no navigation documents at all. Ship's clock is gone. Even equipment and tool nameplates were removed. Even smuggling boats aren't this secretive."
-
-"This ship wasn't doing honest work." Lin Chuanqing drew a bucket of "semi-fresh water" from Dongsha Island's well, rinsing himself.
+"This ship wasn't doing honest work." Lin Chuanqing lit a cigarette.
 
 "Obviously—such deliberate identity concealment—definitely not fishing. Besides, the cabin had no fishing gear whatsoever."
 
 "Probably illegal activities." Gao Xiaosong summarized. "Could it be a smuggling ship?"
 
-"Not ordinary smuggling—otherwise no need to be so thorough hiding the ship's identity." Lin Chuanqing stripped off his rubber wetsuit, sitting dripping wet on deck lighting a cigarette. "From the looks of it—either drug smuggling or arms smuggling."
+"Not ordinary smuggling—otherwise no need to be so thorough." Lin Chuanqing said. "From the looks of it—either drug smuggling or arms smuggling."
 
 "Damn—so some drug dealers came to Ming Dynasty?"
 
-"If arms dealers, that'd be great—a whole ship of weapons! AK-47s! Machine guns! RPGs!" Bai Guoshi grew excited.
+"If arms dealers, that'd be great—a whole ship of weapons!" Bai Guoshi grew excited.
 
-"Then we'd be in trouble—"
+"Drug or arms dealers, hard to say. Need to raise the ship and search thoroughly." Zhou Weisen said. "The ship appeared to be underway when it sank."
 
-"Drug or arms dealers, hard to say. Need to raise the ship and search thoroughly to know." Zhou Weisen said. "I didn't dive too deep, but the ship appeared to be underway when it sank."
+The cabin held many provisions—lots of canned goods and liquor. Labels were waterlogged, but seals looked intact.
 
-The cabin held many provisions—lots of canned goods and liquor. Labels were waterlogged and rotted, but seals looked intact—should be edible.
-
-"Where are these cans from?" Gao Xiaosong asked.
+"Where are these cans from?"
 
 "Made in America."
 
-"So the people aboard were Americans then. Can you estimate the time?"
+"So the people aboard were Americans. Can you estimate the time?"
 
-"No problem—check this emergency kit."
+"Check this emergency kit."
 
-Zhou Weisen opened the box—this type of nautical emergency kit had excellent sealing, completely dry inside. The box contained food, medicine, signal flares, and other necessities for maritime emergencies. The expiration date showed: the time was consistent with their departure time-space.
+Zhou Weisen opened the box—excellent sealing, completely dry inside. Food, medicine, signal flares. The expiration date showed: the time was consistent with their departure time-space.
 
 (End of Chapter)

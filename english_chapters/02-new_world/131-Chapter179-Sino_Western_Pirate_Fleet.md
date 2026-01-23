@@ -6,11 +6,11 @@
 
 Wu De was gnawing on a crab leg when he noticed an extra pair of feet in front of him. Looking up, he saw a plump white man standing there. His left hand held an empty lunch box, his right a jumbo stainless steel spoon. Both eyes were fixed on the roasting crabs.
 
-"Smells amazing!!!!!" Seeing Wu De look up, the fatty blurted out.
+"Smells amazing!!" Seeing Wu De look up, the fatty blurted out.
 
-"What? Want some?" Though he didn't know the visitor, fellow transmigrators were brothers.
+"What? Want some?" Though he did not know the visitor, fellow transmigrators were brothers.
 
-"Sure, sure!!" The fatty wasn't shy; he plopped down and extended his lunch box.
+"Sure, sure!" The fatty was not shy; he plopped down and extended his lunch box.
 
 Wu De served him half a crab. The fatty took the box without a word, burying his face in the food.
 
@@ -42,7 +42,7 @@ Ma Qianzhu nearly fainted. The fatty chuckled several times, swallowed an oyster
 
 "Actually, it doesn't matter which one. Here's my guess: the real attack is coming soon."
 
-Ma Qianzhu jolted. The enemy wouldn't simply send four hundred men to die just to deliver a false message. There must be more to come. Recalling the radar-detected fleet, he reached for his phone.
+Ma Qianzhu jolted. The enemy would not simply send four hundred men to die just to deliver a false message. There had to be more to come. Recalling the radar-detected fleet, he reached for his phone.
 
 Before he touched it, a crisp gunshot rang through the night sky.
 
@@ -62,27 +62,29 @@ Then realization struck. "Oh, so you're the famous 'Slow Morning Bear'... pleasu
 
 The fatty tapped his lunch box, humming "Old Bear's lucky today, Old Wolf's buying chicken..." as he departed.
 
-"SHIT," Xue Ziliang couldn't help cursing in English. In the infrared binoculars' eerie white night, six ships were clearly visible. One was obviously not Chinese.
+---
+
+"SHIT," Xue Ziliang could not help cursing in English. In the infrared binoculars' eerie white glow, six ships were clearly visible. One was obviously not Chinese.
 
 Hours earlier, Bei Wei had called, ordering his recon detachment to conduct a foot patrol along Bopu Harbor's beach. Intelligence suggested possible nighttime maritime infiltration.
 
-Xue Ziliang took this seriously, especially direct orders from Bei Wei. He knew well that without Bei Wei's favor, he'd still be an "off-the-books" nobody—an "illegal resident." Having been in this group long enough, he deeply understood "regular" versus "temporary" treatment. Now that he was "regular," he had to work hard. Xue Ziliang now understood the importance of one's background.
+Xue Ziliang took this seriously, especially direct orders from Bei Wei. He knew well that without Bei Wei's favor, he would still be an "off-the-books" nobody—an "illegal resident." Having been in this group long enough, he deeply understood "regular" versus "temporary" treatment. Now that he was "regular," he had to work hard. Xue Ziliang now understood the importance of one's background.
 
-The Long-Range Reconnaissance HQ—every department was inflating its rank now, like the Health Team recently renaming itself the Health Department, so the recon unit wasn't immune—was at Bairren, but Bei Wei had stationed a four-man detachment each at Bopu, Damei Village, and Salt Field Village for daily patrols and training. He and Xue Ziliang rotated through them for guidance.
+The Long-Range Reconnaissance HQ—every department was inflating its rank now, like the Health Team recently renaming itself the Health Department, so the recon unit was not immune—was based at Bairren, but Bei Wei had stationed a four-man detachment each at Bopu, Damei Village, and Salt Field Village for daily patrols and training. He and Xue Ziliang rotated through them for guidance.
 
 Besides Xue Ziliang, this four-man squad had no military experience. Actually, Bei Wei thought veteran age was too old; unless they were special ops specialists, they lacked flexibility. He preferred selecting volunteers from the twenty-somethings. After months of training, though not quite recon-level, these young men far exceeded typical fresh boot-camp soldiers.
 
-They carried three SKS rifles. Xue Ziliang had a Remington 870 shotgun—he found the SKS too long for recon work. As a former American, his greatest frustration was the equipment shortage. There was plenty of quantity, but almost all of it was unfamiliar. Except for Glock pistols and Remington shotguns, the transmigrators' most common infantry weapons—the SKS and Type-56 semi—were foreign to him. Even an AK-47 would be better; he'd used those.
+They carried three SKS rifles. Xue Ziliang had a Remington 870 shotgun—he found the SKS too long for recon work. As a former American, his greatest frustration was the equipment shortage. There was plenty of quantity, but almost all of it was unfamiliar. Except for Glock pistols and Remington shotguns, the transmigrators' most common infantry weapons—the SKS and Type-56 semi—were foreign to him. Even an AK-47 would have been better; he had used those.
 
-Take night vision equipment. In his US Marine Corps Force Recon days, this was basic gear. Even his garage at home had better equipment. Now the whole squad had just one starlight scope and one set of Russian infrared binoculars—he disliked Russian gear. But this was already an excellent allocation. Night vision equipment, though plentiful initially, couldn't be replaced or repaired. The Planning Committee controlled it strictly.
+Take night vision equipment. In his US Marine Corps Force Recon days, this was basic gear. Even his garage at home had had better equipment. Now the whole squad had just one starlight scope and one set of Russian infrared binoculars—he disliked Russian gear. But this was already an excellent allocation. Night vision equipment, though plentiful initially, could not be replaced or repaired. The Planning Committee controlled it strictly.
 
 Coastal searching on foot was exhausting but effective. The sky was overcast, with no moon or stars, making the horizon barely visible. Though radar provided approximate coordinates, every kilometer he stopped to scan the sea with binoculars.
 
 After two hours of coastal trekking, the search team reached the end of Longhao Bay. If the coordinates were correct, the fleet should be nearby. With the next binocular sweep—sure enough, ship silhouettes appeared across the strait.
 
-*Good at hiding,* he noted, unconsciously chewing before realizing he had no gum. These six ships were concealed in the shadows of the reefs on a starless, moonless night. Without the *Fengcheng*'s radar, visual observation alone couldn't have spotted them, much less positioned them.
+*Good at hiding,* he noted, unconsciously chewing before realizing he had no gum. These six ships were concealed in the shadows of the reefs on a starless, moonless night. Without the *Fengcheng*'s radar, visual observation alone could not have spotted them, much less positioned them.
 
-The ship speed was extremely slow. Xue Ziliang checked his watch and started calculating—under two knots. That foreign ship's sails clearly weren't fully deployed. Suspicious.
+The ship speed was extremely slow. Xue Ziliang checked his watch and started calculating—under two knots. That foreign ship's sails clearly were not fully deployed. Suspicious.
 
 "Brother Xue, something wrong here?" A team member whispered. Xue Ziliang's straightforwardness and skill had earned the young men's respect.
 
@@ -92,9 +94,9 @@ The ship speed was extremely slow. Xue Ziliang checked his watch and started cal
 
 "There's a dinghy!" Xue Ziliang's binoculars caught a small boat.
 
-There were eight people inside. The binoculars showed swords and matchlock muskets. One at the helm, four rowing, two at the bow setting up matchlock fork rests—pretty primitive. The last held something rolled up. The dinghy advanced cautiously, paddling only occasionally. He could now clearly see: the item-holding sailor carried a plumb line, constantly measuring nearshore water depth. This meant the enemy planned to bring their ships in very close, using cannon fire to support landings. A simple rowboat troop transport wouldn't need depth sounding.
+There were eight people inside. The binoculars showed swords and matchlock muskets. One at the helm, four rowing, two at the bow setting up matchlock fork rests—pretty primitive. The last held something rolled up. The dinghy advanced cautiously, paddling only occasionally. He could now clearly see: the item-holding sailor carried a plumb line, constantly measuring nearshore water depth. This meant the enemy planned to bring their ships in very close, using cannon fire to support landings. A simple rowboat troop transport would not need depth sounding.
 
-From the dinghy's trajectory, the pirates obviously planned landing from the Lingao Point side—not Bopu's main entrance, presumably because it was less defended. As for that inconvenient beacon tower, the pirates clearly didn't take it seriously, unaware of the 12-pounder cannon atop it.
+From the dinghy's trajectory, the pirates obviously planned landing from the Lingao Point side—not Bopu's main entrance, presumably because it was less defended. As for that inconvenient beacon tower, the pirates clearly did not take it seriously, unaware of the 12-pounder cannon atop it.
 
 A gentle breeze blew on the silent night. Only waves lapped the shore, making splashing sounds.
 
@@ -102,14 +104,14 @@ A ghostly sailing ship slowly approached—the Spanish galleon *Countess of Scar
 
 The moon emerged from the clouds, casting a pale light.
 
-"Damn this moon!" Spanish Captain Aragonés grumbled from the poop deck. He'd been slowly cruising across the strait half the night, approaching the channel centerline only near midnight. Moonlight would reveal his ship's silhouette. According to rumors, those strange Easterners had many strange muskets that fired extremely far. He didn't want to risk it.
+"Damn this moon!" Spanish Captain Aragonés grumbled from the poop deck. He had been slowly cruising across the strait half the night, approaching the channel centerline only near midnight. Moonlight would reveal his ship's silhouette. According to rumors, those strange Easterners had many strange muskets that fired extremely far. He did not want to risk it.
 
 "Are those Orientals all asleep?" Aragonés murmured. Through his spyglass, the harbor remained calm. Except for some lights, nothing unusual.
 
 "Captain. Rear ship Captain Liu is signaling to ask whether to begin the attack."
 
-"Understood." Aragonés smiled with a trace of contempt. These stupid Orientals could only fight on land. They didn't deserve to be called sailors. At sea, he was confident the *Countess of Scarborough* alone could defeat all of Liu Xiang's warships. If not for Dutch pressure reducing Spanish influence along the Chinese coast, why would he cooperate with a second-rate pirate like Liu Xiang?
+"Understood." Aragonés smiled with a trace of contempt. These stupid Orientals could only fight on land. They did not deserve to be called sailors. At sea, he was confident the *Countess of Scarborough* alone could defeat all of Liu Xiang's warships. If not for Dutch pressure reducing Spanish influence along the Chinese coast, why would he cooperate with a second-rate pirate like Liu Xiang?
 
-He watched the dinghy through his telescope. So far, no signals indicating insufficient depth. Soon he could confidently sail very close to shore, using concentrated cannon fire to support the landing pirates. Those legendary "strange muskets," however powerful, couldn't match sixteen-cannon broadsides. The *Countess of Scarborough* carried thirty-two guns—quite formidable even in European waters.
+He watched the dinghy through his telescope. So far, no signals indicating insufficient depth. Soon he could confidently sail very close to shore, using concentrated cannon fire to support the landing pirates. Those legendary "strange muskets," however powerful, could not match sixteen-cannon broadsides. The *Countess of Scarborough* carried thirty-two guns—quite formidable even in European waters.
 
 **(End of Chapter)**

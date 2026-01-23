@@ -6,33 +6,33 @@ The squad chiefs and core members received special treatment—they were tied up
 
 The runners' destination was the "study class." This study class, of course, was not for "studying"—its primary purpose was screening and interrogation. Before finally disposing of these people, Wu De intended to extract as much intelligence from them as possible.
 
-As for the six offices, the Household Office had already been taken over completely by a special team from the Planning Committee. Since the Household Office involved the county's entire fiscal situation, apart from the arrested Chen Minggang and his gang of "grain runners," the remaining personnel were temporarily retained pending gradual cleanup. The writ for Zhou Qi's formal appointment as Household Clerk hadn't yet been issued, but he had already formally taken charge of the office—under the protection of transmigrator bayonets, of course.
+As for the six offices, the Household Office had already been completely taken over by a special team from the Planning Committee. Since the Household Office controlled the county's entire fiscal situation, apart from the arrested Chen Minggang and his gang of "grain runners," the remaining personnel were temporarily retained pending gradual cleanup. The writ for Zhou Qi's formal appointment as Household Clerk hadn't yet been issued, but he had already formally taken charge of the office—under the protection of transmigrator bayonets, of course.
 
-Wu De didn't trust Zhou Qi either. In his view, not a single person from the old system could be trusted with important duties. Zhou Qi was merely a transitional figure. As for how the Household Office would ultimately be reorganized and how future tax collection work would be conducted, he had another plan entirely.
+Wu De didn't trust Zhou Qi either. In his view, not a single person from the old system could be entrusted with important duties. Zhou Qi was merely a transitional figure. As for how the Household Office would ultimately be reorganized and how future tax collection work would be conducted, he had another plan entirely.
 
-Personnel from the Punishment Office were temporarily all retained, but Punishment Clerk Zhang Shi had been arrested. His arrest was primarily due to his connection to Chen Minggang. Since he was Chen Minggang's brother-in-law, he couldn't be left in such a sensitive position. Better to arrest the wrong person than let a guilty one go.
+Personnel from the Punishment Office were temporarily all retained, but Punishment Clerk Zhang Shi had been arrested. His arrest was primarily due to his connection to Chen Minggang—since he was Chen Minggang's brother-in-law, he couldn't be left in such a sensitive position. Better to arrest the wrong person than let a guilty one go.
 
-The clerks from the remaining offices were needed to handle daily administrative business, so they were summoned to the yamen and Xiong Buyou announced they should continue working there and "devote themselves to serving the Emperor and the court." However, they were not permitted to leave the yamen. Retained personnel from all offices were treated the same way.
+The clerks from the remaining offices were needed to handle daily administrative business, so they were summoned to the yamen. Xiong Buyou announced they should continue working there and "devote themselves to serving the Emperor and the court." However, they were not permitted to leave the yamen. Retained personnel from all offices were treated the same way.
 
-"Though we won't touch the Personnel Office staff, you must immediately assign someone to take over and prohibit them from moving any of the archives." Wu De instructed Zhou Botao.
+"Though we won't touch the Personnel Office staff, you must immediately assign someone to take over and prohibit them from moving any of the archives," Wu De instructed Zhou Botao.
 
 The Personnel Office controlled the county's entire system of *lijia* heads, village headmen, and local officials, as well as the clerks' own personnel files. Appointments, promotions, transfers, and salary matters all had to pass through their hands. It was equivalent to the modern county Personnel Bureau combined with the Organization Department—substantial authority.
 
 For the transmigrators to thoroughly understand the "local cadre" system of Ming-dynasty Lingao County, this office's archives were crucial. The Archives Repository, which specially stored documentary materials, was also placed under dedicated control.
 
-Another key location was the county storehouse. One of the night's arrest targets was the warehouse clerk. Once taken, he was immediately detained in the county yamen awaiting disposition. The Planning Committee had little confidence that much money or grain could be extracted from Lingao County's treasury. Still, there would be something. And this warehouse clerk's own household wealth was unlikely to be meager.
+Another key location was the county storehouse. One of the night's arrest targets was the warehouse clerk. Once taken, he was immediately detained in the county yamen awaiting disposition. The Planning Committee had little confidence that much money or grain could be extracted from Lingao County's treasury. Still, there would be something. And this warehouse clerk's personal household wealth was unlikely to be meager.
 
 As for the yamen's other minor clerks—jailers, coroners, executioners, granary stewards, inspectors, and the like—these were all specialists. Though abuses existed at virtually every level, purging them was not an immediate priority. They could be retained for now.
 
-That night, the Lingao county yamen blazed with lights and bustled through the entire night. Households throughout the county kept their doors shut, no one daring to venture out. A tense, uneasy atmosphere gripped the entire county. Xiong Buyou sat in command at the yamen, directing everything, run off his feet with activity.
+That night, the Lingao county yamen blazed with lights and bustled through until dawn. Households throughout the county kept their doors shut, no one daring to venture out. A tense, uneasy atmosphere gripped the entire county. Xiong Buyou sat in command at the yamen, directing everything, run off his feet with activity.
 
-Wu Mingjin and Wang Zhaomin had no idea what was happening in the front compound. After the Flower Hall interrogation concluded at midday, Wu Ya came in to report the entire proceedings. The outcome left Wu Mingjin fairly satisfied.
+Wu Mingjin and Wang Zhaomin had no idea what was happening in the front compound. After the Flower Hall interrogation concluded at midday, Wu Ya had come in to report the entire proceedings. The outcome left Wu Mingjin fairly satisfied.
 
-"It seems the Australians do understand the key principles of local governance. Pacifying the gentry is the first priority." Wang Zhaomin commented.
+"It seems the Australians do understand the key principles of local governance. Pacifying the gentry is the first priority," Wang Zhaomin commented.
 
 But Wu Mingjin still wore a worried frown. "Pacifying the gentry is well and good, but with Chen Minggang dismissed and a whole gang of grain runners cashiered, what about the half-collected autumn levy?"
 
-"Your Excellency needn't worry about that." Wang Zhaomin said confidently. "Since they dared arrest Chen Minggang, they must have a plan."
+"Your Excellency needn't worry about that," Wang Zhaomin said confidently. "Since they dared arrest Chen Minggang, they must have a plan."
 
 Wang Zhaomin volunteered to negotiate with the Australians and demand a concrete proposal for completing the autumn levy before reporting back.
 
@@ -50,9 +50,9 @@ By afternoon, he had fallen into a panic—a servant suddenly came to report tha
 
 The servant left, then returned shortly—the passage to Secretary Wang's courtyard was also under control. No one was permitted in or out now.
 
-Wu Mingjin's already volatile emotions once again plunged into despair—his fantasy of peacefully coexisting with the Baldies until the end of his term had been utterly shattered. It seemed they really were going to rebel this time. The only question was whether they would force him to accept a puppet position. This terrifying thought, which had plagued him since morning, filled Wu Mingjin with dread. Though he had steeled himself to die rather than yield, when death actually loomed, facing one's own fear was no easy thing.
+Wu Mingjin's already volatile emotions plunged once again into despair—his fantasy of peacefully coexisting with the Baldies until the end of his term had been utterly shattered. It seemed they really were going to rebel this time. The only question was whether they would force him to accept a puppet position. This terrifying thought, which had plagued him since morning, filled Wu Mingjin with dread. Though he had steeled himself to die rather than yield, when death actually loomed, facing one's own fear was no easy thing.
 
-That night, everyone in the county yamen spent a sleepless night. Wu Mingjin didn't close his eyes, listening fearfully to the sounds from the front compound. But aside from more footsteps than usual, the battle cries or looting he'd anticipated never materialized. When dawn broke in the east, Wu Mingjin was already up in the signing room—not having returned to the inner residence to avoid his family's questions. After a hasty wash, his servant brought breakfast. Was Secretary Wang here? Should he be shown in?
+That night, everyone in the county yamen spent a sleepless night. Wu Mingjin didn't close his eyes, listening fearfully to the sounds from the front compound. But aside from more footsteps than usual, the battle cries or looting he'd anticipated never materialized. When dawn broke in the east, Wu Mingjin was already up in the signing room—having not returned to the inner residence to avoid his family's questions. After a hasty wash, his servant brought breakfast. Was Secretary Wang here? Should he be shown in?
 
 "Of course! Show him in at once." Wu Mingjin almost skipped breakfast entirely. Then, thinking Secretary Wang probably hadn't eaten either, he added, "Have the kitchen prepare another serving."
 
@@ -62,7 +62,7 @@ But Secretary Wang didn't know his employer was growing suspicious. He hurried t
 
 "The autumn levy business—the Australians have agreed to handle everything." Secretary Wang knew his employer cared most about this. "Any grain the county can't collect in time, they'll advance..."
 
-"Advance?!" Wu Mingjin was startled. Including the base levy and tribute rice, they'd need at least twelve or thirteen thousand *shi* of rough rice just to get by. This was Lingao, not the southern Jiangsu region—not only was the population sparse, but field yields were pitiful. Even if the Baldies had secret rice-growing techniques, they had over ten thousand mouths of their own to feed...
+"Advance?!" Wu Mingjin was startled. Including the base levy and tribute rice, they'd need at least twelve or thirteen thousand *shi* of rough rice just to get by. This was Lingao, not the prosperous Jiangnan region—not only was the population sparse, but field yields were pitiful. Even if the Baldies had secret rice-growing techniques, they had over ten thousand mouths of their own to feed...
 
 "Correct." Wang Zhaomin was clearly quite confident in the transmigrators' capabilities. "Master Xiong and a gentleman from the Delong Grain Trading Company will be calling on Your Excellency shortly to discuss the autumn levy."
 

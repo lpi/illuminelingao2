@@ -1,135 +1,135 @@
 # Chapter 244: Proposal for a Trade Expedition
 
-Liu Zheng discussed some operational matters, and Bai Guoshi, seeing it was about time, hurriedly pushed off with the others. Liu Zheng wanted to leave too, but was asked to stay—there was a new mission to assign.
+Liu Zheng remained to discuss operational matters, while Bai Guoshi, seeing the hour grow late, pushed off with the others. Liu Zheng made to leave as well but was asked to stay—there was a new mission to assign.
 
-"Your next mission happens to involve going to sea. The Exploration Team should organize its personnel and take this opportunity to experience life at sea," Ma Qianzhu said.
+"Your next mission happens to involve going to sea. The Exploration Team should organize its personnel and use this as an opportunity to gain maritime experience," Ma Qianzhu said.
 
-The Planning Commission assigned the Exploration Team the task of prospecting Hainan's iron ore—specifically, investigating the iron mines at Shilu and Tiandu. Both were rare high-grade open-pit iron mines in China. The Exploration Team's task was to pinpoint their locations, collaborate with the Survey Team to map the terrain, and evaluate the difficulty and value of mining.
+The Planning Commission had assigned the Exploration Team the task of surveying Hainan's iron ore deposits—specifically, investigating the mines at Shilu and Tiandu. Both were exceptionally rare high-grade open-pit deposits in China. The Exploration Team's mission was to pinpoint their locations, collaborate with the Survey Team to map the terrain, and evaluate the difficulty and value of extraction.
 
-Wen Desi said, "The difficulty of mining Shilu is likely relatively high, but we still need to see exactly *how* high, so we can estimate at what stage of industrial development we should start mining."
+"The difficulty of mining Shilu is likely considerable," Wen Desi said, "but we still need to determine *how* considerable, so we can estimate at what stage of industrial development we should begin extraction."
 
-At this point, Mo Xiao'an suggested, "Why don't the various ministries organize a joint expedition?"
+At this point, Mo Xiao'an proposed, "Why not organize a joint expedition involving multiple ministries?"
 
-"Joint expedition?!" Navy representative Li Haiping immediately perked up.
+"A joint expedition!" Navy representative Li Haiping immediately perked up.
 
-"Yes. Just now Commissioner Wu proposed a trade expedition. I think since this iron ore investigation requires ships, and the scale can't be too small to ensure safety, why not just organize a large-scale expedition?"
+"Yes. Commissioner Wu just proposed resource expeditions. Since the iron ore investigation requires ships, and the scale can't be too small for safety reasons, why not simply organize a large-scale combined operation?"
 
-"I agree." Trade Minister Lu Rong beamed with spirit. Recent trade within the island hadn't been satisfactory; the status quo of transmigrators purchasing industrial raw materials at East Gate Market fell far short of expectations. Everyone had forgotten that the transportation situation in this timeline was terrible.
+"I agree." Trade Minister Lu Rong was animated. Recent intra-island trade had been disappointing; the current system of transmigrators purchasing industrial raw materials at East Gate Market fell far short of expectations. They had forgotten how abysmal transportation was in this era.
 
-What was originally a small plan involving only the Exploration Team for personnel and the Navy for ships and sailors turned into a multi-ministry joint operation. Besides the old partners—the Exploration Team and the Special Reconnaissance Battalion—it also included the Maritime Department, Survey Team, Foreign Affairs Ministry, and Foreign Trade Company. The Industrial and Energy Committee and Agricultural Committee sent professional technical personnel for support. Several students were also brought along on the ship as interns.
+What had originally been a modest plan involving only the Exploration Team for personnel and the Navy for ships and sailors transformed into a multi-ministry joint operation. Besides the established partners—the Exploration Team and the Special Reconnaissance Battalion—it now included the Maritime Department, Survey Team, Foreign Affairs Ministry, and Foreign Trade Company. The Industrial and Energy Committee and Agricultural Committee dispatched professional technical personnel for support. Several students were also brought aboard as interns.
 
-To address the needs of Li and Miao affairs, Mu Min was also temporarily seconded from the Police Headquarters to depart with the team.
+To address Li and Miao affairs, Mu Min was temporarily seconded from Police Headquarters to join the expedition.
 
-In addition to exploring for resources, this expedition team also bore the responsibilities of surveying terrain and landforms, mapping, and investigating public sentiment; they also had to acquire resources useful to the transmigrators through trade, hunting, gathering, or other means.
+Beyond resource exploration, this expedition bore responsibilities for surveying terrain and landforms, mapping, and investigating public sentiment. The team was also tasked with acquiring resources useful to the transmigrators through trade, hunting, gathering, or other means.
 
-"We act just like those European adventurers, understand? Exploring new routes along the way, trading along the way..."
+"We're acting just like those European adventurers, understand? Exploring new routes as we go, trading as we go..."
 
-"And burning, killing, and looting along the way—" Li Haiping said.
+"And burning, killing, and looting as we go—" Li Haiping added.
 
-"That won't do! Remember the Three Main Rules of Discipline and Eight Points for Attention!" Ma Qianzhu said seriously. "Of course, natives who dare to challenge the authority of the Transmigration State are the enemy."
+"Absolutely not! Remember the Three Main Rules of Discipline and Eight Points for Attention!" Ma Qianzhu said firmly. "Of course, natives who dare challenge the authority of the Transmigration State are enemies."
 
-Treat enemies as ruthlessly as winter. Everyone understood this.
+*Treat enemies as ruthlessly as winter.* Everyone understood this.
 
-"The primary objective is to acquire coconuts and coconut products. Whether our oil supply can keep up with industrial development depends crucially on this." Zhan Wuya hurriedly put forward his request.
+"The primary objective is acquiring coconuts and coconut products. Whether our oil supply can keep pace with industrial development hinges critically on this." Zhan Wuya hastened to state his requirement.
 
-Wu Nanhai said, "I also want a bit more oil for cooking."
+"I'd also appreciate a bit more cooking oil," Wu Nanhai added.
 
-"Timber," Wu Kuangming said. "The mangrove resources at Bopu have been nearly half cut by me. The banks of the Wenlan River only have miscellaneous woods, which aren't very useful, and to maintain soil and water conservation, we can't cut too much."
+"Timber," Wu Kuangming said. "I've nearly exhausted half the mangrove resources at Bopu. The banks of the Wenlan River offer only miscellaneous woods of limited utility, and we can't over-harvest there without damaging soil and water conservation."
 
-"Can't we buy it?"
+"Can't we purchase it?"
 
-"Can't buy it. Doing timber trade in Lingao is very hard. The Li people are willing to sell to us, but the problem is transportation—there's a lack of river systems here to float timber out of the mountains."
+"Purchase is impractical. Timber trade in Lingao is extremely difficult. The Li people are willing to sell to us, but transportation is the obstacle—there's no river system here to float timber out of the mountains."
 
-"Timber takes up a lot of space and is heavy—"
+"Timber occupies considerable space and is heavy—"
 
-"No need to take up space on the ship. Bind them into rafts and tow them behind the ship."
+"No need to take up space on the ship. Bind logs into rafts and tow them behind the vessel."
 
-"Will that work? This isn't an ordinary river; it's the sea."
+"Would that work? This isn't an ordinary river—it's the open sea."
 
-"We aren't going into the open ocean. Coastal winds and waves are small; it should be fine. Historical data says North African countries in the Middle Ages transported timber in the Mediterranean like this."
+"We won't be venturing into deep ocean. Coastal winds and waves are manageable; it should be feasible. Historical records indicate that North African countries in the medieval era transported timber across the Mediterranean precisely this way."
 
-"I also want one thing. It might be harder to get, but it's very useful," Zhan Wuya also put forward his request.
+"I have one more request," Zhan Wuya interjected. "It may be more difficult to obtain, but it's extremely useful."
 
 "What?"
 
-"Deerskins," Zhan Wuya said. "To replace rubber for making transmission belts."
+"Deerskins," Zhan Wuya said. "To substitute for rubber in manufacturing transmission belts."
 
-This was indeed a more imminent need. With the production of prime movers and various self-made agricultural machinery, the demand for belts in mechanical transmission increased greatly. The mechanical department currently relied on reserves, but the limited stock obviously couldn't last until the rubber matured—according to Wu Nanhai's calculations, it would be at least 15 years before the transmigrators' raw rubber could form an industrial scale.
+This was indeed a pressing need. With the production of prime movers and various self-made agricultural machinery, the demand for belts in mechanical transmission had surged dramatically. The mechanical department was currently relying on stockpiled reserves, but the limited inventory obviously couldn't last until the rubber trees matured—by Wu Nanhai's calculations, at least fifteen years would pass before the transmigrators' raw rubber could achieve industrial scale.
 
-Of course, there were various raw ores. If they could be collected at the seaside, some should also be mined and brought back. Ji Wusheng specifically mentioned quartz sand—at Haiwei Town in Changjiang, there were abundant high-quality quartz sand reserves right by the sea, very convenient for mining and transportation.
+Various raw ores were also desirable. If deposits could be located at the seaside, some should be mined and transported back. Ji Wusheng specifically mentioned quartz sand—at Haiwei Town in Changjiang, abundant high-quality reserves lay right by the sea, ideal for extraction and transport.
 
-"We can also buy some cotton cloth back." Mo Xiao'an said that to welcome the immigration wave after the New Year, the demand for cotton cloth at the Light Industry Ministry's garment factory had surged, and inventory was nearly exhausted.
+"We could also purchase cotton cloth," Mo Xiao'an added. To accommodate the anticipated immigration wave after the New Year, demand at the Light Industry Ministry's garment factory had surged, and inventory was nearly exhausted.
 
-"What do we use to exchange for these things? Buy with money?"
+"What do we exchange for these goods? Purchase with currency?"
 
-"Ores and such don't need it, but coconuts, timber, and cotton cloth surely require commodity exchange, right?"
+"Ores and such require no exchange, but coconuts, timber, and cotton cloth surely demand commodity barter, don't they?"
 
-"We have plenty." Lu Rong was confident. "Salt."
+"We have plenty to offer," Lu Rong said confidently. "Salt."
 
-"Please, salt isn't a rare item in Hainan. Salt fields are everywhere, and smuggled salt is rampant."
+"Please—salt is hardly rare on Hainan. Salt fields are everywhere, and smuggled salt is rampant."
 
-"The smuggled salt we sell is cheaper and effectively delivered to their doorstep; the other party will be willing to accept it."
+"The smuggled salt we sell is cheaper, and we deliver it effectively to their doorstep. They'll be willing to accept it."
 
-"What if they don't want it?"
+"What if they refuse?"
 
-"We have sewing needles, liquor, rough paper, rough porcelain, silk... prepared quite a few small items, and also some mirrors."
+"We have sewing needles, liquor, rough paper, crude porcelain, silk... We've prepared quite an assortment of small items, plus some mirrors."
 
-"Who are you planning to sell mirrors to? So expensive."
+"Who do you intend to sell mirrors to? They're expensive."
 
-"To bribe local officials and gentry. We aren't Spaniards; we say trade, but it's actually looting all the way."
+"To bribe local officials and gentry. We aren't Spaniards—when we say 'trade,' we actually mean fair exchange, not plunder."
 
-Zhan Wuya said worriedly, "But for such a large-scale mobilization, how many people and ships must be deployed? I'm worried it will damage cargo transportation with Guangdong and Macau." The Industrial and Energy Committee relied on maritime transport more than any other department, so hearing their plan caused some concern—wouldn't this require deploying at least two 70-ton class ships?
+Zhan Wuya expressed concern: "But for such a large-scale mobilization, how many men and ships must we deploy? I worry this will disrupt cargo transportation with Guangdong and Macau." The Industrial and Energy Committee depended on maritime transport more heavily than any other department, so hearing these plans raised alarms—wouldn't this require deploying at least two 70-ton class vessels?
 
-Wen Desi said regretfully, "If we concentrate resources, the shipyard's schooner should be completed within 10 days."
+Wen Desi said thoughtfully, "If we concentrate resources, the shipyard's schooner should be completed within ten days."
 
-"Using a newly built ship immediately for such a long voyage, isn't it dangerous?"
+"Using a newly built ship immediately for such an extended voyage—isn't that dangerous?"
 
-"Not a big problem." Wen Desi said, "Since this voyage is around the island, even if something goes wrong, we can land in time. Consider it a good opportunity for a sea trial."
+"Not significantly." Wen Desi explained, "Since this is a circumnavigation of the island, even if problems arise, we can land in time. Consider it an excellent sea trial opportunity."
 
-"A round-the-island voyage has issues with tides, shoals, and reefs. How is the safety factor? Our investment in building this ship isn't small."
+"A round-the-island voyage involves tides, shoals, and reefs. What's the safety factor? Our investment in building this ship is substantial."
 
-"It doesn't matter; we have a full set of charts and nautical data. The safety factor should be the highest."
+"It won't be a problem. We possess a complete set of charts and nautical data. The safety factor should be the highest achievable."
 
-"Honestly, if we had enough fuel, taking the landing craft out would be fine too."
+"Honestly, if we had sufficient fuel, we could simply take the landing craft."
 
-"Isn't that nonsense?" Ma Qianzhu said. "Actually, the reserves on the *Fengcheng* are quite considerable, but there are many places using diesel now: fishing boats, construction machinery, vehicles... nowhere to replenish."
+"That's wishful thinking," Ma Qianzhu said. "The reserves aboard the *Fengcheng* are actually considerable, but diesel consumption has grown across many sectors—fishing boats, construction machinery, vehicles. And there's nowhere to replenish."
 
-Actually, he had another reason known only to the Executive Committee's top level: the *Fengcheng* must guarantee enough one-way fuel to run to Taiwan—in case the revolution suffered severe setbacks, they could flee for their lives.
+Actually, he had another reason known only to the Executive Committee's inner circle: the *Fengcheng* must maintain enough fuel for a one-way voyage to Taiwan—in case the revolution suffered catastrophic setbacks, they would need an escape route.
 
-"I think the North American sailboat is quite good as an exploration ship. It's fast, well-equipped, and just right for maritime exploration." Liu Zheng had been eyeing that sailing yacht for a long time.
+"I think the North American sailboat would make an excellent exploration vessel," Liu Zheng said. He had been eyeing that sailing yacht for some time. "It's fast, well-equipped, and perfectly suited for maritime exploration."
 
-"Save it. The Executive Committee clearly stated back then that the ship belongs to them."
+"Dream on. The Executive Committee explicitly stated from the beginning that the ship belongs to them."
 
-"We can copy a few, right? That ship is small yet durable. Without the engine and modern navigation equipment, the structure isn't complex, and living facilities can be simplified."
+"Could we replicate a few? That ship is small but remarkably durable. Without the engine and modern navigation equipment, the structure isn't complex, and living facilities could be simplified."
 
-"Very difficult." Wen Desi said, "That kind of modern sailing yacht is the crystallization of modern industrial technology. With our industrial level, we can't copy it even in ten years."
+"Very difficult," Wen Desi said. "That type of modern sailing yacht represents the crystallization of contemporary industrial technology. At our current industrial level, we couldn't replicate it in ten years."
 
-"Right," Li Haiping remembered something. "Isn't Li Huamei's *Hangzhou* at Bopu? That ship is 100 tons!"
+"Right," Li Haiping suddenly recalled. "Isn't Li Huamei's *Hangzhou* at Bopu? That ship displaces 100 tons!"
 
-Wen Desi said, "The *Hangzhou* is a single-masted schooner. As a ship, it's very good, but I always feel this woman's background is problematic—"
+Wen Desi said, "The *Hangzhou* is a single-masted schooner—as a vessel, it's excellent. But I remain uneasy about this woman's background."
 
-"Overthinking it?" Li Haiping said. "When Xiao Meng invited her to serve us back then, she refused—preferring to run trade to make money. If she were really a spy, she should have agreed immediately."
+"Overthinking it?" Li Haiping said. "When Xiao Meng invited her to work for us, she refused—preferring to run her own trade to make money. If she were actually a spy, she'd have agreed immediately."
 
-"Don't underestimate the wisdom of the ancients too much." Wu De said, "It is indeed a bit fishy—it seems like someone specially arranged for such a person to appear. If this were a TV drama, I could understand."
+"Don't underestimate the wisdom of the ancients," Wu De cautioned. "It does seem somewhat suspicious—as if someone deliberately arranged for such a person to appear. If this were a television drama, I'd understand the plotting."
 
-"What do you suggest? Kill her and seize the ship." Li Haiping was indeed a person with strong realistic goals. The speed of his attitude change was enough to dumbfound anyone.
+"Then what do you suggest? Kill her and seize the ship?" Li Haiping was indeed a man of direct, realistic objectives. The speed of his attitude shifts was enough to leave anyone stunned.
 
-"She is, after all, the first maritime merchant to come to Bopu. Doing that would lose us popularity." Ma Jia from the Foreign Affairs Ministry said, "To be safe, just do some business with her, let her taste some sweetness. Don't let her go too deep into our internal affairs."
+"She is, after all, the first maritime merchant to arrive at Bopu. Such an action would cost us goodwill." Ma Jia from the Foreign Affairs Ministry said, "For safety, we should simply conduct some business with her, let her taste a bit of profit. Don't allow her to penetrate too deeply into our internal affairs."
 
-"Pity about her ship, such good transport capacity—"
+"A pity about her ship—such excellent transport capacity..."
 
-The few members of the Executive Committee were indeed hesitant. They really didn't trust this person, but for this joint exploration operation, having only one two-masted ship was obviously insufficient, not to mention the ship hadn't been tested in practice—Wen Desi said no problem, but he was also hesitant inside.
+The Executive Committee members were genuinely hesitant. They couldn't bring themselves to trust her, yet for this joint exploration operation, a single two-masted vessel was clearly insufficient. Not to mention the ship hadn't been tested in practice—Wen Desi had expressed confidence, but inwardly he harbored doubts.
 
-"Discuss it further." Wen Desi had a headache.
+"We'll discuss it further," Wen Desi said, rubbing his temples.
 
-***
+---
 
-The meeting lasted until seven or eight in the evening. Liu Zheng's stomach was rumbling with hunger. Finally, the request Bai Guoshi made on his behalf was approved by the Executive Committee, of course with a discount as he had predicted: the personnel establishment was cut, giving only six transmigrators—basically all "dead wood" rejected by other departments. The committee's reason was high-sounding: there is no dead wood, only undiscovered talent. As for how to discover talent, that was Liu Zheng's business.
+The meeting stretched until seven or eight in the evening. Liu Zheng's stomach rumbled with hunger. Finally, the request Bai Guoshi had made on his behalf received Executive Committee approval—though with the anticipated discount: the personnel establishment was cut, granting only six transmigrators—essentially all "deadwood" rejected by other departments. The committee's reasoning was high-minded: *There is no deadwood, only undiscovered talent.* As for how to discover that talent, well, that was Liu Zheng's responsibility.
 
-"Why do I have to train dead wood—" Liu Zheng muttered. "If they were female rejects, I'd welcome them, but then it wouldn't be my turn to train them."
+"Why must I train deadwood—" Liu Zheng muttered. "If they were female rejects, I'd welcome them, but then it wouldn't be my turn to develop them."
 
-However, he wasted a lot of breath to finally get one extra person on the establishment. There were many reasons: mainly because the few forestry majors in the team had to work part-time in the Agricultural Committee's biological lab. So Zhao Xue from the IT group was kept for intelligence collection and organization—anyway, the IT group already complained of having too many people. He was quite satisfied with Zhao Xue being transferred over—although this chick wasn't much of a combat asset, having such a decent-looking young girl in the department could have a healing effect, and it gave a buff to Bai Guoshi.
+However, he had expended considerable breath finally securing one additional slot. Multiple arguments were required, primarily because the few forestry majors on the team also worked part-time in the Agricultural Committee's biological lab. Thus Zhao Xue from the IT group was retained for intelligence collection and organization—the IT group had already complained of overstaffing. He was quite satisfied with Zhao Xue's transfer. Though this woman wasn't much of a combat asset, having a decent-looking young woman in the department would have a healing effect on morale, and it gave Bai Guoshi a useful buff.
 
-Equipment wasn't cut much: added six crossbows—all experimental products self-made by the Machinery Department, with various sizes and styles. Along with the steel crossbows, two domestic scopes and one Russian-made infrared night vision scope were issued. Added two walkie-talkies. Also, the power access for the Exploration Team's computers changed from priority to absolute—24-hour uninterrupted power supply.
+Equipment wasn't cut significantly: six crossbows were added—all experimental prototypes manufactured by the Machinery Department, varying in size and style. Along with the steel crossbows, two domestic scopes and one Russian-made infrared night vision scope were issued. Two walkie-talkies were added. Additionally, the power access for the Exploration Team's computers was upgraded from priority to absolute—uninterrupted 24-hour supply.
 
 **(End of Chapter)**

@@ -1,130 +1,130 @@
 # Chapter 279: Sweet Port Turbulence – Countermeasures
 
-"Speaking of utilizing molasses, making industrial alcohol is actually a bit wasteful. We could brew spirits instead. Several distilleries in Xuwen already use it for that."
+"Speaking of molasses utilization, making industrial alcohol is actually rather wasteful. We could distill spirits instead. Several distilleries in Xuwen already use molasses for that."
 
-Bei Wei added, "Xue Ziliang, who's in my team, knows how to make many Western spirits. He mentioned to me once that sugar factory molasses can be used to make rum..."
+Bei Wei added, "Xue Ziliang, who's on my team, knows how to produce various Western spirits. He mentioned that sugar factory molasses can be made into rum..."
 
-"That's great," Wen Tong said quickly. "The economic value of rum is much higher than alcohol."
+"Excellent," Wen Tong said quickly. "The economic value of rum far exceeds that of plain alcohol."
 
-But Bei Wei saw it differently. "Isn't alcohol more useful industrially?"
+Bei Wei saw it differently. "Isn't alcohol more useful industrially?"
 
-"It is, but alcohol can be made from anything with sugar or starch. Rum can only be made from molasses," Wen Tong explained. "I've thought about making spirits from molasses, but I didn't know where to start. If you have a technical expert, that would be wonderful."
+"It is, but alcohol can be derived from anything containing sugar or starch. Rum can *only* be made from molasses," Wen Tong explained. "I've thought about distilling spirits from molasses, but I didn't know where to begin. If you have an expert, that would be wonderful."
 
-"Then I'll send him over when I get back," Bei Wei promised.
+"I'll send him over when I return," Bei Wei promised.
 
-Chang Shide laughed. "Once the rum is out there, exporting it back to Europe won't be a problem. I've heard them talk—Cuba and Batavia were both major rum export regions back in the day."
+Chang Shide laughed. "Once the rum is ready, exporting it back to Europe won't be a problem. I've heard people say Cuba and Batavia were both major rum-exporting regions back in the day."
 
-"After molasses is made into rum, the residue can still be refined into other by-products," Wen Tong said. "It's definitely better than just making plain alcohol."
+"After molasses is processed into rum, the residue can still be refined into other byproducts," Wen Tong added. "It's definitely superior to producing plain alcohol."
 
-So the matter of establishing a rum distillery in Xuwen was settled. After all, shipping molasses to Lingao for processing was simply too inconvenient.
+And so the matter of establishing a rum distillery in Xuwen was settled. After all, shipping molasses back to Lingao for processing was simply impractical.
 
-That evening, Wen Tong drafted a report for the Executive Committee, requesting a distillation apparatus be shipped and temporarily borrowing Xue Ziliang to guide the work at the South China Sugar Factory.
+That evening, Wen Tong drafted a report for the Executive Committee, requesting a distillation apparatus and temporarily borrowing Xue Ziliang to guide operations at the South China Sugar Factory.
 
-None of the people enthusiastically discussing sugarcane by-product utilization realized just how enormous the impact of the South China Sugar Factory's launch would be. In a sense, it even surpassed the various construction projects the Transmigration Collective had undertaken in Lingao. This was a factory completely open to the ordinary people of the Ming Dynasty. The convenience, efficiency, and low cost brought by mechanized, industrialized large-scale production left a deep impression on everyone who came into contact with it. And its consequences arrived faster than anyone had anticipated.
+None of those enthusiastically discussing sugarcane byproduct utilization realized just how profound the South China Sugar Factory's impact would prove to be. In a sense, it would surpass even the various construction projects the Transmigration Collective had undertaken in Lingao. Here was a factory entirely open to ordinary Ming Dynasty citizens. The convenience, efficiency, and low cost afforded by mechanized, industrialized large-scale production left an indelible impression on everyone who encountered it. And the consequences arrived faster than anyone anticipated.
 
-***
+---
 
-Hai'an Street, the Sugar Trade Guild Hall—the Haiyi Guild.
+**Hai'an Street, the Sugar Trade Guild Hall—the Haiyi Guild.**
 
-This building, with its green stone gatehouse and rich Guangdong atmosphere, occupied a prominent position on Hai'an Street. Hai'an Street was famous as "Sweet Port," and the ones who controlled this "Sweet Port," almost completely monopolizing Leizhou's sugar exports, were precisely the merchants inside this hall. The vast majority of them came from the Chaozhou and Guangfu regions of Guangdong. Geographical proximity plus the bonds of shared interests made the sugar merchants here extremely united, jointly protecting this hard-won domain.
+The building rose prominently on Hai'an Street, its green stone gatehouse exuding the rich architectural flavor of Guangdong. Hai'an Street was famed as "Sweet Port," and controlling this port—nearly monopolizing Leizhou's sugar exports—were precisely the merchants gathered within these walls. The vast majority hailed from Guangdong's Chaozhou and Guangfu regions. Geographic proximity combined with shared commercial interests made the sugar merchants here extraordinarily united, fiercely protective of a domain won through years of effort.
 
-Ever since the South China Sugar Factory's chimney had begun billowing black smoke, these sensitive merchants seemed to have caught a whiff of change in the air. They grew restless. In teahouses, in restaurants, in every trading house's back office, there was always the sound of hushed whispers.
+Ever since the South China Sugar Factory's chimney had begun billowing black smoke, these sensitive merchants had detected something shifting in the air. They grew restless. In teahouses, in restaurants, in everytrading house's back office, hushed whispers could be heard.
 
-Everyone felt something should be done, but no one knew what. Even those who had resolved to deal with the situation by not reacting at all felt somewhat lost, always feeling that someone should come forward to affirm their strategy.
+Everyone sensed that action was necessary, yet no one knew quite what to do. Even those who had resolved to respond by doing nothing at all felt uncertain, always wishing someone would step forward to validate their strategy.
 
-Now, the managers and senior staff of these trading houses had all gathered in the hall's reception room. This tall, bright hall, with its fine materials and exquisite craftsmanship, had no equal in all of Leizhou Prefecture. Ordinarily at this time of year, the managers would gather here, sipping fine tea, nibbling on delicate snacks, sometimes accompanied by the soft singing of songstresses, to discuss the year's sugar prices. How much return a year of toil and sweat would bring for so many people was decided at gatherings like these.
+Now the managers and senior staff of these trading houses had all assembled in the guild hall's reception room. This lofty, luminous hall, constructed of fine materials and exquisite craftsmanship, had no equal anywhere in Leizhou Prefecture. Ordinarily at this time of year, the managers would gather here—sipping choice teas, sampling delicate snacks, sometimes accompanied by the soft singing of hired songstresses—to negotiate the year's sugar prices. How much reward a season of toil and sweat would yield for so many people was decided at gatherings precisely like this one.
 
-At this moment, however, a strange sense of unease pervaded the hall. As usual, six square tables had been set out, laden with various cold dishes, snacks, fine teas, and quality spirits. But today, these men who were usually so particular about food and drink had no appetite. The managers and senior staff of each trading house sat in silence. Some had eyes darting rapidly, as if calculating something; others sat calmly, looking unperturbed. Someone suddenly stood up, walked a few steps, then sat back down with a thump and began furiously fanning himself with his folding fan.
+At this moment, however, a strange unease pervaded the hall. As usual, six square tables had been laid out, laden with cold dishes, snacks, fine teas, and quality spirits. But today, these men who were normally so particular about their refreshments had no appetite. The managers and senior staff of each trading house sat in silence. Some had eyes darting rapidly, as though calculating something; others sat with deceptive calm, appearing unperturbed. Suddenly one man stood, paced a few steps, then dropped back into his seat and began furiously working a folding fan.
 
-"It's only spring now—it's not that hot, is it?" A fat man, unable to bear his neighbor's gale, spoke up.
+"It's only spring. It can't be *that* hot." A fat man, unable to bear his neighbor's gale, spoke up.
 
-"My heart's hot. Fanning won't cool it down." The fan-wielder looked younger.
+"It's my heart that's burning. Fanning won't cool it." The fan-wielder was younger.
 
-"Hot my ass. Nobody's stopped coming to sell sugar at your place. What're you so anxious about?" The fat man was displeased.
+"Hot, my foot. Nobody's stopped coming to sell sugar at your place. What're you so anxious about?" The fat man sounded annoyed.
 
-"Not now, no. But later?" The one with the fan was the young master of "Rixiecheng." His family's trading house was one of the ten largest on Hai'an Street.
+"Not now, perhaps. But later?" The one with the fan was the young master of "Rixiecheng." His family's trading house ranked among the ten largest on Hai'an Street.
 
-"Probably won't be fewer later either," the fat man said unhurriedly. "If they don't sell to your house, they'll sell to mine. Same price. What's there to fuss about?" The fat man was the manager of "Riyuelai."
+"Probably won't decline later either," the fat man said unhurriedly. "If they don't sell to your house, they'll sell to mine. Same price. What's to fuss about?" He was the manager of "Riyuelai."
 
-"I'm afraid of the South China Sugar Factory!" The young master swallowed. "Haven't you been to see their factory? Seeing it gives you nightmares! Those huge iron rollers—a person would be crushed to pulp if they went in! And that chimney breathing fire by night and smoke by day, like some ghostly tree!"
+"I'm worried about the South China Sugar Factory!" The young master swallowed hard. "Haven't you visited their operation? The sight gives you nightmares! Those massive iron rollers—a man would be crushed to pulp if he went through! And that chimney breathing fire by night and belching smoke by day, like some ghostly tree reaching for the heavens!"
 
-The fat man said, "They make sugar, we sell sugar. What's it to us? Besides, the more sugar they make, the lower the price falls. That's good for us—"
+The fat man waved dismissively. "They make sugar, we sell sugar. What's it to us? Besides, the more sugar they produce, the lower prices fall. That benefits us—"
 
-"If only it were that simple." An elderly man heaved a long sigh. "What if they want to do the sugar trading business too?"
+"If only it were that simple." An elderly man heaved a long sigh. "What if they decide to enter the sugar trading business themselves?"
 
-"That's impossible, isn't it? Different trades, different worlds—"
+"Surely that's impossible? Different trades, different worlds—"
 
-"Hard to say." The old man sighed. "I hear South China's owners all came from Guangzhou. With business this profitable, how could they easily let it go? What if they plan to do the 'foreign trade' business right here?"
+"Hard to say." The old man sighed again. "I hear South China's owners came from Guangzhou. With profits this substantial, why would they simply relinquish them? What if they plan to handle the 'foreign trade' business right here?"
 
-This comment sparked a wave of hushed whispers. At this point, someone called out to the man who had been sitting absolutely still in the center.
+This observation sparked a wave of murmured whispers. At that point, someone called out to the man who had been sitting absolutely motionless in the center of the room.
 
-"Third Master Zhu, you're our backbone. Give us some guidance on this!"
+"Third Master Zhu, you're our backbone. Give us some direction!"
 
-The man called Third Master Zhu was past fifty, short in stature, but with none of the decadent air that came from indulgence in wine, women, and wealth. He emanated an aura of shrewdness and capability. His real name was Zhu An, and he was the third in his family's ranking. Everyone respectfully called him "Third Master Zhu," so much so that his real name was nearly forgotten. His family ran a sugar trading house called "Riyicheng" and owned over a dozen large ships of 200 *liao* or more, specifically for transporting sugar to various destinations. Since sugar was highly profitable and easily converted to cash, there were pirates on the sea who specialized in hijacking sugar ships. Third Master Zhu, as both a local trading house owner and a major ship owner, had organized the trading houses to pool funds and establish the trade guild "Haiyi Guild." They publicly discussed the sugar price each year, then from the profits, each house contributed according to size, a sum used for cultivating relations with officials and entertaining various local strongmen. Additionally, they recruited quite a few deserters from the naval forces at high wages to escort the ships. Since then, incidents of lost sugar shipments had dropped dramatically, and the nearby waters had become much more peaceful. This man was wise and decisive, maintaining good relations in both public and private spheres, with considerable local prestige. He was a leading figure here. The trading houses all followed his lead.
+The man addressed as Third Master Zhu was past fifty, short of stature, yet free of the decadent air that came from overindulgence in wine, women, and wealth. He emanated an aura of shrewd competence. His given name was Zhu An, and he was the third-born in his family. Everyone respectfully called him "Third Master Zhu," so consistently that his real name was nearly forgotten. His family operated a sugar trading house called "Riyicheng" and owned more than a dozen large vessels of 200 *liao* or greater, specifically for transporting sugar to various destinations. Because sugar was highly profitable and easily converted to ready cash, pirates on these waters specialized in hijacking sugar ships. Third Master Zhu, as both a local trading house proprietor and a major ship owner, had organized the trading houses to pool funds and establish the trade guild "Haiyi Guild." Each year they publicly discussed the sugar price, then from the profits, each house contributed according to its size—funds used for cultivating official relationships and entertaining various local strongmen. Additionally, they had recruited at handsome wages quite a few deserters from the naval forces to escort their vessels. Since then, incidents of lost sugar shipments had dropped dramatically, and nearby waters had grown considerably more peaceful. This man was wise and decisive, maintaining excellent relationships in both official and private spheres, with substantial local prestige. He was a leading figure here; the trading houses followed his guidance.
 
-Third Master Zhu hadn't said a word since the start, until someone called on him by name. Only then did he speak. "Guidance? What guidance do I have? They're running a legitimate sugarcane estate and sugar mill business. They're not breaking any laws up above, not disturbing the people down below. On what grounds would we meddle?"
+Third Master Zhu hadn't uttered a word since the gathering began—not until someone addressed him directly. Only then did he speak. "Direction? What direction do I have? They're operating a legitimate sugarcane estate and sugar mill enterprise. They're neither violating laws above nor disturbing the populace below. On what grounds would we interfere?"
 
-Third Master Zhu picked up his teacup and took a sip. "Gentlemen, I know what you're all thinking: you're worried they're wealthy and powerful, that someday they'll push in and harm our interests."
+He picked up his teacup and took a deliberate sip. "Gentlemen, I know what concerns you: you fear they're wealthy and powerful, that someday they'll muscle in and damage our interests."
 
-But someone interjected, "That's not what worries me. I keep feeling there's something wrong with the South China Factory's sugar!" His face was full of patriotic concern. "Right now, probably more than half the cane farmers in the whole county are having them process their sugar. The same goes for farmers coming from Haikang and Suixi. If there's some trickery going on, if it ruins Leizhou sugar's reputation, none of us will be able to make a living!"
+But someone interjected, "That's not what worries me most. I keep sensing something fundamentally wrong with South China Factory's sugar!" His face was the picture of patriotic concern. "Right now, probably more than half the cane farmers in the entire county are having their sugar processed there. The same goes for farmers arriving from Haikang and Suixi. If there's trickery involved—if it ruins Leizhou sugar's reputation—none of us will be able to make a living!"
 
-"Exactly!" The young master of Rixiecheng perked up. "Their sugar definitely has something fishy about it! I've been to sugar mills. There's only so much sugar an acre of cane can yield. After accounting for the master's skill level, the total can only be less, never more. How come their place produces more? And so much more? It's either adulteration or sorcery!"
+"Precisely!" The young master of Rixiecheng perked up. "Their sugar is definitely suspicious! I've visited sugar mills. There's only so much sugar an acre of cane can yield. After accounting for the master's skill level, the total can only fall short, never exceed. How does their operation produce *more*? And so much more? It's either adulteration or sorcery!"
 
-The word "sorcery" gave everyone a start. Come to think of it, those huge iron rollers spinning rapidly without a single ox in sight did seem a bit uncanny. After a long pause, the fat manager from Riyuelai finally said, "That can't be right. What kind of sorcery would do that?"
+The word "sorcery" gave everyone a start. When they thought about it, those enormous iron rollers spinning rapidly without a single ox in sight did seem rather uncanny. After a long pause, the fat manager from Riyuelai finally said, "That can't be right. What kind of sorcery would accomplish that?"
 
-"If not sorcery, how does this sugar appear out of thin air?"
+"If not sorcery, where does this extra sugar come from?"
 
-"How would I know! If there were such sorcery, I'd want to learn it too!"
+"How should I know? If such sorcery existed, I'd want to learn it myself!"
 
-Third Master Zhu silenced the chatter, asking only, "Gentlemen, has the sugar you've been buying lately been inspected?"
+Third Master Zhu silenced the chatter with a hand. "Gentlemen, has the sugar you've been purchasing lately been properly inspected?"
 
-Everyone said it had been, and nothing unusual was found. Because this was the South China Factory's first year producing sugar, they'd specifically instructed their workers that any sugar said to be from the South China Factory was to be carefully examined. The results had left them dumbfounded: the earlier batches were quite ordinary, but over the past half-month, South China's sugar had been far superior to all other rustic mills—especially in terms of purity, it was a world apart. It contained no impurities whatsoever.
+Everyone confirmed it had, and nothing unusual was found. Because this was South China Factory's first year of production, they'd specifically instructed their workers: any sugar purportedly from South China Factory was to be examined with extra care. The results had left them dumbfounded. The earlier batches were quite ordinary, but over the past fortnight, South China's output had proven far superior to every other small-scale mill—especially in purity, which was in a league of its own. It contained no impurities whatsoever.
 
-After hearing everyone's reports, Third Master Zhu sat in thought for a while without speaking. When he saw everyone watching him, he finally said, "How the South China Factory makes sugar—that's not our business, and we don't need to worry about it. I've made inquiries in the county: they own nearly three thousand *mu* of cane fields in Xuwen and Haikang alone. Add in all the toll processing they're getting a cut from—they've got to have at least ten or twenty thousand *shi* of stock by now." He changed tack. "So how come they haven't sold any?"
+After hearing all the reports, Third Master Zhu sat in contemplative silence. When he noticed everyone watching him, he finally spoke. "How South China Factory produces their sugar isn't our concern, and we needn't worry about it. I've made inquiries in the county: they own nearly three thousand *mu* of cane fields in Xuwen and Haikang alone. Adding all the toll processing fees they're collecting—they must have at least ten or twenty thousand *shi* of stock by now." He shifted tack. "So why haven't they sold any?"
 
-"Yes, we've been wondering about that too!" Everyone chimed in. It was obvious even to a blind man that South China Factory was going to be a major stockholder of sugar. Each trading house had sent their "traveling managers" to pay courtesy calls, hoping to probe their intentions for this big deal. To their surprise, the other side was very polite in their refusals—not the slightest indication they planned to sell.
+"Yes, we've been wondering that too!" everyone chimed in. It was obvious even to a blind man that South China Factory was going to be a major sugar stockholder. Each trading house had dispatched their "traveling managers" to pay courtesy calls, hoping to probe their intentions for this substantial deal. To their surprise, the other side had declined with impeccable politeness—offering not the slightest hint they planned to sell.
 
-"The sugar from their other mills is also being shipped to South China. It looks like they have no intention of selling. Seems more like they're stockpiling to export themselves."
+"The sugar from their other mills is also being shipped to South China. It appears they have no intention of selling locally. More likely they're stockpiling to export themselves."
 
-"They do have big ships. They might really do it."
+"They do possess large ships. They might genuinely do it."
 
 "Hard to say..."
 
-Just as they were discussing this, a servant suddenly ran in and whispered something in Third Master Zhu's ear. Third Master Zhu's face immediately changed. He asked quietly, "Really?!"
+Just as they were debating this, a servant suddenly rushed in and whispered something in Third Master Zhu's ear. His expression changed immediately. "Are you certain?" he asked quietly.
 
-"For certain. It's the talk of the county. The shop is almost finished—it's only a matter of days until they open." Though the servant spoke softly, those nearby caught some of it.
+"Absolutely. It's the talk of the county. The shop is nearly finished—only a matter of days until they open." Though the servant spoke softly, those nearby caught fragments.
 
-"What? Is it..."
+"What? Is it—"
 
-Third Master Zhu's face was dark. "Just as you guessed—South China Factory is opening for purchasing in a few days!"
+Third Master Zhu's face was dark. "Just as you feared—South China Factory opens for purchasing in a few days!"
 
-This news was like cold water splashed into a pot of hot oil. The formerly lifeless hall instantly boiled over.
+The news was like cold water splashed into a pot of hot oil. The formerly listless hall instantly erupted.
 
-"What is this! This is outrageous."
+"What is this! This is outrageous!"
 
-"They want to eat from our bowl, but they didn't even have the courtesy to come say hello. What kind of lawless people are in that South China Factory!"
+"They want to eat from our bowl, yet they didn't even have the courtesy to pay their respects first. What lawless scoundrels run that South China Factory!"
 
-"Third Master Zhu, this won't do! For decades, all the sugar in Leizhou has been handled exclusively by the twenty-one houses of the Haiyi Guild. If we let them break the rules, how will we survive here in the future?!"
+"Third Master Zhu, this cannot stand! For decades, all the sugar in Leizhou has been handled exclusively by the twenty-one houses of the Haiyi Guild. If we let them break the rules, how will any of us survive here in the future?!"
 
-"That's right, Third Master, say the word. Our twenty-one trading houses will spare no money or effort. We absolutely cannot let this South China Factory upset our situation!"
+"That's right, Third Master—say the word. Our twenty-one trading houses will spare neither money nor effort. We absolutely cannot allow South China Factory to upset our arrangements!"
 
-The young master of Rixiecheng fanned himself lightly, looking smug. "No need to trouble Third Master. I have a scheme that'll surely hurt them badly."
+The young master of Rixiecheng fanned himself languidly, looking smug. "No need to trouble Third Master. I have a scheme that'll surely hurt them badly."
 
 "What scheme?"
 
-"Hmph. Find a few roadside corpses and dump them at their gate in the middle of the night. Make arrangements with Constables Li and Chen at the *yamen*—have them waiting at first light. If they don't report it, arrest them right there for 'concealing a corpse.' If they do report it, drag the managers inside anyway. Once they're in the *yamen*, grease a few palms and make sure they have a rough time inside..."
+"Hmph. Find a few roadside corpses and dump them at their gate in the middle of the night. Arrange things with Constables Li and Chen at the *yamen*—have them waiting at first light. If South China doesn't report it, arrest them on the spot for 'concealing a corpse.' If they do report it, drag the managers in anyway. Once they're inside the *yamen*, grease a few palms and make sure they have a... memorable experience."
 
-"Keep your half-baked ideas to yourself!" Third Master Zhu snapped. "You think they came here empty-handed? Can you get a calling card from the aide of the Viceroy of Liangguang? When they pull that card out, never mind the county magistrate—even the prefect would have to escort them out politely."
+"Keep your half-baked schemes to yourself!" Third Master Zhu snapped. "You think they arrived here empty-handed? Can *you* obtain a calling card from the aide of the Viceroy of Liangguang? The moment they produce that card, never mind the county magistrate—even the prefect would have to escort them out with bows and courtesies."
 
-The crowd deflated somewhat. As the saying went, a wise man doesn't fight power. Ordinary people, unless pushed to rebellion, feared officials above all else, no matter what trade they were in. Wealthy men were no exception. Learning that the other side had connections in the Viceroy's office, their hearts already sank several degrees. The eager fighting spirit that had been rising cooled considerably.
+The crowd deflated somewhat. As the saying went, a wise man doesn't fight power. Ordinary people, unless driven to rebellion, feared officials above all else—regardless of their trade. Wealthy men were no exception. Learning that their adversary had connections in the Viceroy's office, hearts sank by several degrees. The eager fighting spirit that had been building cooled considerably.
 
-"What's more, making trouble like that would mean open war with South China Factory! Do you know what other backing they have?" Third Master Zhu said. "Just those iron rollers alone—that's not something an ordinary big household could afford to install."
+"Furthermore, making trouble like that would mean open warfare with South China Factory! Do you even know what other backing they possess?" Third Master Zhu continued. "Those iron rollers alone—no ordinary great household could afford to install such equipment."
 
-All eyes turned to Third Master Zhu, knowing he had a plan in mind.
+All eyes turned to Third Master Zhu, knowing he had something in mind.
 
-Third Master Zhu smiled. "In this matter, we can only use soft tactics, not hard ones. The way I see it, we should first find out exactly what we're dealing with: where they come from, who their master is, what exactly is the relationship with the aide at the Viceroy's office. We need to understand everything clearly."
+Third Master Zhu allowed himself a thin smile. "In this matter, we can only employ soft tactics, not hard ones. The way I see it, we must first ascertain exactly who we're dealing with: where they come from, who their master is, what precisely their relationship with the Viceroy's aide entails. We need to understand everything thoroughly."
 
-"Third Master is right!" The fat manager from Riyuelai slapped the table. "If their power is greater, we play soft. If their power is lesser, we play hard. Isn't that right, Third Master?"
+"Third Master is right!" The fat manager from Riyuelai slapped the table. "If their power is greater, we respond with flexibility. If their power is lesser, we apply force. Isn't that the idea, Third Master?"
 
 "More or less," Third Master Zhu said vaguely. "Know your enemy, know yourself."
 

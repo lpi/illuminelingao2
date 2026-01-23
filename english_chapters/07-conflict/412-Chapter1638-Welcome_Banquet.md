@@ -1,89 +1,89 @@
 # Chapter 1638 - Welcome Banquet
 
-Seeing that everyone was somewhat skeptical, Huang Binkun roughly described the various measures taken in Lingao since the Australians arrived: road construction, bandit suppression, water conservancy projects, clarifying land tax measurements... He rambled on about many things. The listeners were entranced.
+Seeing the skepticism around the table, Huang Binkun described the various measures implemented in Lingao since the Australians' arrival: road construction, bandit suppression, water conservancy projects, the clarification of land tax measurements... He rambled through many initiatives. His listeners hung on every word.
 
-After a long while, Liang Cunhou finally let out a breath. "Putting it this way, the Australians seem like capable ministers of a well-governed world."
+After a long while, Liang Cunhou finally exhaled. "Put that way, the Australians sound like capable ministers presiding over a well-governed realm."
 
-Huang Binkun fell silent. He had inadvertently said many good things about the hair-bandits—which even he hadn't expected. *How am I supposed to contact loyal and righteous men like this?* However, he was unwilling to tell lies to indiscriminately disparage the hair-bandits' actual accomplishments.
+Huang Binkun fell silent. He had inadvertently spoken at length in favor of the Hair-bandits—something he himself had not anticipated. *How am I supposed to make contact with loyal and righteous men this way?* Yet he remained unwilling to tell lies and indiscriminately disparage the Hair-bandits' genuine accomplishments.
 
-"The Australians truly have a new atmosphere!" someone clapped and praised.
+"The Australians truly bring a new atmosphere!" someone exclaimed, clapping in praise.
 
-"Brother Huang must also be serving the Australians. Otherwise, how could you know so clearly?"
+"Brother Huang must also be in the Australians' service. Otherwise, how could you know so much?"
 
-"Learning literary and martial arts, selling to the imperial family. Brother Huang is full of learning—just right to teach the Australians to understand the principles within."
+"Learning literary and martial arts only to sell them to the imperial family—Brother Huang is full of learning. Just the man to teach the Australians to understand the principles contained within."
 
-"Heard that there are very few scholars among the Australians. 'Since ancient times, one can conquer the world on horseback but cannot govern the world on horseback.' It's natural for Brother Huang to be reused..."
+"I've heard there are very few scholars among the Australians. 'Since ancient times, one can conquer the world on horseback, but cannot govern it on horseback.' It's only natural for Brother Huang to be valued..."
 
-Although they said "Brother Huang," in their hearts they all meant "myself."
+Though they addressed "Brother Huang," in their hearts they all meant "myself."
 
-Most of these scholars had small family properties, no way to enter officialdom, wrote average essays, and had bleak prospects for passing the imperial exams. Although they lived in the south, their news channels were much more informed than ordinary people. Seeing the court ineffective in suppressing disturbances in Shaanxi and Shandong, bandits everywhere in the interior, Eastern Tartars knocking at the borders beyond the pass... internal trouble and external aggression. Their desire for fame and fortune had faded considerably. The power of the Australians occupying Qiongzhou was just expanding—they had financial power and military power, offering a vague temptation to this group of people who couldn't see a future.
+Most of these scholars possessed modest family properties, lacked avenues into officialdom, wrote mediocre essays, and faced bleak prospects for passing the imperial examinations. Though they resided in the south, their channels for news far exceeded those of ordinary folk. They observed the court's ineffectual suppression of disturbances in Shaanxi and Shandong, bandits running rampant throughout the interior, Eastern Tartars hammering at the borders beyond the passes... internal troubles and external threats pressing from all sides. Their ambitions for fame and glory had dimmed considerably. The Australians occupying Qiongzhou were still expanding their power—they possessed both financial and military might, presenting a vague temptation to this group of men who could see no future for themselves.
 
-Those with some meager family property just hoped to connect with the Australians like Master Gao, selling Australian goods to get rich. Those who were ambitious but penniless secretly hoped to join the dragon early and earn themselves immense wealth and honor.
+Those with some meager family assets simply hoped to establish connections with the Australians as Master Gao had done, trading Australian goods to grow rich. Those who were ambitious yet penniless secretly dreamed of joining the dragon early and earning themselves immense wealth and honor.
 
-It was just that they had absolutely no chance to talk to the Australians. Although there was a large Australian commercial port right outside the city gate of Guangzhou, the people busy inside were all local commoners. Moreover, Young Master Liang had said: In the dignified Great World, there were basically no True Hair-Bandits. All were their subordinates.
+The only problem was that they had absolutely no opportunity to speak with the Australians. Though a sprawling Australian commercial port stood right outside Guangzhou's city gates, the people bustling within were all local commoners. Moreover, as Young Master Liang had observed: in the dignified Great World, there were essentially no True Hair-Bandits—only their subordinates.
 
-Among these people, if anyone could speak to "suspected True Hair-Bandits," it was only Young Master Liang. The Liang family had close associations with Manager Guo, and the largest local charity hall was jointly run by them. However, in recent years, the Liang family hadn't had deeper interactions with Manager Guo, seemingly deliberately keeping a distance. And with Young Master Liang's personality, asking him to build bridges for everyone was quite difficult.
+Among those present, if anyone could converse with "suspected True Hair-Bandits," it was only Young Master Liang. The Liang family maintained close associations with Manager Guo, and the largest local charity hall was jointly operated by them. In recent years, however, the Liang family had refrained from deeper interactions with Manager Guo, seemingly keeping a deliberate distance. And given Young Master Liang's temperament, asking him to build bridges for everyone would prove rather difficult.
 
-Now that a Scholar Huang familiar with the "Hair-Bandit Situation" had arrived, everyone naturally treated him like a treasure. One by one, they desperately beat around the bush asking questions.
+Now that a Scholar Huang intimately familiar with the "Hair-Bandit Situation" had arrived, everyone naturally treated him like a treasure. One after another, they desperately beat around the bush with their questions.
 
-Huang Binkun laughed bitterly in secret. *What disciples of sages are these? Everyone is a profit-seeking fellow! The Great Ming hasn't fallen yet, and they're already thinking about becoming ministers who follow the dragon!*
+Huang Binkun laughed bitterly to himself. *What disciples of sages are these? Every last one is a profit-chasing fellow! The Great Ming hasn't even fallen, and already they dream of becoming ministers who follow the dragon!*
 
-"Although they are capable ministers of a well-governed world, they all have the style of harsh officials," Huang Binkun tried to switch to the topic of blackening the hair-bandits. "The laws are enforced strictly. The common people get blamed for every move. Even the gentry and scholars cannot be exempted..." As he spoke, he talked about the hair-bandits' various "misdeeds": being grabbed for hard labor for urinating anywhere, getting whipped for spitting... Of course, the most heinous crime was not giving preferential treatment to scholars. Not only did they merge the poll tax into the land tax, but they also wrote off the exemption from grain tax in one stroke.
+"Though they may be capable ministers of a well-governed realm, they all possess the manner of harsh officials," Huang Binkun attempted to steer the conversation toward vilifying the Hair-bandits. "Their laws are enforced strictly. The common people are faulted for every minor infraction. Even the gentry and scholars enjoy no exemption..." As he spoke, he recounted the Hair-bandits' various "misdeeds": being seized for hard labor for urinating anywhere, receiving lashes for spitting... And of course, the most heinous offense was their refusal to grant scholars preferential treatment. Not only had they merged the poll tax into the land tax, but they had erased tax exemptions entirely in a single stroke.
 
-Saying this did weaken the atmosphere of "Lingao is a paradise on earth" by a few degrees. If nothing else, this "refusal to treat scholars preferentially" cooled down the enthusiasm of this group of scholars.
+This did dampen the atmosphere of "Lingao as paradise on earth" by a few degrees. If nothing else, this "refusal to treat scholars preferentially" cooled the enthusiasm of the assembled scholars considerably.
 
-"As the saying goes, governing a large country is like cooking a small fish. With the hair-bandits acting like this, I'm afraid it won't last long. The lesson of Qin is not far behind!" a scholar sighed.
+"As the saying goes, governing a great nation is like cooking a small fish. With the Hair-bandits acting thus, I fear it will not last long. The lesson of Qin is not far behind!" one scholar sighed.
 
-Huang Binkun was about to agree when Lin Zunxiu frowned and said: "If the laws are so harsh, wouldn't the people of Lingao have no way to live? How can it be said they live and work in peace and contentment?"
+Huang Binkun was about to voice agreement when Lin Zunxiu frowned and said: "If the laws are so harsh, how would the people of Lingao survive? How could they possibly be living and working in peace and contentment?"
 
-"Qin's collapse was not due to harsh laws, but the abuse of the people's strength!" said one of the scholars. "The Qin laws were severe starting from Shang Yang's reforms. Why didn't the country perish then, but instead eventually unified the six states? This shows harsh laws are not the root of chaos!"
+"Qin's collapse stemmed not from harsh laws, but from the abuse of the people's labor!" another scholar interjected. "Qin's laws were severe from the time of Shang Yang's reforms. Why did the state not perish then, but instead go on to unify the six kingdoms? This proves harsh laws themselves are not the root of chaos!"
 
-This scholar looked very young, his clothes shabby, appearing quite conspicuous among this group of *xiucai*. "I think the reason Australians have achieved such success lies precisely in the benefits of severe laws and harsh punishments. Leaving aside other things—regarding the various abuses in taxation, could the Australians have eliminated them without severe laws and harsh punishments?"
+This scholar appeared quite young, his clothes shabby—rather conspicuous among this group of *xiucai*. "I believe the Australians' success lies precisely in the benefits of severe laws and harsh punishments. Setting aside everything else—regarding the various abuses in taxation, could the Australians have eliminated them without severe laws and harsh punishments?"
 
-"This is Wu Ming," Scholar Shi whispered. "He, well, isn't even a *xiucai*..." There was a bit of disdain in his words. "But his insight isn't bad. Just likes to make shocking statements."
+"This is Wu Ming," Scholar Shi whispered. "He's, well, not even a *xiucai*..." There was a note of disdain in his voice. "But his insight isn't bad. He simply enjoys making provocative statements."
 
-"Can't put it that way... Although abuses are rampant in taxation, the grain-tax households and gentry are the foundation of the court. Actions like the Australians' as described by Brother Huang—I'm afraid it will chill people's hearts." Someone was worried.
+"One cannot put it that way... Though abuses are indeed rampant in taxation, the grain-tax households and gentry form the foundation of the court. Actions like those Brother Huang describes—I fear they will chill people's hearts." Someone voiced concern.
 
-Then several people argued for a while. It seemed there were quite a few who approved of the hair-bandits' "severe laws and harsh punishments"—they were mostly from urban industrial and commercial families, having no vital interests in land tax but attaching great importance to social order. They greatly appreciated the Australians' various practices.
+The debate continued for a while. It seemed quite a few approved of the Hair-bandits' "severe laws and harsh punishments"—mostly those from urban industrial and commercial families who had no vital interests in land taxation but placed great importance on social order. They greatly appreciated the Australians' various practices.
 
-"Just take the fact that a few years ago the Australians passed troops under Guangzhou City and wiped out so many bandits. The four suburbs have been peaceful since. This is a tremendous benefit."
+"Consider only that a few years ago the Australians marched troops past Guangzhou City and wiped out so many bandits. The four suburbs have been peaceful ever since. That alone is a tremendous benefit."
 
-Huang Binkun secretly frowned. He stole a glance and saw that Lin and Liang didn't mind the increasingly "Ming traitor" remarks, so he just responded casually a few times. Aside from silently chanting "merchants are cold-blooded," he talked about Lingao's local customs—things like big iron ships, small trains, even the appearance of Fangcaodi School, students' strange clothes. This caused the others at the table to click their tongues in wonder.
+Huang Binkun frowned inwardly. Stealing a glance, he noted that Lin and Liang showed no objection to the increasingly "Ming traitor" remarks, so he merely offered casual responses. Beyond silently chanting "merchants are cold-blooded," he discussed Lingao's local customs—iron ships and small trains, even the appearance of Fangcaodi School and the students' strange clothing. This provoked the others at the table to click their tongues in wonder.
 
-After the second round of wine was served, Lin Zunxiu finally sighed and said faintly: "Sigh, Young Master Huang. Now national affairs are difficult, and refugees are rising everywhere. Sometimes, I actually want to sell this restaurant and, like the Australians, open a big, big factory. Hire these refugees. Upwards I can repay Heaven's favor, downwards benefit the common people."
+After the second round of wine was served, Lin Zunxiu finally sighed and said wistfully: "Alas, Young Master Huang. National affairs have grown difficult these days, with refugees rising everywhere. Sometimes I actually want to sell this restaurant and, like the Australians, open a vast, enormous factory. Hire these refugees. Upward I could repay Heaven's grace; downward I could benefit the common people."
 
-Huang Binkun pretended to nod seriously, putting on a look of deep agreement. But in his heart he understood that these scholars had already been influenced by the hair-bandits. He wondered if there were still any clear-eyed people in this County School who could see through the hair-bandits' treacherousness.
+Huang Binkun pretended to nod solemnly, putting on a look of profound agreement. But in his heart, he understood that these scholars had already fallen under the Hair-bandits' influence. He wondered whether any clear-sighted individuals remained in this County School who could perceive the Hair-bandits' treacherous designs.
 
-Just as everyone was pondering, the cook's voice rang out: "Third round, Dragon and Tiger Fight!" Accompanied by the announcement, suddenly a miserable female voice came in from outside: "Master, please show some mercy—the child hasn't eaten for days, Master—"
+Just as everyone sat pondering, the cook's voice rang out: "Third course—Dragon and Tiger Fight!" With the announcement came a wretched female voice from outside: "Master, please show some mercy—the child hasn't eaten in days, Master—"
 
-Hearing the commotion, everyone walked to the corridor to look out. They saw a disheveled woman leading a five or six-year-old girl, bowing and begging for food everywhere in the outer hall. Diners either ignored her, pretended not to see, or scolded the waiter angrily. Several shop assistants were dragging this madwoman-like woman, pulling desperately outward. But she just wouldn't be dragged out. Everyone heard only the woman's frantic crying and screaming.
+Hearing the commotion, everyone walked to the corridor to look. They saw a disheveled woman leading a five or six-year-old girl, bowing and begging for food throughout the outer hall. Diners either ignored her, feigned blindness, or angrily berated the waiters. Several shop assistants dragged the madwoman-like figure, desperately pulling her toward the exit. But she would not be moved. All could hear only the woman's frantic wailing and screaming.
 
-Seeing this, Lin Zunxiu just snorted, flicked his sleeves, and sat back in his seat. Seeing the host return to the table, Huang Binkun followed. The group of scholars sighed for a while and also returned to their seats one after another. Only the chubby Young Master Shi took his own bowl, picked several large pieces of meat to press onto the rice, and went out of the private room carrying the bowl.
+Witnessing this, Lin Zunxiu merely snorted, flicked his sleeves, and returned to his seat. Seeing the host resume his place, Huang Binkun followed. The scholars sighed for a moment before returning to their seats one by one. Only the portly Young Master Shi took his own bowl, heaped several large pieces of meat onto the rice, and went out of the private room carrying it.
 
-Everyone sat in silence. Huang Binkun wanted to say something but stammered and couldn't speak.
+Everyone sat in silence. Huang Binkun wanted to say something but stammered and could not find the words.
 
-After a while, Scholar Shi walked back slowly. "Sigh, truly miserable, truly miserable. Man of the house died, kicked out by the brother-in-law, hasn't eaten for days. Show some mercy. I let the mother and daughter eat their fill and sent people to take them to Manager Guo's charity hall." He rambled on, but no one at the table answered him.
+After a while, Scholar Shi returned slowly. "Ah, truly pitiful, truly pitiful. Husband died, cast out by her brother-in-law, hasn't eaten in days. Have some mercy. I let the mother and daughter eat their fill and sent people to escort them to Manager Guo's charity hall." He rambled on, but no one at the table responded.
 
-Scholar Lin said: "You save them for a moment but can't save them for a lifetime. This bit of misery counts as miserable? There are hundreds of times more miserable people in Nanhai County alone! You might as well go see how many road corpses the charity hall collected today for the crematorium. Even if you save these, there are thousands upon thousands of poor people in the eighteen provinces under heaven—can you save them all? People are eating human flesh in the Central Plains. In the end, they all become roving bandits, coming to find us for food with knives and spears. I think we might as well close our eyes and just eat. Muddle through wherever we can, save the trouble of worrying about the country and people in vain!"
+Scholar Lin said: "You save them for a moment but cannot save them for a lifetime. This bit of misery counts as miserable? There are hundreds of times more wretched souls in Nanhai County alone! You might as well go see how many road corpses the charity hall collected today for the crematorium. Even if you save these two, there are thousands upon thousands of destitute across the eighteen provinces under heaven—can you save them all? People are eating human flesh in the Central Plains. In the end, they'll all become roving bandits, coming to find us for food with knives and spears. I say we might as well close our eyes and simply eat. Muddle through wherever we can—spare ourselves the trouble of worrying about the country and people to no avail!"
 
-Once Lin Zunxiu's words came out, Huang Binkun saw the faces of all the scholars present turn white. The newly served Dragon and Tiger Fight was emitting fragrance, but not a single person was in the mood to move their chopsticks.
+Once Lin Zunxiu's words landed, Huang Binkun watched the faces of all the scholars present turn pale. The freshly served Dragon and Tiger Fight steamed fragrantly, yet not a single person moved to lift their chopsticks.
 
-"Sigh, if I could open a big, big factory—a big cannon factory—not only would I make money and quell the chaos in the world, but the hired poor people would also have food to eat." Lin Zunxiu said leisurely.
+"Ah, if only I could open a vast, enormous factory—a cannon factory—not only would I make money and help quell the chaos in the realm, but the poor people I hired would also have food to eat." Lin Zunxiu mused aloud.
 
-Huang Binkun raised the wine in his cup. "Nowadays roving bandits are rising everywhere and Eastern Tartars are a scourge. Young Master Lin worries about national affairs and the court. I toast Young Master a cup."
+Huang Binkun raised the wine in his cup. "These days roving bandits rise everywhere and the Eastern Tartars are a scourge. Young Master Lin's concern for national affairs and the court is admirable. I toast you a cup."
 
-"Hehe, the court?" Lin Zunxiu laughed. "If I built the cannon factory, whether the Emperor or the officials, they should pay back the city redemption fees, happy donations, and happy contributions they owe me, right?"
+"Hah, the court?" Lin Zunxiu laughed. "If I built that cannon factory, whether the Emperor or his officials, they should repay the city redemption fees, the happy donations, and the happy contributions they owe me, shouldn't they?"
 
-As soon as these words came out, everyone at the table laughed, and the atmosphere gradually became lively.
+At this, the entire table burst into laughter, and the atmosphere gradually grew lively.
 
-"Of course, my family doesn't have the money to open a cannon factory either. Hehe, selling these few restaurants wouldn't be enough." Young Master Lin said dejectedly.
+"Of course, my family doesn't have the money to open a cannon factory either. Haha, selling these few restaurants wouldn't begin to cover the cost." Young Master Lin said dejectedly.
 
-"Come, come, come—eat, eat. Dragon and Tiger Fight." The atmosphere at the wine table became lively again. The scholars gradually opened their hearts and mouths. This one talked about how many *shi* of grain his family happily contributed back then; that one said that's nothing, our old man almost hanged himself raising the city redemption fee—fortunately, Master Gao acted quite decently and managed to get it all back the next year. Otherwise, the salt tickets in hand would have become a pile of waste paper.
+"Come, come, come—eat, eat. Dragon and Tiger Fight." The atmosphere at the table revived. The scholars gradually opened their hearts and mouths. One spoke of how many *shi* of grain his family had happily contributed back in the day; another claimed that was nothing—their old man nearly hanged himself raising the city redemption fee. Fortunately, Master Gao acted rather decently and managed to return it all the following year. Otherwise, the salt tickets in hand would have become a pile of worthless paper.
 
-"Gao Ju, decent my ass!" Speaking of Gao Ju, someone else complained, saying that when the Purple Treasure Studio issued shares a few years ago, it was Gao Ju who created obstacles, so his family couldn't buy even though they wanted to buy more. When wanting to visit Manager Guo, it was also Gao Ju who slandered them and had people block them outside the door.
+"Gao Ju, decent my ass!" At the mention of Gao Ju, someone else chimed in with complaints—when the Purple Treasure Studio issued shares a few years back, it was Gao Ju who created obstacles, preventing his family from buying more even when they wanted to. When they sought to visit Manager Guo, it was again Gao Ju who slandered them and had people block them at the door.
 
-Various wine-table stories flew about, making Huang Binkun feel somewhat annoyed with the chaos. But the scholars present were very curious about the Australians' affairs and insisted he speak, so he had to pick some novel things—like hair-bandits building buildings and farming—to talk about.
+Various wine-table tales flew about, making Huang Binkun feel somewhat overwhelmed by the chaos. But the scholars present remained intensely curious about Australian affairs and insisted he speak, so he was obliged to select some novel subjects—like Hair-bandits constructing buildings and farming—to discuss.
 
-On the contrary, Young Master Liang, though he didn't say much, seemed to Huang Binkun to have been paying attention to him all along.
+Conversely, Young Master Liang, though he said little, seemed to Huang Binkun to have been observing him throughout the evening.
 
 **(End of Chapter)**

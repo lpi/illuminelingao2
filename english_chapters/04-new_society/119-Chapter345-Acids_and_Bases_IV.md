@@ -1,109 +1,117 @@
 # Chapter 345 - Acids and Bases (IV)
 
-Xu Yingjie said, "Not exactly. We call it electrolyte; the caustic soda content inside is less than 10%, and there are many impurities, needing further separation treatment."
+"Not exactly," Xu Yingjie replied. "We call it electrolyte. The caustic soda content is less than ten percent, and it contains substantial impurities. Further separation treatment is required."
 
-"Pay attention, chlorine gas!" Ji Situi patted Xu Yingjie's shoulder.
+"Careful—chlorine gas!" Ji Situi clapped Xu Yingjie's shoulder.
 
-"What, what." Bai Yu wanted to lean over to look.
+"What? What is it?" Bai Yu started to lean forward.
 
-"Careful, don't move around." Xu Yingjie was a bit excited. What he was thinking about wasn't that chlorine could disinfect, purify the environment, or be used to make hydrochloric acid, but "Poison Gas."
+"Don't move!" Xu Yingjie's voice carried a note of excitement. His mind wasn't on chlorine's uses for disinfection, environmental purification, or hydrochloric acid production. He was thinking: *Poison gas.*
 
-Although chlorine was common, it was the first poison gas put into combat in the history of modern warfare. During WWI, its battle results were remarkable, with countless souls lost to it. Moreover, chlorine was easy to produce and could act as a super weapon in this space-time. Whether Manchu White Bayara, Guanning Iron Cavalry, Gokenin, or Cromwell's Ironsides, encountering it meant only one thing: "Death."
+Chlorine was common enough, but it had been the first poison gas deployed in modern warfare. During the Great War, its battlefield results had been devastating—countless souls lost to its yellow-green embrace. Better still, chlorine was easy to produce. It could serve as a superweapon in this timeline. Whether Manchu White Banner cavalry, Guanning Iron Horse, Japanese Gokenin, or Cromwell's Ironsides—none of them could withstand it. Encountering chlorine meant only one thing: death.
 
-Currently, the transmigrators' industry couldn't manufacture gas pressure vessels yet, so storing chlorine was impossible. But Xu Yingjie knew there were many perverts in the Weapon Research Group; maybe they could come up with some wicked ideas.
+Currently, the transmigrators' industry couldn't manufacture pressurized vessels, so chlorine storage remained impossible. But Xu Yingjie knew the Weapon Research Group harbored its share of creative minds. Perhaps they could devise something suitably wicked.
 
-This yellow-green gas rose inside the glass tube, and the transmigrators present all held their breath. At this time, a small fan blade installed in another glass tube also suddenly started to rotate, indicating that another colorless electrolysis product had also come out—hydrogen.
+The yellow-green gas rose through the glass tube, and every transmigrator present held their breath. Meanwhile, a small fan blade in another glass tube began to spin—indicating that a second, colorless electrolysis product was also emerging. Hydrogen.
 
-"Everyone pay attention." Ji Situi began safety education for the workers: "This yellow gas is called chlorine. It is poisonous..."
+"Everyone listen carefully." Ji Situi began safety instruction for the workers. "This yellow gas is chlorine. It's poisonous..."
 
-Watching Ji Situi explain to a group of indigenous workers who seemed to understand but not really understand what chlorine was, what hydrogen was, and how to prevent poisoning and explosion, Bai Yu thought to himself that he would never come to this chemical plant again—too dangerous.
+Watching Ji Situi explain chlorine, hydrogen, poisoning prevention, and explosion risks to a cluster of only-partially-comprehending indigenous workers, Bai Yu silently vowed never to set foot in this chemical plant again. Too dangerous.
 
-The produced hydrogen was transported to the only modern device in this set of equipment: the Hydrochloric Acid Reactor. Hydrogen was fed into the reactor to burn, then chlorine was introduced to generate hydrogen chloride gas. After cooling, it was absorbed by water to become hydrochloric acid.
+The produced hydrogen was routed to the only modern device in the entire system: the Hydrochloric Acid Reactor. Hydrogen was fed into the reactor and ignited, then chlorine was introduced. The reaction generated hydrogen chloride gas, which was cooled, absorbed in water, and collected as hydrochloric acid.
 
-This reaction was extremely dangerous. Too high a content of chlorine in hydrogen would directly cause an explosion. The solution was to strictly control the intake of chlorine during the reaction process, surrounding the toxic chlorine with excess hydrogen, allowing the chlorine to react fully, preventing pollution to the air and possible mixed explosions.
+The reaction was extraordinarily dangerous. If the chlorine content in the hydrogen grew too high, the mixture would explode. The solution lay in rigorous control of chlorine intake during the reaction—surrounding the toxic chlorine with excess hydrogen, ensuring complete chlorine reaction while preventing both air contamination and explosive mixtures.
 
-Because of the great danger, Ji Situi never considered indigenous equipment from the beginning but directly purchased equipment from the modern timeline to bring over.
+Given the extreme hazard, Ji Situi had never considered indigenous equipment for this step. The reactor was purchased directly from the modern timeline.
 
-Making hydrochloric acid could only consume part of the chlorine. The rest was passed into a small reaction tower on the side. The reaction tower was layered and filled with dried slaked lime. Chlorine was absorbed by slaked lime to generate calcium hypochlorite—it had a name more familiar to everyone: Bleaching Powder.
+Hydrochloric acid production consumed only a portion of the chlorine. The remainder was piped to a small reaction tower nearby. Layered with dried slaked lime, the tower absorbed chlorine to produce calcium hypochlorite—more commonly known as bleaching powder.
 
-As the most common effective disinfectant, the successful mass production of bleaching powder meant that the Transmigration Group reached a new peak in disease prevention and epidemic control, having great significance for the Transmigration Group's base on both banks of the Wenlan River where the population was extremely dense. When the army launched expeditions, there was no need to worry about the hygiene of drinking water along the way anymore.
+As the most widely available effective disinfectant, mass production of bleaching powder marked a new peak in the Transmigration Group's epidemic prevention capabilities. For the densely populated settlements along both banks of the Wenlan River, this was transformative. And when the army launched expeditions, commanders would no longer need to worry about water sanitation along the march route.
 
-Slaked lime absorbing chlorine was difficult to complete fully; the waste gas would more or less take away some chlorine. To better utilize chlorine and simultaneously improve the air environment, a final waste gas absorption process was generally adopted.
+Complete absorption of chlorine by slaked lime was difficult to achieve; waste gas inevitably carried some chlorine away. To maximize chlorine utilization and improve air quality, a final waste gas absorption process was implemented.
 
-The waste gas discharged from the absorption tower was connected by a pipe to an absorption vat containing milk of lime prepared from slaked lime. The chlorine in the waste gas was absorbed by milk of lime to generate calcium chlorate and calcium chloride.
+Waste gas from the absorption tower was piped to an absorption vat containing milk of lime prepared from slaked lime. The chlorine in this waste gas reacted with the milk of lime to produce calcium chlorate and calcium chloride.
 
-After the milk of lime was saturated with chlorine absorption, it was pumped into a concentration pot, heated, and then cooled to crystallize calcium chlorate out. Calcium chlorate could be used as a herbicide. The liquid from which calcium chlorate had been extracted was then heated and concentrated to obtain calcium chloride. Basically achieved zero emissions of chlorine.
+Once the milk of lime was saturated with chlorine, it was pumped into a concentration pot, heated, and then cooled to crystallize out calcium chlorate—useful as a herbicide. The remaining liquid was heated and concentrated to yield calcium chloride. This approach achieved essentially zero chlorine emissions.
 
-As for the electrolyte continuously flowing out during electrolysis, it already contained about 10% caustic soda at this time. However, the sodium chloride content in it was higher; such caustic soda liquid couldn't be used and had to undergo concentration treatment.
+As for the electrolyte continuously flowing from the electrolytic cells, it now contained approximately ten percent caustic soda. However, sodium chloride content remained higher still; such dilute caustic soda liquid was unusable and required concentration.
 
-The equipment Ji Situi used for concentration was a big pot, directly heated and concentrated by coal ignited by firewood. The strong smell made everyone present who didn't wear safety goggles run out.
+The equipment Ji Situi employed for concentration was brutally simple: a large iron pot, heated directly over a coal fire ignited with kindling. The fumes were so powerful that anyone not wearing safety goggles fled the building.
 
-"Boiling it open like this, isn't the pollution too severe?" Bai Yu said.
+"Isn't this level of pollution excessive?" Bai Yu called from outside.
 
-"Yes, but don't we lack evaporation pans? This also wastes coal!" Ji Situi said loudly because he was wearing a chemical protective mask. "We'll change it when the machinery factory can provide matching equipment later."
+"It is—but we don't have evaporation pans! And it wastes coal!" Ji Situi's voice was muffled by his chemical mask. "We'll upgrade when the machinery factory can provide proper equipment."
 
-After boiling for quite a while, crystals precipitated at the bottom of the pot under the alkali liquid, accumulating more and more.
+After prolonged boiling, crystals began precipitating at the bottom of the pot beneath the alkali liquid, accumulating steadily.
 
-"Bai Yu, quickly scoop it out with the ladle! Be careful not to bring out the alkali liquid."
+"Bai Yu! Scoop it out with the ladle! Be careful not to bring up the alkali liquid with it."
 
-Bai Yu hurriedly took the specially made wooden ladle, stood by the pot, and scraped the crystals from the bottom.
+Bai Yu hurriedly took the specially-made wooden ladle and positioned himself by the pot, scraping crystals from the bottom.
 
-"Watch out for safety." Ji Situi watched him nervously. This pot was collected from Gou Village back then, used for cooking pig swill, with a very large diameter. One moment of inattention and falling in would be the end.
+"Mind your safety." Ji Situi watched anxiously. This pot—originally from Gou Village, once used to cook pig swill—had an enormous diameter. One misstep meant falling in, and that would be the end.
 
-Bai Yu carefully took out the crystals. The steam filling the air above the pot felt pungent even wearing a protective mask.
+Bai Yu carefully extracted the crystals. Even through his protective mask, the steam rising from the pot stung his nose.
 
-"This is salt, right?" He asked.
+"This is salt, isn't it?"
 
-"Correct, it's real refined salt!"
+"Correct—genuine refined salt."
 
-The extracted refined salt was sent to the salt drying board, washed several times with dilute alkali liquid, then rinsed with saturated refined brine; what remained were snow-white crystals. The sodium chloride purity of this salt was as high as 95% or more. It could be used to prepare physiological saline for medical infusion.
+The extracted salt was transferred to drying boards, washed several times with dilute alkali liquid, then rinsed with saturated refined brine. What remained were snow-white crystals with sodium chloride purity exceeding ninety-five percent—pure enough for preparing medical-grade physiological saline.
 
-The electrolyte from which salt had precipitated continued to be heated and concentrated until the alkali liquid concentration reached about 30%, becoming a product usable for chemical engineering. Of course, it could also be further concentrated and dried into solids, but doing so consumed too much coal and was not cost-effective for the transmigrators.
+The electrolyte from which salt had precipitated was returned to the pot and heated further until the alkali concentration reached approximately thirty percent, rendering it suitable for chemical applications. Additional concentration and drying could produce solid caustic soda, but coal consumption made this economically unfeasible for now.
 
-The successful manufacture of sulfuric acid, hydrochloric acid, and caustic soda gave the Industrial and Energy Committee great confidence. Wang Luobin, Zhan Wuya, and others ran to these two crude workshops to look whenever they were free, checking out this equipment launched by indigenous methods.
+---
 
-Although these two sets of devices were crude, the benefits brought were immeasurable. According to Ji Situi's calculation, under the condition of guaranteed raw material and energy supply, the Contact Process Sulfuric Acid Workshop, staffed with 15 workers in three shifts, operating 345 days a year, could produce 1 ton of 98% concentrated sulfuric acid daily, increasing to 1.2 tons daily when necessary. The Salt Electrolysis Workshop, staffed with 24 workers in three shifts, operating 345 days a year, could produce 47.5 tons of caustic soda, 87 tons of bleaching powder, 2 tons of calcium chlorate, and 6 tons of calcium chloride annually. Plus 47.5 tons of refined salt (95% purity sodium chloride) and 30 tons of hydrochloric acid.
+The successful manufacture of sulfuric acid, hydrochloric acid, and caustic soda electrified the Industrial and Energy Committee. Wang Luobin, Zhan Wuya, and others made regular pilgrimages to these crude workshops, studying the improvised equipment.
 
-The output was negligible by modern standards, but for the Planning Committee, where allocating any chemical used to be calculated by the milliliter and gram not long ago, the production of these two workshops was tantamount to striking a windfall.
+Though primitive in appearance, the benefits these facilities delivered were immeasurable. According to Ji Situi's calculations, given adequate raw materials and energy, the Contact Process Sulfuric Acid Workshop—operating with fifteen workers in three shifts, 345 days per year—could produce one ton of 98% concentrated sulfuric acid daily, scaling to 1.2 tons when necessary. The Salt Electrolysis Workshop—operating with twenty-four workers in three shifts, 345 days per year—could produce 47.5 tons of caustic soda, 87 tons of bleaching powder, 2 tons of calcium chlorate, and 6 tons of calcium chloride annually, plus 47.5 tons of refined salt (95% purity) and 30 tons of hydrochloric acid.
 
-Even Shi Niaoren came. Seeing the 95% high-purity sodium chloride prepared for him by Ji Situi, Shi Niaoren was so happy his mouth couldn't close—this solved a big problem: physiological saline for infusion and injection was settled. Bleaching powder was needless to say a good thing expected by the Ministry of Health. As for crude calcium chloride, after being refined by the pharmaceutical factory into calcium chloride injection, it could treat tetany caused by hypocalcemia, intestinal colic, ureteral colic, etc., urticaria, exudative edema, and pruritic skin diseases. Used for treating Vitamin D deficiency rickets, osteomalacia, and calcium salt supplementation for pregnant and lactating women. Significantly improving the physical quality of the people in this space-time.
+By modern standards, these figures were negligible. But for the Planning Committee—where, not long ago, chemical allocations had been measured in milliliters and grams—the output of these two workshops represented an extraordinary windfall.
 
-With enough hydrochloric acid, the planned glucose manufacturing of the pharmaceutical factory could also be put on the construction agenda. Shi Niaoren immediately contacted Wu Nanhai, asking him to quickly provide starch raw materials so they could plan together to set up a glucose workshop immediately.
+Even Shi Niaoren made the journey. Seeing the 95% high-purity sodium chloride Ji Situi had prepared for him, his face split into a grin he couldn't suppress. This solved an enormous problem: infusion-grade physiological saline was now feasible. Bleaching powder was an obvious boon for the Ministry of Health. And the crude calcium chloride, once refined by the pharmaceutical factory into calcium chloride injection solution, could treat tetany caused by hypocalcemia, intestinal and ureteral colic, urticaria, exudative edema, and pruritic skin diseases. It would also address Vitamin D deficiency rickets, osteomalacia, and calcium supplementation needs for pregnant and lactating women. The physical health of the local population stood to improve dramatically.
 
-As for Wu Nanhai, he was overjoyed to suddenly obtain the herbicide he hadn't even hoped for, immediately demanding all relevant output be allocated to him. He also asked with concern when ammonium sulfate could be produced for him, so he could release a record-breaking "satellite" yield with hybrid rice.
+With adequate hydrochloric acid, the pharmaceutical factory's planned glucose production could proceed as well. Shi Niaoren immediately contacted Wu Nanhai, requesting starch raw materials so they could begin planning a glucose workshop.
 
-Even people from the Ministry of Light Industry came to ask how much quota of caustic soda and sulfuric acid could be given to them. With these two things, they could provide snow-white paper; as for soap, it was even less of a problem. However, making soap required cooperation between the Chemical Department and the Light Industry Department, as the Chemical Department was supposed to obtain glycerol through the soap-making process.
+Wu Nanhai, for his part, was overjoyed by the unanticipated arrival of herbicide—the calcium chlorate he hadn't even dared request. He immediately demanded full allocation of all relevant output. He also inquired eagerly about ammonium sulfate production timelines, hoping to achieve record-breaking hybrid rice yields.
 
-This was like rolling a snowball. Once a technical bottleneck was broken, many production areas that were originally stuck suddenly moved, the number of producible products increased instantly, and production capacity expanded.
+Representatives from the Ministry of Light Industry arrived to ask about caustic soda and sulfuric acid quotas. With these chemicals, they could produce pristine white paper; soap production was never in doubt. However, soap manufacturing required coordination between the Chemical Department and Light Industry, since the Chemical Department needed to recover glycerol as a byproduct of the soap-making process.
 
-The military department responded quickly too. Xi Yazhou called the same day, requesting the Chemical Department to seriously consider the military value and usage of chlorine as a weapon.
+It was like a snowball effect. Once technical bottlenecks were broken, production lines that had been stalled suddenly began moving. Product variety expanded instantly; productive capacity surged.
 
-Releasing chlorine directly was impossible. Xu Yingjie and several people from the weapon research group studied it and developed a chlorine landmine: a jar of hydrochloric acid with a packet of calcium hypochlorite powder—bleaching powder—underneath, strapped with a 30-gram guncotton charge cartridge. The explosion would blast these two substances into a mist to mix together. As for the effect, everyone agreed that if used, it was best to detonate multiple mines simultaneously.
+The military department responded swiftly as well. That same day, Xi Yazhou called to request that the Chemical Department seriously consider chlorine's military value and potential deployment as a weapon.
 
-Some also suggested making poison gas shells, same principle, improving the structure to withstand howitzer firing would do.
+Direct chlorine release remained impractical. Xu Yingjie and the weapon research group studied the problem and developed a chlorine landmine: a jar of hydrochloric acid positioned above a packet of calcium hypochlorite powder—bleaching powder—strapped to a thirty-gram guncotton charge. The explosion would atomize both substances into a reactive mist. The consensus was that, if deployed, multiple mines should be detonated simultaneously for effect.
 
-"Not recommended." Xu Yingjie could hardly imagine who could run around on the battlefield carrying many hydrochloric acid jars.
+Some suggested developing poison gas artillery shells on the same principle—simply adapting the structure to withstand howitzer firing.
 
-"In my opinion, expecting poison gas shells and poison gas mines," Lin Shenhe of the Artillery R&D Group made a concluding speech, "might as well make some glass bottles filled with hydrochloric acid and throw them out as grenades when the time comes."
+"Not recommended." Xu Yingjie couldn't envision anyone scrambling across a battlefield while lugging jars of hydrochloric acid.
 
-The mass response was very good, and praise from various departments flooded in. But as the person in charge of the chemical department, Ji Situi wasn't happy at all. Behind this string of dazzling product catalogs and production figures lay high energy consumption and extremely unstable production states.
+"In my opinion," Lin Shenhe from the Artillery R&D Group offered a concluding remark, "rather than poison gas shells or mines, we'd be better off filling glass bottles with hydrochloric acid and throwing them like grenades."
 
-A salt electrolysis workshop consumed 160 tons of salt, 60 tons of quicklime, 0.5 tons of hydrochloric acid, 35 tons of coal, 140,000 kWh of DC electricity, and 1500 tons of water annually. This was a considerable amount of material and energy consumption. Especially electricity and industrial water. The installed capacity of Bopu Power Station was originally only 213KW; a single electrolysis workshop would consume nearly one-tenth of the power station's annual power generation. Power shortage actually became a major obstacle for the salt electrolysis workshop. The workshop originally planned to start last year had been pending. It wasn't until recently when the second phase expansion of Bairen Tan Hydropower Station succeeded and a locomobile there was moved to Bopu Power Station, doubling Bopu's installed capacity, that it officially started production.
+---
 
-Ji Situi planned to gradually replace the current overly crude equipment after the machinery department's manufacturing capability improved a grade. Such high-energy-consumption and high-pollution production was really not the future direction.
+The response from across the organization was overwhelmingly positive; praise poured in from every department. But as head of the chemical department, Ji Situi took little pleasure in it. Behind the impressive catalog of products and production figures lay high energy consumption and an extremely unstable production state.
 
-Another drawback of "Indigenous Method Launch" was "Looking Very Beautiful"; after really putting into actual operation, many problems not mentioned in construction pamphlets were exposed one after another.
+The salt electrolysis workshop alone consumed 160 tons of salt, 60 tons of quicklime, 0.5 tons of hydrochloric acid, 35 tons of coal, 140,000 kilowatt-hours of DC electricity, and 1,500 tons of water annually. This represented considerable material and energy demand—especially for electricity and industrial water. Bopu Power Station's installed capacity was only 213 kilowatts; a single electrolysis workshop would consume nearly one-tenth of the station's annual output. Power shortage had become the primary obstacle to the workshop's operation. Originally scheduled to launch the previous year, the project had been postponed repeatedly. Only after the second-phase expansion of Bairen Tan Hydropower Station succeeded—and a locomobile from there was transferred to Bopu, doubling installed capacity—could production finally begin.
 
-The most typical was the Contact Sulfuric Acid Workshop. Since starting work, quite a few major and minor faults occurred. The most serious was the low conversion rate, less than 70%, causing the concentration of some sulfuric acid to be too low, only 80%, which had to be re-blended to reach factory standards. The blower outlet carried acid, splashing everywhere, causing severe ground corrosion; the chimney outlet smoke carried a large amount of acid, turning into acid rain immediately upon meeting moist air, eroding and destroying all temporary factory buildings and sheds around the chimney. Several workers suffered mild acid burns and were sent to the hospital.
+Ji Situi planned to gradually replace the current crude equipment once the machinery department's manufacturing capabilities improved. This high-consumption, high-pollution production model was not sustainable.
 
-Ji Situi, Xu Yingjie, and technicians from machinery and construction made six consecutive modifications to the entire system. Even the absorption tower was dismantled and refilled several times. Adding a pebble dust collector to the converter; adding coke as an absorbent at the air outlet; adding acid-mist-removing tile fragments plus coke to the top of the absorption tower... Fumbling, holding meetings for discussion, and flipping through books—fortunately, the Grand Library had abundant materials—solutions were found for various faults one by one. It took a whole month of tossing and turning to stabilize production.
+Another drawback of the "indigenous launch" approach was that things "looked very beautiful" on paper—but actual operation exposed problem after problem that the construction pamphlets never mentioned.
 
-Just as the sulfuric acid workshop stabilized, the electrolysis workshop had several small-scale accidents again. The most outrageous one was someone actually eyeing the hydrogen, identifying it for future balloon observation troops' material preparation, and insisting on filling balloons with hydrogen in the workshop. But this person wore chemical fiber clothes and touched it upon coming up... 1% of body surface suffered second-degree burns and was rushed to the hospital. The entire electrolysis workshop was paralyzed for ten hours. Ji Situi was furious and fenced off the workshop with bamboo fences, hanging a dangerous skull mark high outside. No one was allowed to enter or exit at will.
+The Contact Sulfuric Acid Workshop was the worst offender. Since startup, it had suffered numerous faults, major and minor. Most serious was the low conversion rate—below seventy percent—which caused some sulfuric acid batches to emerge at only eighty percent concentration, requiring re-blending to meet standards. The blower outlet sprayed acid mist everywhere, corroding the floors. Chimney exhaust carried substantial acid, which condensed into acid rain on contact with moist air, eroding and destroying every temporary structure near the stack. Several workers sustained mild acid burns and were sent to the hospital.
 
-Shi Niaoren returned from visiting the Bopu Chemical Plant, incidentally settled the supply of several materials urgently needed by the pharmaceutical factory with the Planning Committee and Chemical Department, then went to the Bairen City dormitory area to take a sample before returning to the General Hospital.
+Ji Situi, Xu Yingjie, and technicians from the machinery and construction departments made six consecutive modifications to the entire system. The absorption tower was dismantled and refilled multiple times. A pebble dust collector was added to the converter; coke absorbent was installed at the air outlet; acid-mist-removing tile fragments and coke were added atop the absorption tower... Problems were identified, meetings held, reference books consulted—fortunately, the Grand Library held extensive materials—and solutions found one by one. It took a full month of trial and error before production stabilized.
 
-"Touch once, touch again..."
+Just as the sulfuric acid workshop steadied, the electrolysis workshop suffered several small-scale accidents. The most outrageous involved someone who had taken an interest in the hydrogen—identifying it as potential material for a future balloon observation corps—and insisted on filling balloons with hydrogen inside the workshop. This individual was wearing synthetic fiber clothing. Upon contact with the equipment...
 
-Humming *Eighteen Touches*, Shi Niaoren walked into Bairen General Hospital carrying several bags of poop. Ye Yuming passing by muttered in surprise, "Is this bro silly from smelling poop all day?"
+One percent of his body surface suffered second-degree burns. He was rushed to the hospital. The entire electrolysis workshop was paralyzed for ten hours. Furious, Ji Situi had the workshop fenced off with bamboo barriers and a skull-and-crossbones sign posted prominently outside. No unauthorized entry or exit.
 
-The real reason was naturally not so! Shi Niaoren sat in his "First Medical Examination Center in This Space-Time", crossed his legs confidently, piled up a bunch of stool sample jars, and smiled with ambition. The successful production launch of the Chemical Department reignited his enthusiasm for the pharmaceutical factory, which had gradually cooled down—increasing his drive greatly, pondering what other medicines could be made. This was better than ten years of hard internal training. There were people in the Transmigration Group!
+---
+
+Shi Niaoren returned from his visit to the Bopu Chemical Plant, having secured supply agreements for several urgently needed materials from both the Planning Committee and Chemical Department. He stopped by the Bairen City dormitory area to collect a sample before heading back to the General Hospital.
+
+*"Touch here, touch again..."*
+
+Humming *Eighteen Touches* under his breath, Shi Niaoren strolled into Bairen General Hospital carrying several bags of stool samples. Ye Yuming passed by and muttered in bewilderment, "Has this fellow gone mad from smelling excrement all day?"
+
+The real reason was nothing of the sort. Shi Niaoren settled into his "First Medical Examination Center in This Timeline," crossed his legs, stacked his specimen jars, and smiled with renewed purpose. The Chemical Department's successful launch had rekindled his enthusiasm for the pharmaceutical factory—enthusiasm that had been cooling. His drive surged. What other medicines might now be within reach? This news was worth ten years of effort. There truly were capable people in the Transmigration Group.

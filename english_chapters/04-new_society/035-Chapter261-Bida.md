@@ -1,130 +1,141 @@
-# Chapter 261 Bida
+# Chapter 261 — Bida
 
-That evening, the group pulled Li Benqing and his nephew over for dinner. Wang Aoya had sent a large amount of food and rice wine, which served perfectly for treating guests. Xiong Buyou probed for information about the situation within the stockade.
+That evening, the group invited Li Benqing and his nephew to join them for dinner. Wang Aoya had sent over a generous supply of food and rice wine—perfect for entertaining guests. As cups were filled and refilled, Xiong Buyou deftly steered the conversation toward the inner workings of the stockade.
 
-It turned out that after the previous chief of the Zhen Dui Stockade passed away, his son was still too young to rule, so the four *Oyas* of the stockade assisted in governance. All matters, big or small, were decided collectively by the *Oyas*. The leader was surnamed Wang—the eldest one who had come to invite them. Wang Aoya was also the chief's uncle, making them family. As for the young man who had been quite active outside the shed earlier, he was the son of another *Oya* named Zhen Huan. He was an excellent hunter and held significant prestige among the stockade's youth.
+It transpired that after the previous chief of Zhen Dui Stockade had passed away, his son remained too young to rule. Governance had therefore fallen to the four *Oyas*, who collectively decided all matters great and small. Their leader was surnamed Wang—the same elder who had first come to invite them. Wang Aoya was also the young chief's uncle, binding them by blood. As for the energetic young man who had been so active outside their quarters, he was the son of another *Oya* named Zhen Huan—a renowned hunter who commanded considerable prestige among the stockade's youth.
 
-Gotten somewhat tipsy from the upland rice wine, Li Benqing revealed that the woman identified as the "Curse Mother" was none other than Zhen Huan's lover from the *Gui Long*, named Bida. During the ritual, Zhen Huan had turned hostile on the spot and nearly slaughtered the *Daogong*, but was suppressed by the united front of the other *Oyas*.
+The upland rice wine loosened Li Benqing's tongue. Cheeks flushed, he revealed that the woman condemned as the "Curse Mother" was none other than Zhen Huan's lover from the *Gui Long*—a girl named Bida. During the ritual, Zhen Huan had turned hostile on the spot, nearly slaughtering the *Daogong*, but the united opposition of the other *Oyas* had suppressed him.
 
-"Zhen Oya's days haven't been easy," Li Benqing said. "Everyone says his son instructed Bida to place a *Jin* on the Chief."
+"Zhen Oya's days have not been easy," Li Benqing said, shaking his head. "Everyone whispers that his son instructed Bida to place a *Jin* curse on the Chief."
 
-"Why?"
+"Why would he do that?"
 
-"The earliest chiefs of Zhen New Stockade were from the Zhen family." Li Benqing drank more rice wine. "The Zhen family has established the stockade here for ten generations—"
+"The earliest chiefs of Zhen Dui Stockade were from the Zhen family." Li Benqing drank deeply. "The Zhen clan has ruled here for ten generations—"
 
-"That long?" Fang Jinghan was somewhat skeptical.
+"That long?" Fang Jinghan sounded skeptical.
 
-"Don't interrupt, let Li Baya finish," Mu Min said.
+"Don't interrupt," Mu Min chided. "Let Li Baya finish."
 
-Li Benqing, hearing Mu Min address him as "Baya," beamed with smiles. This was a respectful term of endearment used by the Li people for their elders.
+Li Benqing beamed at being addressed as *Baya*—the respectful term the Li people used for their elders.
 
-"About four or five generations ago, maybe?" Li Benqing wasn't clear on the specific years. "Wang Chief's ancestors moved their entire family to this stockade. Their family was originally Han; the genealogy says they came from very far north on the mainland and were some kind of Han general. At that time, our stockade was at war with the nearby Shuishen Stockade. The Zhen family suffered many casualties. The Wang family disciples all knew martial arts, and they led everyone to wipe out the Shuishen Stockade in one go. From then on, the Wang family became the chiefs."
+"Perhaps four or five generations ago?" He wasn't certain of the exact years. "Wang Chief's ancestors migrated here with their entire household. Originally Han, the genealogy claims they descended from some great general in the distant north—on the mainland. At that time, our stockade was at war with the neighboring Shuishen Stockade, and the Zhen family suffered terrible losses. The Wang disciples all knew martial arts. They led everyone in a decisive strike that wiped out Shuishen in a single campaign. From that day forward, the Wang family became the chiefs."
 
-"So the Wang family is actually Han?" Xiong Buyou asked. "But why would a general move his whole family to live in a Li stockade?"
+"So the Wang family is actually Han?" Xiong Buyou asked. "But why would a general move his entire household to live in a Li stockade?"
 
-Fang Jinghan, while taking notes, remarked, "As for 'general,' it's probably them raising their own status, right? It's not impossible that they were just fugitive military households from the local area."
+Fang Jinghan scribbled in his notebook. "As for 'general,' they were probably inflating their own status. More likely fugitive military households from the local garrisons."
 
-Li Benqing continued: simple since then, two major factions formed in the stockade. One was the Wang family, and the other was the Zhen family. Although the Zhen family no longer held the position of chief, they were deeply rooted and influential in the stockade, so at least one of the four *Oyas* was always from their family.
+Li Benqing continued: ever since then, two major factions had formed within the stockade. One was the Wang family; the other, the Zhen. Though the Zhens no longer held the chieftaincy, their roots ran deep—at least one of the four *Oyas* was always from their lineage.
 
-Now, with the Wang family's chief being young and the Zhen family producing a charismatic descendant like Zhen Huan, the balance of power was clearly tipping towards the Zhen family.
+Now, with the Wang chief still young and the Zhen family producing a charismatic heir like Zhen Huan, the balance of power was clearly tipping.
 
-"Zhen Huan not only has prestige among the youth but is also hugely popular in the *Gui Long*." Li Benqing rarely drank, but now that he had let loose, his nose had turned red. "At night, he just stands in front of any *Gui Long*, and the door opens. No need to talk, no need to sing. Tsk tsk. But Bida is his favorite."
+"Zhen Huan commands not only the respect of the young warriors but is wildly popular in the *Gui Long*." Li Benqing's nose had turned crimson from the drink. "At night, he need only stand before any *Gui Long*, and the door opens for him. No courtship required—no songs, no words. Tsk, tsk. But Bida is his favorite."
 
-"Sounds like a mountain stronghold version of a palace intrigue?" Mu Min said. "Could Zhen Oya's son be trying to seize the opportunity to rise to power? Is that why he obstructed us from treating the Chief? By the way—" she became excited, "maybe he was the one who put that bamboo splinter there!"
+"This sounds like a mountain-stronghold version of palace intrigue," Mu Min mused. "Could Zhen Oya's son be seizing his chance to rise? Is that why he obstructed our treatment of the Chief?" Her eyes widened. "Perhaps *he* was the one who planted that bamboo splinter!"
 
-"You've read too many novels," Cui Yunhong disagreed. "Even if it's true, it's none of our business."
+"You've read too many novels," Cui Yunhong dismissed. "Even if true, it's none of our concern."
 
-"Sigh." Mu Min sighed regretfully. In just those few minutes, her mind had already completed an outline for a palace intrigue novel that could totally be published on Jinjiang.[^1]
+Mu Min sighed with theatrical regret. In those few minutes, her imagination had already sketched the outline of a palace intrigue novel worthy of publication on Jinjiang.[^1]
 
-Over the next two days and nights, the young chief's high fever persisted. He Ping took his temperature every two hours, administered sulfonamides every six hours, and changed the dressing. By the morning of the third day, the boy's temperature dropped to a normal level. His consciousness cleared significantly, and he began to feel hungry. When He Ping changed the dressing, he found no new traces of pus or blood on the drainage strip—the wound could be bandaged up.
+---
 
-Now everyone knew the Chief was cured. Just as the exploration team was rejoicing that this matter had a good beginning and end, various illnesses sprang up like bamboo shoots after rain throughout the stockade. Fever, toothache, stomach ache, infected wounds—everything was represented. He Ping was, after all, only a half-trained health worker; faced with such a rich internship opportunity, he was immediately flustered. His medical kit didn't have many drugs available either.
+Over the next two days and nights, the young chief's fever persisted. He Ping checked his temperature every two hours, administered sulfonamides every six, and changed the dressing regularly. By the morning of the third day, the boy's temperature had dropped to normal. His consciousness cleared markedly, and he began asking for food. When He Ping inspected the wound, he found no fresh traces of pus or blood on the drainage strip—at last, it could be properly bandaged.
 
-He had no choice but to treat the diseases that were easy to cure and diagnose one by one. He performed seven or eight minor surgeries in a row; now He Ping wielded the scalpel with incomparable grace, even daring to operate on styes he previously felt helpless against. However, he was very careful not to give antibiotics indiscriminately, fearing he might mess up the local microbial environment. As for illnesses with difficult-to-judge causes like stomach aches, He Ping simply used rice flour mixed with honey provided by the stockade to make some pills and distributed them. Surprisingly, quite a few people claimed they were cured after eating them—the power of placebos was indeed strong.
+Word spread quickly: the Chief was cured. Just as the exploration team was congratulating itself on a job well done, illnesses erupted throughout the stockade like bamboo shoots after spring rain. Fever, toothache, stomach pain, infected wounds—the complaints were endless. He Ping was, after all, only a half-trained health worker; confronted with such a rich "internship opportunity," he found himself overwhelmed. His medical kit held precious few drugs.
 
-Thus, the Shilu Iron Mine Exploration Team became "divine doctors." Everyday, items sent by various households in the Li stockade arrived endlessly. When everyone discovered that these "divine doctors" didn't eat much pork or beef but seemed to love chicken, not a single live chicken was left in the entire stockade. Cui Yunhong looked on in distress at the pile of gifts in the yard in front of Li Benqing's house: wild game, live chickens, rice wine, leather, kapok cloth, kudzu cloth, and various rattan wares... A dazzling array, clearly the best produce from the vicinity brought out. Cui Yunhong suddenly noticed people were constantly bringing cows and tying them in front of the door.
+He could only treat the cases he could confidently diagnose, one by one. He performed seven or eight minor surgeries in succession; by now, He Ping wielded the scalpel with smooth confidence, even daring to lance styes that had previously left him helpless. However, he was careful not to dispense antibiotics indiscriminately, wary of disrupting the local microbial environment. For ailments with obscure causes—stomachaches and the like—he simply mixed rice flour with honey provided by the stockade, shaped it into pills, and distributed them. Surprisingly, many patients claimed to feel better after swallowing them. The power of placebos was formidable indeed.
 
-"What is this for?" Cui Yunhong asked Assistant Wang.
+Thus the Shilu Iron Mine Exploration Team earned the reputation of "divine doctors." Each day, gifts from the stockade's households arrived without end. When the villagers noticed that these healers cared little for pork or beef but seemed to adore chicken, not a single live bird remained in the entire settlement. Cui Yunhong surveyed the growing pile of offerings in Li Benqing's courtyard with a mixture of distress and wonder: wild game, live poultry, rice wine, leather, kapok cloth, kudzu cloth, and all manner of rattan wares—clearly the finest produce the area could offer. Then he noticed a steady stream of villagers leading cattle to the doorway and tethering them there.
 
-"This is payment for your medical services," Assistant Wang was also very happy to see these boat peddlers being so capable. A rising tide lifts all boats; in the past few days, he had privately accepted many invitations to eat, having wine and meat at every meal. "Li people don't have money; only mountain goods and cattle."
+"What's all this for?" he asked Assistant Wang.
 
-"This—" Cui Yunhong thought Wu Nanhai would certainly like local cattle, but the problem was how to drive them back to Changhua Fort? That was a technical job.
+"Payment for your medical services." The guide was in high spirits—these boat peddlers' success was lifting all boats. In recent days, he had privately accepted many dinner invitations, enjoying wine and meat at every meal. "The Li people have no silver. Only mountain goods and cattle."
 
-While he was hesitating, the *Oyas* sent someone to invite them to a banquet.
+Cui Yunhong thought Wu Nanhai would certainly be pleased by the prospect of local cattle—but how were they supposed to drive them back to Changhua Fort? That was skilled work.
 
-At the banquet, all four *Oyas* were present, taking turns to propose toasts to the exploration team members. The young chief, weak from his illness, couldn't eat or drink much and just sat at the head of the table accompanied by his mother, looking curiously at this group of strange merchants.
+While he stood deliberating, the *Oyas* sent word inviting them to a banquet.
 
-After several rounds of rice wine, Wang Aoya, the leader of the four, clapped his hands lightly. Immediately, someone brought out a tray. Cui Yunhong looked and saw it was filled with white and green bits—broken silver and copper coins of various sizes. It looked like a lot, but in reality, it was only about ten taels of silver and a thousand copper coins. The Li people did not place much importance on wealth and currency; trade was done by barter, and they did not hoard gold and silver. Being able to bring this out meant they had practically turned the stockade upside down.
+---
 
-"These are meager items," Wang Aoya said. "Additionally, we gift fifty head of cattle as a token of gratitude."
+At the feast, all four *Oyas* were present, taking turns proposing toasts to the exploration team. The young chief, still weak from illness, could neither eat nor drink much; he simply sat at the head of the table accompanied by his mother, observing this group of strange merchants with undisguised curiosity.
 
-The Li people loved raising cattle, and the number of cattle was large. Li transactions often used cattle as payment.
+After several rounds of rice wine, Wang Aoya, leader of the four, clapped his hands. A servant immediately brought out a tray. Cui Yunhong looked and saw it was filled with broken silver and copper coins—white and green glinting together. It appeared substantial, but in truth amounted to little more than ten taels of silver and a thousand copper coins. The Li people placed scant importance on currency; trade was conducted through barter, and they did not hoard precious metals. That they could produce even this meant they had practically turned the stockade upside down.
 
-This number startled them. Leaving aside other things, how could they drive so many cows back to Changhua Fort? Besides, Changhua Fort itself couldn't raise cattle; they would all have to be transported back to Lingao and handed over to the Agricultural Committee. The thought of feeding cattle and cleaning up cow dung for the next few weeks made everyone unanimously stare at the team leaders, demanding they refuse immediately.
+"These are but modest tokens," Wang Aoya said. "Additionally, we gift fifty head of cattle as thanks."
 
-Mu Min said to Cui Yunhong, "We can't accept this gift. So many cows are probably half the stockade's herd. If they give them all to us, how will they farm?"
+The Li cherished their cattle; herds were large, and livestock often served as payment. Still, fifty head was an extraordinary sum.
 
-Cui Yunhong wasn't thinking that nobly; he was afraid of becoming a cowboy. Although their starting points were different, their viewpoints were consistent, so he firmly declined, stating: they helped treat the Chief and the Li people only out of charity and could not accept such a heavy gift.
+The number startled everyone. Setting aside everything else, how could they possibly drive so many animals back to Changhua Fort? And the fort itself lacked grazing land—every beast would have to be shipped back to Lingao for the Agricultural Committee. The thought of weeks spent feeding cattle and shoveling dung was enough to make the entire team glare at their leaders, silently demanding an immediate refusal.
 
-Seeing their sincere words, completely unlike the usual money-grubbing look of peddlers, the *Oyas* felt a few more degrees of respect in their hearts.
+Mu Min leaned toward Cui Yunhong. "We cannot accept this. Fifty head is probably half the stockade's herd. If they give them all away, how will they farm?"
 
-"You have shown such great kindness to my Li stockade, yet you refuse to accept gifts," Wang Aoya felt troubled. "How can we thank you?"
+Cui Yunhong's thoughts were less noble—he simply dreaded becoming a cowboy. Though their motivations differed, their conclusion was the same, and he politely but firmly declined: they had helped treat the Chief and the villagers purely out of goodwill; they could not possibly accept so heavy a gift.
 
-Mu Min felt the opportunity had come. The young girl accused of being a "Curse Mother" was still locked up in the stockade. Once the Chief fully recovered, she would be killed. So she proposed whether they could spare Bida. If they feared she would harm people, the team was willing to take her away from the stockade and never let her return.
+Seeing their sincere refusal—so unlike the usual money-grubbing demeanor of peddlers—the *Oyas* regarded them with heightened respect.
 
-Li Benqing, acting as the translator, looked troubled but reluctantly translated their meaning. This request made the sitting headmen look difficult. In their hearts, clearing a dangerous "Curse Mother" like Bida from their sight was naturally a good thing, but letting Han people take away a woman of their own tribe was unjustifiable in terms of face. Yet, these people had shown great kindness to the stockade; refusing seemed inhospitable.
+"You have shown such great kindness to our stockade, yet you refuse our gratitude." Wang Aoya looked troubled. "How then can we repay you?"
 
-After a long while, Wang Aoya said, "Bida is a 'Curse Mother.' If you take her and she brings the 'Curse' to you, how can we bear the responsibility? It is better to end it right here."
+Mu Min sensed her opportunity. The young woman condemned as the "Curse Mother" remained imprisoned in the stockade. Once the Chief fully recovered, she would be killed. And so Mu Min proposed: might they spare Bida? If the stockade feared she would bring harm, the team was willing to take her far away and never let her return.
 
-Mu Min requested again and again, but Wang Aoya just wouldn't agree. Suddenly, Zhen Oya spoke up: "She is a scourge. Even if we kill her here, she will harm people as a ghost. The *Bahas* have high magical power; if they take her, they might be able to suppress her."
+Li Benqing translated reluctantly, his expression uneasy. The request made the seated headmen visibly uncomfortable. On one hand, removing a dangerous "Curse Mother" from their midst was clearly desirable. On the other, allowing Han outsiders to take away a woman of their tribe was difficult to justify. Yet these strangers had rendered the stockade an enormous service; refusing seemed inhospitable.
 
-The Chief, who had been silent, also nodded and said, "Let the *Bahas* take her. After all, the *Daogong* in the stockade can't suppress her either."
+After a long pause, Wang Aoya spoke. "Bida is a Curse Mother. If you take her and she brings the curse upon you, how could we bear the responsibility? Better to end matters here."
 
-Wang Aoya looked displeased, but out of deference to the Chief's will, he didn't flare up. So the matter was settled. Wang Aoya insisted again on giving them gifts. After some polite declining, Cui Yunhong felt that refusing again would be too rude, and besides, the Agricultural Committee did need cattle. So he agreed to accept ten head. Wang Aoya was overjoyed and immediately ordered people to prepare ten robust cattle.
+Mu Min pleaded again, but Wang Aoya would not relent. Then, unexpectedly, Zhen Oya spoke:
 
-Cui Yunhong then remembered the soap bean forest outside the stockade and proposed to take back a few hundred catties.
+"She is a scourge. Even if we kill her here, she will harm us as a ghost. The *Bahas* possess great powers. Perhaps they can suppress her."
 
-"Good!" Zhen Oya didn't know why they were interested in those beans, but since they wanted them, he agreed readily and arranged for people to pick them. Both sides carved wood as a contract: the Transmigrators would come to the Li stockade at least once a year to treat illnesses, and whenever the Transmigrators came to the Li district for business, they could rest and stay in the stockade with this wooden tally. Meals and firewood would all be supplied by the Li stockade, and in case of need, they could also requisition porters and cattle to transport goods.
+The Chief, who had remained silent throughout, nodded. "Let the *Bahas* take her. After all, the *Daogong* in the stockade cannot contain her either."
 
-That night, guests and hosts enjoyed themselves thoroughly. Early the next morning, the exploration team set off back to Changhua Fort. having lived together with Li Benqing day and night for ten days, there was naturally a reluctant parting sentiment. Assistant Wang was very happy; bringing this group to the Li district this time, he not only received rare white sugar as payment but also got many gifts from the local Li people. He had made a small fortune.
+Wang Aoya looked displeased but deferred to the Chief's will. And so the matter was settled. He insisted once more on giving them gifts. After a round of polite refusals, Cui Yunhong decided that further resistance would border on rudeness—and besides, the Agricultural Committee genuinely needed cattle. He agreed to accept ten head. Wang Aoya was delighted and immediately ordered ten robust animals prepared.
 
-The ten cows were all laden with baskets of soap beans and other local produce. Because there were simply too many gifts, Cui Yunhong could only take one or two useful items from each family's offering and returned the rest. This action touched the entire stockade deeply, earning them a reputation for benevolence and righteousness.
+Cui Yunhong then remembered the soap bean forest outside the stockade and proposed taking back a few hundred catties.
 
-Assistant Wang drove the cattle in front, and the exploration team followed out of the stockade gate. The *Oyas* and many Li people lined the path at the gate to see them off, the atmosphere warm. Xiong Buyou said, "Now I know what it feels like to be the Eighth Route Army—"
+"Of course!" Zhen Oya agreed readily, though he could not fathom why they wanted those bitter pods. He arranged for workers to harvest them at once. Both sides carved wooden tallies as a contract: the transmigrators would visit the Li stockade at least once a year to treat the sick; whenever they passed through Li territory on business, they could rest and lodge in the stockade upon presenting the tally. Meals and firewood would be provided, and in case of need, porters and cattle could be requisitioned to transport goods.
 
-Mu Min sighed with emotion, "This is the hearts of the people."
+That night, guests and hosts parted in warm spirits. Early the next morning, the exploration team set off for Changhua Fort. After ten days of close quarters with Li Benqing, farewells carried genuine weight. Assistant Wang was elated; this expedition to the Li district had earned him rare white sugar as payment plus a wealth of gifts from grateful villagers. He had made a tidy profit.
 
-After walking three or four *li*, near a forest, Zhen Oya and a few Li men were waiting for them. A woman was tied to a tree with a rope, her hands bound.
+The ten cattle were laden with baskets of soap beans and other local produce. With gifts overflowing, Cui Yunhong could only select one or two useful items from each household's offering, returning the rest. This gesture moved the entire stockade deeply, cementing their reputation for benevolence and righteousness.
 
-"This is Bida," Zhen Oya ordered the rope untied and handed it to Mu Min. "She is yours. Take her as far away as possible. Never bring her back. It's best to change her name too."
+Assistant Wang drove the cattle at the head of the column; the exploration team followed out through the stockade gate. The *Oyas* and many villagers lined the path in a warm send-off. Xiong Buyou muttered, "Now I know what it felt like to be the Eighth Route Army—"
 
-"Understood, we will treat her well." Mu Min looked solemn.
+"This," Mu Min agreed, "is the hearts of the people."
 
-A trace of gratitude appeared on Zhen Oya's consistently indifferent face: "Bida is a pitiful child. You are good people; take care of her."
+---
 
-After Zhen Oya finished speaking, he turned and left with his men directly. Everyone felt a sense of loss. Xiong Buyou spoke up:
+After walking three or four *li*, near a forest clearing, Zhen Oya and a handful of Li men stood waiting. A woman was tied to a tree, her hands bound behind her.
 
-"Why do I feel that this Zhen Oya doesn't really believe she's a 'Curse Mother'?"
+"This is Bida." Zhen Oya ordered the rope untied and handed the lead to Mu Min. "She is yours now. Take her as far away as possible. Never bring her back. It would be best to change her name as well."
 
-"There are probably some hidden circumstances. We don't care about that. Just saving a life," Cui Yunhong said. "Let's go."
+"Understood. We will treat her well." Mu Min's voice was solemn.
 
-Mu Min walked up to the woman. Likely due to her imprisonment, the woman's hair was messy. She wore a low-collared short shirt on her upper body and a blue tube skirt embroidered with white flowers below. Her clothes were stained with dirt and torn in a few places, looking quite bedraggled.
+A flicker of gratitude crossed Zhen Oya's habitually impassive face. "Bida is a pitiful child. You are good people. Look after her."
 
-She looked at this group of people in terror, shrinking back. Only then did everyone see that her face was not heavily tattooed like other Li women; there were only some fine, faint patterns along the edges of her forehead and cheeks. With curved eyebrows, looking about sixteen or seventeen years old, she had delicate features. Seeing such a young woman's face after seeing so many heavy tattoos gave everyone a feeling of brightness.
+With that, he turned and departed without another word, his men following. The team was left with a strange sense of loss. Xiong Buyou broke the silence:
 
-Mu Min was surprised and asked Assistant Wang, "Her face tattoos are very light?"
+"Why do I get the feeling that this Zhen Oya doesn't truly believe she's a Curse Mother?"
 
-"This counts as tattooed," Assistant Wang said. Indeed, some women were unwilling to tattoo their faces and only did some symbolic tattoos—after all, the love of beauty is universal.
+"There are probably hidden circumstances we'll never know." Cui Yunhong shrugged. "It doesn't matter. We've saved a life. Let's go."
 
-The group took this unexpected harvest and embarked on the return journey. Mu Min wanted to untie the rope binding her hands, but Cui Yunhong said they had promised to take the girl away. If they untied her and she ran back to the Li stockade, it would harm her and make them look untrustworthy.
+Mu Min approached the woman. Days of captivity had left her hair tangled and wild. She wore a low-collared short blouse and a blue tube skirt embroidered with white flowers. The fabric was stained and torn in places, her appearance bedraggled.
 
-Bida was very obedient; walking when told to walk, resting when told to rest. But no matter who asked her questions, she remained completely silent. Mu Min thought that at such a young age, being accused of a fabricated crime and following a group of strange foreigners to an unknown destination, the pain in her heart could be imagined. It was better not to say or ask too much.
+Bida shrank back, regarding them with terror. Only then did everyone notice that her face was not heavily tattooed like most Li women; only faint, delicate patterns traced the edges of her forehead and cheeks. With curved eyebrows and what appeared to be sixteen or seventeen years of age, her features were fine and soft. After so many days of seeing the elaborate traditional tattoos, the sight of her relatively unmarked face felt almost startlingly bright.
 
-After walking more than ten *li*, they suddenly heard a "swish" in the air, followed by a sharp whistling sound.
+Mu Min was surprised. "Her face tattoos are so light?"
 
-***
-Note: The following explanation is outside the 4000-word count and is not charged.
+"This still counts as tattooed," Assistant Wang explained. Some women were unwilling to endure full facial tattooing and only accepted symbolic marks—after all, the love of beauty was universal.
 
-Bida is a type of Li musical instrument. Using it as a woman's name is probably suitable. This instrument is actually a modern product; whether it existed in the Ming Dynasty is unknown. It looks similar to panpipes.
+The group resumed their journey with this unexpected addition. Mu Min moved to untie the rope binding her wrists, but Cui Yunhong stopped her: they had promised to take the girl *away*. If she slipped free and ran back to the stockade, it would endanger her life and make them look untrustworthy.
 
-[^1]: Jinjiang Literature City, a famous Chinese web novel site known for romance and court intrigue stories.
+Bida proved obedient—walking when instructed, resting when told. But no matter who spoke to her, she remained utterly silent. Mu Min reasoned that at such a young age, branded with a fabricated crime and forced to follow a group of strange foreigners into the unknown, the anguish in her heart must be beyond words. Better not to press her.
+
+They had traveled perhaps ten *li* when a sudden *swish* cut through the air, followed by a sharp, keening whistle.
+
+---
+
+**Note:** The following explanation is outside the 4,000-word count and is not charged.
+
+*Bida* is a type of Li musical instrument, resembling panpipes. Using it as a woman's name seems appropriate. This instrument is actually a modern product; whether it existed during the Ming Dynasty is unknown.
+
+[^1]: Jinjiang Literature City—a famous Chinese web novel site known for romance and court intrigue stories.
+
+**(End of Chapter)**

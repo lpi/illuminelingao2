@@ -1,101 +1,105 @@
 # Chapter 493 - Iron Birds and Thousand-Li Eyes
 
-"Fine, since that's the case, the truth will naturally be revealed in three days." Wang Ruixiang didn't know where Fu Yousan's hidden fields were yet, but he was confident. "You can go."
+"Very well. Since that is your position, the truth shall reveal itself within three days." Wang Ruixiang did not yet know the precise location of Fu Yousan's concealed fields, but his confidence was unshaken. "You may go."
 
-"Thank you, Chief." Fu Yizhuang led his people away in a wretched state.
+"Thank you, Chief." Fu Yizhuang led his family members away in a wretched procession.
 
-"As for you households, you have merit for exposing others," Wang Ruixiang said carelessly. "I'll give you a chance to declare again."
+"As for you households who have earned merit through exposure," Wang Ruixiang continued carelessly, addressing the remaining families, "I will grant you a second opportunity to declare."
 
-"Thank you, Chief!" "The Chief is wise!" "The Chief's great kindness..."
+"Thank you, Chief!" "The Chief is wise!" "The Chief's boundless mercy—"
 
-"Alright, cut the crap," Wang Ruixiang said. "But it's not over that simply." He then announced the punishment plan.
+"Enough flattery," Wang Ruixiang cut them off. "But do not imagine this settles matters so simply." He then announced the punishment scheme.
 
-Every household keen on concealing land had to bear the relocation costs for one immigrant household, including building their house, breaking ground, and three years of rations.
+Every household caught concealing land would bear the full relocation costs for one immigrant family, including house construction, land clearing, and three years of provisions.
 
-The people kneeling below looked ashen, showing no joy at receiving exemption.
+Those still kneeling turned ashen. No trace of relief at receiving exemption crossed their features.
 
-This burden was quite heavy. Adding taxes, these large farming households wouldn't accumulate any wealth for three years. Just enough to get by. But if the punishment wasn't severe, it wouldn't act as a deterrent. Wang Ruixiang even felt this punishment was a bit light.
+The burden was substantial. Combined with regular taxes, these larger farming households would accumulate no wealth for three years—barely scraping by. Yet without a severe penalty, there would be no deterrent effect. Wang Ruixiang privately considered the punishment rather lenient.
 
-"Well? Think the burden is too heavy?" Wang Ruixiang said. "Then forget it..."
+"Well? Find the burden excessive?" Wang Ruixiang said. "Then perhaps we should forget this arrangement..."
 
-"No, no, we will never forget the Chief's great kindness," an old man kneeling in front reacted quickly. Choosing the lesser of two evils—no matter how heavy the loss, it was just suffering for three years. Losing the land would be a huge loss!
+"No, no—we shall never forget the Chief's great kindness," the old man kneeling at the front responded with desperate speed. Weighing evils, suffering three years of poverty remained preferable to losing the land outright—that would be catastrophic.
 
-"Gratitude is nonexistent; you're probably all hating me to death." Wang Ruixiang spat in front of him, scaring the old man into a shiver, unable to even utter a denial.
+"Gratitude is nonexistent. You probably all despise me to the marrow." Wang Ruixiang spat before him, and the old man shuddered, unable to muster even a denial.
 
-After the meeting dispersed, the village fell into two distinct atmospheres. Ordinary families treated the sorry state of the large households who concealed land as mealtime gossip, with quite a bit of schadenfreude. The punished households fell into fear. Wang Ruixiang's performance today terrified them. These families dared not light lamps, discussing in hushed tones in the dark.
+---
 
-Fu Yousan's house fell into a deathly silence after Fu Yousan let out a few roars and wails as Fu Yizhuang was beaten and ran around the floor. No one in the Fu family dared to provoke the family demon, but this demon currently had no other recourse besides throwing tantrums. He firmly believed the Australians couldn't find his land, but the Australians evidently firmly believed he had hidden land. So even if they couldn't find it, they would definitely punish his family severely to make an example. This terrifying prospect made Fu Yousan restless.
+After the assembly dispersed, the village divided into two distinct atmospheres. Ordinary families treated the humiliation of the larger households as dinner-table entertainment, their conversations seasoned with no small amount of schadenfreude. The punished families, meanwhile, sank into dread. Wang Ruixiang's performance had terrified them. These households dared not light lamps, huddling instead in darkness to whisper their fears.
 
-Fu Yizhuang gathered his courage to suggest that it was better to declare honestly. Going to beg for mercy right now would at most mean bearing the cost of three years' rations for an outsider household. The result was several bumps on his head from the beating. Fu Yousan refused to take this loss; he always felt the Australians were people of unknown origin, not legitimate government officials.
+The Fu Yousan residence fell into deathly silence after Fu Yousan's roars and wails subsided—sounds that had accompanied Fu Yizhuang's beating as the son fled through the house. No one in the Fu household dared provoke the patriarch, but at present, the family demon possessed no recourse beyond throwing tantrums. He remained firmly convinced the Australians could not locate his land. Yet the Australians clearly believed with equal conviction that he had concealed holdings. Whether they found it or not, they would surely punish his family severely as an example. This terrifying prospect gave Fu Yousan no peace.
 
-His son tried several times to point out that bandits weren't legitimate officials either, yet they extorted money and grain just the same... Of course, these truths earned him several more strikes of the stick. He had to fall silent.
+Fu Yizhuang summoned his courage to suggest that honest declaration remained the better course. Going now to beg for mercy would mean, at worst, bearing the cost of three years' provisions for one immigrant household. This earned him several fresh lumps on his head. Fu Yousan refused to accept any loss; he maintained that the Australians were people of unknown origin, lacking legitimate governmental authority.
 
-"Bandits want some money and grain, but they wouldn't want our land!" Fu Yousan's eyes were red. "These hairless thieves! Hmph, let's see how they find it!" He paced around the main hall. "Go report to the officials!"
+His son attempted several times to point out that bandits also lacked official sanction, yet they extorted money and grain just the same... These truths, of course, earned him additional strikes of the rod. He was forced into silence.
 
-Fu Yizhuang and Fu Sanzhuang, standing below, dropped their jaws. Report to the officials? Had the old man lost his mind? Who didn't know that the Australians were effectively the government in Lingao now? Even Old Master Wu was polite when he saw them. Going to report to the officials was just asking for a beating.
+"Bandits want money and grain, but they wouldn't want our land!" Fu Yousan's eyes blazed crimson. "These beardless thieves! Hmph—let us see how they find it!" He paced the central hall. "Go file a complaint with the authorities!"
 
-"Who said report to the county yamen!" Fu Yousan said viciously. "Go to the prefectural yamen to report! These bandits! Sanzhuang, pack up, take two taels of silver and ten days of dry rations. Leave tomorrow and beat the drum to file a complaint at the prefectural yamen!"
+Fu Yizhuang and Fu Sanzhuang, standing below, gaped in disbelief. *Report to the officials?* Had the old man lost his wits? Everyone knew the Australians effectively *were* the government in Lingao now. Even Master Wu treated them with deference. Filing a complaint would simply invite a beating.
 
-These two brothers had been oppressed by their father for a long time and were scared witless. Although they knew their father was taking things for granted and making wild plans again, they didn't dare refute him to his face. The two quietly withdrew.
+"Who said anything about the county yamen!" Fu Yousan snarled. "Go to the prefectural yamen to file! These bandits! Sanzhuang, pack your things—take two taels of silver and ten days of dried rations. Leave tomorrow and beat the drum to lodge a complaint at the prefectural yamen!"
 
-Fu Sanzhuang complained: "Big Brother, what should we do? Really go to Qiongzhou Prefecture?"
+These brothers had been cowed by their father for years; his tyranny had frightened them witless. Though they recognized yet another of their father's delusional schemes, they dared not contradict him to his face. They quietly withdrew.
 
-"Taking two taels of silver to report to the officials—do you think officials are living Bodhisattvas?" Fu Yizhuang knew his father's character: fond of being the boss but bad at handling affairs. He had to make decisions on everything big or small, but always sent others to do the work. As for seeing officials—he didn't even dare see a petty clerk. If the family didn't do things to his liking, he would lose his temper and beat people.
+Fu Sanzhuang complained once they were alone: "Elder Brother, what should we do? Actually travel to Qiongzhou Prefecture?"
 
-"Besides, if government troops come to suppress, providing provisions and pay will bankrupt our family!" Fu Sanzhuang also felt his father was becoming increasingly senile. People couldn't dodge such things fast enough, yet he wanted to stick himself to it.
+"Taking two taels of silver to report to the officials—do you imagine officials are living Bodhisattvas?" Fu Yizhuang knew his father's character intimately: obsessed with control yet incompetent in execution. He insisted on deciding every matter large and small, yet always delegated the actual work. As for appearing before officials—he dared not even face a petty clerk. If the family failed to perform to his satisfaction, he would lose his temper and resort to beatings.
 
-Fu Yizhuang nodded: "Our family has no friendship with the officials. How could Father think of reporting to them? Truly senile!"
+"Besides, if government troops actually came for suppression, providing their provisions and wages would bankrupt our family!" Fu Sanzhuang agreed that their father grew increasingly senile. Sensible people avoided such entanglements at all costs—yet he wanted to throw himself into them.
 
-"But Father ordered it." Fu Sanzhuang didn't have the guts to openly rebel.
+Fu Yizhuang nodded. "Our family has no connections among the officials. How could Father even conceive of reporting to them? Truly addled."
 
-"Find a place to hide first. Come back in a few days and say it's done." Fu Yizhuang was more resourceful. "He doesn't have the guts to ask at the prefectural yamen anyway."
+"But Father ordered it." Fu Sanzhuang lacked the courage for open defiance.
 
-The next day, Wang Ruixiang wheeled the "drone" out of the tent. This "treasure" was properly loaded in a special box converted from a container, enjoying "Special Class 1 Equipment" treatment.
+"Find somewhere to hide for a while. Return in a few days and claim the task is done." Fu Yizhuang possessed greater resourcefulness. "He won't have the nerve to verify with the prefectural yamen anyway."
 
-Wang Ruixiang and Jiang Hongjun carefully removed the seal and lifted the big guy out.
+---
 
-Except for the fragile parts, the plane had been fully assembled in Bairun City and fixed on a specially made rack. Now it only needed the wings attached to take off. Because the terrain here was relatively flat and there was free labor to level a runway, Wang Ruixiang decided not to use the immature catapult takeoff but to let it take off by taxiing.
+The next morning, Wang Ruixiang wheeled the "drone" from the command tent. This "treasure" was stored in a dedicated container converted into a specialized case, enjoying "Special Class 1 Equipment" treatment.
 
-The natives of the work team had only heard that the Australians had "iron birds" that could fly, but hadn't seen the real thing. Seeing this blue and white object being carried out, they all swarmed over.
+Wang Ruixiang and Jiang Hongjun carefully broke the seal and lifted the craft out.
 
-This thing was too beautiful! The streamlined shape and smooth, bright appearance of the model plane left this impression on everyone who saw it. But could this thing really fly?
+Except for fragile components, the aircraft had been fully assembled in Bairun City and secured on a custom-built rack. Only the wings required attachment before takeoff. Given the relatively flat terrain and the availability of free labor to level a runway, Wang Ruixiang decided against the still-immature catapult launch, opting instead for conventional taxiing.
 
-In everyone's impression, things that could fly were kites and Kongming lanterns, but those were made of light and thin materials. For such a heavy-looking monster to fly, everyone felt skeptical—but thinking that Australians could make big iron ships float on water, making this fly probably wasn't difficult.
+The native members of the work team had heard tales of Australian "iron birds" capable of flight but had never witnessed the reality. Seeing this blue-and-white object emerge, they swarmed around it.
 
-The scene of this "iron bird" soaring into the sky caused a sensation in the camp—most native personnel had never seen such a thing. Many involuntarily ran after the plane, shouting as they ran, all extremely excited.
+The thing was breathtakingly beautiful. The streamlined form and smooth, gleaming surface of the model aircraft struck everyone who beheld it. But could such a thing actually fly?
 
-Wang Ruixiang climbed the tower with his equipment to operate it from above. His gear included the plane remote control, a monitor, and many other devices. The model plane was equipped with a video camera and a still camera. The images captured by the video camera were transmitted in real-time to the small monitor in front of Wang Ruixiang. Looking down at the ground from the air, many details unobservable from the ground could be seen very clearly. That was why Wang Ruixiang had such confidence in using the model plane to survey land.
+In their experience, flying objects were kites and Kongming lanterns—constructs of gossamer-light materials. That something so manifestly heavy-looking might take to the air filled them with skepticism. Yet upon reflection, if Australians could make great iron ships float upon water, making this object fly was probably no more difficult.
 
-Wang Ruixiang designed a zigzag flight path centered on the camp. In addition to real-time video, the digital camera on the plane took a picture every ten seconds for post-analysis to discover situations not found during real-time monitoring.
+When the iron bird soared into the sky, sensation rippled through the camp. Most native personnel had never witnessed anything like it. Many sprinted after the aircraft involuntarily, shouting as they ran, consumed by excitement.
 
-After two sorties, Wang Ruixiang discovered unregistered fields and a housing settlement not on the map in a hilly col five kilometers south of Meiyang Village. From the captured images, this settlement had over twenty rooms. The main buildings were brick and tile structures—a very complete farmstead.
+Wang Ruixiang climbed the observation tower with his equipment to operate from above. His gear included the aircraft's remote control, a monitor, and various other devices. The model was equipped with both a video camera for real-time transmission to the small monitor before him and a still camera. Viewing the ground from above revealed details invisible from the surface. This was the source of Wang Ruixiang's confidence in using the aircraft for land surveying.
 
-"Really well hidden." Wang Ruixiang carefully studied the recorded video and photos. The location of this farmstead was chosen very cleverly. There was only one entrance and exit, and the road was almost invisible from the ground. Without aerial reconnaissance, it would have been truly hard to find.
+He designed a zigzag flight path centered on the camp. In addition to live video, the digital camera captured an image every ten seconds for post-analysis—uncovering situations that might escape notice during real-time monitoring.
 
-"Planes are just useful." Jiang Hongjun praised. He was responsible for the maintenance of this drone. This "only child" had no replacement yet; transmigrators had to extend its service life as much as possible.
+After two sorties, Wang Ruixiang discovered unregistered fields and a housing settlement absent from any map, nestled in a hilly hollow five kilometers south of Meiyang Village. The captured images revealed a settlement of more than twenty rooms. The primary structures were brick-and-tile buildings—a thoroughly developed farmstead.
 
-"Surveying and land investigation are a piece of cake. The real stuff will be seen when fighting." Wang Ruixiang kept thinking about military applications. "Pity it's a model plane after all. Even if it could carry bombs, they'd be firecracker-level."
+"Remarkably well hidden." Wang Ruixiang studied the recorded video and photographs with care. The farmstead's location had been chosen with considerable cunning. A single entrance existed, and the access path was virtually invisible from ground level. Without aerial reconnaissance, finding it would have been genuinely difficult.
 
-Saying this, he called Huang Ande over. Huang Ande had graduated first in the recruit camp, immediately entered the NCO training class to become a corporal, and was now a sergeant.
+"Aircraft are certainly useful," Jiang Hongjun observed approvingly. He was responsible for maintaining this drone—their "only child" with no replacement yet manufactured. Extending its service life remained paramount.
 
-"Take ten soldiers immediately and go here to catch people." Wang Ruixiang sketched the approximate location of the farmstead on the map. "Although the road is hard to find, you must move fast."
+"Surveying and land investigation are child's play. The real value will emerge in combat." Wang Ruixiang's thoughts kept returning to military applications. "A pity it's merely a model. Even if it could carry ordnance, we're talking firecracker-level payloads."
 
-"Yes!" Huang Ande snapped to attention.
+Dismissing this line of thought, he summoned Huang Ande. The young soldier had graduated first in his recruit cohort, immediately entered the NCO training program as a corporal, and now held the rank of sergeant.
 
-"Escort the people back after catching them. Leave five men at the farmstead to guard the property and grain—put on seals and wait for the Planning Committee to take over."
+"Take ten men immediately and proceed to this location to apprehend the occupants." Wang Ruixiang sketched the farmstead's approximate position on the map. "The path is difficult to locate, but you must move quickly."
 
-Huang Ande quickly completed the mission. Three hours later, Fu Erzhuang, along with the farmstead's long-term laborers, household servants, and their families, were roped together and escorted back.
+"Yes, sir!" Huang Ande snapped to attention.
 
-They were marched through the village streets, heading directly for the gate of Fu Yousan's house. Seeing Fu Erzhuang, who had been missing for days, brought back by the Australians, the villagers all came out to watch the commotion, following the procession to Fu Yousan's door.
+"Escort the occupants back after apprehension. Leave five men at the farmstead to guard the property and grain—apply seals and await the Planning Committee's takeover."
 
-Hearing the noise outside, Fu Yizhuang hurried out. Seeing his second brother captured and brought back, his heart sank, unable to say a word. Only one thought remained: "It's over!"
+Huang Ande completed the mission efficiently. Three hours later, Fu Erzhuang—along with the farmstead's long-term laborers, household servants, and their families—were roped together and marched back under escort.
 
-"Alright, your brother is back." Wang Ruixiang pointed at Fu Erzhuang. "He definitely didn't go to his wife's maiden home."
+They were paraded through the village streets, heading directly for the gate of the Fu Yousan residence. Seeing Fu Erzhuang, who had been missing for days, brought back in bonds by the Australians, villagers poured from their homes to watch the spectacle, following the procession to Fu Yousan's door.
 
-Fu Yizhuang's face alternated between green and red; he didn't know what to do. The surrounding villagers already realized what was happening and whispered to each other.
+Hearing the commotion outside, Fu Yizhuang hurried out. The sight of his captured brother caused his heart to plummet. He stood mute. Only a single thought remained: *It's finished.*
 
-"Not counting your brother, the farmstead has eleven men and women, two cows, twenty rooms, a well, and grain and cloth in the warehouse. This farmstead is really nice." Wang Ruixiang smiled. "Since you insist it's not your family's, we'll accept it with a smile. Do you have anything to say?"
+"Excellent—your brother has returned." Wang Ruixiang gestured toward Fu Erzhuang. "He most certainly did not visit his wife's family."
 
-Fu Yizhuang sighed mournfully and hung his head.
+Fu Yizhuang's face shifted through shades of green and crimson; he had no idea how to respond. The surrounding villagers had already grasped the situation and began whispering among themselves.
+
+"Not counting your brother, the farmstead contains eleven men and women, two oxen, twenty rooms, a well, and stores of grain and cloth in the warehouse. Quite a fine property." Wang Ruixiang smiled. "Since you insist it does not belong to your family, we shall happily accept it. Have you anything to say?"
+
+Fu Yizhuang released a mournful sigh and hung his head.
 
 **(End of Chapter)**

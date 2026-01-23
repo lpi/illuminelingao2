@@ -34,9 +34,9 @@ The water-supply system was under Health Group's direct control. Bopu's shallow 
 
 For drinking water, springs or deep groundwater were ideal. A river like the Wenlan had substantial flow and reasonable self-purification capacity—usable. But this was a river-delta area; water quality was generally more polluted, requiring complex treatment.
 
-Shi Niaoren tested depth and flow, then drew a 250ml sample from 50cm below the surface. Without testing equipment, he could only use basic observation and smell.
+Shi Niaoren tested depth and flow, then drew a 250ml sample from fifty centimeters below the surface. Without testing equipment, he could only use basic observation and smell.
 
-The results made him shake his head repeatedly. He'd assumed 17th-century pollution levels would mean very clean river water. In fact, though sediment was low, algae were abundant—indicating excessive organic matter in the water. In modern times, this was unsurprising—chemicals. But Ming Dynasty had no chemical fertilizers; such high organic content meant the upper-middle reaches were developed agricultural or residential zones.
+The results made him shake his head repeatedly. He'd assumed seventeenth-century pollution levels would mean very clean river water. In fact, though sediment was low, algae were abundant—indicating excessive organic matter in the water. In modern times, this was unsurprising—chemicals. But the Ming Dynasty had no chemical fertilizers; such high organic content meant the upper-middle reaches were developed agricultural or residential zones.
 
 Still, the water was usable. By Shi Niaoren's observation, it met at least Class III standards by modern metrics—some modern city water plants' intake points didn't even reach that.
 
@@ -50,13 +50,13 @@ Ma Qianzhu didn't fully understand the ship's freshwater situation and called Me
 
 "The ship has water, but not for long." Meng De explained: typical ships had at least two freshwater tanks. One stored potable water—freshwater piped in at port. One stored utility water—distilled water condensed from main-engine cooling water. This desalinated soft water was normally for washing, not drinking. If potable water ran short, it could be drunk.
 
-The *Fengcheng*, designed as an ocean-going vessel, had 4 freshwater tanks with substantial capacity. But original design was for 40–50 crew; now nearly 600 people strained it. The auxiliary engine produced limited new distilled water—couldn't sustain large-scale long-term supply.
+The *Fengcheng*, designed as an ocean-going vessel, had four freshwater tanks with substantial capacity. But original design was for forty to fifty crew; now nearly six hundred people strained it. The auxiliary engine produced limited new distilled water—couldn't sustain large-scale long-term supply.
 
 "Using the auxiliary for freshwater!" Ma Qianzhu frowned after his report. "Trading diesel for water! Rivers don't flow with diesel."
 
-Shi Niaoren knew Ma grudged the fuel, but he knew Lingao's history: cholera, typhoid, paratyphoid—intestinal infections had been widespread here. Even in the 1970s–80s, small outbreaks still occurred. Though modern medicine meant transmigrators had been vaccinated, nothing was guaranteed—even if they avoided infectious disease, acute enteritis outbreaks would be bad enough.
+Shi Niaoren knew Ma grudged the fuel, but he knew Lingao's history: cholera, typhoid, paratyphoid—intestinal infections had been widespread here. Even in the 1970s through 80s, small outbreaks still occurred. Though modern medicine meant transmigrators had been vaccinated, nothing was guaranteed—even if they avoided infectious disease, acute enteritis outbreaks would be bad enough.
 
-After laying out the pros and cons, Ma Qianzhu accepted the recommendation. To conserve water, Command decided: establish a centralized water station on shore; lay water lines along the floating-drum route, piping ship freshwater to a 2-ton stainless-steel water tank in the living area—for drinking and washing only.
+After laying out the pros and cons, Ma Qianzhu accepted the recommendation. To conserve water, Command decided: establish a centralized water station on shore; lay water lines along the floating-drum route, piping ship freshwater to a two-ton stainless-steel water tank in the living area—for drinking and washing only.
 
 "As for bathing—just tough it out for now." Ma Qianzhu knew this water-rationing policy would earn countless curses, but there was no choice. He sat down to draft a document and sent it via OA. "Building materials"—he noted in his memo. Many of today's problems traced back to this bottleneck. Tonight's meeting must address it.
 
@@ -74,7 +74,7 @@ The majestic scene intoxicated them; wordless emotion silenced them. Not just th
 
 "Blockhouse!" someone shouted. Looking toward camp, the beacon tower now had an earthen rampart around it topped with barbed wire. At first glance, it really did look like a Japanese pillbox from old war films.
 
-After a day's construction, the camp had taken basic shape. Centered on the beacon tower and patrol-office buildings, the camp formed an irregular pentagon. The outer perimeter had a ditch 5 meters wide and 2 meters deep, filled with Wenlan River water. The inner bank was built 1 meter higher than the outer, topped with barbed wire—2 meters high, secured with cross-braced wooden posts, firmly buried. Concertina wire ran at the base. Behind the wire, excavated earth formed a long rampart with trenches dug atop. Six 8-meter wooden watchtowers stood on the rampart.
+After a day's construction, the camp had taken basic shape. Centered on the beacon tower and patrol-office buildings, the camp formed an irregular pentagon. The outer perimeter had a ditch five meters wide and two meters deep, filled with Wenlan River water. The inner bank was built one meter higher than the outer, topped with barbed wire—two meters high, secured with cross-braced wooden posts, firmly buried. Concertina wire ran at the base. Behind the wire, excavated earth formed a long rampart with trenches dug atop. Six eight-meter wooden watchtowers stood on the rampart.
 
 Now torches lined the rampart, brightly illuminating the ditch. The camp gate stood open. On the gatehouse, two sentries with rifles stood beside a searchlight. Two carbide lamps hung below the gatehouse, blindingly bright. Travelers passed through the gate, scanned their dog tags at the Personnel registration point, then returned tools and excess materials at the Planning Committee depot.
 

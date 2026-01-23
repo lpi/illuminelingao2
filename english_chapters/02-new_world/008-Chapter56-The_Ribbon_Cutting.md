@@ -2,7 +2,7 @@
 
 He had no good solution for the roof—no tiles, no planks. Though he'd requested tarpaulin, the Planning Committee rejected it. So back to waste utilization: woven branch lattice as covering. Fresh greenery crowned the building—pure natural style. It looked rather like something from a domestic eco-park. Of course, this all-natural-materials latrine had basically zero wind and rain resistance. Fortunately, after Mid-Autumn, Lingao entered dry season—little rain, no typhoons. It would suffice for now. The final step: painting large "MEN" and "WOMEN" signs on the doors.
 
-The Building Group circled the newly completed latrine several times, genuinely moved. Though its structure was crude and its purpose humble—in the 21st century, even beggars might pass it by—it was the first building the transmigrators had created with their own hands. A milestone achievement. Even a floating drum dock got a monument; this building had greater significance—at minimum, a "Historic Site of Crossing Landing Base Latrine" stone was warranted. While they hotly debated the inscription, Mei Wan proposed: theoretically, such a public-welfare building deserved a Committee member to cut the ribbon and formally open it. Tian Jiujiu enthusiastically supported this—after all, the latrine was his work. So Mei Wan called the Committee, requesting a latrine completion ceremony: "It concerns livelihoods and the fundamental interests of the crossing masses. You figure it out."
+The Building Group circled the newly completed latrine several times, genuinely moved. Though its structure was crude and its purpose humble—in the twenty-first century, even beggars might pass it by—it was the first building the transmigrators had created with their own hands. A milestone achievement. Even a floating drum dock got a monument; this building had greater significance—at minimum, a "Historic Site of Crossing Landing Base Latrine" stone was warranted. While they hotly debated the inscription, Mei Wan proposed: theoretically, such a public-welfare building deserved a Committee member to cut the ribbon and formally open it. Tian Jiujiu enthusiastically supported this—after all, the latrine was his work. So Mei Wan called the Committee, requesting a latrine completion ceremony: "It concerns livelihoods and the fundamental interests of the crossing masses. You figure it out."
 
 After phoning from the beach telephone station, Mei Wan thought: if there's to be a ceremony, the latrine shouldn't stink to high heaven—that wouldn't do for leadership and media. On grounds of "holding a major public event," he requested two militiamen from Acting Military Group Leader He Ming for "guard duty"—specifying they needn't be elite, just regular militia. He Ming was an old soldier; hearing about a major public event with Committee leadership attending, he immediately assigned two young recruits to the Building Engineering Group. Thus Ye Mengyan and Wei Aiwen—neither actual military, but the most enthusiastic young trainees—received his order:
 
@@ -28,7 +28,7 @@ While they wrangled over the guard posting at the latrine, on the ship's poop de
 
 A crowd had gathered at the latrine entrance. Clearly, this kind of practical project won popular support. Xiao Zishan had just smiled and waved at them when he was drowned out by cursing:
 
-"F*** off! Acting all fancy—building a latrine and not letting people use it!"
+"Fuck off! Acting all fancy—building a latrine and not letting people use it!"
 
 "This is too damn bureaucratic! We can't piss until the big shots come?"
 
@@ -62,7 +62,7 @@ At the outpatient entrance, a bamboo pole had been erected. Health Group Chief S
 
 Other Health Group personnel were inventorying the daily supplies they'd received: mainly surgical instruments (orthopedic and general surgery), dressings, glucose solution, saline, and some common medications.
 
-While inventorying, the clinic received: 4 heatstroke cases, 5 diarrhea cases, 2 upper respiratory infections. One was a lazy fellow who'd slept in a lifeboat overnight without a sleeping bag—now running a fever. Hema squatted nearby taking his temperature.
+While inventorying, the clinic received: four heatstroke cases, five diarrhea cases, two upper respiratory infections. One was a lazy fellow who'd slept in a lifeboat overnight without a sleeping bag—now running a fever. Hema squatted nearby taking his temperature.
 
 "39.4°C—that's fierce." He Ma checked the thermometer. "Take him to the ship's infirmary."
 

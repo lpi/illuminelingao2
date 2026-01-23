@@ -1,20 +1,20 @@
 # Chapter 476 - Autumn Levy (Part 27)
 
-The several men kneeling on the ground turned deathly pale. The finger press was a "severe punishment" that county yamen only used on murderers or notorious bandits. No matter how iron-willed a tough man might be, after two applications of the press, they had to confess. Moreover, anyone who'd been subjected to the finger press would be left with permanent disabilities in their hands and feet.
+The several men kneeling on the ground turned deathly pale. The finger press was a "severe punishment" that county yamen reserved only for murderers or notorious bandits. No matter how iron-willed a man might be, after two applications of the press, he would confess. Moreover, anyone subjected to the finger press would be left with permanent disabilities in their hands and feet.
 
-Runners in a county yamen getting paddled by officials was routine—from clerks and squad chiefs down to ordinary constables. But since runners were all colleagues, sharing the same interests, when constables administered the paddle, they merely went through the motions, usually striking the floor. It was rare for blows to actually land. Now this Australian chief was ordering the finger press right from the start—how could they endure it!
+Runners in a county yamen getting paddled by officials was routine—from clerks and squad chiefs down to ordinary constables. But since runners were all colleagues sharing the same interests, when constables administered the paddle, they merely went through the motions, usually striking the floor. It was rare for blows to actually land. Now this Australian chief was ordering the finger press right from the start—how could they endure it!
 
 Immediately they began kowtowing frantically, wailing: "Have mercy, sir!"
 
-"Stop kowtowing." You Guotuan said. "Tell me properly: how much have you siphoned from the county treasury? Where is it all stashed?"
+"Stop kowtowing," You Guotuan said. "Tell me properly: how much have you siphoned from the county treasury? Where is it all stashed?"
 
 "How would this lowly one dare—" The several men below desperately protested their innocence.
 
 Just then, four retained constables from the Constable Squad were called in. The moment they entered, they fell to their knees and kowtowed.
 
-"No need to kowtow. Get ready to work." You Guotuan ordered. "Did you bring everything?"
+"No need to kowtow. Get ready to work," You Guotuan ordered. "Did you bring everything?"
 
-"Reporting to the master, everything's here." The constables stole glances at the men kneeling on the ground. Seeing they were warehouse clerks, they understood the Australians meant to deal with these "fat pigs."
+"Reporting to the master, everything's here." The constables stole glances at the men kneeling on the ground. Seeing they were warehouse clerks, they understood—the Australians meant to deal with these "fat pigs."
 
 "Right then. Give each of them twenty strokes first." You Guotuan gave the order directly.
 
@@ -22,9 +22,9 @@ Just then, four retained constables from the Constable Squad were called in. The
 
 "A bit late for that now." You Guotuan waved his hand. "Get to it!"
 
-These were all constables known for being "highly skilled" at their work. Seeing that others had been taken outside the city to destinations unknown while they had been retained at the county yamen, they had been quite apprehensive, not knowing whether fortune or calamity awaited. Now, hearing they were to administer torture—this was their specialty. Each of them rallied their spirits. They moved to drag the men over and strip them bare.
+These were all constables known for being "highly skilled" at their craft. Seeing that others had been taken outside the city to destinations unknown while they had been retained at the county yamen, they had been quite apprehensive, not knowing whether fortune or calamity awaited. Now, hearing they were to administer torture—this was their specialty. Each of them rallied their spirits. They moved to drag the men over and strip them bare.
 
-Men who moments ago had been properly dressed were suddenly stripped naked, like bare pigs. The constables truly had no compunctions. Ignoring the wails and struggles, they pressed the man down, and two of them picked up bamboo paddles and immediately began swinging.
+Men who moments ago had been properly dressed were suddenly stripped naked, like bare pigs. The constables truly had no compunctions. Ignoring the wails and struggles, they pressed the first man down, and two of them picked up bamboo paddles and immediately began swinging.
 
 The first dull thud of bamboo striking flesh provoked a piercing shriek, yet no blood appeared on the white buttocks. You Guotuan knew these constables weren't faking it. If they'd wanted to fool him, the first blow would have split the skin, making things look bloody but actually causing less injury. This bloodless, muffled beating was not only far more painful but caused much more serious damage.
 
@@ -34,15 +34,15 @@ When the paddling was done, the several warehouse clerks lay on the ground, unab
 
 "Good. Now tell me properly: how much profit have you taken from the county treasury? Where is it all hidden?" You Guotuan asked. "And who else in the county yamen has taken a cut from you? Tell me every single one!" He had paper and writing brushes thrown down. "Write it yourselves. Write neatly."
 
-...After considerable commotion, the several wretches all submitted their first round of "homework." Squinting to decipher the traditional characters and cross-reference the accounts was truly tedious work. Fortunately, there was no need to look too closely—specialized personnel would handle that. He only needed to see whether they were answering honestly.
+After considerable commotion, the several wretches all submitted their first round of "homework." Squinting to decipher the traditional characters and cross-reference the accounts was truly tedious work. Fortunately, there was no need to look too closely—specialized personnel would handle that. He only needed to see whether they were answering honestly.
 
-After this paddling and writing lengthy confessions, the warehouse clerks were utterly exhausted. One after another, they lay groaning on the ground. The younger and sturdier ones were somewhat better off; several who were older or typically averse to exercise had simply fainted.
+After this paddling and writing lengthy confessions, the warehouse clerks were utterly exhausted. One after another, they lay groaning on the ground. The younger and sturdier ones fared somewhat better; several who were older or typically averse to exercise had simply fainted.
 
-"Good. First get their thumbprints." You Guotuan instructed the constables. "Then take them out, apply medicine, and let them recover. Once they've healed in a few days, we'll question them again!"
+"Good. First get their thumbprints," You Guotuan instructed the constables. "Then take them out, apply medicine, and let them recover. Once they've healed in a few days, we'll question them again!"
 
 Wails arose from below: "Have mercy, sir—this lowly one will tell everything..."
 
-"Take them away." You Guotuan waved his hand impatiently. The matter didn't seem troublesome at all—one round of paddling and they'd all talked. The modern equipment he'd specially brought along wouldn't be needed after all.
+"Take them away." You Guotuan waved his hand impatiently. The matter didn't seem troublesome at all—one round of paddling and they'd all talked. The modern equipment he'd specially brought along wouldn't even be needed.
 
 The confession statements were immediately sent to Zhang Youfu's residence, where the language team transcribed them in clear copy and distributed them to the relevant responsible parties. These documents also reached the person Xiong Buyou was about to introduce to Wu Mingjin.
 
@@ -64,11 +64,11 @@ The confession statements were immediately sent to Zhang Youfu's residence, wher
 
 Salt absorbed moisture easily, so losses were substantial. Salt collection therefore also involved inflated levies—another heavy burden on the salt workers.
 
-Selling off the salt the government had requisitioned at below-market prices, then using inflated collection to fill the gap—this was essentially a no-capital scheme!
+Selling off government-requisitioned salt at below-market prices, then using inflated collection to fill the gap—this was essentially a no-capital scheme!
 
 "Why doesn't he just get illicit salt directly from the salt works?"
 
-"At the time, the Maixiao salt works was controlled by the Gou family. Getting directly involved would have meant colluding with the Gous—and the Gou family's reputation was terrible. He probably didn't want to do that."
+"At the time, the Maixiao salt works was controlled by the Gou family. Getting directly involved would have meant colluding with the Gous—and the Gou family's reputation was terrible. He probably didn't want that association."
 
 "No wonder Wang Zhaomin agreed so readily last year when we proposed a partnership in the salt trade during negotiations—turns out they were already in the business!"
 
@@ -102,7 +102,7 @@ As for whether others opposed it—Wu De didn't care. Of course, if Wu Mingjin w
 
 Then he thought again: this was surely just a ploy by the Baldies to pillage the county treasury. At this thought, Wu Mingjin's face showed indignation. A scholar's small measure of backbone surfaced. He was a properly appointed magistrate of the Great Ming's Lingao County! If he couldn't even protect a county treasury, what business did he have being an official?
 
-"In this matter, I cannot comply." Wu Mingjin said coldly. "The county treasury may be small, but it is still an official institution. How can it be casually entrusted to merchants?"
+"In this matter, I cannot comply," Wu Mingjin said coldly. "The county treasury may be small, but it is still an official institution. How can it be casually entrusted to merchants?"
 
 "Master Wu, you misunderstand." Yan Ming had anticipated this reaction and patiently explained. "Delong's agency management essentially handles collection and payment services. The greatest benefit to this county is eliminating the depredations of the clerks."
 

@@ -1,6 +1,6 @@
 # Chapter 475 - Autumn Levy (Part 26)
 
-The Baldies neither killed officials nor rebelled openly. They didn't go about killing and burning, but instead continuously offered small favors to win over the common people, the gentry, and the literati, deliberately creating an appearance of peaceful coexistence. This made it even less likely to attract the attention of superiors or the court. After all, from top to bottom, everyone preferred fewer troubles rather than more.
+The Baldies neither killed officials nor rebelled openly. They didn't rampage through killing and burning, but instead continuously offered small favors to win over the common people, the gentry, and the literati, deliberately creating an appearance of peaceful coexistence. This made it even less likely to attract the attention of superiors or the court. After all, from top to bottom, everyone preferred fewer troubles rather than more.
 
 "These Baldies are truly detestable!" Wu Mingjin said in frustration.
 
@@ -16,7 +16,7 @@ After thinking it over, there was really no alternative but to accept reality.
 
 "Then do as they wish!" Wu Mingjin thought that at this point, there was no other option. The only problem was that without all these experienced hands, how would official business be handled?
 
-"No need to worry about that." Wang Zhaomin said. "Zhou Qi has been installed as Household Clerk—he was Chen Minggang's top apprentice and is just as skilled in the work. The clerks from Personnel, Rites, Works, and Military Affairs are all being retained. As for the three squad chiefs..." Wang Zhaomin felt it barely mattered whether they existed or not at this point.
+"No need to worry about that," Wang Zhaomin said. "Zhou Qi has been installed as Household Clerk—he was Chen Minggang's top apprentice and is just as skilled in the work. The clerks from Personnel, Rites, Works, and Military Affairs are all being retained. As for the three squad chiefs..." Wang Zhaomin felt it barely mattered whether they existed or not at this point.
 
 As for the Punishment Office, this county had few cases to handle anyway. Besides, there were other clerks in the Punishment Office who could fill in. Missing one Zhang Shi wouldn't bring the sky down.
 
@@ -24,7 +24,7 @@ Looking at it this way, the problems weren't too severe.
 
 "Master Xiong said the customary fees for filling clerk vacancies would remain the same—"
 
-Wu Mingjin's eyelid twitched. Whenever a position came vacant, filling it required a tribute payment to the county magistrate—like official appointments themselves, the going rate depended on how lucrative the position was. Now the Baldies had swept up two clerks in one stroke—this was no small windfall! Wu Mingjin suddenly felt a twinge of regret—since they were making arrests, why not arrest all six office clerks? It wasn't as if the previous clerks had been paragons of loyalty anyway.
+Wu Mingjin's eyelid twitched. Whenever a position came vacant, filling it required a tribute payment to the county magistrate—like official appointments themselves, the going rate depended on how lucrative the position was. Now the Baldies had swept up two clerks in one stroke—this was no small windfall! Wu Mingjin suddenly felt a twinge of regret: since they were making arrests, why not arrest all six office clerks? It wasn't as if the previous clerks had been paragons of loyalty anyway.
 
 "...But they've also arrested the warehouse clerk."
 
@@ -38,7 +38,7 @@ In an empty room within the yamen, the warehouse clerks arrested the previous da
 
 The person conducting the interrogations was You Guotuan—Zhou Dongtian had already rushed to the "study class" to personally interrogate Chen Minggang's gang. You Guotuan's task was to crack open the warehouse clerks' mouths, discover exactly how much wealth these rats had accumulated to replenish the Planning Committee's coffers, and also to understand the key mechanisms—they would be taking over more prefectures and counties in the future.
 
-"Don't underestimate a few warehouse clerks." Dong Weiwei said. "Do you know who the wealthiest people in Beijing were during the Ming and Qing dynasties?"
+"Don't underestimate a few warehouse clerks," Dong Weiwei said. "Do you know who the wealthiest people in Beijing were during the Ming and Qing dynasties?"
 
 "The Emperor? High officials and nobles? Grand corrupt ministers?"
 
@@ -46,7 +46,7 @@ The person conducting the interrogations was You Guotuan—Zhou Dongtian had alr
 
 These warehouse clerks were the clerks who managed the Ministry of Revenue's silver vaults. Their theft and embezzlement to enrich themselves was an open secret in society at the time.
 
-Local yamen warehouses were much the same. Though not as lucrative as the Ministry of Revenue's vaults, they were still sufficient for building a fortune. Within a county yamen, aside from the Household Clerk, the silver and grain warehouse clerks were the most well-positioned to profit. "Managing the storehouse means feeding from the storehouse." Compared to their colleagues in the Ministry of Revenue vaults who mainly resorted to smuggling silver out in their rectums, local yamen warehouse clerks employed far more sophisticated techniques. The tricks of the trade were as numerous as hairs on an ox.
+Local yamen warehouses were much the same. Though not as lucrative as the Ministry of Revenue's vaults, they were still sufficient for building a fortune. Within a county yamen, aside from the Household Clerk, the silver and grain warehouse clerks were best positioned to profit. "Managing the storehouse means feeding from the storehouse." Compared to their colleagues in the Ministry of Revenue vaults who mainly resorted to smuggling silver out in their rectums, local yamen warehouse clerks employed far more sophisticated techniques. The tricks of the trade were as numerous as hairs on an ox.
 
 The simplest and arguably "most honest" method was to divert treasury funds for private lending at interest. Silver and copper could be lent out, and in places like Lingao where the commodity economy was undeveloped, cloth and grain could likewise be used as loans.
 
@@ -54,7 +54,7 @@ The simplest and arguably "most honest" method was to divert treasury funds for 
 
 Next came substituting inferior goods. The various goods stored in the warehouse—grain, cloth, and the like—naturally suffered deterioration over long storage periods. What deteriorated? How much? The warehouse clerks decided everything. They could either write things off as losses outright, or report that items had deteriorated in storage and request permission to sell them at reduced prices.
 
-Even silver and copper coins, which didn't technically deteriorate, could still be subjected to substitution tricks. High-quality coins could be replaced with low-value small coins like *shaqiao* or *guangpian*. Ingots of treasury silver couldn't be casually touched, but scattered fragments of silver collected from taxes but not yet remelted could be swapped out for debased alloys.
+Even silver and copper coins, which didn't technically deteriorate, could still be subjected to substitution tricks. High-quality coins could be replaced with low-value small coins like *shaqiao* or *guangpian*. Ingots of treasury silver couldn't be casually touched, but scattered fragments collected from taxes but not yet remelted could be swapped out for debased alloys.
 
 All of this was common knowledge within prefectural and county yamen, but local officials rarely dared to reform it. If you blocked their income stream, problems of "accounts not balancing" would emerge at the handover when your term ended—and the official would have to cover the losses. Furthermore, warehouse clerks also paid tribute to local officials. At most, honest officials with integrity would refuse to accept the warehouse clerks' tributes but didn't dare antagonize them. Even when warehouse embezzlement was exposed, they would try to cover it up and let the clerk figure out how to plug the hole themselves. They absolutely couldn't push too hard and back them into a corner. At worst, a warehouse clerk might lose his position, but the official could end up bearing the losses—and might even be dismissed or stripped of office.
 
@@ -64,13 +64,13 @@ As for the grain warehouse clerks, their benefits were even greater. Since the w
 
 As for substitution schemes similar to those in the silver vault, they were even easier to carry out in the grain warehouse. Sell off the good grain and bring in equivalent quantities of inferior goods to replace it. As long as the accounts balanced, there was no risk whatsoever.
 
-"These are just the most basic tricks. As for how many methods they actually use in practice, we really have no idea. You'd best get as much information out of them as possible." Dong Weiwei said. "It'll be useful later."
+"These are just the most basic tricks. As for how many methods they actually use in practice, we really have no idea. You'd best get as much information out of them as possible," Dong Weiwei said. "It'll be useful later."
 
 "Don't worry, I'll definitely pry their mouths open." You Guotuan was quite confident.
 
 "OK, but I'm a gentleman who stays out of the kitchen. Enjoy your SM session." Dong Weiwei said with a laugh as she walked away.
 
-"Playing SM with these ugly uncles," You Guotuan said, "takes some strong nerves. And I'm the one who has to do it—"
+"Playing SM with these ugly uncles," You Guotuan muttered, "takes some strong nerves. And I'm the one who has to do it—"
 
 Pulling his thoughts back from his grumbling, You Guotuan entered the room where the warehouse clerks were detained. It consisted of three main rooms. The largest central room served as his interrogation chamber, while the wing rooms served as cells.
 

@@ -4,7 +4,7 @@ At last.
 
 Dong Shiye gazed at the barren beach less than 300 meters away, the green tree clumps, the warm autumn morning sun—quite comfortable. *Damn God, I've finally reached the ancient times.* But wait—*why did I want to come to ancient times?*
 
-The question flashed through his mind, then he was shoved forward by people behind him. The deck was chaotic and packed. There was a dock, sure—but it wasn't the Shiliupu Passenger Terminal. No comfortable covered gangway with handrails. Just vertical metal ladders and large cargo nets—as a former president of his university's military-enthusiast club, Xiao Dong naturally recalled Normandy landing photos: American GIs had climbed down these same nets to landing craft to liberate Europe and, incidentally, pick up local girls. Looking at pictures hadn't seemed like much. Now, standing on the heaving deck and peering over the side—several stories down, faintly blue sea, floating dock and small boats bobbing—two glances and his head spun, legs trembling.
+The question flashed through his mind, then he was shoved forward by people behind him. The deck was chaotic and packed. There was a dock, sure—but it wasn't the Shiliupu Passenger Terminal. No comfortable covered gangway with handrails. Just vertical metal ladders and large cargo nets—as a former president of his university's military-enthusiast club, Xiao Dong naturally recalled Normandy landing photos: American GIs had climbed down these same nets to landing craft, to liberate Europe and, incidentally, pick up local girls. Looking at pictures hadn't seemed like much. Now, standing on the heaving deck and peering over the side—several stories down, faintly blue sea, floating dock and small boats bobbing—two glances and his head spun, legs trembling.
 
 The floating dock didn't have enough area. Many people had to transfer ashore via the ship's rowboats. People climbed down the cargo nets into boats; constantly, strange-shaped packages were lowered on ropes from the deck. "Don't panic, don't panic—watch the boat!" "Stop boarding—the boat's going to sink!" The calls never stopped. Everyone felt the same: get ashore fast, carve out our own era.
 
@@ -18,9 +18,9 @@ C0081? That was his group. Dong Shiye checked his armband.
 
 Names were exchanged. Assigned to the same group—comrades in a single trench.
 
-"Logging?" Fresh work. Though Dong Shiye was an outdoor enthusiast, had read plant guides, and chopped firewood—he'd never held an axe.
+"Logging?" Fresh work. Though Dong Shiye was an outdoor enthusiast, had read plant guides, and chopped firewood—he'd never held a proper axe.
 
-"Never done it." Liu Zheng smiled bitterly. "Holy f***ing shit! I clearly listed my specialty as wilderness exploration! Logging counts as wilderness exploration?"
+"Never done it." Liu Zheng smiled bitterly. "Holy fucking shit! I clearly listed my specialty as wilderness exploration! Logging counts as wilderness exploration?"
 
 "We don't even have tools!"
 
@@ -32,7 +32,7 @@ They'd just fished out Military Group chief Xi Yazhou and sent him to the ship's
 
 Ever since that morning when Meng De—half by luck—had steered the ship into the harbor and dropped twin anchors at the deep-water berth marked by the recon team, this "half-baked" in the Committee's eyes had upgraded to "capable." He'd become Landing Commander Ma Qianzhu's chief consultant.
 
-The entire fleet's unloading work was now under his command—he'd organized the loading and understood that cargo ship unloading was highly technical work. A 10,000-ton general cargo ship carrying 5,000 tons, using ship or shore cranes at a well-equipped port, could unload 200–500 tons per hatch daily, emptying completely in 4–6 working days.
+The entire fleet's unloading work was now under his command—he'd organized the loading and understood that cargo-ship unloading was highly technical work. A 10,000-ton general cargo ship carrying 5,000 tons, using ship or shore cranes at a well-equipped port, could unload 200–500 tons per hatch daily, emptying completely in four to six working days.
 
 Knowing the transmigrators lacked practical experience and couldn't match professional longshoremen in strength or skill, Meng De had spared no packaging expense during loading—all miscellaneous cargo was pre-unitized into group loads.
 
@@ -40,11 +40,11 @@ Knowing the transmigrators lacked practical experience and couldn't match profes
 
 More common for cargo ships were cargo pallets, net bags, and bulk bags, grouping loose items. Though lacking containers' advantages, this greatly facilitated handling.
 
-The *Fengcheng* had 4 derrick sets, 8 cargo winches rated 3–5–10 tons, plus one 60-ton heavy-lift. Most cargo was no problem. Operating the winches was also skilled work. Fortunately, three months of sailor training meant they'd at least seen a pig run even if they hadn't eaten pork. They got the winches working—just with slow, clumsy movements, repeated swinging that scared the transmigrators queuing on deck. Everyone dodged the derricks, creating chaos. No matter how Du Wen exhorted "revolutionary heroism, fear neither death nor hardship" over the PA, it had no effect.
+The *Fengcheng* had four derrick sets, eight cargo winches rated three-five-ten tons, plus one sixty-ton heavy-lift. Most cargo was no problem. Operating the winches was also skilled work. Fortunately, three months of sailor training meant they'd at least seen a pig run even if they hadn't eaten pork. They got the winches working—just with slow, clumsy movements, repeated swinging that scared the transmigrators queuing on deck. Everyone dodged the derricks, creating chaos. No matter how Du Wen exhorted "revolutionary heroism, fear neither death nor hardship" over the PA, it had no effect.
 
 After about ten minutes of struggling, the first cargo pallet finally hung in the air and then touched down on the floating dock. Still shaken, transmigrators didn't spare applause—cheers all around.
 
-Less than 15 minutes after the applause, everyone on board was dumbfounded. The crane operators had only focused on dropping cargo, filling the dock space below the derricks in moments. People queuing couldn't get off. Worse, they'd forgotten to first lower the 3-ton and 10-ton Dongfanghong forklifts that were lashed to the deck. The landed pallets—each over a ton—couldn't be pushed or lifted by the workers below.
+Less than fifteen minutes after the applause, everyone on board was dumbfounded. The crane operators had only focused on dropping cargo, filling the dock space below the derricks in moments. People queuing couldn't disembark. Worse, they'd forgotten to first lower the three-ton and ten-ton Dongfanghong forklifts that were lashed to the deck. The landed pallets—each over a ton—couldn't be pushed or lifted by the workers below.
 
 Now things got lively. Meng De ran all over the deck, sweat dripping. The Committee mentally demoted him back.
 
@@ -62,7 +62,7 @@ Just then, from the registration point came a burly man in black military wading
 
 After landing, the Committee had dispatched a second-wave resource-survey team of Military and forestry personnel to scout the estuary region. Conclusion: timber resources here were extremely scarce. Some tall trees grew by the coast, but for windbreak and erosion control, this natural forest shouldn't be logged. Farther upriver along the Wenlan, mature tree stands were rare. Small mixed woods were everywhere but yielded nothing usable—good only for firewood and pole shelters.
 
-Finally, they decided to fell trees within the mangrove forests at the river mouth. The mangroves along the estuary and bay were quite dense, with complete vegetation—from shrubs to small trees to large arbors. Particularly at the estuary's edge near the beach were stands of 10-meter-plus *Bruguiera gymnorrhiza* (sea-lotus trees)—relatively easier to harvest. So the first logging site was established here.
+Finally, they decided to fell trees within the mangrove forests at the river mouth. The mangroves along the estuary and bay were quite dense, with complete vegetation—from shrubs to small trees to large arbors. Particularly at the estuary's edge near the beach were stands of ten-meter-plus *Bruguiera gymnorrhiza* (sea-lotus trees)—relatively easier to harvest. So the first logging site was established here.
 
 "Relatively easier" still meant wading into semi-swampy mangrove flats. Small sandbars crisscrossed the water, covered with various mangrove species, branches tangled, emitting a moldy stench. Everyone felt slightly daunted.
 

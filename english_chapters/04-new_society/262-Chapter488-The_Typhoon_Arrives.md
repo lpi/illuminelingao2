@@ -22,9 +22,9 @@
 
 "Lion dance?!" Ding Ding had an awakening—how had he not thought of this! This was a beloved form of folk entertainment among the Chinese people.
 
-"There are craftsmen who can make the lion heads and people who know the dances." Ji Denggao was Cantonese and very familiar with lion dance activities. "Country folk love watching spectacles. Lion dances are good for gathering crowds."
+"There are craftsmen who can make the lion heads and people who know the dances." Ji Denggao was Cantonese and very familiar with lion dance activities. "Country folk love watching spectacles. Lion dances are excellent for gathering crowds."
 
-"Not bad. A very good idea." Ding Ding jotted a note in his notebook: write slogans on the lion costumes.
+"Not bad. A very good idea." Ding Ding jotted a note in his notebook: *write slogans on the lion costumes.*
 
 Ji Denggao's face lit up with excitement that his first suggestion had been accepted: "Thank you, Chief!"
 
@@ -38,7 +38,7 @@ The typhoon from the Beibu Gulf and cold air from the north worked together to c
 
 Cold air and tropical typhoon stirred up towering waves. Torrential rain poured down. The Wenlan River rose rapidly—summer was already Lingao's rainy season with abundant rainfall, keeping the Wenlan's water level persistently high. With this storm added on top, floods immediately swept through the middle and lower reaches.
 
-Before the typhoon arrived, the newly-established weather station in the Gaoshan Ridge area had issued a timely weather warning—not based on satellite imagery, of course, but on barometers and radar. The weather radar from the Fengcheng had proven to be a true "divine artifact," predicting the typhoon's arrival earlier than barometers alone.
+Before the typhoon arrived, the newly-established weather station in the Gaoshan Ridge area had issued a timely weather warning—not based on satellite imagery, of course, but on barometers and radar. The weather radar from the *Fengcheng* had proven to be a true "divine artifact," predicting the typhoon's arrival earlier than barometers alone.
 
 Though the transmigrator collective hadn't encountered typhoons in the autumn of 1628, the Executive Committee had been aware of Hainan's typhoon problems. Lingao averaged five storms of Force 8 or above annually—the least wind-prone area in Hainan. The transmigrators had still made provisions against wind and flood in their construction. Events proved this extra investment was necessary—the 1629 typhoon came in fierce. Rain, wind, and floods swept through the Wenlan River basin, destroying houses and fields, sweeping away people and livestock, flooding equipment...
 
@@ -54,9 +54,9 @@ Over a hundred structures collapsed in Bairun City and Bopu Base. The prefab sim
 
 Thanks to the weather station's early warning, people and materials were evacuated and relocated promptly, limiting losses. The National School had suspended classes in advance, transferring all children to bases in the Gaoshan Ridge area for shelter. The Grand Library's materials and important equipment had also been moved to the relatively safer Gaoshan Ridge area well ahead of time.
 
-But losses among ordinary people were quite severe. The Wenlan River basin particularly suffered from flooding from the rising waters. Many households that hadn't finished harvesting their grain suffered major losses. Many houses were destroyed; human and animal casualties were considerable.
+But losses among ordinary people were quite severe. The Wenlan River basin particularly suffered from flooding as the waters rose. Many households that hadn't finished harvesting their grain suffered major losses. Many houses were destroyed; human and animal casualties were considerable.
 
-Bopu Harbor, just ravaged by the typhoon, was a scene of devastation. Debris floated as it drifted—some from the sea, some washed from the land by floodwaters. Among the flotsam were human and animal corpses, bellies swollen. The primitive boom cranes erected along the shore earlier had been swept away without a trace. Dozens of meters of wooden jetty had been destroyed. Ships thrown ashore lay tilted on the beach. A work crew was dismantling the hulls to salvage the lumber.
+Bopu Harbor, just ravaged by the typhoon, was a scene of devastation. Debris floated and drifted—some from the sea, some washed from the land by floodwaters. Among the flotsam were human and animal corpses, bellies swollen. The primitive boom cranes erected along the shore earlier had been swept away without a trace. Dozens of meters of wooden jetty had been destroyed. Ships thrown ashore lay tilted on the beach. A work crew was dismantling the hulls to salvage the lumber.
 
 On the dock's stone quay, scattered remains of burnt incense and paper ash marked where many families who had lost loved ones in the typhoon—unable to find bodies—could only conduct memorial rituals from the shore.
 

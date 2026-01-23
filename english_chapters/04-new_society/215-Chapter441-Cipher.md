@@ -1,95 +1,94 @@
-# Chapter 441 Cipher
+# Chapter 441 - Cipher
 
-Knowing who the specific code names referred to was the key. With this, these materials would become thorough "black materials." Releasing them would have far more lethality than a list of "Three Festivals and Two Birthdays" gift records. Just as an actress adhering to "unspoken rules" is gossip entertainment news, but an actress being raped is a criminal case.
+The key to unlocking these materials lay in identifying who each code name represented. With that knowledge, these documents would transform into devastating "black materials"—their release far more lethal than any ledger of "Three Festivals and Two Birthdays" gifts. After all, the difference between an actress adhering to "unspoken rules" and one being raped was the difference between gossip and a criminal case.
 
-Lin Baiguang believed that Gou Er couldn't have a superhuman memory to remember the person referred to by every code name. Most likely, there should be a cross-reference table between code names and real names as a memo.
+Lin Baiguang was convinced that Gou Er couldn't possibly possess a superhuman memory capable of recalling every person behind every code name. There had to be a cross-reference table somewhere—a master cipher linking pseudonyms to real identities.
 
-However, if Lin Baiguang could think of this, Gou Er naturally could too. As the material sorting gradually came to an end, Sun Xiao still hadn't found the most valuable roster in the account books. Lin Baiguang's face began to look bad: finding valuable material but being unable to use it was too disappointing.
+Yet if Lin Baiguang had reasoned this far, Gou Er surely had as well. As the document sorting drew toward completion and Sun Xiao still hadn't located the crucial roster among the account books, Lin Baiguang's expression darkened. To discover such valuable material and find it unusable—the disappointment was almost unbearable.
 
-"You don't need to be too disappointed. Maybe Gou Er memorized it himself," Mu Min comforted him. "Or he carries this master copy with him. Besides looking directly for data, we can also use intelligence analysis methods to find out who the code names refer to."
+"Don't be too disheartened," Mu Min offered. "Perhaps Gou Er memorized it himself. Or he carries the master copy on his person. Besides direct searching, we can employ intelligence analysis to deduce who these code names refer to."
 
-"By cross-referencing the materials, we can generally know where this person is, what specific things they do, and who they contact. We can guess roughly who it is." Mu Min picked up the bribery registry. "The 'Old Man of Lanling' mentioned in the last entry of this booklet received money to intercede with Wu Mingjin for a matter, and the matter was successfully handled. Obviously, this person is an acquaintance close to Wu Mingjin, and the relationship is quite extraordinary."
+"By cross-referencing the materials, we can generally determine where a person is located, what specific activities they engage in, and who their contacts are. From there, we can make reasonable guesses." She picked up the bribery registry. "Take this 'Old Man of Lanling' mentioned in the final entry—he received payment to intercede with Wu Mingjin on some matter, and it was successfully handled. Clearly, this person enjoys a close and rather extraordinary relationship with Wu Mingjin."
 
-"I thought of this too," Lin Baiguang said. "But there are quite a few trusted aides around Wu Mingjin—it's hard to confirm exactly who it is. Besides, if it were Assistant Magistrate Wu Ya or an important local member of the gentry interceding, he wouldn't be embarrassed to reject it on the spot."
+"I'd considered that," Lin Baiguang replied. "But Wu Mingjin has quite a few trusted aides—confirming precisely which one would be difficult. Besides, if it were Assistant Magistrate Wu Ya or an important member of the local gentry interceding, Wu Mingjin would hardly reject them outright."
 
-"So we need to synthesize the materials to look at it. This way we can deduce it."
+"Which is why we need to synthesize all the materials. Only then can we deduce the truth."
 
-When they finished clearing the box, they finally found what Lin Baiguang needed: the roster.
+When they finally finished clearing the box, Lin Baiguang found exactly what he needed: the roster.
 
-When Sun Xiao brought it over, Lin Baiguang was overjoyed. With this thing, he would grab a handful of the "bezoars and dog treasures" inside the bellies of these Qiongzhou Prefecture officials!
+Sun Xiao brought it over, and Lin Baiguang's heart leapt. With this document, he would have a firm grip on all the "bezoars and dog treasures" hidden in the bellies of these Qiongzhou Prefecture officials!
 
-Opening it, he immediately went cold halfway. It was indeed a cross-reference table. Each page of the account book was divided into upper and lower columns. The upper column had the person's code name, but the names below were meaningless three-character combinations. Judging by their weirdness, they couldn't possibly be people's real names.
+He opened it—and his excitement immediately curdled. It was indeed a cross-reference table. Each page was divided into upper and lower columns, the upper containing the person's code name, the lower showing meaningless three-character combinations. Judging by their bizarre construction, these couldn't possibly be actual names.
 
-"Damn, this Gou Er is really cunning! This is probably another kind of code!"
+"Damn! This Gou Er is truly cunning! This must be another layer of cipher!"
 
-Mu Min thought this was likely a kind of cipher, but she knew nothing about it. Through querying the personnel database via computer, they found a cryptography person: Zhang Xingpei.
+Mu Min suspected the same but confessed complete ignorance of cryptography. Through the personnel database, they identified an expert: Zhang Xingpei.
 
-Zhang Xingpei had just returned from Guangzhou not long ago and was enjoying his vacation—he had received excellent hospitality in Guangzhou: playing with four or five women in one breath. It left him exhausted. After returning to Lingao, he only wanted to cultivate his mind and body. But a phone call summoned him to the Political Security Bureau.
+Zhang Xingpei had only recently returned from Guangzhou, where he'd enjoyed excellent hospitality—four or five women in one breath had left him exhausted. Back in Lingao, he desired nothing more than rest and recuperation. But a phone call summoned him to the Political Security Bureau.
 
-Zhang Xingpei was uneasy, repeatedly thinking over whether he had done anything to wrong the Crossing Group. Could his "lifestyle" issues in Guangzhou have been reported? It seemed the Security Bureau didn't care about such lower-body matters... He couldn't figure it out after much thought, so he had to report for duty.
+On the way, anxiety gnawed at him. Had he done something to wrong the Crossing Group? Could his "lifestyle" issues in Guangzhou have been reported? Surely the Security Bureau didn't concern itself with such matters of the lower body... Unable to puzzle it out, he simply reported for duty.
 
-"Look at these things. Is it a cipher?" Lin Baiguang cut straight to the chase.
+"Look at these," Lin Baiguang said without preamble. "Is this a cipher?"
 
-Zhang Xingpei had a strong interest in cryptography and intelligence studies and had specially studied them. Of course, his cryptography was only at the most basic entry-level. Hearing he was to work on ciphers gave him a fright—his examples in cryptography were almost all based on the West. He had no concept of what ancient Chinese ciphers were like.
+Zhang Xingpei harbored a strong interest in cryptography and intelligence studies and had devoted considerable effort to their study. Of course, his knowledge remained at the most basic level. The mention of ciphers alarmed him—his entire framework was Western. He had no conception of what ancient Chinese ciphers might look like.
 
-"This is very difficult. I know nothing about ancient Chinese ciphers..." Zhang Xingpei hesitated. "The ancients probably wouldn't use overly complex ciphers, but without knowing the system inside, it's not easy to start."
+"This is extremely difficult," he admitted. "I know nothing about ancient Chinese ciphers. The ancients probably wouldn't employ overly complex systems, but without understanding the underlying mechanism, I wouldn't know where to begin."
 
-"The principles should be the same, right?"
+"Surely the principles are the same?"
 
-"Hard to say," Zhang Xingpei said. "Chinese has eight hundred common characters, while the Western system has dozens of letters—from a coding perspective, letters are obviously much easier than square characters."
+"Hard to say." Zhang Xingpei shook his head. "Chinese uses eight hundred common characters, while Western systems use merely a few dozen letters. From a coding perspective, an alphabet is obviously far easier to work with than a logographic script."
 
-The huge difference in writing systems between China and the West created completely different concepts in secret data transmission. Ancient China used more secret slang and argot. Zhang Xingpei knew a little about this kind of slang, which was basically passed down orally and was not the same thing as a cipher at all.
+This vast difference in writing systems created completely divergent approaches to secret communication. Ancient China relied more heavily on secret slang and argot—jargon passed down orally, fundamentally different from true ciphers. Zhang Xingpei knew a little about such slang, but it bore no resemblance to the document before him.
 
-"Hurry and call Luo Duo. Tell him to look up ancient Chinese cryptography materials!"
+"Quickly, call Luo Duo! Tell him to research ancient Chinese cryptography materials!"
 
-"It's the middle of the night. Calling people at midnight lacks civic virtue—" Zhang Xingpei was already dissatisfied with being summoned late at night and used the topic to express it.
+"It's the middle of the night. Disturbing people at this hour lacks basic civic virtue—" Zhang Xingpei, already irritated at being summoned so late, seized the opportunity to voice his displeasure.
 
-"Don't worry. This 'two-legged bookcase' is definitely in the Social Work Department office." Lin Baiguang was obviously uninterested in civic virtue, and he was very familiar with Luo Duo's habits—this person's greatest hobby was researching materials; the later at night, the better his spirits.
+"Don't worry. This 'walking encyclopedia' is definitely still in the Social Work Department office." Lin Baiguang clearly had no interest in civic virtue, and he knew Luo Duo's habits well—the man's greatest joy was research, and the later the hour, the sharper his mind.
 
-But the summoned Luo Duo couldn't provide much more material—it was midnight, and he couldn't go to the Grand Library's computer center to search. Based on his limited memory, Zhang Xingpei learned that ancient Chinese military ciphers were mainly of two types: one was "hidden language" similar to *jianghu* slang, but how exactly this hidden language was used could no longer be verified clearly.
+But Luo Duo couldn't offer much additional material—at midnight, he couldn't access the Grand Library's computer center for searches. Drawing from his limited memory, Zhang Xingpei learned that ancient Chinese military ciphers fell mainly into two categories. The first was "hidden language," similar to *jianghu* slang, though the precise methods could no longer be verified.
 
-Another type was the so-called "word verification" (*ziyan*). This involved compiling forty items for various situations likely encountered in the army, such as: "Request Bows," "Request Arrows," "Request Advance," "Request Reinforcements," etc. Then the communicating parties would agree on a five-character regulated poem with no repeated characters as the "word verification." When writing a letter, the item number of the matter to be reported would correspond to the Nth character in that poem, and marking a small dot next to that character in the letter would suffice. even if the letter fell into enemy hands, and the other side knew this method, as long as the master copy of the item numbers wasn't leaked, knowing which poem it was would be useless.
+The second was "word verification"—*ziyan*. This involved compiling forty items covering situations likely to arise in military communication: "Request Bows," "Request Arrows," "Request Advance," "Request Reinforcements," and so on. The corresponding parties would agree upon a five-character regulated poem containing no repeated characters as the "word verification." When writing a letter, the item number of the matter to be reported would correspond to the Nth character in that poem. By placing a small dot beside that character, the message was conveyed. Even if the letter fell into enemy hands and the method was known, without the master list of item numbers, knowing the poem itself was useless.
 
-"...But this method is mainly used for communication. If Gou Er used it for himself just to prevent leaks, it's hard to say if it's this type."
+"...But this method is primarily for communication. If Gou Er used something similar purely to prevent leaks in his personal records, the approach might be entirely different."
 
-"Actually, it's substituting meaning with characters. Interesting, interesting." Zhang Xingpei fell into deep thought.
+"Fascinating," Zhang Xingpei murmured, falling into deep thought. "Substituting meaning with characters..."
 
-Then Luo Duo introduced a cipher invented by Qi Jiguang based on *fanqie* pronunciation—this cipher was already very similar to modern ciphers, but judging by the complexity he described, everyone didn't think Gou Er would use such a complex system. In fact, this cipher was only used briefly in the Qi Family Army and didn't spread widely.
+Luo Duo then introduced a cipher invented by Qi Jiguang based on *fanqie* pronunciation—already quite similar to modern ciphers. But judging from the complexity he described, everyone agreed that Gou Er would never employ something so elaborate. In fact, this cipher had been used only briefly within the Qi Family Army and never spread widely.
 
-Zhang Xingpei took a pen and copied down the entire account book. One thing was certain now: these nonsensical three-character words referred to people's names. He examined the copy carefully, and a few minutes later, he found a breakthrough.
+Zhang Xingpei took pen in hand and copied the entire account book. One thing was now certain: these nonsensical three-character combinations represented people's names. He examined his copy carefully, and within minutes found a breakthrough.
 
-"I have some idea." Zhang Xingpei pointed at the words above. "This is a simple substitution method, also known as the Caesar cipher."
+"I have an idea." He pointed at the characters. "This is a simple substitution method—also known as the Caesar cipher."
 
-"When did Gou Er know about Caesar?"
+"When did Gou Er ever learn about Caesar?"
 
-"Of course I'm not saying he used the Caesar cipher, but the principle is about the same." Zhang Xingpei explained: The so-called Caesar cipher simply replaces each letter in the plaintext with a different letter or symbol. According to records: Caesar simply replaced each letter in the plaintext with the letter three places after it.
+"I'm not saying he used the actual Caesar cipher, just that the principle is similar." Zhang Xingpei explained: The so-called Caesar cipher simply replaces each letter in the plaintext with a different letter or symbol. According to historical records, Caesar himself replaced each letter with the one three positions ahead.
 
-"But that's unlikely," Luo Duo immediately raised an objection. "How many letters are there? Common Chinese characters number over eight hundred. How large would this character table be? Gou Er would have to carry a codebook as thick as a telegraph codebook at all times."
+"That seems unlikely," Luo Duo immediately objected. "How many letters are there? Common Chinese characters number over eight hundred. The character table would be enormous—Gou Er would need to carry a codebook as thick as a telegraph manual."
 
-"I'm not clear on that." Zhang Xingpei shook his head. "But from probability, I can roughly deduce a few surnames."
+"I'm not certain how he managed it." Zhang Xingpei shook his head. "But based on probability, I can roughly deduce a few surnames."
 
-His line of thought was simple. Since these were all names, the first character of the three-character word must be the surname. Since it was a surname, there was a frequency issue. Just as 'e' is the most frequent letter in English, Chinese surnames also have frequencies. Wang, Zhang, Li, Chen are the most common surnames. Although Zhang Xingpei didn't know the ranking order of Ming dynasty surnames, he assumed it wouldn't differ too much from modern times.
+His reasoning was simple. Since these were all names, the first character of each three-character combination must represent the surname. And surnames had frequency distributions—just as 'e' appeared most often in English, certain Chinese surnames dominated. Wang, Zhang, Li, Chen were the most common. Though Zhang Xingpei didn't know the exact ranking in the Ming dynasty, he assumed it couldn't differ dramatically from modern times.
 
-"You have to consider local characteristics," Luo Duo reminded him. "For Lingao, Fu is a major surname. There are many Fujian immigrants here, so the Lin surname is also very common."
+"You'll need to account for local variations," Luo Duo reminded him. "In Lingao, Fu is a major surname, and there are many Fujian immigrants, making Lin quite common as well."
 
-"That's the difficult part," Zhang Xingpei said. He singled out the characters representing surnames that appeared most frequently, looking at them repeatedly, but couldn't find a way in.
+"That's the challenge." Zhang Xingpei isolated the most frequently appearing surname characters and studied them repeatedly, but the path forward remained elusive.
 
-"This is bad. I have no concept of ancient Chinese books," Zhang Xingpei said dejectedly. "Gou Er definitely used an ancient book. And a very common one—just like how Europeans like to use the Bible as a cipher codebook."
+"This is bad," he finally admitted. "I have no feel for ancient Chinese texts. Gou Er definitely used a classical book as his codebook—something very common, just as Europeans often used the Bible."
 
-"I think I guessed one." Mu Min suddenly spoke up. "This person who went to Wu Mingjin to intercede for Gou Er's son must be Wang Zhaomin—his private secretary!"
+"I think I've identified one." Mu Min suddenly spoke. "The person who interceded with Wu Mingjin for Gou Er's son must be Wang Zhaomin—his private secretary!"
 
-Everyone's gaze turned to her together.
+Every gaze turned to her.
 
-"Look, the first character of the three characters corresponding to this 'Old Man of Lanling' is exactly one of the characters Zhang Xingpei found with the highest frequency: Wang, Zhang, Li, Chen. Add in Fu and Lin. Think about it, among the trusted people around Wu Mingjin, or those who can speak to him, who fits these surnames? Only Wang Zhaomin!"
+"Look—the first character corresponding to 'Old Man of Lanling' is exactly one of the high-frequency surnames Zhang Xingpei identified: Wang, Zhang, Li, Chen. Add Fu and Lin. Now consider: among Wu Mingjin's trusted associates, or those who can speak to him effectively, who matches these surnames? Only Wang Zhaomin!"
 
-"Right, right." Lin Baiguang nodded repeatedly. Checking against the data, it didn't seem so unfamiliar anymore.
+"Yes, yes." Lin Baiguang nodded eagerly. Checking against their data, the match seemed increasingly plausible.
 
-"Cross-referencing his bribery registry and then checking against the Lingao social situation we've mastered, we should be able to figure out quite a few people's names—fortunately, these are just names, relatively easy to guess."
+"By cross-referencing the bribery registry with our understanding of Lingao's social landscape, we should be able to identify quite a few names—fortunately, we're only dealing with names, which are relatively easier to guess."
 
-Other places were hard to say, but the intelligence department had a good grasp of the basic social situation in Lingao. Soon, they found several more people's names from the clues.
+Other regions might prove difficult, but the intelligence department had an excellent grasp of Lingao's basic social situation. Soon, they extracted several more names from the clues.
 
-"But relying on guessing like this has limited accuracy. And once out of Lingao, this method won't be accurate," Mu Min said. "We still need to find the character table."
+"But relying on guesswork alone limits our accuracy," Mu Min cautioned. "And once we move beyond Lingao, this method becomes unreliable. We still need to find the actual character table."
 
-"Let me look for it slowly," Zhang Xingpei said. "Since we already know a few characters, we can guess. Let's start looking from the most popular *Hundred Family Surnames*, *Three Character Classic*, and *Thousand Character Classic*—these three, anyone who has studied in the Great Ming can memorize them."
+"Let me work on it slowly," Zhang Xingpei said. "Since we've already confirmed a few characters, we can proceed by elimination. I'll start with the *Hundred Family Surnames*, the *Three Character Classic*, and the *Thousand Character Classic*—any educated person in the Great Ming can recite these from memory."
 
-(End of Chapter)

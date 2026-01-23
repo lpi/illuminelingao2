@@ -6,7 +6,7 @@ So Xiong Buyou had his sights set on the Ever-Normal Granary. Ancient states had
 
 The general idea was that local gentry and grain households would donate some grain each year to build up reserves for distribution during disaster years. The concept and method were sound—the execution, however, invariably went awry. Ever-Normal Granary reserves were often misappropriated by the government, leaving the system existing in name only. Lingao's Ever-Normal Granary building was impressively constructed, but for over a century, not a single grain of rice had been stored there.
 
-Xiong Buyou's idea was to have the County Magistrate issue a notice calling on gentry and landlords to make "charitable contributions" to the Ever-Normal Granary. This kind of charade happened every year, and the gentry were long accustomed to it. When the magistrate came to "solicit donations," they would typically produce ten or twenty *shi* as a token gesture. This way, they could collect two or three hundred *shi* of grain.
+Xiong Buyou's plan was to have the County Magistrate issue a notice calling on gentry and landlords to make "charitable contributions" to the Ever-Normal Granary. This kind of charade happened every year, and the gentry were long accustomed to it. When the magistrate came to "solicit donations," they would typically produce ten or twenty *shi* as a token gesture. This way, they could collect two or three hundred *shi* of grain.
 
 "That's easy enough." Wu Mingjin was pleased that although the transmigrator collective held actual power over the yamen, they still came to consult him on everything. "I'll issue a notice."
 
@@ -42,7 +42,7 @@ At the disaster relief meeting, the Executive Committee decided to use disaster 
 
 "Experience has proven," Shan Daoqian said, "that pursuing cheap and fast construction of simple projects is actually the most uneconomical approach." He added, "The lesson this typhoon taught us is exactly that."
 
-Damage to transportation and communication lines had been the most severe. The hastily-constructed roadbeds had already loosened after a summer of rain erosion. The typhoon had washed out more than a quarter of the total road mileage. Only the county seat-to-Nanbo highway had remained unobstructed. This was partly because inland areas suffered less from typhoons, and partly because this section had been the first to undergo roadbed and surface improvements to accommodate heavy vehicles.
+Damage to transportation and communication lines had been the most severe. The hastily-constructed roadbeds had already loosened after a summer of rain erosion. The typhoon had washed out more than a quarter of the total road mileage. Only the county seat-to-Nanbo highway had remained unobstructed—partly because inland areas suffered less from typhoons, and partly because this section had been the first to undergo roadbed and surface improvements to accommodate heavy vehicles.
 
 ---
 
@@ -54,7 +54,7 @@ Wu Nanhai said: "Spring planting starts in March. We need to help disaster victi
 
 "The way I see it, why bother helping them resume production?" Ma Qianzhu said casually. "We don't need lots and lots of small agricultural producers. Let's use this opportunity to transform them into industrial workers. We'll buy back their land. This is a great chance to promote large-scale agriculture!"
 
-This thinking went against the grain, jumping from simple relief straight to strategic considerations. The attendees exchanged knowing glances: not a bad idea. The transmigrator collective's guiding principle in agriculture was large-scale production. They didn't need a multitude of smallholders. Using a natural disaster to transition this group of farmers off the land wasn't just about increasing directly-controlled labor for the transmigrators—it could also serve to break down the old rural order.
+This thinking went against the grain, jumping from simple relief straight to strategic considerations. The attendees exchanged knowing glances: *not a bad idea.* The transmigrator collective's guiding principle in agriculture was large-scale production. They didn't need a multitude of smallholders. Using a natural disaster to transition this group of farmers off the land wasn't just about increasing directly-controlled labor for the transmigrators—it could also serve to break down the old rural order.
 
 "Since most people don't want to do land reform," Ma Qianzhu said, "we need to seize opportunities like this."
 
@@ -70,7 +70,7 @@ Those willing to sell their land would have it purchased by the Agricultural Com
 
 "Compared to nationalizing all land, don't you think we're being quite merciful?" Wen Desi said. He had no interest in land reform games but great interest in comprehensive land nationalization.
 
-Thus the fate of the several hundred already collected in refugee camps and the thousand-plus soon to be collected was decided. This land gradually fell into Agricultural Committee hands. In some severely affected areas, entire villages' worth of land changed hands this way. However, the land gains weren't as great as imagined. Families with more land typically had better disaster resilience. Most refugees were economically disadvantaged poor peasants and tenant farmers.
+Thus the fate of the several hundred already collected in refugee camps and the thousand-plus soon to be collected was decided. Their land gradually fell into Agricultural Committee hands. In some severely affected areas, entire villages' worth of land changed hands this way. However, the land gains weren't as great as imagined. Families with more land typically had better disaster resilience. Most refugees were economically disadvantaged poor peasants and tenant farmers.
 
 Besides establishing refugee camps to receive fleeing disaster victims, the Civil Affairs Committee also conducted relief based on each village's disaster situation—disaster-affected villages were exempted from that year's "reasonable burden." For villages not severely affected with only crop damage, Wu De's relief plan was to have them engage in self-help production. Delong Grain Trading Company would provide loans for rebuilding homes and also lend seeds for buckwheat and other famine-relief crops—these grew quickly, were cold-resistant, and were very suitable for emergency planting in late autumn and early winter. By the following spring, they would lend disaster victims rice seeds and farm implement loans.
 
@@ -84,9 +84,9 @@ From ancient times to the present, post-disaster relief invariably became a feas
 
 "Ultimately, it comes down to declining administrative capacity." Wu De said in conversation with Ran Yao. "In flourishing times, institutions operate normally, and official corruption hasn't yet affected administrative execution capability. As corruption becomes increasingly severe, the administrative system's execution capability declines along with it."
 
-Now, for disaster relief, many students still in training programs had been deployed to front-line work. Through their hands, large quantities of relief materials were being distributed—and much of this material, for anyone with intent, wouldn't be difficult to embezzle. Mixing some sand and chaff into rough rice, as long as the amounts were controlled, would absolutely escape notice. And common people didn't have modern citizens' keen awareness of reporting and defending their rights.
+Now, for disaster relief, many students still in training programs had been deployed to front-line work. Through their hands, large quantities of relief materials were being distributed—and much of this material, for anyone with intent, wouldn't be difficult to embezzle. Mixing some sand and chaff into rough rice, as long as the amounts were controlled, would absolutely escape notice. And common people didn't possess modern citizens' keen awareness of reporting and defending their rights.
 
-Registering disaster victims was another task with plenty of exploitable loopholes. Just like the welfare programs Wu De had seen in the past—people who needed assistance didn't have it, while many living comfortably collected welfare and played mahjong. Given that modern governments with powerful grassroots control still left so many loopholes, how much worse would it be for the transmigrator collective operating under conditions dozens of times more difficult? Wu De knew perfectly well he couldn't personally verify whether each person receiving relief grain or tax exemptions had actually suffered disaster. If anyone wanted to muddy the waters, the chances of going undetected were high.
+Registering disaster victims was another task with plenty of exploitable loopholes—just like the welfare programs Wu De had seen in the past: people who needed assistance didn't have it, while many living comfortably collected welfare and played mahjong. Given that modern governments with powerful grassroots control still left so many loopholes, how much worse would it be for the transmigrator collective operating under conditions dozens of times more difficult? Wu De knew perfectly well he couldn't personally verify whether each person receiving relief grain or tax exemptions had actually suffered disaster. If anyone wanted to muddy the waters, the chances of going undetected were high.
 
 "You mean you want us to do anti-corruption work?" Ran Yao understood his meaning.
 

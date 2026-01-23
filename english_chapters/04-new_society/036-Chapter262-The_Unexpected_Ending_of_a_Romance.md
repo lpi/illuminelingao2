@@ -1,132 +1,139 @@
-# Chapter 262 The Unexpected Ending of a Romance
+# Chapter 262 — The Unexpected Ending of a Romance
 
 "Whistling arrow!"
 
-Everyone was startled—someone was attacking!
+Everyone jolted to attention—they were under attack.
 
-The exploration team had long prepared for road ambushes. Immediately, those with guns drew them, and those without pulled out their machetes, quickly forming a circle. Shopkeeper Wang, who was leading the way, was so scared that he dodged behind them.
+The exploration team had long prepared for roadside ambushes. Those with guns drew them instantly; those without unsheathed machetes. Within seconds they had formed a defensive circle. Shopkeeper Wang, who had been leading the way, scrambled behind them for cover.
 
-"Quick, hold the cows! Don't let them get startled!" Xiong Buyou shouted while pulling a Derringer pistol from his pocket and putting on a percussion cap.
+"Hold the cows! Don't let them bolt!" Xiong Buyou shouted, pulling a Derringer from his pocket and thumbing a percussion cap into place.
 
-At a river bend ahead, twenty young men appeared. Judging by their dress, they were all Meifu Li people. Each held a hook knife, and some carried crossbows, looking ready for a fight as they blocked the path.
+At a bend in the river ahead, twenty young men materialized. Their dress marked them as Meifu Li. Each gripped a hook knife; some carried crossbows. They blocked the path, their posture openly hostile.
 
-"Someone is blocking the road ahead!" Huang Zhuazi shouted. "All hands on alert!" He immediately blew his whistle.
+"Road blocked up ahead!" Huang Zhuazi bellowed. "All hands on alert!" He blew his whistle in three sharp bursts.
 
-"It's Li people!"
+"They're Li people!"
 
-"No way?" Mu Min also rushed up from the rear. "We Li people never engage in highway robbery."
+"Impossible." Mu Min pushed her way to the front. "Li people never engage in highway robbery."
 
-"Hmph, I'm afraid they're not here for money or goods, but for this 'treasure'." Huang Zhuazi glanced at Bida behind them. The woman, who had looked lifeless before, now seemed restless.
+"Hmph. I doubt they're after money or goods." Huang Zhuazi cast a pointed glance at Bida behind them. "I suspect they're here for that *treasure*." The woman, who had seemed listless before, now looked restless, her eyes darting toward the blockade.
 
-"Don't panic!" Mu Min shouted, calming the team members who were drawing their guns. "They aren't ambushing us; there's room for negotiation."
+"Stay calm!" Mu Min called out, stilling the men reaching for their weapons. "They haven't ambushed us—they've shown themselves openly. There's room to negotiate."
 
-"I think they are mostly here for Bida," Cui Yunhong whispered. "What should we do?"
+"They're almost certainly here for Bida," Cui Yunhong whispered. "What do we do?"
 
-Mu Min thought, *Could it be Bida's boyfriend, the Zhen Huan that Li Benqing mentioned? This man is actually affectionate and righteous.* This stirred up her feminine sentimentality again. Thinking of her own husband who had zero romantic sense, she felt a pang of bitterness.
+Mu Min's thoughts raced. *Could this be Bida's lover—the Zhen Huan that Li Benqing mentioned? A man who would stage an armed standoff to rescue the woman he loves...* The romantic in her stirred. Thinking of her own husband, who possessed precisely zero sense of romance, she felt a pang of wistful bitterness.
 
-"If it's really that Zhen Huan, just give Bida back to him," she said.
+"If it really is Zhen Huan," she said, "we should simply return Bida to him."
 
 "How can we do that? We promised to take her away—"
 
-While they were discussing, a few people walked over from the opposite side. One of them had handsome features, and his clothes were obviously better than the others. He wore pheasant feathers on his head and indeed looked quite majestic. He stopped about fifty paces from the group and began to shout.
+While they debated, several figures broke from the opposing line and walked forward. One stood out: handsome features, clothing finer than the rest, pheasant feathers adorning his headband. He carried himself with unmistakable authority. Stopping about fifty paces away, he began to shout.
 
-This time Xiong Buyou understood: he was speaking Hainan dialect. Although the tone was a bit off, it was generally understandable.
+This time Xiong Buyou understood—the man was speaking Hainan dialect. The accent was off, but the meaning was clear enough.
 
-"Damn, it really is that Zhen Huan!" Xiong Buyou said. "He wants us to hand over Bida."
+"Damn. It really is Zhen Huan." Xiong Buyou's jaw tightened. "He wants us to hand over Bida."
 
-"What should we do?" Everyone's eyes fixed on Cui Yunhong and Mu Min. The former was the captain, and the latter was the person in charge of Li and Miao affairs.
+"What do we do?" All eyes fixed on Cui Yunhong and Mu Min—the captain and the officer responsible for Li and Miao affairs.
 
-"Hmph, daring to block the road with a few broken knives. Let me open your eyes." Huang Zhuazi muttered as he cocked the hammer of his Remington shotgun.
+"Hmph. Trying to block our road with a handful of rusty blades." Huang Zhuazi muttered as he cocked the hammer of his Remington shotgun. "Let me show them what we're made of."
 
-"No, hold your fire," Cui Yunhong quickly stopped him.
+"No—hold your fire," Cui Yunhong ordered quickly.
 
-"There are only twenty of them; a volley of gunfire will finish it."
+"There are only twenty of them. One volley and it's over."
 
-"We are strangers in a strange land here. Although we would definitely win if we fought, if we anger them and they chase us relentlessly, harassing and attacking us all the way, we might not be able to return to Changhua Fort peacefully even with guns."
+"We're strangers in a strange land. Yes, we'd win the fight—but if we enrage them? They could harass us all the way back, ambush after ambush. Even with guns, we might not reach Changhua Fort in one piece."
 
-"Mn, that makes sense." Huang Zhuazi thought about it and agreed.
+"Mn. Fair point." Huang Zhuazi conceded grudgingly.
 
-Xiong Buyou said, "Besides, these people are all from the Zhen Dui Stockade. If we really kill a few, how can we cooperate in the future?"
+Xiong Buyou added, "Besides, these men are all from Zhen Dui Stockade. If we kill even a few, how can we ever cooperate with them again?"
 
-Mu Min said, "Let her go. Bida is useless to us anyway. We only took her to save her life. Now since Zhen Huan is so affectionate and righteous, why should we insist on keeping her?"
+Mu Min spoke decisively. "Let her go. Bida is of no practical use to us—we only took her to save her life. Now that Zhen Huan has proven himself so devoted, why should we insist on keeping her?"
 
-Seeing no objection, Xiong Buyou walked out of the ranks unarmed and shouted in Hainan dialect, "As long as you move aside, we will release her after we pass."
+Seeing no objections, Xiong Buyou stepped forward unarmed and called out in Hainan dialect: "Clear the road, and we'll release her once we've passed!"
 
-Zhen Huan nodded and said, "You send a hostage over first. After you pass, we will release the hostage. Only then can I trust you!"
+Zhen Huan shook his head. "Send a hostage over first. After you pass, we release the hostage. Only then can I trust you."
 
-Hearing this, Xiong Buyou was furious. Since D-Day, the Transmigration Group had only ever imposed unequal treaties on others; when had they ever been threatened? Seeing that he was less than 30 meters away, a murderous intent rose in his heart, and he gripped the Derringer in his pocket. At this distance, one shot could leave Zhen Huan dead on the spot. Even if the opponents shot arrows, at a distance of seventy or eighty meters, they might not hit him. Then, combined with his brothers' shotguns, they could simply kill everyone.
+Xiong Buyou's blood ran hot. Since D-Day, the Transmigration Group had imposed unequal terms on others—when had they ever been the ones threatened? At less than thirty meters, murderous calculation flickered through his mind: one shot from the Derringer and Zhen Huan would drop where he stood. Even if the others loosed arrows, at seventy or eighty meters their aim would be uncertain. Combined with his brothers' shotguns, they could cut down every last one.
 
-Knowing what Xiong Buyou was thinking, Mu Min quickly shouted in Mandarin, "Don't act rashly! It will be hard to end if a fight starts." She turned to Cui Yunhong, "I'll go as a hostage so he clears the way."
+Sensing his intent, Mu Min shouted in Mandarin: "Don't do anything rash! If a fight starts, there's no clean ending." She turned to Cui Yunhong. "I'll go as a hostage so he clears the road."
 
-Before Cui Yunhong could respond, Bida, who had been squatting on the ground, suddenly stood up. She shouted something in Li language, then spoke rapidly and urgently to Guide Wang. Guide Wang said to Mu Min, "She says she is willing to go and talk to Zhen Huan and ask him to clear the way."
+Before Cui Yunhong could respond, Bida—who had been crouching silently—rose to her feet. She called out something in the Li tongue, then spoke rapidly to Guide Wang. The guide translated: "She says she's willing to go and speak with Zhen Huan herself. She'll ask him to clear the way."
 
-Mu Min nodded, thinking this might make things easier. She said, "Tell her that once they clear the way and we pass, we will naturally let her go."
+Mu Min nodded slowly. Perhaps this would make things easier. "Tell her: once they clear the road and we pass, we will naturally let her go."
 
-Hearing Guide Wang's words, a strange expression appeared on Bida's face. She shook her head and spoke again.
+Guide Wang relayed the message. A strange expression flickered across Bida's face. She shook her head and spoke again.
 
-"She says she is willing to go with the *Bahas*."
+"She says... she wishes to stay with the *Bahas*."
 
-Mu Min was startled. For a moment, she thought the guide had translated wrong, but seeing her determined demeanor, it wasn't nonsense. So she untied the rope and let her walk out.
+Mu Min blinked. For a moment she thought the guide had mistranslated—but the determination in Bida's eyes was unmistakable. After a pause, she untied the rope and let her walk forward.
 
-Seeing that they had released the person, the opposite side showed joy, and the crowd behind cheered, waving their bows, crossbows, and knives.
+Seeing the captive released, a cheer rose from the opposing ranks. Men waved their bows, crossbows, and knives in celebration.
 
-Cui Yunhong watched Bida walk up to Zhen Huan. Zhen Huan tried to take her hand, but she pushed him away. The man seemed somewhat surprised, and the two began to mutter to each other. As Zhen Huan grew increasingly impatient, waving his arms continuously and occasionally shouting and shoving her, Bida remained motionless, only lowering her head and speaking softly, shaking her head from time to time. Her attitude was extremely resolute.
+Cui Yunhong watched Bida approach Zhen Huan. The man reached for her hand; she pushed him away. Surprise crossed his face, and then the two began speaking in low, urgent tones. As the exchange lengthened, Zhen Huan grew visibly impatient—gesturing sharply, occasionally shoving her, raising his voice. Bida stood immobile, head bowed, speaking softly, shaking her head again and again. Her resolve was absolute.
 
-This pantomime played out between the two groups for a full ten minutes, long enough for the cows to start grazing. Zhen Huan showed an extremely violent expression. Finally, he turned around abruptly and walked away directly. Within a few minutes, the Li people on the river beach were completely gone, leaving only Bida standing there alone. Suddenly, she squatted down and burst into loud tears. The exploration team was stunned.
+This silent tableau played out between the two groups for a full ten minutes—long enough for the cattle to lower their heads and graze. At last, Zhen Huan's expression twisted with fury. He spun on his heel and strode away without a backward glance. Within minutes, every Li warrior on the riverbank had vanished, leaving only Bida standing alone in the clearing. Suddenly, she collapsed to her knees and burst into loud, wrenching sobs.
 
-"What kind of drama is this?" Xiong Buyou muttered to himself.
+The exploration team stared in stunned silence.
 
-Mu Min sighed, "Let's keep going."
+"What in the world was *that* about?" Xiong Buyou muttered.
 
-Half a month after their departure, the exploration team returned to Changhua County seat. After bidding farewell to Shopkeeper Wang outside the city, the group returned to Changhua Fort. Li Haiping had been working on basic construction in the fort for more than half a month. The fort had begun to take shape, and cannons were mounted on the gun emplacements—to avoid provoking the local government, the cannons were concealed inside houses and would only be pulled out when needed.
+Mu Min exhaled slowly. "Let's keep moving."
 
-Seeing the exploration team return fully loaded, Li Haiping was both happy and worried. The fort couldn't keep ten cows—these cows were of unknown breed, exceptionally large water buffaloes that looked almost half the size of elephants. He immediately ordered the marines to build a simple cattle pen outside the fort and assigned a few marines who had experience raising cattle to be in charge of herding. As for the traded goods and received gifts, no one was much interested; they were piled directly in the warehouse waiting for ships to come and pick them up.
+---
 
-A group of people idled in the fort. Apart from taking baths in the river branches by the Changhua River daily, they drank tea and chatted under the kapok tree outside the fort. During this time, they also did some basic construction: erecting a bamboo woven wall at one end of the river branch for the use of Mu Min and Bida. The exploration team's encounter at Zhen Dui Stockade became the most talked-about topic—initially just speculating on the truth, but gradually it evolved into entertainment. This Shanzhai version of a palace revenge drama became incredibly complex under the daily relentless gossip. Slowly, people even asked to sign up as background characters in it.
+Half a month after their departure, the exploration team returned to Changhua County seat. After bidding farewell to Shopkeeper Wang outside the city walls, they made their way back to Changhua Fort. Li Haiping had been overseeing basic construction for more than two weeks. The fort had begun to take shape; cannons were now mounted on the gun emplacements, though to avoid provoking the local authorities, they remained concealed inside buildings—ready to be rolled out only when needed.
 
-The heroine of this event, Bida, remained silent. Although she actively helped with various chores in the fort: cooking, washing clothes, sweeping, and feeding the cows. Since no one in Changhua Fort understood the Meifu Li language, Mu Min could never communicate with her.
+Seeing the exploration team return fully laden, Li Haiping's face showed both relief and concern. The fort could not accommodate ten cattle—and these were no ordinary beasts. They were exceptionally large water buffalo, almost half the size of elephants, of unknown breed. He immediately ordered the marines to erect a simple cattle pen outside the walls and assigned a few men with farming experience to oversee the herd. The trade goods and gifts held little interest for anyone; they were piled directly in the warehouse to await the next ship.
 
-As for what use the Zhen Dui Stockade would be to the transmigrators in recent years, no one could say for sure. Soap beans were indeed a good resource, but not urgently needed by the Transmigration Group. They were quite useful in Changhua Fort, though; everyone from top to bottom used them for bathing and washing clothes daily, finding the scent fresh and pleasant and the cleaning effective.
+The team settled into an idle routine at the fort. Beyond daily baths in a branch of the Changhua River, they passed the time drinking tea and gossiping beneath the kapok tree outside the walls. They did make some improvements: erecting a bamboo-woven partition at one end of the river branch for the private use of Mu Min and Bida. The expedition's encounter at Zhen Dui Stockade became the favorite topic of conversation—what had begun as speculation about hidden truths gradually evolved into entertainment. This rustic version of a palace revenge drama grew ever more elaborate under the relentless embroidery of daily gossip, until people began volunteering to play background characters in their collective fantasy.
 
-The Changhua County seat had now become their only place for recreation. The city was small, and after their many visits, almost everyone in the city recognized them, even though they found their hairstyles strange. They also became familiar with the bailiffs guarding the city gate. It turned out that the county didn't even have a magistrate, only a vice-magistrate acting in the role. As for the Battalion Commander of the local Wei-Suo, he simply lived on his farm outside the city. The few government offices were deserted and dilapidated; no wonder they hadn't realized those small tiled houses were government offices the few times they walked past.
+Bida herself, the heroine of these events, remained silent. She threw herself into chores around the fort—cooking, washing clothes, sweeping, feeding the cattle—but spoke not a word. Since no one at Changhua Fort understood the Meifu Li language, Mu Min could never truly communicate with her.
 
-Shopkeeper Qian of the Guangzhou warehouse had effectively become their agent in Changhua County. Through Shopkeeper Qian's connections, the transmigrators in Changhua Fort could buy fresh vegetables, poultry, and grain directly from the farm of the Commander outside the city. The Commander and his subordinates clearly didn't feel there was anything improper about doing business with these people of unknown origin, especially when the goods they offered were white sugar and distilled spirits—items severely lacking locally. Xiong Buyou also bought dozens of sheep from the farm, partly for their own consumption and partly to send back to Lingao along with the cattle.
+As for what use the Zhen Dui Stockade would prove in the coming years, no one could say with certainty. The soap beans were indeed a valuable resource, though not urgently needed by the Transmigration Group. At Changhua Fort, however, they were put to immediate use; everyone from top to bottom bathed and laundered with them daily, finding the scent fresh and the cleansing effect excellent.
 
-The 15W radio received telegrams from the fleet and the Lingao main station every day. Sometimes they would receive telegrams from the Guangzhou Station, with all sides reporting safety. From the telegrams, they learned that the exploration fleet had already arrived at Yulin Harbor and was conducting an inspection of another important target of this expedition: the Tiandu Iron Mine.
+The Changhua County seat became their sole place of recreation. The city was small, and after many visits nearly everyone recognized them—even if they found their hairstyles strange. The soldiers grew familiar with the bailiffs at the city gate. It emerged that the county lacked even a proper magistrate; a vice-magistrate served in an acting capacity. As for the Battalion Commander of the local *Wei-Suo*, he simply resided on his farm outside the walls. The few government offices were deserted and dilapidated—little wonder they had walked past those modest tile-roofed buildings several times without realizing they housed the local administration.
 
-Yulin Harbor was the best port in Hainan. Moreover, it was less than twelve kilometers from the high-grade Tiandu iron ore field, making it far superior to Shilu in terms of mining difficulty.
+Shopkeeper Qian of the Guangzhou warehouse effectively became their agent in Changhua County. Through his connections, the transmigrators at the fort could purchase fresh vegetables, poultry, and grain directly from the Commander's farm beyond the walls. The Commander and his subordinates saw nothing improper in doing business with these foreigners of uncertain origin—especially when the goods on offer were white sugar and distilled spirits, both sorely lacking in the region. Xiong Buyou also bought several dozen sheep from the farm: partly for their own consumption, partly to ship back to Lingao along with the cattle.
 
-If they sailed directly from Lingao to Yazhou, the coastal route would take only four days. The exploration fleet departing from Changhua only needed two days. Because they stopped occasionally to go ashore for inspections, each time taking half a day to a day, and specifically inspected the Yinggehai Salt Field in Le'an, Yazhou, en route. The Yinggehai Salt Field would be the largest salt field in Hainan and the largest sea salt field in southern China in the future. The seawater concentration here reached 3.5 degrees Baumé, making it one of the saltiest sea areas in the world after the Red Sea, known as the "Bitter Sea." At this time, it was still a desolate coastal salt marsh area, uninhabited. Ming Qiu, who knew the development history of Hainan well, told everyone that the preparation for Yinggehai Salt Field began in 1955, and it entered a stage of great development in 1958 with the arrival of more than 5,600 professional soldiers.
+Each day, the 15W radio received telegrams from the fleet and the Lingao main station. Occasionally messages arrived from the Guangzhou Station as well, all parties reporting their safety. Through these dispatches, they learned that the exploration fleet had reached Yulin Harbor and was now inspecting another key objective of the expedition: the Tiandu Iron Mine.
 
-Ideally, the massive amount of sea salt was the best raw material base for the chemical industry. Everyone from Wang Luobin onwards looked greedily at this barren tidal flat. Hainan Island was truly a treasure island.
+Yulin Harbor was the finest natural port on Hainan. Moreover, it lay less than twelve kilometers from the high-grade Tiandu iron ore field—far superior to Shilu in terms of mining accessibility.
 
-The fleet conducted on-site exploration at Yinggehai and then continued. On the sixth day after departing from Changhua, the lookout on the *Zhenhai* noticed that the ship was sailing in a huge bay. The white sand on the beach, the swaying coconut trees, and the blue seawater all indicated that they were close to Sanya.
+A direct voyage from Lingao to Yazhou along the coast took only four days. The exploration fleet, departing from Changhua, needed just two. They stopped periodically to conduct shore inspections—each requiring half a day to a full day—and made a special survey of the Yinggehai Salt Field in Le'an, Yazhou. In the future, Yinggehai would become Hainan's largest salt field and the greatest sea-salt producer in southern China. The seawater concentration here reached 3.5 degrees Baumé, making it one of the world's saltiest waters after the Red Sea—aptly named the "Bitter Sea." For now, it remained a desolate coastal marsh, devoid of inhabitants. Ming Qiu, who knew Hainan's developmental history intimately, told the others that preparation for the Yinggehai Salt Field had begun in 1955, entering a phase of rapid expansion in 1958 with the arrival of more than 5,600 professional soldiers.
 
-"This is Sanya Bay." Chen Haiyang checked the latitude and longitude measurements of the naval cadets. "We are not far from Yulin."
+Ideally, this vast repository of sea salt would become the foundation of their chemical industry. From Wang Luobin onward, everyone gazed covetously at the barren tidal flats. Hainan Island was truly a treasure island.
 
-Sanya Bay at this time looked even more beautiful and primitive than in later generations. There were some scattered villages at the foot of the mountains, and grid-like salt fields along the coast.
+The fleet conducted on-site surveying at Yinggehai, then pressed on. On the sixth day after leaving Changhua, the lookout aboard the *Zhenhai* noticed they were sailing into a vast bay. White sand gleamed on the beach; coconut palms swayed gently; the sea shimmered an impossible blue. All signs pointed to their approach to Sanya.
 
-After another few hours of sailing, the lookout at the top of the mast finally saw the iconic 213-meter-high small hill on the Luhuitou Peninsula.
+"This is Sanya Bay," Chen Haiyang announced, checking the latitude and longitude measurements the naval cadets had recorded. "We're not far from Yulin."
 
-Arriving at Luhuitou meant arriving at Yulin Harbor. The Luhuitou Naval Port would be an important base for the South Sea Fleet in the future. Standing on the deck, Ming Qiu saw the familiar scenery before him and was filled with emotions, recalling the days and nights of combat readiness here in 1974. He couldn't help but mutter the Vietnamese words he had rush-learned back then:
+Sanya Bay in this era appeared even more beautiful and pristine than its future incarnation. A few scattered villages huddled at the foot of the mountains; grid-patterned salt fields lined the coast.
 
-"*Ya di!* (Halt!), *Lao song kong ye!* (Drop your guns and we won't kill!), *Zhong dui kuan hong du bian!* (We treat captives leniently!)."
+After several more hours of sailing, the masthead lookout sighted the distinctive 213-meter hill on the Luhuitou Peninsula.
 
-"Master Ming," Mont walked over curiously, "What are you saying?"
+Arriving at Luhuitou meant arriving at Yulin Harbor. In the future, the Luhuitou Naval Port would serve as a vital base for the South Sea Fleet. Standing on deck, Ming Qiu gazed at the familiar scenery, memories flooding back—those days and nights of combat readiness in 1974. He could not help murmuring the Vietnamese phrases he had once crammed in haste:
 
-"Vietnamese." The temperature here was very high, exceeding thirty degrees Celsius on the deck. Many people were shirtless or wearing undershirts, but Ming Qiu was still dressed in his Type 87 naval summer uniform, impeccably neat. Standing on the deck, he made many otakus who self-proclaimed to be future admirals of a transmigrator nation feel ashamed.
+"*Ya di!* (Halt!), *Lao song kong ye!* (Drop your weapons and we won't kill!), *Zhong dui kuan hong du bian!* (We treat captives leniently!)."
 
-"In the spring of 1974," Ming Qiu said, pointing to the distant Luhuitou, "our troops were stationed there, participating in pre-war mobilization preparing to attack the Crescent Group of the Paracel Islands. At that time, the Yankees couldn't fight in Vietnam anymore and started to withdraw. That ungrateful North Vietnam was taking the opportunity to move south, and South Vietnam was about to finish. To avoid unnecessary trouble after the war, the chiefs issued an order to recover the Paracels. I was just a soldier then—"
+Mont ambled over, curious. "Master Ming, what are you saying?"
 
-"You participated in the recovery of the Paracels?" Mont was filled with reverence.
+"Vietnamese." The temperature here was brutal—over thirty degrees Celsius on deck. Many had stripped to undershirts or gone bare-chested entirely, but Ming Qiu remained impeccably dressed in his Type 87 naval summer uniform. Standing ramrod straight at the railing, he put to shame every otaku who had ever fantasized about becoming an admiral of a transmigrator nation.
 
-"Actually, no." Ming Qiu shook his head. "I was on standby here in Sanya the whole time. In the autumn of '74, our detachment was transferred to Lingshui to participate in anti-landing exercises. We even filmed a movie."
+"In the spring of 1974," Ming Qiu said, pointing toward the distant Luhuitou headland, "our troops were stationed there, participating in pre-war mobilization before the assault on the Crescent Group of the Paracel Islands. The Americans couldn't hold on in Vietnam any longer and had begun withdrawing. That ungrateful North Vietnam was seizing the opportunity to push south—South Vietnam was on the verge of collapse. To avoid complications after the war, the brass ordered us to retake the Paracels. I was just a common soldier then—"
 
-Mont wanted to learn more about the events of that year from him, but Chen Haiyang had already ordered the sails lowered, preparing to enter Yulin Harbor. He had to quickly return to his post.
+"You participated in the recovery of the Paracels?" Mont's voice was reverent.
 
-Yulin Harbor was far superior to the adjacent Sanya Bay. Sanya Bay had an overly open water surface and was subject to fierce storms. Therefore, ships bound for the South Seas often anchored here temporarily for shelter. As the fleet sailed past the Luhuitou Cape, they saw quite a few ships scattered in the bay. Some had tall masts, obviously merchant ships trading with Southeast Asia.
+"Not exactly." Ming Qiu shook his head. "I was on standby here in Sanya the whole time. That autumn, our detachment transferred to Lingshui for anti-landing exercises. We even filmed a movie."
 
-***
-Note: This annotation is outside the 4000 words of the main text and is not charged.
+Mont hungered to hear more about those events, but Chen Haiyang had already ordered the sails lowered in preparation for entering Yulin Harbor. The boy hurried back to his post.
+
+Yulin Harbor was far superior to the adjacent Sanya Bay, whose open waters left vessels exposed to fierce storms. For this reason, ships bound for the South Seas often anchored here temporarily for shelter. As the fleet rounded Luhuitou Cape, they spotted numerous vessels scattered across the bay—some with tall masts, clearly merchant ships engaged in Southeast Asian trade.
+
+---
+
+**Note:** This annotation is outside the 4,000-word main text and is not charged.
+
 *Baha* is a respectful term for a learned person in the Li language.
 
+**(End of Chapter)**

@@ -1,95 +1,95 @@
 # Chapter 337 - Students
 
-Apart from a few glassware instruments, furniture, and some simple equipment that were self-made, most items in the various laboratories were products from the other timeline. Especially items like balances and microscopes, which absolutely belonged to Class I Controlled Items in the Planning Committee's catalog. It seemed the Executive Committee was extremely determined in its investment in education.
+Apart from some self-made glassware and simple equipment, most items in the laboratories had been brought from the other timeline. Balances and microscopes were Class I Controlled Items on the Planning Committee's allocation list. The Executive Committee was evidently investing heavily in education.
 
-"It takes a hundred years to cultivate people; it seems Chairman Wen and Superintendent Ma really have foresight," Xiao Zishan offered a compliment. Such behind-the-back compliments were much more useful than face-to-face ones.
+"Cultivating talent requires decades of foresight. Chairman Wen and Superintendent Ma truly see the long term." Xiao Zishan offered the compliment. Such praise delivered outside earshot was often more effective than anything said to a person's face.
 
-"I was also startled when I saw the design plan. Really generous." Hu Qingbai said, "But I'm also worried. Chemical laboratories need many chemical reagents and such; I wonder if they can be solved?"
+"I was startled myself when I first saw the design specifications. Remarkably generous." Hu Qingbai paused. "But I'm concerned—chemistry laboratories require many reagents. Can they be supplied?"
 
-"In a few days, the Bopu Chemical Plant will ignite. Once the 'Three Acids and Two Bases' are solved, there's nothing to worry about—at most organic chemistry can't be done."
+"In a few days, the Bopu Chemical Plant will fire up. Once 'Three Acids and Two Bases' production begins, most concerns will be resolved. Organic chemistry will remain difficult, but little else."
 
-Coming out of the laboratory, they visited the dormitories, toilets, and bathrooms. These basic living facilities were what Xiao Zishan paid considerable attention to—schools were high-density population concentration areas; if hygiene wasn't done well, just a flu outbreak among students would be disastrous.
+They emerged from the laboratory and continued to the dormitories, toilets, and bathhouses. Xiao Zishan paid particular attention to these basic sanitation facilities. Schools concentrated populations densely; if hygiene was neglected, even a flu outbreak could prove catastrophic.
 
-Lingao Construction Company now had enough experience in constructing such high-density residential areas; the Bauhaus style was utilized to the extreme. Water supply, bathing, waste disposal, sewage—all these were solved one by one under the painstaking efforts of everyone in the Construction Company.
+Lingao Construction Company had accumulated considerable experience building such high-density residential facilities. The Bauhaus aesthetic was exploited to its fullest. Water supply, bathing, waste disposal, sewage—one by one, the Construction Company's engineers had resolved each challenge.
 
-To reduce the density of personnel in each dormitory and save land and building materials, Mei Wan reconstructed the dormitories, expanding the original single-story dorms to two stories, increasing the floor area ratio.
+To reduce per-room population density while conserving land and materials, Mei Wan had redesigned the dormitories. Original single-story structures were expanded to two floors, increasing the floor-area ratio.
 
-In this way, the capacity of each room in the dormitory was reduced from the original one hundred people to thirty people per room—exactly the class size quota in the plan. According to Hu Qingbai's experience, if a class exceeded twenty people, it would be difficult for the teacher to take care of everyone. Thirty people was just barely manageable.
+Under this plan, each room now housed thirty instead of one hundred—precisely the class size prescribed by educational planning. According to Hu Qingbai's experience, classes exceeding twenty students became difficult for a single teacher to manage. Thirty was just barely feasible.
 
-Letting students of one class live together, thoroughly implementing eating, living, learning, and working together, would make them very united in whatever they did, helping to cultivate students' sense of collective honor and discipline.
+Housing each class together—eating, sleeping, studying, and working as a unit—fostered unity and cultivated collective spirit and discipline.
 
-Xiao Zishan was astonished by the neatness and high degree of discipline of the entire dormitory. At the door of every dormitory building, there were male and female students wearing "On Duty" armbands. As soon as they entered, loud commands of "Officer Inspection" would ring out in one sleeping room after another. Walking into any room randomly, students were already standing straight by their beds. Personal items and clothing were all placed in position neatly, completely a military camp style, with girls' dorms being no exception.
+Xiao Zishan was struck by the dormitory's impeccable orderliness. At the entrance of every dormitory building, male and female students wearing "On Duty" armbands stood watch. Upon entry, calls of "Officer Inspection!" echoed through sleeping quarters. Any random room revealed students standing at attention beside their beds, personal belongings and clothing arranged precisely. The atmosphere was entirely military—and the girls' dormitories were indistinguishable from the boys' in this regard.
 
-"Discipline is very good!" Even a military and STEM illiterate person like Xiao Zishan knew that high discipline of the masses had immense benefits for the superiors: fearless armies and industrial workers capable of enduring high-intensity monotonous labor.
+"Excellent discipline!" Even someone with no military expertise like Xiao Zishan understood the value of disciplined masses: armies that would not break, and industrial workers capable of enduring high-intensity monotonous labor.
 
-"This is the effect of the Quarantine Camp's military training," Bai Yu said. "Even the most prickly characters have been tamed into submission. In addition, we also promote a student self-management system."
+"This is the fruit of quarantine camp training," Bai Yu said. "Even the most recalcitrant individuals have been tamed. We also promote a student self-management system."
 
-Each class was divided into groups of ten, with group leaders. Class cadres included a monitor and three class committee members responsible for studies, culture/sports, and daily life respectively.
+Each class was divided into groups of ten, each with a group leader. Class cadres included a monitor and three committee members responsible for studies, culture and sports, and daily life respectively.
 
-"We require teachers only to assign tasks, not to handle arrangements specifically. Let them self-manage as much as possible." Hu Qingbai introduced, "Currently it's in dormitory management, including hygiene and security. In the future, we prepare to let classes take turns helping in the kitchen, managing the campus environment, and organizing study mutual aid groups, achieving the goals of student 'self-governance', 'self-support', and 'self-study'."
+"We require teachers only to assign tasks, not to handle implementation specifics. Students manage themselves as much as possible." Hu Qingbai elaborated. "Currently, this applies to dormitory management, including sanitation and security. Eventually, classes will rotate kitchen duty, maintain the campus environment, and organize study groups. We're aiming for 'self-governance,' 'self-support,' and 'self-study' among students."
 
-"Is the effect good?"
+"Is it working?"
 
-"Temporarily not ideal enough." Hu Qingbai said, "This transformation of thinking mode doesn't happen overnight. Students either don't know what to do without teachers' orders; or the opposite: simply acting as 'class bullies'. Yesterday we handled one from the Vocational School—this kid even argued plausibly that this was 'self-management'—students in the class broke his rules as the 'student official', so he, the 'student official', had to punish them—'Officials beating commoners', you know."
+"Not yet ideally." Hu Qingbai sighed. "Transforming mindsets doesn't happen overnight. Some students don't know what to do without explicit teacher instructions. Others swing to the opposite extreme and become petty tyrants. Just yesterday we dealt with one from the Vocational School. The boy actually argued that he was practicing 'self-management'—his classmates broke *his* rules, he said, so he, as their 'student official,' was duty-bound to punish them. 'Officials beating commoners,' you understand."
 
-"Quite an interesting kid, a power-hungry brat! How was he handled?"
+"An interesting child—a power-hungry brat! How was he handled?"
 
-"Sent to the Labor Reform Team along with his subordinate class committee members. They beat a classmate into a fracture together and injured several others." Hu Qingbai sighed. "If this kid isn't locked up, he'll be a careerist in the future."
+"Sent to the Labor Reform Brigade, along with his subordinate class committee members. Together they beat a classmate badly enough to cause a fracture and injured several others." Hu Qingbai shook his head. "If we don't lock this one up, he'll become a careerist later."
 
 "Careerist?"
 
-" The General Bureau of Political Security forwarded a document: some students reported that this person often said the room was full of fragrance when he was born, and his mother dreamed of a big snake entering her bosom when pregnant; fortune tellers said he was endowed with extraordinary talents and would have great wealth and honor hard for ordinary people to have, and such bullshit. Later when he was questioned, he admitted it himself and insisted it was true..."
+"The Political Security Bureau forwarded a report. Several students testified that this boy often claimed the room was filled with fragrance when he was born, that his mother dreamed of a great serpent entering her bosom during pregnancy, that fortune-tellers had declared him endowed with extraordinary destiny, fated for wealth and glory beyond ordinary mortals... that sort of nonsense. When questioned, he admitted it himself and insisted every word was true..."
 
-"Isn't this mental illness? Cliché old stories." Xiao Zishan joked, "But quite imaginative. If things go wrong, he might be a local emperor or something in the future."
+"That sounds like mental illness. The same old clichéd portent stories." Xiao Zishan chuckled. "But quite imaginative. If left unchecked, he might style himself a local emperor someday."
 
-"He doesn't have this chance anymore." Hu Qingbai said, "The Political Security Bureau's sentence for this kid is 'Indefinite Labor Reform, not to be released without approval'."
+"He won't have that chance now." Hu Qingbai's voice turned cold. "The Political Security Bureau sentenced him to 'Indefinite Labor Reform—not to be released without special authorization.'"
 
-"So severe!" Xiao Zishan felt a chill on the back of his neck. "A thirteen or fourteen-year-old brat, knowing what? A bit excessive, right?"
+"That severe!" A chill ran down Xiao Zishan's spine. "He's only thirteen or fourteen. How much could he possibly understand? Isn't that excessive?"
 
-"If he didn't say those silly words about fragrance filling the room, it wouldn't be a big deal. He said it, and insisted it was true. This stepped on the high-voltage line; whoever touches it dies."
+"Had he not spouted those ridiculous claims about fragrant rooms and snake dreams, it wouldn't have been a major issue. But he said them, and he insisted they were true. That crossed the high-voltage line. Step on it and you fry."
 
-Although Xiao Zishan felt the handling of this matter was a bit excessive, essentially he didn't like this kind of low-level playing god and ghost trick either. Let this unlucky child pay the price for his delusional extraordinary endowments.
+Xiao Zishan privately felt the punishment was disproportionate, but in truth he had no fondness for such crude pretensions of divine destiny either. Let the unfortunate child pay the price for his delusions of grandeur.
 
-Coming out after a tour of the dormitory, Hu Qingbai invited him to sit in the office. The Education Committee's office very much fit the image of an educational institution, a two-story pseudo-European building. Because the Education Committee and the school were actually one team now, this office building also included teachers' offices. But inside it was empty; few people could be seen.
+Emerging from the dormitory tour, Hu Qingbai invited Xiao Zishan to sit in the office building. The Ministry of Education's headquarters fit the image of an academic institution perfectly: a two-story pseudo-European structure. Since the Ministry and the school were effectively one organization, this building also housed teachers' offices. But the interior was largely empty; few occupants could be seen.
 
-Hu Qingbai invited him into his own office. It was empty inside, with only two facing desks and a few rattan chairs.
+Hu Qingbai led him into his own office. It was bare: just two facing desks and a few rattan chairs.
 
-"Didn't even apply for electric lights!" Hu Qingbai complained bitterly. "Chang Kaishen insisted this place isn't within their wire-laying range!"
+"They didn't even approve electric lighting!" Hu Qingbai groused. "Chang Kaishen insists this location is outside his wiring range!"
 
-"There is a shortage of teachers now! Few transmigrators are willing to be full-time teachers. And I have no personnel power. Begging everywhere, and there are only twelve people in the Ministry of Education so far. These twelve people also have to be responsible for literacy education in the quarantine camp. Busy to death." Hu Qingbai complained, "Everyone feels being a 'schoolteacher' is boring. Quite a few are willing to do part-time, but part-timers have limited time; we can't open night schools for everything!"
+"There's a teacher shortage right now! Few transmigrators want to be full-time educators, and I have no authority over personnel. I've begged everywhere, and the Ministry of Education still has only twelve people. Those twelve also handle literacy instruction at the quarantine camp. We're running ourselves ragged." Hu Qingbai's frustration spilled over. "Everyone thinks being a 'schoolteacher' is tedious. Plenty will do part-time work, but part-timers have limited hours. We can't run night school for everything!"
 
-"Speaking of teachers, aren't there a few scholars among the refugees recruited from Guangzhou? Train them to take posts first."
+"Speaking of teachers—weren't there scholars among the refugees recruited from Guangzhou? Train them to take positions first."
 
-"Few, really very few. Knowing a few characters counts as amazing. Even if there are a few intellectuals, they get intercepted by various departments as soon as they come out of the quarantine camp."
+"Very few. Being able to write a few characters counts as remarkable. And the handful of actual intellectuals get intercepted by other departments the moment they leave quarantine."
 
-"I'll talk to the Executive Committee. Besides letting the Ministry of Education prioritize extracting indigenous intellectuals, let's look at women; suitable ones will be transferred to you." Xiao Zishan said, "Among them, many studied liberal arts majors. Staying in various departments, they are just material for being secretaries, which is pure waste. Fang Yijing, who manages dorms for the General Office—now the dormitory occupancy rate is much lower, no need for this full-time dorm administrator anymore. Might as well transfer her to the school. To be your Matron Teacher."
+"I'll raise the matter with the Executive Committee. Besides giving the Ministry of Education priority in extracting indigenous intellectuals, let's consider the women. Those with suitable backgrounds can be transferred to you." Xiao Zishan thought for a moment. "Many studied liberal arts. Keeping them scattered across departments as secretaries is pure waste. Fang Yijing, who manages dormitories for the General Office—now that occupancy has dropped, there's no need for a full-time administrator. She could be transferred here. To serve as your Head Matron."
 
-"That would be great. With women, I estimate we can attract a batch of liberal arts otakus to be teachers." Hu Qingbai seemed to see hope.
+"That would be excellent. With women on staff, I suspect we could attract a batch of liberal-arts otakus to teach as well." Hope lit Hu Qingbai's face.
 
-"They all have boyfriends and husbands; you have to keep a close watch, don't let scandals happen." Xiao Zishan rolled his eyes. "Actually, there is a way to attract otakus to you."
+"Most of them have boyfriends and husbands. Keep a close watch—no scandals." Xiao Zishan rolled his eyes. "Actually, there is a way to attract otakus to your school."
 
 "What way?" Hu Qingbai's eyes widened.
 
-"Stupid, what do you have most here?"
+"Think, man. What do you have in abundance here?"
 
 "Students—"
 
-"Aren't there female students..." Xiao Zishan said meaningfully.
+"Female students, specifically..." Xiao Zishan said meaningfully.
 
-Hu Qingbai suddenly realized: "Right, right!" Then he frowned again. "They are all little kids, dirty-faced, thin as monkeys, unless they are loli lovers."
+Realization dawned. "Right, right!" Then Hu Qingbai frowned. "But they're all children—grubby-faced, thin as monkeys. Unless someone's a lolicon..."
 
-"Didn't the Superintendent want you to run a Simplified Normal School? You just extract girls aged over fifteen with decent looks and start a Simplified Normal Class. Give them slightly better food, raise them to be strong and fair..." Finally, he added, "The sailor suits female students wear are made too tackily—the material isn't good either. The tailoring technology of the Commune's garment factory is much better now, and good fabrics can also be purchased from Guangzhou and Macau. You just ask any anime otaku to contribute his *Japanese High School Girl Uniform Collection* for reference, and custom make a set for them—pay attention to make skirts longer. Then advertise Simplified Normal School recruiting teachers. Hehe, won't that group of otakus cry and shout to come be *Kichiku*... no, return as People's Teachers?"
+"Didn't the Superintendent want you to establish a Simplified Normal School? Just select girls over fifteen with decent looks and start a Simplified Normal Class. Give them slightly better rations. Let them fill out, grow healthy and fair..." He paused. "And the sailor-suit uniforms our female students wear are awful—the tailoring is shoddy, the fabric worse. The Commune's garment factory has much better technique now, and good fabrics can be purchased from Guangzhou and Macau. Borrow any anime otaku's *Japanese High School Girl Uniform Collection* for reference, and have proper ones made—longer skirts, of course. Then announce that the Simplified Normal School is recruiting instructors. I guarantee those otakus will weep and clamor to return as People's Teachers."
 
-"A Simplified Normal School can't recruit many students. One hundred is about enough. Can there be so many classes?"
+"A Simplified Normal School can't enroll that many students. Perhaps a hundred at most. Can that create enough class sections?"
 
-Bai Yu said from the side, "Only promised to let them teach Simplified Normal School classes, didn't say only teach Simplified Normal School classes."
+Bai Yu chimed in from the side. "We're only promising to let them teach Simplified Normal classes—not *only* Simplified Normal classes."
 
-"Right. Isn't teaching one period a week teaching?" Xiao Zishan said with a smile. "Also, recruiting only one hundred for Simplified Normal School is too few. Try to recruit more—five hundred. Fix the literacy teachers with the lowest requirements first; otherwise, you'll be tripped up by low-level teaching and won't have time for administration."
+"Exactly. One period a week still counts as teaching." Xiao Zishan smiled. "Also, recruiting only a hundred for the Simplified Normal School is far too few. Aim for five hundred. Secure the literacy teachers—the lowest-demand role—first. Otherwise, you'll drown in basic instruction and have no time for administration."
 
-"Recruiting all females might not be suitable," Bai Yu said. "This is the 17th century; there's no gender equality yet. You let a little girl teach big men literacy; will people submit?"
+"Recruiting all females might be problematic," Bai Yu cautioned. "This is the seventeenth century. There's no gender equality yet. If you put young girls in front of grown men to teach literacy, will the men accept it?"
 
-"Laboring people still submit to cultured people, regardless of male or female, or status," Xiao Zishan said. This was probably one of the traditional virtues in past Chinese society.
+"Working people still respect the educated, regardless of gender or status." Xiao Zishan considered this one of traditional Chinese society's virtues.
 
-"But what Bai Yu said makes sense. Recruit some boys too."
+"But Bai Yu has a point. Recruit males as well."
 
-Thereupon it was finalized that the first batch of the Simplified Normal School would recruit five hundred people, three hundred fifty females and one hundred fifty males. Recruited from teenagers aged fifteen to twenty who completed literacy education and obtained a Class C Diploma. The Ministry of Education would concentrate most teachers to conduct a three-month crash training for Simplified Normal School students, bringing them to the cultural level of a Class A Diploma.
+It was thus decided: the first Simplified Normal School class would enroll five hundred students—three hundred fifty female and one hundred fifty male. Candidates would be teenagers aged fifteen to twenty who had completed literacy education and held a Class C Diploma. The Ministry of Education would concentrate most of its teachers to deliver a three-month intensive course, elevating these trainees to Class A Diploma-level proficiency.

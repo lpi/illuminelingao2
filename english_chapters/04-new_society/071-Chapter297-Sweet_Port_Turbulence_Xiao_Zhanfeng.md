@@ -1,139 +1,141 @@
 # Chapter 297: Sweet Port Turbulence — Xiao Zhanfeng
 
-However, it was inconvenient for them to get too close. People gathering here were all acquaintances; two strange faces suddenly arriving would easily arouse suspicion, let alone gathering news. Chen Tianxiong felt deeply that his time here was too short, and he hadn't reached the level of "sinking in." Not only would people know he was an "outsider" as soon as he opened his mouth, but even his mannerisms were different from others. Every move would attract attention. In such a social environment, conducting intelligence work without the assistance of locals was wishful thinking.
+However, approaching this closely was ill-advised. The people gathered here were all acquaintances; two unfamiliar faces appearing suddenly would easily arouse suspicion—never mind actually gathering intelligence. Chen Tianxiong keenly felt that his time here had been too brief; he hadn't achieved the level of "blending in." Not only would locals recognize him as an "outsider" the moment he opened his mouth, but even his mannerisms differed from everyone else's. Every gesture would attract notice. In such a social environment, conducting intelligence work without local assistance was pure fantasy.
 
-Thinking of this, he couldn't help but admire the secret arrangements President Wen and the others made in Guangzhou back then: if there were no Gao family and Qiwei Escort Agency now, and the Transmigration Group was isolated and trapped in Lingao, who knew how long they would have to toss about to open up the situation? How could it be like now, where there was always some local support?
+Reflecting on this, he couldn't help but admire the secret arrangements President Wen and the others had made in Guangzhou years ago. If not for the Gao family and Qiwei Escort Agency now, the Transmigration Group, isolated and trapped in Lingao, would have struggled for who knows how long to open up the situation. Nothing like the present, where local support was always available.
 
-The two then rested and drank tea at a roadside tea shed half a *li* away from the temple. People came and went in the tea shed, engaging in mixed interactions. Even without opening his mouth to ask, he could hear a lot of news from the discussions of people nearby.
+The two instead rested and took tea at a roadside tea stall half a *li* from the temple. People came and went in mixed company. Even without asking questions, he could overhear considerable news from nearby conversations.
 
-Fortunately, the recent arm-wrestling between South China and Haiyi Hall had become a big piece of news in Xuwen and even Leizhou, and people in the shed discussed it the most.
+Fortunately, the recent confrontation between South China and the Haiyi Guild had become major news throughout Xuwen and even Leizhou, and tea stall patrons discussed it most frequently.
 
-The news was mixed, and a lot of it was absurd. Especially the machines of the South China Factory, which had almost become "monster devices." Although machinery wasn't as rare in the late Ming Dynasty as it was in the "Prosperous Qing," things that moved on their own without using human, water, or wind power, and had such great strength, still made many people feel mysterious and unfathomable.
+The news was mixed, much of it absurd—especially regarding the South China Factory's machinery, which had practically become "monster devices." Though machinery wasn't as rare in the late Ming as during the "prosperous Qing," devices that moved of their own accord without human, water, or wind power, and possessed such tremendous force, still struck many as mysterious and unfathomable.
 
-Secondly, the most discussed topic was the private lives of the gentlemen at South China Factory. Especially the relationship with the two Wen brothers became the object of many people's fantasies. Hearing the public opinion in the tea shed, the chrysanthemums of these two people provoked much reverie. On the contrary, Chang Shide's "feat" of buying five women in one go at the human market was unmentioned by anyone.
+Second in popularity as a discussion topic was the private lives of the South China gentlemen—especially the relationship with the two Wen brothers, which inspired considerable speculation. Judging from the tea stall's public opinion, those two individuals' posterior anatomies provoked extensive imagination. By contrast, Chang Shide's "feat" of purchasing five women in a single human market transaction went entirely unmentioned.
 
-At this moment, someone nearby was spitting as he spoke: "...In my opinion, this time, South China is going to eat a big loss."
+Just then, someone nearby was expounding with great animation: "...In my view, South China is going to suffer a major setback this time."
 
-Why so? This was a question everyone wanted to ask. So far, predictions that South China would suffer had appeared several times. In the gambling dens of Xuwen, a new type of betting pool had recently appeared: betting on whether South China or Haiyi Hall would win this sugar war. A few days ago, many people kept buying Haiyi Hall to win, but as the purchase price of two *liang* five *qian* had been maintained until now, the number of people buying South China to win had increased greatly. Locals weren't fools; the crushing season was only three months in total, and now two-thirds had passed, yet the warehouses of the various sugar trading houses under Haiyi Hall were still empty. The victory was already decided.
+Why so? This was a question everyone wanted answered. So far, predictions of South China's downfall had appeared several times. In Xuwen's gambling dens, a new type of betting pool had recently emerged: wagering on whether South China or Haiyi Guild would win this sugar war. Days ago, many kept buying Haiyi Guild to win, but since the purchase price of two taels five *qian* had held until now, those betting on South China had multiplied. Locals weren't fools—the crushing season lasted only three months, two-thirds of which had passed, yet the warehouses of Haiyi Guild's various sugar trading houses remained empty. Victory was essentially decided.
 
-"You, old brother, only know how to lick Haiyi Hall's toes every day. Last time, I don't know who said that South China's cash flow would break within three days, and if it didn't break, he would cut off his 'tool'?" Someone ridiculed, "I see you, old man, haven't gone to the capital to register yet!"
+"You, old brother, only know how to lick Haiyi Guild boots all day. Last time, I don't know who claimed South China's cash flow would collapse within three days—and if it didn't, he'd cut off his 'tool'?" Someone mocked. "I notice you, old man, haven't gone to the capital to register yet!"
 
-"Registering" referred to self-castration by commoners who intended to enter the palace, going to the capital to submit themselves to become eunuchs and handling the procedures.
+"Registering" referred to self-castration by commoners intending to enter the palace—going to the capital to submit themselves as prospective eunuchs and completing the procedures.
 
-There was a roar of laughter in the tea shed. The person being teased still spoke stiffly, "Who knows where they got silver again? I think South China is just lingering on its last breath."
+Roaring laughter erupted in the tea stall. The mocked party spoke stiffly: "Who knows where they found more silver? I say South China is just lingering on borrowed time."
 
-"Lingering on its last breath to the point where the number of weighing scales increased to fifteen, tripling. Is there such a lingering in the world?"
+"Lingering to the point where they tripled their weighing scales to fifteen? Is there such a thing as lingering in this world?"
 
-"Humph!" The teased person refused to admit defeat and said, "Even if South China has plenty of silver, they have lost a move in terms of public sentiment! Just watch, within three to five days, there will inevitably be a civil commotion!"
+"Humph!" The teased man refused to concede. "Even if South China has abundant silver, they've lost on public sentiment! Just watch—within three to five days, there will inevitably be civil disturbance!"
 
-"How so?" The other party disagreed. "Do you have two 'tools'? No wonder you can't go to register!"
+"How so?" The other party remained dismissive. "Do you have two 'tools'? No wonder you can't go register!"
 
-Now the tea shed simply laughed to the sky. Everyone clutched their bellies and fell over laughing; even the waiters and shop assistants laughed until they bent over and wiped tears.
+Now the tea stall simply erupted with laughter. Everyone clutched their bellies, doubled over; even the waiters and shop assistants wiped away tears of mirth.
 
-Now this person couldn't hold on to his face anymore and said anxiously, "Sour Scholar Xiao! Just you watch. South China went against the current in Xuwen and destroyed so many people's livelihoods. Earlier, someone went to sue them and was rejected by the Grand Master. But can the matter end there? Sooner or later, it will incite civil commotion!"
+The man could no longer maintain composure and said urgently: "Sour Scholar Xiao! Just you watch. South China went against the current in Xuwen, destroying so many livelihoods. Earlier, someone sued them and was dismissed by the Grand Master. But can the matter end there? Sooner or later, it will incite civil disturbance!"
 
-The scholar called Sour Scholar shook his head and laughed. "I advise you to go to the entrance of South China Sugar Firm and say these words to the cane farmers. The market price of two *liang* five *qian* was forcibly turned into one *liang*; you still have the nerve to say others 'destroyed people's livelihoods'?!"
+The scholar called Sour Scholar shook his head, laughing. "I advise you to go to the South China Sugar Firm entrance and say these things to the cane farmers. The market price of two taels five *qian* was forcibly reduced to one tael—and you still have the nerve to claim others 'destroyed livelihoods'?"
 
-"Humph, are there only cane farmers in Xuwen?" The other party sneered. "I think you are blind. Which of those people in front of the Zou Monk Temple doesn't hate South China to death? I advise you not to rush to advocate for South China either. After three days, the result will be seen!"
+"Humph—are there only cane farmers in Xuwen?" The other sneered. "I think you're blind. Which of those people at Zou Monk Temple doesn't hate South China to death? I advise you not to rush to advocate for South China either. In three days, the results will be seen!"
 
-"Three days is three days!" The scholar snapped his fan shut. "I'd like to see what result there is. Just looking at what kind of stuff Lin Zhuang, whom they elected, is, this group of people won't amount to anything!"
+"Three days then!" The scholar snapped his fan shut. "I'd like to see these results. Judging by the quality of Lin Zhuang, whom they elected—this group won't accomplish anything!"
 
-Hearing "Lin Zhuang" mentioned, Chen Tianxiong couldn't help but prick up his ears, wanting to hear the details. Unexpectedly, someone came to mediate, "You two, you two, such matters have nothing to do with us. Why hurt harmony over this? Better drink tea."
+Hearing "Lin Zhuang" mentioned, Chen Tianxiong couldn't help pricking up his ears, hoping for details. Unfortunately, someone intervened to mediate: "You two, you two—such matters have nothing to do with us. Why damage harmony over them? Better drink tea."
 
-With this, the topic of "Lin Zhuang" was dropped. However, the topic remained on South China. This scholar was extremely interested in South China's machines, only regretting that South China's gates were heavily guarded, and he couldn't go inside to take a look.
+With this, the "Lin Zhuang" topic dropped. However, conversation remained fixed on South China. This scholar showed intense interest in South China's machinery, regretting only that South China's gates were heavily guarded—he couldn't get inside to inspect.
 
-"I heard that machine eats sugarcane bagasse and spits out black smoke and raging fire; it looks like a big stove," someone said.
+"I hear that machine consumes sugarcane bagasse and exhales black smoke and raging fire; it resembles a great furnace," someone said.
 
-"Just don't know what is burned on this stove? What's the use of burning it?" He sighed repeatedly. "It would be great if I could see it with my own eyes!"
+"I just don't know what burns in this furnace? What's the purpose of burning it?" He sighed repeatedly. "If only I could see it with my own eyes!"
 
-"It boils water." Someone said, "I heard people inside say that water has to be carted in every day. When the time comes, it will spray out water vapor. Just don't know what use boiling water like this every day has for boiling sugar?"
+"It boils water." Someone offered. "I heard people inside say water must be carted in every day. When the time comes, it sprays water vapor. I just don't know what use boiling water like that has for sugar-making."
 
-The speaker had no intent, but the listener took note. Chen Tianxiong nodded secretly. The ancients still had observational skills, but unfortunately lacked hundreds of years of knowledge and accumulation, so they suffered a lot in this regard.
+The speaker had no intent, but the listener took note. Chen Tianxiong nodded inwardly. The ancients possessed observational skills; unfortunately, they lacked several centuries of accumulated knowledge.
 
-"South China's sugar making is a secret method. Wanting to enter the sugar factory to see their machines, isn't that wishful thinking?" An old man said. "Just speaking of this Leizhou Prefecture, there are plenty of big households who plan to do business with South China."
+"South China's sugar-making is a closely guarded secret. Wanting to enter the sugar factory to see their machinery is wishful thinking?" An old man said. "Speaking just of Leizhou Prefecture, plenty of substantial households plan to do business with South China."
 
-This was the first time hearing this! Chen Tianxiong thought to himself that the escort masters going out to inquire about news were separated by a layer after all. Moreover, they didn't know what the transmigrators cared about most.
+This was new information! Chen Tianxiong thought to himself that the escort masters gathering intelligence remained separated by a layer—moreover, they didn't know what concerned the transmigrators most.
 
-"This is strange. Besides sugar, what other business is there to do with them?"
+"That's strange. Besides sugar, what other business is there with them?"
 
-"For a business house as big as South China, just eating and clothing is a big business!" The old man said. "It's a pity they have been here for a short time—"
+"For an establishment as large as South China, just the food and clothing requirements constitute major business!" The old man said. "It's only a pity they've been here such a short time—"
 
-What was a pity, he didn't need to ask to know. South China's foundation here was very shallow, not to mention its background was unclear. The general big business households in the locality were mostly prudent. When making friends with new customers to do business, they first looked at whether the origin was clear, and second at how they conducted themselves in the world. Only when both were problem-free would they trade with you; otherwise, they would rather not make money than provoke trouble.
+What was pitiful, he didn't need to ask to know. South China's foundation here was very shallow, not to mention its obscure origins. Generally, substantial local business households were prudent. When cultivating relationships with new customers, they first examined whether origins were clear, then observed conduct in the world. Only when both proved satisfactory would they trade—otherwise, they preferred not earning money to inviting trouble.
 
-The duel between South China and Haiyi Hall seemed to be a matter between two families, but in reality, all of Leizhou was watching. Thinking about it this way, it was a layer deeper than before: South China being here, firstly was to make money, and secondly to establish a name. Although this place wasn't a "Liberated Area," it was an important financial source for the future Transmigration Group, so the foundation must be solid. Thinking of this, Chen Tianxiong was more determined in his thinking of using strategy rather than relying on force to solve it.
+The duel between South China and the Haiyi Guild appeared to be a matter between two parties, but in reality, all of Leizhou was watching. Considered this way, matters ran deeper than previously realized: South China's presence here served first to make money, second to establish reputation. Though this wasn't a "Liberated Area," it was an important future financial source for the Transmigration Group—the foundation had to be solid. Reflecting on this, Chen Tianxiong became more determined to resolve matters through strategy rather than force.
 
-However, in the end, no one mentioned Lin Zhuang's matter again. Chen Tianxiong was somewhat disappointed. Since it was like this, he had to ask face to face. From the conversation of the bystanders, he knew that this scholar surnamed Xiao was called Xiao Zhanfeng. This person had a very good impression of South China, and what was rare was that he was sensible and willing to speak out for justice. He was a target that could be won over. Moreover, the implication was that he understood Lin Zhuang quite well, and maybe some news could be inquired through him.
+However, no one mentioned Lin Zhuang again. Chen Tianxiong felt somewhat disappointed. Since that was the case, he would have to inquire directly. From bystanders' conversation, he knew this scholar surnamed Xiao was called Xiao Zhanfeng. This person held a very favorable impression of South China, and what was rare, he was sensible and willing to speak out for justice—a potential recruit. Moreover, his words implied considerable familiarity with Lin Zhuang; perhaps information could be obtained through him.
 
-It was nearing noon, and Xiao Zhanfeng was going back to eat. Chen Tianxiong winked at Zhou Shizhai. Zhou Shizhai understood: there were many people here, and it was inconvenient to greet him on the street. It wouldn't be too late to simply follow him home and then visit him.
+It was approaching noon, and Xiao Zhanfeng was returning home to eat. Chen Tianxiong signaled Zhou Shizhai. Zhou Shizhai understood: with many people around, approaching him on the street was inconvenient. Better to simply follow him home and then pay a visit.
 
-Immediately, they followed out. Chen Tianxiong drank tea alone in the tea shed, listening to people talking nonsense. It was just that his level of Leizhou dialect was quite limited, and he couldn't understand more than half of it, planning in his heart to hire someone to teach him specifically.
+Immediately, they trailed after him. Chen Tianxiong drank tea alone in the stall, listening to people talk nonsense. Unfortunately, his Leizhou dialect remained quite limited—he couldn't understand more than half—and he resolved to specifically hire someone as a tutor.
 
-After sitting for another hour or so, he saw Zhou Shizhai coming back. He threw a few copper coins on the table and went out to join him.
+After sitting another hour or so, he saw Zhou Shizhai returning. He threw a few copper coins on the table and went out to join him.
 
-Zhou Shizhai whispered to him that the place where this Xiao lived was actually in Xuwen County seat. This was quite surprising. Why did a resident of the county seat run more than ten *li* away to Haian Street to drink tea? Although Xuwen was small, there were always places to drink tea.
+Zhou Shizhai whispered that this Xiao actually resided in Xuwen's county seat. This was quite surprising. Why would a county seat resident travel more than ten *li* to Hai'an Street just to drink tea? Though Xuwen was small, tea houses certainly existed there.
 
-"His home is in the North Gate suburb of the county seat. It looks very dilapidated. I even found out about his family affairs."
+"His home is in the north gate suburb. It looks very dilapidated. I've even learned about his family circumstances."
 
-Current rumors were that this Xiao Zhanfeng's parents had passed away, and this person had always not attended to proper business, often making comments on current affairs. His family fortune was very unbearable. So to date, he didn't even have a wife.
+Current rumors held that Xiao Zhanfeng's parents had died. This person had never attended to proper business, instead constantly commenting on current affairs. His family fortunes were quite dire—to date, he didn't even have a wife.
 
-Since this person was a master with no cares or concerns, he could be befriended deeply and used by us. Chen Tianxiong made up his mind and asked Zhou Shizhai to lead the way to visit this scholar together.
+Since this man was a free agent with no ties, he could be deeply cultivated for their use. Chen Tianxiong made his decision and asked Zhou Shizhai to lead the way so they could visit this scholar together.
 
-Where Scholar Liu lived was a courtyard on the back street of the gate suburb. It was a single-family courtyard. Judging by the scale, it used to be a well-to-do family in the past, but now it appeared very dilapidated. The walls hadn't been whitewashed for a long time, and even the gate wall was a bit crooked. Grass even grew on the ground in front of the door—a picture of a desolate fallen household.
+Where Scholar Xiao lived was a courtyard on the back street of the gate suburb—a single-family compound. Judging by scale, this had once been a well-to-do family, but now appeared thoroughly dilapidated. The walls hadn't been whitewashed in years; even the gate wall leaned slightly askew. Grass grew from cracks in the ground before the door—a picture of desolate decline.
 
-Zhou Shizhai stepped forward and knocked on the door. It took a long time to knock the person out. He was wearing an old scholar's robe. He was bareheaded without a headscarf. Although the clothes were old and patched, they were clean and tidy.
+Zhou Shizhai stepped forward and knocked. A long time passed before someone emerged—wearing an old scholar's robe, bareheaded without a scholar's cap. Though the clothes were old and patched, they were clean and tidy.
 
-Seeing two strangers at the door, Xiao Zhanfeng couldn't help but be stunned, "Who are you two looking for?"
+Seeing two strangers at his door, Xiao Zhanfeng started in surprise. "Whom are you looking for?"
 
 "Looking for Xiao Zhanfeng."
 
-"I am he. We have never met; I wonder if you two..." He looked at these uninvited guests curiously.
+"I am he. We've never met—might I ask who you are...?" He studied these uninvited guests curiously.
 
-"I have long admired your great name and came specifically to pay a visit." Chen Tianxiong said a general polite phrase.
+"I've long admired your great name and came specifically to pay respects." Chen Tianxiong offered a conventional pleasantry.
 
-Xiao Zhanfeng's eyes rolled around Chen Tianxiong for a while, and suddenly he nodded, "So that's it! Please sit inside."
+Xiao Zhanfeng's eyes rolled over Chen Tianxiong for a while before he suddenly nodded. "So that's it! Please, come inside."
 
-Chen Tianxiong originally thought he would refuse, so he had specially prepared a set of rhetoric, and was even prepared to barge in. Now it seemed unnecessary. His interest in this person increased greatly.
+Chen Tianxiong had originally anticipated refusal and had specially prepared a set of arguments—he was even prepared to force entry. Now that proved unnecessary. His interest in this person increased considerably.
 
-The courtyard was very desolate. A lychee tree grew with branching twigs. Under the tree were a broken table and a few bamboo chairs. There was tea on the table; it could be seen that although this Xiao Zhanfeng was poor, he still had some literary elegance.
+The courtyard was very desolate. A lychee tree grew with spreading branches. Beneath the tree stood a broken table and several bamboo chairs. Tea rested on the table—evidently, though this Xiao Zhanfeng was impoverished, he retained some scholarly refinement.
 
-"Lacking a wife to manage the house, the room is messy, so please sit in the courtyard."
+"Lacking a wife to manage the household, the rooms are in disarray—please sit in the courtyard instead."
 
-After the host and guests sat down, before Chen Tianxiong spoke, Xiao Zhanfeng blinked his eyes a few times and said, "If I'm not wrong, you two are from South China, right?"
+After host and guest were seated, before Chen Tianxiong could speak, Xiao Zhanfeng blinked several times and said: "If I'm not mistaken, you two gentlemen are from South China, correct?"
 
-Chen Tianxiong secretly praised his eyesight and only said, "How so?"
+Chen Tianxiong secretly praised his perceptiveness but merely said: "How so?"
 
-"South China's people are different from locals in mannerisms and appearance." Xiao Zhanfeng smiled rather complacently. "You two changed your attire, but the bearing in your gestures cannot be changed."
+"South China's people differ from locals in manner and appearance." Xiao Zhanfeng smiled rather complacently. "You two changed your attire, but the bearing in your movements cannot be changed."
 
-"Oh, I would like to ask for advice. How can you tell from the bearing?" This was tantamount to virtually admitting that he was a South China person.
+"Oh? I'd appreciate your insight. What about the bearing gives us away?" This was tantamount to virtually admitting he was a South China person.
 
-"What is difficult about this?" Xiao Zhanfeng was quite proud. "Just the few big shopkeepers of your South China that I have seen. None of them look like merchants; instead, they have an air of looking down on the world."
+"What's difficult about that?" Xiao Zhanfeng was quite pleased with himself. "Just the few major shopkeepers of your South China I've seen—none of them resemble merchants. Instead, they carry an air of looking down upon the world."
 
-"Looking down on the world?" Chen Tianxiong couldn't help laughing. Did we really all have the aura of kings? On second thought, modern people were indeed incomparable to the ancients in terms of self-confidence and self-esteem. Moreover, the transmigrators were all over-nourished, and their vigor and spirit were indeed very different from the natives.
+"Looking down upon the world?" Chen Tianxiong couldn't help laughing. Did they truly all radiate kingly aura? On reflection, modern people were indeed incomparably superior to ancients in self-confidence and self-esteem. Moreover, the transmigrators were all over-nourished; their vigor and spirit were genuinely quite different from natives.
 
 "Since Mr. Xiao—"
 
 "Just call me Zhanfeng."
 
-This was a very polite gesture. The two sides exchanged names. Chen Tianxiong knew the rules of the Ming Dynasty people and asked again, "May I ask for your courtesy name?"
+This was a very gracious gesture. The two exchanged names. Chen Tianxiong knew Ming Dynasty etiquette and asked further: "Might I inquire about your courtesy name?"
 
-"What courtesy name do I have!" Xiao Zhanfeng gave a bitter laugh. "I started schooling at eight, took the child exam at fourteen, wasted time until now, and am still just a *Tongsheng*. What use is taking a courtesy name?" Speaking of this, he suddenly realized something. "You two came here, and I haven't even served tea..."
+"What courtesy name would I have!" Xiao Zhanfeng gave a bitter laugh. "I began my schooling at eight, first sat for the *tongsheng* examination at fourteen, wasted time until now, and remain merely a *tongsheng*. What's the point of a courtesy name?" A thought struck him. "You two have arrived, and I haven't even served tea..."
 
-"No need for formalities." Chen Tianxiong knew from the appearance here that Xiao Zhanfeng's situation was distressed. Since he intended to recruit him, he had to give some small favors without leaving a trace. Since it was already noon, he might as well treat him to a drink. After three cups of wine, the friendship would be different.
+"No formalities necessary." Chen Tianxiong could see from surrounding conditions that Xiao Zhanfeng's circumstances were straitened. Since he intended to recruit him, small favors must be given without leaving traces. Since noon was approaching, why not treat him to a drink? After three cups, the friendship would be different.
 
-"Master Zhou, trouble you to order a few dishes and fetch some wine."
+"Master Zhou, please trouble yourself to order a few dishes and fetch some wine."
 
-Zhou Shizhai knew that this Australian wanted to win over this destitute scholar. Since arriving in Lingao, although he deeply worked silently and never commented on the Australians' affairs, he could see that their ambitions were not small, and he had long harbored different thoughts in his heart. Immediately he nodded and asked, "I don't know what wine to drink?"
+Zhou Shizhai understood that this Australian wanted to cultivate this destitute scholar. Since arriving in Lingao, though he worked silently without commenting on Australian affairs, he could see their ambitions were considerable—he had long harbored his own thoughts. He nodded immediately and asked: "What wine would you prefer?"
 
-"Don't want Xuwen Liquid, it's too sweet!" Since Chen Tianxiong intended to recruit, naturally he had to invest some capital, "Go to the sugar firm and get two bottles of 'National Scholar Unrivaled'!"
+"Not Xuwen Liquid—it's too sweet!" Since Chen Tianxiong intended to recruit, naturally he had to invest. "Go to the sugar firm and fetch two bottles of 'National Scholar Unrivaled'!"
 
-"No, no, this cannot be done!" Xiao Zhanfeng's face turned completely red. "Meeting for the first time, how can you let me spend so much?"
+"No, absolutely not!" Xiao Zhanfeng's face flushed crimson. "Meeting for the first time, how can I let you spend so much?"
 
-"Like old friends at first sight." Chen Tianxiong smiled. "I still have things to ask Brother Zhanfeng for advice."
+"Friends at first sight." Chen Tianxiong smiled. "I still have matters to consult Brother Zhanfeng about."
 
-Although Xiao Zhanfeng felt it was inappropriate, there was only a bowl of cold rice and a few pieces of salted vegetables on the stove. Let alone treating guests, it wasn't enough for himself to eat. He also thought that since the other party was so straightforward, why should he be bashful? So he stopped declining.
+Though Xiao Zhanfeng felt it inappropriate, there was only a bowl of cold rice and a few pieces of salted vegetables on his stove—never mind treating guests, it wasn't enough for himself. He also reflected that since the other party was so forthright, why should he be bashful? So he stopped declining.
 
-In less than a moment, Zhou Shizhai came back, bringing a shop assistant carrying a food box. Inside, there were all kinds of cold and hot dishes, quite sumptuous, making Xiao Zhanfeng, who hadn't known the taste of meat for a long time, swallow hard.
+In less than a moment, Zhou Shizhai returned, bringing a shop assistant carrying a food box. Inside were all manner of cold and hot dishes, quite sumptuous—making Xiao Zhanfeng, who hadn't tasted meat in ages, swallow involuntarily.
 
-"Too costly!" He cupped his hands. "Since your honor is so polite, Zhanfeng has nothing to repay. Ashamed, ashamed."
+"Too extravagant!" He cupped his hands. "Since your honor is so generous, Zhanfeng has nothing to repay. My apologies."
 
-"What's there to be polite about? We are all brothers." Chen Tianxiong used to have a lot of social interactions in society in the past, and was very experienced in these tactics of building relationships and getting close. After pushing cups and changing lamps, and with a few cups of wine in the stomach, seeing the conversation getting warmer and warmer, he began to enter the main topic.
+"What's there to be polite about? We're all brothers." Chen Tianxiong had conducted extensive social rounds in his previous life and was well-practiced in relationship-building tactics. After circulating cups and trading toasts, with a few drinks in the stomach, the conversation growing warmer and warmer, he began approaching the main topic.
+
+**(End of Chapter)**

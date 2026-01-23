@@ -1,139 +1,143 @@
-# Chapter 316 - Bairen General Hospital
+# Chapter 316: Bairen General Hospital
 
-Taking in a maid wasn't a big deal. If she was really as good as she said, then just let Chen Tianxiong use her—he didn't have a woman anyway.
+Taking in a maid was hardly a significant matter. If she truly was as capable as described, Chen Tianxiong could use her—he didn't have a woman anyway.
 
-"Alright, tell her to come over tomorrow and we'll see," Wen Tong said nonchalantly.
+"Very well. Have her come by tomorrow for a look," Wen Tong said absently.
 
-"Thank you, Master, for your grace!" Ah Zhu arched her body fawningly, slowly sliding down towards Wen Tong's crotch. She gently took him into her mouth and gave a slight lick with the tip of her tongue. He shuddered all over and immediately stood erect again.
+"Thank you, Master, for your grace!" Ah Zhu arched her body fawningly and began sliding slowly downward toward his groin. She took him gently into her mouth and gave a delicate lick with the tip of her tongue. He shuddered entirely, stiffening again instantly.
 
-*I'll have to teach her some fresh tricks later.* Wen Tong's consciousness gradually blurred under the sensation; this thought flashed through his mind before he sank into the climax of bliss.
+*I'll have to teach her some fresh techniques later,* Wen Tong thought. The notion flickered briefly through his mind before consciousness dissolved into the rising tide of pleasure.
 
-***
+---
 
 "The Dean is making rounds!"
 
-As soon as the Head Nurse's high-pitched voice rang out in the corridor, every ward and office of Bairen General Hospital tensed up. This was the routine Dean’s Grand Rounds every Monday morning. All chief physicians had to attend. The first batch of Health School graduates, who had just been capped and promoted to nurses, and their juniors—the second batch of Health School interns—hurriedly opened the ward doors and stood in the corridor. Holding their breath and concentrating, they stood respectfully, awaiting the arrival of the figure who was like a god in their hearts.
+The moment the Head Nurse's high-pitched voice rang through the corridor, every ward and office in Bairen General Hospital tensed in anticipation. This was the routine Monday Dean's Grand Rounds. All chief physicians were required to attend. The first batch of Health School graduates—newly capped and promoted to formal nurses—and their juniors, the second-batch interns, hurried to open ward doors and arrange themselves in the corridor. They stood in respectful stillness, scarcely breathing, awaiting the arrival of the figure who loomed godlike in their minds.
 
-As the main door of the Chief's Office building opened, Shi Niaoren walked out, one hand in the pocket of his brand-new white coat, his broad shoulders and imposing figure leading the procession. A step behind him were the department chiefs. Each with a taut face, their white medical coats ironed crisp and straight—ironing clothes for the chief physicians was one of the duties of the nurses at Bairen General Hospital—and stethoscopes hanging around their necks, shining brightly.
+The main door of the Chief's Office building swung open. Shi Niaoren emerged, one hand tucked casually into the pocket of his crisp white coat, his broad shoulders and imposing frame leading the procession. A step behind walked the department chiefs, faces taut, white coats pressed to knife-edge creases—ironing physicians' coats was among the designated duties of Bairen General Hospital's nurses—stethoscopes gleaming around their necks.
 
-"Good morning, Doctors!" Led by Head Nurse Zhang Ziyi, all nurses and interns bowed and greeted in unison. Although the scene was small, it was quite spectacular.
+"Good morning, Doctors!" Led by Head Nurse Zhang Ziyi, all nurses and interns bowed and spoke in unison. The gathering was modest, but the effect was striking.
 
-"Good morning. Thank you for your hard work!" Shi Niaoren nodded. The chiefs always felt a bit gloomy at this moment—after all, there was only one person who could say "Comrades, thank you for your hard work." The inspection team was customarily led by Shi Niaoren, the highest-ranking People's Commissar of Health and Dean of Bairen General Hospital. Shi Niaoren held the titles of a US-educated Ph.D. and Professor of Infectious Diseases, occupying a high position even in this new timeline.
+"Good morning. Thank you for your efforts." Shi Niaoren acknowledged them with a nod. The chiefs always felt a twinge of awkwardness at this moment—after all, only one person was truly entitled to say, "Comrades, thank you for your hard work." The inspection team was customarily led by Shi Niaoren, the highest-ranking People's Commissar of Health and Dean of Bairen General Hospital. In this new timeline, his US-earned doctorate and professorship in infectious diseases still commanded considerable weight.
 
-The entire inpatient building had three floors. The first and second floors were ordinary wards, with ten rooms on each floor and six beds per room. The third floor was the "Senior Cadre Ward"—actually reserved for transmigrators. It also had ten rooms, but only three beds each.
+The inpatient building rose three stories. The first and second floors housed ordinary wards—ten rooms per floor, six beds per room. The third floor was designated the "Senior Cadre Ward"—in practice, reserved for transmigrators. It too had ten rooms, but only three beds each.
 
-Currently, about thirty people were admitted to the ordinary wards, mostly with muscle contusions, fractures, traumatic infections, and common illnesses like upper respiratory infections with fever or acute gastroenteritis. In recent days, a batch of wounded had been admitted—sailors and artillerymen from the *Great Whale* injured in the Battle of Juhua Islet. They mostly suffered from minor burns and puncture wounds from iron shrapnel.
+Currently, about thirty patients occupied the ordinary wards. Most cases involved muscle contusions, fractures, traumatic infections, and common ailments: upper respiratory infections with fever, acute gastroenteritis. In recent days, a batch of wounded had been admitted—sailors and artillerymen from the *Great Whale*, injured in the Battle of Juhua Islet. Their wounds were mostly minor burns and punctures from iron shrapnel.
 
-Most didn't need hospitalization; they would be fine once their wounds were treated. Only a few had severe injuries. Such injuries, as long as they didn't damage major blood vessels or organs, weren't hard to treat. Even fighting inflammation was much easier than in the other timeline—antibiotics like sulfonamides worked almost instantly.
+Most didn't truly require hospitalization; once their wounds were dressed, they'd be fine. Only a few had serious injuries. Such wounds, provided they didn't damage major vessels or organs, weren't difficult to treat. Even fighting infection was far easier than in the old timeline—antibiotics like sulfonamides worked almost miraculously.
 
-The only thing that troubled the doctors was tetanus antitoxin—this item was becoming scarcer, and its shelf life was limited. Once used up, the wounded would have to rely on luck.
+The only thing troubling the physicians was tetanus antitoxin. This item was growing scarce, and its shelf life was limited. Once exhausted, wounded men would have to rely on luck.
 
-For general patients, the inspection ended with checking the medical chart at the bedside and asking if there were any abnormalities. Even in such basic and simple matters, Shi Niaoren would often find problems.
+For ordinary patients, the rounds consisted of reviewing the bedside chart and inquiring whether any abnormalities had been observed. Yet even in such basic matters, Shi Niaoren frequently uncovered problems.
 
-"Why doesn't this patient have a morning temperature reading?!" Dean Shi started to flare up again—how many times had he emphasized this! "Who is on duty?"
+"Why doesn't this patient have a morning temperature reading?" Dean Shi began to flare—how many times had he emphasized this? "Who was on duty?"
 
 "Reporting to Master—"
 
-"Dean!" Shi Niaoren roared. "Say it again: call me Dean!" Hearing this address, he knew it was a Health School student. Formal nurses wouldn't call him "Master."
+"Dean!" Shi Niaoren thundered. "Say it again: call me *Dean*!" The address "Master" marked the speaker as a Health School student; formal nurses knew better.
 
-"It's me—" The Health School girl who was called out wore a blue nurse uniform. Since she wasn't a formal nurse, she only wore a blue triangular kerchief.
+"It's me—" The student wore a blue nurse's uniform. Because she wasn't yet a formal nurse, she wore only a blue triangular kerchief instead of a proper cap.
 
 "Who are you?"
 
 "Hou Qing."
 
-Hou Qing looked thin and small. In the other timeline, she would likely be considered fifteen or sixteen, but she was actually in her early twenties, considered an old maid in this timeline. She and her brother, Hou Wenyong, were refugees recently taken in by the Guangzhou Station.
+Hou Qing appeared thin and slight. By 21st-century standards she might pass for fifteen or sixteen, but she was actually in her early twenties—considered an old maid in this era. She and her brother, Hou Wenyong, were refugees recently brought in by the Guangzhou Station.
 
 "Why didn't you take the temperature?"
 
-"Shame, shame to death—" The girl actually covered her face, looking like she was about to cry.
+"Ashamed... I was too ashamed—" The girl actually covered her face, looking as though she might cry.
 
-It turned out that to avoid patients biting off thermometers, temperatures here were taken rectally. In other words, the nurse had to "violate" the patient's rear.
+The explanation emerged quickly: to prevent patients from biting through thermometers, temperatures here were taken rectally. In other words, the nurse had to "violate" the patient's posterior.
 
-It was certain that patients weren't used to it, but asking these young women born in an era where "men and women should not touch" to perform such an act on a grown man they had never met was even more difficult.
+Patients certainly weren't accustomed to it. But asking these young women—born in an age where "men and women should not touch"—to perform such an act on a grown man they'd never met was even more difficult.
 
-Initially, there was a suggestion to start with a male nurse system, but Shi Niaoren rejected it outright: "You all know very well: medical workers have no gender! If they can't even step over this threshold, what's the point of talking about training qualified indigenous medical personnel?"
+Early on, someone had suggested introducing a male nurse system, but Shi Niaoren had rejected the idea outright. "You all understand perfectly well: medical workers have no gender! If they cannot step over this threshold, what's the point of discussing the training of qualified indigenous medical personnel?"
 
-Of course, such things couldn't be achieved overnight. Nine out of ten new students couldn't accept it at first. They had to be educated slowly. Shi Niaoren sighed and said to Zhang Ziyi:
+Of course, such transformations couldn't happen overnight. Nine out of ten new students couldn't accept it initially; they had to be educated gradually. Shi Niaoren sighed and turned to Zhang Ziyi.
 
-"Teach her well."
+"Teach her properly."
 
-Saying this, he walked to the next bed.
+With that, he moved to the next bed.
 
-"What is this about?!"
+"What is this about?"
 
-Every ward round would uncover some problems, more or less. Either basic temperatures were forgotten, or medical records were written wrongly. The first batch of Health School graduates were actually still very immature in many aspects—they had learned in less than half a year what their counterparts in the other timeline took four years to finish; many had just risen above the level of illiteracy.
+Every round uncovered problems. Either basic temperature readings were missed, or medical records were written incorrectly. The first batch of Health School graduates remained fundamentally immature in many respects—they had crammed into six months what their counterparts in the other timeline took four years to learn, and many had only recently risen above functional illiteracy.
 
-After scolding the nurse who made the mistake and watching her correct it on the spot, Shi Niaoren exhaled: *There is progress.* At least the nurses no longer knelt on the ground begging for his "mercy" as soon as they heard his reprimand like in the past. Instilling modern medical concepts was truly a heavy responsibility with a long way to go.
+After reprimanding the nurse who had erred and watching her correct the mistake on the spot, Shi Niaoren exhaled slowly. *There is progress.* At least the nurses no longer dropped to their knees, begging his "mercy" the moment he raised his voice, as they had in the early days. Instilling modern medical concepts remained a heavy responsibility with a long road ahead.
 
-After visiting the ordinary wards, the group arrived at the Senior Cadre Ward, where only two people were staying.
+After inspecting the ordinary wards, the group proceeded to the Senior Cadre Ward, where only two patients currently resided.
 
-"You Laohu, Army Company Commander. Acute enteritis," reported the nurse on duty, Guo Fu.
+"You Laohu. Army Company Commander. Acute enteritis," reported the duty nurse, Guo Fu.
 
-Shi Niaoren took the medical record and looked at it. Although the handwriting was crooked, the format was standard. Fasting temperature at 6 AM was 37.4 degrees. A bit feverish.
+Shi Niaoren took the medical chart and examined it. The handwriting was crooked, but the format was correct. Fasting temperature at 6 AM: 37.4 degrees. Slightly feverish.
 
-He handed the medical record to Lan Yangyang, the gastroenterology specialist.
+He handed the chart to Lan Yangyang, the gastroenterology specialist.
 
 "Did you have diarrhea last night?"
 
 "Twice."
 
-Lan Yangyang checked again and asked some questions about the condition.
+Lan Yangyang conducted a further examination and asked follow-up questions.
 
-This guy got acute enteritis from eating wild fruits during field training yesterday. His face was green when he was carried in. Lan Yangyang busied himself for half the night to bring him around. He was still on a glucose drip.
+This patient had contracted acute enteritis from eating wild fruits during field training the previous day. His face had been green when they carried him in. Lan Yangyang had worked through half the night to stabilize him. He remained on a glucose drip.
 
-"It's fine, it's fine. Guaranteed to be healthy and lively later," Shi Niaoren comforted the mournful-faced You Laohu amiably.
+"You're fine, just fine. We'll have you healthy and bounding around in no time," Shi Niaoren reassured the mournful-faced You Laohu in an amiable tone.
 
-"Don't eat anything today. Drink some rice porridge tonight, rest for a night, and you'll be jumping around tomorrow." Lan Yangyang wanted to give You Laohu reassurance.
+"Don't eat anything today. Have some rice porridge tonight, rest well, and you'll be jumping around tomorrow." Lan Yangyang sought to bolster the patient's confidence.
 
-"Thank you, Doctor." You Laohu, who usually always wanted to flirt with the little nurses in the hospital, had no strength at all. Even with a little nurse in front of him, he couldn't muster any interest.
+"Thank you, Doctor." You Laohu—normally eager to flirt with the hospital's young nurses—had no energy whatsoever. Even with a pretty nurse standing before him, he couldn't summon the slightest interest.
 
-"Tell the Army Club to get a duck to nourish your body when you get back, hehe." Shi Niaoren was all smiles. "Don't eat things like wild fruits anymore."
+"Tell the Army Club to get you a duck to nourish your body when you get back, hehe." Shi Niaoren remained all smiles. "And don't eat things like wild fruits anymore."
 
-"Definitely won't eat them—" You Laohu, usually strong as an ox, was now weak even in speech. Indeed, a hero cannot withstand three bouts of diarrhea.
+"Definitely not—" You Laohu, usually strong as an ox, was now weak even in speech. Indeed, a hero cannot withstand three bouts of diarrhea.
 
-Shi Niaoren didn't have such a good tone when he walked to the other bed. A fat man lay on the bed, groaning, but his complexion was shockingly good.
+Shi Niaoren's tone changed entirely as he approached the other bed. A fat man lay there, groaning theatrically, but his complexion was suspiciously robust.
 
-"I say, Fatty Xi!" Shi Niaoren was blunt as soon as he opened his mouth—this guy had checked in after returning from the *Great Whale*. Actually, it was just a minor injury, not even needing stitches, completely below the standard for hospitalization. "How long are you going to mooch here?"
+"I say, Fatty Xi!" Shi Niaoren was blunt from the opening words. This patient had checked in after returning from the *Great Whale*. His injury was genuinely minor—not even requiring stitches—far below the threshold for hospitalization. "How long do you intend to freeload here?"
 
-"Doctor, I feel a bit of muscle twitching. Could it be the first stage of tetanus?" He lay there, groaning.
+"Doctor, I've been experiencing some muscle twitching. Could it be the first stage of tetanus?" The man groaned from his pillow.
 
-"You are very healthy!" Shi Niaoren said. "How many times have I told you, all transmigrators have received tetanus immunization. Your wound isn't deep, and the medic treated it. Where would tetanus come from?!"
+"You are perfectly healthy!" Shi Niaoren said. "How many times have I told you? All transmigrators received tetanus immunizations. Your wound isn't deep, and the medic treated it properly. Where would tetanus come from?"
 
-"That's not guaranteed either." Xi Yazhou said feebly. "For the sake of the Party and the State, just give me a shot of serum..."
+"That's not guaranteed." Xi Yazhou sounded feeble. "For the sake of the Party and the State, just give me a shot of serum..."
 
-He had said this several times over the past few days. Shi Niaoren shook his head helplessly. It seemed he wouldn't leave without an injection. But he was unwilling to use the limited serum on someone with no illness—they couldn't manufacture this serum; one less vial used was one less vial left.
+He had made this request several times over the past few days. Shi Niaoren shook his head in exasperation. The man clearly wouldn't leave without an injection. But he was unwilling to waste the limited serum supply on someone who wasn't sick—they couldn't manufacture this serum; every vial used was one fewer remaining.
 
-"Fine, I'm scared of you," he said. "Get discharged after the shot." Leaving the ward, he called Zhang Ziyi over:
+"Fine—you've worn me down," he said at last. "Get discharged after the shot." Leaving the ward, he called Zhang Ziyi over quietly.
 
-"Give him an injection of saline. Make it hurt a bit! Just tell him it's serum."
+"Give him an injection of saline. Make it sting. Tell him it's the serum."
 
-Having dealt with this matter, Shi Niaoren returned to his Dean's office and lit a cigarette—as a doctor, he didn't need to smoke "Holy Ship" brand cigarettes. All the heavy smokers in the health department smoked filter cigarettes brought from the other timeline. Naturally, these were gifts from grateful patients.
+---
 
-*Everything is hard in the beginning!* Shi Niaoren watched the smoke rings rise. The transmigrators were quite proud of their health department, and this pride was justified. In this timeline, the medical knowledge, skills, and specific drugs they possessed were enough to make every doctor in the Ministry of Health a "Miracle Doctor." But they were truly not omnipotent.
+Having disposed of this matter, Shi Niaoren returned to his Dean's Office and lit a cigarette. As a physician, he wasn't restricted to "Holy Ship" brand cigarettes; all heavy smokers in the health department smoked the filtered cigarettes brought from the other timeline. These were typically gifts from grateful patients.
 
-When that transmigrator, who accidentally fell off the city wall due to excessive excitement during the attack on Gou Family Village, died silently in the medical team's tent, Shi Niaoren and all medical workers felt a strong sense of powerlessness for the first time. The traumatic brain injury this person suffered might have been salvageable in the other timeline, but here they could only watch him die helplessly.
+*Everything is hard at the beginning.* Shi Niaoren watched the smoke rings drift upward. The transmigrators were justifiably proud of their health department. In this timeline, the medical knowledge, skills, and specific drugs they possessed were enough to make every doctor in the Ministry of Health a "Miracle Worker." But they were far from omnipotent.
 
-At the time, fearing it would affect morale and with the approval of the Executive Committee, the body of this obscure transmigrator was quietly buried in the wasteland behind Bopu Health Center, waiting for a suitable opportunity to be reburied in the Martyrs' Cemetery. Fortunately, they hadn't been ashore for long then, and personnel transfers were frequent, so this person was quickly forgotten.
+When that transmigrator—the one who had accidentally fallen from the wall during the attack on Gou Family Village, overexcited and careless—died silently in the medical team's tent, Shi Niaoren and all the medical workers felt a powerful sense of helplessness for the first time. The traumatic brain injury might have been salvageable in the old timeline; here, they could only watch him slip away.
 
-"But, it can't always be like this," Shi Niaoren said silently. There were a thousand things to do.
+At the time, fearing damage to morale, and with the Executive Committee's approval, the body of this obscure transmigrator was quietly buried in the wasteland behind Bopu Health Center, awaiting a suitable opportunity to be reinterred in the Martyrs' Cemetery. Fortunately, they hadn't been ashore long then, and personnel transfers were constant; the man was quickly forgotten.
 
-Since the completion of the infrastructure for Bairen General Hospital, Shi Niaoren began to consider establishing a rudimentary medical system. They lacked neither basic equipment nor medicines; although doctors were few and their specialties somewhat unbalanced, they could manage. But they didn't have a complete medical system—no, forget complete, not even a primary one.
+"But it cannot always be like this," Shi Niaoren murmured to himself. A thousand things demanded his attention.
 
-After several discussions, the Health Department decided to first build up the Bairen General Hospital system to perfection, serving as a model unit for all future medical institutions—just like the demonstration farm Wu Nanhai set up.
+Since the completion of Bairen General Hospital's infrastructure, he had been contemplating the establishment of a rudimentary medical system. They lacked neither basic equipment nor medicines; though doctors were few and their specialties somewhat unbalanced, they could manage. What they didn't have was a complete medical system—no, not even a primary one.
 
-Currently, thanks to their efforts, this general hospital had five basic departments: Internal Medicine, Surgery, Infectious Diseases, ENT, and Traditional Chinese Medicine. It had a pharmacy, a radiology room, and a laboratory center. They also took over the sanitation class originally under the Military and Political School system and established a Health School, training a batch of nurses and military medics. Of course, in terms of level, these people were not even as good as the barefoot doctors trained in the 1970s, but it was better than nothing.
+After several discussions, the Health Department had decided to first build Bairen General Hospital into a model unit, perfecting its systems to serve as a template for all future medical institutions—much as Wu Nanhai had done with his demonstration farm.
 
-Several doctors were all given the title of Chief Physician; of course, no one among the transmigrators was more suitable than them. However, these Chief Physicians of Bairen General Hospital couldn't be as fastidious as doctors in big hospitals. They had no flock of graduate or undergraduate students to do the grunt work. There wasn't even a qualified pharmacist. Taking X-rays, doing ultrasounds... they even had to guest-star in compounding medicines themselves.
+Currently, thanks to their efforts, this general hospital possessed five basic departments: Internal Medicine, Surgery, Infectious Diseases, ENT, and Traditional Chinese Medicine. It had a pharmacy, a radiology room, and a laboratory center. They had also taken over the Sanitation Class originally under the Military and Political School and established a Health School, training a cohort of nurses and military medics. By modern standards, these personnel weren't even as qualified as the barefoot doctors trained in the 1970s—but something was better than nothing.
 
-Qian Shuiting's wife, Ai Beibei, was originally not an outpatient doctor; she was actually engaged in pathological research in epidemiology. Now she had to temporarily guest-star as a gynecologist again. Even modern women from the 21st century were often unwilling to accept examinations by male gynecologists, let alone now in the 17th century.
+All physicians had been given the title of Chief—naturally, no one among the transmigrators was more qualified. But these Chief Physicians of Bairen General Hospital couldn't afford the fastidiousness of doctors in major hospitals. They had no flock of graduate or undergraduate students to perform the grunt work. There wasn't even a qualified pharmacist. Taking X-rays, performing ultrasounds... they even had to compound medicines themselves when necessary.
 
-For the most common internal medicine and infectious diseases, due to the lack of professional doctors, Shi Niaoren wrote "Guidelines for the Treatment of Common Diseases in Hainan." He ranked common diseases: Intestinal Diseases - Respiratory Diseases - Malaria - Surface Bacterial Infections - Gynecological Diseases... then detailed treatment measures for each, improving treatment efficiency and avoiding misdiagnosis.
+Qian Shuiting's wife, Ai Beibei, originally worked in pathological research within epidemiology—not outpatient care. Now she had to moonlight as a gynecologist as well. Even 21st-century women often preferred female gynecologists; in 17th-century China, the reluctance was orders of magnitude greater.
 
-Medical record formats had to be handwritten by doctors personally to serve as models for nurses and future interns. Drug use was institutionalized: all specific drugs and non-routine drugs could not be used without his approval; anesthetic dosage had to stick close to the lower limit of the theoretical dose... Anesthesiology is actually a critical specialty where lack of skill costs lives, but none of them were very good at it—sigh, if something happened, there wouldn't even be a chance for resuscitation.
+For the most common internal medicine and infectious disease cases, Shi Niaoren had written "Guidelines for the Treatment of Common Diseases in Hainan," given the lack of specialist physicians. He ranked common ailments—intestinal diseases, respiratory diseases, malaria, surface bacterial infections, gynecological diseases—then detailed treatment protocols for each, improving efficiency and reducing misdiagnosis.
 
-As for the laboratory center, Shi Niaoren hoped to expand it—to be able to perform medical testing, disease prevention, compile disease prevention manuals, and formulate reasonable disease control strategies. However, a disease prevention and control system required administrative power for support; it would have to wait until the organizational framework was decided.
+Medical record formats had to be handwritten by doctors personally to serve as models for nurses and future interns. Drug use was institutionalized: all specific drugs and non-routine medications required his personal approval; anesthetic dosages had to adhere closely to the lower limit of the theoretical dose. Anesthesiology was actually a critical specialty where inexperience killed—but none of them were truly proficient in it. If something went wrong, there wouldn't even be a chance for resuscitation.
 
-Finally, there was the matter of the pharmaceutical factory starting production. This matter could be said to create no delay. The glass factory could now provide them with enough specialized equipment. The bacterial strains brought by He Ping's wife were still in the laboratory. These things couldn't be stored for long and had to be put into production as soon as possible. Chemical pharmaceuticals couldn't be counted on for the time being...
+As for the laboratory center, Shi Niaoren hoped to expand it—to enable medical testing, disease prevention, the compilation of prevention manuals, and the formulation of rational disease control strategies. However, a prevention and control system required administrative power for enforcement; it would have to wait until the organizational framework was finalized.
 
-"Dean, everyone is here. Shall we start?"
+Finally, there was the matter of the pharmaceutical factory commencing production. This could brook no delay. The glass factory could now supply them with sufficient specialized equipment. The bacterial strains brought by He Ping's wife remained in the laboratory. These couldn't be stored indefinitely; they had to be put into production as soon as possible. Chemical pharmaceuticals couldn't be counted on for the time being...
+
+"Dean, everyone has arrived. Shall we begin?"
+
+**(End of Chapter)**

@@ -6,19 +6,19 @@ Liu San didn't know the background of this Gongji Hall, but seeing Yang Shixiang
 
 "Am I considered an outsider too?!" Yang Shixiang said, unable to bear it any longer.
 
-This checked his cousin firmly. Ancient people stressed "kinship and benevolence" within the clan. Yang Shixiang was not only not an outsider but a member of the direct branch. Although they lived far apart, his status in the clan was not low. If Yang Shiyi had used the excuse of caution in purchasing, others would have nothing to say; but using "ancestral rules" as an excuse was practically breaking his own word.
+This checked his cousin firmly. Ancient people stressed "kinship and benevolence" within the clan. Yang Shixiang was not only not an outsider but a member of the direct branch. Although they lived far apart, his status in the clan was not low. If Yang Shiyi had used the excuse of caution in purchasing, others would have nothing to say. But using "ancestral rules" as an excuse was practically breaking his own word.
 
 "You speak too heavily, too heavily!" Yang Shiyi was extremely embarrassed and momentarily speechless, so he could only evade. "We'll discuss this later, discuss it later! The elders all want to see you, Fifth Brother, after so many years. Please come to the inner residence first."
 
 Seeing his cousin leave no room for negotiation, Yang Shixiang had to stand up and follow him into the inner residence. It wasn't appropriate for Liu San to follow, and a servant came over to ask him to wait in the parlor. Liu San thought that rather than sitting alone waiting, he might as well sit in the main pharmacy hall outside to watch and learn more about the local customs. He asked the servant to lead him out and sat idly in the guest area of the main hall.
 
-Bored, Liu San reflected that his calculation had been mistaken. He had thought the strategy of using cash to buy ingredients to build goodwill, then asking for consignment, was a "win-win" idea the other party would surely accept. Unexpectedly, it was wishful thinking—in this world, how could everything fall into one's calculations?
+Bored, Liu San reflected that his calculation had been mistaken. He had thought the strategy of using cash to buy ingredients to build goodwill, then asking for consignment, was a "win-win" idea the other party would surely accept. Unexpectedly, it was wishful thinking—in this world, how could everything fall neatly into one's calculations?
 
 If consignment couldn't be arranged, the sales of traditional Chinese medicines on the mainland would have to rely on the Guangzhou Station to pioneer. They had already started quite a few industries; would opening a pharmacy stretch them too thin? He'd heard the money supply wasn't too loose either.
 
-However, Yang Shiyi had mentioned asking a "Gongji Hall" to sell on consignment. Judging by Yang Shixiang's tone, this establishment was quite unbearable. He didn't know the specific situation; if it was a small shop, perhaps the transmigrator group could consider supporting it...
+However, Yang Shiyi had mentioned asking a "Gongji Hall" to sell on consignment. Judging by Yang Shixiang's tone, this establishment was quite unbearable. He didn't know the specific situation—if it was a small shop, perhaps the transmigrator group could consider supporting it...
 
-While he was pondering silently, a shop assistant came to refill his tea. Liu San stopped him: "Little brother, let me ask you something."
+While he was pondering silently, a shop assistant came to refill his tea. Liu San stopped him. "Little brother, let me ask you something."
 
 "Please speak, sir."
 
@@ -28,7 +28,9 @@ The assistant was stunned and asked in return, "Sir, how do you know of that pla
 
 "I just happened to hear of it. Is it your branch?"
 
-"Sir, it's complicated," the assistant said. It turned out this "Gongji Hall" was a branch of "Yang Runkai Hall—De Branch." This branch was different from ordinary branches. First, it was jointly funded by all the "Western Partners"—that is, the hired employees—of "Yang Runkai Hall—De Branch." regardless of rank, from the head manager down to the apprentices, everyone contributed funds, three taels of silver each. Those who couldn't afford it could have it deducted from their wages over the years. The profits earned were distributed equally among all "Western Partners" as dividends, a kind of employee benefit. "Gongji Hall" sold goods that were second-rate items eliminated from "Yang Runkai Hall—De Branch's" sales, so the prices were cheap and very popular among poor commoners.
+"Sir, it's complicated," the assistant said.
+
+It turned out this "Gongji Hall" was a branch of "Yang Runkai Hall—De Branch." But it was different from ordinary branches. First, it was jointly funded by all the "Western Partners"—that is, the hired employees—of "Yang Runkai Hall—De Branch." Regardless of rank, from the head manager down to the apprentices, everyone contributed funds, three taels of silver each. Those who couldn't afford it could have it deducted from their wages over the years. The profits earned were distributed equally among all "Western Partners" as dividends—a kind of employee benefit. "Gongji Hall" sold goods that were second-rate items eliminated from "Yang Runkai Hall—De Branch's" sales, so the prices were cheap and very popular among poor commoners.
 
 "...'Gongji Hall' is located right next door to our main shop. It specializes in retail and also handles some wholesale business for small rural medicine merchants."
 
@@ -44,13 +46,15 @@ As they were speaking, a commotion arose in the courtyard. People began to gathe
 
 "Why?" Liu San was amazed. Was the courtyard of Yang Runkai Hall particularly prone to heatstroke?
 
-"This is also a bit of kindness from our pharmacy manager," the assistant pointed to the two mat sheds in the courtyard. "One side serves *Prunella* tea brewed by our shop, specifically for customers waiting to fill prescriptions; the other side serves 'Safety Soup' for dispelling summer heat, specifically to treat summer heat, filth, and various evils. Poor families, beggars on the street, and foundry workers who contract seasonal epidemics and have no money for medical treatment or medicine come here to drink a bowl of 'Safety Soup.' But some are already severely ill; even after drinking, they still undergo an attack. If they can't catch their breath, they lose their little lives. Alas!"
+"This is also a bit of kindness from our pharmacy manager," the assistant pointed to the two mat sheds in the courtyard. "One side serves *Prunella* tea brewed by our shop, specifically for customers waiting to fill prescriptions. The other side serves 'Safety Soup' for dispelling summer heat, specifically to treat summer heat, filth, and various evils. Poor families, beggars on the street, and foundry workers who contract seasonal epidemics and have no money for medical treatment or medicine come here to drink a bowl of 'Safety Soup.' But some are already severely ill—even after drinking, they still undergo an attack. If they can't catch their breath, they lose their little lives. Alas!"
 
-"So that's it." Liu San nodded. The sense of social responsibility in the traditional Chinese medicine community was quite good. He continued drinking tea—suddenly, he realized: wasn't this a good opportunity to promote his own patent medicine?
+"So that's it." Liu San nodded. The sense of social responsibility in the traditional Chinese medicine community was quite good.
 
-He hurriedly stood up and walked quickly down the steps. In the mat shed lay a large man, looking only in his early twenties, but tall for this era—a full 1.7 meters. His build was sturdy. He wore tattered clothes of indistinguishable color, had a rope tied around his waist, was barefoot, and looked covered in dust and grime. Beside him lay a wooden stick and a ragged bundle. Simply the standard attire of a Ming dynasty beggar.
+He continued drinking tea—then suddenly realized: wasn't this a perfect opportunity to promote his own patent medicine?
 
-Liu San felt it strange. This person's sturdy build didn't look like a beggar struggling on the starvation line for a long time, but his face was haggard and sallow, obviously malnourished, which clearly wasn't faked.
+He hurried to his feet and walked quickly down the steps. In the mat shed lay a large man, looking only in his early twenties, but tall for this era—a full 1.7 meters. His build was sturdy. He wore tattered clothes of indistinguishable color, had a rope tied around his waist, was barefoot, and looked covered in dust and grime. Beside him lay a wooden stick and a ragged bundle. Simply the standard attire of a Ming dynasty beggar.
+
+Liu San found it strange. This person's sturdy build didn't look like a beggar struggling on the starvation line for a long time, but his face was haggard and sallow, obviously malnourished—which clearly wasn't faked.
 
 Regardless of what kind of person he was, lying on a torn straw mat now, he was breathing out more than in, his jaw clenched tight, his face pale. Liu San reached out and touched his forehead.
 
@@ -58,7 +62,7 @@ Regardless of what kind of person he was, lying on a torn straw mat now, he was 
 
 "I am a doctor!" Liu San said in a deep voice. The assistant fell silent. The surrounding onlookers, seeing a doctor step forward to treat the beggar, quieted down.
 
-His forehead was covered in cold sweat. Liu San felt his pulse; it was deep, hidden, and weak. He asked the assistant dispensing medicine:
+His forehead was covered in cold sweat. Liu San felt his pulse—it was deep, hidden, and weak. He asked the assistant dispensing medicine:
 
 "Did this person collapse suddenly?"
 
@@ -82,11 +86,11 @@ Liu San bowed and explained several times before the crowd slowly dispersed. Liu
 
 While he was feeling pleased, he saw Yang Shixiang walking out from inside, looking none too lively—obviously, the trip inside hadn't yielded good results.
 
-Back at the inn, Yang Shixiang said, "Brother Liu, this matter of asking 'Yang Runkai Hall' to consign is probably not going to happen. You saw my cousin; he's very shrewd!"
+Back at the inn, Yang Shixiang said, "Brother Liu, this matter of asking 'Yang Runkai Hall' to consign is probably not going to happen. You saw my cousin—he's very shrewd!"
 
 Liu San nodded. "Still didn't agree?"
 
-"Not a flat refusal either. Just constantly circling, I don't know what idea he's harboring." Yang Shixiang took a towel from a servant, wiped his face, and drank a cup of herbal tea. "Brother Liu, where did you get your bank note?"
+"Not a flat refusal either. Just constantly circling. I don't know what idea he's harboring." Yang Shixiang took a towel from a servant, wiped his face, and drank a cup of herbal tea. "Brother Liu, where did you get your bank note?"
 
 "Naturally from Guangzhou. Doesn't the note say Guangzhou Delong Bank?"
 
@@ -94,12 +98,14 @@ Liu San nodded. "Still didn't agree?"
 
 "What did you say?"
 
-"The note, naturally I said it was deposit money given by a client." Yang Shixiang gave a self-mocking smile. "He wouldn't believe to his death that I have fifty taels of silver cash to use. As for you, I only said you are a doctor who recently arrived in Lingao with brilliant medical skills. Looking at him, he didn't seem to believe it much."
+"The note—naturally I said it was deposit money given by a client." Yang Shixiang gave a self-mocking smile. "He wouldn't believe to his death that I have fifty taels of silver cash to use. As for you, I only said you are a doctor who recently arrived in Lingao with brilliant medical skills. Looking at him, he didn't seem to believe it much."
 
-"This matter might still have a turning point." Liu San thought, *Yang Shiyi is quite sharp; he saw the main point at a glance. It seems the consignment matter isn't hopeless yet. If we can properly utilize the prestige the Guangzhou Station has accumulated in Guangdong, we might succeed.*
+"This matter might still have a turning point." Liu San thought: *Yang Shiyi is quite sharp—he saw the main point at a glance. It seems the consignment matter isn't hopeless yet. If we can properly utilize the prestige the Guangzhou Station has accumulated in Guangdong, we might succeed.*
 
 "What turning point could there be? I think we should pack up, wait for the goods to be ready tomorrow, and head home."
 
-As they spoke, Huang Tianyu returned. He had taken Chen Tong around Foshan that afternoon, hiring an inn assistant as a guide, specifically to look at Foshan's handicraft industries. He also wanted to see if there were any personnel he could bring back. Compared to Liu San's group, Huang Tianyu's harvest for the half-day was much greater.
+As they spoke, Huang Tianyu returned. He had taken Chen Tong around Foshan that afternoon, hiring an inn assistant as a guide, specifically to look at Foshan's handicraft industries. He also wanted to see if there were any personnel he could bring back.
+
+Compared to Liu San's group, Huang Tianyu's harvest for the half-day was much greater.
 
 He had visited several casting workshops and ceramic kilns. He saw large quantities of civilian items like bells, tripods, and incense burners being cast, as well as many cannons—he heard that because Guangdong iron was good and not brittle, the court was casting cannons on a large scale in Guangdong to supply Liaodong. Many casting workshops were overwhelmed with orders.

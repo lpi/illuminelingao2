@@ -26,7 +26,7 @@ Seeing everyone anxious, Magistrate Wu spoke more slowly: "This official has bee
 
 Everyone hastened to rise: "We follow Your Honor's lead!"
 
-Seeing the atmosphere favorable, Wu Mingjin revealed his plans: "Though this is a small county, the walls span over 600 *zhang*. Currently, we have barely a hundred soldiers and militia defending three gates. Meanwhile, many commoners have flooded into the city—we cannot guarantee that pirates have not planted agents among them. Runners alone may not maintain order. I propose recruiting two hundred additional militia to assist in defense."
+Seeing the atmosphere favorable, Wu Mingjin revealed his plans: "Though this is a small county, the walls span over six hundred *zhang*. Currently, we have barely a hundred soldiers and militia defending three gates. Meanwhile, many commoners have flooded into the city—we cannot guarantee that pirates have not planted agents among them. Runners alone may not maintain order. I propose recruiting two hundred additional militia to assist in defense."
 
 *(Note: Ming-era Lingao originally had four gates, but the north gate was long blocked—common in Hainan's Ming-era fortifications, attributed to both defense against pirates and feng shui.)*
 
@@ -40,7 +40,7 @@ Some argued that the Qiongya Regional Commander's patrol boats would reach Bopu 
 
 Wu Mingjin's expression darkened further. Then, from outside came a voice: "The city is in imminent danger, and you gentlemen haggle over a few coins!" With these words, Education Commissioner Feng entered with two attendants, carrying a middle-aged man on a rattan chair. Everyone rose to pay respects—very deferential. Even Magistrate Wu hurried forward, repeatedly calling, "Elder Master."
 
-This paralyzed middle-aged man was the famous Liu Dalin, courtesy name Mengliang—Lingao's first *jinshi* since the county was established in the Tang Dynasty, having passed in the 47th year of Wanli. But he had become paralyzed immediately after passing and had never served.
+This paralyzed middle-aged man was the famous Liu Dalin, courtesy name Mengliang—Lingao's first *jinshi* since the county was established in the Tang Dynasty, having passed in the forty-seventh year of Wanli. But he had become paralyzed immediately after passing and had never served.
 
 Now just over forty, in his prime, though unable to walk, he remained devoted to local affairs. His home was inside the city's west gate. Upon receiving Magistrate Wu's invitation, he had come without hesitation.
 

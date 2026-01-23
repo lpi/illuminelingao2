@@ -1,73 +1,75 @@
 # Chapter 122: Commercial Planning
 
-The plan for the East Gate Market started from the outer moat of Bairren Fortress's east gate, extending 300 meters westward—constructing a main street named "East Gate Street." Cross-streets would be placed every 100 meters on each side, creating a "one vertical, two horizontal" layout. Plots of varying sizes along the streets could be sold to merchants for self-built shops. The transmigrators would also construct shop fronts along East Gate Street for merchant rentals.
+The plan for East Gate Market began at the outer moat of Bairren Fortress's east gate, extending three hundred meters westward to form a main thoroughfare christened "East Gate Street." Cross-streets would intersect it every hundred meters on each side, creating a grid of "one vertical, two horizontal." Plots of varying sizes along these streets could be sold to merchants for self-built shops, while the transmigrators themselves would construct additional storefronts along East Gate Street for rental.
 
-"This plan is enormous. Never mind the construction resource consumption—does Lingao have enough merchants to rent your shop fronts? You're not expecting vegetable peddlers to rent, are you?"
+"This plan is enormous," someone objected. "Setting aside the consumption of construction resources—does Lingao even have enough merchants to rent your shop fronts? Surely you're not expecting vegetable peddlers to sign leases?"
 
-"Lingao's economy is minuscule—basically subsistence. Isn't this market exaggerated?" Cheng Dong expressed concern.
+"Lingao's economy is minuscule—barely above subsistence," Cheng Dong added with concern. "Isn't this market rather exaggerated?"
 
-Dongmen Chuiyu was confident. "This is long-term planning. We'll start with Phase One."
+Dongmen Chuiyu remained unruffled. "This is long-term planning. We'll begin with Phase One."
 
-Phase One included 100 meters of street with accompanying drainage and a mule and horse inn, which were common along old highways and major markets. Such inns had large courtyards for tethering animals and parking carts, warehouses for temporary goods storage, and kitchens with cooking facilities but no meals—guests cooked for themselves. Lodging was mainly dormitories, with some private rooms. They were common stopovers for small-to-medium traveling merchants.
+Phase One encompassed a hundred meters of street with accompanying drainage, plus a mule and horse inn of the type common along old highways and major markets. Such establishments featured large courtyards for tethering animals and parking carts, warehouses for temporary goods storage, and kitchens equipped with cooking facilities but serving no prepared meals—guests cooked for themselves. Lodging consisted mainly of dormitories, with a few private rooms available. They served as standard stopovers for small and medium-scale traveling merchants.
 
-A restaurant—he added that the transmigrators' contact with locals was increasing. They needed an outside dining and meeting place. Normally, it could also serve wealthy merchants.
+Next came a restaurant. The transmigrators' contact with locals was steadily increasing, he explained; they needed an external venue for dining and meetings. Under normal circumstances, it could also serve wealthy merchants.
 
-Across from the Administration building, a merchant hall would be built. This borrowed from British East India Company trading posts: a high-walled compound containing trading offices, cargo warehouses and storage yards, plus guest rooms, dining rooms, and meeting rooms for important merchants.
+Across from the Administration building, a merchant hall would rise. This concept borrowed from British East India Company trading posts: a high-walled compound containing trading offices, cargo warehouses, storage yards, and guest rooms, dining rooms, and meeting chambers for merchants of importance.
 
-Originally, running water to East Gate Market was planned, but a long-distance water supply was still difficult. Instead, the plan was changed to dig several wells, one of which would be public, providing free drinking water for people and animals. Finally, there would be public toilets, as locals doing business here defecating everywhere had become very troublesome.
+The original plan had called for running water to East Gate Market, but long-distance water supply remained technically difficult. Instead, they would dig several wells, one designated as public, providing free drinking water for both people and animals. Finally, there would be public toilets—locals doing business here had taken to defecating everywhere, which had become extremely troublesome.
 
-Even landscaping was considered—mind you, Bairren Fortress itself had no landscaping yet. East Gate Street would have tree-lined sidewalks, with species to be selected by the Agricultural Department. Wu Nanhai immediately said he'd research it.
+The plan even addressed landscaping—though Bairren Fortress itself possessed none. East Gate Street would feature tree-lined sidewalks, with species to be selected by the Agricultural Department. Wu Nanhai immediately volunteered to research suitable varieties.
 
-For security, Dugu Qiuhun saw no concerns. The major structures would be made of brick and stone, and the doors and windows would be iron-plated. The merchant hall's wall corners would each have a watchtower. Even if attacked, breaching would take time—Bairren Fortress's earthwork wall blockhouses and watchtowers were right there. For petty disturbances like theft, he requested ten sets each of stab vests, stab gloves, and batons—forming the "East Gate Market Comprehensive Enforcement Squad" from the current staff—"guaranteeing nobody causes trouble here."
+On security, Dugu Qiuhun foresaw no serious concerns. The major structures would be constructed of brick and stone with iron-plated doors and windows. Each corner of the merchant hall's walls would feature a watchtower. Even under attack, any breach would require considerable time—and Bairren Fortress's earthwork wall blockhouses and watchtowers stood ready nearby. For petty disturbances such as theft, he requested ten sets each of stab vests, stab gloves, and batons, proposing to form an "East Gate Market Comprehensive Enforcement Squad" from current staff. "I guarantee," he declared, "nobody causes trouble here."
 
-"We can provide those," Wen Desi said. "But how do you plan to attract investment?"
+"We can provide those," Wen Desi agreed. "But how do you plan to attract investment?"
 
-"Let me explain the overall strategy—it's big and complex. May I?"
+"Allow me to explain the overall strategy—it's substantial and complex."
 
-Given permission, Dongmen Chuiyu picked up his file folder. This commercial plan was mainly developed with Yan Maoda and Zhang Xin. Yan Maoda, a jewelry company manager, had gone to Guangzhou with Xiao Zishan. Zhang Xin was a small shipyard's sales section chief. In commercial ability, Dongmen Chuiyu could only bow in admiration. But those two had no interest in local commerce and didn't bother competing with Dongmen. Cooperation was pleasant.
+Given permission, Dongmen Chuiyu retrieved his file folder. This commercial plan had been developed primarily in collaboration with Yan Maoda and Zhang Xin. Yan Maoda, formerly a jewelry company manager, had departed for Guangzhou with Xiao Zishan. Zhang Xin had served as sales section chief for a small shipyard. In commercial acumen, Dongmen Chuiyu could only bow in admiration before these two. Fortunately, neither harbored any interest in local commerce and saw no point in competing with him. Their collaboration had been entirely pleasant.
 
-East Gate Market's current prosperity relied on the transmigrators' large-scale procurement. With 500-plus high-consuming modern people, the huge purchasing volume attracted many traders. But market development supported only by bulk institutional purchasing was limited. How could they bring the whole county—even neighboring counties—here to trade and consume? Their first proposal was to build roads.
+East Gate Market's current prosperity rested on the transmigrators' large-scale procurement. With over five hundred high-consuming modern people, the sheer purchasing volume attracted numerous traders. But a market sustained solely by bulk institutional purchasing faced inherent limitations. How could they draw the entire county—even neighboring counties—to trade and consume here?
 
-Bairren Fortress's location was ideal—precisely midway between the county seat and Bopu Bay (the gateway port). It was centered on the county's most developed, most populated banks of the Wenlan River and was geographically well-connected. The Bairren–Bopu highway was complete, and the county seat extension was under construction. Soon, the county seat and Bopu Port would be fully connected. Mainland merchants could conveniently reach the county seat, and river bank residents could easily access the county.
+Their first proposal: build roads.
 
-However, the highway was east of the river, so west bank residents couldn't enjoy convenient transport. Dongmen Chuiyu proposed building a footbridge upstream of the Bairren Hydroelectric Station, linking north-south traffic. Then, nearby commoners wouldn't need to detour via the Wenlan River Bridge at the South Gate.
+Bairren Fortress occupied an ideal location, positioned precisely halfway between the county seat and Bopu Bay, the gateway port. It sat at the center of the county's most developed and most densely populated region along the banks of the Wenlan River, geographically well-connected in every direction. The Bairren–Bopu highway was already complete, and the county seat extension was under construction. Soon the county seat and Bopu Port would be fully linked. Mainland merchants could conveniently reach the county seat, while riverbank residents could easily access the port.
 
-As long as traffic continuously flowed through Bairren Fortress, East Gate Market—the highway's only market—would become a hub for personnel and goods. Commerce would naturally flourish.
+The highway, however, ran along the river's east bank, leaving west bank residents without convenient transport. Dongmen Chuiyu proposed constructing a footbridge upstream of the Bairren Hydroelectric Station to link north-south traffic. This would spare nearby commoners the lengthy detour via the Wenlan River Bridge at the South Gate.
 
-Wen Desi endorsed the bridge proposal. Now with west bank industrial zone operations, the transmigrators' own personnel and material transport was inconvenient. Building a bridge benefited both purposes.
+As long as traffic flowed continuously through Bairren Fortress, East Gate Market—the highway's only market—would naturally become a hub for personnel and goods. Commerce would flourish of its own accord.
 
-Dongmen Chuiyu noted commoners currently didn't dare use the highway, as there were blockhouses and vehicles running on it. Everyone was intimidated.
+Wen Desi endorsed the bridge proposal readily. With the west bank industrial zone now operational, the transmigrators' own personnel and material transport had grown inconvenient. A bridge would serve both purposes.
 
-"That's easily solved." Wen Desi frowned. "But people here have no concept of traffic rules. Will our vehicles run people over?"
+Dongmen Chuiyu noted one complication: commoners currently avoided the highway entirely, intimidated by its blockhouses and the vehicles rumbling along it.
 
-"Unlikely. We have few vehicles—only dispatched for important matters. Currently, the fastest are bicycles, and the largest are four-wheeled wagons. Safety issues are minimal."
+"That's easily remedied," Wen Desi said with a slight frown. "But people here have no concept of traffic rules. Will our vehicles run them over?"
 
-The second proposal: attract outside merchants. The Commercial Department had clearly learned from Intelligence that Lingao was not a good market. Its economic structure wasn't just subsistence—it was particularly backward subsistence. Economic capacity and purchasing power couldn't compare to Jiangnan or Guangdong—not even average northern densely populated regions. The standard transmigrator "quick fortune" method—mass-selling "clever crafts" and modern goods (mirrors, glass cups, lighters)—wouldn't work here. They could only sell to the mainland. Ideally, merchants should come to purchase, rather than them delivering goods.
+"Unlikely. We have few vehicles, dispatched only for important matters. Currently our fastest transport is bicycles, and our largest is the four-wheeled wagon. Safety concerns are minimal."
 
-Besides future industrial products, Lingao itself had many exportable local specialties. Historical research showed the Ming era's major exports included cattle, salt, rattan (red and white), and betel nut. Rattan and betel nut mostly came from Li minority areas—processed locally, then exported to the mainland. These were the most profitable commodities.
+The second proposal: attract outside merchants. Intelligence reports had made abundantly clear that Lingao was not a favorable market. Its economic structure wasn't merely subsistence—it was particularly backward subsistence. Economic capacity and purchasing power couldn't compare to the Jiangnan or Guangdong regions, nor even to average densely populated areas in the north. The standard transmigrator "quick fortune" method—mass sales of "clever crafts" and modern goods such as mirrors, glass cups, and lighters—simply wouldn't work here. They could only sell to the mainland. Ideally, merchants should come to them for purchasing, rather than requiring the transmigrators to deliver goods.
 
-Yet historically, except for salt shipped from Bopu and Ma'ao ports, most exports went to the prefectural capital, shipping from Shenying Port. If exports could shift to Bopu Port, the well-connected East Gate Market would become the collection point for mainland merchant purchasing.
+Beyond their future industrial products, Lingao itself boasted numerous exportable local specialties. Historical research indicated that the Ming era's major exports from this region included cattle, salt, rattan (both red and white varieties), and betel nut. Rattan and betel nut originated primarily in Li minority territory—processed locally, then shipped to the mainland. These represented the most profitable commodities.
 
-"We can't control the betel nut trade yet—but we already control salt production. I propose fully monopolizing salt production and sales—making the East Gate Market salt shop Lingao's salt wholesale headquarters. Complete control of wholesale. Merchants wanting salt must come to Bairren Fortress." Dongmen Chuiyu's eyes gleamed—monopoly, oh monopoly! How much money came from it!
+Yet historically, with the exception of salt shipped from Bopu and Ma'ao ports, most exports had flowed toward the prefectural capital and embarked from Shenying Port. If that trade could be redirected to Bopu Port, the well-connected East Gate Market would become the natural collection point for mainland merchant purchasing.
 
-Other suggestions included abolishing Bopu Port's "water tax" and berthing fees to attract coastal trading ships. They would provide good business environments—tax exemptions, warehousing and transport services. Dongmen Chuiyu even proposed using the Guangzhou outpost for a Hainan–Guangzhou commercial wireless telegraph service—providing daily Guangzhou-Macau market price bulletins.
+"We can't control the betel nut trade yet," Dongmen Chuiyu continued, "but we already control salt production. I propose a complete monopoly on salt production and sales—making the East Gate Market salt shop Lingao's wholesale headquarters. Total control of wholesale. Any merchant wanting salt must come to Bairren Fortress." His eyes gleamed. Monopoly—oh, monopoly! The very word sang with profit.
 
-With these benefits, mainland merchants would naturally shift local product purchasing and processing centers to Lingao. The accompanying permanent and transient population inflow would obviously stimulate the economy. When the transmigrators eventually produced modern industrial goods, they could use these merchants' channels for mainland sales and material procurement, avoiding doing everything themselves.
+Additional proposals followed: abolish Bopu Port's "water tax" and berthing fees to attract coastal trading vessels; provide favorable business environments through tax exemptions, warehousing, and transport services. Dongmen Chuiyu even proposed leveraging the Guangzhou outpost to establish a Hainan–Guangzhou commercial wireless telegraph service, providing daily Guangzhou-Macau market price bulletins.
 
-This commercial plan was approved. The Construction Engineering Group groaned—their tasks were overwhelming: the county road had just been completed; Damei Village's nearly 200 relocated households needed housing; and Bairren Fortress itself had ongoing projects. Now, East Gate Market development was added. The brick kilns and cement kilns ran day and night. Labor shortages were everywhere. Ma Qianzhu, coordinating everything, was overwhelmed.
+With such inducements, mainland merchants would naturally shift their local product purchasing and processing centers to Lingao. The accompanying influx of both permanent settlers and transient population would obviously stimulate the economy. When the transmigrators eventually began producing modern industrial goods, they could utilize these merchants' established channels for mainland sales and material procurement—avoiding the burden of doing everything themselves.
 
-He summoned Wu Nanhai, his face grim. "Nanhai, your workload is increasing. From now on, prepared 800 additional meals daily—supplying the Damei Village migrants. Engineering urgently needs this labor force."
+The commercial plan received approval. The Construction Engineering Group groaned collectively—their burden was already overwhelming. The county road had just been completed; Damei Village's nearly two hundred relocated households required housing; Bairren Fortress itself had ongoing projects. Now East Gate Market development was added to the pile. Brick kilns and cement kilns ran day and night. Labor shortages plagued every site. Ma Qianzhu, responsible for coordinating the entire operation, found himself drowning.
 
-This notification made Wu Nanhai gasp: he'd previously provided at most 700 daily meals. Adding 800 more suddenly was a Great Leap-style leap. Never mind anything else—even the kitchen equipment wasn't sufficient.
+He summoned Wu Nanhai, his expression grim. "Nanhai, your workload is about to increase. From now on, prepare eight hundred additional meals daily for the Damei Village migrants. Engineering urgently needs that labor force."
 
-"The Planning Committee just brought the Gou Manor spoils—kitchen and daily use items. Go pick what you need." Ma Qianzhu, seated behind a huanghuali wood table, scribbled a note, stamped his personal seal, and handed it over—there were no official seals yet; documents were validated by Committee members' and group leaders' signatures or personal stamps.
+Wu Nanhai gasped. Previously he had provided at most seven hundred daily meals. Adding eight hundred more represented a Great Leap-style surge. Setting aside everything else, the kitchen equipment alone was insufficient.
 
-"We don't farm—just cooking is overwhelming!" Wu Nanhai exploded—recently, constant cooking duty left no time for his beloved agriculture.
+"The Planning Committee just delivered the Gou Manor spoils—kitchen supplies and daily-use items. Go select what you need." Seated behind a huanghuali wood table, Ma Qianzhu scribbled a note, stamped it with his personal seal, and handed it over. Official seals didn't yet exist; documents were validated through Committee members' and group leaders' signatures or personal stamps.
 
-"Select whoever you need. Pick women from the Damei Village migrants to help. Must be reliable—no Gou family connections whatsoever. Also: locals can't handle our food—keep cooking areas separate. Understand?"
+"We don't even farm anymore—cooking alone is overwhelming!" Wu Nanhai burst out. Recently, constant kitchen duty had left him no time for his beloved agriculture.
 
-"How would I know who has Gou family connections?"
+"Select whoever you need. Choose women from among the Damei Village migrants to assist. They must be reliable—absolutely no Gou family connections. Also, locals can't handle our food; keep the cooking areas separate. Understood?"
 
-"Security is conducting individual vetting. As materials come out batch by batch, you select batch by batch."
+"How am I supposed to know who has Gou family connections?"
+
+"Security is conducting individual vetting. As cleared personnel emerge batch by batch, you select from each batch."
 
 **(End of Chapter)**

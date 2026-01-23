@@ -1,113 +1,113 @@
 # Chapter 492 - New Land Deeds (Part 2)
 
-The surveying and verification work took a considerable amount of time. Finally, under modern surveying methods, problems were resolved one by one, and the land status on the Meiyang Village map placed in the center of the big tent gradually became clear. The map on the floor was marked with numerous numbers and colored blocks that only professionals could understand. Colorful and densely packed, it looked like an abstract painting.
+The surveying and verification work consumed considerable time. Under modern methods, problems yielded one by one, and the land map of Meiyang Village spread across the center of the command tent grew steadily clearer. Numbers and colored blocks crowded the floor—a dense configuration comprehensible only to specialists, its kaleidoscopic complexity resembling an abstract painting.
 
-From the gradually clarifying survey map, it was easy to see that some people had concealed their acreage. Many surveyed fields had no declarants. These were undoubtedly hidden fields. To be prudent, Wang Ruixiang specially met with Fu Buer and some village elders to find out if any outside landlords had bought land in the village, and received a negative answer.
+From the emerging picture, it became obvious that certain households had concealed their acreage. Numerous surveyed parcels bore no declarants whatsoever. These were undoubtedly hidden fields. Exercising caution, Wang Ruixiang personally met with Fu Buer and several village elders to inquire whether any outside landlords had purchased land within the village. The answer was negative.
 
-"Alright, now you're going to be the chickens," Wang Ruixiang thought to himself in his tent. As for exactly who hadn't declared, he wasn't in a rush to find out. They would confess of their own accord when the land deeds were issued.
+*Excellent*, Wang Ruixiang thought, settling back in his tent. *Now you shall be made examples.* As for precisely which families had failed to declare, he felt no urgency to investigate. They would confess readily enough when the time came to issue land deeds.
 
-On this day, Wang Ruixiang held a village-wide meeting on the village threshing floor to issue the new land deeds on the spot.
+On the appointed day, Wang Ruixiang convened a village-wide assembly on the threshing floor to distribute the new deeds in person.
 
-The new land deeds adopted a double-page certificate format with a unified serial number. The cover and back cover were made of thick cardboard, durable and wear-resistant. The paper was also heavy-duty cardstock with watermarks produced by the paper mill. To avoid the trouble of changing land deeds again after establishing independence later, the new land deeds only used the name of the Lingao County Grain Collection Bureau and were stamped with the Bureau's official seal. Only the last page bore the official seal of the Lingao County Magistrate—to gain the people's trust, since the flag of the Great Ming hadn't been discarded yet.
+The new land deeds featured a double-page certificate format with unified serial numbers. Cover and backing consisted of thick, durable cardboard. The inner pages were heavy-duty cardstock with watermarks produced at the paper mill. To sidestep the inconvenience of reissuing deeds after formal independence was declared, the documents bore only the name of the Lingao County Grain Collection Bureau, stamped with its official seal. Only the final page carried the seal of the Lingao County Magistrate—a concession to public trust while the Great Ming's banner still flew.
 
-The new land deeds not only noted the landowner, area, dimensions, and location data but also included a scale plan drawn according to modern mapping methods. The deeds were in triplicate: one copy for the landowner, one for the Household Office archives, and one for the Grand Library archives.
+Beyond recording landowner, area, dimensions, and location, each deed included a scale plan drawn according to modern cartographic standards. The documents existed in triplicate: one copy for the landowner, one for the Household Office archives, one for the Grand Library.
 
-After distributing the deeds, Wang Ruixiang announced that the remaining undeclared land would be confiscated as ownerless land.
+When the distribution concluded, Wang Ruixiang made his announcement: all remaining undeclared land would be confiscated as ownerless property.
 
-"It's a pity to leave so much ownerless land fallow. However, the county has already recruited many refugees from Guangdong, so the ownerless land will be distributed to them for cultivation," Wang Ruixiang said nonchalantly. "Over a dozen households will come to your village. Everyone must get along well in the future."
+"It would be a shame to leave so much land lying fallow," he remarked, affecting indifference. "However, the county has already recruited considerable numbers of refugees from Guangdong. The ownerless parcels will be distributed to them for cultivation." He let this sink in before adding, "More than a dozen households will be settling in your village. I trust everyone will get along harmoniously."
 
-It was known to everyone in Lingao that the Australians were transporting refugees from the mainland in ship after ship at Bopu. Now saying they would use the village's ownerless land to settle them—this was reasonable and logical, leaving the people present no choice but to believe it.
+Everyone in Lingao knew the Australians were ferrying boatload after boatload of refugees from the mainland through Bopu. Presenting this as a logical consequence—using the village's unclaimed land to settle them—was both reasonable and irrefutable.
 
-As soon as these words were spoken, all the villagers were stunned. Not only those who had concealed land, but even the tenant farmers were shocked—what a ruthless move!
+The villagers stood stunned. Not merely those who had hidden land, but even the tenant farmers felt the blow—what a ruthless maneuver!
 
-"Alright, deeds have been collected. Everyone can disperse."
+"Very well, deeds have been collected. Everyone may disperse."
 
-A buzz of discussion erupted in the yard.
+The courtyard erupted into agitated murmuring.
 
-"Chief! Have mercy!" A sharp woman's scream suddenly rang out. A woman from a landlord's family, hearing that all undeclared land would be confiscated and distributed to immigrants from the mainland, could no longer keep her cool. Disregarding whatever the head of the household might decide, in her desperation she lunged out of the crowd, crawled on the ground, and prostrated herself at Wang Ruixiang's feet.
+"Chief! Have mercy!" A shrill scream pierced the din. A woman from one of the landlord families, hearing that all undeclared land would be seized and given to mainlanders, lost whatever composure she possessed. Heedless of her household patriarch's authority, she burst from the crowd, fell to her knees, and crawled forward to prostrate herself at Wang Ruixiang's feet.
 
-"We lowly ones still have land we haven't declared—"
+"We lowly folk still have land we haven't declared—"
 
-"Too late. The declaration period has ended." Wang Ruixiang said expressionlessly. "In another month, the immigrants from the mainland will arrive."
+"Too late. The declaration period has closed." Wang Ruixiang's face remained impassive. "In another month, the mainland immigrants will arrive."
 
-This caused an explosion of noise. Families in the courtyard who had initially tried to feign calm panicked completely. With a whoosh, they all knelt down, begging together.
+Pandemonium erupted. Families throughout the courtyard who had initially feigned calm now shattered utterly. They collapsed to their knees in a collective wave, pleading desperately.
 
-Wang Ruixiang remained unmoved, ignoring how the families hiding land knelt on the ground, young and old, begging bitterly. He let the people on the ground cry, tear their clothes, and beat their chests. The family with the heaviest losses stood to lose almost half their land. Several elderly members and children fainted from crying.
+Wang Ruixiang remained unmoved. He let them kneel there—young and old alike—weeping and begging. Let them cry, tear at their garments, beat their breasts. The family facing the heaviest losses stood to forfeit nearly half their holdings. Several elderly members and children fainted from the intensity of their wailing.
 
-"I told you many times: declare truthfully. Declared reclaimed land gets a deed; undeclared land gets treated as ownerless even if you have an old deed." Seeing the timing was about right, Wang Ruixiang feigned pity. "There's nothing to be done if you didn't listen. The mainland immigrants are coming soon, and now you say there's no land—you tell me, what should be done?"
+"I told you repeatedly: declare truthfully. Declared reclaimed land receives a deed; undeclared land is treated as ownerless even if you possess an old document." When the scene had reached its peak, Wang Ruixiang allowed a note of feigned sympathy to enter his voice. "There is nothing to be done if you refused to listen. The mainland immigrants are arriving soon. Now you come forward to say you concealed land—tell me, what am I supposed to do?"
 
-"It was lard blinding our hearts. Please, Master, show mercy!" A dense crowd knelt before him; the leading old men had banged their heads until they bled.
+"It was lard blinding our hearts! Please, Master, show mercy!" A dense throng knelt before him; the old men at the front had battered their foreheads against the ground until blood ran.
 
-"Stop pretending to be pitiful. If we hadn't measured it, you wouldn't be kneeling here begging for mercy," Wang Ruixiang sneered. "Maybe you'd be snickering at home right now, thinking you'd succeeded."
+"Spare me the performance. If we hadn't measured, you wouldn't be here begging," Wang Ruixiang said coldly. "Perhaps you'd be snickering at home this very moment, congratulating yourselves on your cleverness."
 
-These words struck at the heart. The people kneeling below turned pale and couldn't speak.
+These words struck at the heart of the matter. Those kneeling below turned ashen and found themselves unable to reply.
 
-Wang Ruixiang coughed: "If you dare to do it, you must dare to accept the consequences. Don't act like men without balls."
+Wang Ruixiang cleared his throat. "If you have the courage to deceive, you must have the courage to face consequences. Stop behaving like men without spines."
 
-"We lowly ones will never dare again!" The people below continued to beg, their heads banging loudly against the stone floor. Several people's foreheads swelled up and bled.
+"We lowly ones will never dare again!" The supplicants continued their entreaties, their foreheads striking the stone with audible thuds. Several had raised swollen, bleeding lumps.
 
-Women in the crowd were crying and wailing. Many people on the threshing floor were watching, mostly ordinary farmers of the village. Seeing the village's rich people so wretched, they felt vindicated. Some smiled; others jeered from the sidelines.
+Women in the crowd keened and sobbed. Many villagers had gathered on the threshing floor to watch—mostly ordinary farmers. Seeing the village's wealthy reduced to such wretchedness brought a grim satisfaction. Some permitted themselves smiles; others jeered from the sidelines.
 
-Fu Buer also stood on the threshing floor, keeping a straight face and remaining silent. But he was secretly delighted: this move was the right one. That Australian who seemed rude but was actually shrewd had just praised him, calling him a "model," and made many promises—regardless of whether those promises would be fulfilled, at least all his land was preserved.
+Fu Buer stood among the onlookers, maintaining a neutral expression and keeping silent. Inwardly, however, he felt vindicated—this gamble had paid off. The Australian, whose rough exterior concealed considerable shrewdness, had just praised him as a "model" and made many promises. Whether those promises would be fulfilled remained uncertain, but at minimum, all his land remained intact.
 
-He stole a glance at Fu Yousan's eldest son, Fu Yizhuang, who was sweating profusely. Fu Yousan's family held back and didn't confess. They were confident that their farmstead's location was hidden and the Australians hadn't discovered it. But in such a scene, Fu Yizhuang had no confidence. The torment was unbearable. He secretly blamed his father, Fu Yousan: always coming up with ideas but making others take the lead, hiding himself whenever there was a confrontation.
+He stole a glance at Fu Yizhuang, eldest son of Fu Yousan. The young man was drenched in nervous sweat. The Fu Yousan household had held their silence and made no confession. They remained convinced the farmstead's location was hidden and that the Australians hadn't discovered it. But confronted with this spectacle, Fu Yizhuang's confidence crumbled. The torment was unbearable. Silently, he cursed his father—always the one hatching schemes, but when confrontation came, always hiding himself and sending others to the front.
 
-"Fine," Wang Ruixiang said, seeing their heads were swollen from knocking and they were on the verge of collapse from crying and kowtowing. He finally relented. "Seeing how pitifully you beg, I'll give everyone a way out."
+"Very well," Wang Ruixiang said at last, observing that foreheads were swollen from kowtowing and the assembly teetered on the verge of collective collapse. He finally relented. "Seeing how pitifully you plead, I will offer everyone a path forward."
 
-"Thank you, Chief—" They made to kowtow again.
+"Thank you, Chief—" They moved to kowtow again.
 
-"Don't thank me yet." Wang Ruixiang sneered. "If you expose anyone else in this village who hasn't honestly declared their land, I'll give you a chance for lenient punishment."
+"Save your gratitude." Wang Ruixiang's smile was thin and cold. "If any of you exposes another household in this village that failed to declare honestly, I will grant you an opportunity for leniency."
 
-A moment of silence appeared in the courtyard. Everyone's gaze immediately turned to Fu Yizhuang: everyone in the village knew Fu Yousan's family had more land than this.
+Silence fell across the courtyard. Every gaze swung toward Fu Yizhuang. Everyone in the village knew the Fu Yousan family possessed far more land than they had reported.
 
-Wang Ruixiang's gaze followed. Fu Yizhuang felt like he had thorns in his back. His legs trembled, wanting to kneel and beg for mercy. He forced himself to calm down, comforting himself secretly: No matter how capable the Australians are, they don't have clairvoyance or wind-hearing ears. Even the villagers can't explain the farmstead's location clearly. What was there to fear? Even if someone wanted to inform, they had to be able to say where the land was.
+Wang Ruixiang followed the collective stare. Fu Yizhuang felt the weight of their attention like needles against his spine. His legs trembled; he wanted to fall to his knees and beg for mercy. He forced himself to maintain composure, reassuring himself silently: *No matter how capable these Australians may be, they lack clairvoyance and supernatural hearing. Even the villagers cannot articulate the farmstead's precise location. What is there to fear? Even if someone wished to inform, they would be unable to describe where the land actually lies.*
 
-"Fu Yousan's family has a lot of land." Finally, someone hiding in the crowd spoke in a low voice.
+"The Fu Yousan family has considerable holdings." At last, someone concealed in the crowd spoke in an undertone.
 
-The people kneeling on the ground seemed to see a lifeline. They turned into vicious dogs, scrambling to jump up and tear at Fu Yousan's family. Men, women, and the elderly alike shouted vehemently: "Fu Yousan's family has undeclared land!"
+Those kneeling seized upon this as if grasping a lifeline. They transformed into vicious dogs, scrambling to their feet, eager to tear at the Fu Yousan household. Men, women, and elderly alike shouted vehemently: "The Fu Yousan family has undeclared land!"
 
-These words immediately converged into a wave that crashed hard against Fu Yizhuang. Fu Yizhuang's face turned pale. Watching these people, who were just kneeling and begging for mercy, disregard kinship, clan ties, and neighborly relations to sell out his family instantly, he was so angry he almost vomited blood.
+The accusation rose into a wave that crashed against Fu Yizhuang. His face went pale. Watching these same people—who mere moments ago had been kneeling and begging for mercy—abandon kinship, clan loyalty, and neighborly bonds to betray his family without hesitation filled him with such fury he nearly vomited blood.
 
-Forcing himself to stay calm, he saw Chief Wang's gaze turn toward him, so he bit the bullet and answered:
+He forced himself to maintain composure. Chief Wang's gaze had fixed upon him. Steeling himself, he answered:
 
-"My family's land has truly all been declared. There is no concealment."
+"My family's land has all been declared. There is no concealment."
 
-"He's lying!" A woman screamed. "That old miser Fu Yousan is the best at hoarding wealth. His family has piles of grain they can't finish eating. He buys land every year; there must be other land!" Her words immediately drew a frenzy of agreement.
+"He's lying!" A woman shrieked. "That miser Fu Yousan is the greatest hoarder of wealth. His family has piles of grain they cannot finish eating. He buys land every year—there must be other holdings!" Her words ignited a frenzy of agreement.
 
-Wang Ruixiang waved his hand, signaling everyone to be quiet, and called him forward: "Does your family really have no more land?"
+Wang Ruixiang raised a hand for silence, then beckoned Fu Yizhuang forward. "Does your family truly have no additional land?"
 
-"Really, none." Fu Yizhuang decided to brazen it out to the end.
+"Truly, none." Fu Yizhuang committed himself to brazenness.
 
 "None in other villages either?"
 
-"My family has small holdings. We can't manage land bought in other villages."
+"My family's holdings are modest. We cannot manage land purchased in other villages."
 
-"Don't you have brothers? Where are your brothers?" Wang Ruixiang asked.
+"Don't you have brothers? Where are your brothers?" Wang Ruixiang inquired.
 
-Fu Yizhuang was startled. He didn't expect the Australians to know his family affairs so well. On second thought, Fu Buer must have told them.
+Fu Yizhuang started. He hadn't expected the Australians to possess such detailed knowledge of his family. On reflection, Fu Buer must have informed them.
 
-"Erzhuang went to his wife's maiden home."
+"Erzhuang went to visit his wife's maiden family."
 
-"Hmm." Wang Ruixiang stared at him for a long while. "Where's your father?"
+"Hmm." Wang Ruixiang studied him for a long moment. "And your father?"
 
-"He—he's sick—"
+"He—he is unwell—"
 
-"Sick again? He really knows how to get sick, and always at the right time." Wang Ruixiang said with a smile, then suddenly lowered his voice and said to him, "Don't you think so?"
+"Unwell again? Remarkable how conveniently he falls ill, and always at precisely the right moment." Wang Ruixiang's smile carried no warmth. He leaned closer and lowered his voice. "Wouldn't you say?"
 
-"Yes—yes—" Fu Yizhuang was caught off guard.
+"Y-yes—" Fu Yizhuang was caught entirely off guard.
 
-"Your family has undeclared land." Wang Ruixiang spat on the ground. "You and your father must think we can't find that place, right?"
+"Your family possesses undeclared land." Wang Ruixiang spat on the ground. "You and your father believe we cannot find that place. Am I correct?"
 
-"Dare not, dare not." Fu Yizhuang was frightened into incoherence, his body trembling involuntarily.
+"I wouldn't dare, wouldn't dare presume—" Fu Yizhuang stammered, trembling uncontrollably.
 
-"I'll tell you right now," Wang Ruixiang swept his gaze over the others, "nothing can be hidden from our eyes!" Saying this, he turned his gaze back to Fu Yizhuang's trembling body. "Go back and tell your father: we don't need to use torture on you. In three days, we'll know exactly how much land your family has. By then, your family will have to pay double."
+"I'll tell you plainly now," Wang Ruixiang announced, sweeping his gaze across the assembled crowd, "nothing escapes our eyes!" He turned back to Fu Yizhuang's quaking form. "Go home and inform your father: we have no need of torture. Within three days, we will know precisely how much land your family holds. When that time comes, your household will pay double."
 
-Fu Yizhuang wanted to confess, but thinking that if he spoke, his father would never believe his explanation and it would be his fault again—he feared his father like a mouse fears a cat. Knowing the serious consequences, he still didn't dare disobey Fu Yousan's decision.
+Fu Yizhuang wanted desperately to confess, but the thought of his father's inevitable reaction stopped him. Fu Yousan would never believe any explanation—the blame would fall squarely on him. He feared his father as a mouse fears a cat. Even knowing the gravity of the consequences, he dared not defy Fu Yousan's decree.
 
-"Chief, I can't make decisions for the family." Fu Yizhuang was in turmoil, practically begging. "Please forgive me! Forgive me!"
+"Chief, I cannot make decisions for the family." Fu Yizhuang was in turmoil, practically begging. "Please forgive me! Forgive me!"
 
-"You're useless!" Wang Ruixiang felt contempt for him. "A man in his thirties, taking no responsibility for his own family affairs!"
+"Useless!" Wang Ruixiang eyed him with contempt. "A man past thirty, taking no responsibility for his own household affairs!"
 
-Fu Yizhuang sulked internally: Dare I take responsibility in this family? Fu Yousan held everything in a death grip. Although he was the eldest son, he was ordered around like a head laborer at home. Of course, he couldn't say this, so he just lowered his head and remained silent, determined not to speak even if beaten to death.
+Fu Yizhuang seethed inwardly. *Dare I take responsibility in this family?* Fu Yousan maintained an iron grip on everything. Though he was the eldest son, his father ordered him about like a common laborer. Naturally, he could voice none of this. He simply lowered his head and maintained his silence, determined to say nothing even under threat of death.
 
 **(End of Chapter)**

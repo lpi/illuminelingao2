@@ -1,140 +1,145 @@
-# Chapter 264 Entering the Treasure Mountain
+# Chapter 264 — Entering the Treasure Mountain
 
-To save time, the exploration team split into two groups again here. One group, led by Wang Luobin personally, went to Tiandu to inspect the mine, while the other group, led by Chen Haiyang, stayed locally to build Yulin Fort.
+To save time, the exploration team split into two groups at Yulin. One, led personally by Wang Luobin, would push inland to inspect Tiandu Mine. The other, under Chen Haiyang, would remain behind to construct Yulin Fort.
 
-Finding Tiandu was much easier than finding Shilu. One only had to go upstream along the Tiandu River to find Huangni Ridge; the famous Tiandu Iron Mine was on this ridge.
+Finding Tiandu proved far simpler than finding Shilu. One need only follow the Tiandu River upstream until Huangni Ridge appeared; the famous Tiandu Iron Mine lay on its slopes.
 
-The exploration team switched to a rowboat and continued upstream along the narrow bay. Both banks were continuous mountain ranges covered with dense vegetation. Some of them had been here in another spacetime and tried hard to search for familiar scenery.
+The exploration party transferred to a rowboat and continued up the narrow inlet. Continuous mountain ranges flanked both banks, draped in dense vegetation. Some team members had visited this place in another timeline and strained to recognize any familiar landmark.
 
-"We should be roughly advancing along the G224 route." Wang Luobin looked at the map. "We might arrive in just 2 kilometers."
+"We should be roughly following what will become the G224 route." Wang Luobin consulted the map. "Another two kilometers, perhaps."
 
-At noon on April 20th, the Tiandu Exploration Team successfully found the mouth of the Tiandu River. According to map judgment, this was not far from Da'an. In the past, it would only take a few kilometers to reach the location of the future Tiandu Town. However, whether Tiandu Town itself was the location of the Tiandu Iron Mine was another matter; the iron mine was still about 2 to 3 kilometers away from the town.
+At noon on April 20th, the Tiandu Exploration Team located the mouth of the Tiandu River. According to map estimates, they were not far from what would become Da'an. In that future, a few more kilometers would bring them to Tiandu Town itself—though whether the town's location corresponded to the iron mine was another question; the ore fields lay two to three kilometers further still.
 
-The exploration team abandoned the boat and went ashore here, going upstream along the river. The river valley was surrounded by dense primordial tropical rainforest, making it difficult to see the distant environment. After walking less than 2 kilometers, a river valley area appeared before them, with several villages nearby. Wang Luobin stopped, calculated for a long time with the map and compass, and then announced that this was Tiandu Town.
+The team abandoned the boat and proceeded upriver on foot. The valley was hemmed in by primordial tropical rainforest so thick that the distant terrain remained invisible. After less than two kilometers, a river valley opened before them, dotted with several villages. Wang Luobin halted, spent a long while cross-referencing map and compass, and then announced: this was Tiandu Town.
 
-"Tiandu Iron Mine is still a few kilometers ahead. Keep it up, everyone."
+"Tiandu Iron Mine is still a few kilometers ahead. Keep at it, everyone."
 
-With Wang Luobin's encouragement, the group continued upstream along the river. The road by the river was difficult to walk. This place abounded with various snakes, insects, and leeches. Various flying insects wove through the air. Fortunately, everyone was equipped with a full set of tropical gear as required: mosquito net hats and full-body covering tropical fatigues. Especially at the openings of the clothes, anti-leech gaiters were added. Walking past certain wetlands, the sight of rows of land leeches on branches collectively "standing up to welcome" when they sensed people coming gave everyone goosebumps.
+Bolstered by his encouragement, the group pressed on along the riverbank. The path was treacherous. The region teemed with snakes, insects, and leeches. Clouds of biting flies wove through the humid air. Fortunately, each member had been issued a full set of tropical gear: mosquito-net hats and full-coverage fatigues. Trouser cuffs and sleeves were reinforced with anti-leech gaiters. Yet as they passed certain wetlands, the sight of land leeches lining tree branches—bodies rising in unison as they sensed approaching prey—sent shivers down every spine.
 
-"Check your cuffs and pant legs!" Liu Zheng issued instructions.
+"Check your cuffs and pant legs!" Liu Zheng barked.
 
-After passing the river valley zone, Wang Luobin let everyone rest for a while to shake off the leeches on their clothes and gear, and check if anyone had been "hit." Thanks to the protective measures being in place, although the leeches worked hard, their best result was merely drilling their heads into the outer layer of the canvas. However, seeing the mess of leech corpses on the ground, Wang Luobin felt that developing Tiandu might not be so simple.
+Once past the worst stretch, Wang Luobin called a rest to shake leeches from clothing and inspect for bites. Thanks to rigorous protective measures, the creatures' best efforts had availed them only drilling their heads into the outer layer of canvas. Still, the carpet of leech carcasses on the ground gave Wang Luobin pause. Developing Tiandu might prove more difficult than anticipated.
 
-"I wonder if large-scale spraying of insecticide would work."
+"I wonder if large-scale insecticide spraying would work."
 
-"No need for insecticide." Liu Zheng observed the worms twisting in death. "Changing the ecological environment here can finish them off. It's too humid here; if we fill in the swamp areas, they will naturally disappear."
+"No need for insecticide." Liu Zheng studied the worms twitching in death. "Change the ecological environment and they'll vanish. It's too moist here. Drain the swamps and they'll disappear on their own."
 
-After walking forward for less than 1 kilometer, a wide river valley appeared ahead, surrounded by mountains. This should be the location of Tiandu Village. The famous Tiandu Iron Mine should be on the Huangni Ridge to its southeast.
+Less than a kilometer farther, a broad river valley appeared, ringed by hills. This should be Tiandu Village. The celebrated Tiandu Iron Mine was said to lie on Huangni Ridge to the southeast.
 
-The problem was that the vegetation here was too dense; no matter how he looked, he couldn't tell which mountain ridge had yellow soil. Although the mining area of Tiandu Iron Mine covered five or six square kilometers, the diameter of the pit developed later was only three hundred meters. Finding this specific spot would still be somewhat difficult.
+The problem was density of growth. No matter how Wang Luobin squinted, he could not tell which slope concealed yellow soil. Though the mining zone spanned five or six square kilometers, the pit eventually developed there would measure only three hundred meters in diameter. Pinpointing the exact spot would require some effort.
 
-"Besides being close to the port, the development difficulty here is no less than Shilu." Wang Luobin said, "A large amount of vegetation needs to be removed; the engineering volume is huge."
+"Aside from proximity to the port, the development difficulty here is no less than Shilu." Wang Luobin shook his head. "Massive amounts of vegetation must be cleared. The engineering scope is enormous."
 
-"It would be great if we could build a railway; both machinery and manpower could be transported in."
+"If only we could build a railway—machinery and labor could be transported directly."
 
-"The problem is that we lack manpower." Wang Luobin sat on a big rock. "When the Japanese mined Tiandu back then, they relied on filling the pit with human lives in exchange for ore. What we lack most now is human lives—"
+"The bottleneck is manpower." Wang Luobin settled onto a large rock. "When the Japanese mined Tiandu, they fueled operations with human lives—bodies in exchange for ore. What we lack most right now is precisely that raw headcount—"
 
-"What's difficult about that? Any Manchurian captives we catch in the future will all come to mine." Liu Zheng's nationalist sentiments burst forth. "And those Southeast Asian Malay natives, let's just do a slave trade! Use them as consumables!"
+"Easy solution." Liu Zheng's nationalist sentiments surged to the surface. "Any Manchurian captives we take in the future, send them all here to dig. And those Southeast Asian Malays? Slave trade! Use them as consumables!"
 
-"Those are things for the future. Who do we use to fill the pit right now? It's difficult." Wang Luobin gazed at this barren virgin land. The people of the exploration team were spreading out in all directions, using instruments to survey the mine and hammering rock samples. Some were also mapping the terrain here.
+"That's down the road. Who fills the pit *now*? It's a puzzle." Wang Luobin gazed across the virgin landscape. Team members had fanned out, using instruments to survey the deposit and chipping rock samples. Others sketched topographical maps.
 
-In the afternoon, based on data from later generations, the exploration team had roughly detected the location of the Tiandu mine and dug exploration trenches. According to Wang Luobin's instructions, they were to dig out one ton of sample ore.
+By afternoon, cross-referencing data from the future, the team had roughly triangulated the Tiandu ore body and begun digging exploratory trenches. Per Wang Luobin's instructions, they were to extract one metric ton of sample ore.
 
-"Dig so much? Are we carrying it back on our backs? Do you expect to make steel just from this one ton of iron ore?"
+"A whole ton? Are we carrying it out on our backs? You think we can smelt steel from one measly ton?"
 
-"We need to send it back for trial smelting. The steel plant doesn't have such small furnaces." Wang Luobin felt even one ton was too little—this kind of iron ore with over sixty percent content could go directly into an open-hearth furnace for steelmaking, which would require two experiments.
+"We need to send it back for trial smelting. The steel plant doesn't have furnaces small enough for less." Wang Luobin actually wished they could take more—ore with over sixty percent iron content could go directly into an open-hearth furnace, and that process demanded at least two experimental runs.
 
-"Fine, but I'll say this upfront: everyone has to join in carrying the ore. Otherwise, just us few in the exploration team will be worked to death."
+"Fine—but I'm saying this upfront: everyone pitches in carrying. Otherwise, this handful of us will be worked to death."
 
-Immediately, the entire exploration team began digging ore, sweating profusely. Fortunately, one ton of ore wasn't too much; with more than ten people digging, it only took an hour.
+The entire team set to digging, sweat streaming. A ton was not so much; with more than a dozen hands, it took barely an hour.
 
-After sampling the ore, the exploration team completely covered and filled the exploration trenches of the mine with soil—this resource could not be known to the locals for the time being.
+After sampling, they refilled and camouflaged the exploratory trenches—this resource must not become known to locals prematurely.
 
-Tiandu Iron Mine was also an iron ore with extremely high iron content, so much so that during the Guangxu reign, a local gentleman used only small square furnaces and a dozen workers to mass-produce pig iron bricks to supply the market, making a huge profit for a time. Wang Luobin did not wish for such a thing to be staged in advance at this time.
+Tiandu ore was extraordinarily rich. During the Guangxu reign, a local gentleman had employed only small box furnaces and a dozen workers to mass-produce pig iron bricks, turning a handsome profit. Wang Luobin had no intention of allowing such a scenario to play out ahead of schedule.
 
-"Everyone rest well tonight. Tomorrow we go to Damao."
+"Everyone rest well tonight. Tomorrow we head for Damao."
 
-"Where is Damao now?" Liu Zheng was covered in sweat and dirt, wanting to go into the water to bathe but afraid of encountering leeches. He was full of discontent, hoping to return to the seaside tomorrow for a good bath, when suddenly he heard Damao pop up out of nowhere.
+"Where the hell is Damao?" Liu Zheng was filthy and drenched, desperate to bathe in the river yet terrified of leeches. The prospect of returning to the coast and a proper soak had sustained him—now suddenly this "Damao" materialized out of nowhere.
 
-"It's a manganese mine with reserves of 1 million tons." Wang Luobin said, "This is an important raw material for manufacturing special steel."
+"A manganese deposit with reserves of roughly one million tons." Wang Luobin stretched. "Critical feedstock for manufacturing specialty steel."
 
-"Boss, you won't want another ton of sample ore, will you?"
+"Boss... you're not going to ask for another ton of sample ore, are you?"
 
-"One ton isn't needed." Everyone breathed a sigh of relief. "500 kilograms is still required." Everyone glared at him.
+"Not a ton, no." Collective sighs of relief. "Five hundred kilograms should do." Collective glares.
 
-The next day, the exploration team advanced inland again. Before setting off, Wang Luobin called the fleet via radio, instructing Chen Haiyang to send people to transport the ore, and specifically warned: "Ensure secret transportation; especially, do not let the locals know what is being transported."
+---
 
-After arriving at the location said to be the Damao Manganese Mine, the exploration team began to lay out points and dig exploration trenches across the entire mining area. This place was much harder to find than the Tiandu Iron Mine. After tossing and turning for five or six days, the exploration team almost turned into marmots, turning over the surrounding soil layer. Chen Haiyang had finished transporting the iron ore and still didn't see the exploration team return, so he hurriedly sent another batch of people over to help dig trenches.
+The next day, the team pushed further inland. Before departing, Wang Luobin raised the fleet by radio, instructing Chen Haiyang to dispatch men for the ore transport and warning: "*Ensure absolute secrecy—especially from locals.*"
 
-In the end, they did discover a small amount of manganese ore outcrop, but the real vein went ten meters deep underground. The difficulty of mining was quite significant.
+At the purported site of the Damao Manganese Mine, the team began laying out survey points and digging trenches across the entire zone. This deposit proved far harder to locate than the iron mine. After five or six days of fruitless excavation, the exploration party resembled nothing so much as a colony of marmots, churning the surrounding soil layer inside out. Chen Haiyang finished ferrying the iron ore yet still saw no sign of the team's return; he hurriedly dispatched reinforcements to assist.
 
-"Engineer Wang, I think we should forget about this manganese mine for now—" Liu Zheng looked no different from a coal miner, "The shallowest part is ten meters deep, and water comes out from below. Without digging tunnels, I'm afraid there's no hope."
+At last they discovered a small manganese outcrop—but the true vein descended ten meters below ground. Mining difficulty was substantial.
 
-Wang Luobin looked at the dark exploration trench before him. Open-pit mining was probably out of the question. But digging tunnels involved a series of supporting projects: drainage, ventilation, tunnel hoisting, support... With all this stuff, even using indigenous methods entirely would be a huge project.
+"Engineer Wang, I think we should shelve this manganese project for now." Liu Zheng's appearance would not have been out of place in a coal mine. "The shallowest point is ten meters down, and water seeps up from below. Without proper tunneling, there's no hope."
 
-"Let's mine a few dozen kilograms of sample ore and withdraw." Wang Luobin appeared helpless.
+Wang Luobin stared into the dark trench. Open-pit extraction was clearly off the table. But tunnel mining entailed a cascade of supporting infrastructure: drainage, ventilation, hoisting systems, shoring... Even using entirely indigenous methods, the project would be colossal.
 
-"Look at this, what is it? Is it copper ore?" Suddenly someone showed him a piece of ore.
+"Extract a few dozen kilograms of sample ore and withdraw." Resignation colored his voice.
 
-Wang Luobin picked it up and looked. It was a gray stone block but had a light green, glass-like luster. He weighed it in his hand, then scratched it with his Swiss Army knife to test the hardness.
+"Look at this—what is it? Copper ore?" Someone thrust a chunk into his hands.
 
-"I didn't expect to find good stuff here after all!"
+Wang Luobin examined it closely. Gray stone, yet shot through with a pale green, glassy luster. He hefted it, testing weight, then scratched it with his Swiss Army knife to gauge hardness.
 
-"What?!" Several people around him gathered around.
+His expression shifted. "I didn't expect to find something worthwhile here after all."
 
-"This is phosphate rock!" Wang Luobin was very excited—one of the transmigrator's divine tools, matches, could only be born with this stuff. In this sense, phosphate rock was much more useful than manganese ore. He struck his lighter and burned a corner of the ore. The flame glowed green.
+"What is it?" Several team members crowded around.
 
-"Absolutely correct, this is phosphate rock!"
+"Phosphate rock!" Wang Luobin's eyes shone. One of the transmigrators' most coveted tools—matches—depended entirely on this mineral. In that sense, phosphate rock was worth far more than manganese. He flicked his lighter and held the flame to a corner of the ore. The fire glowed green.
 
-The use of phosphorus was known to basically everyone. Even if they didn't know it was used to make matches, they knew it was an important farmland fertilizer. Now that phosphate rock was discovered next to the manganese mine, the discovery that originally felt somewhat lackluster suddenly became extremely valuable.
+"No question—phosphate rock."
 
-"Where was it found?"
+Everyone grasped its significance. Even those unfamiliar with match manufacturing knew phosphorus was a vital fertilizer. Discovering phosphate rock alongside the manganese transformed a disappointing find into something of genuine value.
 
-"Just on that small hill." The person who discovered the ore quickly pointed out the location. Wang Luobin was more excited than when he found the manganese mine and rushed to the exploration trench.
+"Where was this found?"
 
-The exploration trench was driven into the slope of the small hill at an angle of about 30 degrees for about four or five meters. Wang Luobin hadn't studied geology, but he could roughly tell that the core of this small hill was mostly composed of phosphate rock, which also did not constitute conditions for open-pit mining. This disappointed him a bit.
+"That small hill right there." The discoverer pointed. Wang Luobin, more animated than at any point during the manganese survey, rushed to the exploratory trench.
 
-"At least one base can support two mining sites." He consoled himself this way. However, judging from the recent stage: it was more realistic to go to Dongsha or Xisha to mine guano.
+The trench had been driven into the hillside at roughly thirty degrees, penetrating four or five meters. Wang Luobin was no geologist, but he could make a rough judgment: the hill's core was largely composed of phosphate rock—and like the manganese, it too lacked conditions for open-pit mining. Disappointing.
 
-Most of the exploration team didn't think that complicatedly. Everyone enthusiastically dug another five hundred kilograms of sample ore to bring back to Lingao for the chemical and metallurgical departments.
+"At least one base can support two mining operations." He consoled himself thus. Yet in the near term, voyaging to Dongsha or Xisha to mine guano remained more practical.
 
-When the exploration team returned to Yulin Harbor, the infrastructure project was just one-third completed. Yulin had mountains, water, land, timber, and stone; it lacked almost nothing. It was truly a good place for developing a base. This place was different from Changhua Fort. The purpose of Changhua Fort was merely to obtain a trade stronghold and foreshadow the future mining of Shilu. This place was a large distribution center for resources obtained by the Transmigration Group, so it had to be much larger in scale than Changhua Fort.
+Most team members did not think so far ahead. With renewed enthusiasm, they dug out another five hundred kilograms of sample ore to ship back to Lingao's chemical and metallurgical departments.
 
-The accompanying Zhang Xingpei from Lingao Construction Company was an expert in wood structure building and also one of the many "returnees" in the Transmigration Group, with full-process house-building experience.
+---
 
-Especially since the consultant was Yu Eshui—this person participated in this circumnavigation inspection purely with the purpose of coming out to play. After experiencing a painful seasickness in the first few days, he had now become lively and volunteered to be the architectural consultant for Yulin Fort—he was obsessed with survivalist fortresses and had a special interest in logistics and city defense case studies.
+By the time the exploration team returned to Yulin Harbor, the infrastructure project was roughly one-third complete. Yulin had mountains, water, timber, and stone—it lacked almost nothing. Truly an ideal base site. Unlike Changhua Fort, whose purpose was merely to secure a trade foothold and lay groundwork for future Shilu mining, this location would serve as a major distribution hub for resources gathered by the Transmigration Group. Its scale would far exceed Changhua.
 
-"It doesn't need to deal with sieges, but at least it must ensure that a small number of people can defend a large amount of goods."
+Zhang Xingpei, dispatched from the Lingao Construction Company to accompany the fleet, was an expert in timber-frame buildings and one of the many "returnees" among the transmigrators—possessed of end-to-end experience in house construction.
 
-This was the key point Yu Eshui extracted after listening to Wang Luobin's long-winded list of base requirements.
+Serving as consultant was Yu Eshui, who had joined this circumnavigation purely for the pleasure of travel. After suffering brutal seasickness during the first few days, he had since recovered his vigor and now volunteered as architectural consultant for Yulin Fort. He was obsessed with survivalist strongholds and harbored a particular fascination with logistics and siege defense case studies.
 
-Zhang Xingpei used to be fat. He had lost a lot of weight in recent months, but he still had that unhurried manner of fat people. He coughed before saying:
+"It needn't withstand a full siege," he explained, "but it must allow a small garrison to defend a large stockpile of goods."
 
-"How big does the freight yard need to be? What goods roughly? Must there be shelter?"
+This was the key requirement he distilled after listening to Wang Luobin's exhaustive list of specifications.
 
-"The goods should be ore, timber, coconuts."
+Zhang Xingpei had once been stout. Months of physical labor had slimmed him considerably, yet he retained the unhurried manner of a heavy man. He cleared his throat before speaking:
 
-"That means there needs to be a relatively large storage yard." Zhang Xingpei looked for a while and sketched a simple floor plan on a notepad.
+"How large must the freight yard be? What goods, roughly? Is weather protection required?"
 
-The drawn design was just a simple large courtyard, square in shape. A bastion was set at each corner. One was the living area, larger in area, capable of accommodating about twenty people for long-term residence, and equipped with a warehouse. The other bastions also had complete living facilities, accommodating up to a squad. The courtyard gate was right next to the living area, facilitating defense. The courtyard wall was a wooden wall erected with timber side by side, with soil piled at the bottom, 6 meters high, all sharpened at the top, and not walkable on top. Basically, it was impossible to climb without a ladder.
+"Ore, timber, coconuts—primarily."
 
-The four bastions, including the gate itself, were built with brick and stone. The roofs were tiled. A moat was dug outside the fort, diverting river water from nearby. There was heavy rainfall here in summer and autumn, so water usage was not a problem.
+"Then we need a sizable storage yard." Zhang Xingpei studied the terrain a moment, then sketched a simple floor plan on his notepad.
 
-To facilitate loading and unloading of goods, a pier of more than ten meters would be built in the bay in front of the fort for ships to dock.
+The design was a straightforward large courtyard, square in layout. A bastion occupied each corner. One corner bastion—larger in area—would serve as the living quarters: capacity for approximately twenty personnel on long-term station, plus an attached warehouse. The remaining three bastions also featured complete living facilities, accommodating up to a squad each. The main gate stood adjacent to the living-quarter bastion for ease of defense. The courtyard wall was a palisade of timber posts set side by side, with earth banked at the base. Six meters high, sharpened at the top, and lacking a parapet walk—scaling it without ladders would be virtually impossible.
 
-"Is it a bit too flimsy—" Chen Haiyang looked at this design diagram resembling a medieval fortress and was very worried.
+All four bastions, including the gate structure, were to be built of brick and stone with tiled roofs. A moat would be dug around the perimeter, fed by a nearby stream. Summer and autumn brought heavy rains; water supply posed no concern.
 
-"Defensive power is slightly lower, but it's enough. Local rich men's stockades haven't reached this level yet." Yu Eshui said, " The defense of Anyoule Market is just a wooden palisade wall plus a few towers. It shows that the biggest threat here is just a few dozen pirate sailors coming up to wander around and rob a few unlucky guys who didn't escape in time."
+To facilitate loading and unloading, a pier of over ten meters would be constructed in the bay fronting the fort.
 
-Even if the enemy really rushed into the yard, the things they could snatch were nothing more than ore and timber, which didn't seem to have much value. If they really wanted to attack forcefully, Anyoule Market was obviously a more valuable target than Yulin Fort.
+"Isn't this a bit flimsy?" Chen Haiyang studied the diagram—a design reminiscent of a medieval fortress—and frowned.
 
-While everyone was discussing details, the team doctor Jiang Qiuyan suddenly asked: "Who do you plan to leave behind at this Yulin Fort?"
+"Defensive strength is somewhat lower, true, but adequate for the threat environment." Yu Eshui shrugged. "The defenses at Anyoule Market amount to nothing more than a wooden palisade and a few watchtowers. That tells you the worst threat hereabouts is a few dozen pirate sailors wandering ashore to snatch a few unlucky souls who failed to flee in time."
 
-"For now, leaving eleven or twelve people is enough. Two or three transmigrators plus a squad of marines. We can expand the scale later based on the development situation."
+Even if an enemy did breach the courtyard, the spoils would amount to ore and timber—neither particularly enticing. Anyone determined to attack in force would find Anyoule Market a far more rewarding target than Yulin Fort.
 
-Jiang Qiuyan said, "Engineer Wang, I think this won't work. How many people does the Transmigration Group have in total? Scattering pepper like this everywhere—too few won't work, too many wastes talent. Not to mention our own people, just the Marine Corps would be short three squads this way."
+While the group debated details, the expedition's team doctor, Jiang Qiuyan, suddenly asked: "Who do you intend to leave behind at this fort?"
 
-"That's true. Stationing troops here and there, I always feel we don't have enough troops." Chen Haiyang had long been troubled by the shortage of naval forces. Whether sailors or marines, the Maritime Power Ministry felt stretched.
+"For now, eleven or twelve should suffice. Two or three transmigrators plus a marine squad. We'll expand as conditions warrant."
 
-"And have you considered a problem? Placing a few transmigrators alone in this desolate land, surrounded by nothing but themselves—not to mention natives, they won't even see many living people. Limited by conditions, the Executive Committee can't possibly equip every stronghold with comfortable living facilities. Over time, won't these people all have mental breakdowns!" Jiang Qiuyan gestured excitedly, making people feel that he himself was about to have a mental breakdown.
+Jiang Qiuyan shook his head. "Engineer Wang, I don't think this approach is viable. How many people does the Transmigration Group have in total? Scattering them like pepper grains everywhere—too few and the outpost is useless, too many and you waste talent. Never mind our own people; the Marine Corps alone would be short three squads this way."
 
+"True enough." Chen Haiyang sighed. "Garrisoning here, garrisoning there—we never have enough troops." The chronic shortage of sailors and marines was a constant headache for the Maritime Affairs Ministry.
+
+"And have you considered the psychological dimension?" Jiang Qiuyan's voice rose with urgency. "Strand a handful of transmigrators in this godforsaken wilderness, surrounded by nothing but themselves—never mind locals, they'll barely see another living soul. Given our constraints, the Executive Committee can't possibly equip every outpost with comfortable amenities. Over time, these people are going to crack!" He gesticulated with mounting fervor, as though he himself were on the verge of a breakdown.
+
+**(End of Chapter)**

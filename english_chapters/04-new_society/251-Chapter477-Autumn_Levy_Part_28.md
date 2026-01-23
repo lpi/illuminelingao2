@@ -2,7 +2,7 @@
 
 He went on to explain the advantages of having a grain trading company manage the county treasury. First, the accounts would be clear and transparent, eliminating the problems of warehouse clerks embezzling and keeping multiple sets of books. Warehouse clerks counted as "public functionaries" who formed cliques and alliances. Even if a magistrate wanted to discipline them, he would have to worry about repercussions. With a grain trading company as intermediary, the relationship became purely commercial—one was one and two was two, with no need for excessive concerns.
 
-Second, income and expenditure would be separated, making the flow of finances clear and unambiguous, and not easily manipulated by clerks. Moreover, the grain trading company would disburse funds solely upon the magistrate's written orders, making embezzlement by others virtually impossible.
+Second, income and expenditure would be separated, making the flow of finances clear and unambiguous, not easily manipulated by clerks. Moreover, the grain trading company would disburse funds solely upon the magistrate's written orders, making embezzlement by others virtually impossible.
 
 Third, with the grain trading company handling collections, many abuses associated with the grain warehouse during tax season could be eliminated—a measure that would both benefit the people and earn popular gratitude.
 
@@ -14,9 +14,9 @@ Grain households unable to submit their grain had no choice but to wait around i
 
 "And you're saying that your company handling collections wouldn't result in the same abuses? Are every one of you Australians saints? Even if you're all sages, there's no guarantee your subordinates wouldn't engage in such practices." Wu Mingjin grew quite agitated. The events of recent days had greatly wounded his pride. His sense of responsibility as a local official with a duty to "defend his territory" suddenly flared up.
 
-"Master Wu has served as a local official for some time and has surely seen many such abuses." Yan Ming said calmly. "We wouldn't presume to the word 'saint.' However, our conduct in this county over the past year is plain for all to see. No need for sworn promises—facts speak louder than words."
+"Master Wu has served as a local official for some time and has surely witnessed many such abuses," Yan Ming said calmly. "We wouldn't presume to claim the word 'saint.' However, our conduct in this county over the past year is plain for all to see. No need for sworn promises—facts speak louder than words."
 
-Wu Mingjin didn't understand what "facts speak louder than words" meant, but over the past year, the transmigrators had indeed proven to be true to their word and decisive in action. They hadn't harmed a hair on the common people's heads; they bought and sold at fair prices. Even when convening gentry and major households for their "reasonable burden" assessments, everything was conducted cleanly, with no instances of officers extorting bribes on the side. Wu Mingjin had seen and heard plenty of this, knew it to be true, and found himself momentarily without rebuttal.
+Wu Mingjin didn't understand what "facts speak louder than words" meant, but over the past year, the transmigrators had indeed proven true to their word and decisive in action. They hadn't harmed a hair on the common people's heads; they bought and sold at fair prices. Even when convening gentry and major households for their "reasonable burden" assessments, everything was conducted cleanly, with no instances of officers extorting bribes on the side. Wu Mingjin had seen and heard plenty of this, knew it to be true, and found himself momentarily without rebuttal.
 
 Seeing him at a loss for words, Yan Ming proceeded to explain the specifics in detail. In essence, the county would no longer manage the grain warehouse. Only one or two clerks would be retained solely for registering and recording transactions. Actual storage, collection, and disbursement would all be handled by Delong.
 
@@ -38,7 +38,7 @@ This offer the county magistrate firmly refused. No matter how eloquently Yan Mi
 
 Yan Ming returned to Wu De, crestfallen, to report.
 
-"This was to be expected." Wu De said. "This kind of risk he probably doesn't want to run." He thought for a moment. "Whether he agrees or not, he'll have to agree anyway." He summoned Xiong Buyou and handed him a stack of documents.
+"This was to be expected," Wu De said. "This kind of risk he probably doesn't want to run." He thought for a moment. "Whether he agrees or not, he'll have to agree anyway." He summoned Xiong Buyou and handed him a stack of documents.
 
 "Go talk to Wang Zhaomin. Show him a few of these. Let him play the role of persuader!"
 
@@ -58,7 +58,7 @@ Yan Ming returned to Wu De, crestfallen, to report.
 
 The matter was quickly settled. After seeing the documents Xiong Buyou brought, Wang Zhaomin's face immediately changed color. Early the next morning, Xiong Buyou, who had been resting at the yamen, was summoned by Secretary Wang.
 
-"His Excellency has given instructions. The grain and silver warehouses of the county treasury will both be assigned to Delong for agency management." Wang Zhaomin said. "This took a great deal of persuading on my part!"
+"His Excellency has given instructions. The grain and silver warehouses of the county treasury will both be assigned to Delong for agency management," Wang Zhaomin said. "This took a great deal of persuading on my part!"
 
 "Much obliged to Secretary Wang." Xiong Buyou offered a compliment and smoothly pressed an envelope into his hand.
 

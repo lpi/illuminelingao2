@@ -6,7 +6,7 @@ After his examination, he confirmed Huang Tianyu was in no mortal danger. Only t
 
 The manager approached with a pained expression, bowing repeatedly. "This is entirely our fault. Please, gentlemen, calm yourselves."
 
-Fortunate indeed! Liu San thought. That they'd managed to catch Qianqian and avoid turning this business trip into a disgrace was quite accidental—all thanks to Gao Di.
+*Fortunate indeed!* Liu San thought. That they'd managed to catch Qianqian and avoid turning this business trip into a disgrace was quite accidental—all thanks to Gao Di.
 
 After the evening party had dispersed, Liu San had taken Shucui to his room. Disrobing and undressing, they enjoyed each other's company. Shucui served him with all her might, and the two were well-matched. After several rounds of lovemaking, Liu San felt somewhat fatigued. He was about to dream of Duke Zhou when someone knocked on his door—it was Gao Di.
 
@@ -26,7 +26,7 @@ The corridor wasn't a good place to talk, so Liu San led Gao Di to a corner.
 
 "What's going on?"
 
-"I went into the city today and heard some news. Recently there have been several cases in Guangzhou city where someone slipped drugs into drinks, knocked people out, then robbed inn guests. Because they hadn't followed the proper rules of 'paying respects to the dock,' the constables from the yamen investigated privately. Word has it that a suspicious outside woman who speaks Mandarin is quite suspect—this person is probably a lone bandit. The local thieves' bosses don't even know her origins!"
+"I went into the city today and heard some news. Recently there have been several cases in Guangzhou where someone slipped drugs into drinks, knocked people out, then robbed inn guests. Because they hadn't followed the proper rules of 'paying respects to the dock,' the constables from the yamen investigated privately. Word has it that a suspicious outside woman who speaks Mandarin is quite suspect—this person is probably a lone bandit. The local thieves' bosses don't even know her origins!"
 
 "Wait—'paying respects to the dock?'"
 
@@ -58,7 +58,7 @@ Though Qianqian was slender and slight, she had some martial skills. Gao Di and 
 
 Hearing he wanted to interrogate Qianqian, the manager's brow furrowed. "That may not be quite appropriate. Whether to release her or hand her to the authorities—that's your decision, sir. But conducting a private tribunal..."
 
-"Who said anything about a private tribunal?" Liu San thought: I'm not some S&M enthusiast seizing an opportunity. "Relax—I just want to know what drug she used, so I can treat my friend!" Liu San paused. "If you're not comfortable, you can stay here and witness."
+"Who said anything about a private tribunal?" Liu San thought: *I'm not some S&M enthusiast seizing an opportunity.* "Relax—I just want to know what drug she used, so I can treat my friend!" He paused. "If you're not comfortable, you can stay here and witness."
 
 "Yes, yes." The manager could only agree. "Please proceed with your questions, sir. I won't participate. Just let us know whether to release her or turn her over to the authorities, and we'll handle it accordingly."
 
@@ -74,7 +74,7 @@ The attendants cleared away the leftover food and wine from the table, then sort
 
 "Hmph! You dare insult my ancestors—just wait till my father beats the shit out of you!" The girl was still talking tough.
 
-"Your father ought to beat the piss out of you!" Liu San threatened. "But your father is probably the same as you—not a decent person either. So I'll beat the piss out of you on his behalf..."
+"Your father ought to beat the piss out of *you*!" Liu San threatened. "But your father is probably the same as you—not a decent person either. So I'll beat the piss out of you on his behalf..."
 
 "You wouldn't dare!" Seeing Liu San roll up his sleeves while his eyes scanned around, apparently looking for implements of torture, Qianqian was still a young girl who hadn't weathered many storms. Caught in the act and now fearful of physical suffering, panic rose in her. She blurted out, "You'll regret hitting me."
 
@@ -95,7 +95,7 @@ Liu San was cautious. He took it and felt it first—inside was something hard a
 
 Liu San's mind went blank, and he stood frozen for several seconds.
 
-Holy mother of God—this was the Embroidered Guard!
+*Holy mother of God*—this was the Embroidered Guard!
 
 Though Liu San was trained in Chinese medicine rather than Ming history, there were several people in the transmigrator group who walked around Bairen City wearing T-shirts printed with these eight characters. Everyone among the five hundred knew what these words meant.
 
@@ -109,4 +109,4 @@ By now Huang Tianyu's numbness had faded, and he had come over to look.
 
 Huang Tianyu asked nervously in a low voice, "Liu San, what do we do? This is trouble!"
 
-"Mm." Liu San nodded. This plaque was exquisitely crafted—unlikely to be counterfeit, though they'd never seen the genuine article. If they had truly offended an Embroidered Guard operative, the consequences would be endless. It would endanger not just themselves and their mission but the entire transmigrator group... Murderous intent surged in Liu San's heart. Better to simply kill her and silence her.
+"Mm." Liu San nodded. This plaque was exquisitely crafted—unlikely to be counterfeit, though they'd never seen the genuine article. If they had truly offended an Embroidered Guard operative, the consequences would be endless. It would endanger not just themselves and their mission but the entire transmigrator group... Murderous intent surged in Liu San's heart. *Better to simply kill her and silence her.*

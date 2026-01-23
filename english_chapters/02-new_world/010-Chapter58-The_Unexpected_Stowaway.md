@@ -12,7 +12,7 @@ A strange odor permeated the camp—the Health Group's anti-snake-and-insect pes
 
 His pack held plenty of good stuff—camping gear, military field rations from various countries. Liu Zheng didn't entirely trust the Committee's logistics capabilities. And even with a cafeteria, such public canteens were typically double-failures in efficiency and taste. The first few days would surely mean dry rations. Better to rely on himself.
 
-While logging in the mangroves, he'd already woven several net bags from thin vines. Mangroves were biological paradises—abundant fish, shrimp, and crabs. During breaks, he'd caught about a half-kilo of shrimp and one crab, bound with vines—planning to feast with his wife tonight.
+While logging in the mangroves, he'd already woven several net bags from thin vines. Mangroves were biological paradises—abundant fish, shrimp, and crabs. During breaks, he'd caught about half a kilogram of shrimp and one crab, bound with vines—planning to feast with his wife tonight.
 
 By the roadside tents, small groups of transmigrators were gnawing dry rations with water—apparently the cafeteria was a no-go. Some were already snoring in their tents, too exhausted to care.
 
@@ -46,7 +46,7 @@ He handed over his ID card; the scanner quickly displayed his ID number on the P
 
 "What happens to him?"
 
-"Not our call. The Committee will handle it." Ran Yao smiled. "In the 21st century, this amount would just get an education and release—two days' detention at most."
+"Not our call. The Committee will handle it." Ran Yao smiled. "In the twenty-first century, this amount would just get an education and release—two days' detention at most."
 
 Watching them walk away, Liu Zheng—cigarettes in hand—couldn't help feeling sympathy for the unlucky bastard. Getting a record right after arriving—too miserable. He'd lost interest in even going to the beach for a smoke.
 
@@ -80,7 +80,7 @@ The three spent the following night and day in terror. First, no phones worked�
 
 All three concluded they'd reached some remote Vietnamese island—analyzing the ship's speed and surrounding geography made this plausible. But the satellite phone still wouldn't work. Not interference—simply zero signal. Completely inexplicable.
 
-Watching the ship disembark passengers and unload cargo, Guo Yi decided to investigate. He simply mixed into the queuing crowd and, amid the chaos, grabbed a basic-labor armband. No one noticed an extra unassigned person on the beach. Military Group guard lines were set on the outer perimeter—no one imagined stowaways aboard. He'd wandered the camp all day. Only when hunger hit did he think to grab some food to bring back. He hadn't expected to be caught immediately. Though work-related, if colleagues found out, he'd be laughed at forever.
+Watching the ship disembark passengers and unload cargo, Guo Yi decided to investigate. He simply mixed into the queuing crowd and, amid the chaos, grabbed a basic-labor armband. No one noticed an extra unassigned person on the beach. Military Group guard lines were set on the outer perimeter—no one imagined stowaways aboard. He'd wandered the camp all day. Only when hunger struck did he think to grab some food to bring back. He hadn't expected to be caught immediately. Though work-related, if colleagues found out, he'd be laughed at forever.
 
 "Executive Committee, Internal Affairs and Civil Affairs Committee Security Group! Any problem?"
 

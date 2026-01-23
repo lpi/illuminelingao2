@@ -1,129 +1,189 @@
-# Chapter 317 - Human Dissection
+# Chapter 317: Human Dissection
 
-Just as he was thinking, Sister Li walked in to ask if "teaching" should begin—she was the mother of the pair brought back by Zhang Xingjiao back then. Although she was older, she was literate, so she was assigned to the hospital to handle administrative work and miscellaneous duties. Because she consistently refused to reveal her real name, everyone addressed her as Sister Li.
+Just as he was contemplating these challenges, Sister Li walked in to ask whether "teaching" should begin. She was the mother of the pair Zhang Xingjiao had brought back some time ago. Though older than most of the staff, she was literate and had been assigned to the hospital to handle administrative work and miscellaneous duties. Because she consistently refused to reveal her true name, everyone simply addressed her as Sister Li.
 
-"Mm, I'm going right now." Shi Niaoren stubbed out his cigarette butt.
+"Mm. I'm going now." Shi Niaoren stubbed out his cigarette.
 
-The dissection room was located in the semi-basement of Bairen General Hospital. Apart from a few vents sealed by louvers, there were no windows; outsiders trying to peek through the louvers couldn't see anything at all. The door was always kept tightly closed, and no one except Shi Niaoren could open it. The purpose of this was naturally secrecy. Human dissection remained a taboo for many Chinese people even in the 21st century; families would absolutely not agree unless under special circumstances. Let alone in this era.
+The dissection room occupied the semi-basement of Bairen General Hospital. Apart from several vents sealed by louvered shutters, there were no windows; anyone attempting to peer through the louvers would see nothing at all. The door was kept locked at all times, and no one except Shi Niaoren could open it. The purpose of all this was secrecy. Human dissection remained taboo for many Chinese even in the 21st century—families rarely agreed to it except under extraordinary circumstances. In this era, the resistance was absolute.
 
-Shi Niaoren arrived at a room where Hippo was already waiting. Acting as a dissection assistant, he was also practicing his surgical skills along the way.
+Shi Niaoren arrived at a preparatory room where Hippo was already waiting. He would serve as dissection assistant while simultaneously honing his surgical skills.
 
-He unlocked the usually locked door, led the others down the stairs, and turned on the fluorescent lights. At the end of the stairs was a corridor. Because there weren't enough ceramic tiles available yet, the surface was still simple cement, with fluorescent lights emitting pallid beams overhead.
+Shi Niaoren unlocked the normally barred door, led the way down the stairs, and switched on the fluorescent lights. At the bottom stretched a corridor. The walls were still bare cement—ceramic tiles weren't yet available in sufficient quantity—while overhead, fluorescent tubes cast pallid beams through the stillness.
 
 The air smelled of disinfectant.
 
-The autopsy request form for the corpse had already been filled out. Shi Niaoren demanded that procedures here be as meticulous as in a 21st-century hospital. He flipped through the form, learning that this person was named Chen Yabao, age unknown. He had been wheeled here, ready to face the physicians' scalpels.
+The autopsy request form for the corpse had already been completed. Shi Niaoren insisted that procedures here be as meticulous as in a 21st-century hospital. He flipped through the form: the deceased was named Chen Yabao, age unknown. The body had been wheeled here, prepared to face the physicians' scalpels.
 
-The dissection room wasn't too large, about sixty square meters. On all four sides were wooden tiered stands for future interns and nurses to observe dissections; fully seated, it could hold about thirty people.
+The dissection room itself wasn't large—roughly sixty square meters. On all four sides, wooden tiered stands awaited future interns and nurses who would observe autopsies. Fully occupied, the room could accommodate about thirty people.
 
-The room was equipped with ventilation equipment, which was quite a luxury for the transmigrators. In the center of the room was a reinforced concrete rectangular dissection table covered in porcelain tiles. Since the transmigrators' own ceramic kiln hadn't started production, the facing square tiles were custom-ordered from Fujian through merchants—kilns there had year-round experience making foreign porcelain to order, so trial-producing new products was relatively easy. The resulting tiles were indeed "porcelain tiles"—not just glazed on the surface, but truly a block of "porcelain brick."
+Ventilation equipment had been installed—quite a luxury by transmigrator standards. At the room's center stood a reinforced concrete dissection table faced with porcelain tiles. Since the transmigrators' own ceramic kiln hadn't yet commenced production, these facing tiles had been custom-ordered from kilns in Fujian through merchant intermediaries. Fujian kilns had decades of experience producing export porcelain to foreign specifications, making it relatively easy to trial-produce new products. The resulting tiles were indeed "porcelain tiles"—not merely glazed on the surface, but solid blocks of ceramic.
 
-The transmigrators didn't know that ceramic tiles had already been manufactured in Ming Dynasty kilns. The most famous "ceramic tiles" remaining to this day were the floor tiles of the Porcelain Tower of Nanjing—which were blue and white porcelain.
+What the transmigrators didn't know was that ceramic tiles had already been manufactured in Ming Dynasty kilns. The most famous surviving examples were the floor tiles of the Porcelain Tower of Nanjing—decorated in blue and white.
 
-The surface of the dissection table had many grooves and was equipped with a faucet and a spraying hose, allowing continuous rinsing of the corpse during dissection.
+The dissection table's surface was grooved for drainage and equipped with a faucet and spray hose, permitting the corpse to be rinsed continuously during the procedure.
 
-At one end near the dissection table stood a material cabinet, with various dissection instruments and sampling containers placed on different shelves. Adjacent to the dissection room were a preparation room and a specimen storage room.
+At one end of the table stood a materials cabinet, its shelves arranged with dissection instruments and sampling containers. Adjacent to the main room were a preparation room and a specimen storage room.
 
-It took Shi Niaoren a great deal of effort to get the Executive Committee's approval to build such a dissection room—unlike a pharmacy or an operating room, which could show immediate utility to the Executive Committee, this was an important cornerstone for rebuilding modern medicine in this timeline.
+It had taken considerable effort to secure the Executive Committee's approval for this dissection room. Unlike a pharmacy or an operating room—whose immediate utility was obvious—the dissection room required Shi Niaoren to articulate its importance as a critical cornerstone for rebuilding modern medicine in this timeline.
 
-The lighting in the room was extremely bright, enough to see every detail on the dissection table clearly.
+The lighting was extremely bright—sufficient to reveal every detail on the dissection table.
 
-A corpse covered with coarse white cloth lay on the dissection table; it had just been sent down by a dedicated hoist. The deceased was a peasant working on the Bairen City infrastructure construction site who had died suddenly while working. He wasn't a local, so the body could fall into the hospital's hands. Such opportunities weren't many—Shi Niaoren's biggest headache was the inability to preserve cadavers. There was no shortage of corpses in this timeline; sometimes after a battle, they were practically everywhere. But they couldn't be kept; they had neither cold storage nor enough preservatives. And the temperature in Lingao was never low. They had to use one as soon as they found one.
+A corpse covered with coarse white cloth lay waiting; it had just been conveyed by a dedicated hoist. The deceased was a peasant who had died suddenly while working on the Bairen City infrastructure site. He wasn't local, so his body had fallen into the hospital's hands. Such opportunities were rare—Shi Niaoren's greatest difficulty was the inability to preserve cadavers. There was no shortage of corpses in this timeline; after battles, they could litter the ground. But they couldn't be kept. They had neither cold storage nor adequate preservatives, and Lingao's temperature never dropped low enough. Bodies had to be used as they were found.
 
-Hippo changed into his clothes first, putting on latex gloves and a mask. He lifted the white cloth. The deceased was a young man, very thin and small. His muscles and tendons, however, were developed and powerful. There were varicose veins on his calves and arms, obviously someone who had engaged in heavy physical labor for a long time.
+Hippo changed first, donning latex gloves and a mask, then lifted the white cloth. The deceased was a young man, very thin and slight. Yet his muscles and tendons were powerfully developed. Varicose veins traced his calves and arms—the marks of someone who had labored intensely for years.
 
-Hippo stuffed a pillow under the corpse's neck and arranged the arms. Shi Niaoren laid out the dissection instruments they needed: scalpels, rib shears, clamps, cranial saws... everything was cleaned very thoroughly. But unlike surgical instruments, they didn't need strictly sterile disinfection. Here, there was no need to worry about patient infection; physicians only needed to ensure their own safety.
+Hippo placed a pillow beneath the corpse's neck and arranged the arms. Shi Niaoren laid out the instruments they would need: scalpels, rib shears, clamps, cranial saws. Everything had been thoroughly cleaned—though unlike surgical instruments, strict sterile disinfection wasn't required. Here, there was no concern about patient infection; the physicians needed only ensure their own safety.
 
-"The little nurses will be here in a moment," Hippo said.
+"The nursing students will be arriving shortly," Hippo remarked.
 
-Shi Niaoren teased him: "Do you feel excited dissecting in front of them?"
+Shi Niaoren teased him. "Does it excite you to dissect in front of them?"
 
-"As long as they don't treat me as a man-eating demon, it's fine." Hippo smiled bitterly. "In modern society, although people can't accept dissection emotionally, they at least know it's beneficial to medicine. Here?"
+"As long as they don't treat me as a man-eating demon, I'll be satisfied." Hippo smiled ruefully. "In the modern world, even if people can't accept dissection emotionally, they at least understand it benefits medicine. Here?"
 
-"Take it slowly. Changing concepts doesn't happen overnight. They are the seeds of modern medicine." As Shi Niaoren spoke, he picked up a four-page dissection analysis form, reading while talking.
+"Take it slowly. Changing concepts doesn't happen overnight. They are the seeds of modern medicine." As he spoke, Shi Niaoren picked up a four-page dissection analysis form, reading aloud as he reviewed it.
 
-"What is the cause of death?"
+"What's the presumed cause of death?"
 
 "Sudden death. Probably something like coronary heart disease," Hippo said.
 
-"In this timeline, coronary heart disease is rare. Besides, he is still young." Shi Niaoren scrutinized that young but already gray-white face. "He is very thin. Mild malnutrition."
+"Coronary heart disease is rare in this timeline. Besides, he's young." Shi Niaoren scrutinized the youthful face, already gray-white. "He's severely thin. Mild malnutrition."
 
-"I'll fill in the corpse condition record." Hippo took the folder.
+"I'll record the corpse condition." Hippo took the clipboard.
 
-He muttered to himself while writing: "There is a trauma scar on the left arm." He moved that arm aside and said, "Sorry, brother." Recorded: "Mild muscle rigor." He opened the eyelids and wrote: "Pupils equal and round, diameter 0.3 centimeters." Then he pried open the stiff jaw and said, "Let's check the teeth."
+He muttered to himself as he wrote: "Trauma scar on the left arm—" He shifted the arm aside, murmured, "Sorry, brother," then noted: "Mild muscle rigor." He opened the eyelids. "Pupils equal and round, diameter 0.3 centimeters." Then he pried open the stiffened jaw. "Let's examine the teeth."
 
-Footsteps sounded in the outer corridor. The door to the dissection room opened, and Ai Beibei arrived.
+Footsteps echoed in the outer corridor. The dissection room door opened, and Ai Beibei entered.
 
-"They're here." Behind her was a group of young women, all crude among the nurses, and orphans whom the transmigrators were most willing to verify. Shi Niaoren intended to train them into doctors and had even taught them some basic medical Latin.
+"They're here." Behind her came a group of young women—the most robust of the nurses, and orphans whom the transmigrators were most eager to develop. Shi Niaoren intended to train them as doctors. He had even begun teaching them basic medical Latin.
 
-"Good morning," Ai Beibei greeted. "Come on in, all of you."
+"Good morning," Ai Beibei greeted them. "Come on in, all of you."
 
-The nurses stood in a row at the door, six in total. As they walked into the room, they all glanced nervously at the corpse on the table.
+The nurses stood in a row at the door—six in total. As they filed into the room, each glanced nervously at the corpse on the table.
 
-They had served in the health department for several months, seen various scenes, and participated in collecting bodies. They had slowly adapted to sores, mangled limbs, rotting flesh... scenes and smells like these. But watching a human dissection was a first.
+They had served in the health department for several months now. They had witnessed various scenes and participated in collecting bodies. Slowly they had grown accustomed to suppurating sores, mangled limbs, rotting flesh—to sights and smells that would make most people retch. But watching a human dissection was something altogether new.
 
 "Put on your masks and sit down. Don't fidget."
 
-Shi Niaoren admired these girls one by one. Guo Fu was also here. She was one of his most valued nurses. Although young, the enthusiasm and ability she showed in nursing work were stronger than many older girls. Especially, she wasn't afraid of dirt or blood, and wasn't superstitious at all.
+Shi Niaoren appraised the girls. Guo Fu was among them. She was one of the nurses he valued most. Though young, the enthusiasm and ability she displayed in her work surpassed many of the older students. More importantly, she wasn't afraid of dirt or blood, and she harbored no superstitions whatsoever.
 
-The girls were a bit nervous seeing the corpse, though they had seen plenty. But this was the first time they were going to watch a live "autopsy." It was just like that somewhat scary hanging chart they saw in class—only this time it was a real person cut open for them to see.
+The girls were understandably nervous at the sight of the corpse—though they'd seen plenty before. But this was the first time they would witness a live autopsy. It would be exactly like those somewhat frightening anatomical charts from class—only this time, a real person would be opened before their eyes.
 
-Guo Fu was worried about how she would react. She already felt a bit strange inside. As a nurse, she was used to seeing dead people, but for now, dissection was a new, terrifying experience for her.
+Guo Fu worried about how she would react. Already she felt something strange stirring inside her. As a nurse, she was accustomed to death. Still, dissection was a terrifying, unprecedented experience.
 
-"Morning." Ai Beibei greeted them and walked straight to the changing room, took off her white coat, put on a mask, took a surgical gown from the rack, and slid her arms into the sleeves. Shi Niaoren, who was also putting on a gown aside, gentlemanly helped her tie the straps behind her back. Then, as if rehearsed, the two walked one after another to the washbasin. After washing their hands, Ai Beibei picked up a canister of talcum powder and sprinkled it on Shi Niaoren's hands, then held open a pair of latex gloves. Doctor Shi slid his fingers inside; all this without saying a word.
+"Good morning." Ai Beibei greeted them again and walked straight to the changing room. She removed her white coat, put on a mask, took a surgical gown from the rack, and slid her arms into the sleeves. Shi Niaoren, dressing beside her, courteously tied the straps at her back. Then, as if following an unspoken choreography, they walked one after another to the washbasin. After scrubbing their hands, Ai Beibei took a canister of talcum powder and dusted Shi Niaoren's hands, then held open a pair of latex gloves. Doctor Shi slid his fingers inside. Not a word was exchanged throughout.
 
-Shi Niaoren walked to the dissection table, took the clipboard from Hippo, and focused on reading it. Shi Niaoren didn't even glance at the corpse on the table at this moment. Hippo observed the professor's movements secretly, suddenly feeling the scene was very much like a symphony conductor taking the stage, only lacking the audience's applause.
+Shi Niaoren approached the dissection table and took the clipboard from Hippo, focusing on its contents. He didn't even glance at the corpse. Hippo watched the professor's movements closely, suddenly struck by how much the scene resembled a symphony conductor taking the stage—lacking only the audience's applause.
 
-Ai Beibei climbed up the wooden ladder on one side of the dissection table and took a photo of the corpse from above.
+Ai Beibei climbed the wooden ladder at one end of the dissection table and photographed the corpse from above.
 
-"This is the corpse of a young male," Ai Beibei said. "Development normal, mild malnutrition, body type leaning towards thin..."
+"This is the body of a young male," she announced. "Development normal. Mild malnutrition. Body type lean..."
 
-Based on these physical signs, Shi Niaoren analyzed the deceased's hairstyle, facial features, tooth wear, and cranial suture closure, then said:
+Drawing on these physical indicators, Shi Niaoren analyzed the deceased's hairstyle, facial features, tooth wear, and cranial suture closure.
 
-"The deceased is an unmarried young male, age between twenty-three and twenty-six." Then he turned to the little nurses and said, "This is your first time watching a dissection, right?"
+"The deceased is an unmarried young male, age between twenty-three and twenty-six." He turned to the nursing students. "This is your first time watching a dissection, correct?"
 
 "Yes, Dean." The girls answered in unison.
 
-Shi Niaoren nodded. "Today we are conducting gross anatomy. The reason for dissecting this person," he pointed to the corpse on the table, "is so that we doctors can clearly understand the structure and state of the human body. And at the same time, know why they died."
+Shi Niaoren nodded. "Today we are conducting gross anatomy. The reason for dissecting this individual—" he indicated the corpse on the table "—is so that we physicians can clearly understand the structure and state of the human body. And simultaneously, determine why they died."
 
-Shi Niaoren pointed to the wall behind him and said to the girls: "Please look at the words on the wall."
+He pointed to the wall behind him. "Please look at the words inscribed there."
 
-The girls' gazes followed his hand to a motto written in black ink on the white plastered wall.
+The girls' gazes followed his gesture to a motto painted in black ink on the white plaster.
 
 *Mortui Vivos Docent.*
 
-Shi Niaoren read this Latin sentence aloud, then translated: "The dead teach the living." He withdrew his gaze back to the corpse.
+Shi Niaoren read the Latin sentence aloud, then translated: "The dead teach the living." He turned his attention back to the corpse.
 
-"This person on the dissection table died suddenly during labor. There were no symptoms of illness beforehand. We call this sudden death." His gaze swept majestically over the girls, seeing them looking at him with bated breath, just like the graduate students he mentored in the past—who could imagine that over half a year ago they were waiting to be sold as slaves in the slave market of Guangzhou or begging in the streets?
+"This man died suddenly during labor. There were no symptoms of illness beforehand. We call this sudden death." His gaze swept imperiously over the students. They watched him with bated breath, much like the graduate students he had mentored in his previous life—who could imagine that over half a year ago, these women had been waiting to be sold as slaves in Guangzhou's markets, or begging in the streets?
 
-"We will now analyze from the autopsy exactly why he died suddenly."
+"We will now analyze through autopsy exactly why he died."
 
-After saying this, Shi Niaoren checked a set of dissection instruments placed before him and selected a scalpel. He scanned the incision site with his eyes, then cleanly plunged the sharp knife deep into the corpse.
+With that, Shi Niaoren examined a set of dissection instruments laid before him and selected a scalpel. He scanned the incision site with clinical precision, then cleanly plunged the sharp blade deep into the corpse.
 
-When this knife went down, some girls screamed, immediately scolded by Ai Beibei.
+When the knife descended, several girls screamed. Ai Beibei scolded them immediately.
 
-Hippo secretly observed the nursing students. He knew that soft-hearted people or germaphobes couldn't watch autopsies. Even people with some experience weren't very willing to watch the first cut. Up to this point, the corpse on the table still looked somewhat like a living person.
+Hippo secretly observed the nursing students. He knew that the soft-hearted or squeamish couldn't endure autopsies. Even those with some experience were rarely eager to watch the first cut. Up to this point, the body on the table still bore some resemblance to a living person.
 
-But once the first cut was made, there were no more illusions. The corpse had lost all dignity as a human being. Regardless of whether it was once a man, woman, or child, now it was just a pile of bones, flesh, lymph, and blood vessels.
+But once the first cut was made, all illusions vanished. The corpse had forfeited all dignity as a human being. Whether it had once been a man, woman, or child, now it was merely a collection of bones, flesh, lymph, and blood vessels.
 
-Because Shi Niaoren worked in research, he hadn't done many autopsies in the past. But after D-Day, he knew the road to performing surgeries in the future was long and heavy, so he practiced whenever there was a corpse. His knife skills were honed anew. The incision was fluid; he began the dissection calmly and agilely.
+Because Shi Niaoren had worked primarily in research, he hadn't performed many autopsies in his previous life. But after D-Day, knowing the road to performing surgeries stretched long and difficult ahead, he had practiced whenever a corpse became available. His knife skills had been reborn. The incision was fluid; he proceeded calmly and agilely.
 
-He made two cuts downwards from the corpse's shoulders, the incisions meeting at the bottom of the chest cavity, then cut from there down to the genitals, opening the abdominal cavity. Three cuts squarely formed a "Y" shape. When the knife went down, only a "squish" was heard as flesh and skin parted. According to Shi Niaoren's dissection experience, well-nourished modern people usually had a layer of yellow fat here, but this person surprisingly didn't—truly lean to the bone.
+He made two cuts trailing downward from the corpse's shoulders. The incisions met at the base of the chest cavity, then continued in a single line down to the genitals, opening the abdominal cavity. Three cuts formed a precise "Y" shape. When the scalpel descended, there came only the soft sound of flesh and skin parting. Based on his experience, well-nourished modern people typically had a layer of yellow fat here—but this man had none. Truly lean to the bone.
 
-Both Hippo and Ai Beibei were watching the nurses' expressions. Three had turned pale, another gagged and turned away; the remaining two held on without moving.
+Both Hippo and Ai Beibei watched the nurses' expressions. Three had gone pale. Another gagged and turned away. The remaining two held their ground without flinching.
 
-Reasonably speaking, this batch of senior nurses had seen quite a few bizarre corpses with guts spilling out. When pirates attacked Bopu, the first class of Health School students turned out in full force to collect bodies, purposely to build courage. Although they vomited dimly then and screamed from nightmares in the dormitory at night, they slowly got used to it over time—people in this timeline were much tougher or more numb towards death.
+By rights, this senior cohort of nurses had already witnessed numerous grotesque corpses with entrails spilling out. When pirates attacked Bopu, the entire first Health School class had been mobilized to collect bodies—specifically to build their courage. Though they had vomited helplessly at the time and screamed from nightmares in the dormitory at night, they had gradually grown inured. People of this era were far tougher—or perhaps more numb—in the face of death.
 
-Ai Beibei clapped her hands: "Anyone who wants to go out for a few minutes can. If you can't hold it, go vomit outside."
+Ai Beibei clapped her hands. "Anyone who needs to step out for a few minutes may do so. If you can't hold it, go vomit outside."
 
-But no one moved. The dissection paused for a moment until everyone got used to it before continuing.
+But no one moved. They were teachable material after all. Only by passing this test did they have hope of becoming doctors.
 
-Now Hippo put on his gloves and worked alongside Shi Niaoren. The professor began to strip the skin from the ribs using a larger scalpel, peeling it back quickly. Then he used sharp rib shears to cut the ribs, revealing the pericardium and lung lobes. Gloves, scalpels, and the table were full of blood. Ai Beibei turned on the faucet and started rinsing with the hose.
+Yet when the saw bit into the skull, one student did leave—returning only after a considerable interval. The rasping grind of the surgical saw against bone was chilling; only Hippo, with his orthopedic background, found it unremarkable.
 
-Hippo cut open a section of muscle on the other side of the table, opening the abdominal cavity.
+Shi Niaoren carefully pried open the skull cap, revealing the meninges enveloping the brain. This level of stimulation was sufficient to make weak-nerved first-year medical students faint. He glanced again at the nurses. They seemed to be holding on. In some eyes, he noticed a glint of something almost like hungry fascination.
 
-"This is the stomach..."
+"Attention! I'm cutting."
 
-Shi Niaoren explained. As he spoke, Hippo extracted the stomach and intestines from the abdominal cavity, placed them in a shallow stainless steel dish to show the nurses, checked for specific lesions, and then put them into a glass jar. Because the chemical department could produce very little formaldehyde, he didn't plan to make too many human specimens for now.
+Shi Niaoren warned them, then used sharp scissors to sever the large vein running front to back along the center of the meninges. He suddenly realized he had forgotten the name of this vessel. *Am I getting old?* Blood immediately welled up, flowing over scissors and fingers. He noted that the blood was fluid, showing no signs of coagulation. This man clearly hadn't died of cerebral infarction. After carefully examining the meninges, he peeled them back, exposing the brain. With delicate scalpel work, he separated the brain from the spinal cord and gently removed the organ. At that moment, Ai Beibei brought over a glass jar half-filled with formalin. Shi Niaoren lowered the brain slowly into the solution. The specimen was in excellent condition; he decided to preserve it.
 
-As Shi Niaoren explained and dissected, the room was soon filled with the heavy smell of blood and stench. Ai Beibei turned on the ventilation switch, and the smell in the room improved a bit.
+"This is the human brain. If the entire human body is a country, the human brain is the Imperial Court." He explained in simple terms, covering the distinctions and functions of cerebrum, cerebellum, and brainstem. Then his scalpel turned to the heart.
+
+Shi Niaoren removed the heart from the corpse and examined it carefully. He addressed the female nurses once more.
+
+"The greatest likelihood of inducing sudden death is coronary heart disease. Let us first determine whether this hypothesis fits."
+
+The nurses, now somewhat numbed to the gore, focused their attention on the organs themselves, watching intently as he deftly opened the coronary arteries.
+
+"We should find an embolism point here..." He indicated with the tip of a metal probe. "But there is nothing. In the main branch of the coronary artery, there are absolutely no traces of blood clots."
+
+"Now let us examine the heart itself." Shi Niaoren placed the organ on the dissection board and bisected it with his scalpel. He turned the two halves to inspect the valves, then beckoned the nurses closer. They approached hesitantly.
+
+"He obviously didn't die from coronary heart disease," Shi Niaoren concluded. "In this heart, we can observe neither acute thrombosis nor myocardial infarction complicated by ventricular aneurysm."
+
+"Then what killed him?" Shi Niaoren pointed at the heart with his probe. "The left ventricle shows significant dilation, and there is formation of grayish-white myocardial scarring. He suffered from rheumatic heart disease during his lifetime. This is the condition that induced his sudden death."
+
+He set down the probe. "Take a close look."
+
+He didn't expect these girls to become real physicians in one or two years, but at minimum they needed to overcome all terror and superstition regarding the human body.
+
+Guo Fu had steadied herself by now. She felt she could get through this. Shortly after the dissection began, when she'd watched the saw cutting into the dead man's skull, she had felt the blood drain from her head, leaving her dizzy. She had nearly fainted. But she had resolved to persist—to not fall.
+
+For reasons she couldn't fully articulate, she suddenly recalled an incident from her wandering days. Tian Liang had once suffered a festering calf wound and developed a high fever by the time they reached a small town. A wandering traditional doctor, seeing how pitiable they were, had treated him. He had used a knife to cut away all the rotting flesh until fresh red meat appeared, then applied medicine. At the time, no one else dared to look; only she had remained at Tian Liang's side, assisting the doctor. Afterward, Tian Liang had limped for several months before fully recovering. She had tended him throughout—never fearing the blood and pus of his wound, never recoiling from that terrible gash. The memory gave her strength now. She knew that once she passed this test, watching autopsies in the future would present no difficulty. One day she would be able to heal people, just as the Chiefs did.
+
+After demonstrating the lungs, this dissection teaching session concluded. Hippo returned the removed internal organs to the body cavity—there was insufficient preservative solution to store them all as specimens.
+
+Shi Niaoren asked, "Who is willing to suture the incision?"
+
+The girls exchanged uncertain glances. This was demanding work.
+
+"I will." Guo Fu stood.
+
+"Good. Go change. Let me see how your suturing skills are."
+
+Health School students had all learned wound suturing, but practice opportunities were few. Fortunately, suturing a corpse didn't require excessive care or concern about scarring. Guo Fu worked with evident meticulousness, though her technique remained imperfect.
+
+"Passable." Shi Niaoren nodded. Hippo nodded as well. Ai Beibei allowed herself a faint smile. Technique was average; attitude was excellent. This girl had a future worth cultivating.
+
+The corpse was rinsed with water, lifted from the table onto a cart, and covered with white cloth. Shortly it would be transported to Cuigang for burial. Though the dissection room was a basement with somewhat lower temperatures, with so many people crowded together it still exceeded twenty degrees. The body would rot quickly. In a proper medical school or hospital, such tasks would be handled by others—but here, they had to do everything themselves.
+
+They changed clothes, emerged from the dissection room, and returned to ground level. Hippo exhaled a breath of stale air and wiped the sweat from his forehead.
+
+"We need to install air conditioning."
+
+"If you ask me, we'd do better with a cold-storage facility." Shi Niaoren lit a new cigarette. "Regardless, the current temperature won't do. When summer arrives it'll be deadly—the room will feel like a steamer. We won't even be able to store medicine."
+
+"Didn't Li Xiaolü draw up blueprints for geothermal air conditioning? I think we can submit an application. Summer is coming anyway." As Hippo spoke, the girls filed out, and Guo Fu approached.
+
+Hippo felt an indescribably ambiguous sensation as this young woman drew near. The figure outlined by her stiffly starched blue uniform... the slightly fluffy hair beneath her blue cap—it would feel very soft to the touch. He steadied himself.
+
+"Good work today, Little Guo," he praised.
+
+"Thank you, Doctor." The girl blushed slightly and lowered her head. A faint scent emanated from her neck. *Is this the body fragrance of a virgin?* Hippo found his thoughts wandering. Guo Fu was quite attractive—by 21st-century standards, at any rate. After months of adequate food and regular exercise in Lingao, her figure had filled out nicely. Hippo noticed her chest wasn't small. Though the blue nurse's uniform wasn't a dress, it was form-fitting enough.
+
+"Little Guo! Come here!" Ai Beibei was calling.
+
+"If there's nothing else, I'll go. Goodbye, Doctor." She gave a slight bow with a smile and turned away. *I want this girl.* The thought crystallized suddenly in Hippo's mind.
+
+Guo Fu caught up with the other students. They were all asking what she had been thinking while suturing the corpse, whether she had been frightened. She answered absently, her thoughts lingering on Doctor He's peculiar gaze. Her face reddened again.
+
+**(End of Chapter)**

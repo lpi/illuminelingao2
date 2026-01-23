@@ -1,137 +1,141 @@
 # Chapter 315: Acquiring Dachang
 
-Immediately, Liao Daxing was summoned, and these matters were explained to him one by one. Liao Daxing said: "It is hard for the Masters to think so thoroughly! Shopkeeper Feng must be grateful knowing this in the netherworld. However, there is one point the Masters have overlooked—"
+Liao Daxing was summoned immediately, and Chen Tianxiong explained the arrangements in full. Liao Daxing said, "The Masters are truly thorough. Shopkeeper Feng would surely be grateful, knowing this in the netherworld. However, there is one point the Masters may have overlooked—"
 
-In any merchant family, financial affairs are managed by the head of the house. Once the head of the house dies, debts owed to others and debts owed by others must be cleared and settled immediately. This is a large sum. At such a time, collecting debts is very difficult, while creditors will come knocking immediately. Therefore, cash flow difficulties often occur, leading to the forced sale of family property.
+In any merchant family, the head of the household managed all financial affairs. When that head died, all debts—both owed and owing—had to be cleared and settled immediately. This involved substantial sums. At such a time, collecting debts proved extremely difficult, while creditors descended the moment they heard the news. Cash flow crises were inevitable, often forcing the sale of family property at desperate prices.
 
-Many businesses look prosperous while the head of the house is alive, but once he dies suddenly, it is equivalent to total bankruptcy of credit. After the funeral is done, the family also declines.
+Many businesses appeared prosperous while the patriarch lived, but the moment he died suddenly, all credit evaporated with him. By the time the funeral concluded, the family had slid into ruin.
 
-"Not to mention anything else, just take the warehouse receipt left by Shopkeeper Feng. The orphans and widow of the Feng family won't get the price of 3.8 taels per *shi*. Most likely, they will be forced to sell it cheaply to other sugar firms. If the other party has some conscience, they might offer 2.5 taels; if they are blinded by greed, selling for 1.7 or 1.8 taels would be considered good!"
+"Consider the warehouse receipts Shopkeeper Feng left behind. The orphan and widow won't realize anything close to the 3.8 taels per *shi* he was promised. Most likely they'll be forced to sell at a discount to other sugar firms. If the buyer has some conscience, he might offer 2.5 taels. If greed blinds him, 1.7 or 1.8 is considered generous!"
 
-"That dark?!" Everyone was surprised. Was there no professional loyalty left?
+"That corrupt?" Everyone was startled. Did professional loyalty count for nothing?
 
-"It's not dark; it has always been this way."
+"It isn't corruption—it's simply how things have always been."
 
-"In that case, send his family three hundred taels of silver as a condolence payment. And—" Chang Shide thought for a moment, "The matter of settling accounts will be handled by someone sent by the Guild to avoid anyone having improper thoughts. If silver offers are needed for settlement, South China Sugar will advance it."
+"In that case, send the family three hundred taels as a condolence gift. And—" Chang Shide considered briefly. "The account settlement will be handled by someone sent by the Guild, to discourage improper thoughts. If cash advances are needed for settlement, South China Sugar will provide them."
 
-Liao Daxing nodded: "The Master thinks thoroughly! The lowly one will arrange this immediately. Only, the person representing the Guild—"
+Liao Daxing nodded. "The Master's thinking is thorough. I'll arrange it immediately. Only—regarding who should represent the Guild—"
 
-"Let your brother go." Chang Shide thought of Liao Diahua. Liao Diahua was also from a merchant background and was no stranger to auditing accounts. "He is the branch manager of Qiwei Escort Bureau; I'll give him a title of Guild Executive as well—having no conflict of interest while being able to intervene legitimately."
+"Send your brother." Chang Shide had Liao Diahua in mind. The man came from a merchant background and was no stranger to auditing ledgers. "He's the branch manager of Qiwei Escort Bureau. I'll give him the additional title of Guild Executive—no conflict of interest, but legitimate authority to intervene."
 
-So the matter was settled. Sure enough, under South China Sugar's forceful intervention, all sugar firms harboring designs on Richangji withdrew their hands.
+So it was settled. Under South China Sugar's forceful intervention, every sugar firm that had been eyeing Richangji withdrew its predatory hands.
 
-The first operation of the Leizhou Sugar Industry Guild showed its uniqueness. Behind this incident, many people saw that the new guild truly protected everyone's interests—helping orphans and widows hardly yields substantial returns.
+---
 
-Using this as an opportunity, Chang Shide carried out drastic reforms on the original trade guild.
+The Sugar Industry Guild's first action demonstrated its distinctive character. Many observers recognized what lay behind the decision: the new guild genuinely protected everyone's interests. Helping orphans and widows yielded no immediate returns—yet they had done it anyway.
 
-All sugar firms participating in the Sugar Industry Guild held a director position and participated in deliberations. Daily affairs were run by the newly established "Standing Committee."
+Using this incident as an opening, Chang Shide launched sweeping reforms of the old trade guild structure.
 
-This committee consisted of five Standing Executives. Each executive was responsible for a specific matter, led by the "Secretary-General"—a role naturally assumed by Chang Shide.
+Every sugar firm participating in the Sugar Industry Guild would hold a director position and participate in deliberations. Daily affairs would be managed by a newly established "Standing Committee" comprising five Standing Executives, each responsible for specific functions, led by a "Secretary-General"—a role naturally assumed by Chang Shide.
 
-The operating expenses were covered by guild dues. Each sugar firm shared the dues proportionally according to their capital. The total amount of dues was ten thousand taels per year.
+Operating expenses would be covered by guild dues, shared proportionally according to each firm's capital. The total annual assessment was set at ten thousand taels.
 
-The most obvious change under this system was the introduction of a completely modern financial system, ensuring the destination of every sum of money was clear. The transparency of this financial system caused quite a stir among the guild directors.
+The most visible change was the introduction of a completely modern financial system, ensuring the destination of every sum was transparent and accountable. The clarity of this system caused considerable stir among the guild directors.
 
-For Chang Shide and the others, this system was preparation for a future joint-stock company. Once locals gradually got used to the transmigrators' business model and concepts, forming the Leizhou Sugar Industry Joint-Stock Company would happen naturally. Then they would no longer need financial transfusions from Guangzhou and could openly leverage the capital of these sugar merchants for operations.
+For Chang Shide and his colleagues, this structure was preparation for a future joint-stock company. Once locals grew accustomed to the transmigrators' business models and concepts, forming the Leizhou Sugar Industry Joint-Stock Company would follow naturally. Then they would no longer require financial transfusions from Guangzhou; they could openly leverage the capital of these sugar merchants for operations.
 
-To speed up the acquisition speed, Wen Tong seconded a large number of skilled clerks from various sugar firms through the Sugar Industry Guild to help at South China Sugar; their wages and food during this period were all paid by South China Sugar.
+To accelerate acquisition speed, Wen Tong seconded large numbers of skilled clerks from the various sugar firms through the Guild to assist South China Sugar. Wages and provisions during this period were entirely South China Sugar's expense.
 
-"Although there are a thousand things to do right now, the shipment of sugar cannot stop for a day." Wen Tong said, "Don't forget the Guangzhou Station borrowed usury for us. The longer it drags on, the more disadvantageous it is."
+"Although there are a thousand things demanding attention, sugar shipments cannot pause for a single day," Wen Tong said. "Don't forget—the Guangzhou Station borrowed at usurious rates on our behalf. The longer this drags on, the more disadvantageous our position."
 
-"Mm, but we promised these sugar merchants 3.8 taels. What if Guangzhou can't sell at this price? Although we monopolize Leizhou sugar sales, if the demand is small, we are helpless."
+"Mm. But we promised these merchants 3.8 taels. What if Guangzhou can't sell at that price? We may dominate Leizhou sugar sales, but if demand is weak, we're helpless."
 
-"In Guangzhou, last week's market price was already 3.95 taels. The British are willing to pay four taels per *shi*; the price won't come down in the short term."
+"In Guangzhou, last week's market price had already reached 3.95 taels. The British are willing to pay four per *shi*. The price won't fall in the near term."
 
-"There is also selling to Vietnam." Chang Shide was very confident. "Wu Yujia doesn't have silver there, but he has plenty of rice. We'll exchange it all for rice, then talk business with Boss Zhu of Dachang."
+"There's also the Vietnam trade." Chang Shide spoke with confidence. "Wu Yujia has no silver there, but he has rice in abundance. We'll exchange for rice, then negotiate with Boss Zhu of Dachang."
 
-Bringing in Dachang Grain Firm as a partner was Chang Shide's idea. In his official document to Lingao, he argued: Although South China Sugar opening a wholly-owned rice firm would yield much higher profits, they lacked experienced and reliable managers to run it—that was one; secondly, South China Sugar was already "thunderous" in Leizhou. If they blatantly intervened in the rice business after securing the sugar industry, it would inevitably cause fear in the local business community, leading to boycotts—money can't all be earned; winning hearts is more important.
+Bringing Dachang Grain Firm in as a partner had been Chang Shide's idea. In his official communication to Lingao, he had argued: though South China Sugar's opening a wholly owned rice firm would yield far higher profits, they lacked experienced, reliable managers to run it—that was point one. Second, South China Sugar was already notorious in Leizhou. If, after securing the sugar industry, they openly intervened in the rice trade, they would inevitably frighten the local business community into boycotts. Not all money could be earned in one stroke; winning hearts mattered more.
 
-Dachang Grain Firm was the local merchant most friendly to South China Sugar from the beginning. Not that Boss Zhu Fusheng of Dachang had any foresight, but his sense of smell was sharper than other rice firms, and his capital was the largest. When the immigrants organized by South China Sugar first arrived, he scented the opportunity and came to sell grain, offering very good trading terms: South China Sugar could take grain at any time, settle accounts on the three festivals, and enjoy promotions like getting one *shi* free for every twenty bought. This solved the headache of organizing large-scale grain supplies for Wen Tong and the others.
+Dachang Grain Firm had been the local merchant most friendly to South China Sugar from the beginning—not because Boss Zhu Fusheng possessed any special foresight, but because his commercial instincts were sharper than his rivals', and his capital base was the largest. When the immigrants organized by South China Sugar first arrived, he had scented opportunity and come to sell grain, offering excellent terms: South China Sugar could draw grain at any time, settle accounts at the three festivals, and enjoy promotions such as one *shi* free for every twenty purchased. This had solved Wen Tong's headache over organizing large-scale grain supplies.
 
-To keep this big client, Zhu Fusheng did his utmost to satisfy every request from South China Sugar and contributed significantly during South China Sugar's confrontation with the Haiyi Guild—of course, he had selfish motives too, as South China Sugar still owed him several thousand taels in accounts payable.
+To retain this major client, Zhu Fusheng had done his utmost to satisfy South China Sugar's every request, and had contributed significantly during their confrontation with the Haiyi Guild—though he had selfish motives as well, since South China Sugar still owed him several thousand taels on open account.
 
-With such a foundation of trust, cooperation would be relatively easy. Moreover, Liao Daxing himself had started as a clerk at Dachang, making it even more convenient to discuss cooperation.
+With such a foundation of trust, cooperation would be relatively straightforward. Moreover, Liao Daxing himself had begun his career as a clerk at Dachang, making discussions even more convenient.
 
-However, Liao Daxing's first visit returned in failure.
+Yet Liao Daxing's first approach returned in failure.
 
-Chang Shide felt strange and asked: "Why didn't it work?"
+Chang Shide frowned. "Why didn't it work?"
 
-"Boss Zhu's family is having domestic trouble," Liao Daxing said. "It just seemed his mood wasn't good. He only said he was interested, but afraid he couldn't make the decision yet. Said to wait and see." Since there was domestic trouble, he naturally wouldn't be interested in cooperating with South China Sugar; whether to talk or not was irrelevant.
+"Boss Zhu's family is having domestic troubles," Liao Daxing explained. "His mood seemed off. He only said he was interested but couldn't make the decision yet. Said to wait and see." With domestic troubles preoccupying him, naturally he had no appetite for discussing partnerships.
 
-"First wife beating the mistress?" Wen Tong was curious.
+"The first wife beating the mistress?" Wen Tong asked, curious.
 
-Liao Daxing didn't know what a "mistress" (*Er Nai*) was, but understood the meaning. He shook his head: "No, Boss Zhu only has one wife. The lowly one probed a few times; it sounds like a matter between relatives involving the rice firm."
+Liao Daxing didn't recognize the term *Er Nai*, but understood the meaning. He shook his head. "No—Boss Zhu has only one wife. From what I could gather, it sounds like a dispute among relatives over the grain firm."
 
-"I'll send someone to inquire immediately," Chen Tianxiong said.
+"I'll have someone investigate immediately," Chen Tianxiong said.
 
-The next day, he reported as follows: First, Dachang Grain Firm was a traditional Chinese joint-stock enterprise. The shares were divided into twenty-one and a half shares, originally one thousand taels per share; second, Dachang's shareholders were basically Zhu family clansmen or relatives—aunts, uncles, and the like; third, the recent domestic trouble was that the clansmen felt dividends were too low; fourth, Dachang's operating condition was quite good.
+The next day, he reported as follows: First, Dachang Grain Firm was organized as a traditional Chinese joint-stock enterprise. The shares totaled twenty-one and a half, originally valued at one thousand taels each. Second, Dachang's shareholders were essentially Zhu family clansmen or relatives—aunts, uncles, and the like. Third, the recent domestic unrest stemmed from clansmen complaining that dividends were too low. Fourth, Dachang's operational condition was actually quite healthy.
 
-"Zhu Fusheng has a headache exactly because of this," Chen Tianxiong explained. "His clansmen aren't very progressive; they all rely on this rice firm. They cause trouble with him every few days." Their demands: either increase the bonus dividends or stuff their own kids in to draw a salary for doing nothing.
+"Zhu Fusheng's headache arises from exactly this," Chen Tianxiong explained. "His clansmen lack ambition; they all rely on this rice firm. They harass him every few days." Their demands: either increase bonus dividends, or stuff their layabout offspring into positions where they could draw salaries for doing nothing.
 
-"Actually, the returns for Dachang shareholders over these years have been very good. The annual bonus is five or six thousand taels. One share can get two hundred taels—"
+"Actually, the returns for Dachang shareholders over the years have been excellent. Annual bonuses run to five or six thousand taels. One share earns around two hundred taels—"
 
-"Wait, it should be two hundred thirty taels per share," Chang Shide said.
+"Wait—it should be two hundred thirty taels per share," Chang Shide corrected.
 
-"Dividends are distributed based on twenty-three shares; one and a half shares are labor shares for the shopkeeper and all the clerks."
+"Dividends are distributed based on twenty-three shares. One and a half shares are labor shares for the shopkeeper and all the clerks."
 
-"This return is considered very good, right?" Wen Tong remembered Yu Eshu saying that a middle-income family of four or five could live well on fifty taels of silver a year.
+"That return is considered quite good, isn't it?" Wen Tong recalled Yu Eshui mentioning that a middle-income family of four or five could live comfortably on fifty taels per year.
 
-Chen Tianxiong nodded: "Yes, but human hearts are insatiable." He turned a page in his notebook. "I investigated the shareholder situation. Among all shareholders, Boss Zhu himself owns eleven shares. The remaining ten and a half shares belong to over ten large and small shareholders; the smallest share is only half a share."
+Chen Tianxiong nodded. "It is. But human hearts are insatiable." He turned a page in his notebook. "I investigated the shareholder structure. Boss Zhu himself owns eleven shares. The remaining ten and a half are divided among over a dozen large and small shareholders. The smallest holding is half a share."
 
-It can be imagined that even if Boss Zhu welcomes South China Sugar's investment, the small shareholders won't want to give up their shares—Dachang Grain Firm's returns are so high, they want to share more money; how would they be willing to sell?
+It was easy to imagine: even if Boss Zhu welcomed South China Sugar's investment, the minor shareholders wouldn't want to surrender their stakes. With Dachang's returns so attractive, they would want larger portions, not smaller ones. Why would they be willing to sell?
 
-"This is a bit thorny." Wen Tong scratched his head.
+"This is somewhat thorny." Wen Tong scratched his head.
 
-Chang Shide was full of confidence: "It might have been difficult in the past, but ever since Zhu An was finished, we won't face any obstacles in whatever we do now. I'd like to see whose gall is so big."
+Chang Shide remained confident. "It might have been difficult before. But since we finished Zhu An, we face no obstacles in whatever we undertake. I'd like to see whose gall is big enough to resist."
 
-"Although doing that is easy, it is harmful to our reputation after all. I have an idea, but we need to tip off Old Zhu beforehand. Like this—"
+"Though that approach would be easy, it would damage our reputation." Wen Tong paused. "I have an idea—but we need to tip off Old Zhu in advance. Like this—"
 
-Before long, a terrible piece of news spread through the streets and alleys of Xuwen County: South China Sugar is to open a rice firm immediately! This news terrified grain merchants across Xuwen and even Leizhou. The Rice Industry Guild was in chaos; the executive on duty and major rice firm bosses all came to visit, trying to glean some news from Wen Tong.
+---
 
-Wen Tong's answer was decisive: No, South China Sugar does not plan to open a rice firm itself; there is no such thing.
+Before long, a terrifying rumor swept through the streets and alleys of Xuwen County: *South China Sugar is about to open a rice firm!*
 
-But the street gossip discussed this topic with increasing enthusiasm—these rumors were all spread by Xiao Zhanfeng. What South China Sugar's next target was became a hot topic for the common people of Xuwen.
+The news terrified grain merchants across Xuwen and beyond. The Rice Industry Guild descended into chaos; the duty executive and major rice firm bosses all rushed to pay calls, attempting to glean information from Wen Tong.
 
-Terror signals appeared repeatedly: strange flat-bottomed ships brought three thousand *shi* of rice at once, unloading at Hai'an Street; Manager Wen was surveying wasteland everywhere, asking about land prices; Liao Daxing was inquiring in teahouses where rice industry clerks gathered if there were any unemployed rice firm clerks...
+Wen Tong's response was categorical: No. South China Sugar has no plans to open a rice firm itself. There is no such intention.
 
-All this indicated that South China Sugar opening a rice firm was already a certainty. The grain industry in Xuwen was instantly plunged into gloom: they have money and power, and aren't afraid of you causing trouble. If they really open up, will there be any way for us to live?
+But the street gossip only intensified—these rumors were all spread by Xiao Zhanfeng. What South China Sugar's next target might be became the hottest topic among Xuwen's common folk.
 
-In this tense and hesitant atmosphere, agents directed by Chang Shide easily bought ten and a half shares from Dachang's small shareholders at a price of one thousand eight hundred taels per share, instantly becoming Dachang's second-largest shareholder.
+Alarming signals multiplied: strange flat-bottomed ships delivered three thousand *shi* of rice at once, unloading at Hai'an Street. Manager Wen was surveying wasteland everywhere, inquiring about land prices. Liao Daxing was making rounds of the teahouses where rice industry clerks gathered, asking whether any experienced hands were looking for work...
 
-With shares in hand, the matter of opening a rice firm naturally evaporated. Wen Tong personally went to the Rice Industry Guild to clarify rumors and solemnly announced: South China Sugar will not open a rice firm.
+All of this pointed to one conclusion: South China Sugar's entry into the rice trade was a certainty. The grain industry fell into gloom. *They have money, they have power, they aren't afraid of trouble. If they actually open, what room will be left for us?*
 
-Once this news came out, the rice bosses and clerks naturally breathed a sigh of relief. The people who sold their shares certainly beat their chests and stamped their feet, but the shares could not be bought back.
+In this climate of tension and uncertainty, agents directed by Chang Shide easily purchased ten and a half shares from Dachang's minor shareholders at eighteen hundred taels per share—instantly becoming Dachang's second-largest shareholder.
 
-The silver for this acquisition was provided by Boss Zhu, and South China Sugar would provide twenty thousand *shi* of brown rice to Dachang Grain Firm at a discounted CIF price of one tael per *shi* as compensation.
+With shares in hand, the talk of opening a rice firm naturally evaporated. Wen Tong personally visited the Rice Industry Guild to clarify the rumors, solemnly announcing: South China Sugar will not open a rice firm.
 
-Dachang Grain Firm was still managed by Boss Zhu. Boss Zhu was very happy—he had forever rid himself of his insatiably greedy relatives and clansmen, and obtained a cheap source of goods: as soon as the share transfer contract was signed, South China Sugar became his main supplier. Currently supplying at a CIF price of 1.2 taels per *shi*, this price was about the same as his own acquisition cost, but saved transportation costs and risks en route. Extremely profitable.
+Once this news spread, the rice bosses and clerks breathed sighs of relief. Those who had sold their shares naturally beat their chests and stamped their feet—but the shares could not be bought back.
 
-"It doesn't matter if we let Boss Zhu of Dachang earn some money. Let him be happy counting money first. We can just collect more personal income tax from him later."
+The silver for this acquisition came from Boss Zhu himself. As compensation, South China Sugar would supply Dachang Grain Firm with twenty thousand *shi* of brown rice at a discounted CIF price of one tael per *shi*.
 
-"And consumption tax, mistress tax, servant tax..." Chang Shide laughed, "Finally, slap on a property tax. Long live the Transmigration State's taxes!"
+Dachang Grain Firm would continue under Boss Zhu's management. And Boss Zhu was delighted. He had forever rid himself of his insatiably greedy relatives and clansmen, and gained a cheap, reliable supply source. The moment the share transfer contract was signed, South China Sugar became his primary supplier—currently providing rice at a CIF price of 1.2 taels per *shi*, roughly equal to his previous acquisition cost but eliminating transportation expenses and transit risks. Extremely profitable.
 
-"Old Zhu is very active. He says with such a stable and cheap source of goods, he can really spread his wings. He's preparing to expand branch offices." Wen Tong said with a smile, "We have to support him too. Cash crop planting in Guangdong takes up a lot of land and has already affected grain production; grain trade has great potential."
+"It doesn't matter if we let Boss Zhu of Dachang earn a bit. Let him enjoy counting his silver for now. We can simply collect more personal income tax from him later."
 
-Chang Shide said: "Although Leizhou has sugar, it also suffers from sugar. Prices of everything are soaring. We not only need to obtain the financial source of sugar but also withdraw part of the silver by importing more livelihood goods to curb inflation." He thought for a moment, "I wonder if Indian cotton cloth can sell well here."
+"And consumption tax. Mistress tax. Servant tax..." Chang Shide laughed. "Finally, slap on a property tax. Long live the Transmigration State's revenue system!"
 
-"Sources of goods can be organized. We just need to report the demand." Wen Tong said, "I want to buy up all the land near the South Gate Sugar Refinery to build shops for rent. The market here will get better and better."
+"Old Zhu is full of energy. He says with such stable, cheap supplies, he can really spread his wings. He's planning to expand his branch offices." Wen Tong smiled. "We should support him, too. Cash-crop cultivation in Guangdong has absorbed significant acreage, already affecting grain production. The grain trade has enormous potential."
 
-The group discussed for a while longer before dispersing. Wen Tong returned to the courtyard and called Ah Zhu.
+Chang Shide nodded. "Although Leizhou has sugar, it also suffers from sugar. Prices for everything are climbing. We need not only to extract the financial benefits of sugar but also to import more daily necessities to withdraw silver from circulation and curb inflation." He thought for a moment. "I wonder if Indian cotton cloth would sell well here."
 
-"Go take a shower!" This was the code for Wen Tong to sleep with her. Ah Zhu, who hadn't been visited by the master for many days, was originally somewhat fearful. Hearing the master's order, her heart rejoiced, and she hurriedly went to bathe.
+"Sources of goods can be organized. We just need to report the demand," Wen Tong said. "I want to buy up all the land near the South Gate Refinery to build shops for rent. The market here will only improve."
 
-That night, Wen Tong, who hadn't been intimate for many days due to being tied up with affairs, was both mighty and fierce. When he charged violently, he would always recall his image in the Haiyi Guild hall—calm and composed, commanding, unflappable... a series of idioms constantly surfaced in his mind. He felt full of vigor.
+The group discussed further before dispersing. Wen Tong returned to his quarters and called for Ah Zhu.
 
-When the clouds scattered and rain ceased, and Wen Tong went limp all over about to rest, Ah Zhu cuddled up:
+"Go take a bath." This was his code for summoning her to bed. Ah Zhu, who had not been visited by the master for many days, had grown somewhat anxious. Hearing his order, her heart leapt with joy, and she hurried off to bathe.
 
-"Master, Ah Zhu begs you for a favor."
+That night, Wen Tong—deprived of intimacy for days by the crush of affairs—was both vigorous and relentless. As he surged forward, he found himself reliving the scene in the Haiyi Guild hall: composed, commanding, unflappable. A litany of flattering adjectives surfaced in his mind, and he felt suffused with vitality.
 
-"What is it?" Wen Tong didn't mind.
+When the clouds finally scattered and the rain ceased, Wen Tong went limp, on the verge of sleep. Ah Zhu nestled against him.
 
-"Ah Zhu has a sister, who was also from a fishing family in the past—"
+"Master, Ah Zhu begs a favor of you."
 
-"Did she become a pirate later?" Wen Tong thought of her background and teased. He didn't notice Ah Zhu's face had changed. She forced a smile:
+"What is it?" Wen Tong asked carelessly.
 
-"Master is joking. Her family was poor, so she was sold to a wealthy family as a maid since childhood. Recently she has nowhere to go and wants to find a place to serve a new master. She has good looks, a good temper, and is good at needlework..."
+"Ah Zhu has a sister who also came from a fishing family in the past—"
+
+"Did she turn pirate later?" Wen Tong recalled her background and teased. He didn't notice Ah Zhu's expression flicker. She forced a smile.
+
+"Master jests. Her family was poor, so she was sold into a wealthy household as a maid when she was young. Recently she's found herself with nowhere to go and hopes to find a new master to serve. She has good looks, a good temper, and is skilled at needlework..."
 
 **(End of Chapter)**

@@ -1,145 +1,147 @@
 # Chapter 331 - Traditional Chinese Medicine
 
-Liu San met Dong Weiwei and handed the medicine to her. He had prepared the simplest medicaments: ready-made prescriptions created using herbs that could be collected and processed locally. To facilitate use, they were all processed into powders and pills.
+Liu San found Dong Weiwei and presented her with the medicines he had prepared—simple formulations made from locally available herbs, processed into powders and pills for ease of use.
 
-"These are the simple herbal medicines I made." Liu San handed a number of paper packets and wooden boxes from his basket to Dong Weiwei. "You know a little TCM, right?"
+"These are basic herbal remedies I've compounded." He transferred several paper packets and wooden boxes from his basket to her outstretched hands. "You have some TCM knowledge, don't you?"
 
-"A tiny bit." Dong Weiwei was somewhat embarrassed. "Actually, I only learned a little acupuncture, cupping, and *Tui Na* massage. I needed it for bodybuilding."
+"A little." Dong Weiwei's cheeks colored with embarrassment. "Honestly, I only picked up some acupuncture, cupping, and *Tui Na* massage techniques—for athletic conditioning, mostly."
 
-"Can you feel the pulse?"
+"Can you read a pulse?"
 
-"Only a little."
+"Just the basics."
 
-Liu San said, "In that case, you'd better read this *Barefoot Doctor's Manual* first. It contains diagnostic and treatment methods for many simple diseases. Observation, auscultation, interrogation, and palpation—one doesn't necessarily have to rely on feeling the pulse to make a decision—common diseases are still frequent in rural areas. This is *Diagnosis and Treatment of Common Diseases in Hainan* compiled by Minister Shi; you should study it, too."
+"Then you should start with this." Liu San handed her a well-worn manual. "The *Barefoot Doctor's Manual* covers diagnostic and treatment methods for common ailments. Observation, auscultation, inquiry, palpation—proper diagnosis doesn't always require pulse-reading. Rural communities see the same afflictions again and again. And here—" he produced a second volume, "—is *Diagnosis and Treatment of Common Diseases in Hainan*, compiled by Minister Shi. Study both."
 
-"Good, mastering some medical skills is incredibly useful for carrying out work."
+"Excellent. Medical skills will prove invaluable for community work."
 
-"This is the medical alcohol, absorbent cotton, and cotton swabs you applied for..." Liu San took out a list. "These are the lists of medicines I compounded and their applicable symptoms." He continued, "Here are pest control and preventative medicines, diaphoretics, dampness-dispelling drugs, purgatives, fire-clearing drugs, sedatives... But the Chinese herbal medicines here are really incomplete; some can't be compounded. For prescriptions where the herbs are easy to find, I've just given you the prescription."
+"This is the medical alcohol, absorbent cotton, and swabs you requisitioned..." Liu San consulted a list. "Here are my compounded medicines and their indications: antipyretics, diaphoretics, dampness-dispelling preparations, purgatives, heat-clearing agents, sedatives. Unfortunately, the local pharmacopoeia is woefully incomplete—some formulations simply can't be prepared. Where the herbs are readily available, I've included the raw prescriptions instead."
 
-Liu San finally took out a small wooden box. "This is a gift from the Ministry of Health to you—a medical kit." He winked. "There are also some trial products inside."
+Finally, he withdrew a small wooden box with a conspiratorial wink. "A gift from the Ministry of Health—your medical kit. There are some experimental products inside."
 
-Dong Weiwei opened it curiously. Besides common items, there were also self-made gauze masks that looked quite rough—a new product. Inside, there was also a box containing a set of brand-new, simple surgical instruments.
+Dong Weiwei lifted the lid with evident curiosity. Alongside the expected supplies, she found gauze masks—rough but functional, of recent manufacture—and a case containing simple surgical instruments, gleaming and new.
 
-"This equipment is vital. Isn't it a waste to give it to a layman like me..." Dong Weiwei naturally knew surgical instruments were valuable.
+"This equipment is precious. Isn't it wasted on an amateur like me?" She knew the value of proper surgical tools.
 
-"It doesn't matter; this is Lingao-made!" Liu San was satisfied seeing her reaction. "Take it out and look carefully."
+"These are Lingao-made!" Liu San's satisfaction was palpable. "Examine them closely."
 
-"Is this copper?" Dong Weiwei asked in surprise.
+"Is this... copper?"
 
-"Correct, it's bronze," Liu San said. "To be honest, I didn't expect the pharmaceutical equipment factory could make this stuff. I heard it was made by Jiang Ye from the machinery factory together with several jewelers recruited from Guangzhou."
+"Bronze," he confirmed. "Frankly, I'm astonished the pharmaceutical equipment workshop could produce such work. Jiang Ye at the machinery factory collaborated with jewelers recruited from Guangzhou, I'm told."
 
-"That's impressive!" Dong Weiwei's eyes lit up as she looked at the table full of supplies. "The Ministry of Health is amazing! This is a huge help."
+"Remarkable!" Dong Weiwei's eyes shone as she surveyed the wealth of supplies. "The Ministry of Health has outdone itself. This will be an enormous help."
 
-"I'll be conducting disease control research in this area over the next few days, so I can teach you simple medical skills while I'm at it." Liu San had studied pharmacy, but he had been crash-trained in simple surgery in the hospital.
+"I'll be conducting epidemiological research here over the coming days, so I can teach you some fundamental medical techniques while I'm at it." Liu San had trained in pharmacy, though the hospital had given him a crash course in basic surgical procedures.
 
-Thus, Liu San started practicing medicine in the Thirteen Villages area. He not only practiced medicine in the church but also constantly made house calls with Dong Weiwei when she went down to the villages for inspection work. This caused their reputation in the area to skyrocket. Liu San was very careful during his rounds, recording every observation daily—he was also responsible for basic hygiene survey work here.
+Thus began Liu San's medical practice in the Thirteen Villages region. He saw patients both at the church and on rounds through the countryside, accompanying Dong Weiwei on her inspection tours. Their reputation spread rapidly. Liu San documented every observation meticulously—he bore responsibility for the basic sanitary survey as well.
 
-During his rounds seeing patients, Liu San deeply realized what "shortage of doctors and medicine" meant. People here knew there was a profession called "doctor" in the world that cured diseases, but few could enjoy a doctor's diagnosis and treatment. Even traveling doctors carrying medicine chests were rarely seen. Once sick, they waited for self-healing; sometimes they would use folk remedies of unknown efficacy. Various infectious diseases, chronic diseases, and parasitic diseases were rampant; infant and maternal mortality rates were high, and gynecological diseases were very common. Being a woman, Dong Weiwei was especially sympathetic to this. She suggested several times that they send a few professional nurses here.
+Through his rounds, Liu San confronted the brutal reality of what "shortage of doctors and medicine" truly meant. The villagers knew doctors existed in the world, that such men could heal the sick, but precious few had ever been examined by one. Even itinerant medicine-sellers rarely ventured here. When illness struck, people simply waited for recovery or death; sometimes they resorted to folk remedies of dubious efficacy. Infectious diseases ran rampant. Chronic conditions went untreated. Parasitic infections were endemic. Infant mortality was appalling, maternal deaths grimly common, and gynecological ailments nearly universal. Dong Weiwei, as a woman, felt this suffering keenly and suggested repeatedly that they station professional nurses in the area.
 
-Liu San didn't care much about this aspect. His own medical staff in Bairen were insufficient, and there was a shortage of medicine; how could he send people? Besides, practicing medicine wasn't his main business. He paid more attention to collecting various folk remedies during his rounds. Useful or not, whenever he encountered a folk remedy, he would carefully transcribe it, and then verify the drugs in the remedy one by one. He didn't let go of even the most absurd remedies, and indeed managed to collect quite a few prescriptions.
+Liu San remained unmoved by such proposals. His own staff at Bairen was stretched thin, medicines scarce—how could he spare personnel? Besides, practicing medicine wasn't his primary mission. What consumed his attention was the collection of folk remedies. Useful or not, whenever he encountered a traditional cure, he transcribed it carefully and verified each ingredient. He dismissed none, however outlandish, and managed to accumulate a respectable pharmacopoeia.
 
-That day he was sitting in the ancestral hall seeing patients and had seen quite a few. For those he had medicine for, he gave a few doses; for those he didn't, he had to give some licorice root—purely a placebo. Fortunately, it was good enough for the common folks to have a doctor to see, not to mention he didn't take a penny, so they didn't fuss much. Having been busy all morning, just as he took out a rice ball to eat, someone suddenly shouted outside: "Make way, make way, is the doctor in?"
+One morning, he sat in the ancestral hall seeing patients. The morning had been busy; for those whose ailments matched his medicines, he dispensed a few doses; for the others, he could only offer licorice root—a pure placebo. The villagers asked little. To have a doctor at all was blessing enough, let alone one who charged nothing. He had just unwrapped a rice ball for his midday meal when a commotion erupted outside.
 
-Hearing the voice, Liu San knew a critical patient must have arrived. He hurriedly shouted, "Here, come in quickly!"
+"Make way! Make way! Is the doctor here?"
 
-Several men came in from outside, carrying a patient.
+The urgency in that voice meant a critical case. Liu San swallowed his bite and called out: "Here! Bring them in!"
 
-"Put him on the board, let me take a look." He ordered and walked over.
+Several men burst through the doorway, carrying a patient between them.
 
-The patient was a boy of eleven or twelve. His facial muscles were twitching constantly, his jaw was locked tight, looking like a "bitter smile" (*risus sardonicus*), with laryngospasm and difficult, rapid breathing. Liu San was shocked when he saw it—this was a typical symptom of tetanus.
+"Put him on the board. Let me see." Liu San strode forward.
 
-"Where is the external wound?"
+The patient was a boy of eleven or twelve, his facial muscles twitching in violent spasms, jaw locked in a rictus grin—the classic *risus sardonicus*. His breathing came in labored, strangled gasps. Liu San's stomach dropped. These were the unmistakable signs of tetanus.
 
-The person who carried him in hurriedly pointed to his foot, wrapped in a dirty rag. Liu San tore it off; before his eyes was a very deep wound. Asking the accompanying people again, he learned it had been stabbed by rake tines. This confirmed it.
+"Where is the wound?"
 
-"This is tetanus!" Liu San looked grave. Judging by the patient's appearance, the toxins had already begun to take effect. Once tetanus set in, it was dangerous even in a modern hospital. He was empty-handed, without even hydrogen peroxide to clean the wound, let alone tetanus antitoxin.
+The bearers pointed to the boy's foot, wrapped in a filthy rag. Liu San tore it away. A deep puncture wound gaped at him. Upon questioning, he learned a rake had inflicted it. The diagnosis was certain.
 
-"Doctor, please look at my child." The middle-aged man who carried him in begged bitterly. Several old and young women knelt before him—probably his family—all crying.
+"Tetanus." Liu San's expression turned grim. The toxins were already taking hold. Even in a modern hospital, once symptoms manifested, survival was doubtful. Here he was empty-handed—no hydrogen peroxide to cleanse the wound, no antitoxin to neutralize the poison.
 
-"Don't rush," Liu San steadied his mind, TCM treatment prescriptions flashing through his brain. He immediately wrote a prescription. "Go fill this prescription immediately! There might still be time!"
+"Doctor, please save my child." The middle-aged man who had carried him in dropped to his knees, voice breaking. Several women, old and young, knelt beside him—the boy's family, all weeping.
 
-The person receiving the prescription looked helpless. Liu San had been here for a long time and knew the people here were extremely poor; filling a prescription was simply a fantasy for many. He quickly took out his private seal and stamped it on the paper.
+"Stay calm." Liu San forced his thoughts into order, rifling through his mental catalogue of TCM treatments for tetanus. He seized a brush and scrawled a prescription. "Get this filled immediately! There may still be time!"
 
-"Go to the raw medicine shop in the county right now and give the prescription to them!" Because the shopkeeper of that medicine shop dealt with Liu San often, they were very familiar. Asking them to credit a few doses of medicine was no problem.
+The man who took the paper looked stricken. Liu San had been here long enough to understand—these people were destitute. Filling a prescription was fantasy for most of them. Quickly, he stamped the paper with his personal seal.
 
-The middle-aged man wanted to kneel and kowtow. Liu San ordered, "Go quickly! It'll be too late if you delay!" Then he shouted to the people crowded aside, "Out, out, what are you all crowding for?" Tetanus patients needed quiet to avoid stimulation. He thought for a moment; right now it was best to disinfect the wound. Without hydrogen peroxide, he had to use potassium permanganate—this stuff was quite precious now, and there wasn't much in the medical kit. Just as he was thinking, Dong Weiwei came in.
+"Take this to the raw medicine shop in the county seat. Give them the prescription directly." The shopkeeper dealt regularly with Liu San; extending credit for a few doses would pose no difficulty.
 
-"Doctor Liu, go eat. I made fried rice noodles today—" She was startled seeing the constantly twitching child lying on the door board.
+The father tried to prostrate himself in gratitude. "Go!" Liu San ordered. "Delay costs lives!" Then he turned on the crowd pressing close. "Out! Everyone out! What good is this gawking?" Tetanus patients required absolute stillness, free from any stimulation. He considered his options. The wound needed immediate disinfection. Without hydrogen peroxide, potassium permanganate would have to serve—precious stuff now, and his kit held little of it. As he deliberated, Dong Weiwei appeared in the doorway.
 
-"Tetanus!" Liu San explained. "You have to help me."
+"Doctor Liu, come eat. I made fried rice noodles—" She froze at the sight of the convulsing child on the makeshift stretcher.
 
-"Okay, okay." Dong Weiwei hurriedly put on the blue cloth gown hanging on the wall. She didn't have a white coat, but ever since Liu San came, following his suggestion, she wore a gown, mask, and hat whenever seeing patients or treating.
+"Tetanus," Liu San said tersely. "I need your help."
 
-"Move him to a quiet place first. The patient cannot be stimulated." Here, for the convenience of seeing patients, all doors and windows were open, and the light was very bright.
+"Of course." Dong Weiwei hastily donned the blue cloth gown hanging on the wall. She had no proper white coat, but since Liu San's arrival, she followed his protocol—gown, mask, and cap whenever treating patients.
 
-"Move him to the east wing of the church. No one lives there." Dong Weiwei immediately found two soldiers to help carry the person to the east wing. Liu San asked people to paste paper on the windows again, making the room as dim as possible.
+"We need to move him somewhere quiet. Any stimulation will worsen the spasms." The ancestral hall, optimized for receiving patients, had windows and doors thrown wide. Light streamed in from every direction.
 
-"Prepare a 1:1000 potassium permanganate solution! Quick!" Liu San observed the wound; many dirty things adhered to it. Iron tools, rakes, farm fields—with these three elements combined, it would be strange not to get tetanus.
+"The east wing of the church. It's unoccupied." Dong Weiwei immediately summoned two soldiers to transport the boy. Liu San ordered paper pasted over the windows, dimming the room as much as possible.
 
-Dong Weiwei hurriedly took out the bottle containing potassium permanganate from the medical kit, then found an enamel basin and clear water. Suddenly she asked, "Drat! No measuring cup, no scale!"
+"Prepare a one-to-one-thousand potassium permanganate solution. Quickly." He examined the wound more closely. Filth clogged the puncture—soil, rust, organic debris. Iron implements, agricultural tools, farm fields. The combination was almost designed to breed tetanus.
 
-"Put one crystal in first, then dilute with water slowly. Watch the color of the solution!" Liu San said. "Light red is about right; purple is too concentrated."
+Dong Weiwei retrieved the permanganate bottle from the medical kit, found an enamel basin and clean water. Then she stopped. "Damn—no measuring cup, no scale!"
 
-After preparing the solution, he first debrided the wound, then flushed it continuously with potassium permanganate solution. The child twitched from time to time on the door board. Dong Weiwei quickly came up to help hold him down.
+"Start with a single crystal, then dilute gradually. Watch the color. Light red is correct; purple means too concentrated."
 
-"It's okay. Look at his tongue coating. Is it yellow and rough?"
+Solution prepared, Liu San first debrided the wound, then flushed it continuously with the antiseptic wash. The child twitched intermittently on the door board. Dong Weiwei moved to hold him steady.
 
-Dong Weiwei used a tongue depressor and finally pried open his tightly closed teeth with great difficulty.
+"It's manageable. Check his tongue—is the coating yellow and rough?"
+
+She pried open his clenched teeth with difficulty using a tongue depressor.
 
 "No!"
 
-"How is the body temperature? Is there a fever?"
+"Body temperature? Fever?"
 
-"Fever." Dong Weiwei touched his forehead. "Do we need a thermometer?"
+"Yes." She touched his forehead. "Do we need the thermometer?"
 
-"How is the sweating situation?"
+"Is he sweating?"
 
-"Sweating, but not profuse sweating."
+"Sweating, but not profusely."
 
-Liu San looked at his complexion again. No terrible bluish-purple color appeared, which meant the condition hadn't entered the second stage yet—TCM called it "Wind toxin entering the interior." The probability of success using TCM therapy was relatively high. His mood relaxed slightly.
+Liu San studied the boy's complexion. No cyanosis yet—no ominous blue-purple discoloration marked the progression to what TCM termed "wind toxin entering the interior." They remained in the early phase. The probability of successful treatment with traditional methods was still reasonable. He allowed himself a fraction of relief.
 
-"No need," he said. "The child's current stage is called 'Wind toxin in the exterior' in TCM, still in the initial phase. Feel his pulse. What is the pulse?"
+"No need for the thermometer. In TCM terms, we're still at 'wind toxin in the exterior'—initial stage. Feel his pulse. What do you find?"
 
-Dong Weiwei knew he was taking this opportunity to teach her TCM diagnosis. She felt with her fingers for a while and hesitated. "I'm not very good at this, but it feels like a wiry and rapid pulse."
+Dong Weiwei understood he was using the crisis as a teaching moment. She pressed her fingers to the boy's wrist, concentrating. "I'm not confident, but... it feels wiry and rapid."
 
-"This indicates his illness is still very serious." It depended on the speed of getting the medicine. Liu San said, "Hurrying, a round trip takes about half a day. This child can likely survive."
+"That confirms the severity of his condition." Much depended on how quickly the medicine arrived. "A round trip takes about half a day at best. If he can hold on, this child might survive."
 
-Dong Weiwei looked at this child, thin and small, dressed in rags. Suddenly compassion arose. "Actually, doesn't Bairen General Hospital have serum? Wouldn't it be fine to fetch a dose and give him a shot?"
+Dong Weiwei gazed at the small figure—thin, ragged, barely more than bones wrapped in skin. Compassion welled in her chest. "Doesn't Bairen General Hospital have antitoxin serum? One dose, one injection—wouldn't that settle it?"
 
-"Hehe," Liu San laughed strangely. "There is only so much tetanus antitoxin in total, and quite a bit has been used since D-Day. We have to save it for our own people."
+Liu San gave a harsh laugh. "Our tetanus antitoxin supply is finite. A fair amount has been used since D-Day. We must reserve what remains for our own."
 
-"It doesn't matter for one dose, right?" Dong Weiwei naturally knew the value of serum.
+"Surely one dose wouldn't matter?" She knew the serum's value perfectly well.
 
-"One dose of serum can also save a life. Whose life do you say we save?"
+"One dose could also save a life. Whose life do you choose?"
 
-Dong Weiwei was speechless. This question was too cruel and too realistic.
+Dong Weiwei fell silent. The question was brutal, and brutally real.
 
-"So I have to seize every opportunity now to attempt TCM therapies." After flushing the wound, Liu San didn't cover or suture it, leaving it open. "Serum will run out one day. By then, we'll rely entirely on herbal medicine."
+"This is precisely why I must seize every opportunity to test TCM therapies." Liu San finished flushing the wound but left it open, neither bandaged nor sutured. "The serum will run out eventually. When it does, herbal medicine is all we'll have."
 
-Then, under his guidance, Dong Weiwei performed acupuncture on the patient to curb the spasm reaction.
+Under his guidance, Dong Weiwei then performed acupuncture on the patient to control the spasms.
 
-Late at night, the medicine was finally brought back. Liu San personally ground the medicine into fine powder, sifted it, mixed it, and fed it to the patient with hot wine, then applied the medicinal powder to the wound.
+Late that night, the medicine finally arrived. Liu San ground the herbs to fine powder himself, sifted and blended them, then administered the mixture with heated wine and applied powder directly to the wound.
 
-"This is improved based on a traditional patent prescription called *Yuzhen* (Jade True) Powder." Liu San handed the prescription to Dong Weiwei. "You can study it. Tetanus is a frequently encountered disease here. Mastering these makes it easy to handle."
+"This is a refinement of a traditional patent prescription—*Yuzhen* Powder, or 'Jade True Powder.'" He handed the formula to Dong Weiwei. "Study it. Tetanus is common here. Master these techniques and you'll be equipped to handle cases on your own."
 
-Like this, taking medicine and applying medicine daily, Liu San also instructed to give him saline water regularly. After a few days, the condition improved greatly, and the phenomena of spasms and rigidity disappeared. Liu San was greatly encouraged—in the past, he only knew tetanus could also be treated with TCM, but he had never seen an actual case. The case before his eyes doubled his confidence. At least a disease threatening the future health of the Transmigration Group had a corresponding treatment method. He hurriedly organized the entire treatment process, including pulse records, prescriptions, medication, and various treatment methods and measures used. This way, it could be used as a standard medical case model to teach future doctors.
+Days passed with regular doses and applications. Liu San also ordered regular administration of saline water. Gradually, the spasms subsided; the rigidity faded; the boy began to mend. Liu San felt a surge of validation. He had known, theoretically, that TCM could treat tetanus—but he had never witnessed an actual case. The evidence before him doubled his confidence. At least one disease threatening the Transmigration Group's future health had a viable treatment. He documented the entire course meticulously: pulse records, prescriptions, medications, every procedure and measure employed. Someday, this case would serve as a model for training future physicians.
 
-Seeing this child getting better day by day, because it was a life he saved himself, Liu San's feeling towards him was quite different. He often went to the ward to see him and talk. To facilitate moving around the county to collect herbs and treat diseases, Liu San learned some Lingao dialect, so communication wasn't difficult.
+Watching the boy improve day by day, Liu San felt an attachment quite different from that of a normal doctor-patient relationship. He had pulled this life back from the edge. He found himself visiting the ward often, sitting and talking with the child. To navigate the county, collect herbs, and treat patients, Liu San had acquired passable Lingao dialect, so conversation posed no difficulty.
 
-Chatting, he learned this child was surnamed Fu—Liu San knew "Fu" was a big surname in Lingao; regardless of rich or poor, high or low, many people had this surname. As for the name, there simply wasn't one, not even names like Dog Leftover or Stone. He ranked fourth, so he was called Fu Sinan—Fu Fourth Male.
+Through their talks, he learned the boy's surname was Fu—one of the great family names in Lingao, shared by rich and poor alike. As for a given name, there was none. Not even something crude like "Leftover" or "Stone." He ranked fourth among his siblings. Hence: Fu Sinan—"Fu Fourth Male."
 
-Although Fu Sinan claimed to rank fourth, he was actually the second in the family. He was eleven or twelve this year. Two of the three elder brothers before him had already died before fifteen. He had three living siblings now. Fu Sinan's family circumstances were like most people here, poor as church mice, living in a house with bamboo strip walls and thatched roofs, eating sweet potatoes and taro for half the year—and often not having enough to eat. In summary, a standard specimen of a peasant in the evil old society.
+Despite his name, Fu Sinan was actually the second surviving child in the family. He was eleven or twelve. Of the three elder brothers born before him, two had died before reaching fifteen. Three younger siblings still lived. The family's circumstances mirrored those of most villagers—abject poverty. Their home was bamboo and thatch, their diet sweet potatoes and taro for half the year, with frequent hunger even then. A standard specimen of peasant life under the old regime.
 
-After talking with him for a few days, Liu San realized this child had great attainments in gardening—he was responsible for tending his family's vegetable garden. Moreover, he had a personality willing to communicate with others, which was rare here. In Liu San's experience, common folks in this timeline were generally silent gourds; basically, they either answered one question at a time or simply rolled their eyes and didn't speak.
+Over several days of conversation, Liu San discovered that this child possessed genuine aptitude for gardening—he tended the family vegetable plot. More remarkably, he was willing to talk, to engage openly with a stranger. In Liu San's experience, common folk of this era were usually sullen gourds, answering only when questioned directly, or simply staring in silence.
 
-Having such an expressive and communicative child made Liu San feel in a very good mood. Thinking of the Executive Committee's call for everyone to "take apprentices," and that he was good at gardening and planting which would be very helpful for his own herb growing, Liu San asked:
+Finding such an expressive, communicative child lifted Liu San's spirits. He recalled the Executive Committee's call for everyone to "take apprentices," and reflected that a boy skilled in cultivation would be invaluable for growing medicinal herbs. He asked:
 
 "Can you read?"
 
 "No." Fu Sinan shook his head.
 
-"Want to learn to read?"
+"Would you like to learn?"
 
-"No money to learn..."
+"There's no money for learning..."
 
-"Mm, how about being an apprentice with me? You can be a doctor in the future too."
+"What if you became my apprentice instead? You could be a doctor someday too."

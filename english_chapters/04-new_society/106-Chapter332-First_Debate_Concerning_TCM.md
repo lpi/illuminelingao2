@@ -1,133 +1,129 @@
 # Chapter 332 - First Debate Concerning TCM
 
-Hearing this, Fu Sinan immediately rolled off the bed and kowtowed to Liu San. Liu San hurriedly pulled him up.
+At these words, Fu Sinan tumbled from the bed and prostrated himself, pressing his forehead to the floor. Liu San caught him by the shoulders and hauled him upright.
 
-"Don't kowtow; we don't do that here." He added, "But to be my apprentice, you have to leave home. Are you willing?"
+"None of that. We don't bow and scrape here." He paused. "But if you become my apprentice, you'll have to leave home. Are you willing?"
 
-Fu Sinan expressed his willingness on the spot. Liu San remembered a guidance document edited by Wu De called *Guidelines for Handling Relations with Indigenous People*, which stated that agreements involving personal freedom, like taking apprentices, should be documented to avoid unnecessary disputes in the future.
+Fu Sinan declared his willingness on the spot. Liu San remembered a guidance document from Wu De—*Guidelines for Handling Relations with Indigenous People*—which stipulated that agreements involving personal freedom, such as taking apprentices, should be formalized in writing to prevent future disputes.
 
-After resting for a few more days and seeing his illness had fully healed, Liu San asked the liaison officer to call Fu Sinan's parents over to discuss taking him as an apprentice. Having such a capable doctor willing to take their son was naturally excellent for this impoverished family; although they lost half a laborer, there was one less mouth to feed. Both parties signed a contract stipulating that Fu Sinan voluntarily served as Liu San's apprentice in Bairen Village for a term of seven years. During this period, life and death were up to fate.
+After a few more days of rest, once the boy's recovery was complete, Liu San dispatched the liaison officer to summon Fu Sinan's parents for discussion. The prospect delighted the impoverished family. Though they would lose half a laborer, they would also shed one hungry mouth. A fair exchange. Both parties signed a contract: Fu Sinan would serve as Liu San's apprentice in Bairen Village for a term of seven years, during which time life and death lay in heaven's hands.
 
-With the document signed, in the legal sense of the Great Ming, Fu Sinan was Liu San's apprentice. Liu San could treat him however he wanted, short of beating him to death.
+With the document signed and stamped, Fu Sinan became Liu San's apprentice under the laws of the Great Ming. Liu San could now treat the boy however he saw fit—provided he stopped short of beating him to death.
 
-After taking the apprentice, Liu San thought he needed to "purify" him and also wipe out his illiteracy, lest he couldn't even read basic medical books. He had no intention of staying in Daolu Village anymore, and after instructing Dong Weiwei, he took his apprentice back to Bairen.
+Having acquired an apprentice, Liu San determined to "purify" the child and eliminate his illiteracy, lest he prove unable to read even basic medical texts. There was no reason to linger further in Daolu Village. After instructing Dong Weiwei on essential matters, he set out for Bairen with his new charge.
 
-Fu Sinan insisted on carrying Liu San's basket. Liu San laughed, "I'd better carry it myself."
+Fu Sinan insisted on carrying the medicine basket. Liu San laughed. "I'd better carry it myself."
 
-"When there is work to be done, the disciple undertakes the labor," Fu Sinan said respectfully.
+"When there is work to be done, the disciple undertakes the labor," the boy recited respectfully.
 
-"Oh, aren't you illiterate? Speaking so bookishly as soon as you open your mouth." Although he said so, Liu San still carried the basket on his own back.
+"Oh? I thought you couldn't read. Where did you learn to speak so bookishly?"
 
-"The village schoolteacher said it," Fu Sinan said seriously. "In the past, when passing by the private school, whenever the teacher asked students to work, he always recited this sentence."
+"The village schoolteacher used to say it." Fu Sinan's expression was perfectly earnest. "Whenever I passed the private school and the master set students to chores, he always spoke that phrase."
 
-"It seems you love studying quite a bit." Liu San felt satisfied. If the boy didn't love reading, the plan to cultivate him would be hopeless. It seemed he not only loved reading but also had a good memory.
+"It seems you love learning." Liu San felt a swell of satisfaction. If the boy had no passion for study, any plan to cultivate him would be hopeless. But this one clearly loved books—and possessed a retentive memory besides.
 
-"Yes, Master," Fu Sinan said.
+"Yes, Master."
 
-Liu San took Fu Sinan to Bairen. Everything here amazed and confused the boy who had just stepped into this place for the first time. After all, he was a child who hadn't even been to the county seat. He had heard fellow villagers say that outside the county seat there was now an East Gate Market which was the most prosperous place around, having not only wealth but also many fresh gadgets that people hadn't seen for generations. Arriving at East Gate Market, his eyes felt insufficient to take everything in.
+Liu San led Fu Sinan to Bairen. Everything there bewildered and amazed the child who had never ventured as far as the county seat. Fellow villagers had spoken of a wondrous place called East Gate Market, now the most prosperous corner of the region, brimming with riches and marvels unseen for generations. When they reached it, the boy's eyes darted everywhere, unable to absorb the spectacle fast enough.
 
-"Stop looking, silly boy." Liu San patted his head. "You'll have plenty of time to look later."
+"Stop gawking, silly boy." Liu San patted his head. "You'll have plenty of time to look around later."
 
-Saying this, he took the child to a group of buildings surrounded by barbed wire outside Bairen City—this was a quarantine camp. To adapt to the increasing number of personnel recruited from the locals, the Ministry of Health had established a quarantine camp outside Bairen City as well.
+He steered the child toward a cluster of buildings enclosed by barbed wire on the outskirts of Bairen—the quarantine camp. To accommodate the growing number of locally recruited personnel, the Ministry of Health had established this facility.
 
-The person in charge here was Bai Yu from the Ministry of Education. When this big man of 1.80 meters swayed in front of them, Fu Sinan sucked in a breath of cold air. The legend that Australians were tall and strong was really not a boast.
+The officer in charge was Bai Yu from the Ministry of Education. When this mountain of a man, standing a full 1.8 meters, came swaying toward them, Fu Sinan drew a sharp breath. The legends about Australians being tall and mighty were apparently no exaggeration.
 
 "Call him Teacher Bai!" Liu San instructed.
 
-Fu Sinan wanted to prostrate himself and kowtow again. Bai Yu stopped him. "We don't allow kneeling to people!"
+Fu Sinan made to drop and kowtow again. Bai Yu stopped him with an outstretched hand. "We don't kneel to people here!"
 
-Being lifted by this big man, the thin and small Fu Sinan had no resistance at all and was immediately hoisted up.
+Lifted bodily by this giant, the scrawny Fu Sinan offered no resistance whatsoever. He found himself hoisted upright before he could protest.
 
-"Teacher Bai," he called out honestly.
+"Teacher Bai," he called out obediently.
 
-"Bai Yu, I hand this child over to you."
+"This child is now in your hands, Bai Yu."
 
-"Where is this child from?" Bai Yu looked him over. "Looks a bit weak."
+Bai Yu looked the boy over. "Where is he from? Looks rather weak."
 
-"From the Thirteen Villages area. He was sick recently, hasn't been well for long."
+"The Thirteen Villages area. He's been recovering from an illness."
 
-"Quite a few children sent from that place recently." Bai Yu flipped through the register. "This child of yours isn't in the transfer plan."
+"We've had quite a few from that region lately." Bai Yu flipped through a register. "I don't see this child on any transfer list."
 
-"He's the apprentice I took. Just sign him up for a literacy class; I'll teach him the rest myself."
+"He's my apprentice. Just enroll him in the literacy class; I'll handle his further education myself."
 
-"You took an apprentice too?" Bai Yu laughed. "That guy Nanhai accepts female disciples, raising lolis from a young age. Why did you choose a male apprentice? Raising a shota?"
+"You've taken an apprentice too?" Bai Yu let out a laugh. "That fellow Nanhai only takes female disciples—raising lolis from infancy, they say. Why'd you choose a boy? Raising a shota?"
 
-"Stop joking," Liu San said. "Having an apprentice means having an extra helper. I leave this child to you."
+"Spare me your jokes." Liu San waved the innuendo aside. "An apprentice means an extra pair of hands. I'm entrusting this child to you."
 
-"Okay, I'll teach him well," Bai Yu guaranteed. He said to Fu Sinan, "Come, let's wash you clean first."
+"Very well. I'll see he's properly trained." Bai Yu turned to Fu Sinan. "Come along. First, we'll get you clean."
 
-Fu Sinan enjoyed the full purification process. When he came out, he was already a bald kid wearing a standard blue cloth student uniform. He seemed quite confused about his new image.
+Fu Sinan underwent the full purification regimen. When he emerged, he was shorn bald and clad in the standard blue student uniform. His own reflection seemed to puzzle him greatly.
 
-"Alright." Liu San looked satisfyingly at this person emitting the smell of plant saponin extract. "You have to live here for dozens of days, listen to the teachers, and study hard. Otherwise, he will whip your butt until you can't sit down. I'll pick you up in a while."
+"There." Liu San surveyed the newly scrubbed boy, who now exuded the sharp scent of saponin extract. "You'll live here for several weeks. Obey your teachers and study diligently. Otherwise, they'll cane your backside until you can't sit down. I'll return for you in due time."
 
-Fu Sinan said he was ready to get beaten—which apprentice wasn't beaten by the master, mistress, and senior brothers?
+Fu Sinan announced his readiness for beatings—what apprentice wasn't struck by his master, the master's wife, and senior disciples?
 
-Bai Yu pulled over a notebook. "What's his name, how old?"
+Bai Yu pulled out a notebook. "Name? Age?"
 
 "Fu Sinan. Eleven years old."
 
-"The name has to be changed." Bai Yu frowned seriously. "All names like this, who can tell them apart!"
+"That name won't do." Bai Yu frowned gravely. "With names like that, how is anyone supposed to tell you all apart?"
 
-"Just call him Fu Wuben," Liu San said.
+"Call him Fu Wuben," Liu San suggested.
 
-So Fu Sinan was renamed Fu Wuben. He received a sturdy cloth bag filled to the brim with two wide straps stitched on, and a small bamboo plaque tied with a rope to hang around his neck—engraved with his name and serial number. Thus, the original Lingao native Fu Sinan formally entered the system of the Transmigrators and became Fu Wuben.
+And so Fu Sinan was renamed Fu Wuben. He received a sturdy cloth satchel stuffed full, with two broad straps stitched on for wearing, and a small bamboo plaque on a cord to hang around his neck—his name and serial number carved into it. Thus the Lingao native formerly known as Fu Sinan was formally absorbed into the Transmigration system as Fu Wuben.
 
-After completing the formalities, Liu San went to Bairen General Hospital to report on his trip to the countryside.
+Paperwork complete, Liu San proceeded to Bairen General Hospital to report on his rural expedition.
 
-He excitedly handed the medical record of treating tetanus with TCM to Shi Niaoren. "This is great! We don't have to worry about the problem after the tetanus antitoxin runs out!"
+He presented the tetanus treatment records to Shi Niaoren with palpable excitement. "This is tremendous! We won't need to worry about what happens when the antitoxin runs out!"
 
-Shi Niaoren wasn't as excited as him. He flipped through all the materials gloomily and commented:
+Shi Niaoren did not share his enthusiasm. He leafed through the documentation with a sour expression, then rendered his verdict:
 
-"Insufficient clinical trials."
+"Insufficient clinical evidence."
 
-Although Liu San was from a pharmacy background, he knew hearing this wasn't wrong. After all, since the advent of tetanus antitoxin in China, cases of treating tetanus patients solely with TCM were countable on one's fingers.
+Liu San's pharmacy training told him this objection was technically valid. Since tetanus antitoxin became available in China, cases treated solely with TCM could practically be counted on one's fingers.
 
-"But *Yuzhen* Powder treating tetanus is also one of the proven prescriptions."
+"But *Yuzhen* Powder is a proven prescription for tetanus."
 
-"First, it's hard to say now that what you cured was tetanus," Shi Niaoren said unceremoniously. "No bacterial culture, no pathology report, not even a temperature record. You can't confirm he had tetanus. This violates the rigor of modern medicine.
+"First," Shi Niaoren replied without ceremony, "we cannot actually confirm this was tetanus. You have no bacterial culture, no pathology report, no temperature chart. You cannot definitively diagnose the disease. This violates the fundamental rigor of modern medicine.
 
-"Second, regarding so-called proven prescriptions, it's not a minority that have been proven by modern medicine and pharmacy to be completely ineffective or even harmful—rabies also has proven prescriptions, seems there are several kinds. In fact? Once rabies starts, whether it's TCM or modern medicine, there's no cure! Without serum, it's a dead end."
+"Second, many 'proven prescriptions' have been demonstrated by modern medicine and pharmacology to be completely ineffective, or outright harmful. Rabies has several so-called proven treatments as well—and yet once rabies symptoms manifest, neither TCM nor modern medicine can do anything. Without serum, it's a death sentence."
 
-"Then what to do when serum runs out?" Liu San got excited hearing his beloved TCM pharmacy being criticized as worthless. "No matter how much we save, the serum will expire eventually!"
+"Then what do we do when the serum is gone?" Liu San's voice rose. If his beloved TCM pharmacopoeia was to be dismissed as worthless, what hope remained? "No matter how carefully we ration it, the serum will eventually expire!"
 
-"Mass clinical trials must be carried out. But conducting such trials now is a bit risky."
+"Large-scale clinical trials must be conducted. But running such trials now carries significant risk."
 
-So-called risky, leaving aside transmigrators themselves, even if their recruited and trained indigenous laborers and soldiers died because of this unsuccessful attempt, it would be a big loss.
+"Risk" meant that even setting transmigrators aside, the indigenous laborers and soldiers they had painstakingly recruited and trained represented substantial investment. Losing such personnel to failed experiments would be a major loss.
 
-"Can't use animal experiments?"
+"Can we use animal testing?"
 
-"Put it this way," Shi Niaoren said painfully. "People here thought of everything, but no one thought to bring a pair of white mice."
+"Here's the problem." Shi Niaoren's voice turned pained. "Everyone thought of everything when they packed the ship—except white mice. Not a single pair."
 
-"Doesn't the farm have rabbits?" With Liu San's limited zoology knowledge, he knew rabbits' reproduction rate was on par with their relative, the mouse.
+"What about rabbits? Doesn't the farm have rabbits?" Liu San's zoological knowledge was limited, but he knew rabbits reproduced nearly as prolifically as mice.
 
-"According to Nanhai, the rabbits are unwilling to breed recently; it's too hot here. Right now there are only these few rabbits, a group of people are eager to eat meat, and you expect to use them for experiments?"
+"According to Nanhai, the rabbits have stopped breeding—it's too hot here. We only have a handful left, and there's already a queue of people eager to eat them for the meat. You think anyone will let us use them for experiments?"
 
-"Since animal experiments can't be done, we have to do human experiments!" Someone spoke at the door. The two looked up; it was none other than the sole psychiatrist Jiang Qiuyan. This person had accompanied the round-island expedition team to sea and hadn't appeared in Bairen General Hospital for a while.
+"If animal testing is impossible, then we proceed directly to human trials!" A voice sounded from the doorway. Both men looked up. There stood Jiang Qiuyan, the Transmigration Group's sole psychiatrist, returned from the circumnavigation expedition.
 
-"It's you? The expedition team is back?!" Shi Niaoren was somewhat surprised.
+"You're back?!" Shi Niaoren was visibly surprised. "The expedition returned?"
 
-"Back, came back without illness or disaster!" Jiang Qiuyan looked dark-skinned, but his body was clean. He was carrying a cattail bag.
+"Arrived this morning. I've already bathed, changed, and eaten. The rest are still unloading at the pier." He grinned. "One of the perks of being a physician." His expression grew more earnest. "Why not run clinical trials directly? Minister Shi, if you're unwilling to experiment on our own laborers—take the medicine to the countryside. Test it on the general population."
 
-"When did you get back? The *Times* didn't publish news."
+The implication was clear: use commoners outside the system as test subjects. This was, in fact, Shi Niaoren's own preference—but years in America had taught him to express such things indirectly.
 
-"Entered port early in the morning. I've already taken a bath, changed clothes, and eaten a meal. Others are still busy at the pier. This counts as one of the benefits of being a doctor." He continued, "Actually, why not just do clinical trials directly? Minister Shi, you aren't willing to try on indigenous laborers. Just do it together with 'Sending Medicine to the Countryside'."
+"Hmm." Shi Niaoren remained noncommittal. "Liu San, refine this treatment protocol and formalize it."
 
-This meant using non-system commoners as clinical test subjects. Actually, this was also Shi Niaoren's real intention. However, having stayed in America for a long time, sometimes he spoke relatively implicitly.
+That amounted to approval. Liu San's indignation ebbed. He asked Jiang Qiuyan about the expedition's results.
 
-"Mm, mm," Shi Niaoren was noncommittal. "Liu San, tidy up this treatment plan first."
+"Excellent results!" Jiang Qiuyan upended a cattail bag onto the table, spilling out several coconuts. "Drink up. We collected thousands—plenty for everyone!"
 
-This roughly meant approval. Liu San's anger also subsided. He asked Jiang Qiuyan about the results of this circumnavigation expedition.
+"Wonderful." Shi Niaoren immediately ordered the entire staff summoned and fetched ice from the freezer. Soon, a cluster of doctors was happily gulping down chilled coconut water.
 
-"Great results!" Jiang Qiuyan said, pouring out several coconuts from the cattail bag. "Come, drink coconut water. We got several thousand; plenty to drink!"
+"Delicious! So refreshing!" He Ma had just finished teaching a clinical class for the intern nurses and was drenched in sweat. A cup of cold sweetness sent him practically soaring. Ai Beibei refused her share but carefully wrapped a coconut to take home to her child.
 
-"Good, good." Shi Niaoren immediately ordered everyone to be called over and got some ice cubes from the freezer. A group of doctors immediately drank iced coconut juice heartily.
+"Sister-in-law, drink freely—this batch is extra-allocation." Jiang Qiuyan smiled.
 
-"Tasty! So refreshing!" He Ma had just finished a clinical class for intern female doctors, sweating all over from the heat. With a cup of cool drink down his stomach, he was comfortable enough to fly. Ai Beibei refused to drink but carefully wrapped a coconut up, preparing to take it home for her child.
+"There's an official allocation too?" Shi Niaoren asked.
 
-"Sister-in-law, just drink freely; this is extra-plan," Jiang Qiuyan said with a smile.
+"One coconut per person, regardless of age or gender or position," Jiang Qiuyan explained. "Heavy laborers and officers receive additional rations. Indigenous employees get some as well, though not one apiece. And after you've drunk the water, the shells must be turned in to the cafeteria."
 
-"There's in-plan too?" Shi Niaoren asked.
-
-"In-plan is one per person, regardless of gender or age, regardless of job type," Jiang Qiuyan said. "In addition, heavy physical laborers and officers have extra rations. Indigenous employees can also get some, but not one per person. By the way, after drinking the water, the coconut must be handed over to the cafeteria."
-
-"Preparing to make curry? Wu Nanhai recently transferred the Indians from the labor reform team to his farm—he doesn't mind the strong smell."
+"Are they making curry? I heard Wu Nanhai transferred those Indians from the labor reform team to his farm—he doesn't seem to mind the smell."

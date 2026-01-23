@@ -1,137 +1,137 @@
 # Chapter 310: Sweet Port Turbulence — Dying Struggles
 
-"Richangji, seven thousand *shi*," Feng Guangfeng followed up. "I'll deliver the silver shortly."
+"Richangji, seven thousand *shi*," Feng Guangfeng followed up immediately. "I'll deliver the silver shortly."
 
-With two firms committed, the others who had been observing also pledged their numbers—some three thousand, some five thousand, some ten thousand. The total exceeded one hundred fifty thousand *shi*. Chen Tianxiong knew that most were holding back; these figures were just stones cast to test the water.
+With two firms now committed, the others who had been observing likewise pledged their quantities—some three thousand, some five thousand, some ten thousand. The total exceeded one hundred fifty thousand *shi*. Chen Tianxiong knew that most were holding back; these figures were merely stones cast to test the waters.
 
-However, had they been too enthusiastic, South China Sugar would have had to disgorge some of the sugar already collected to ration it to them, which would mean a loss. This way, everyone was satisfied.
+However, had they been overly enthusiastic, South China Sugar would have been forced to disgorge some of the sugar already collected to distribute among them, which would have meant losses. This way, everyone was satisfied.
 
-"With this Sugar Industry Guild, what of the Haiyi Guild?" someone asked the sharp question. If Master Zhu forbade them from joining and insisted on maintaining the Haiyi Guild, how would they handle him?
+"With this Sugar Industry Guild established, what becomes of the Haiyi Guild?" someone posed the sharp question. If Master Zhu forbade them from joining and insisted on maintaining the Haiyi Guild, how would they handle him?
 
-The representatives shifted uneasily in their seats, whispering.
+The representatives shifted uneasily in their seats, exchanging whispers.
 
-Everyone knew Master Zhu wouldn't give up easily; a vicious fight was inevitable. He had money and the ability to direct various dark forces. He was not to be underestimated.
+Everyone understood that Master Zhu wouldn't surrender easily; a vicious fight was inevitable. He possessed money and the ability to direct various dark forces. He was not to be underestimated.
 
-To this, Chang Shide replied that South China Sugar would handle the matter properly. Specific negotiations would be conducted by the factory. If Master Zhu looked for trouble with anyone, South China Sugar would stand up for them, never breaking its word.
+To this, Chang Shide replied that South China Sugar would handle the matter properly. Specific negotiations would be conducted by the factory. If Master Zhu sought trouble with anyone, South China Sugar would stand behind them, never breaking its word.
 
-"I think everyone knows: South China Sugar has the ability to back up its words."
+"I believe everyone is aware: South China Sugar possesses the capability to support its promises."
 
-Chang Shide spoke decisively. The attendees, though somewhat uneasy, accepted it.
+Chang Shide spoke decisively. The attendees, though somewhat uneasy, accepted the assurance.
 
-"The meeting was a success," Wen Tong said to Chang Shide. "But why not form a joint-stock company directly? Why start with proxy purchasing and sales?"
+"The meeting was a success," Wen Tong remarked to Chang Shide afterward. "But why not form a joint-stock company directly? Why commence with proxy purchasing and sales?"
 
-"Let them taste the sweetness first," Chang Shide said. "At the start, they don't trust us enough. Once this year's business is done and they see the benefits of following us over that rubbish Haiyi Guild, talking about a joint-stock company will be promising."
+"Let them taste the sweetness first," Chang Shide explained. "At the outset, they don't trust us sufficiently. Once this year's business concludes and they recognize the benefits of following us over that worthless Haiyi Guild, discussing a joint-stock company will become feasible."
 
-"The next step is consolidating gains, especially guarding against Zhu An's counterattack," Chen Tianxiong reminded them. "Master Zhu is still on Hai'an Street. A centipede dies but never falls down. His dormancy might be waiting for a chance to strike. We need a response plan quickly."
+"The next step is consolidating our gains, especially guarding against Zhu An's counterattack," Chen Tianxiong reminded them. "Master Zhu remains on Hai'an Street. A centipede dies but never falls. His dormancy might be merely waiting for an opportunity to strike. We need a response plan immediately."
 
-"Ideally, neutralize him quickly, or long nights will bring many dreams." Chang Shide warned: whether the Leizhou Sugar Industry Guild could ultimately be established depended on South China Sugar's ability to swiftly eliminate Master Zhu's power.
+"Ideally, we neutralize him swiftly, lest long nights breed many dreams." Chang Shide warned: whether the Leizhou Sugar Industry Guild could ultimately be established depended on South China Sugar's ability to eliminate Master Zhu's power rapidly.
 
-"We could just off him, but that might make these sugar merchants feel 'the fox mourns the death of the rabbit.'" Chang Shide propped his chin on his hand. "We hesitate to throw at the rat for fear of breaking the vase."
+"We could simply dispatch him, but that might make these sugar merchants feel 'the fox mourns the death of the rabbit.'" Chang Shide propped his chin on his hand. "We hesitate to throw at the rat for fear of shattering the vase."
 
-"Ignore that for now. Make Feng Guangfeng the liaison. Tell them all funds must be paid within three days, or the contracts are void," Chen Tianxiong said. "This money is their pledge of allegiance, preventing wavering."
+"Set that aside for now. Make Feng Guangfeng the liaison. Inform them all funds must be remitted within three days, or the contracts are void," Chen Tianxiong said. "This money serves as their pledge of allegiance, preventing wavering."
 
-"Right, I'll have Liao Daxing handle it, and tell Liao Diahua to prepare men and carts to pick up silver on Hai'an Street."
+"Right. I'll have Liao Daxing handle it, and instruct Liao Diahua to prepare men and carts to collect silver on Hai'an Street."
 
-This was no small sum. Chen Tianxiong calculated after the meeting and was shocked—these merchants would hand over 375,000 taels of silver! Nearly 15 metric tons!
+This was no small sum. Chen Tianxiong calculated after the meeting and was astonished—these merchants would hand over 375,000 taels of silver! Nearly 15 metric tons!
 
-"Truly a lot!" Chen Tianxiong felt the importance of a bank even more. Leaving aside paper currency, if there were remittance services, a single draft would solve this. Now, moving and storing 15 tons of silver was a headache.
+"Truly substantial!" Chen Tianxiong felt the importance of a bank even more keenly. Leaving aside paper currency, if remittance services existed, a single draft would resolve everything. As matters stood, moving and storing 15 tons of silver presented a considerable headache.
 
-Since starting sugar acquisitions, South China Sugar had spent massive time and energy on storing, guarding, and dispensing silver. All silver shipped in was "Official Treasure" re-smelted in Guangzhou furnaces—uniform purity, fifty taels per ingot. This simplified packing, transport, and counting.
+Since commencing sugar acquisitions, South China Sugar had expended massive time and energy on storing, guarding, and dispensing silver. All silver shipped in was "Official Treasure" re-smelted in Guangzhou furnaces—uniform purity, fifty taels per ingot. This simplified packing, transport, and counting.
 
-But in actual operation, it became complex. Sugar payments were fractional; one couldn't use fifty-tael ingots for everything. The factory had to buy silver shears and scales. Whole ingots were clipped into fragments. The process was tedious and incurred high wastage.
+But in actual practice, it became complex. Sugar payments were fractional; one couldn't employ fifty-tael ingots for everything. The factory had been obliged to purchase silver shears and scales. Whole ingots were clipped into fragments. The process was tedious and incurred substantial wastage.
 
-As for the silver coming from the sugar firms, it would undoubtedly be broken bits of varying purity. Liao Daxing had warned them to find assayers early; mistaking debased silver for pure "snowflake" silver would mean huge losses.
+As for the silver arriving from the sugar firms, it would undoubtedly consist of broken bits of varying purity. Liao Daxing had already warned them to engage assayers promptly; mistaking debased silver for pure "snowflake" silver would mean enormous losses.
 
-"The Executive Committee has opened a bank in Guangzhou," Wen Tong passed around a recent internal bulletin. "I think we can request a local branch here."
+"The Executive Committee has established a bank in Guangzhou," Wen Tong circulated a recent internal bulletin. "I think we can request a local branch here."
 
-"Call it South China Sugar Bank!" Chang Shide had a sudden idea. "We'll soon have nearly 400,000 in cash—isn't that a reserve?"
+"Call it South China Sugar Bank!" Chang Shide was struck by sudden inspiration. "We'll soon have nearly 400,000 in cash—isn't that a reserve?"
 
-"The name is inappropriate," Chen Tianxiong said. "Financial systems must adhere to the Executive Committee's unified arrangement; we shouldn't start our own set. Besides, we aren't finance people. Best let professionals handle it."
+"The name is inappropriate," Chen Tianxiong objected. "Financial systems must adhere to the Executive Committee's unified framework; we shouldn't establish our own parallel structure. Besides, we aren't finance professionals. Best to let experts handle it."
 
-Chang Shide, sharp as he was, understood immediately. "Right, right. Let's telegram the Executive Committee to open a branch." He added, "Leizhou's sugar industry really needs a bank."
+Chang Shide, sharp as ever, understood immediately. "Right, right. Let's telegram the Executive Committee to open a branch." He added, "Leizhou's sugar industry genuinely requires banking services."
 
-"Yes," Wen Tong said. "After controlling sales, the next step is helping farmers increase production."
+"Yes," Wen Tong agreed. "After controlling sales, the next step is assisting farmers to increase production."
 
-Increasing production required promoting new planting techniques and sugar cooperatives. Gaining farmers' trust wasn't easy, but they had built a good reputation during this acquisition war. With a bank, they could use financial tools to issue low-interest loans to support production.
+Increasing production required promoting new planting techniques and sugar cooperatives. Gaining farmers' trust wouldn't be easy, but they had built a sound reputation during this acquisition war. With a bank, they could employ financial instruments to issue low-interest loans supporting production.
 
-While they discussed, Zhou Shizhai asked to see them.
+While they discussed, Zhou Shizhai requested an audience.
 
-"Someone intends harm to South China Sugar," he said bluntly.
+"Someone intends harm to South China Sugar," he stated without preamble.
 
-They exchanged glances. What should come had come—Master Zhu was indeed bent on destruction. Desperate like a cornered dog, he might resort to despicable means.
+They exchanged glances. What they had anticipated had arrived—Master Zhu was indeed bent on destruction. Desperate like a cornered dog, he might resort to despicable methods.
 
 "What's the situation?"
 
-"Liao Diahua's men heard that Zhao Jijiao's people are buying oil and dry firewood—they're a bunch of punks who don't cook. What do they need that for? Probably arson. They've been spending lavishly lately, gambling and whoring, clearly having received a big payout."
+"Liao Diahua's men have learned that Zhao Jijiao's people are purchasing oil and dry firewood—they're a gang of punks who don't cook. What would they need that for? Probably arson. They've been spending lavishly lately, gambling and whoring, clearly recipients of a substantial payout."
 
-Zhou Shizhai wiped sweat from his brow. "Also, rumors are spreading in the Leizhou underworld that South China Sugar holds hundreds of thousands in silver but has weak defenses. Kidnapping a few managers could extort a huge sum."
+Zhou Shizhai mopped sweat from his brow. "Additionally, rumors are circulating in the Leizhou underworld that South China Sugar holds hundreds of thousands in silver but maintains weak defenses. Kidnapping a few managers could extort an enormous sum."
 
-"Vicious. Using unseen silver to lure others to do their dirty work," Chen Tianxiong commented.
+"Vicious. Using unseen silver to entice others to do their dirty work," Chen Tianxiong commented.
 
-"Don't joke. Being kidnapped would be ugly." Wen Tong looked grim.
+"Don't joke. Being kidnapped would be humiliating." Wen Tong's expression was grim.
 
-"If Li Siya kidnapped you, you'd probably enjoy it. By the way, she's your clansman."
+"If Li Siya kidnapped you, you'd probably enjoy it. Incidentally, she's your clansman."
 
-"Stop joking," Wen Tong said anxiously. "Li Siya or Li Sisu, what if we get kidnapped?"
+"Stop jesting," Wen Tong said anxiously. "Li Siya or Li Sisu—what if we actually get kidnapped?"
 
-"Kidnapping isn't a huge worry," Zhou Shizhai said. "Scattered bandits can't do much, and the managers carry weapons. The real concern is bandits banding together to raid—that must be guarded against."
+"Kidnapping isn't our greatest concern," Zhou Shizhai observed. "Scattered bandits can accomplish little, and the managers carry weapons. The genuine worry is bandits banding together to raid—that must be guarded against."
 
-"Banding together?" Chang Shide asked. "How?"
+"Banding together?" Chang Shide inquired. "How so?"
 
-Zhou Shizhai explained that while there were no large bandit armies in Leizhou, small groups of four or five abounded, robbing lone travelers. Some groups under a hundred raided farmers. To rob a firm like South China Sugar, they'd need four or five hundred men. Bandits valued numbers; even if they lacked real fighters, they would drag along farmers to pad their ranks and intimidate civilians.
+Zhou Shizhai explained that while no large bandit armies operated in Leizhou, small groups of four or five abounded, robbing lone travelers. Some bands numbering under a hundred raided farming villages. To assault a firm like South China Sugar, they would require four or five hundred men. Bandits valued numbers; even if they lacked genuine fighters, they would drag along farmers to pad their ranks and cow civilians.
 
-"Hai'an Street is wealthier than us. Why not rob them?" Wen Tong found it strange.
+"Hai'an Street is wealthier than us. Why don't they rob them?" Wen Tong found it peculiar.
 
-"Fear of death," Zhou Shizhai answered simply. Hai'an Street had hundreds of local militia paid by the shops. Well-fed and paid, they fought well. Bandits needed good teeth to bite that bone.
+"Fear of death," Zhou Shizhai answered simply. Hai'an Street maintained hundreds of local militia paid by the shops. Well-fed and well-compensated, they fought competently. Bandits needed strong teeth to bite that bone.
 
-"We are new. Bandits don't know our strength. If incited to believe there's a fortune here, they might gather a large force. We must guard against it." Zhou Shizhai now fully considered himself part of the Transmigration Group.
+"We are newcomers. Bandits don't know our strength. If incited to believe there's a fortune here, they might assemble a substantial force. We must guard against it." Zhou Shizhai now fully considered himself part of the Transmigration Group.
 
-"How about the militia? Can they hold?"
+"What about our militia? Can they hold?"
 
-"Yes," Zhou Shizhai said. "With Comrade Bei training them, they should hold for a while."
+"Yes," Zhou Shizhai confirmed. "With Comrade Bei training them, they should hold for some time."
 
-The transmigrators were less confident. They knew the militia's issues: workers were busy with factory tasks, leaving little time for training. Beiwei's arrival had only slightly improved things.
+The transmigrators were less confident. They understood the militia's limitations: workers were occupied with factory tasks, leaving scant time for training. Beiwei's arrival had only marginally improved matters.
 
-"Don't worry too much. This is the county seat's doorstep. Bandits dare not stay long; hit and run. As long as we deny them the initial success."
+"Don't worry excessively. This is the county seat's doorstep. Bandits won't dare linger—hit and run. As long as we deny them initial success."
 
-"True, but we must protect ourselves," Chen Tianxiong said. "Until this is settled, don't go out lightly. Strengthen gate guards. Keep militia on standby. Even when Liao Da, Liao Er, or the Wen brothers go out, assign armed escorts."
+"True, but we must protect ourselves," Chen Tianxiong agreed. "Until this is resolved, don't venture out casually. Strengthen gate guards. Keep militia on standby. Even when Liao Da, Liao Er, or the Wen brothers go out, assign armed escorts."
 
-"Beware of arson too," Chang Shide added. "The factory is okay; construction makes arson hard, and fires won't spread. But the workers' village for the displaced—straw sheds. One spark and it's disaster. Deaths would be terrible."
+"Beware of arson as well," Chang Shide added. "The factory is reasonably secure; construction makes arson difficult, and fires won't spread. But the workers' village housing the displaced—straw sheds. One spark and it's catastrophe. Deaths would be terrible."
 
-"Old Wen, arrange for Liao Daxing to check it out. Give them a warning!"
+"Old Wen, arrange for Liao Daxing to inspect it. Give them a warning!"
 
-"Also—" Chen Tianxiong remembered something. "Telegram Guangzhou and Lingao. The sea situation might not remain calm. We took out one Gu Dachun, but Wang Dachun or Li Dachun might covet this meat."
+"Also—" Chen Tianxiong recalled something. "Telegram Guangzhou and Lingao. The sea situation may not remain tranquil. We eliminated one Gu Dachun, but Wang Dachun or Li Dachun might covet this prize."
 
-"Mm. And the Gu pirates aren't fully wiped out. Main force gone, but they have silver and men. They might return for revenge."
+"Mm. And the Gu pirates aren't entirely exterminated. Their main force is destroyed, but they still possess silver and men. They might return seeking revenge."
 
-Lingao had sent a summary of enemy intelligence based on interrogations from the Chrysanthemum Islet battle. The Gu gang still had about twenty or thirty men and a single-masted boat for liaison.
+Lingao had transmitted a summary of enemy intelligence based on interrogations from the Chrysanthemum Islets battle. The Gu gang still retained approximately twenty or thirty men and a single-masted boat for liaison purposes.
 
-"Since we have prisoners, why didn't the Navy just wipe them out at their base?" Wen Tong asked.
+"Since we have prisoners, why didn't the Navy simply eliminate them at their base?" Wen Tong asked.
 
-"Difficult," Chen Tianxiong explained. The pirate nest wasn't a water fortress on an island but ordinary fishing villages on the coast, mixed with regular fishermen. Hard to distinguish.
+"Too difficult," Chen Tianxiong explained. The pirate nest wasn't a water fortress on an island but ordinary fishing villages along the coast, intermixed with regular fishermen. Distinguishing friend from foe was problematic.
 
-"Well, I think they will come." Chen Tianxiong leaned back. "Xiao Zhanfeng said Master Zhu has a concubine who is Gu Dachun's sister."
+"Well, I believe they will come." Chen Tianxiong leaned back in his chair. "Xiao Zhanfeng mentioned that Master Zhu keeps a concubine who is Gu Dachun's sister."
 
-The atmosphere grew tense. In the following days, patrolling militia extinguished several fires started by tossed incendiaries. Thanks to fire prevention measures, only walls were blackened. Intelligence from Liao Diahua confirmed the arsonists were Zhao Jijiao's gang—punks with no grudge against South China Sugar, clearly hired by Master Zhu.
+The atmosphere grew tense. In the following days, patrolling militia extinguished several fires ignited by thrown incendiaries. Thanks to fire prevention measures, only walls were blackened. Intelligence from Liao Diahua confirmed the arsonists were Zhao Jijiao's gang—punks with no grudge against South China Sugar, clearly hired by Master Zhu.
 
-Arson attacks became frequent, occurring once or twice almost every night. Finding the factory and merchant house hard to burn, targets shifted to the workers' living quarters.
+Arson attacks became frequent, occurring once or twice nearly every night. Finding the factory and merchant house difficult to burn, targets shifted to the workers' living quarters.
 
-The most dangerous incident occurred in the workers' village. A straw shed was ignited at night. The factory watchtower pushed the alarm; the fire brigade extinguished it in ten minutes.
+The most perilous incident occurred in the workers' village. A straw shed was ignited at night. The factory watchtower sounded the alarm; the fire brigade extinguished it within ten minutes.
 
-The arsonist was caught on the spot by workers. Recognized as one of Zhao Jijiao's punks, seeing no escape, he slammed his head against a rock, then lay howling on the ground covered in blood. The angry workers fell silent.
+The arsonist was apprehended on the spot by workers. Recognized as one of Zhao Jijiao's punks, realizing there was no escape, he slammed his head against a rock, then lay howling on the ground, covered in blood. The enraged workers fell silent.
 
-"What is he howling about?" Chang Shide asked.
+"What is he howling about?" Chang Shide inquired.
 
-"Basically that we bully people, beating him without cause. If we don't pay for his injuries, he'll die at our gate," Liao Daxing smiled bitterly. "These punks fear nothing. If provoked, they might really hang themselves at your door, causing a lawsuit that ruins you."
+"Essentially that we're bullying him, beating him without cause. If we don't compensate for his injuries, he'll die at our gate," Liao Daxing replied with a bitter smile. "These punks fear nothing. If provoked, they might actually hang themselves at your door, generating a lawsuit that ruins you."
 
-"Oh?" Chang Shide knew the type—a "hobnailed rascal." Sending them to the *yamen* meant release soon after. Even with money spent, at most a beating and pillory, which they didn't fear. Punks often colluded with *yamen* runners. Even if officials wanted to act, subordinates would hamper them, turning big issues small. Hard to punish.
+"Oh?" Chang Shide recognized the type—a "hobnailed rascal." Sending them to the *yamen* meant release soon after. Even with money expended, at most a beating and pillory—which they didn't fear. Punks often colluded with *yamen* runners. Even if officials wished to act, subordinates would obstruct them, reducing major matters to minor ones. Punishment was elusive.
 
-While wondering what to do, Ma Sanqiang squeezed through the crowd and shouted: "Boss, this man burned our house and injured a child inside! I ask the Boss one question: will you handle it?!"
+While pondering what to do, Ma Sanqiang pushed through the crowd and shouted: "Boss, this man burned our house and injured a child inside! I ask the Boss one question: will you handle this?!"
 
-Chang Shide understood the situation instantly. A punk's life versus the hearts of a host of sugar workers—the choice was obvious.
+Chang Shide grasped the situation instantly. A punk's life versus the hearts of a host of sugar workers—the choice was obvious.
 
-"Of course I'll handle it!" Chang Shide said decisively, waving his hand. "Serve this 'gentleman' well. Make it clean!"
+"Of course I'll handle it!" Chang Shide declared decisively, waving his hand. "Attend to this 'gentleman' properly. Make it clean!"
 
-Several special forces soldiers brought by Beiwei were in the crowd. Hearing this, they moved instantly. One stepped on the man; another grabbed a handful of mud and straw, stuffing it into his mouth. The screaming thug gagged and went limp from asphyxiation. The two soldiers wrapped him in a straw mat and carried him away silently.
+Several special forces soldiers brought by Beiwei stood among the crowd. Hearing this, they moved instantly. One stepped on the man; another seized a handful of mud and straw, stuffing it into his mouth. The screaming thug gagged and went limp from asphyxiation. The two soldiers wrapped him in a straw mat and carried him away in silence.
 
 **(End of Chapter)**

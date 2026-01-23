@@ -1,6 +1,6 @@
 # Chapter 379 - Dongsha Island
 
-The most problematic was phosphorus fertilizer. After much deliberation, the easiest natural phosphate source was animal bones. The Agricultural Committee had been using leftover fish bones and scraps from the seafood processing plant for fertilization, occasionally obtaining animal bones. But improving 1,500 *mu* of land—where would they get so many bones?
+The most problematic was phosphorus fertilizer. After much deliberation, the easiest natural phosphate source was animal bones. The Agricultural Committee had been using leftover fish bones and scraps from the seafood processing plant for fertilization, occasionally obtaining animal bones. But improving 1,500 *mu* of land—where would they find so many bones?
 
 Wood ash could also supplement phosphorus, but again the problem was insufficient quantity.
 
@@ -10,33 +10,33 @@ Luo Duo now worked at the Political Security Bureau's Social Department compilin
 
 Wu Nanhai's question was: how to manufacture phosphorus fertilizer without phosphate ore?
 
-"That's easy." Luo Duo said. "Boil wood ash..."
+"That's easy," Luo Duo said. "Boil wood ash..."
 
 "I know that. Animal bones too. But I need to fertilize 1,500 *mu* of severely phosphorus-deficient soil."
 
-"Get steel slag from the Metallurgy Department." Luo Duo said. "I recall they use small converters, right? Perfect." He continued: "Steel slag mixed with lime produces a crude phosphate fertilizer."
+"Get steel slag from the Metallurgy Department," Luo Duo replied. "I recall they use small converters, right? Perfect." He continued: "Steel slag mixed with lime produces a crude phosphate fertilizer."
 
-Converter steelmaking's slag-making process used sand to create acidite slag, displacing phosphorus from pig iron. So converter slag contained considerable phosphorus.
+Converter steelmaking's slag-making process used sand to create acidic slag, displacing phosphorus from pig iron. So converter slag contained considerable phosphorus.
 
 "Good." Wu Nanhai immediately called the Metallurgy Department.
 
-Ji Wusheng told him, however, that most accumulated steel slag had been used for road paving. Only a few tons remained at the steel plant.
+Ji Wusheng told him, however, that most accumulated steel slag had already been used for road paving. Only a few tons remained at the steel plant.
 
-"A few tons will do." Fa Shilu said. "Let's make do. If not enough, use lots of wood ash—have the Citizens' School students launch a wood ash recycling campaign. Also apply peat heavily."
+"A few tons will do," Fa Shilu said. "Let's make do. If not enough, use lots of wood ash—have the Citizens' School students launch a wood ash recycling campaign. Also apply peat heavily."
 
 "I wonder if External Trade Committee ever finalized Nanbao?"
 
-Nanbao's mines produced lignite and peat that in modern times were Lingao's main fertilizer source. The transmigrators naturally wouldn't ignore this. But Nanbao was near Li territory in hilly terrain. The Long-Range Reconnaissance Team visited several times and concluded self-extraction was too expensive—too distant, practically like opening a branch base. Better to have locals extract then purchase or requisition.
+Nanbao's mines produced lignite and peat that in modern times were Lingao's main fertilizer source. The transmigrators naturally wouldn't ignore this. But Nanbao was near Li territory in hilly terrain. The Long-Range Reconnaissance Team had visited several times and concluded self-extraction was too expensive—too distant, practically like opening a branch base. Better to have locals extract then purchase or requisition.
 
 But nothing had materialized yet. Locals weren't interested in mining this black stuff. Even with transmigrator purchasing offers, no one wanted to extract and transport it.
 
 After Wu Nanhai reported the need for lignite fertilizer to the Executive Committee, Wu De decided delay was unacceptable. They would use compulsory quotas for collection. Liaisons from all villages near Nanbao were summoned and assigned quotas for extracting and transporting specified "heavy *jin*" of lignite to Bairren—in return, their grain obligations could be offset with lignite and peat.
 
-"Many thanks." Wu Nanhai was nearly moved to tears. "Actually, phosphate ore would be even better..."
+"Many thanks," Wu Nanhai was nearly moved to tears. "Actually, phosphate ore would be even better..."
 
-"I've no source for that." Wu De said helplessly. "There's none locally."
+"I've no source for that," Wu De said helplessly. "There's none locally."
 
-"How about sailing to Yulin Harbor for mining?" Wu Nanhai said. He'd seen in bulletins that phosphate deposits were found near Tiandu.
+"How about sailing to Yulin Harbor for mining?" Wu Nanhai suggested. He'd seen in bulletins that phosphate deposits were found near Tiandu.
 
 Ma Qianzhu shook his head: "The Yulin phosphate isn't at the coast—must go over ten kilometers inland. No roads, no equipment—can't get it back in under a month."
 
@@ -44,25 +44,27 @@ Ma Qianzhu shook his head: "The Yulin phosphate isn't at the coast—must go ove
 
 "Well—" Ma Qianzhu considered. The Agricultural Committee wasn't the only one needing phosphorus. The Chemical Industry Department and Weapons Group had also requested phosphate ore. Making everyone wait half a year for Tiandu development—other things could wait, but grain couldn't.
 
-"Let me ask Resources Department if there's a quick, economical method." Ma Qianzhu shook the telephone on his desk: "Switchboard, this is Planning Committee—connect me to Office 22."
+"Let me ask Resources Department if there's a quick, economical method." Ma Qianzhu picked up the telephone on his desk: "Switchboard, this is Planning Committee—connect me to Office 22."
 
-"For the fastest solution, go to Dongsha Island for guano." The Long-Range Reconnaissance Team's secretary Zhao Xue answered. "Per resource maps, it's not far from here. The island has mountains of guano deposits—easy open-pit extraction. One shipload should be enough."
+"For the fastest solution, go to Dongsha Island for guano," came the Long-Range Reconnaissance Team secretary Zhao Xue's reply. "Per resource maps, it's not far from here. The island has mountains of guano deposits—easy open-pit extraction. One shipload should be enough."
 
-"Guano would be even better." Wu Nanhai said. Guano was rich not just in phosphorus but also nitrogen and potassium—natural compound fertilizer. This would save potassium fertilizer too.
+"Guano would be even better," Wu Nanhai said. Guano was rich not just in phosphorus but also nitrogen and potassium—natural compound fertilizer. This would save potassium fertilizer too.
 
-"Alright, deploy the Navy." Ma Qianzhu immediately decided. "Invite Naval People's Commissar Chen Haiyang. Let's plan which ships to send."
+"Alright, deploy the Navy," Ma Qianzhu immediately decided. "Invite Naval People's Commissar Chen Haiyang. Let's plan which ships to send."
 
 Wu Nanhai felt overwhelmed by the favor—such efficiency, such decisiveness! Much better than endless "let's discuss this, let's think it over."
 
+---
+
 The decision was made: *Zhenhai* would sail to harvest guano—time was of the essence. Sending sailing ships would take ten-plus days; the hybrid-powered ship was far more convenient. After all, close-hauled sailing was skilled work. Among transmigrators, only the Qian brothers from North America were reasonably experienced—they'd at least sailed small boats before.
 
-Commanded by Lin Chuanqing, *Zhenhai* quickly located Dongsha Island following navigation charts. The island was about 2.5 kilometers wide, very flat without peaks, but covered with coconut palms. Masses of seabirds constantly circled and swooped above the island, flying around *Zhenhai*'s masts, occasionally leaving "gifts" for deck crew.
+Commanded by Lin Chuanqing, *Zhenhai* quickly located Dongsha Island following navigation charts. The island was about 2.5 kilometers wide, very flat without peaks, but covered with coconut palms. Masses of seabirds constantly circled and swooped above the island, flying around *Zhenhai*'s masts, occasionally leaving "gifts" for the deck crew.
 
 "Damn it!" Lin Chuanqing cursed, spitting. His cap had already been blessed. Fishermen were somewhat superstitious about such things—considered bad luck.
 
-"So many birds—guano must be abundant." said the enthusiastic Bai Guoshi.
+"So many birds—guano must be abundant," said the enthusiastic Bai Guoshi.
 
-"To hell with your guano." Lin Chuanqing put on a straw hat. "How did I get stuck with this assignment!"
+"To hell with your guano," Lin Chuanqing grumbled, putting on a straw hat. "How did I get stuck with this assignment!"
 
 Lin Chuanqing, a fisherman who'd also been a smuggler guide for years, knew the Dongsha route without charts. But he'd never approached this place before—the Taiwan Marine Corps stationed there made inspections troublesome. A bad-tempered officer might suspect espionage and treat you to a burst of gunfire—extremely unappetizing.
 
@@ -70,7 +72,7 @@ Lin Chuanqing, a fisherman who'd also been a smuggler guide for years, knew the 
 
 "Reduce speed, lower boats, sound depths!" Lin Chuanqing ordered. Several sailors lowered a small boat and rowed toward the island.
 
-Bai Guoshi said: "Dongsha has a lagoon—can't we sail directly in?"
+"Dongsha has a lagoon—can't we sail directly in?" Bai Guoshi asked.
 
 "Too shallow." Lin Chuanqing shook his head. Though he'd never visited Dongsha, he'd heard about it. The lagoon was very shallow. "Under a meter at low tide. Go in and you'll ground."
 
@@ -82,7 +84,7 @@ Following the sounding boat's guidance, the ship circled the island's west side.
 
 "Assemble the pontoon bridge!" Lin Chuanqing continued giving orders.
 
-Guano extraction required moving heavy loads. Without a lagoon for large-ship berthing on Dongsha, shuttling small boats was too inefficient. So *Zhenhai* carried floating pontoon sections to temporarily bridge ship and beach.
+Guano extraction required moving heavy loads. Without a lagoon suitable for large-ship berthing on Dongsha, shuttling small boats was too inefficient. So *Zhenhai* carried floating pontoon sections to temporarily bridge ship and beach.
 
 "Are there people on the island? Should everyone arm up?" Bai Guoshi asked Lin Chuanqing, putting his pistol in a waterproof holster.
 

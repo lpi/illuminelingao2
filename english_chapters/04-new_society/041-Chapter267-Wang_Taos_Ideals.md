@@ -1,126 +1,135 @@
-# Chapter 267 Wang Tao's Ideals
+# Chapter 267 — Wang Tao's Ideals
 
 "What about materials?"
 
-"Bricks, tiles, and cement. The fleet left us a few bags of cement, and we have some bricks and tiles too. We'll make the wooden planks ourselves—after all, we don't need much for a covered channel. As for iron nails and lime, we'll just buy them across the bay at the market."
+"Bricks, tiles, and cement. The fleet left us a few bags of cement, plus some bricks and tiles. We'll make the timber ourselves—after all, the conduit doesn't need much. As for iron nails and lime, we'll just buy them across the bay."
 
-"Alright then. I'll go to Anyoule Market tomorrow and sell off some goods, so we don't have to dip into those fifty taels of emergency reserves."
+"All right. I'll go to Anyoule Market tomorrow and trade off some goods. That way we don't have to dip into those fifty taels of emergency reserves."
 
-The next day, Wang Tao took Wang Degang along with Shi Jinxi and others, changed into local clothes, and headed to Anyoule Market again. This time he brought simple gifts of four varieties, as was customary for a new neighbor visiting to pay respects after moving in. Hu Xun reciprocated in kind, sending back two soup-ready sheep as a return gift. He also took the opportunity to bemoan his hardships: maintaining order in the area wasn't easy, the county had no money, tax collection was heavy, and the burdens on the locality were great. Since Shopkeeper Wang was planning to establish an estate here, he would naturally need to deal with the county officials, arrange for a land deed, and share in various miscellaneous taxes and levies in the future. His words were exceedingly polite. Wang Tao naturally agreed to everything. Striving for the tolerance and support of local powers was aligned with the current guiding principle of cooperating with indigenous forces.
+---
 
-Wang Tao led his people on a stroll through the market, selling some distilled spirits and white sugar—both of which were very well-received—and earning some bits of silver and copper in return. He bought several bolts of indigo-dyed local cloth, intending to find a tailor to make some native-style clothes—the marines' Year One uniforms were too conspicuous. But there were no tailors in the market, so he had to ask Hu Xun again, requesting that his household's maids make some. He also bought some rice, pumpkins, and vegetables from the market to improve their meals. Seeing iron pots and clay jars for sale, he bought a few of those too. Just as everyone was packed up and ready to leave, he spotted live chickens for sale at two *fen* of silver each. Wang Tao bought five or six, had the marines truss them up and hang them from carrying poles to bring back.
+The next day, Wang Tao set out with Wang Degang, Shi Jinxi, and a few others. They changed into local clothes and crossed over to Anyoule Market. This time he brought modest gifts of four varieties—the customary token for a new neighbor paying respects after moving in. Hu Xun reciprocated in kind, sending back two soup-ready sheep as a return gift. He also took the opportunity to lament his hardships: maintaining order in the area was no easy task; the county coffers were empty; tax levies were heavy, the burdens on the locality great. Now that Shopkeeper Wang intended to establish an estate here, he would naturally need to deal with county officials, register a land deed, and participate in the usual miscellaneous taxes and contributions. His words were exceedingly polite. Wang Tao agreed to everything. Courting the tolerance and backing of local powers aligned perfectly with the current policy of cooperating with indigenous forces.
 
-After exiting the stockade gate, they found a lime kiln on the shore that specialized in burning lime from oyster shells and bought several sacks of lime. Shi Jinxi haggled for a long time with the fishermen on the beach and for one tael of silver bought a small sampan. The boat was tiny, capable of holding seven or eight people at most, but it was sufficient for use within the bay. Upon returning to Yulin Fort, Wang Tao ordered the pots and jars to be placed in the kitchen for use—from now on, they wouldn't have to cook everything in mess tins. At least they could boil some soup or cook some rice.
+Wang Tao led his party through the market streets, trading distilled spirits and white sugar—both were well received—and collecting bits of silver and copper in return. He bought several bolts of indigo-dyed local cloth, intending to have native-style garments sewn for the marines; their Year One uniforms were far too conspicuous. No tailors operated in the market, however, so he had to impose on Hu Xun again, requesting that maids from his household sew the clothes. He also purchased rice, pumpkins, and vegetables to supplement their meals. Spotting iron pots and clay jars for sale, he bought several of those too. Just as they were packing up to leave, he noticed live chickens going for two *fen* of silver apiece. Wang Tao bought five or six, had the marines truss them up and sling them from carrying poles.
 
-"You bought all these chickens back to fatten us up for a feast?" Old Di was somewhat puzzled.
+Passing through the stockade gate, they found a lime kiln on the shore—oyster-shell lime burning inside—and bought several sacks. Shi Jinxi haggled with the fishermen on the beach and, for one tael of silver, acquired a small sampan. The boat was tiny—seven or eight passengers at most—but perfectly adequate for use within the bay. Upon returning to Yulin Fort, Wang Tao ordered the pots and jars placed in the kitchen; from now on, they wouldn't have to cook everything in mess tins. At least they could boil soup and steam rice properly.
 
-"For the eggs. We'll raise them." Wang Tao had the chickens set down. "With such a big courtyard, it would be a waste not to raise chickens."
+"You bought all those chickens to fatten us for a feast?" Old Di looked bemused.
 
-"Chicken droppings everywhere? It'll stink to high heaven!"
+"For the eggs. We're raising them." Wang Tao gestured for the birds to be set down. "With a courtyard this big, it'd be a waste not to keep chickens."
 
-"We'll fence off a chicken pen."
+"Chicken droppings everywhere? The place will reek to high heaven."
 
-"What are we going to feed them with?"
+"We'll fence off a pen."
 
-"Leftover rice. Coconut meat works too. During the day, let the chickens out of the fort to forage on their own; at night, round them up and give them some feed. It's very economical." Wang Tao was confident.
+"What will we feed them?"
 
-"These would be all-natural, free-range chickens. Alright, suit yourself." Old Di wondered if Wang Tao had suddenly decided to become a gentleman farmer. Then he remembered something and pulled a telegram transcript from his pocket.
+"Leftover rice. Coconut meat works too. During the day, let them forage outside the fort; at dusk, round them up and give them a bit of grain. Very economical." Wang Tao spoke with complete confidence.
 
-"What's this?" Wang Tao took the telegram. It was an encrypted message; the originating call sign was the exploration fleet's *Hangzhou*, and the receiving call sign was Lingao Telecom Main Station.
+"Free-range chickens—all-natural. Fine, suit yourself." Old Di wondered if Wang Tao had suddenly decided to take up gentleman farming. Then he remembered something and pulled a telegram transcript from his pocket.
 
-"Strange, this isn't a Navy Secret message."
+"What's this?" Wang Tao accepted the slip. It was an encrypted message; the originating call sign was the *Hangzhou*, receiving call sign Lingao Telecom Main Station.
 
-"That's right. Shen Yuefeng received it and couldn't decode it with the codebook. It's definitely not Navy Secret."
+"Odd. This isn't a Navy Secret message."
 
-"That is odd. Didn't they say before we left that the entire exploration team would use Navy Secret for transmissions? Even us garrison forts use Navy Secret for communications."
+"Exactly. Shen Yuefeng received it and couldn't decode it with our codebook. Definitely not Navy Secret."
 
-"And it was sent from the *Hangzhou*, not the flagship *Zhenhai*."
+"That is strange. Before departure, they said the entire exploration team would use Navy Secret for transmissions. Even we garrison folks use Navy Secret for comms."
 
-"It's probably a message from the Intelligence or Internal Affairs sections. Only they have that authority."
+"And it originated from the *Hangzhou*, not the flagship *Zhenhai*."
 
-Wang Tao had his people cut branches from the woods and gather crushed stone from the beach to build a chicken coop along the wall of Yulin Fort's courtyard, complete with a perimeter fence. When the weather was bad, they could let the chickens move about in the enclosure.
+"Probably a message from the Intelligence or Internal Affairs sections. Only they'd have that authority."
 
-Some of the marines came from farming families and were familiar with such things. Seeing the officer engaging so enthusiastically in agricultural work, they became interested too. Someone suggested they grow some vegetables themselves, so as not to waste the chicken and human manure.
+Wang Tao set his people to cutting branches from the woods and hauling crushed stone from the beach. They built a chicken coop along the courtyard wall of Yulin Fort, complete with a perimeter fence. In foul weather, the birds could wander safely inside the enclosure.
 
-"Really? We're even going to use human... stuff?" Old Di was shocked. He recalled the unforgettable aroma of the fertilizer pits by the roadside during rural training exercises back in the day.
+Some marines came from farming families and were well acquainted with such work. Seeing an officer engage so enthusiastically in animal husbandry, they warmed to the task. One suggested they grow vegetables—why waste all the chicken and human manure?
 
-"Of course. Otherwise, the latrine will just fill up, won't it?"
+"Wait—we're using human... *stuff*?" Old Di looked stricken. Memories surfaced of the unforgettable aroma wafting from fertilizer pits beside roads during rural training exercises.
+
+"Of course. Otherwise the latrine just fills up."
 
 "I was planning to dig a drainage ditch and flush everything straight into the sea."
 
-"Flushing it into the sea is such a waste. Let's just dig a pit outside the fort. Flush everything into the pit; put a lid on top, and it won't smell that much."
+"That's a waste. Let's dig a pit outside the fort instead. Route everything there; put a lid on top. Won't smell much at all."
 
-"I'll say this upfront: when it's time to shovel out the fertilizer, don't expect me to do it—"
+"I'll say this upfront: when it's time to shovel out the fertilizer, don't expect me to lift a spade—"
 
-The vegetable garden was set up outside the walls of Yulin Fort, in a sheltered corner. However, the coastal soil layer was thin and sandy. Planting directly would be futile. So Wang Tao had them first build a raised bed of about fifty square meters out of large stones, with proper drainage. Then he led the marines to dig up mountain soil from the slopes and haul it back with the hand-carts the *Zhenhai* had left them, cartload by cartload, filling in the bed.
+The vegetable plot was established outside the walls, in a sheltered corner. Coastal soil here was thin and sandy; planting directly would be futile. So Wang Tao had them first construct a raised bed of about fifty square meters, framed with large stones and fitted with drainage. Then he led the marines to dig mountain soil from the nearby slopes and cart it back with the handcarts the *Zhenhai* had left, load by load, filling in the bed.
 
-Everyone was baffled by this former corporate trainer's inexhaustible energy; it was as if he planned to make this his permanent home. Bai Guoshi couldn't help but ask if he was planning to be stationed at Yulin Fort long-term. Wang Tao laughed heartily:
+Everyone marveled at this former corporate trainer's inexhaustible energy—he seemed intent on making this place his permanent home. Bai Guoshi finally asked whether he was planning to be stationed at Yulin Fort long-term. Wang Tao laughed heartily:
 
-"Of course not. My goal is that one day the Executive Committee will grant me a large tract of territory. Then I'll lead my extended family and a few hundred immigrant households to colonize and cultivate the land as a lord. I'm just practicing now, so I'll have experience later."
+"Certainly not. My goal is that one day the Executive Committee will grant me a large tract of territory. Then I'll lead my extended family and a few hundred immigrant households to colonize and cultivate the land as a lord. All this—" he gestured around, "—is practice for that day."
 
 "Oh?" Bai Guoshi was intrigued. "Where do you want to colonize?"
 
-"Australia, Tasmania, or New Zealand—any of them would be fine." Wang Tao was getting a bit tired from the work. He pulled a pipe from his pocket. Wang Degang, nimble as always, filled it for his master and fetched a glowing wood splinter from a nearby fire heating water. Wang Tao took it, lit up, and took a few satisfying puffs:
+"Australia. Tasmania. New Zealand—any of them would suit me." Wang Tao was winded from the labor. He pulled a pipe from his pocket. Wang Degang, nimble as always, packed it for his master and fetched a glowing splinter from a nearby fire. Wang Tao lit up and took a few satisfying puffs.
 
-"Smoking pipe tobacco is so much better than those damned 'Holy Ship' brand cigarettes—" He exhaled a plume of blue smoke. "As for China, let the Executive Committee crowd worry about governing it slowly."
+"Pipe tobacco is *so* much better than those damned 'Holy Ship' brand cigarettes—" He exhaled blue smoke toward the sky. "As for China, let the Executive Committee crowd worry about governing it at their leisure."
 
 Wang Degang asked curiously, "Master, where are these places you mentioned?"
 
-"On the other side of the ocean." Wang Tao pointed towards the horizon. "There are great islands that are green all year round."
+"Across the ocean." Wang Tao pointed to the horizon. "Great islands that are green all year round."
 
-"Maybe I'll be your neighbor in the future then." Bai Guoshi suddenly found himself yearning for such a life: blue skies and white clouds, green pastures, and snow-capped mountains in the distance—probably an impression of New Zealand left over from watching the *Lord of the Rings* behind-the-scenes features.
+"Maybe I'll be your neighbor someday." Bai Guoshi found himself suddenly yearning for such a life: blue skies, white clouds, green pastures, and snow-capped mountains in the distance—an impression probably implanted by behind-the-scenes features of *The Lord of the Rings*.
 
-"Sure, but would your girlfriend agree to you taking a bunch of concubines?" Wang Tao teased him, pipe clenched in his teeth.
+"Sure—but would your girlfriend agree to you taking a bunch of concubines?" Wang Tao teased, pipe clenched between his teeth.
 
-"Zhao Xue—she's not my girlfriend yet." Bai Guoshi was a little embarrassed. "We'll see then. No concubines, but surely I can bring servants and the like."
+"Zhao Xue isn't... she's not my girlfriend yet." Bai Guoshi flushed. "We'll see. No concubines, but surely I can bring servants and the like."
 
-"You really are an obedient, pure-hearted young man. But I don't think you'd actually enjoy that kind of life, Little Bai." Wang Tao chuckled. "As for the future, who can say? Maybe by then Lingao will have become a world metropolis greater than New York or Shanghai. Being a senior cadre in the New World's great metropolis wouldn't be bad either."
+"Ah, a pure-hearted and obedient young man." Wang Tao chuckled. "But I don't think you'd truly enjoy that kind of life, Little Bai. As for the future—who can say? Maybe by then Lingao will have become a world metropolis greater than New York or Shanghai. Being a senior cadre in the New World's great metropolis wouldn't be half bad either."
 
-Work on the vegetable garden continued for two days. Everyone also put up a fence around the precious plot to keep out wild animals. Then they threw themselves into digging the channels. Bai Guoshi and Shen Yuefeng went out on expeditions every day. Because Jiang Hanqiu's immigration plan was likely to be implemented, besides surveying resources, they were also looking for potential future colonial sites and land for cultivation.
+---
 
-Old Di himself led another group in digging the water channel. He'd never done this kind of work before. But the Great Library had printed a small pamphlet, *Simple Surveying and Construction*, for the exploration team's use. Following the instructions in the book, he made some surveying instruments like spirit levels himself. The intake channel wasn't large in diameter, but because it needed to be covered with a layer of soil on top, it had to be dug deeper. The intake was set at a sandy section of the riverbank, so the water drawn was relatively clean and also less likely to be discovered. Except during the dry season, the intake would be below the waterline for most of the year.
+Work on the vegetable plot continued for two days. The team erected a fence around the precious garden to keep out wild animals. Then they threw themselves into digging the conduit. Bai Guoshi and Shen Yuefeng went out on expeditions daily. Because Jiang Qiuyan's immigration plan was likely to be implemented, they surveyed not only resources but also potential colonial sites and arable land.
 
-The channel passed through the fort wall and led all the way into the courtyard. There had already been a water cistern here, but it had originally been fed from the moat and the water quality wasn't as clear as drawing directly from the river. After the river water was introduced, it could be used after settling. Excess water was channeled through another conduit to the latrine to flush the pit, with wastewater flowing directly into the fertilizer pit outside Yulin Fort. The sandy soil would quickly absorb excess moisture. For safety and hygiene, the pit opening was covered with a wooden lid. Wang Tao also drilled a hole in the lid and inserted a piece of bamboo with the nodes punched through.
+Old Di oversaw the conduit work himself. He had never done anything of the sort before, but the Great Library had printed a small pamphlet—*Simple Surveying and Construction*—for the exploration team's use. Following its instructions, he fabricated survey instruments like spirit levels. The intake channel wasn't large in diameter, but because it needed to be covered and buried, it had to be dug deep. The intake point was set at a sandy section of the riverbank, where the water ran relatively clean and was less likely to be discovered. Except during the dry season, the intake would remain below the waterline for most of the year.
 
-"What's this for?" Everyone was puzzled.
+The conduit passed beneath the fort wall and into the courtyard. A cistern already existed, but it had originally been fed by the moat, and the water quality was inferior to drawing directly from the stream. After introducing stream water, deposits could settle out before use. Overflow was channeled through a secondary conduit to the latrine to flush the pit; wastewater then flowed into a fertilizer pit outside the fort. The sandy soil absorbed excess moisture quickly. For safety and sanitation, the pit was sealed with a wooden lid. Wang Tao also bored a hole through the cover and inserted a length of bamboo with the nodes punched out.
+
+"What's that for?" Everyone was puzzled.
 
 "To vent the methane inside."
 
 "Can't we use it for fuel?"
 
-"Too little. But if a cigarette butt falls in, it would be enough to cause quite the *shi*tstorm."
+"Too little. But if someone flicks a cigarette butt in there, there'd be quite the *shi*tstorm."
 
-Finally, they covered all the channels with curved roofing tiles and then with dirt. After a few more days, once the signs weathered away, none of the channels would be visible.
+Finally, they covered all the conduits with curved roofing tiles, then buried them under dirt. After a few more days of weathering, the channel would be completely invisible.
 
-While Wang Tao and his team were hard at work on infrastructure, Bai Guoshi and Shen Yuefeng, during one of their expeditions, bagged a muntjac. This small deer had tender, delicious meat. After it was brought back, almost nothing was left of it—only a pelt and gnawed-clean bones remained. Even the intestines were washed clean, salted, and hung under the eaves to dry.
+---
 
-There was plenty of wildlife here; they didn't even need to go deep into the mountains. Hunting was mainly Shen Yuefeng's job. He had hunting experience, and his shooting skills were far more seasoned than Bai Guoshi's. To save ammunition and avoid making too much noise, they hunted with steel crossbows. Shen Yuefeng regularly brought back common game like pheasants and rabbits. The entire garrison ate so well that grease ran down their chins. For people engaged in heavy physical labor every day, having an experienced hunter like Shen Yuefeng was truly a blessing.
+While Wang Tao's team labored on infrastructure, Bai Guoshi and Shen Yuefeng bagged a muntjac during one of their expeditions. The small deer yielded tender, delicious meat. When they brought it back, almost nothing was left by evening—just a pelt and gnawed-clean bones. Even the intestines had been washed, salted, and hung under the eaves to dry.
 
-Seeing Shen Yuefeng bring back game every few days, Wang Tao got another idea. He proposed digging a well inside Yulin Fort.
+Wildlife abounded here; they scarcely needed to venture into the deep forest. Hunting was primarily Shen Yuefeng's province. He had experience and far more seasoned marksmanship than Bai Guoshi. To conserve ammunition and avoid excessive noise, they used steel crossbows. Shen regularly returned with common game—pheasants, rabbits, the occasional boar. The entire garrison ate with grease running down their chins. For men engaged in heavy physical labor every day, having a skilled hunter like Shen Yuefeng was a genuine blessing.
 
-"What for?" Old Di found the suggestion baffling.
+Seeing him return with game every few days, Wang Tao conceived another idea. He proposed digging a well inside Yulin Fort.
 
-Bai Guoshi objected: "The groundwater here is definitely salty. It wouldn't even be good for watering the vegetable garden, let alone drinking."
+"What for?" Old Di was baffled.
 
-"Who said we're going to drink the water inside?" Wang Tao said. "This is a refrigerator! A refrigerator, understand?"
+Bai Guoshi objected: "The groundwater here is surely salty. It wouldn't even be fit for watering the vegetable garden, let alone drinking."
 
-Ancient people had no refrigerators. Except in the north, where rivers froze and ice could be stored in winter for use in summer, the only way to store perishable foods like pork and mutton elsewhere was to use a well. No matter how high the outside temperature, the temperature inside a well generally stayed around a dozen degrees Celsius—enough for storage lasting several days.
+"Who said anything about drinking the water?" Wang Tao grinned. "This is a *refrigerator*. A refrigerator—understand?"
 
-So they began digging a well. Well-digging was skilled work and prone to accidents. Although their copy of *Simple Surveying and Construction* had instructions on how to dig wells, Wang Tao didn't dare act rashly. By this time, they were running low on bricks and lime. Wang Tao took another trip across the bay to Anyoule Market to buy materials. Seeing several wells in the market, he inquired and found someone locally who did well-digging as a side job. He hired them to do the work.
+In ages past, only northerners with frozen rivers could store ice in winter for summer use. Elsewhere, the sole practical method for preserving perishables like pork and mutton was the well. No matter how high the temperature outside, the interior of a well generally hovered around a dozen degrees Celsius—sufficient for several days' storage.
 
-The water table at Yulin Fort was very high; water appeared at only five or six meters down. Since the purpose wasn't to draw water for drinking, the well's diameter was only about one meter, with brick-lined walls. The well-digger was full of praise for their cement-sand-lime mortar, as its bonding strength was simply excellent. He offered to waive his fee for the well-digging if they would give him a few bags of cement. But the garrison had no surplus, so they had to politely decline, saying perhaps in the future.
+So they began digging. Well-digging was skilled labor and prone to accidents. Though *Simple Surveying and Construction* included instructions, Wang Tao dared not proceed recklessly. By now they were also running low on bricks and lime. Wang Tao made another trip across the bay to Anyoule Market for supplies. Noticing several wells in the market, he inquired and found a local who did occasional well-digging on the side. He hired the man to do the job.
 
-Wang Tao said, "This shows that many of our goods have a market. We don't need to just focus on mirrors and white sugar. There's demand for cement right here in the market—"
+The water table at Yulin Fort was very high; water appeared at only five or six meters down. Since the purpose was storage rather than drinking, the well's diameter was limited to about one meter, with brick-lined walls. The well-digger lavished praise on their cement-sand-lime mortar, whose bonding strength was superb. He offered to waive his fee if they would give him a few bags of cement. The garrison had no surplus to spare, so they politely declined, promising perhaps in the future.
 
-"The demand for cement is pitifully low." Shen Yuefeng was dismissive. "You've all seen what the locals use to build their houses around here—lime mortar works well enough for them. It's only for jobs like lining a well that cement mortar shows its superiority."
+"This shows many of our goods have a market," Wang Tao mused. "We needn't fixate on mirrors and white sugar. Cement itself is in demand right here—"
 
-Wang Tao thought about it and agreed. There really wasn't much here that was in particular demand. White sugar and distilled spirits sold well, but the local consumer population was simply too small. Sales would saturate quickly.
+"Cement demand is negligible." Shen Yuefeng was skeptical. "You've seen what the locals use to build around here—lime mortar works well enough for them. Only for jobs like lining a well does cement mortar truly shine."
 
-"Let's just focus on collecting resources. Let the Foreign Affairs Ministry worry about the trading business."
+Wang Tao considered and agreed. There wasn't much around here that attracted particular demand. White sugar and spirits sold well, but the local consumer population was simply too small. The market would saturate quickly.
 
-After several days of surveying, Bai Guoshi identified a timber harvesting site. It was about three kilometers from Yulin Fort, but close to the bay—logs could be dragged out two or three hundred meters and put into the water. If they had to carry the timber felled each day to Yulin Fort on their shoulders, it would simply be impossible.
+"Let's just focus on resource collection. Let the Foreign Affairs Ministry worry about the trading business."
 
-Most of the marines' job was to fell timber at this site every day. The felled trees were stripped and barked on the spot, then dragged to the shore with ropes. Five to ten logs were bundled together with rattan into rafts. Four or five rafts made a group, which were then towed by the sampan to the beach in front of Yulin Fort and hauled ashore.
+---
 
-Despite having a sea transport leg, the overall labor was still grueling. Fortunately, Shen Yuefeng could provide a steady supply of meat—small in quantity but still meat. Shi Jinxi also continuously provided seafood. The few chickens also contributed eggs daily. The food wasn't bad. To boost morale, Wang Tao, no matter how tired he was, told a storytelling episode every night. To raise the soldiers' consciousness, he no longer told segments like *Intrigues of the Bureaucrats*. Instead, he told *The Complete Story of Yue Fei* every night, the purpose naturally being to prepare for ideological education for the future war against the Manchu barbarians. He also frequently added venomous barbs aimed at the Great Song Dynasty, drawing parallels to current events and expounding at length to glorify the Transmigration Collective's "great, glorious, and correct" image of saving China from the Great Ming government. After the *Yue Fei* story, Wang Degang would perform a solo crosstalk segment to lighten the mood before everyone went to bed. Implemented this way, morale remained surprisingly good.
+After several days of surveying, Bai Guoshi identified a timber harvesting site. It lay about three kilometers from Yulin Fort but was close to the bay—logs could be dragged two or three hundred meters and floated out. Carrying each day's felled timber back to the fort on their backs would have been impossible.
 
+Most marines spent their days at the site, felling trees. Logs were stripped and barked on the spot, then dragged to the shoreline with ropes. Five to ten logs were bundled together with rattan into rafts. Four or five rafts made a train, which the sampan then towed to the beach in front of Yulin Fort for hauling ashore.
+
+Despite the sea transport leg, the overall labor remained grueling. Fortunately, Shen Yuefeng provided a steady supply of meat—modest in quantity but meat nonetheless. Shi Jinxi continuously delivered seafood. The chickens contributed eggs daily. The fare was tolerable. To boost morale, Wang Tao, however exhausted, told a storytelling episode every night. To raise the soldiers' political consciousness, he had set aside segments like *Intrigues of the Bureaucrats* and switched to *The Complete Story of Yue Fei*—ideological preparation for the future war against the Manchu barbarians. He also frequently laced the narrative with venomous barbs aimed at the Great Song Dynasty, drawing parallels to current events and extolling the Transmigration Collective's "great, glorious, and correct" image as saviors of China from the Great Ming's incompetent government. After the *Yue Fei* tale, Wang Degang would perform a solo crosstalk routine to lighten the mood before everyone turned in. Implemented thus, morale remained surprisingly high.
+
+**(End of Chapter)**

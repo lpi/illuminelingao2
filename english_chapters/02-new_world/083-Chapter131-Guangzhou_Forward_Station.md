@@ -1,60 +1,60 @@
 # Chapter 131: Guangzhou Forward Station
 
-Liang Cunhou managed a smile, saying, "My grain relief serves two purposes: first, I can't bear seeing commoners homeless and starving on the roads; second, I fear the desperate poor might take desperate measures. Gentlemen, do you know how many refugees have flooded Guangzhou recently? At a rough count, there are no fewer than 30,000! It's still the autumn harvest now. Come spring's famine season—who knows how many more there will be! If someone incites an uprising, the region will be devastated! Laughably, many gentry—calling themselves Confucian disciples—accuse me of seeking fame and popularity, as if I harbor ulterior motives. Ridiculous! Ridiculous!" Realizing he'd spoken too freely, he quickly cupped his hands. "Pardon my outburst!"
+Liang Cunhou forced a smile. "My grain relief serves two purposes. First, I cannot bear seeing commoners homeless and starving on the roads. Second, I fear what desperate people might do when pushed to the edge. Do you gentlemen know how many refugees have flooded into Guangzhou recently? A rough count puts the number at no fewer than thirty thousand! And this is still the autumn harvest. Come spring's famine season—who knows how many more there will be? If someone incites an uprising, the entire region will be devastated!" He let out a bitter laugh. "Ridiculously, many of our local gentry—men who call themselves Confucian disciples—accuse me of seeking fame and popularity, as if I harbor some sinister ulterior motive. Ridiculous! Absolutely ridiculous!" Realizing he had spoken too freely, he quickly cupped his hands in apology. "Pardon my outburst!"
 
-"Just missing two people," Xiao Zishan murmured.
+"Just missing two people," Xiao Zishan murmured under his breath.
 
-"What did the manager say?" Liang Cunhou didn't understand.
+"I beg your pardon?" Liang Cunhou looked confused. "What did the manager say?"
 
-"No, nothing." Xiao Zishan quickly changed subjects. "Young Master Liang, we'd like to recruit some refugees in Guangzhou—sending them to Qiongzhou for land clearing. Would the officials object?"
+"Nothing, nothing." Xiao Zishan quickly changed subjects. "Young Master Liang, we would like to recruit some refugees here in Guangzhou—to send them to Qiongzhou for land clearing. Would the officials object?"
 
-"Land clearing?" Young Master Liang laughed dryly. "Don't take offense at my cold water. You'll invest capital in clearing land—but likely can't even pay taxes. A year's hard work will all profit those clerks. Recruiting refugees is charitable—but if things don't continue, you'll leave them worse off."
+"Land clearing?" Young Master Liang laughed dryly. "Don't take offense at some cold water, but you'll invest capital in clearing land only to find you can't even pay the taxes. A year's hard work will all flow into the pockets of those yamen clerks. Recruiting refugees is charitable, certainly—but if your venture fails to continue, you'll leave them worse off than before."
 
-The Committee had given intelligence personnel important instructions: collect all Ming-era social information. Guo Yi, seeing an opportunity, feigned ignorance. "Why does Young Master Liang say this?"
+The Committee had given its intelligence personnel an important directive: collect all available information on Ming-era society. Seeing an opportunity, Guo Yi feigned ignorance. "Why does Young Master Liang say this?"
 
-"I've never visited Qiongzhou, but I hear it's humid, malarial, and typhoon-prone. The Li people rebel. Though wasteland abounds, settling isn't easy. Moreover, you're all merchants with no examination credentials. Won't you be fat sheep for the local clerks! At best, you'll lose your investment; at worst, utter ruin! Ah, this world!"
+"I've never visited Qiongzhou myself, but I hear it's humid, malarial, and typhoon-prone. The Li people rebel with regularity. Though wasteland abounds, settling there is far from easy. Moreover, you are all merchants with no examination credentials. Won't you be fat sheep for the local clerks! At best, you'll lose your entire investment; at worst, face utter ruin." He sighed deeply. "Ah, this world..."
 
-Guo Yi could only nod agreement; he dared not say more. While they were talking, a servant approached and quietly spoke to Liang. Young Master Liang stood, citing other business, and cupped his hands in farewell. Everyone parted. Shortly after, a servant ran up, respectfully asking, "My young master asks your lodging address? He'll visit another day."
+Guo Yi could only nod in agreement; he dared not reveal more. While they were talking, a servant approached and whispered something to Liang. Young Master Liang rose, citing other business, and cupped his hands in farewell. Everyone parted with the customary pleasantries. Shortly afterward, another servant came running up and asked with humble courtesy, "My young master would like to know the gentlemen's lodging address. He wishes to pay a visit another day."
 
-Everyone exchanged glances: they'd been completely deferential earlier—neither reciting "thousand miles frozen, ten thousand miles snow-swept," nor discoursing on human rights, democracy, or freedom. What had this gentry scion seen in these merchants?
+Everyone exchanged glances. They had been completely deferential during the entire meeting—neither reciting "a thousand *li* frozen, ten thousand *li* snow-swept," nor discoursing on human rights, democracy, or freedom. What had this gentry scion seen in these mere merchants?
 
-Guo Yi quickly said, "Our lodging is on Huifu Street—the shop called 'Zizhen Studio'."
+Guo Yi quickly composed himself. "We are lodging on Huifu Street—at the shop called 'Zizhen Studio.'"
 
-The servant confirmed, extracting a plum-red paper from a visiting card box. "My young master's calling card. Please accept."
+The servant confirmed the address, then extracted a plum-red paper from his visiting card box. "My young master's calling card. Please accept it."
 
-Presenting a calling card on the first meeting showed high regard. Guo Yi, having attended Yu Eshui's "Ming Dynasty Customs and Society" lecture series before departure, politely declined. "I dare not accept." Only after repeated refusals did he accept.
+Presenting a calling card upon first meeting showed exceptionally high regard. Having attended Yu Eshui's "Ming Dynasty Customs and Society" lecture series before departure, Guo Yi knew the proper form and politely declined: "I dare not accept such an honor." Only after repeated refusals did he finally accept the card.
 
-Xiao Zishan, still worried, rushed to the escort bureau's mule and horse inn. The arrivals had already been settled under bureau arrangements. Sun Kecheng was initially dumbfounded—hearing they'd buy some servants, he never expected so many overnight. The bureau's entire staff mobilized to cook, boil water, and summon doctors for the sick. The chaos lasted until nearly the first watch before settling.
+Xiao Zishan, still worried about their human cargo, rushed to the escort bureau's mule and horse inn. The new arrivals had already been settled under the bureau's arrangements. Sun Kecheng had been initially dumbfounded—he had been told they would purchase *some* servants, but never expected so many to arrive overnight. The bureau's entire staff had been mobilized to cook, boil water, and summon doctors for the sick. The chaos lasted until nearly the first watch before things finally settled down.
 
-Returning to Huifu Street, everyone deliberated. The goods weren't fully procured yet, but over 200 people were already purchased. Staying at Qiwei's inn wasn't sustainable: first, they were imposing on others, and second, once fed, the people's thoughts would wander. They weren't jailers monitoring 24/7. It was better to ship people back first, then return for the goods.
+Returning to Huifu Street, the group deliberated. The goods were not yet fully procured, but they had already purchased over two hundred people. Staying at Qiwei's inn was not sustainable—firstly, they were imposing on others, and secondly, once fed and rested, people's thoughts would wander. The transmigrators were not jailers who could monitor them around the clock. It would be better to ship this batch back first, then return for the remaining goods.
 
-This proposal received enthusiastic approval from the crew, surprising Xiao Zishan. He'd expected them to resist an immediate return, having just arrived. Unbeknownst to him, several harbored their own schemes. The decision was made: the purchased slaves would rest for two days at Qiwei's inn, then the crew would transport them back. The others would remain in Guangzhou, continuing the forward station work.
+This proposal received enthusiastic approval from the crew, which surprised Xiao Zishan. He had expected them to resist an immediate return voyage, having just arrived in the great city. Unbeknownst to him, several harbored their own private schemes. The decision was made: the purchased slaves would rest for two days at Qiwei's inn, then the crew would transport them back to Lingao. The others would remain in Guangzhou to continue the forward station work.
 
-Building renovation proceeded intensively. According to the plan, the Huifu Street compound would transform into a jewelry house with a shop in the front and a workshop in the back, selling various transmigrator-made luxury goods. Some finishing and assembly work could be done here, while key processes stayed at Bairren Fortress. Former jewelry company manager Yan Maoda had jewelry design and processing expertise. He'd brought extensive new-style materials. He said that if they recruited some skilled craftsmen, they could manufacture these pieces. It was better than just selling glassware and avoided conflict with their agent Gao Ju.
+Building renovation proceeded intensively. According to the plan, the Huifu Street compound would be transformed into a jewelry house with a shop in the front and a workshop in the back, selling various transmigrator-manufactured luxury goods. Some finishing and assembly work could be done on-site, while key processes would remain at Bairren Fortress. Former jewelry company manager Yan Maoda had brought extensive expertise in jewelry design and processing, along with ample new-style materials. He claimed that, if they could recruit some skilled craftsmen, they could manufacture fine pieces right here in Guangzhou. This was better than merely selling glassware, and it would avoid stepping on the toes of their agent Gao Ju.
 
-Xiao Zishan, leveraging his Gao Ju connections, recruited many workers for the renovations. With ample funds—using the jewelry house as an excuse—the entire compound was fortified. Though not quite resembling the US Embassy, it was close enough. Imitating Shanxi money shop and pawnshop security measures, iron gratings were installed in the ceilings against aerial intruders. Stone foundation walls were topped with mortared blue bricks, making them extremely solid. Only the front portions had traditional long windows; the rear buildings had ordinary windows with iron bars. Most secure was the "vault" courtyard: three entirely brick-and-stone rooms without wood. There were no windows, and the iron door had 21st-century locks. It was similar to embassy safe rooms, used for confidential matters. One room was for telecommunications, one was a conference room, and one was the actual vault—storing not just gold and silver but, more importantly, materials, weapons, and reconnaissance equipment. Besides radios, Intelligence provided walkie-talkies, pistols, binoculars, night vision, digital cameras, and laptops. As for power, besides hand-crank generators, there were solar panel arrays—limited capacity, but sufficient for the radio and laptop.
+Xiao Zishan, leveraging his connections with Gao Ju, recruited many workers for the renovations. With ample funds and the jewelry house as an excuse, the entire compound was fortified to an impressive degree. Though not quite rivaling the U.S. Embassy in Beijing, it came remarkably close. Imitating the security measures of Shanxi money shops and pawnshops, iron gratings were installed in the ceilings to guard against aerial intruders. Stone foundation walls were topped with mortared blue bricks, making them extremely solid. Only the front portions retained traditional long windows; the rear buildings had ordinary windows fitted with iron bars. Most secure of all was the "vault" courtyard: three rooms constructed entirely of brick and stone, without any wood. There were no windows, and the iron door was fitted with twenty-first-century locks. It was modeled after embassy safe rooms and would be used for confidential matters. One room housed the telecommunications equipment, one served as a conference room, and one functioned as the actual vault—storing not just gold and silver, but more importantly, materials, weapons, and reconnaissance equipment. Besides the radios, Intelligence had provided walkie-talkies, pistols, binoculars, night-vision goggles, digital cameras, and laptops. As for power, there were hand-crank generators as well as solar panel arrays—limited in capacity, but sufficient for the radio and laptop.
 
-The originally planned monitoring and security systems were suspended due to power issues. However, an infrared alarm was installed at the safe room entrance.
+The originally planned monitoring and security systems had been suspended due to power constraints. However, an infrared alarm was installed at the safe room entrance.
 
-For water, there were two usable wells on the compound. Sun Chang had already hired deep cleaning during the initial renovations. To prevent the delicate modern people's indigestion, the station brought a simple water filter and sterilizer, as the filter cartridge was replaceable yearly.
+For water, there were two usable wells on the compound. Sun Chang had already arranged for deep cleaning during the initial renovations. To protect the delicate modern digestive systems of the transmigrators, the station had brought a simple water filter and sterilizer, with replaceable filter cartridges good for a year.
 
-The *Deng Yingzhou* delivered 30-plus tons of materials and 5,000 *liang* in cash. This was the station's entire startup capital. According to regulations, forward personnel couldn't withdraw from Gao Ju's 200,000 *liang* account.
+The *Deng Yingzhou* delivered over thirty tons of materials and five thousand taels in cash. This comprised the station's entire startup capital. According to regulations, forward personnel could not withdraw from Gao Ju's two hundred thousand tael account.
 
-Everyone bustled about. Guo Yi sat alone, contemplating future operations. The Committee's station tasks boiled down to intelligence collection and conducting trade.
+Everyone bustled about their tasks, but Guo Yi sat alone, contemplating future operations. The Committee's station directives boiled down to two objectives: intelligence collection and conducting trade.
 
-Either goal required first building broad social connections. They now had the Gao family and Qiwei Bureau as entry points. Next came expanding work across social strata.
+Either goal required first building broad social connections. They now had the Gao family and Qiwei Bureau as entry points. The next step was to expand their network across various social strata.
 
-Guo Yi recalled Yu Eshui's pre-departure "Ming Dynasty Socioeconomic Conditions" course, pondering which level to breach.
+Guo Yi recalled Yu Eshui's pre-departure course on "Ming Dynasty Socioeconomic Conditions" and pondered which level would be most productive to breach.
 
-As merchants, directly cultivating mid-to-upper-tier officials was difficult. Even spending heavily only bought superficial prestige—rarely achieving later-era collusion between officials and merchants. But officials had strong purchasing power and political authority, so they were worth cultivating eventually.
+As merchants, directly cultivating ties with mid-to-upper-tier officials would be difficult. Even spending heavily would only buy superficial prestige—rarely achieving the kind of collusion between officials and merchants that characterized later eras. But officials had strong purchasing power and political authority, so they were worth cultivating eventually.
 
-Second: local gentry and wealthy merchants—credentialed or official-connected—were the local powerbrokers. Gao Ju was such a person. More accessible, yet linked to upper officialdom. This stratum was the station's current priority. In Guangzhou, they'd met Liang Cunhou. Though his cultivation motives were unclear, as a *juren*, his influence exceeded Gao Ju's. Properly leveraged, he could open major doors in this class.
+Second were the local gentry and wealthy merchants—those with examination credentials or official connections. These were the true local powerbrokers. Gao Ju was such a person. More accessible than officials, yet linked to upper officialdom, this stratum was the station's current priority. In Guangzhou, they had already met Liang Cunhou. Though his motives for cultivating a connection remained unclear, as a *juren* his influence far exceeded Gao Ju's. Properly leveraged, he could open major doors within this class.
 
-Officials' secretaries, servants, stewards, guests; various yamen clerks, constables—though low status—were highly active, knowing all about officials and yamen movements. For political intelligence, he should focus on them. The Qiwei Bureau dealt with such people and could leverage their connections.
+Third were the officials' secretaries, servants, stewards, and guests; the various yamen clerks and constables. Though low in status, these men were highly active and knew everything about officials and yamen movements. For political intelligence, Guo Yi would need to focus on them. The Qiwei Bureau dealt with such people regularly and could leverage those connections.
 
-As for commoners, from them one learned market gossip and public opinion. This intelligence must also be collected.
+As for commoners, from them one could learn market gossip and public opinion. This kind of intelligence also needed to be collected.
 
-But the entire Guangzhou station had only six people including himself:
+But the entire Guangzhou station had only six people, himself included:
 
 Station Chief: Guo Yi
 
@@ -64,12 +64,12 @@ Radio Operator: Zhang Yuchen
 
 Intelligence Operatives: Lu Rong, Peipei
 
-Just these few handling so much was somewhat difficult. Yan Maoda and Zhang Xin were both sales veterans and battle-hardened commercial operators. Once adapting here and improving their Cantonese-Mandarin, commercial entertainment and sales organization would be child's play.
+Just these few handling so much was going to be a challenge. Yan Maoda and Zhang Xin were both sales veterans and battle-hardened commercial operators. Once they adapted to the local environment and improved their Cantonese-Mandarin, commercial entertainment and sales organization would be child's play for them.
 
-Zhang Yuchen was communications staff and also taciturn; he could only handle internal affairs.
+Zhang Yuchen was the communications staff and was rather taciturn by nature; he could only be relied upon for internal affairs.
 
-Intelligence work apparently fell to himself, Lu Rong, and Peipei. How to use Peipei was a headache. She seemed unconcerned and quite confident. Guo Yi strongly suspected she hadn't considered the underground work's seriousness and danger, merely treating this as her performance stage. Her personal luggage alone filled a dozen boxes—he knew without looking that they were all costumes.
+Intelligence work, it seemed, would fall to Guo Yi himself, Lu Rong, and Peipei. How to utilize Peipei was a headache. She seemed completely unconcerned and quite confident in herself. Guo Yi strongly suspected she had not considered the seriousness and danger of underground work, treating this assignment as merely her personal performance stage. Her personal luggage alone filled a dozen boxes—he knew without looking that they were all costumes.
 
-He organized his thoughts, drafting current-phase objectives and station regulations. He'd meet with the remaining forward team before Xiao Zishan's departure to assign work.
+He organized his thoughts, drafting the current-phase objectives and station regulations. He would meet with the remaining forward team before Xiao Zishan's departure to assign their work.
 
 **(End of Chapter)**

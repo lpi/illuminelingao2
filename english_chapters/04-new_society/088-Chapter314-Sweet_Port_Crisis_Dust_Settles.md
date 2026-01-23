@@ -1,137 +1,143 @@
 # Chapter 314: Sweet Port Turbulence — Dust Settles
 
-Third Master Zhu laughed hideously and slammed the table: "Good! You have guts." Saying this, he picked up the porcelain bowl in front of him and smashed it viciously under the table.
+Third Master Zhu laughed—a hideous, grating sound—and slammed his palm against the table. "Good! You have guts." With that, he seized the porcelain bowl before him and hurled it to shatter beneath the table.
 
-With a "crash," shards flew, and the hurried footsteps of a crowd instantly rang out from the lower hall.
+The crash sent shards spinning across the floor, and in the same instant, hurried footsteps thundered from the lower hall.
 
-Twenty or thirty burly men surged out from the side rooms of the lower hall, each holding a wooden stick, their faces ferocious. These were the "boat protection water braves" recruited by Zhu An; many were former pirates or deserters from the imperial army. Third Master Zhu had intended to use these men to coerce everyone if the meeting didn't go well—staging a "Banquet at Hongmen," presuming everyone would submit out of fear.
+Twenty or thirty burly men surged from the side rooms, each gripping a wooden cudgel, faces twisted with menace. These were the "boat protection water braves" Zhu An had recruited—many of them former pirates or deserters from the imperial army. Third Master Zhu had intended to use them as a final card should the meeting turn against him: a Banquet at Hongmen, Stage a scene of intimidation, and presume everyone would submit out of fear.
 
-The main gate was slammed shut with a "clang."
+The main gate slammed shut with a resonant clang.
 
-The sugar merchants were dumbstruck with fear; some simply sat down hard back into their chairs. The atmosphere took a sharp turn for the worse. Wu Yi shut his mouth and quietly tried to slip away; Feng Guangfeng's face was pale, but he didn't move a muscle. Zhou Shizhai and Li Biao took a step forward, ready to shield Wen Tong and rush out.
+The sugar merchants sat frozen with terror. Some simply collapsed back into their chairs. Wu Yi snapped his mouth shut and tried to edge away. Feng Guangfeng's face went pale, though he held his ground. Zhou Shizhai and Li Biao stepped forward, ready to shield Wen Tong and fight their way out.
 
-"No need!" Although Wen Tong was a bit scared at this moment, his heart settled a lot, and he couldn't help but feel a sense of disdain. "Smashing a cup as a signal, hiding soldiers everywhere"—did he think this was a storytelling session?
+"No need." Though Wen Tong felt a tremor of fear, his heart steadied, and something like disdain rose in him. *Smashing a cup as a signal, soldiers hidden all around*—did Zhu An think this was a storytelling session?
 
-Third Master Zhu laughed loudly: "Keep talking, keep talking! I should retreat bravely from the torrent? Ask my brothers if they agree!"
+Third Master Zhu laughed thunderously. "By all means, continue! I should 'retreat bravely from the torrent,' should I? Let's ask my brothers whether they agree!"
 
-Wen Tong's face was calm. He listened for a moment, then suddenly smiled:
+Wen Tong's expression remained placid. He listened for a moment, then smiled.
 
-"Everyone, stay calm. Just listen to the gongs on the street."
+"Gentlemen, please—stay calm. Just listen to the gongs in the street."
 
-Hearing him say this, everyone pricked up their ears.
+Everyone pricked up their ears.
 
-Sure enough, from afar came the sound of "Clang—Clang—Clang..." gongs. Seven beats a cycle. They were familiar with this gong sound: it was the clearing gong for the County Magistrate when he went out in procession. The gong sound came from far to near, obviously heading this way.
+Sure enough, from somewhere not far off came the sound: *Clang—clang—clang...* Seven beats per cycle. They recognized it instantly: the clearing gong that heralded the County Magistrate's procession. The sound traveled from far to near, unmistakably approaching.
 
-While they were hesitating, the main gate was banged loudly.
+While the crowd hesitated, someone pounded heavily on the main gate.
 
-"Why is the door closed so tight in broad daylight! What tricks are you playing? I am Head Constable Li from the county *yamen*! Open the door!"
+"Why is this door barred in broad daylight? What trickery is this? I am Head Constable Li from the county *yamen*! Open up!"
 
-Zhu An's men who closed the door dared not keep it shut, and the burly men holding sticks had to scatter to the sides.
+The men who had sealed the gate dared not keep it shut. The cudgel-wielding brutes scattered to the sides.
 
-The door opened, and Head Constable Li ran in wearing his official uniform: "The County Magistrate has arrived. Manager Wen, quickly lead everyone to welcome him."
+The gate swung open, and Head Constable Li strode in wearing his official uniform. "The County Magistrate has arrived! Manager Wen, lead everyone out to welcome His Honor!"
 
-"Yes." Wen Tong cupped his hands. "Many thanks, Head Constable Li." As he spoke, Li Biao hurriedly went up and presented a heavy red envelope—inside was twenty taels of silver.
+"Certainly." Wen Tong clasped his hands. "Many thanks, Head Constable Li." As he spoke, Li Biao hurried forward to present a heavy red envelope—containing twenty taels of silver.
 
-"The County Magistrate is here," Wen Tong said with a smile. "Take your men back, lest something happens later that can't be explained clearly—"
+"The County Magistrate is here," Wen Tong said with a pleasant smile. "I suggest you withdraw your men, Third Master Zhu, before something happens that proves difficult to explain."
 
-"Let's go welcome His Honor quickly," Wu Yi immediately proposed.
+"Let us welcome His Honor at once," Wu Yi proposed eagerly.
 
-"Yes, yes, let's go quickly."
+"Yes, yes—quickly now."
 
-Wen Tong, however, didn't care and wasn't in a hurry to go out.
+But Wen Tong showed no urgency to depart.
 
-"Third Master Zhu," he said in a serene tone, "your *jianghu* tricks are useless. Unless you are prepared to fight a big battle right under the County Magistrate's nose. By then, even if you use your entire family fortune to buy his silence, it won't work. You can't let this happen. And you have no way to 'restore' anything... Do you know the meaning of the word 'restoration' (*fu pi*)? Looking at your face, I guess you probably don't...
+"Third Master Zhu," he said, his tone almost serene, "your *jianghu* tricks are useless here. Unless you're prepared to wage open battle right under the County Magistrate's nose. And even if you spent your entire family fortune buying his silence afterward, it wouldn't suffice. You cannot permit that to happen. Nor can you 'restore' anything..." He paused. "Do you know what *fu pi* means—'restoration'? By your expression, I'd guess not.
 
-"Restoration means restoring the old order, regaining the authority of your Haiyi Guild, and using this place to continue extracting maximum benefits for yourself. But those days are gone forever. Either you quietly take your belongings and get out; or you insist on being this titular Guild Master. If you want to do that, you can go ahead and call your men to attack, and see if the water braves you are so proud of are more formidable than Zhao Jijiao or Gu Dachun."
+"Restoration means returning the old order—regaining the authority of your Haiyi Guild, using it to continue extracting maximum benefit for yourself. But those days are gone forever. Either you quietly collect your belongings and leave, or you insist on clinging to this empty title. If you choose the latter, by all means—summon your water braves to attack. Let's see whether they prove more formidable than Zhao Jijiao or Gu Dachun."
 
-In the following few seconds, many things happened in rapid succession. A bodyguard beside Third Master Zhu suddenly pounced, attempting to restrain Wen Tong. But Zhou Shizhai was much faster, sweeping the opponent down with a leg sweep. Li Biao pounced and punched the man right in the Adam's apple, knocking him unconscious on the spot.
+In the seconds that followed, events unfolded in rapid succession. A bodyguard at Third Master Zhu's side lunged, attempting to seize Wen Tong. But Zhou Shizhai moved faster, sweeping the man's legs from under him. Li Biao pounced and drove his fist into the attacker's throat, knocking him unconscious on the spot.
 
-Another man drew a knife from his sleeve. Third Master Zhu screamed, "Don't use knives!"
+A second man drew a knife from his sleeve. Third Master Zhu shrieked, "No blades!"
 
-Using knives was a felony violent crime, not to mention the place was full of witnesses and the County Magistrate was coming down the street. Using a knife here—even if the matter could be settled, it would cost a family fortune!
+Using a knife was a felony—violent crime—and the hall was full of witnesses while the County Magistrate was approaching. Even if the matter could be settled afterward, it would cost a fortune.
 
-Before he could worry, the knife had just been extended when the man was punched in the neck by Zhou Shizhai's other hand and kicked in the lower abdomen. He slammed headfirst into the wall, bounced off, took two heavy blows to the stomach, and collapsed paralyzed.
+But before Zhu could finish worrying, the knife had barely cleared its sheath when Zhou Shizhai struck the would-be assailant in the neck with one hand, kicked him hard in the abdomen with the other. The man slammed headfirst into the wall, bounced off, took two more blows to the stomach, and collapsed in a heap.
 
-Wen Tong was greatly relieved; Zhou Shizhai's martial arts were indeed not for show.
+Wen Tong exhaled. Zhou Shizhai's martial arts were indeed no exaggeration.
 
-"Different masters employ different men." Wen Tong smiled. "Third Master Zhu, I wasn't wrong, was I?"
+"Different masters employ different men," Wen Tong observed. "Third Master Zhu, was I wrong?"
 
-Third Master Zhu's prepared Hongmen Banquet ended just like that. Including his laughable stratagem—perhaps not outdated in 1629, but useless against an opponent with 400 years of advanced experience. Beiwei's team had already discovered the ambush during routine prior reconnaissance, and Chen Tianxiong had made timely arrangements based on this.
+---
 
-Outdated. Although his eyes were sharp enough to chop Wen Tong into minced meat, he still understood that those who understand the times are heroes. Zhu An's subordinates scattered completely in a moment. The scene was truly more dramatic than a play. Wen Tong let out a soft sigh of relief.
+Third Master Zhu's carefully prepared Banquet at Hongmen had ended before it began, along with his laughable stratagem. Perhaps such tactics weren't quite obsolete in 1629—but they were utterly useless against opponents with four centuries of advanced experience. Beiwei's team had already discovered the ambush during routine reconnaissance, and Chen Tianxiong had made timely arrangements.
 
-"Master Zhou has good kung fu."
+*Outdated.* Though Zhu An's eyes blazed with enough fury to carve Wen Tong into mincemeat, he still understood that those who read the times are the true heroes. His subordinates scattered in an instant. The scene was truly more dramatic than any stage performance. Wen Tong allowed himself a soft sigh of relief.
 
-"Call me 'Comrade.'" Zhou Shizhai patted the dust off his hands.
+"Master Zhou's kung fu is impressive."
 
-Zhu An and his gang left in embarrassment through the back door, and the magistrate's sedan chair arrived at the gate at this moment. Wen Tong straightened his clothes and went out respectfully to welcome him.
+"Call me 'Comrade.'" Zhou Shizhai brushed the dust from his hands.
 
-Inviting the County Magistrate to make a procession to the Haiyi Guild, sit with Wen Tong for a cup of tea, and exchange a few polite words cost Chen Tianxiong five hundred taels. Besides that, it also included a promise to increase the "regular fees" paid to the magistrate from the sugar industry by fifty percent annually. The price was high, but it was worth it.
+Zhu An and his retinue departed in humiliation through the back door just as the magistrate's sedan chair arrived at the front gate. Wen Tong straightened his garments and went out respectfully to receive him.
 
-The life of the Haiyi Guild ended on this day. The next day, the county *yamen* received two petitions: one was a joint application from the twenty member firms of the Haiyi Guild to dissolve the Haiyi Guild, and the other was naturally a joint application from South China Sugar and twenty industry peers to establish an Industry Guild. Under South China Sugar's active lobbying, this was already a matter of course. The county *yamen* quickly approved: "Granted as requested."
+---
 
-The plaque of the Haiyi Guild was taken down and immediately replaced with the plaque of the Leizhou Sugar Industry Guild.
+Inviting the County Magistrate to process to the Haiyi Guild, sit with Wen Tong over tea, and exchange a few courtesies had cost Chen Tianxiong five hundred taels—plus a promise to increase the "regular fees" paid from the sugar industry by fifty percent annually. The price was steep, but it was worth it.
 
-The remaining assets were also entirely taken over by the Leizhou Sugar Industry Guild. According to South China Sugar's division of labor, the Sugar Industry Guild would be primarily the responsibility of Chang Shide. He immediately began liquidating the remaining assets of the Haiyi Guild. Wen Qing had already learned a lot of modern accounting knowledge, so he was responsible for clearing the accounts, assisted by a few clerks familiar with bookkeeping.
+The life of the Haiyi Guild ended that day. The following morning, the county *yamen* received two petitions: one, a joint application from the twenty member firms to dissolve the Haiyi Guild; the other, a joint application from South China Sugar and twenty industry peers to establish a new Industry Guild. Under South China Sugar's vigorous lobbying, this was already a foregone conclusion. The *yamen* approved swiftly: *Granted as requested.*
 
-The silver and floating assets in the public account were all refunded to each firm according to their payment shares, including Zhu An's share. Chang Shide said that no matter how much Zhu An had embezzled or misappropriated public funds, he had after all done many things for the Leizhou sugar industry. "A person's merits and faults should be viewed with a split-one-into-two perspective." He said pretentiously. So the money due to him should not be a single coin less.
+The Haiyi Guild's plaque was taken down and immediately replaced with that of the Leizhou Sugar Industry Guild.
 
-To show South China Sugar's absolute impartiality, Chang Shide invited five sugar merchants as supervisors through public election. The account clearing was completely public; a report was issued every week and sent to each sugar firm, detailing which accounts had problems and how they were handled. This practice of transparent accounts and clear organization won everyone's appreciation—the transmigrators brought a brand new atmosphere to the entire Leizhou sugar industry.
+The remaining assets were likewise transferred to the new Guild. According to South China Sugar's division of labor, the Sugar Industry Guild would be primarily Chang Shide's responsibility. He immediately began liquidating the old Guild's holdings. Wen Qing, who had been studying modern accounting, was put in charge of clearing the books, assisted by clerks familiar with ledger-keeping.
 
-Originally, from the managers down to the servants in the Haiyi Guild, everyone was Third Master Zhu's private appointee: either distant relatives or fellow townsmen. This time, all were given severance pay and dismissed, not a single one kept. Those without local household registration were given extra travel expenses.
+The silver and movable assets in the public account were refunded to each firm according to their contribution shares—including Zhu An's portion. Chang Shide declared that regardless of how much Zhu An had embezzled or misappropriated, he had after all accomplished many things for the Leizhou sugar industry. "One should view a person's merits and faults with a balanced perspective," he said, affecting magnanimity. The money owed to Zhu An would not be short by a single coin.
 
-Originally, Chang Shide wanted to keep a few skilled hands, but Chen Tianxiong opposed it:
+To demonstrate South China Sugar's absolute impartiality, Chang Shide organized a public election to appoint five sugar merchants as supervisors. The account clearing was conducted with complete transparency; weekly reports were distributed to each sugar firm, detailing which accounts had problems and how they were resolved. This practice of open books and clear organization won universal appreciation. The transmigrators had brought an entirely new atmosphere to the Leizhou sugar industry.
 
-"Even if a few people are usable, they are related to Zhu An in some way. If we suspect a man, we don't use him; if we use a man, we don't suspect him. If we can't fully trust them, simply don't use them. Avoid inviting trouble."
+Every employee of the old Haiyi Guild—from managers down to servants—had been appointed by Third Master Zhu himself, either distant relatives or fellow townsmen. All were now given severance pay and dismissed without exception. Those lacking local household registration received extra travel funds.
 
-"Just use them without suspicion. I don't believe these small figures can have deep affection for Zhu An?"
+Chang Shide had initially wanted to retain a few capable hands, but Chen Tianxiong opposed it.
 
-"Old Chang! As the saying goes, 'Righteousness is often found among dog butchers' [simple folk]." Chen Tianxiong said. "They are all Zhu An's friends and old acquaintances. No matter how small, they were once beneficiaries and received Zhu An's favors. We cannot fail to guard against them."
+"Even if a few are useful, they're connected to Zhu An in some fashion. If we suspect a man, we don't employ him; if we employ him, we don't suspect him. If we can't fully trust them, we simply shouldn't use them. We'd only be inviting trouble."
 
-In the end, everyone was dismissed with silver. These people also knew the trend was gone, took the money, and scattered without causing any incidents.
+"Then just use them without suspicion. I don't believe these minor figures can hold deep affection for Zhu An."
 
-What Chang Shide found most thorny was the boat protection braves trained by the Haiyi Guild itself, numbering over thirty. This group was either pirates or deserters, with extremely bad habits. The Haiyi Guild used to support them with large amounts of silver—five taels a month, bonuses on three festivals, and extra "travel allowances" based on distance for every trip. Although their combat power was decent, they were arrogant soldiers spoiled by silver. Chang Shide had long known this group was hard to handle; hiring them would take a lot of effort to rectify, but not hiring them would make them a scourge.
+"Old Chang—as they say, 'Righteousness is often found among dog butchers.' These are all Zhu An's friends and longtime associates. However small, they were once beneficiaries. They received his favors. We cannot fail to guard against them."
 
-Wu Yi, however, said: "Guild Master Chang need not worry about placing these people."
+In the end, everyone was dismissed with silver. These people also understood the wind had shifted, took their money, and dispersed without incident.
 
-"Oh? Why?"
+The thorniest problem for Chang Shide was the boat protection braves the Haiyi Guild had trained—over thirty men. This lot were either pirates or deserters, their habits atrocious. The Guild had supported them lavishly: five taels monthly, bonuses on the three festivals, extra "travel allowances" for distance traveled on each trip. Their fighting ability was decent, but they had been spoiled into arrogant, silver-addicted mercenaries. Chang Shide knew full well this group was difficult to manage. Hiring them would require immense effort to discipline; not hiring them would turn them into a menace.
 
-"They are all directly under Third Master Zhu's jurisdiction. We can't touch them at all." Wu Yi said that whether it was pay, supplies, or deployment, it was all handled by Third Master Zhu personally.
+Wu Yi, however, said, "Guild Master Chang need not worry about placing these men."
 
-The money was paid by everyone, but they were actually Third Master Zhu's private retainers. Although theoretically shipping sugar out for sale was each firm's own business, if one didn't use the Zhu family's shipping line, it was very difficult to get protection braves to accompany the ship—they had to satisfy the needs of his family's ships first before it was the turn of other ships. For safety, everyone could only pay another shipping fee to Zhu An.
+"Oh? Why not?"
 
-"This group has always only had Third Master Zhu in their eyes, not the Haiyi Guild. Let Third Master Zhu deal with them himself." Wu Yi laughed triumphantly.
+"They're directly under Third Master Zhu's personal command. We couldn't touch them if we wanted to." Wu Yi explained that pay, supplies, deployment—everything—was handled by Third Master Zhu himself.
 
-Chang Shide thought, *that's true*. But if this group remained on Hai'an Street, they would still be a force in Third Master Zhu's hands. Zhu An hadn't used them before, but now it couldn't be ruled out that he might jump over the wall in desperation and let them come out to cause trouble. It was still necessary to eliminate this possible hidden danger as much as possible.
+The dues had been paid by everyone, but these men had always been Zhu An's private retainers. Though shipping sugar was theoretically each firm's own business, anyone who didn't use the Zhu family's shipping lines found it extremely difficult to secure protective escorts—Zhu family vessels had priority. For safety's sake, everyone had simply paid an additional shipping fee to Zhu An.
 
-The rebuilding of Monk Zou's Temple was also announced by Chang Shide to everyone; the cost would be borne independently by South China Sugar. Peers originally thought they would be assessed another fee for this matter; seeing South China Sugar's stance, their goodwill increased a few points.
+"This lot has only ever had Third Master Zhu in their eyes—never the Haiyi Guild. Let Third Master Zhu deal with them himself." Wu Yi laughed with evident satisfaction.
 
-So soon a group of construction workers came from Lingao, set up reed mat walls around Monk Zou's Temple, and began major construction. It was said that because the project was huge and would take a long time, fearing the original temple sexton would lose his livelihood, the factory specially renovated another small temple in the county town for him to preside over. The sexton, his wife, and the fire-tender Taoist moved away happily.
+Chang Shide concurred. But if this group remained on Hai'an Street, they would still represent a force in Zhu An's hands. Zhu An hadn't used them before, but now—desperate—he might well unleash them to cause trouble. The potential threat still needed to be neutralized.
 
-No one expected that the newly renovated Monk Zou's Temple would actually be the location of the future Xuwen Intelligence Station. The factory also acquired a lot of wasteland around the temple, hired people to clear it, reportedly preparing to build a charity school and a benevolent hall. This action further left South China Sugar a reputation for being public-spirited and righteous in Xuwen and Leizhou.
+Chang Shide also announced that the rebuilding of Monk Zou's Temple would be financed entirely by South China Sugar. The merchants had expected another assessment; seeing South China Sugar's generosity, their goodwill increased considerably.
 
-One morning, as Feng Guangfeng was walking to a teahouse he frequented, someone saw him talking to a person not far from the teahouse. Then Feng Guangfeng got into a two-person small sedan chair and headed north.
+Soon a construction crew arrived from Lingao, erected reed-mat barriers around the temple, and began major renovation. Because the project was substantial and would take time, the factory specially renovated a small temple in the county seat for the original sexton to preside over, so he wouldn't lose his livelihood. The sexton, his wife, and the fire-tender Taoist moved happily to their new quarters.
 
-The next morning, he was found by a water pond near the factory, where the future workers' village was being built. He had been stabbed dozens of times, poked like a sieve, the method extremely savage. Obviously, the stabber was full of hatred for him. Only his face was intact, as if to make him easily identifiable. His mouth was stuffed full of granulated sugar, right down to his throat.
+No one expected that the newly renovated Monk Zou's Temple would actually serve as the future Xuwen Intelligence Station. The factory also acquired extensive wasteland around the temple, hiring workers to clear it—reportedly for a charity school and a benevolent hall. These actions further burnished South China Sugar's reputation as public-spirited and righteous throughout Xuwen and Leizhou.
 
-Zhu An died two days later. He had already moved out of Hai'an Street by then. After Riyicheng Sugar Firm ceased business, he moved to his own farm estate outside Haikang County seat; he still continued to operate the shipping line. That night, a big fire broke out in the estate. Including himself, no one in the Zhu family survived.
+---
 
-The storm on Hai'an Street thus came to an end in a tragic way. Hearing these news, the directors of the transformed Leizhou Sugar Industry Guild didn't know whether to be happy or sad. Many recalled the ups and downs the Haiyi Guild had gone through over thirty years, feeling mixed emotions. However, this world had ultimately started to change.
+One morning, Feng Guangfeng was seen walking toward a teahouse he frequented when someone observed him speaking with a stranger not far from the entrance. Then Feng Guangfeng climbed into a two-bearer sedan chair and departed northward.
 
-Feng Guangfeng's death was a huge blow to South China Sugar. Whether it was Wen Tong, Chen Tianxiong, or Chang Shide, they all had a great fondness for this "outsider" within the Haiyi Guild and had planned to use him heavily in the future, but unexpectedly he died just like that.
+The next morning, his body was found beside a water pond near the factory—on the site of the future workers' village. He had been stabbed dozens of times, perforated like a sieve. The savagery was unmistakable: the killer had been consumed by hatred. Only his face remained intact—as if to ensure easy identification. His mouth was stuffed full of granulated sugar, crammed all the way down his throat.
 
-Chen Tianxiong blamed himself for a long time afterward for not paying attention to protecting the ally—they only thought Zhu An might retaliate against the transmigrators and their subordinates, never expecting he would choose to target Feng Guangfeng.
+Zhu An died two days later. By then he had already relocated from Hai'an Street. After Riyicheng Sugar Firm ceased operations, he had moved to his farm estate outside Haikang County seat, continuing to operate his shipping line. That night a great fire consumed the estate. Not a single member of the Zhu family survived.
 
-"This is because Feng Guangfeng was an outsider." Chen Tianxiong said. "He still couldn't bring himself to harm his fellow townsmen, nor did he dare to." He sighed, wondering if this cultural phenomenon was good or bad.
+Thus the storm on Hai'an Street concluded in blood and ashes. Hearing this news, the directors of the transformed Leizhou Sugar Industry Guild scarcely knew whether to rejoice or mourn. Many recalled the Haiyi Guild's thirty-year history—its struggles, its triumphs—and felt a welter of conflicting emotions. Yet this world had unmistakably begun to change.
 
-"There really aren't many good things among these sugar dogs. As soon as Feng Guangfeng died, not to mention anything else, they all thought about buying his firm. His child is young, and his woman can't show her face to manage business. It's clear they are preparing to bully the orphans and widow."
+Feng Guangfeng's death struck South China Sugar hard. Wen Tong, Chen Tianxiong, and Chang Shide had all grown fond of this "outsider" within the Haiyi Guild and had planned to rely heavily on him in the future. His sudden loss was a grievous blow.
 
-"And his clansmen from his wife's side, all want to take the opportunity to seize this property."
+Chen Tianxiong blamed himself for a long time afterward—they had focused on protecting the transmigrators and their direct subordinates, never imagining Zhu An would strike at Feng Guangfeng.
 
-Hearing this, Wen Tong said seriously: "Richangji must continue. South China Sugar will maintain this firm for him!"
+"It's because Feng Guangfeng was an outsider," Chen Tianxiong observed. "Zhu An still couldn't bring himself to harm his fellow townsmen—nor did he dare to." He sighed, wondering whether this cultural phenomenon was ultimately good or bad.
 
-Chang Shide also said: "Right, he contributed the most to this matter; he can't end up with nothing. Otherwise, how will others look at us in the future?"
+"There really isn't much decency among these sugar merchants. The moment Feng Guangfeng died—never mind condolences—they were all calculating how to acquire his firm. His child is young; his widow can't show her face to manage the business. They're clearly preparing to exploit the orphan and widow."
 
-"I have three points," Chen Tianxiong said. "One, the Sugar Industry Guild will come forward to hold a grand public memorial service. Everyone in the guild will attend, giving him utmost posthumous glory; two, the silver for the seven thousand *shi* of sugar has been paid; the warehouse receipts must be handed to him as soon as possible to comfort his wife; three, select an honest and reliable clerk from his own firm to manage on his behalf. The Sugar Industry Guild will be responsible for supervising the operation."
+"And her clansmen on her husband's side—they all want to seize the property."
+
+Hearing this, Wen Tong spoke decisively. "Richangji must continue. South China Sugar will preserve this firm for him."
+
+Chang Shide agreed. "He contributed more than anyone to this affair. He cannot end up with nothing. Otherwise, how will others view us in the future?"
+
+"I have three proposals," Chen Tianxiong said. "First: the Sugar Industry Guild will conduct a grand public memorial service. Every member will attend—the highest posthumous honor. Second: the seven thousand *shi* of sugar has been paid for; the warehouse receipts must be delivered to his family immediately, to provide for his widow. Third: select an honest, reliable clerk from his own firm to manage operations on his behalf. The Sugar Industry Guild will supervise."
 
 **(End of Chapter)**

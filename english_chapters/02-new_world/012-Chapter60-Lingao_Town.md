@@ -56,7 +56,7 @@ The city walls were very quiet. Lanterns hung at intervals. Militia patrolled th
 
 "The last siege was thirty years ago during the Ti'nan Village Li people's uprising. My grandfather was even conscripted as militia to defend the walls. Those Li—like crazy people, attacking in waves like an endless sea. Later, Ma Shi came again; they didn't attack, but the gates stayed sealed."
 
-*(Note: The Ti'nan Village Li uprising was in the 25th year of Wanli; the Ding'an Li man Ma Shi's uprising was in the 27th year of Wanli.)*
+*(Note: The Ti'nan Village Li uprising was in the twenty-fifth year of Wanli; the Ding'an Li man Ma Shi's uprising was in the twenty-seventh year of Wanli.)*
 
 "Surely this time will pass safely too."
 
@@ -72,7 +72,7 @@ After the Clerk went far, the trader muttered: "Only knows how to bully little p
 
 ---
 
-That night, Lingao's magistrate sat in his reception hall. His name was Wu Mingjin, from Nan-Zhili, nearly fifty, hair already gray. He'd been a *juren* but failed the higher examinations for years. He'd finally been assigned a county post through the civil-service placement system—and it was this remote southern borderland. Though Lingao had been a county for ages—even counting from when the county seat moved to Mo Village, that was 500 years—to this Nan-Zhili native, it was still barbarous wasteland. Since taking office, he'd tried to do right by the people: water management, land reclamation, encouraging farming and sericulture... hoping to leave a good name. But years of natural and man-made disasters—coastal beacon towers alarming multiple times monthly, pirates striking everywhere, Bopu, Shipai, Maniao—the government forces were helpless. The county could only close its gates and wait, using the "pirates leave when sated" strategy. Last autumn, another typhoon destroyed countless houses and villages, displacing people. He'd set up gruel stations and collected unclaimed corpses—but epidemic still broke out, killing many.
+That night, Lingao's magistrate sat in his reception hall. His name was Wu Mingjin, from Nan-Zhili, nearly fifty, hair already gray. He'd been a *juren* but failed the higher examinations for years. He'd finally been assigned a county post through the civil-service placement system—and it was this remote southern borderland. Though Lingao had been a county for ages—even counting from when the county seat moved to Mo Village, that was five hundred years—to this Nan-Zhili native, it was still barbarous wasteland. Since taking office, he'd tried to do right by the people: water management, land reclamation, encouraging farming and sericulture... hoping to leave a good name. But years of natural and man-made disasters—coastal beacon towers alarming multiple times monthly, pirates striking everywhere, Bopu, Shipai, Maniao—the government forces were helpless. The county could only close its gates and wait, using the "pirates leave when sated" strategy. Last autumn, another typhoon destroyed countless houses and villages, displacing people. He'd set up gruel stations and collected unclaimed corpses—but epidemic still broke out, killing many.
 
 *(Note: According to Lingao County Annals, between the Tianqi and Chongzhen eras, five magistrates are recorded. Ye Yao and Wu Mingjin were in office during late Tianqi / early Chongzhen. Since exact tenure dates are unknown, I've used the latter.)*
 

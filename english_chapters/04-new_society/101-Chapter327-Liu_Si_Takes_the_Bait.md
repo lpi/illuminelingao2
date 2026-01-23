@@ -1,133 +1,137 @@
 # Chapter 327 - Liu Si Takes the Bait
 
-"You beast, you're worse than an animal!" Zhao Dachong roared deliberately.
+"You beast—you're worse than an animal!" Zhao Dachong roared deliberately.
 
-At this moment, seven or eight people, men and women, were already standing in the room. In the chaos, Xin Nachun threw herself into Zhao Dachong's arms, crying desperately, but without tears.
+Seven or eight people, men and women, were already standing in the room. In the chaos, Xin Nachun threw herself into Zhao Dachong's arms, crying desperately—but without tears.
 
-"I don't want to live!" She screamed and started crying again.
+"I don't want to live!" she screamed, then resumed her wailing.
 
-Liu Si struggled to climb up, stood stunned for a moment, turned and ran out, but the door was blocked; he couldn't escape.
+Liu Si struggled to climb up, stood stunned for a moment, then turned to run. But the door was blocked; he couldn't escape.
 
-"Where do you think you're running?" Zhao Dachong grabbed him and slapped him several times. While beating him, he cursed: "You dare to defile my, Zhao Dachong's, intended wife! A yellow flower girl (virgin)! You raped a virgin! You look like a human, but you have the heart of a beast!"
+"Where do you think you're going?" Zhao Dachong grabbed him and delivered several slaps. While beating him, he cursed: "You dare defile my intended wife! A yellow flower girl, a virgin! You raped her! You look human, but you have a beast's heart!"
 
-While the commotion was getting out of hand, the people in the room stepped aside one after another. Zhao Haiji arrived.
+While the commotion escalated, people in the room stepped aside. Zhao Haiji arrived.
 
-Zhao Dachong deliberately said: "Eighth Uncle, this is the good guest you invited! He dared to rape your nephew's wife!"
+Zhao Dachong said deliberately: "Eighth Uncle, this is the good guest you invited! He dared rape your nephew's wife!"
 
-Xin Nachun howled while sobbing: "Eighth Uncle, you've harmed Little Chun miserably. Little Chun has no face to live, *wuwuwu*..."
+Xin Nachun howled through sobs: "Eighth Uncle, you've harmed Little Chun miserably. Little Chun has no face to live, *wuwuwu*..."
 
-Zhao Haiji feigned surprise and called out: "Oh!" acting greatly shocked.
+Zhao Haiji feigned shock: "Oh!" He acted greatly surprised.
 
-After a while of commotion, Zhao Haiji slowly said to Liu Si: "I treated you as a decent person, invited you to a banquet, and asked you to put in a good word for us and plead for mercy. It's fine if you were unwilling, but how could you be such a beast in human clothing, raping a civilian woman? In any dynasty or generation, that's a capital crime! Do you know that?" Speaking of this, he glared sideways and shouted: "Someone come!"
+After the commotion settled, Zhao Haiji said slowly to Liu Si: "I treated you as a decent person, invited you to a banquet, asked you to put in a good word for us and plead for mercy. It's fine if you were unwilling—but how could you be such a beast in human clothing, raping a civilian woman? In any dynasty, that's a capital crime! Do you know that?" His eyes glared sideways. "Someone come!"
 
 "Here." A half-grown boy walked out.
 
-"Tie him up. We'll send him to the Ancestral Hall and hand him over to the Work Team later. I want to see how their 'Protecting the Territory and Comforting the People' all day long actually comforts the people!" Saying this, Zhao Haiji lifted his foot and entered the inner room. Zhao Dachong also followed in.
+"Tie him up. We'll send him to the Ancestral Hall and hand him to the Work Team. I want to see how their 'Protecting the Territory and Comforting the People' actually comforts people!" Zhao Haiji strode into the inner room; Zhao Dachong followed.
 
-Liu Si was tied up by seven or eight hands and pushed into the inner room. As soon as he entered, someone kicked him in the back of the knees, forcing him to kneel.
+Liu Si was tied by seven or eight hands and pushed into the inner room. Someone kicked his knees, forcing him to kneel.
 
-"You tell me, what should be done about raping a civilian woman?" Zhao Haiji asked deliberately. Zhao Dachong viciously raised a哨棒 (sentry stick/cudgel), waved it in front of Liu Si's eyes, and said gruffly: "What to do? According to reason, attempting to rape a woman means beating to death without liability. For the sake of him being in the Work Team, hang him up and beat him, then send him to the Work Team and let them handle it! If they don't handle it, send him to the county yamen!"
+"Tell me—what should be done about raping a civilian woman?" Zhao Haiji asked deliberately. Zhao Dachong raised a cudgel, waving it before Liu Si's eyes: "What to do? By reason, attempted rape means being beaten to death without liability. For the sake of him being in the Work Team, hang him up and beat him, then send him to the Team and let them handle it! If they don't, send him to the county yamen!"
 
-Liu Si was sweating all over with fright and quickly begged for mercy. He said he drank too much for a moment and let lust overflow to the heavens. After begging bitterly for a long time, he managed to avoid suffering physical pain.
+Liu Si was sweating with fright and quickly begged for mercy, claiming he'd drunk too much and let lust overflow. After prolonged pleading, he managed to avoid physical pain.
 
-Seeing the timing was about right, Zhao Haiji said to Zhao Dachong: "Nephew, you go out first. Eighth Uncle will definitely give you an explanation."
+Seeing the timing was right, Zhao Haiji said: "Nephew, go out first. Eighth Uncle will definitely give you an explanation."
 
-Zhao Dachong humped pretentiously and went out.
+Zhao Dachong humped pretentiously and left.
 
-After everyone went out, Zhao Haiji called a advisor (Shida) and said: "Go get paper and pen. Write down everything he said himself."
+After everyone departed, Zhao Haiji called an advisor: "Get paper and pen. Write down everything he says."
 
-The advisor's paper, pen, ink, and inkstone were all ready-made, and he wrote on the kang table immediately.
+The advisor's supplies were ready; he wrote on the kang table immediately.
 
-"After writing it, read it to him," Zhao Haiji said.
+"After writing, read it to him."
 
-The advisor read: "The lowly one, Liu Si, broke into the home of civilian Zhao Dachong after the banquet, encountered civilian woman Xin Nachun, and carried out coercive rape. The woman was unwilling, and clothes were torn and stripped forcibly. The intent to rape is true."
+The advisor read: "The lowly one, Liu Si, broke into civilian Zhao Dachong's home after the banquet, encountered civilian woman Xin Nachun, and carried out coercive rape. The woman was unwilling, clothes torn and stripped forcibly. The intent to rape is true."
 
 Liu Si defended himself: "The lowly one didn't mean to..."
 
-"didn't mean to tear a girl's clothes?" Zhao Haiji said. Liu Si was speechless; this wasn't a Hongmen Banquet, but a trap to catch a dog.
+"Didn't mean to tear a girl's clothes?" Zhao Haiji said. Liu Si was speechless—this wasn't a Hongmen Banquet but a trap to catch a dog.
 
-Zhao Haiji asked again: "Do you want to settle this privately or publicly?"
+Zhao Haiji asked: "Do you want to settle this privately or publicly?"
 
-"Privately! Privately." Liu Si naturally knew the meaning of these words.
+"Privately! Privately." Liu Si naturally understood.
 
-If settled publicly, being pushed to the Ancestral Hall on the spot would not only cause him to lose face completely, but Chiefs Du and Dong would also be disgraced. He would be completely finished in the Transmigration Group in the future.
+Settled publicly, being pushed to the Ancestral Hall would not only humiliate him but disgrace Chiefs Du and Dong. He would be finished with the Transmigration Group forever.
 
-"At least you know what's good for you! Someone come, untie him!" Zhao Haiji smiled triumphantly. This Miss Xin was indeed quite useful. "To settle privately, press a handprint on this confession."
+"At least you know what's good for you! Someone untie him!" Zhao Haiji smiled triumphantly. This Miss Xin was indeed quite useful. "To settle privately, press a handprint on this confession."
 
-Helpless, Liu Si had to press a handprint on the paper. Zhao Haiji folded the paper and tucked it into his sleeve. He immediately changed his face: "Fourth Master Liu, you've been startled." He cupped his hands.
+Helpless, Liu Si pressed his print. Zhao Haiji folded the paper into his sleeve and immediately changed face: "Fourth Master Liu, you've been startled." He cupped his hands.
 
-Liu Si remained silent. With his wisdom, he clearly understood the other party's scheme.
+Liu Si remained silent. With his wisdom, he clearly understood their scheme.
 
-Zhao Haiji drank tea and said slowly: "We are now people on the same boat." Saying this, he paused, looked at Liu Si's face, and shouted: "Someone come!"
+Zhao Haiji drank tea slowly: "We are now people on the same boat." He paused, studied Liu Si's face, and shouted: "Someone come!"
 
-Someone outside had long since brought in a small official box with vermilion lacquer and copper corners, about the size of a woman's dressing box, heavy in hand, with a small lock hanging on it.
+A small official box with vermilion lacquer and copper corners was brought in—about the size of a woman's dressing box, heavy, with a small lock.
 
-Zhao Haiji took out a key from his sleeve and opened the lock: "Fourth Master Liu, this is a little token of my appreciation. Please accept it with a smile; consider it a small apology." Saying this, he opened the box, immediately making the slightly dim small room shine brilliantly.
+Zhao Haiji produced a key and opened it: "Fourth Master Liu, a little token of appreciation. Please accept with a smile—consider it an apology." He opened the box, making the dim room shine brilliantly.
 
-Inside the box were all kinds of jewelry, either gold or silver: from hairpins worn on the head to anklets on the feet; from bridal headpieces to children's lockets, in various styles, some even inlaid with pearls, jadeite, and gemstones. Floating light and overflowing color, it stunned Liu Si at once.
+Inside were all kinds of jewelry—gold and silver: hairpins, anklets, bridal headpieces, children's lockets, various styles, some inlaid with pearls, jadeite, and gemstones. Floating light and overflowing color stunned Liu Si.
 
-He had never seen so many good things in his life! Liu Si's hands trembled instantly. He hurriedly declined: "I dare not take this, it's too precious..."
+He'd never seen such riches. His hands trembled. He declined: "I dare not take this—it's too precious..."
 
-"Don't refuse face when it's given." Zhao Haiji pulled a long face.
+"Don't refuse face when offered." Zhao Haiji's expression turned cold.
 
-Helpless, Liu Si had to accept it.
+Helpless, Liu Si accepted.
 
-"You can keep the things with Widow Zhou." Zhao Haiji said with a smile, "Don't worry, the little ones will take good care of her. She has climbed up a high branch."
+"Keep them with Widow Zhou. Don't worry—we'll take good care of her. She's climbed up a high branch."
 
-Seeing Liu Si looking distracted and unable to recover his wits, he added another sentence: "You don't need to be afraid. Since Fourth Master Liu talks loyalty with us, we aren't people without affection and justice."
+Seeing Liu Si distracted, he added: "Don't be afraid. Since Fourth Master Liu talks loyalty with us, we aren't people without affection and justice."
 
 "Yes, yes." Liu Si finally caught his breath.
 
-Zhao Haiji leaned closer and whispered: "Help us do some things. heard the Work Team has been whispering all the time these days. What are they saying? Tell us everything. Naturally, there will be benefits for you in the future. Words count!"
+Zhao Haiji leaned close and whispered: "Help us do some things. I hear the Work Team has been whispering lately. What are they saying? Tell us everything. Naturally, there will be benefits—words count!"
 
-Liu Si had no choice but to say: "Since you gentlemen take care of me so much, I'll be at your old lordship's disposal from now on!"
+Liu Si had no choice: "Since you gentlemen take such care of me, I'll be at your disposal!"
 
-Zhao Haiji said: "Good, you go back first. If there's anything in the future, we'll send a message to you at Widow Zhou's house."
+"Good. Go back first. If there's anything, we'll message you at Widow Zhou's."
 
-After a few days, the implementation of the whole plan seemed very smooth. Although Old Man Mei continued to look listless, he could still speak some things under forced questioning. From Old Man Mei's mouth, Zhao Dachong knew that the two female officials were very dissatisfied with the current situation and often had quarrels. The Red-haired Monk was nothing special, just "preaching reason" all day long and teaching everyone to sing some songs.
+---
 
-Zhao Haiji secretly met Liu Si once at Widow Zhou's house. As expected, he obtained even more crucial news from his mouth.
+After a few days, the plan seemed to proceed smoothly. Though Old Man Mei continued looking listless, he could still speak under forced questioning. From him, Zhao Dachong learned the two female officials were very dissatisfied with the current situation and often quarreled. The Red-haired Monk was nothing special—just "preaching reason" all day and teaching songs.
 
-"The Australians' bandit suppression is expanding," Liu Si threw out an important piece of news to the impatient Zhao Haiji after eating and drinking his fill at Widow Zhou's house. "Men and horses are all being moved towards the Danzhou direction."
+Zhao Haiji secretly met Liu Si at Widow Zhou's house and obtained even more crucial news.
 
-Zhao Haiji became interested upon hearing this: "So, this area will soon be quiet?"
+"The Australians' bandit suppression is expanding," Liu Si reported after eating his fill. "Men and horses are being moved toward Danzhou."
 
-"Correct." Liu Si looked outside and lowered his voice, "The higher-ups are dissatisfied with the work of these two women and want to transfer a man here."
+Zhao Haiji became interested: "So this area will soon be quiet?"
 
-"Mm, mm," Zhao Haiji listened very carefully and asked, "What is this man's background?"
+"Correct." Liu Si glanced outside and lowered his voice: "The higher-ups are dissatisfied with these two women's work and want to transfer a man here."
 
-"I'm not too clear on that." Liu Si said, "The female official suranmed Du has been losing her temper all day these past few evenings, quarreling with the one surnamed Dong. The two are at odds. Seems it's because of this matter."
+"Mm, mm." Zhao Haiji listened carefully. "What's this man's background?"
 
-This matched the news Old Man Mei told. Zhao Haiji believed firmly.
+"I'm not clear on that. Chief Du surnamed Du has been losing her temper every evening, quarreling with Chief Dong. They're at odds—seems it's because of this."
 
-"...These days, the guards are packing their luggage. The new captain will probably arrive in a few more days. Several people have to be dispatched from here to escort the two broads back. Truly troublesome."
+This matched Old Man Mei's news. Zhao Haiji believed firmly.
 
-Zhao Haiji's eyelid jumped upon hearing this. *Right, transferring two women back, they definitely won't let them travel alone; they will surely draw people to escort them. This is a good opportunity—the military strength in the Ancestral Hall will be empty.*
+"...These days, guards are packing luggage. The new captain will probably arrive soon. Several people must be dispatched from here to escort the two women back. Truly troublesome."
 
-"How many people are going?"
+Zhao Haiji's eyelid twitched. *Right—transferring the women back, they'll surely draw people to escort them. A good opportunity: the ancestral hall's military strength will be empty.*
 
-"About six or seven." Liu Si saw his eyes lighting up. "What? You are—"
+"How many are going?"
 
-"Nothing, nothing!" Zhao Haiji said hurriedly. *This must be discussed with Zhao Dachong quickly; a great opportunity cannot be missed.*
+"About six or seven." Liu Si saw his eyes lighting up. "What? You're—"
 
-That night, Zhao Dachong and Zhao Haiji discussed and decided that Zhao Dachong himself would go find Zhao Haixie and Xin Nari to discuss this matter and bring the troops back by the way.
+"Nothing, nothing!" *This must be discussed with Zhao Dachong quickly—a great opportunity cannot be missed.*
 
-"Indeed a good opportunity! But for this to succeed, we still need Liu Si to exert some effort." Xin Nari nodded after hearing the news brought by Zhao Dachong who rushed over overnight.
+That night, Zhao Dachong and Zhao Haiji discussed and decided Zhao Dachong would find Zhao Haixie and Xin Nari, discuss the matter, and bring the troops back.
 
-"How so?" Zhao Dachong asked.
+"Indeed a good opportunity! But to succeed, we still need Liu Si's help." Xin Nari nodded after hearing the overnight news.
 
-"The matter of ammunition!" Xin Nari said, "Even if five or six of them leave, there are still a dozen left. If they start shooting, we still can't handle it." Zhao Haixie had been tormented by the Transmigration Army and had a direct understanding of the power of firearms.
+"How so?"
 
-"Let Liu Si coordinate from the inside. Just don't know if this kid has the guts!"
+"The ammunition matter!" Xin Nari said, "Even with five or six gone, a dozen remain. If they start shooting, we still can't handle it." Zhao Haixie had been tormented by the Transmigration Army and directly understood firearms' power.
 
-"With a handle held in our hands, are we afraid he won't do it?" Zhao Haixie said.
+"Let Liu Si coordinate from inside. Just don't know if this kid has the guts!"
 
-"Useless." Xin Nari shook his head. "Liu Si is just afraid of a confession. If you want him to pass a message, it's fine. If you want him to do something that will cost his head, he won't do it. He'll sell us out the moment he turns around!"
+"With a handle held over him, should he refuse?" Zhao Haixie said.
 
-"Then what to do?" Zhao Dachong became anxious.
+"Useless." Xin Nari shook his head. "Liu Si only fears a confession. Passing messages is fine. Doing something that costs his head—he won't. He'll sell us out the moment he turns around!"
 
-"Under heavy rewards, there must be brave men!" Xin Nari waved his hand. "How much money and valuables are still available in the village?"
+"Then what?"
 
-"Still have to give money?" Zhao Dachong almost shouted out. "We already gave him an official box of jewelry last time!" He had his own considerations for refusing to take out money. Zhao Haiqing was Dang Namen's "General Manager"; the bandit gang's money and grain were all handled by him. After the stronghold was broken, the large savings were gone, but many valuables were still hidden in Daolu Village. Although these things were not under Zhao Dachong's control, Zhao Dachong had long known the hiding place and specific amount from his father. He regarded this wealth as his own capital and had been hoarding this secret, unwilling to bring it out easily—although Zhao Dachong was arrogant, he wasn't stupid: Xin Nari now had men and connections in the Greenwood; if he himself wanted to be the boss in the bandit gang, or taking a step back, a big leader, he could only rely on holding this wealth.
+"Under heavy rewards, there must be brave men!" Xin Nari waved his hand. "How much money and valuables remain in the village?"
 
-How could Xin Nari not know his wishful thinking? But right now, the bandit gang was poor and blank; only Zhao Dachong still controlled some wealth. He had to try hard to persuade him.
+"Still have to give money?" Zhao Dachong nearly shouted. "We already gave him a box of jewelry!"
+
+He had his own reasons for refusing. Zhao Haiqing had been Dang Namen's "General Manager"—the gang's money and grain had passed through his hands. After the stronghold fell, large savings were gone, but many valuables remained hidden in Daolu Village. Though not under Zhao Dachong's control, he'd long known the hiding place and exact amounts. He regarded this wealth as his own capital and had been hoarding the secret—though arrogant, Zhao Dachong wasn't stupid. Xin Nari now had men and Greenwood connections; if Zhao Dachong himself wanted to become boss, or at minimum a major leader, he could only rely on holding this wealth.
+
+How could Xin Nari not know his wishful thinking? But right now, the gang was poor and blank—only Zhao Dachong still controlled wealth. He had to work hard to persuade him.

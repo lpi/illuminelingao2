@@ -1,77 +1,79 @@
 # Chapter 340 - Worker Grade System
 
-"Specific details can be found in the documents sent to each ministry and commission office. Everyone can submit your opinions to the Ministry of Education's OA system after reading."
+"Specific details are in the documents distributed to each ministry and commission office. Please submit your comments to the Ministry of Education's OA system after reviewing them."
 
-"Leaving schools aside, isn't it time to organize worker grading?" Zhan Wuya, the representative of the Industrial and Energy Committee, said.
+"Setting schools aside for the moment—isn't it time to organize worker grading?" Zhan Wuya, representing the Industrial and Energy Committee, spoke up.
 
-Wu De touched his forehead. "I actually forgot about this! You are right; the Ministry of Education wants to work on diplomas, and professional titles must also be addressed!"
+Wu De pressed his forehead. "I'd actually forgotten about that! You're right. The Ministry of Education is implementing diplomas; professional titles must be addressed as well."
 
-The current wage distribution system had wage standards uniformly formulated by the Labor Affairs Office under the Civil Affairs Committee, and then uniformly issued through the Delong Bank. There were only three or four grades of staff wages; people got paid about the same regardless of what they did. Under this system, the difficulty of work content could not be reflected, nor could income grades be widened.
+The current wage distribution system used standards formulated uniformly by the Labor Affairs Office under the Civil Affairs Committee, then disbursed through Delong Bank. Only three or four wage grades existed; compensation was essentially identical regardless of job function. Under this structure, neither the difficulty of work nor individual merit could be reflected, and no meaningful income differentiation existed.
 
-Zhan Wuya nodded. "Job title ranks are very useful for incentivizing workers to learn technology and make progress. Moreover, the next step involves wage schemes. Without grades, we can only go by seniority, which easily causes dissatisfaction."
+Zhan Wuya nodded. "Job-title rankings are essential for incentivizing workers to learn skills and advance. Moreover, we're about to overhaul wage scales. Without grades, the only option is seniority-based pay, which inevitably breeds resentment."
 
-"Capable people can't get better treatment, while everyone just muddles along for seniority, right?" Wu De naturally knew this situation.
+"Capable people receive no better treatment while everyone coasts on tenure—is that the situation?" Wu De understood the problem intimately.
 
-"Yes. Now there are over a thousand workers under the Industrial and Energy Committee. This matter must be put on the agenda." Zhan Wuya took out a roll of paper from his bag. "This is a technical grade scheme for workers under the Industrial and Energy Committee that we formulated ourselves."
+"Exactly. The Industrial and Energy Committee now employs over a thousand workers. This matter must be put on the agenda." Zhan Wuya produced a rolled document from his bag. "This is a technical grade scheme for industrial workers that we've drafted internally."
 
-Under this system, an industrial worker started as an apprentice. During the apprenticeship, no wages were paid, only a small amount of pocket money. Upon completion of the apprenticeship and passing the skills assessment, one became a Helper. A Helper was not a regular worker and only received a "Labor Allowance" equivalent to fifty percent of a regular worker's wage. After working as a Helper for a full year, passing the skills assessment, and holding a Class C Diploma simultaneously, one could be promoted to Level 1 Regular Worker.
+Under the proposed system, an industrial worker would begin as an Apprentice. During the apprenticeship, no wages were paid—only a small stipend for pocket money. Upon completing the apprenticeship and passing a skills assessment, the worker became a Helper. Helpers were not regular employees; they received only a "Labor Allowance" equivalent to fifty percent of a regular worker's wage. After one full year as a Helper—contingent on passing another skills assessment and holding a Class C Diploma—a worker could be promoted to Level 1 Regular Worker.
 
-Once becoming a regular worker, one entered the formal salary system. What he received was no longer "pocket money" and "allowance," but a formal wage. The treatment also improved significantly. In the future, as long as he worked hard and kept the defective product rate below the standard line, he could be promoted one level every year. Level 1, Level 2, Level 3, promoting up like this. For every promotion, the wage increased by a certain amount. Up to Level 4 Worker. Going further up required technical exams.
+Attaining regular status meant entering the formal wage system. Payment became a proper *salary*, not "pocket money" or "allowance," and treatment improved significantly. Thereafter, with diligent work and a defect rate below the standard threshold, advancement of one level per year was possible. Level 1, Level 2, Level 3, Level 4. Each promotion brought a corresponding wage increase. Beyond Level 4, further advancement required technical examinations.
 
-A Level 4 Worker passing the skills assessment and holding a Class B Diploma could be promoted to Technician. Technicians had four levels, but every level required passing an exam. Exams were held once a year.
+A Level 4 Worker who passed the skills assessment and held a Class B Diploma could be promoted to Technician. Technician ranks ran from Level 1 to Level 4, but each level required examination. Exams were administered annually.
 
-Above Level 4 Technician, holding a Class A Diploma, one could participate in the Assistant Engineer assessment. Obtaining Assistant Engineer was the end point for most technicians; only Assistant Engineers who passed the Secondary School Diploma exam could participate in the Engineer assessment.
+Above Level 4 Technician, a worker holding a Class A Diploma could sit for the Assistant Engineer assessment. For most technicians, Assistant Engineer represented the terminal rank. Only those who subsequently passed the Secondary School Diploma examination could attempt the Engineer assessment.
 
-According to Zhan Wuya's calculation, a naturally intelligent indigenous worker with strong hands-on ability and eagerness to learn would take about ten years at the fastest to be promoted to Assistant Engineer. As for Engineer, it depended on his learning ability. Ordinary workers could probably only test up to Level 3 or 4 Technician.
+By Zhan Wuya's calculation, a naturally gifted indigenous worker—quick-handed and eager to learn—would require approximately ten years at minimum to reach Assistant Engineer. Engineer would depend entirely on individual learning capacity. Ordinary workers could probably advance only to Level 3 or 4 Technician.
 
-Wu De looked at the entire plan and felt it was okay, so he said, "Is it going to be submitted to the Executive Committee for discussion?"
+Wu De reviewed the proposal. "Seems reasonable. Planning to submit it to the Executive Committee for discussion?"
 
-"Not yet. I am soliciting opinions privately now. Everyone, please give your comments. Human resources are under your leadership, so I especially want to ask for your views."
+"Not yet. I'm gathering informal feedback first. I value your input especially, since human resources fall under your leadership."
 
-"Alright," Wu De said. "I don't understand worker grade systems much. However, do you plan to have a 'one size fits all' approach or separate by job type?"
+"Very well." Wu De considered. "I'm not an expert on worker grading systems. But tell me—are you planning a uniform structure, or different tracks by job type?"
 
-A look of admiration appeared on Zhan Wuya's face. "Of course, by job type."
+Respect flickered across Zhan Wuya's face. "By job type, naturally."
 
-If not by job type, and all workers got paid by grade regardless of work, workers in high-tech and high-danger jobs would lose out too much. A Level 3 Packer and a Level 3 Lathe Operator were obviously not on the same level. But technical content wasn't the only factor to consider. Although stevedores on the dock had little technical content, theirs was extra-heavy physical labor, requiring much more grain rations than lathe operators.
+A uniform system would be inequitable. If all workers were paid solely by grade regardless of occupation, those in high-skill or high-danger positions would be severely shortchanged. A Level 3 Packer and a Level 3 Lathe Operator were obviously not equivalent. Yet technical content alone couldn't be the only criterion. Stevedores on the docks performed low-skill work, but their labor was extraordinarily demanding—they required grain rations far exceeding those of lathe operators.
 
-"Different job types have different starting salary levels," Zhan Wuya said. Of course, this was a complex matter. It would be unrealistic for Zhan Wuya or anyone in the Transmigration Group to do it from scratch. Fortunately, they had plenty of historical experience—materials and regulations of this kind could be consulted in the Grand Library, and just needed modification according to the real environment.
+"Different job categories will have different base salary levels," Zhan Wuya confirmed. This was complex work. It would be unrealistic to expect Zhan Wuya or anyone else in the Transmigration Group to develop such a system from scratch. Fortunately, abundant historical precedent was available—the Grand Library contained numerous relevant materials and regulations, requiring only adaptation to current circumstances.
 
-"No matter what job type, the average income level of an industrial worker should at least be able to support a basic household of four."
+"Regardless of job category, the average income of an industrial worker should at minimum support a basic household of four."
 
-A heavy physical labor worker needed between 3,500 to 4,000 kilocalories of heat daily. If strictly ingesting carbohydrates, each person needed at least twenty kilograms of grain. Equivalent to the Lingao Grain Circulation Coupons they issued now, it was 40 Yuan.
+A heavy-labor worker needed between 3,500 and 4,000 kilocalories daily. If intake consisted purely of carbohydrates, that meant at least twenty kilograms of grain per month. In Lingao Grain Circulation Coupons, the currency they had issued: 40 Yuan.
 
-His wife—ancient southern farm women were not inferior to men in working, and Hainan women were famous for doing heavy, tiring, and hard work—would require at least fifteen kilograms of grain.
+His wife—southern agricultural women worked no less than men, and Hainan women were famously capable of heavy, exhausting toil—would need at least fifteen kilograms of grain.
 
-Assuming two dependents, calculated at twelve kilograms of grain per person per month. His wage would be 40 + 30 + 48, totaling: 118 Yuan Lingao Grain Circulation Coupons.
+Assuming two dependents at twelve kilograms each per month: the total came to 40 + 30 + 48 = 118 Yuan in Lingao Grain Circulation Coupons.
 
-Of course, if there was really only this much, the family could only eat to stay alive. However, the transmigrators' labor policy was that women should also work. The wage income earned by women could be used for other expenses, such as buying clothes, purchasing daily necessities, buying some fish and meat, etc. If children or elderly in the family could also work, income could be further increased. This could stimulate more labor to actively enter the market. Life wouldn't be destitute either—transmigrators didn't want their people to be so poor they couldn't afford any consumer goods.
+At that level, of course, the family would barely survive. However, the transmigrators' labor policy mandated that women also work. Female wage income could cover other expenses: clothing, household necessities, occasional fish and meat. If children or elderly family members could also work, income would increase further. This would encourage more labor to enter the market, while preventing utter destitution. The transmigrators wanted their people able to afford at least *some* consumer goods.
 
-"When I was on naval vessels in the past, comrades would encounter a problem when promoting—professional rank restriction. Do you understand what I mean?" Wu De said—every professional post on a vessel had a maximum military rank. To be promoted to a higher rank, one had to switch professional posts.
+"When I served on naval vessels," Wu De said, "crew members faced a problem upon promotion: professional rank ceilings. Each post had a maximum military rank. To advance higher, one had to change positions. Do you understand what I mean?"
 
-"We considered this too. Depending on the technical content of the job type, the maximum promotion level for each job type is different." Zhan Wuya said, "Job types with very low technical content don't have Technician levels, let alone Engineers—unless he is willing to change to another job type..." According to Zhan Wuya's idea, this could incentivize workers to learn new technologies.
+"We've considered that as well. Depending on a job category's technical content, each has a different maximum promotion level." Zhan Wuya nodded. "Categories with very low technical content have no Technician ranks, let alone Engineer—unless the worker is willing to transfer to a different job category..." This design was intended to incentivize workers to acquire new skills.
 
-"You are being a bit idealistic here. When workers reach a certain age, marry and have children, and burdens become heavy, how easy is it to ask them to change professions and posts! Will this create a batch of low-skill workers hovering in the low-income group for a long time?"
+"You're being somewhat idealistic here. When workers reach a certain age, marry, have children, and their burdens grow heavy, asking them to retrain and switch careers is no simple matter. Might this create a permanent underclass of low-skill workers trapped in low-income brackets?"
 
-"This is also unavoidable." Zhan Wuya considered and said, "We are not here to engage in egalitarianism, nor a socialist big family. It is necessary to widen income brackets according to ability levels."
+"That's unavoidable." Zhan Wuya reflected. "We're not here to practice egalitarianism or build a socialist welfare family. Differentiating income by ability level is necessary."
 
-"Mm, so we have to grasp this degree. Don't unconsciously fall into the idea of a welfare society." Wu De said, "Treatment cannot be too low; too low affects the physical health of employees and the next generation of laborers, and also affects labor efficiency. It also cannot be too high. 'It is easy to go from frugality to extravagance, but hard to go from extravagance to frugality.'"
+"True. But we must calibrate carefully. Don't unconsciously slide into a welfare-state mentality." Wu De's tone was measured. "Compensation cannot be too low—that damages employees' health and the next generation of laborers, and depresses productivity. But it cannot be too high, either. 'It is easy to go from frugality to extravagance, but hard to go from extravagance to frugality.'"
 
-Transmigrators couldn't turn stone into gold. Advanced technology didn't mean it could be directly translated into wealth. The primitive accumulation of this new nation had to rely on external plunder and internal exploitation just the same.
+The transmigrators could not spin straw into gold. Advanced technology did not automatically translate into wealth. The primitive accumulation of this new nation would require external plunder and internal exploitation just like any other.
 
-Zhan Wuya suddenly felt a chill on his back. "To be honest, I'm quite unaccustomed to it."
+A chill ran down Zhan Wuya's spine. "Honestly, it feels strange."
 
-"Unaccustomed to speaking so nakedly? Hehe." Wu De laughed. "This shows one point: our petty-bourgeois sentiments are still too strong." He added, "However, low-income families must also be taken care of well. Provide more basic welfare. Actually, sometimes small favors are more useful than raising wages."
+"Strange to speak so nakedly? Heh." Wu De laughed. "That only proves our petty-bourgeois sentiments remain too strong." He paused. "However, low-income families must also be looked after. Provide more basic welfare. Sometimes small gestures are more effective than wage increases."
 
-"This..." Zhan Wuya couldn't say what small favors besides distributing money and things could be given to workers. Seeing Wu De's appearance, he seemed to have a plan in mind. He thought that anyway this matter was within Wu De's responsibility; he just needed to follow instructions.
+"Such as...?" Zhan Wuya couldn't immediately think what benefits, beyond money and goods distribution, could be offered to workers. Wu De's expression suggested he had something specific in mind. Well, this was Wu De's domain; Zhan Wuya would simply follow instructions.
 
-Wu De's labor welfare plan was in a Sacred Ship brand notebook in his pocket. Besides this, there was a more specific labor system plan. His notebook was full of various key points and ideas. Whenever he was free, he took it out to ponder. Although these plans couldn't be implemented now due to objective conditions, the veins were gradually becoming clear. Once the time was ripe, he prepared to submit them to the Executive Committee.
+Wu De's labor welfare plan was outlined in a Sacred Ship brand notebook in his pocket. Alongside it was a more detailed labor system proposal. The notebook bulged with key points and ideas. Whenever he had free time, he took it out to ponder. Though objective conditions didn't yet permit implementation, the blueprint was gradually taking shape. Once the moment was right, he would submit it to the Executive Committee.
 
-"Hippo, that guy! Went to inspect hygiene and never came back! Could he know what I am doing? And He Ping, came back from the voyage with a few days off to rest, and simply rested until he vanished!" Shi Niaoren hadn't seen them for several nights when conducting "professional study" watching AVs.
+---
 
-"If they don't watch, fine. Let them regret not seeing Little Sora's 'uncensored' film!" He comforted himself while fishing out a chaotic mixture.
+"Hippo! That bastard! Went to do a hygiene inspection and never came back! Does he know what I'm doing? And He Ping—came back from the voyage, got a few rest days, and simply vanished!" Shi Niaoren hadn't seen either of them for several nights of "professional study"—their euphemism for AV viewing sessions.
 
-"AV varieties are really numerous; Little Sora's skills are really exciting!" Shi Niaoren recalled the grandeur of yesterday's professional study nightlife while his hands and feet didn't stop numbering those balls of mixture.
+"If they won't watch, fine. Let them regret missing Little Sora's 'uncensored' edition!" He consoled himself while sorting through a chaotic assortment of samples.
 
-"This is the 30th sample, the last one." Shi Niaoren performed microscopy with grief and indignation. "This sample really stinks." Saying this, he glanced at the petri dish next to him, which contained the culture specimen of the poop from the immigrant who kicked the bucket early in the morning. In a while, he had to check carefully if there were vibrio bacteria. Thinking of this, he couldn't help checking if his mask was in the proper position.
+"The variety in the AV world is truly remarkable. Little Sora's technique is exceptional!" Shi Niaoren reminisced about the previous night's "professional study" while his hands continued cataloguing the specimens.
 
-The immigrant who died suddenly in the morning was still parked in the underground morgue—the temperature there was slightly lower. But it couldn't be kept for long. Shi Niaoren had to confirm quickly if he died of some epidemic disease. If not, there was still time to organize an autopsy at night; otherwise, it had to be pulled out for cremation quickly—this stinking matter was again the Health Department's business. He sighed; he had already quarreled with the high levels of the Executive Committee regarding corpse disposal. The Executive Committee seemed to think the sea was a natural body dumping ground, suggesting he send people to Bopu to dump bodies. But he pointed out many times that the Health Department needed a dedicated incinerator to burn various medical wastes and deceased suspected of infectious diseases. Now pulling them directly to open ground to burn polluted the environment and didn't burn cleanly. It was simply creating sources of pathogen transmission.
+"This is the thirtieth sample. The last one." He performed the microscopy with weary resignation. "This sample absolutely reeks." His gaze flicked to a nearby petri dish containing the culture specimen from the immigrant who had died that morning. Shortly, he would need to check carefully for *Vibrio* bacteria. The thought made him verify his mask was properly positioned.
+
+The sudden-death victim remained in the underground morgue—temperatures were slightly cooler there, but the body couldn't be preserved for long. Shi Niaoren had to confirm quickly whether death had resulted from epidemic disease. If not, there would be time to organize an autopsy tonight. If so, immediate cremation was necessary. Corpse disposal was—once again—the Health Department's burden. He sighed. He had already quarreled repeatedly with Executive Committee higher-ups about body disposal. They seemed to think the sea was a natural dumping ground and suggested he simply transport corpses to Bopu for ocean disposal. He had pointed out repeatedly that the Health Department required a dedicated incinerator to burn medical waste and bodies of suspected infectious cases. Currently, dragging them to open ground for burning polluted the environment and failed to achieve complete incineration. It was practically a recipe for creating pathogen transmission sources.

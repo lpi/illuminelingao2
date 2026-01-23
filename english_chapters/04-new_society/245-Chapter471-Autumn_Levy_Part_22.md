@@ -1,36 +1,36 @@
 # Chapter 471 - Autumn Levy (Part 22)
 
-Early on the morning of the interrogation, Wu Ya and Sun Ruiwu arrived in full official regalia. Both had spent a restless night—only after returning home had they learned that all servants sent on errands had been turned back, told that strict security measures were in place and no unauthorized movement in or out of the county yamen was permitted.
+On the morning of the interrogation, Wu Ya and Sun Ruiwu arrived at the county yamen in full official regalia, both men showing the strain of a sleepless night. They had returned home the previous evening only to discover that every servant dispatched on errands had been turned back at the gates—strict security measures were in force, and no unauthorized movement in or out of the compound would be permitted.
 
-The next morning, the two men forced themselves to appear alert, washing up early and proceeding to the Flower Hall. There they saw the court tables arranged along with a dozen or so chairs. Some of the gentry involved in the case had already arrived and were exchanging courtesies in the courtyard.
+Now, having forced themselves to appear alert through hasty washing and dressing, the two officials proceeded to the Flower Hall. Court tables had been arranged within, flanked by a dozen or so chairs. Several of the gentry implicated in the case had already arrived and were exchanging courtesies in the courtyard.
 
-Sun Ruiwu had sharper eyes and spotted Liu Dalin already present, conversing with others inside the hall. He hurried over to pay his respects.
+Sun Ruiwu, ever sharp-eyed, spotted Liu Dalin inside the hall, conversing with the others. He hurried over to pay his respects. The old gentleman's complexion appeared remarkably well—surprising, given that this normally reclusive near-hermit had chosen to observe the proceedings in person. For someone of his status, sending a steward would have more than sufficed. The Australians commanded impressive respect indeed.
 
-Liu Dalin's complexion seemed quite well. That this normally reclusive near-hermit would come to observe proceedings in person surprised Wu Ya greatly—for someone of his status, sending a steward would have been more than sufficient. The Australians commanded impressive respect indeed!
+Since this was an interior hall proceeding, all formal ceremonial protocols were dispensed with. Wu Ya and Sun Ruiwu took seats at the upper bench, while Zhou Dongtian was given a separate bench below them. Two rows of constables stood in neat formation holding their water-and-fire staffs, though their uniforms were a mismatched assortment—the official robes had been stripped away and worn by Political Security students.
 
-Since this was an interior hall proceeding, all the formal ceremonial procedures were dispensed with. Wu Ya and Sun Ruiwu took seats at the upper bench, while Zhou Dongtian was given a separate bench below them. Below, two rows of constables stood in neat rows holding their water-and-fire staffs, though their uniforms were a mishmash—the official robes had been stripped away and worn by the Political Security students.
+Zhou Dongtian surveyed this courtroom scene that looked as though it belonged in a television drama. Knowing he would soon be playing "the Magistrate," he couldn't help feeling awkward about the whole affair. *This judicial system definitely needs reform,* he thought. *Going through these theatrical motions all day would be unbearable.*
 
-Zhou Dongtian surveyed this TV-drama-like courtroom scene, knowing he would soon be playing "the Magistrate" and feeling quite awkward. He thought to himself: this judicial system definitely needs reform—going through theatrical motions like this all day long would be unbearable!
+Lin Changsan saw that the officials were seated and the gentry had arrived. He was about to lead the ceremonial cry announcing court was in session when Zhou Dongtian waved him off.
 
-Lin Changsan saw that the officials were all seated and the gentry had arrived. He was about to lead the cry announcing court was in session when Zhou Dongtian waved him off. "Bring in the prisoners!"
+"Bring in the prisoners!"
 
-The three suspects were brought forward. Zhou Dongtian asked the routine questions—names, ages, native places—knowing full well these three weren't the real culprits. This was all just theater for now, so without wasting words, he proceeded directly to questioning them about the case. The three were quite cooperative, readily confessing to all charges.
+The three suspects were brought forward. Zhou Dongtian asked the routine questions—names, ages, native places—knowing full well these three weren't the real culprits. This was all theater for now, and without wasting words, he proceeded directly to questioning them about the case. The three proved quite cooperative, readily confessing to all charges.
 
 "Who instructed you to commit these acts!" Zhou Dongtian barked.
 
 "Your Honor," the one in the middle said, "it was Li Gong who gave the orders."
 
-The observing gentry's expressions changed. Li Gong was Li Xiaopeng's personal attendant—everyone in the county seat knew this. Everyone also knew of Li Xiaopeng's recent activities, running about with Huang Binkun rallying signatures for the petition. All eyes immediately turned to Huang Binkun.
+The observing gentry's expressions shifted. Li Gong was Li Xiaopeng's personal attendant—everyone in the county seat knew this. Everyone also knew of Li Xiaopeng's recent activities, running about with Huang Binkun rallying signatures for the petition. All eyes immediately turned to Huang Binkun.
 
-Huang Binkun was startled. He hadn't expected this to be pinned on him! He was about to stand up and protest when he caught Liu Dalin's slight shake of the head. He restrained himself and waited to see how things would develop.
+Huang Binkun started. He hadn't expected this to be pinned on him! He was about to rise and protest when he caught Liu Dalin's slight shake of the head. Restraining himself, he settled back to observe how matters would develop.
 
 Zhou Dongtian didn't know who Li Gong was. He asked, "Who is Li Gong?"
 
-Someone nearby quickly replied: "He is Li Xiaopeng's personal servant."
+Someone nearby quickly supplied the answer: "He is Li Xiaopeng's personal servant."
 
 "Li Xiaopeng?" Zhou Dongtian casually flipped through the materials at hand and understood at once. "Ah, the young master of the night-soil tycoon family."
 
-When this title was pronounced publicly, the whole hall could barely contain their laughter. The constables struggled to keep straight faces; the gentry either covered their mouths snickering or took drinks of water pretending to cough.
+When this title was pronounced in open court, the whole hall could barely contain its laughter. The constables struggled to keep straight faces; the gentry either covered their mouths to snicker or took sips of water while pretending to cough.
 
 "Where were the small knives purchased?"
 
@@ -42,35 +42,35 @@ When this title was pronounced publicly, the whole hall could barely contain the
 
 Zhou Dongtian sneered. "Is your testimony truthful?"
 
-"Every word is true, we dare not deceive Your Honor."
+"Every word is true. We dare not deceive Your Honor."
 
 "Where exactly did you shoot the arrow from? What draw-weight was the bow?"
 
-How could they know such details? They looked at each other blankly. Finally one of them ventured, "It was in the street in front of Master Liu's gate. A ten-*shi* bow."
+How could they know such details? They exchanged blank looks. Finally, one of them ventured, "It was in the street in front of Master Liu's gate. A ten-*shi* bow."
 
-"Ridiculous!" Zhou Dongtian slammed the table. "Shooting from the street—then why does the arrow's trajectory come from the opposite direction? A ten-*shi* bow? Are you Li Guang reborn? Furthermore, Li Gong has no grudge against any of these gentlemen—why would he do such a thing? This doesn't make sense. You're obviously lying!" He bellowed, "Take them down and give each twenty strokes!"
+"Ridiculous!" Zhou Dongtian slammed the table. "Shooting from the street—then why does the arrow's trajectory come from the opposite direction? A ten-*shi* bow? Are you Li Guang reborn? Furthermore, Li Gong bears no grudge against any of these gentlemen—why would he do such a thing? This makes no sense. You're obviously lying!" He bellowed, "Take them down and give each twenty strokes!"
 
-The constables shouted in unison: "Twenty strokes!" They dragged the three down from the hall for the paddling. Fu He had already given them instructions—this was a well-practiced routine. The paddles struck only the floor; though the cracking sounds were impressively loud, not a scrap of skin was actually lost from anyone's backside. Soon they were brought back up to report completion. Zhou Dongtian observed that the three were merely affecting expressions of pain—the men below were faking the punishment. His expression darkened:
+The constables shouted in unison: "Twenty strokes!" They dragged the three from the hall for paddling. Fu He had already given them instructions—this was a well-practiced routine. The paddles struck only the floor; though the cracking sounds were impressively loud, not a scrap of skin was actually touched. Soon they were brought back to report completion. Zhou Dongtian observed that the three were merely affecting expressions of pain—the men below were faking the punishment. His expression darkened.
 
 "Trying to play the 'striking the floor' trick on me?" Zhou Dongtian's face turned menacing. "Little You, give these worthless wretches a proper lesson!"
 
-You Guotuan brought over several interns from the Political Security interrogation division. They immediately seized the constables who had administered the paddling and forced them to their knees in the hall, twisting their arms into reverse joint-locks that made them grimace in pain.
+You Guotuan brought over several interns from the Political Security interrogation division. They immediately seized the constables who had administered the paddling and forced them to their knees in the hall, twisting their arms into reverse joint-locks that made them grimace in agony.
 
-"These useless idiots—what's the point of leaving their hands intact?" Zhou Dongtian waved his hand. "Cripple them!"
+"These useless idiots—what's the point of leaving their hands intact?" Zhou Dongtian waved dismissively. "Cripple them!"
 
-Sharp cracking sounds immediately echoed through the hall. The constables' joints were dislocated using special techniques. Screams rang out continuously; some fainted from the pain on the spot.
+Sharp cracking sounds echoed through the hall. The constables' joints were dislocated using specialized techniques. Screams rang out continuously; some fainted from the pain on the spot.
 
 "Jail Warden Sun!"
 
-"Y-yes." Sun Ruiwu hadn't expected this Australian to resort to violence right there in court. He was already shaking with fear.
+"Y-yes." Sun Ruiwu hadn't expected this Australian to resort to violence right there in open court. He was already shaking with fear.
 
 "These useless men serve no purpose. Dismiss them!"
 
 "Yes, yes, dismissed immediately!"
 
-The men were dragged off the hall and bound hand and foot. You Guotuan's waiting team were all interns from the Political Security interrogation division—every one of them harboring deep grudges against officialdom and utterly ruthless. They immediately trussed the men up like rice dumplings and threw them on the ground, with a cord looped around their throats—a technique Wu De had taught them, which could silence a prisoner without using a gag.
+The men were dragged from the hall and bound hand and foot. You Guotuan's waiting team consisted entirely of interns from the Political Security interrogation division—every one of them harboring deep grudges against officialdom and utterly ruthless. They immediately trussed the men up like rice dumplings and threw them to the ground, with cords looped around their throats—a technique Wu De had taught them, one that could silence a prisoner without needing a gag.
 
-Everyone in the hall had turned pale, expecting these constables with dislocated arms would face a grim fate—at best being sent to Nanbo to break rocks.
+Everyone in the hall had turned pale. These constables with dislocated arms would face a grim fate—at best, being sent to Nanbo to break rocks.
 
 ---
 
@@ -78,7 +78,7 @@ Everyone in the hall had turned pale, expecting these constables with dislocated
 
 The constables were already trembling with fear. Lin Changsan, more experienced, knew they had encountered an "unbending magistrate" today and dared not be negligent. He quickly instructed: "Strike properly!"
 
-The three were dragged down. Since their own lives were at stake, the constables struck hard. After twenty paddle blows, the three wretches had only enough strength left to gasp.
+The three were dragged down. Since their own lives were at stake, the constables struck hard. After twenty paddle blows, the three wretches had only enough strength left to gasp for breath.
 
 "I'll ask you one more time: Were you the ones who threw the knives and shot the arrows?"
 
@@ -86,7 +86,7 @@ The three were dragged down. Since their own lives were at stake, the constables
 
 "Then who was it!"
 
-"It was—it was—" Now all three were in a dilemma. They couldn't afford to offend Fu He either. They bitterly regretted getting into this mess for just a few taels of silver!
+"It was—it was—" Now all three were caught in a dilemma. They couldn't afford to offend Fu He either. They bitterly regretted getting into this mess for a mere few taels of silver!
 
 "Beat them again!"
 
@@ -96,29 +96,29 @@ The gentry were quite surprised. Fu He had nothing to do with the grain collecti
 
 "Someone bring Fu He!"
 
-In moments, Fu He was brought from the squad room where he'd been chatting with his men. Seeing the three wretches with blood streaming from their buttocks and thighs, he thought angrily that Lin Changsan was truly disloyal. He'd given instructions and paid for the paddle-wielders to go easy, yet they'd struck this hard.
+Within moments, Fu He was brought from the squad room where he'd been chatting with his men. Seeing the three wretches with blood streaming from their buttocks and thighs, he thought angrily that Lin Changsan was truly disloyal. He'd given instructions and paid for the paddle-wielders to go easy, yet they'd struck this hard.
 
-"Fu He!" Zhou Dongtian shouted. "These three are not the criminals involved in this case. You randomly grabbed innocent people to take the fall—that alone is improper. You also instructed them to implicate Li Gong, intending extortion. What punishment do you deserve!"
+"Fu He!" Zhou Dongtian shouted. "These three are not the criminals in this case. You randomly grabbed innocent people to take the fall—that alone is improper. You also instructed them to implicate Li Gong, intending extortion. What punishment do you deserve!"
 
-Fu He knew the game was up, but he was a veteran functionary. This scene was nothing he couldn't handle. Bold-faced, he claimed these three scoundrels were local riffraff whom he'd disciplined in the past—this was their attempt at revenge.
+Fu He knew the game was up, but he was a veteran functionary. This scene was nothing he couldn't handle. Bold-faced, he claimed these three scoundrels were local riffraff whom he'd disciplined in the past—this was merely their attempt at revenge.
 
-"...If Your Honor condemns someone based solely on the one-sided claims of these three, that's placing far too much faith in their words."
+"...If Your Honor condemns someone based solely on the one-sided claims of these three, that places far too much faith in their words."
 
 Zhou Dongtian smiled. "Very well, then. I'll let you die understanding." With a wave of his hand, someone nearby activated a recording device and loudspeaker. Fu He's voice immediately echoed from the speaker—his conversation with the three wretches at the teahouse.
 
-Fu He's amplified voice reverberated through the Flower Hall: "...Just insist it was Li Gong who ordered you—that's all!..."
+Fu He's amplified voice reverberated through the Flower Hall: *"...Just insist it was Li Gong who ordered you—that's all!..."*
 
-"Well? Do you want to hear more?" Zhou Dongtian asked.
+"Well? Care to hear more?" Zhou Dongtian asked.
 
-The assembly in the hall was struck speechless with shock: a black box that could reproduce human voices! This was terrifying—and it could replay exactly what someone had said! It was practically sorcery! Could this be the legendary "all-hearing ear"? Huang Binkun was seized by terror, his face ashen. For a moment, he felt like a puny ant foolishly trying to shake a great tree.
+The assembly sat in stunned silence. A black box that could reproduce human voices! This was terrifying—it could replay exactly what someone had said! It was practically sorcery! Could this be the legendary "all-hearing ear"? Huang Binkun was seized by terror, his face ashen. For a moment, he felt like a puny ant foolishly trying to shake a great tree.
 
-Fu He collapsed to the ground, unable to utter a word, his entire body shaking. When he heard Zhou Dongtian's question, he prostrated himself, kowtowed repeatedly, and begged for mercy. He then confessed everything in full detail: how he had gone to Chen Minggang, taken his silver, and following Chen's instructions, directed others to implicate Li Gong for purposes of extortion.
+Fu He collapsed to the ground, unable to utter a word, his entire body shaking. When he heard Zhou Dongtian's question, he prostrated himself, kowtowed repeatedly, and begged for mercy. Then he confessed everything in detail: how he had gone to Chen Minggang, taken his silver, and following Chen's instructions, directed others to implicate Li Gong for purposes of extortion.
 
-"Since you're being cooperative." Zhou Dongtian said slowly. "I'll give you a chance to redeem yourself. You have half an hour to bring me the real culprits!"
+"Since you're being cooperative," Zhou Dongtian said slowly, "I'll give you a chance to redeem yourself. You have half an hour to bring me the real culprits!"
 
 "Yes, yes, this lowly one will go immediately." Fu He scrambled away in disgrace.
 
-The Flower Hall fell deathly silent. Cold sweat ran down everyone's backs. Zhou Dongtian surveyed the expressions around him with satisfaction. The "kill the chicken to frighten the monkeys" approach was working well. These major households and gentry indeed needed a demonstration of their power. Then he cast a mocking glance at Huang Binkun. The young master nearly collapsed to the floor.
+The Flower Hall fell deathly silent. Cold sweat ran down everyone's backs. Zhou Dongtian surveyed the expressions around him with satisfaction. The "kill the chicken to frighten the monkeys" approach was working well. These major households and gentry indeed needed a demonstration of power. Then he cast a mocking glance at Huang Binkun. The young master nearly collapsed to the floor.
 
 Before long, Fu He returned with the three men Zhou Qi had hired. These three didn't even need torture. One look at the court's authority and the precedent—those bloody buttocks—and they immediately confessed everything.
 

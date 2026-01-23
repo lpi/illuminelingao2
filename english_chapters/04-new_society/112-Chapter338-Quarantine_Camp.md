@@ -1,89 +1,91 @@
 # Chapter 338 - Quarantine Camp
 
-Xiao Zishan also promised that he and the General Office staff would come to teach when they had free time. At the same time, he had another matter that was urgent but not too urgent.
+Xiao Zishan also promised that he and the General Office staff would come to teach whenever time permitted. Meanwhile, another matter—urgent, though not critically so—weighed on his mind.
 
-"What do you think should be done about the Children's School?" Xiao Zishan asked.
+"What should we do about the Children's School?" he asked.
 
-The so-called Children's School referred to the education problem of the minor children brought by the transmigrators. Currently, there were not many minor children of the transmigrators themselves, only three or four, basically all under ten years old. They hadn't received any school education for more than half a year, running wild every day. Moreover, every child's parents were very busy and could hardly supervise their studies and life.
+The Children's School addressed the education of minor children who had accompanied the transmigrators. Currently, only three or four such children existed, all under ten, and all had gone without formal schooling for over half a year. They ran wild daily, their parents too consumed with work to supervise studies or daily life.
 
-Although the matter was small and didn't involve a large scope, it was after all within the responsibility of the General Office. Xiao Zishan felt this matter was tricky: the young age of the children required dedicated personnel to care for and educate them. Their number was too small to set up a separate educational institution like the Yuhong School for them. After all, most transmigrators didn't even have wives, and the first baby boom hadn't arrived yet. To run such a school would be a matter for at least eight or ten years later.
+The numbers were small, the scope limited—but the responsibility fell to the General Office. Xiao Zishan found the problem vexing. The children's youth required dedicated caretakers and teachers. Their numbers were too few to justify a separate institution like a Yuhong School. Most transmigrators didn't even have wives yet; the first baby boom wouldn't arrive for years. Establishing such a school was a project for eight or ten years hence.
 
-He told these considerations to Hu Qingbai and Bai Yu. "How can we satisfy everyone?"
+He shared these considerations with Hu Qingbai and Bai Yu. "How can we satisfy everyone?"
 
-"In the long run, institutions like Yuhong School must be established. At least a nursery level will be needed within two or three years." Hu Qingbai said, "For now, just set up a dedicated class in the Education Park temporarily." Hu Qingbai thought for a moment, "A general subject class. I'll teach it myself. However, it's best to allocate a female teacher to me. The children are generally young; a female teacher has more affinity."
+"Long-term, institutions like Yuhong School will be necessary. We'll need at least nursery facilities within two or three years." Hu Qingbai thought for a moment. "For now, we can establish a dedicated class within the Education Park." He considered further. "A general subject class. I'll teach it personally. But ideally, allocate a female instructor to me as well. The children are young; women have a certain natural affinity."
 
-"Let Fang Yijing do it. She has worked in a kindergarten."
+"Let Fang Yijing handle it. She worked in a kindergarten before."
 
-"That's best." Hu Qingbai stated his idea: "We'll have classes for half a day every day, adopting multi-grade education. I'll also select a few indigenous children with gentle personalities and good Mandarin to be study companions."
+"That would be ideal." Hu Qingbai outlined his vision: "Half-day classes, multi-grade instruction. I'll also select a few indigenous children—those with gentle temperaments and good Mandarin—as study companions."
 
-"This plan is good." Xiao Zishan said, "I originally wanted to do this too, but felt there were too few children in the class."
+"A sound plan." Xiao Zishan nodded. "I'd considered something similar, but the class size seemed too small."
 
-"Indigenous children are not bad either; there are many smart and lively ones."
+"Indigenous children are fine companions. Many are bright and lively."
 
-"Let me look over these children first when the time comes." Xiao Zishan thought for a moment, "It's best to ask the Ministry of Health to give them a thorough physical examination beforehand. Must be completely healthy. By the way, appearance should also be relatively good."
+"Let me review the candidates first when the time comes." Xiao Zishan paused. "Best to have the Ministry of Health conduct thorough physical examinations beforehand. They must be completely healthy. And—presentable in appearance."
 
-"Fine, no problem." Hu Qingbai secretly laughed at how trivial the matters this Director managed were.
+"Certainly. No problem." Hu Qingbai privately found it amusing how trivial the matters this Director managed could be.
 
-After seeing off the "Imperial Envoy," Hu Qingbai said to Bai Yu, "Go find Wu De, inform him about the recruitment for the Simplified Normal School, and ask him to help coordinate—after all, the natives are all under his management; he knows best who is suitable and who is not."
+---
 
-Bai Yu nodded. "This is naturally expected."
+Having seen off the "Imperial Envoy," Hu Qingbai turned to Bai Yu. "Find Wu De. Inform him about the Simplified Normal School recruitment and ask him to coordinate. After all, the natives are under his management—he knows best who's suitable."
 
-Bai Yu found Wu De and repeated the request to him. Wu De nodded. "Simplified Normal School is a good method, but finding so many school-age girls might be difficult."
+Bai Yu nodded. "Naturally."
 
-Wu De introduced the current refugee intake situation. By May 1629, they had taken in over six thousand refugees through the Guangzhou Station channel. Among them, more than four thousand had been transported to Lingao and settled in the Bairen Commune. Five hundred were settled in Leizhou, and over a thousand were still kept in Guangzhou.
+He found Wu De and relayed the request. Wu De frowned. "The Simplified Normal School is a good initiative. But locating that many eligible girls may prove difficult."
 
-Wu De said, "Many people have been transported, but the ages of those taken in are uneven. You ask for three hundred and fifty girls aged fifteen to twenty in one breath; where am I supposed to find them for you?"
+Wu De briefed him on the current refugee intake situation. By May 1629, over six thousand refugees had been received through the Guangzhou Station pipeline. Of these, more than four thousand had been transported to Lingao and settled in Bairen Commune. Five hundred had been placed in Leizhou. Over a thousand remained in Guangzhou.
 
-"I thought there were many women..." Bai Yu muttered, "Didn't ancients consider girls as money-losing goods?"
+"We've transported considerable numbers," Wu De said, "but the age distribution is uneven. You're requesting three hundred fifty girls between fifteen and twenty all at once. Where am I supposed to find them?"
 
-"But they were also keen on snatching and buying women. These refugees wandered all the way to Guangzhou; the possibility of young girls being sold or snatched on the road is too high."
+"I assumed there were many women..." Bai Yu muttered. "Didn't the ancients consider daughters 'money-losing goods'?"
 
-"Just give however many you can."
+"Yet they were also keen on abducting and purchasing women. These refugees wandered all the way to Guangzhou—the likelihood that young girls were sold or seized along the road is extremely high."
 
-"One hundred and twenty, at most. Still have to give forty to the Ministry of Health," Wu De checked the computer and said.
+"Just provide however many you can."
 
-"The Ministry of Health wants so many?!"
+Wu De consulted his computer. "One hundred twenty, at most. And I still have to allocate forty to the Ministry of Health."
 
-"In my opinion, getting forty is still too few for the Ministry of Health. Right now there aren't enough people dispensing disinfectant in the camps." Wu De sent Bai Yu away.
+"The Ministry of Health needs that many?!"
 
-"Humph, all coming to me to ask for girls; don't think I don't know what you are thinking!" Wu De whispered. Then he called out, "Chu Yu!"
+"In my view, forty is still insufficient for their needs. Right now there aren't enough personnel dispensing disinfectant in the camps." Wu De dismissed Bai Yu.
 
-"Coming!" Chu Yu had changed her attire now; her hair was cut short, and her clothes changed to modern ones. Plus having become a woman and filled out, she looked very different from that little servant girl of the past.
+"Hm. Everyone comes to me asking for girls. Don't think I don't know what you're all after!" Wu De muttered to himself. Then he called out: "Chu Yu!"
 
-"Call Dugu Qiuhun, notify him to go to the Quarantine Camp together."
+"Coming!" Chu Yu had transformed since her early days. Her hair was cropped short now, her clothing modern. With womanhood and some proper nutrition, she looked nothing like the scrawny servant girl of the past.
 
-Wu De, the People's Commissar for Civil Affairs, sat high in the first tier of the Executive Committee's power system for no other reason than his work being the heaviest and most crucial. No matter how brilliant the technology and industry, or how much money, nothing could be done without people to work. And Wu De controlled the entire human resources of the Transmigration Group.
+"Summon Dugu Qiuhun. Tell him we're going to inspect the Quarantine Camp."
 
-Dugu Qiuhun appeared in his office wearing an old-style iron-grey shirt of the Model 99 police uniform, with East German People's Army summer service breeches on his lower body, and wearing high boots—the SS M32 uniform replica he brought could not be worn in Lingao no matter what, so he had to settle for second best. After all, this outfit looked "Iron and Blood" enough.
+Wu De, People's Commissar for Civil Affairs, occupied a seat in the Executive Committee's first tier of power for one simple reason: his work was the heaviest and most critical. The most brilliant technology, the grandest industry, the deepest treasury—all meant nothing without people to do the work. And Wu De controlled the Transmigration Group's entire human resource apparatus.
 
-"Let's go, let's go inspect the Quarantine Camp."
+Dugu Qiuhun appeared at the office door wearing an iron-grey Model 99 police tunic, People's Army summer service breeches, and tall black boots. The SS M32 replica he had brought from the other timeline was unwearable in Lingao under any circumstances, so he had settled for this compromise. It still projected sufficient *Eisen und Blut*.
 
-This was a daily routine. No matter how busy his work was, Wu De would go inspect the Quarantine Camp with supervisors from the force department and the health department. There were about a thousand people gathered in the camp at all times; a mass incident or a plague outbreak would be no joke.
+"Let's go. Time to inspect the Quarantine Camp."
 
-When the car arrived at Bopu, He Ma, sent by the Ministry of Health, also arrived. The three came to the heavily guarded Quarantine Camp. An infantry company trained in riot control was stationed here; besides rifles and grenades, they were also equipped with rattan armor, rattan shields, wooden sticks, and tear gas.
+This was daily routine. No matter how heavy his workload, Wu De visited the Quarantine Camp with representatives from the security and health departments. With approximately a thousand people concentrated there at any time, a mass incident or epidemic outbreak would be no laughing matter.
 
-Currently, except for a few group fights over eating and bathing issues, no major disturbances had occurred. To prevent bringing regional conflicts, host-guest conflicts, and clan conflicts into Lingao during the immigration process, Wu De explicitly raised several key points in the guide telegraphed to Guangzhou for taking in refugees: only take in orphans, single men and women, and single-household small families. Those migrating and wandering as clans or large families were rejected without exception—before the Transmigration Group cultivated enough reliable administrative cadres and a powerful machinery of violence, the Executive Committee didn't want to consume too much energy solving civil disputes. After all, the local clan problems in Lingao were already severe enough. Introducing foreign large clans would simply be asking for trouble.
+Their vehicle arrived at Bopu. He Ma, dispatched by the Ministry of Health, met them there. The three proceeded to the heavily guarded camp, where an infantry company trained in riot control stood watch. Besides rifles and grenades, the soldiers were equipped with rattan armor, rattan shields, wooden sticks, and tear gas.
 
-Once refugees were taken in, they had to sign a contract to become indentured servants, losing personal freedom. Since their status was servants, they were the master's property. Legally, their relationship with their original families was severed. After being "purified" locally and settled in the quarantine camp, they became slaves with neither past nor personal freedom. Even things to recall didn't exist anymore. They were left to the Transmigration Group to transform into the human resources needed.
+To date, aside from a few group brawls over meals and bathing rights, no major disturbances had occurred. To prevent importing regional rivalries, host-guest conflicts, and clan feuds into Lingao, Wu De had explicitly emphasized several principles in the guidelines telegraphed to the Guangzhou intake station: accept only orphans, single men and women, and single-household small families. Clans and extended families migrating together were rejected without exception. Before the Transmigration Group cultivated sufficient reliable administrators and a robust enforcement apparatus, the Executive Committee had no desire to expend energy resolving civil disputes. The clan problems already endemic to Lingao were quite troublesome enough; importing additional major lineages would only compound the difficulties.
 
-Surrounded by a squad of people, Wu De walked into this quarantine camp. Somehow, every time he walked into this camp area, he remembered *Escape from Sobibor* he watched back then. Although this association was extremely inappropriate, the long strip barracks, the surrounding barbed wire, the tall watchtowers, the sentries with live ammunition, and the fearful expressions on the refugees' faces when seeing their group walk past, were all very similar.
+Upon intake, refugees were required to sign contracts as indentured servants, forfeiting personal freedom. As servants, they were legally property. Their ties to original families were severed. After local "purification" and settlement in quarantine, they became—effectively—slaves without past or personal liberty. Even their memories were to be erased. The Transmigration Group would reshape them into the human resources it required.
 
-The refugees in the camp had been drilled very well by the Army. Whether it was "Attention!" when entering, "Dismissed!" when leaving, or the neatly folded quilts and clean straw mats in the barracks—even in the women's camp, it was no inferior—reflected the Army's super strong ability in this aspect.
+Surrounded by a security squad, Wu De walked into the camp. For some reason, every time he entered, he thought of *Escape from Sobibor*. The association was entirely inappropriate, yet the similarities were undeniable: long strip barracks, surrounding barbed wire, tall watchtowers, armed sentries, and the fearful expressions on refugees' faces as his group passed.
 
-When Dugu Qiuhun walked past, his black high boots and breeches caused many to show expressions of fear—he was practically the symbol of terror in the quarantine camp. Many refugees couldn't forget his appearance every time he came to the camp to judge troublemakers who violated discipline: a young man looking like a pale-faced scholar, with a serene smile at the corner of his mouth, a small gesture would cause some unlucky guy to be dragged onto the rack at the main gate and beaten until his flesh tore open.
+The refugees had been drilled well by the Army. "Attention!" upon entry, "Dismissed!" upon departure, quilts folded with military precision, straw mats spotless—even in the women's quarters, standards were identical. The Army's capability in this regard was formidable.
 
-Wu De adopted a "Grace and Power" approach towards the collected refugees. Letting them eat their fill, have clothes to wear, have diseases treated, and families reunited. But "Power" also had to be sufficient, letting the immigrants truly realize who the master here was. Purely bestowing favors would instead make people indulgent. Strict disciplinary control was implemented here. People who followed rules wouldn't suffer; conversely, they would be fixed miserably. What awaited repeat offenders was hard labor.
+When Dugu Qiuhun passed through, his black boots and breeches inspired visible terror. He had become the camp's symbol of dread. Many refugees could not forget his appearances at the main gate to judge disciplinary violators: a pale-faced young man with the serene smile of a scholar, whose small gesture would cause some unfortunate wretch to be dragged onto the rack and flogged until flesh tore.
 
-This policy was very effective. According to feedback from various economic departments accepting immigrant workers, the immigrants' performance was commendable: obedient, working hard, with strong organization and discipline.
+Wu De employed a *carrot-and-stick* approach with the refugees. He ensured they ate their fill, had clothes to wear, received medical treatment, and could reunite with family. But the stick had to be credible, making clear who held authority. Generous bestowal without enforcement bred indulgence. Strict discipline was maintained. Those who obeyed the rules suffered no hardship; those who didn't were dealt with harshly. Repeat offenders were consigned to hard labor.
 
-This also made the specific executor, Dugu Qiuhun, quite isolated within the Transmigration Group. Although most people in the Transmigration Group were pragmatists, quite a few also held "universal values" ideas. Plus Dugu Qiuhun's usually quite ostentatious attire inevitably incurred dislike; some even questioned on the BBS whether Dugu Qiuhun's conduct in the quarantine camp was suspected of fascism.
+The policy was effective. Feedback from the economic departments receiving immigrant workers consistently praised their performance: obedient, hardworking, disciplined.
 
-Under such an awkward and subtle situation, Dugu Qiuhun fulfilled his responsibilities. To avoid letting him continue roasting on the fire pit, Wu De removed his concurrent post as Quarantine Camp Commander and replaced him with Yang He.
+This also made the primary enforcer, Dugu Qiuhun, somewhat isolated within the Transmigration Group. Although most transmigrators were pragmatists, a significant minority embraced "universal values," and Dugu Qiuhun's ostentatious attire inevitably attracted distaste. Some BBS posts openly questioned whether his conduct in the quarantine camp constituted fascism.
 
-Yang He belonged to the otaku crowd with extremely firm stances but no expertise other than online games. Being the commander of this quarantine camp was just right. He had been a guild leader or high-ranking cadre in several small guilds in online games and had some insights into managing groups. More importantly, he executed all of Wu De's instructions without question. This way, Dugu Qiuhun's purge activities inside the camp were still unimpeded.
+Under this awkward scrutiny, Dugu Qiuhun continued to fulfill his duties. To remove him from the fire, Wu De relieved him of his concurrent position as Quarantine Camp Commander, replacing him with Yang He.
 
-"How are the emotional trends today?" Wu De asked Yang He.
+Yang He belonged to the otaku contingent—steadfast in ideology but possessing no particular expertise beyond online gaming. Command of the quarantine camp suited him adequately. He had served as a guild leader or high-ranking officer in several small MMO guilds and had some insight into managing groups. More importantly, he executed Wu De's instructions without question. This arrangement allowed Dugu Qiuhun's enforcement activities to continue unimpeded.
 
-"Very stable, Blue Alert Level."
+"What's the emotional status today?" Wu De asked Yang He.
 
-"Blue every day; don't treat it as just coping with a chore." Wu De knew Yang He hadn't graduated from university long ago and lacked social experience, which was what he was relatively worried about.
+"Very stable. Blue Alert Level."
+
+"'Blue' every day. Don't treat this as box-checking." Wu De knew Yang He had only recently graduated from university and lacked real-world experience—a source of some concern.

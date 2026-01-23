@@ -4,11 +4,11 @@ While Li Di struggled with guncotton, the Chemistry Group designed and built a l
 
 Within a 200-meter radius around the compound, the ground was cleared of all vegetation. The surface was repeatedly compacted with yellow clay, lime, and fine sand; even the pebbles were removed. The roads were paved with bricks. Two barbed-wire fences surrounded the entire facility, hung with wooden signs depicting fierce black skulls and large fire warning symbols.
 
-This was the Chemistry Group's explosives factory. The Construction Group had painstakingly ensured fire and impact prevention, building the structure entirely from cement and brick. The roofs had no wooden beams, utilizing brick-arch construction instead. The entire building contained no iron, wood, or stone to prevent any sparks or combustion.
+This was the Chemistry Group's explosives factory. The Construction Group had painstakingly ensured fire and impact prevention, building the structure entirely from cement and brick. The roofs had no wooden beams, utilizing brick-arch construction instead. The entire building contained no iron, wood, or stone—anything that could produce sparks or fuel combustion.
 
 Per the suggestions of the explosives enthusiasts, the floors of the production workshop weren't bricked but were instead covered with river sand to absorb any spilled acids, bases, or other chemicals.
 
-The building's structure was peculiar. The central production workshop had north-south windows for ventilation and east-west doors. Immediately outside the doors were man-deep trenches lined with fine sand. These were escape trenches—if an uncontrollable chemical reaction occurred, the staff were to escape via these ditches. The premise, of course, was that the reaction was slow enough and their legs were agile enough.
+The building's structure was peculiar. The central production workshop had north-south windows for ventilation and east-west doors. Immediately outside the doors were man-deep trenches lined with fine sand. These were escape trenches—if an uncontrollable chemical reaction occurred, the staff were to escape via these ditches. The premise, of course, was that the reaction was slow enough and their legs agile enough.
 
 These escape trenches brought a solemn atmosphere to the Chemistry Group. Just as the Mechanical Group dreamed of making guns and cannons, chemistry people were rarely not fascinated by explosives. Many had secretly made various explosives in laboratories back in the modern world. But under these crude conditions, how much confidence could they really have? The heroic explosives zealots of the Chemistry Group fell silent.
 
@@ -30,11 +30,11 @@ In addition to the Chemistry Group, members of the Mechanical Group attended, al
 
 "If we can gather the equipment, nitrocellulose is easy," said Ye Yuming, a minor bureaucrat who had studied chemistry and was knowledgeable about mining and blasting.
 
-"If we could build large centrifuges..." Ji Situi thought. Everyone knew this was the solution. The problem was finding a centrifuge larger than the small laboratory models.
+"If we could build large centrifuges..." Ji Situi thought. Everyone knew this was the solution. The problem was finding centrifuges larger than the small laboratory models.
 
 Without centrifuges, nitrocellulose production couldn't thoroughly remove the free acid from the cotton fibers. In actual use, such nitrocellulose became extremely unstable. The 19th-century Austrian military had suffered terrible accidents because of this issue.
 
-"We still need the Industrial Department's help," aid Xu Yingjie, who was extremely fascinated by chemicals and especially loved concocting reagents. He was a hands-on experimental maniac.
+"We still need the Industrial Department's help," said Xu Yingjie, who was extremely fascinated by chemicals and especially loved concocting reagents. He was a hands-on experimental maniac.
 
 "Difficult." Wang Luobin shook his head. "Our prime movers aren't adequate."
 
@@ -47,14 +47,14 @@ They had nitric acid, and glycerin production wasn't difficult. Plus, the *Fengc
 Everyone gasped—there truly were heaven-defying people among them. Nitroglycerin's manufacturing simplicity made it popular with 19th and 20th-century terrorists and revolutionaries, though historically, more died during manufacturing than from the police.
 
 Ye Yuming's formula was:
-1.  Add distilled water to a beaker.
-2.  Prepare a large quantity of ice-salt mixture in a water bath.
-3.  Place the beaker in the bath, add concentrated nitric acid, and cool below the target temperature.
-4.  Slowly add concentrated sulfuric acid, mix uniformly, and cool to the target temperature.
-5.  Using a dropper, slowly add glycerin—one drop every few seconds—while monitoring the temperature to keep it below the target. Stop when a visible glycerin layer forms on the mixed-acid surface.
-6.  Slowly stir for the specified number of minutes, maintaining low temperature.
-7.  Pour the mixture into the first beaker—nitroglycerin will precipitate to the bottom.
-8.  Test the nitroglycerin with litmus paper until it is non-acidic.
+1. Add distilled water to a beaker.
+2. Prepare a large quantity of ice-salt mixture in a water bath.
+3. Place the beaker in the bath, add concentrated nitric acid, and cool below the target temperature.
+4. Slowly add concentrated sulfuric acid, mix uniformly, and cool to the target temperature.
+5. Using a dropper, slowly add glycerin—one drop every few seconds—while monitoring the temperature to keep it below the target. Stop when a visible glycerin layer forms on the mixed-acid surface.
+6. Slowly stir for the specified number of minutes, maintaining low temperature.
+7. Pour the mixture into the first beaker—nitroglycerin will precipitate to the bottom.
+8. Test the nitroglycerin with litmus paper until it is non-acidic.
 
 With sodium carbonate, stability could be enhanced.
 
@@ -64,7 +64,7 @@ With sodium carbonate, stability could be enhanced.
 
 "I didn't consider that."
 
-Xu Yingjie said, "My priority ranking for explosives development is: 1. Nitrocellulose—it's a force multiplier for rifles and cannons. Other explosives can't match it. 2. Synthetic ammonia—once our plant is completed, that's solved. 3. Picric acid—it's impact-resistant, can be fired via nitrocellulose shells, and is a powerful explosive. Nitroglycerin is useless—only good for bombs or grenades. Its power doesn't obviously exceed picric acid, and its stability is too poor."
+Xu Yingjie said, "My priority ranking for explosives development is: First, nitrocellulose—it's a force multiplier for rifles and cannons. Other explosives can't match it. Second, synthetic ammonia—once our plant is completed, that's solved. Third, picric acid—it's impact-resistant, can be fired via nitrocellulose shells, and is a powerful explosive. Nitroglycerin is useless—only good for bombs or grenades. Its power doesn't obviously exceed picric acid, and its stability is too poor."
 
 "Synthetic ammonia is no problem—factory completion solves it. Picric acid is too difficult," Ji Situi flatly rejected. "Phenol extraction processes... maybe in ten years. Just the 13-atmosphere requirement makes it impossible right now."
 
@@ -74,7 +74,7 @@ Xu Yingjie said, "My priority ranking for explosives development is: 1. Nitrocel
 
 "Then it's only black powder," Xu Yingjie said. "Unless someone is fearless enough to try nitroglycerin."
 
-Finally, the conclusion was that whether it was nitroglycerin or picric acid, they needed the chemical factories to be fully operational. Currently, the only certain production was still black powder. They were confident in producing fine-grain black powder that far exceeded this era's quality—including propellant and explosive grades. Even the saltpeter supply wasn't too problematic. Without Guangzhou saltpeter, the nitrate heap method could yield some. According to the archives, in 1959 one county built a black powder factory for quarrying that achieved 50 tons of annual production using only local saltpeter collection and nitrate heaps. Controlling Lingao county, 20 to 30 tons of black powder annually was achievable.
+Finally, the conclusion was that whether it was nitroglycerin or picric acid, they needed the chemical factories to be fully operational. Currently, the only certain production was still black powder. They were confident in producing fine-grain black powder that far exceeded this era's quality—including propellant and explosive grades. Even the saltpeter supply wasn't too problematic. Without Guangzhou saltpeter, the nitrate-heap method could yield some. According to the archives, in 1959 one county built a black powder factory for quarrying that achieved 50 tons of annual production using only local saltpeter collection and nitrate heaps. Controlling Lingao county, 20 to 30 tons of black powder annually was achievable.
 
 Lin Shenhe spoke up: "The most urgent thing is safety and stability. Black powder substitution is fine, but we need percussion caps. Without them, the Industrial Department can only make flintlocks."
 
@@ -92,7 +92,7 @@ Pyrotechnics manufacturing was the most dangerous part of military chemistry. Ev
 
 Fulminate itself was sensitive and dangerous, but in wet environments, the reactions were relatively safe. Still, the first-time pyrotechnics handlers were frightened. For safety, everyone evacuated the reaction laboratory except for Xu Yingjie. The Military Group offered a bomb-disposal suit, but wearing it made the work impossible, so he had to decline.
 
-First, he placed purified mercury in a ceramic jar and added nitric acid. He heat it in a water bath to the specified temperature, occasionally shaking it during heating. The mercury slowly dissolved. After about 40 minutes, he had a green mercuric nitrate solution.
+First, he placed purified mercury in a ceramic jar and added nitric acid. He heated it in a water bath to the specified temperature, occasionally shaking it during heating. The mercury slowly dissolved. After about 40 minutes, he had a green mercuric nitrate solution.
 
 After the mercuric nitrate production, he preheated the 96% alcohol. Then he added the mercuric nitrate to the alcohol. Temperature control was critical, and Xu Yingjie constantly watched the thermometer.
 

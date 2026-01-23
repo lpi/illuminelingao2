@@ -1,151 +1,151 @@
-# Chapter 341 - Pharmaceutical Factory's Dilemma
+# Chapter 341 - The Pharmaceutical Factory's Dilemma
 
-Just thinking about the subtropical climate, jungles, and water network terrain, Shi Niaoren believed this godforsaken place could harbor more than half of the world's pathogens. His mentor in the US would definitely have a special fondness for this place. A pity he didn't trick him into coming. That old American was as strong as an ox; he would have been a good laborer for the Ministry of Health. At least he could be made to examine poop.
+Dwelling on Lingao's subtropical climate—its oppressive jungles and labyrinthine river networks—Shi Niaoren was convinced this godforsaken corner of the world harbored at least half the pathogens known to humanity. His old mentor back in the States would have loved it here. A pity he hadn't managed to lure the man along. That American was built like an ox and would have made an excellent laborer for the Ministry of Health. At the very least, he could have been put to work examining stool samples.
 
-Looking at the pile of stool sample jars in front of him, the grief and indignation in Shi Niaoren's heart were unimaginable to others—a dignified university professor was actually naturally relegated to dealing with excrement here.
+Speaking of which, Shi Niaoren regarded the pile of specimen jars before him with barely suppressed despair. A distinguished university professor, reduced to analyzing excrement. The indignity was beyond measure.
 
-Even worse, Shi Niaoren found that the infection rate began to rise. He detected eggs of more than ten kinds of parasites such as *Clonorchis sinensis* and *Taenia solium* in the asymptomatic population. Bacterial carriers might be even more, but due to the much greater complexity of bacterial examination, many could not be diagnosed yet. In a word, no one realized the complexity of modern medical examination.
+What gnawed at him even more was the rising infection rate. His examinations of asymptomatic individuals had revealed eggs from over a dozen parasites—liver flukes, tapeworms, and their ilk. Bacterial carriers were likely far more numerous, but the complexity of those tests exceeded their current capabilities. The broader transmigrator community simply failed to grasp how sophisticated modern medical diagnostics truly were.
 
-And the ignorance and indifference of the ordinary transmigrator masses towards various parasites and infectious diseases gave him a headache even more. Eating wild fruits indiscriminately, hunting privately, and messing around with local women...
+Worse still was the willful ignorance his fellow transmigrators displayed toward parasites and infectious disease. Eating wild fruit without care. Hunting game in secret. Consorting with local women...
 
-Reporting to the Executive Committee always got "mm-hmm, uh-huh" responses without concrete countermeasures; they didn't take it seriously at all!
+Every report he filed with the Executive Committee met the same fate: polite murmurs of acknowledgment followed by absolute inaction. They weren't taking it seriously—not one bit.
 
-Maybe a major epidemic outbreak would clear the heads of Chairman Wen and Superintendent Ma? Shi Niaoren put the petri dish under the microscope and looked carefully.
+*Perhaps a proper epidemic would finally clear the fog from Chairman Wen's and Superintendent Ma's minds?* Shi Niaoren positioned another petri dish beneath his microscope.
 
-Fortunately, neither the vibrio of cholera nor other virulent infectious disease bacteria appeared in the sample. Instead, a large amount of *Salmonella* was detected. Comprehensively, this unlucky guy died of acute enteritis. Theoretically speaking, for general acute enteritis, as long as the patient didn't dehydrate or have electrolyte imbalance, recovery was possible with simple antidiarrheal drugs.
+Fortunately, this latest sample showed no sign of cholera vibrio or other highly virulent pathogens. Salmonella was present in abundance, however, which explained the unfortunate man's demise. Acute enteritis—treatable, under normal circumstances. Simple antidiarrheal medication and proper hydration would have sufficed.
 
-"If there were some antidiarrheal drugs in the quarantine camp, combined with some salt water, this person wouldn't have died." Shi Niaoren felt some regret; just belladonna tablets and a few bottles of physiological saline could have pulled him through.
+"Basic antidiarrheal drugs and a few bottles of saline solution in the quarantine camp," Shi Niaoren muttered, "and this man would still be alive."
 
-Thinking about the weather getting gradually hotter and gastrointestinal diseases becoming frequent, cheap and easily available antidiarrheal drugs must be found immediately. Suddenly he thought of the opium in the Ministry of Health warehouse. It had been left in the warehouse since being bought from Macau. Although opium was a drug, it had strong effects on pain relief, cough suppression, and diarrhea control. It was actually a kind of universal medicine urgently needed now.
+With summer approaching and gastrointestinal ailments certain to spike, they needed cheap, readily available treatments—immediately. His thoughts turned to the opium sitting in the Ministry warehouse, purchased in Macau and gathering dust ever since. As much as opium was a drug, it remained an exceptionally effective treatment for pain, coughs, and diarrhea. In their current circumstances, it bordered on a panacea.
 
-Shi Niaoren disposed of the specimen, washed his hands again, lit a cigarette, and called Wu De, telling him that the yellow health alert for the quarantine camp could be lifted. Then he called Wu Nanhai again, asking him to pay attention to hygiene issues in the cafeteria and food processing factory.
+He disposed of the specimen, scrubbed his hands thoroughly, and lit a cigarette. His first call went to Wu De, informing him the yellow health alert on the quarantine camp could be lifted. His second went to Wu Nanhai, urging him to address hygiene conditions in the cafeteria and food processing plant.
 
-"...Tomorrow," Shi Niaoren checked his schedule, "I'll come to inspect personally, and help you work out a notice for summer hygiene by the way."
+"...Tomorrow," Shi Niaoren checked his schedule, "I'll come personally to inspect. We should draft a summer hygiene notice while I'm there."
 
-"Great, welcome, welcome." Wu Nanhai's voice sounded a bit nervous on the phone.
+"Excellent—welcome, welcome." Wu Nanhai's voice carried a nervous edge.
 
-"Don't be nervous; I'm not the Health Bureau coming down to fine you," Shi Niaoren said. "Don't do a surprise cleaning; let me see the real situation so I can prescribe the right medicine. If you whitewash it like painting powder on a donkey dung ball, problems won't be seen, and big trouble will happen later."
+"Relax. I'm not some Health Bureau official coming to levy fines," Shi Niaoren said. "And don't bother with any last-minute cleaning. I need to see the actual conditions so I can prescribe appropriate measures. If you cover everything in whitewash like powder on a donkey dung ball, I won't catch the real problems—and then we'll have serious trouble later."
 
-After arranging the hygiene check with Wu Nanhai, Shi Niaoren wanted to call the Pharmaceutical Factory again, but on second thought, it was better to go personally and relax by the way—he had been smelling poop since waking up at 5 am, and it was almost noon. Going to the Pharmaceutical Factory, he could also bum a meal at the farm.
+After finalizing the inspection arrangements, Shi Niaoren considered calling the Pharmaceutical Factory but decided a personal visit would serve better. He'd been breathing in the stench of feces since five in the morning, and it was nearly noon. A trip to the factory would at least clear his head, and he could scrounge a meal at the farm while he was at it.
 
-The Pharmaceutical and Medical Equipment Factory was located inside the farm. It was a composite reinforced concrete frame building. A chimney was spewing smoke into the air. It was equipped with a dedicated boiler room, geothermal air conditioning, self-supplied purified water source, and a dedicated waste incinerator. The overall infrastructure could be rated as first-class. However, this was Shi Niaoren's first visit here since the factory was completed and put into production—after all, this wasn't his major.
+The Pharmaceutical and Medical Equipment Factory sat within the farm's perimeter—a composite reinforced concrete structure with a single chimney breathing smoke into the sky. It boasted its own boiler room, geothermal climate control, purified water supply, and a dedicated waste incinerator. First-rate facilities by any measure. Yet this was Shi Niaoren's first visit since the factory had gone operational. It wasn't his specialty, after all.
 
-The Pharmaceutical and Medical Equipment Factory belonged to a Level 1 unit with strict access control. The iron-clad gate of the yard was tightly closed. He rang the doorbell for a long time before a face appeared in the small window on the door—startling Shi Niaoren; it was a face with burn scars.
+As a Level 1 facility, the factory maintained strict access protocols. The iron-clad gate was shut tight, and he had to ring the bell repeatedly before a face appeared in the door's small window—a face covered in burn scars. Shi Niaoren started.
 
-Then he remembered; this was a disabled soldier. These people basically served as guards in vital departments now.
+Then he remembered: this was one of the disabled soldiers. These men had been assigned to guard posts at vital installations across the settlement.
 
-"Dean!" As soon as the guard saw it was the Dean of the Hospital and concurrent Factory Director, he hurriedly opened the door.
+"Dean!" The guard recognized Shi Niaoren immediately and hurried to open the gate.
 
-Although Shi Niaoren had an impression of treating this person, he couldn't remember his name, so he just nodded politely. "Is Zhao Yanmei in?"
+Though Shi Niaoren vaguely recalled treating this man, the name escaped him. He offered a polite nod. "Is Zhao Yanmei in?"
 
-"In, in," the guard responded repeatedly. "You sit in the office first; I'll go notify—"
+"Yes, yes," the guard replied eagerly. "Please wait in the office; I'll fetch her—"
 
-"No need. Where is she? I'll find her myself."
+"No need. Just tell me where to find her."
 
-"Director Zhao said," the guard thought for a moment, "No one else can enter when she is working. Better let me notify."
+"Director Zhao instructed..." The guard hesitated. "No one is to enter while she's working. I'd better notify her first."
 
-Room numbers starting with 0 meant the basement. Probably the strain laboratory. Although Shi Niaoren didn't do biochemistry, he knew a bit about the principles—presumably, she was doing things like strain cultivation and didn't want people entering and exiting to bring in miscellaneous bacteria.
+Room numbers beginning with zero indicated the basement—likely the strain laboratory. Though biochemistry wasn't Shi Niaoren's field, he understood the principle well enough. Zhao Yanmei was probably cultivating strains and didn't want foot traffic introducing contaminants.
 
-"How do you notify?" Shi Niaoren got curious. Although there was a telephone here, internal telephones didn't exist.
+"How do you notify her?" Shi Niaoren asked, curious. The factory had telephone service, but no internal extensions.
 
-"Use this." The guard led him into the guard room with a limp. Inside, shelves were built along the wall, divided into several rows, with small nameplates nailed on them. Above the nameplate was a small bell and a pull cord.
+"This way." The guard led him into the guardhouse, limping on an injured leg. Shelves lined the walls, divided into rows bearing small nameplates. Above each nameplate hung a bell connected to a pull cord.
 
-The guard seriously wrote down the date and the visitor's name in crooked handwriting in the register, then pulled the rope under a certain nameplate a few times. After a moment, the small bell on the nameplate also rang.
+In careful, unsteady characters, the guard recorded the date and visitor's name in the register, then tugged the rope beneath a particular nameplate. A moment later, the corresponding bell chimed in response.
 
-"Director Zhao knows. She'll come out immediately."
+"Director Zhao has been alerted. She'll come up right away."
 
-"? This system is not bad." Shi Niaoren thought this was similar to the electric bells in hospital inpatient departments. Although they couldn't communicate, at least they could convey simple information. Thinking this system could also be used in the hospital. He would ask Zhao Yanmei about it later.
+"Clever system." Shi Niaoren recognized the similarity to hospital call bells. Simple but effective for conveying basic information. The hospital could use something like this. He made a mental note to ask Zhao Yanmei about it later.
 
-Zhao Yanmei's office was separate. Shi Niaoren sat for quite a while before seeing her return.
+Zhao Yanmei's office was separate from the main building. Shi Niaoren waited quite some time before she appeared.
 
-It turned out Zhao Yanmei was inoculating Kasugamycin in the strain laboratory. This antibiotic was mainly used in agriculture to prevent crop diseases and had little medical value—used for treating mild infections not serious in degree. Shi Niaoren was inevitably somewhat dissatisfied—in his view, joint ventures with the Agricultural Committee would have such results, satisfying their needs first.
+As it turned out, she'd been inoculating Kasugamycin cultures in the strain laboratory. This particular antibiotic served primarily agricultural purposes—preventing crop diseases—with minimal medical applications. It saw occasional use for minor infections, nothing more. Shi Niaoren couldn't help feeling a prick of dissatisfaction. Their joint venture with the Agricultural Committee seemed to be prioritizing farming needs over medical ones.
 
-Seeing the leader's face wasn't very cheerful, Zhao Yanmei guessed his thoughts.
+Noting the displeasure on his face, Zhao Yanmei anticipated his thoughts.
 
-"This is also for practice!" She explained, "The indigenous cultivation of Kasugamycin is relatively simple and doesn't have high requirements for environmental conditions. If we can make this work, cultivating other strains later will be easier."
+"This is practice work," she explained. "Kasugamycin cultivation is relatively straightforward and doesn't require exacting environmental conditions. If we can master this process, cultivating other strains will be much easier."
 
-Shi Niaoren hurriedly asked, "What strains are prepared to be cultivated next? Can Penicillin work?"
+"What strains are next on the agenda?" Shi Niaoren pressed. "What about Penicillin?"
 
-"Cultivating Penicillin isn't difficult; purification is the troublesome part." Zhao Yanmei frowned. "Wait until conditions are better. For medical use, we can cultivate Oxytetracycline first. This is relatively simpler."
+"Cultivating Penicillin isn't the difficulty—purification is." She frowned. "That will have to wait until our facilities improve. For medical applications, we can tackle Oxytetracycline first. It's a simpler process."
 
-Having Oxytetracycline to use was not bad either; this thing's effect was almost the same as Tetracycline, a quite broad-spectrum antibiotic.
+Oxytetracycline would still be valuable—its efficacy matched Tetracycline, making it a reasonably broad-spectrum antibiotic.
 
-"Having Oxytetracycline is good too." Shi Niaoren's face looked much better.
+"Oxytetracycline would be good," Shi Niaoren agreed, his expression softening.
 
-Zhao Yanmei's next sentence made Shi Niaoren extremely unhappy again. "It's also good for fattening pigs."
+Zhao Yanmei's next words soured his mood again: "It's also excellent for fattening pigs."
 
 "Fattening pigs?"
 
-"Yes, Old Yang said so." Old Yang was naturally Yang Baogui.
+"Mm. Old Yang mentioned it." Old Yang, of course, was Yang Baogui.
 
-"I'm afraid there won't be enough medicine for humans when the time comes. We act miserably short of antibiotics now!" Shi Niaoren made a heartbroken gesture.
+"I'm afraid we won't have enough for human use at this rate. We're desperately short of antibiotics!" Shi Niaoren clutched his chest in exaggerated anguish.
 
-"Being anxious won't work either," Zhao Yanmei said. "Antibiotics produced haven't undergone animal testing. With our conditions, the antibiotics produced won't have few impurities. I'm afraid accidents will happen if humans eat them..."
+"Impatience won't help," Zhao Yanmei said evenly. "None of our antibiotics have undergone animal testing. Given our production conditions, impurity levels will be high. Using them on humans too soon could cause serious complications..."
 
-"Can't care about so much now," Shi Niaoren said. "Solve the problem of existence first."
+"We can't afford to worry about that now," Shi Niaoren countered. "First we establish that something exists. Then we worry about perfecting it."
 
-Zhao Yanmei came from a formal pharmaceutical factory and still wasn't quite adapted to such a crude, indigenous method tone. For a time, she was silent.
+Zhao Yanmei, who had come up through a proper pharmaceutical factory, remained uncomfortable with such rough-and-ready approaches. She fell silent.
 
-"Not that urgent, right?" Zhao Yanmei said. "The Acid and Alkali Plant is about to start production soon. After that, the Coal Chemical Combined Plant will also start production. It'll be fine once production starts."
+"It's not quite so urgent, is it?" she finally ventured. "The Acid and Alkali Plant is about to begin production. The Coal Chemical Combined Plant will follow soon after. Once those are running, we'll be in much better shape."
 
-"I saw it in the newspaper." Shi Niaoren wasn't interested in coal chemical enterprises. "Coal chemical products are many, probably synthetic ammonia? But those are for industrial use. Could they produce antibiotics?"
+"I saw the announcements in the newspaper." Shi Niaoren remained skeptical. "But coal chemical products are mainly industrial—synthetic ammonia and the like. How does that help us produce antibiotics?"
 
-"Sulfonamide!" Zhao Yanmei said, "Ji Situi said, once this Coal Chemical Combined Plant starts production, one of the byproducts is sulfonamide raw material."
+"Sulfonamide." Zhao Yanmei's eyes lit up. "Ji Situi told me: once the Combined Plant is operational, one of the byproducts will be raw material for sulfonamides."
 
-Shi Niaoren certainly knew what sulfonamide meant. This chemical synthetic was first found in dyes and was the most effective anti-infective drug before penicillin-type antibiotics. In this space-time where bacteria hadn't developed drug resistance yet, this thing alone could save countless lives!
+Shi Niaoren knew precisely what that meant. Sulfonamide—first discovered in dyes—had been the most effective anti-infective agent before the advent of penicillin-class antibiotics. In this timeline, where bacteria had yet to develop resistance, sulfonamide alone could save countless lives.
 
-"Really?!" Shi Niaoren was surprised and delighted, almost standing up. This was major good news.
+"You're certain?" He nearly leapt from his chair. This was extraordinary news.
 
-"Ji Situi said it. He's an expert; he wouldn't talk nonsense, right?"
+"Ji Situi himself said so. He's an expert—he wouldn't speak carelessly."
 
-"Mm, mm, must follow up on this matter! Follow up!"
+"Yes, yes—we must follow up on this! Absolutely must!"
 
-"No need to rush. The Acid and Alkali Plant lights the fire the day after tomorrow, and the Coal Chemical Plant still has to wait some time. According to Ji Situi, even the coal hasn't been transported enough."
+"No need to rush. The Acid and Alkali Plant fires up the day after tomorrow. The Coal Chemical Plant will take longer; according to Ji Situi, they haven't even stockpiled enough coal."
 
-"Fine, let's not talk about this first." Shi Niaoren remembered his main business wasn't finding antibiotics. He told Zhao Yanmei about some current hygiene conditions and proposed that the Pharmaceutical Factory had better make some commonly used medicines recently.
+"Very well. Let's set that aside for now." Shi Niaoren remembered his actual purpose. He described the current sanitary conditions throughout the settlement and proposed that the Pharmaceutical Factory produce some essential medicines.
 
-"...Antidiarrheals, physiological saline, glucose solution, and bleaching powder."
+"...Antidiarrheals. Physiological saline. Glucose solution. And bleaching powder."
 
-Zhao Yanmei said, "To be honest, what can be delivered immediately are only distilled water for injection, a dozen kinds of proprietary Chinese medicines, physiological saline, and alcohol. Even making glucose has difficulties..."
+Zhao Yanmei sighed. "To be frank, what we can deliver immediately is limited: distilled water for injections, a dozen or so proprietary Chinese medicines, physiological saline, and alcohol. Even glucose presents difficulties..."
 
-"Physiological saline still has problems," she continued. "First, the purity of sodium chloride in the salt transported from Yanchang Village is not enough; impurities are too many. Second, sulfuric acid is not enough. We dare not make physiological saline for infusion; let's make some for oral use first."
+"There are complications with the physiological saline as well," she continued. "The salt from Yanchang Village isn't pure enough—too many impurities. And we're running short on sulfuric acid. We can't produce infusion-grade saline yet; oral solutions will have to do for now."
 
-"What else do you need? I'll apply to the Planning Committee again!"
+"What else do you need? I'll submit another request to the Planning Committee."
 
-"Too many things are needed. I'm afraid the Planning Committee has no way either—Commissioner Ma doesn't have the ability to create something out of nothing." Zhao Yanmei smiled bitterly. "Doctor Shi, you should know that modern pharmacy is actually chemistry."
+"We need far too many things. I'm afraid even Commissioner Ma can't conjure resources from thin air." Zhao Yanmei smiled ruefully. "Doctor Shi, you should understand—modern pharmacy is fundamentally chemistry."
 
-"You mean—" Shi Niaoren understood her meaning. "Chemical products are not enough?"
+"You mean—" Shi Niaoren grasped her meaning immediately. "Chemical supplies are insufficient?"
 
-"More than just not enough; they are simply extremely scarce. Take the glucose rehydration solution you want; the glucose process is very simple, starch plus acidification method, easy to make. But I don't have acid: neither hydrochloric acid nor sulfuric acid. I have to use the enzymatic method, which is time-consuming and laborious, not to mention the PH value of the produced glucose can't be corrected—no alkali."
+"Insufficient doesn't begin to describe it. They're virtually nonexistent. Take the glucose rehydration solution you mentioned. The process is simple—starch plus acidification. But I have no acid: neither hydrochloric nor sulfuric. I'm forced to use enzymatic methods, which are time-consuming and labor-intensive. Even then, I can't correct the pH of the glucose we produce—because we have no alkali."
 
-Shi Niaoren nodded.
+Shi Niaoren nodded slowly.
 
-"Also, gauze and absorbent cotton. Usually, they must be degreased first—caustic soda is needed. But caustic soda is very scarce now. Usable disinfectants are also not enough. The output products can only be said to be make-do. Fortunately, massive trauma cases are few." She stopped talking. "Currently, except for doing strain cultivation and proprietary Chinese medicines, the Pharmaceutical Factory really can't make anything particularly effective."
+"Gauze and absorbent cotton are the same story. Normally, they must be degreased first—which requires caustic soda. But caustic soda is in desperately short supply. Our available disinfectants are inadequate. The products we're able to produce are barely acceptable. It's fortunate we haven't faced many major trauma cases." She paused. "For now, beyond strain cultivation and proprietary Chinese medicines, the Pharmaceutical Factory can't produce anything truly effective."
 
-"Rest assured, these will be solved in a few days. The chemical plant in Bopu will be able to start production soon. I'll talk to the Planning Committee to let the Pharmaceutical Factory get priority." Shi Niaoren cheered her up.
+"Take comfort—these problems will be solved soon. The chemical plants in Bopu will begin producing any day now. I'll speak with the Planning Committee to ensure the Pharmaceutical Factory receives priority allocation." Shi Niaoren did his best to raise her spirits.
 
-"That's good. With the Three Acids and Two Alkalis, many things can be made." She got up and took a piece of paper from the desk drawer. "These are some matters needing coordination and urgently needed materials."
+"That would be a relief. With the Three Acids and Two Alkalis available, we'll be able to manufacture a great deal more." She rose and retrieved a sheet of paper from her desk drawer. "Here's a list of coordinated needs and urgent material requirements."
 
-Shi Niaoren took it and saw quite a few items listed: requesting the machinery department to provide a special specification knitting machine for weaving gauze; a full set of tailoring equipment and workers who understand tailoring—this was for making masks; various extra-large pots, clay pots, iron pots... The order requirements for the glass factory were the most: a large number of vessels, pipes, and alcohol blast burners.
+Shi Niaoren examined it. The inventory was extensive: specialized knitting machines for gauze production; complete tailoring equipment and skilled workers for making masks; various large vessels—clay pots, iron pots. The glass factory's order list was the longest by far, encompassing vessels, piping, and alcohol blast burners.
 
-"Also small injection vials," Zhao Yanmei said. "This thing is hard to make. I'm afraid the glass factory isn't interested; the Planning Committee has to issue research and development instructions directly."
+"Also, small injection vials," Zhao Yanmei added. "Those are difficult to produce. The glass factory may not consider them worthwhile; the Planning Committee will need to issue direct research and development orders."
 
-"You are preparing to make injections? Oxytetracycline injections?"
+"You're preparing to manufacture injections? Oxytetracycline injections?"
 
-"Temporarily make Traditional Chinese Medicine injections first. Preparing to make some honeysuckle, Isatis root, and Shuanghuanglian injections, and cardiotonics—extracting Atropine should be possible."
+"Traditional Chinese medicine injections, for the time being. We're looking at honeysuckle, isatis root, and Shuanghuanglian preparations, along with cardiac stimulants. Atropine extraction should be feasible."
 
-"This stuff—" Shi Niaoren still had some impression of the situation where TCM injections caused deaths back then. "Is it safe?"
+"That—" Shi Niaoren remembered all too well the fatalities caused by TCM injections in his own time. "Is it safe?"
 
-"Not safe enough. The components of TCM extracts are mixed, and pharmacological principles are not clear enough. However, TCM injections like honeysuckle, Isatis root, and Shuanghuanglian have been used for decades, and the mortality rate is still acceptable; they are not considered very dangerous things. As for Atropine, it is originally a very dangerous thing. But Atropine is an important rescue drug, very useful, so we'll make it to try first."
+"Not entirely. TCM extracts contain complex mixtures of components, and the underlying pharmacological mechanisms aren't fully understood. However, preparations like honeysuckle, isatis root, and Shuanghuanglian have decades of clinical use. The mortality rate remains acceptable—they're not considered particularly dangerous. As for Atropine, it's inherently hazardous, but it's also a critical emergency medication. The potential benefits justify the attempt."
 
-"Alright." Shi Niaoren knew this was also a helpless move.
+"Understood." Shi Niaoren recognized this was simply the reality of their situation.
 
-"I have another request." Zhao Yanmei continued, "All kinds of empty bottles used in the hospital, injection bottles, infusion bottles, medicine bottles, etc., had better be kept and transferred to the Pharmaceutical Factory. We can recycle them."
+"I have one more request." Zhao Yanmei hesitated. "All glass containers used by the hospital—injection bottles, infusion bottles, medicine vials—please save them and transfer them here. We can recycle them."
 
-These things were indeed kept. According to the regulations, any modern products could not be discarded at will; even if temporarily useless, they had to be reserved first.
+These items were already being preserved. Regulations required that no modern materials be discarded; everything was stockpiled against future need.
 
-"These are kept. And all washed and disinfected. But they are on the Planning Committee's account. I'll talk to the Planning Committee to approve them all for you."
+"We've been saving them. Washed and sterilized, too. They're currently under the Planning Committee's inventory. I'll arrange for their allocation to you."
 
-"One more request—" Zhao Yanmei probably felt her request was a bit excessive. "Can you give us an X-ray machine?"
+"One more request—" Zhao Yanmei seemed to feel she was pushing her luck. "Could you possibly spare us an X-ray machine?"
 
-Shi Niaoren was startled. X-ray machine! This belonged to Special Controlled Equipment. Because it involved radioactive sources, the transmigrators exhausted their efforts to only get three units. They had to rely on them for at least a few decades. What did the Pharmaceutical Factory want this for?
+Shi Niaoren stared. An X-ray machine! Those were Special Controlled Equipment. Because they involved radioactive sources, the transmigrators had exhausted considerable effort to acquire just three units. They were expected to last decades. What on earth would the Pharmaceutical Factory want with one?

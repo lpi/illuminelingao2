@@ -20,7 +20,7 @@ As for himself—while the suturing needle pierced his skin, his soul was alread
 
 Speaking of the Crossing Company bigwigs, Guo Yi had compiled files on all of them. The head honcho was Wen Desi; there was also Wang Luobin, an industrial engineer, and Xiao Zishan—an unemployed sales manager...
 
-These people—before, Guo Yi could make one phone call and summon them for a chat; tell them 8 o'clock and they would not dare arrive at 8:01. Now, obviously, he could not even call them—let alone make an appointment. They were probably all Politburo Standing Committee-level figures now. *What a monkey coronation.*
+These people—before, Guo Yi could make one phone call and summon them for a chat; tell them eight o'clock and they would not dare arrive at 8:01. Now, obviously, he could not even call them—let alone make an appointment. They were probably all Politburo Standing Committee-level figures now. *What a monkey coronation.*
 
 After much thought, Guo Yi decided to first find Ran Yao—at least an acquaintance. And as "Security Group Leader," obviously leadership. Coming from the police system himself, that should be professionally appropriate. Not knowing how to find him, he wandered aimlessly through the camp. Sure enough, it was not hard—after asking a few people, his lack of an armband got him grabbed by vigilant masses and delivered straight to the Security Group, directly to Ran Yao.
 
@@ -42,7 +42,7 @@ Guo Yi surveyed the small tent: besides some computers, there were radios chargi
 
 "Want to join the Security Group?" Ran Yao nodded.
 
-"Yes, I think my expertise is relevant here." Guo Yi spoke more fluently now, introducing his education and work experience. The more he said, the more confident he became. Ran Yao was probably from criminal investigation; specialized state-security personnel were rare—he was unique. The 21st century needed talent most; surely the 17th century needed it even more...
+"Yes, I think my expertise is relevant here." Guo Yi spoke more fluently now, introducing his education and work experience. The more he said, the more confident he became. Ran Yao was probably from criminal investigation; specialized state-security personnel were rare—he was unique. The twenty-first century needed talent most; surely the seventeenth century needed it even more...
 
 "Here is the thing," Ran Yao said approvingly. "Someone like you—our Security Group would welcome warmly. However, your situation is not for me to decide."
 
@@ -62,7 +62,7 @@ On the dirt road to Survey Point 4 toward Bairren Rapids, a Beijing 212 jeep was
 
 The car bounced over the rough dirt track. This was not even a road yet—just some passable segments the Engineering Group had temporarily marked for the Bopu–Bairren Rapids highway survey.
 
-Since the highway survey began that morning, Wang Luobin had traveled between these survey points several times, sometimes by car, sometimes on foot. In planning, Bairren Rapids would be the transmigrators' main production and living base. The location was highly advantageous: beside the Wenlan River—Lingao's largest—convenient for industrial and domestic water supply and drainage. In modern times, this was the Bairren Rapids hydroelectric station site. If a power station could be built in the 20th century, so could one in the 17th. Building the base near a power station enabled local power use, eliminating huge costs for power lines and ongoing protection. Bairren Rapids was eight kilometers from Bopu Port and four kilometers from the Lingao County seat—all three could support each other. The three bases, aligned along the Wenlan River, facilitated control of farmland on both banks.
+Since the highway survey began that morning, Wang Luobin had traveled between these survey points several times, sometimes by car, sometimes on foot. In planning, Bairren Rapids would be the transmigrators' main production and living base. The location was highly advantageous: beside the Wenlan River—Lingao's largest—convenient for industrial and domestic water supply and drainage. In modern times, this was the Bairren Rapids hydroelectric station site. If a power station could be built in the twentieth century, so could one in the seventeenth. Building the base near a power station enabled local power use, eliminating huge costs for power lines and ongoing protection. Bairren Rapids was eight kilometers from Bopu Port and four kilometers from the Lingao County seat—all three could support each other. The three bases, aligned along the Wenlan River, facilitated control of farmland on both banks.
 
 To develop the Bairren Rapids base, massive equipment and supplies had to be transported to the site. The Bopu–Bairren Rapids simple highway thus became a top-priority project.
 
@@ -80,6 +80,6 @@ Mei Wan interjected: "So now we are basically correcting the map before marking 
 
 "Exactly," Li Xiaolu said. "If the map were accurate, I would spend a few hours tonight on desktop route selection; tomorrow we would do on-site selection, marking, and start construction."
 
-Currently, her survey team had mapped only three kilometers. A professional survey team needed at least seven people; the Committee had given her twelve, but most did not know surveying. She had to teach from scratch: how to set lines, hold ranging poles, read levels. The survey team had become a teaching team. All morning they had not covered 500 meters. In the afternoon, once everyone was familiar, progress finally accelerated.
+Currently, her survey team had mapped only three kilometers. A professional survey team needed at least seven people; the Committee had given her twelve, but most did not know surveying. She had to teach from scratch: how to set lines, hold ranging poles, read levels. The survey team had become a teaching team. All morning they had not covered five hundred meters. In the afternoon, once everyone was familiar, progress finally accelerated.
 
 **(End of Chapter)**

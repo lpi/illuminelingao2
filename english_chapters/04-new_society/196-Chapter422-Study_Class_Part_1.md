@@ -1,99 +1,101 @@
-# Chapter 422 Study Class (Part 1)
+# Chapter 422 - Study Class (Part 1)
 
-According to a 50% ratio of "mixing in sand," it was already possible to completely strip them of control. Combined with disrupting the units and distributing them evenly to achieve "you in me, me in you," the factions inside would be thoroughly disrupted.
+With a fifty percent ratio of "mixing in sand," it would already be possible to completely strip them of control. Combined with disrupting the original units and distributing personnel evenly to achieve "you in me, me in you," the internal factions would be thoroughly fragmented.
 
-"The sailors will have to go through a 60-day quarantine period anyway. Our Political Department will seize this time to conduct educational work and try our best to win the sailors over."
+"The sailors will have to undergo a sixty-day quarantine period regardless," Wei Aiwen explained. "Our Political Department will seize this time to conduct educational work and do everything possible to win them over."
 
-"How is the education of the people Ren Fu brought going?"
+"How is the education progressing for the people Ren Fu brought?"
 
-"There has been considerable progress." Wei Aiwen was in high spirits. "They belong to Zhu Cailao's central army system and are relatively trusted. It was difficult at first, but we seized on the officer-soldier contradictions within—"
+"Considerable progress has been made." Wei Aiwen spoke with evident enthusiasm. "They belonged to Zhu Cailao's central army system and were relatively trusted, so things were difficult at first. But we've seized upon the contradictions between officers and ordinary sailors—"
 
-Wei Aiwen said that in the entire ideological education work, the focus was on the "Speaking Bitterness" movement. Whose bitterness to speak of? The first was naturally the bureaucrats and evil gentry who oppressed the common people and made life unbearable, forcing everyone onto this path. As for the second, it was the sea lords. The focus was to expose and criticize the various acts of oppressing the masses within the pirate gang, so that the sailors fully understood that the sea lords and leaders were not their benefactors but bad elements who exploited and enslaved them...
+Wei Aiwen explained that the entire ideological education effort focused on the "Speaking Bitterness" movement. Whose bitterness would be spoken? First came the bureaucrats and evil gentry who had oppressed the common people until life became unbearable, forcing everyone onto this path. Second came the sea lords themselves. The emphasis was on exposing and criticizing the various acts of oppression within the pirate gangs, making the sailors fully understand that their bosses and leaders were not benefactors but parasites who exploited and enslaved them...
 
-"Stop, stop..." Wen Desi hurriedly called a halt. "I understand this line of thinking—estranging the relationship between the two sides. But these bigwigs will still be employed in the future; they're not to be directly taken out and shot. If they become too antagonistic, how can work be carried out later? Won't the sailors start dragging them out for struggle sessions as soon as they get on the ships?"
+"Stop, stop..." Wen Desi hurriedly called a halt. "I understand this approach—estranging the relationship between the two sides. But these leaders will still be employed in the future; they're not to be dragged out and shot. If we create too much antagonism, how can work be carried out later? Won't the sailors start hauling them out for struggle sessions the moment they board the ships?"
 
-"Of course, we'll have discretion." Wei Aiwen said, "It won't be escalated; we just want them to see the true face. Besides, we also have study courses for these pirate leaders."
+"We'll exercise discretion, of course." Wei Aiwen smiled. "Things won't escalate. We simply want them to see the true face of their former masters. Besides, we have study courses for these pirate leaders as well."
 
-"Going to hold study classes?"
+"You're holding study classes?"
 
-"Yes, hold study classes."
+"Precisely. Study classes."
 
-Shi Shisi and the others stayed in the commercial hall and were treated to good food and drink. Starting from the second day, it was constant touring.
+---
 
-"Touring—constantly organizing them to tour, let them fully appreciate the strength of our group and the superiority of our system!" Wei Aiwen instructed. "Facts speak louder than words."
+Shi Shisi and the others remained in the Commercial Hall, treated to fine food and drink. Beginning the second day, however, came a constant rotation of tours.
 
-First was the tour of the *Fengcheng*. Personally boarding this huge iron ship, these men of the sea became as curious as little children. Just a few steps onto the deck, they all rushed to the bulwark and looked down.
+"Tours—we organize them continuously, letting them fully appreciate our group's strength and the superiority of our system!" Wei Aiwen had instructed. "Facts speak louder than words."
+
+First came the tour of the *Fengcheng*. Upon personally boarding this massive iron ship, these men of the sea became as curious as children. They had barely taken a few steps onto the deck before rushing to the bulwark to peer down.
 
 "So high!"
 
-Some didn't believe it was made of iron. They touched it with their hands, knocked and scraped with the copper coins on their persons. Some even went so far as to lick it. Seeing the newly installed cast iron cannons on the deck, these people's eyes went straight. It was the same 150mm muzzle-loading rifled gun as on the Bopu Beacon Tower. The ammunition rails beside the gun positions, the shells, and the cranes used to load shells all aroused their boundless interest.
+Some refused to believe it was truly made of iron. They touched it with their hands, knocked and scraped with the copper coins they carried. A few even went so far as to lick it. When they spotted the newly installed cast iron cannons on deck, their eyes went wide. These were the same 150mm muzzle-loading rifled guns mounted on the Bopu Beacon Tower. The ammunition rails beside the gun positions, the shells, the cranes used for loading—all aroused endless fascination.
 
-What interested them most were the sliding rails under the gun positions. Without much effort, two or three people could make the cannon rotate. They all had experience in naval battles and knew the power of being able to freely adjust the firing direction, marveling one after another.
+What captivated them most were the sliding rails beneath the gun positions. With minimal effort, two or three men could rotate the cannon freely. They all had experience in naval combat and understood the immense tactical advantage of being able to adjust firing direction at will. Exclamations of wonder rippled through the group.
 
-"Damn, with this thing, Zheng Zhilong amounts to a fart." Shi Shisi couldn't contain his excitement. "Even the big galleons of the Red Hairs in Macau wouldn't be a problem."
+"Damn! With this thing, Zheng Zhilong amounts to nothing." Shi Shisi could barely contain his excitement. "Even the big galleons the Red Hairs keep in Macau wouldn't stand a chance."
 
-Next, they toured the Bopu Commune and the shipyard. The first iron-hulled ship, Project 854, which had been in semi-shutdown due to material supply problems, became the best showcase of construction achievements for its completed sections.
+Next came tours of the Bopu Commune and the shipyard. The first iron-hulled vessel, Project 854—which had been in semi-shutdown due to material supply problems—became the perfect showcase for the completed sections.
 
-Shi Shisi and the others personally walked into the dock, stroking rows of iron ribs as thick as small tree trunks and plate after plate of iron riveted onto the ribs with giant rivets, with expressions of utter disbelief.
+Shi Shisi and the others walked directly into the dock, running their hands along rows of iron ribs as thick as small tree trunks and plate after plate of iron riveted onto the frame with giant rivets. Their expressions betrayed utter disbelief.
 
-Fearing it wasn't impressive enough, Wei Aiwen also showed them propaganda films for several consecutive days. Out of caution, Japanese secret movies were not shown; instead, it was a propaganda film edited from various resources.
+Fearing the impact wasn't sufficient, Wei Aiwen also showed them propaganda films for several consecutive days. Out of caution, Japanese films were excluded; instead, they viewed material edited from various resources.
 
-On the animated screen, in the iron and steel complex, molten steel splashed; in the hydroelectric power station, huge water dragons gushed forth; steel giant ships slowly slid from the slipway into the sea; looms continuously spewed out cloth and silk; the sparkling lights and endless streams of cars in cities; the rosy-cheeked faces of modern farmers driving Dongfanghong tractors...
+On the animated screen, molten steel splashed in an iron and steel complex; enormous jets of water roared through a hydroelectric power station; steel giants slid slowly from slipways into the sea; looms churned out endless bolts of cloth and silk; cities gleamed with sparkling lights and rivers of automobiles; rosy-cheeked modern farmers drove Dongfanghong tractors across verdant fields...
 
-Then came rows of white-helmeted and white-armored Imperial Stormtroopers marching. Then the scene changed to the armored troops formation at the National Day parade...
+Then came rows of white-helmeted Imperial Stormtroopers marching in formation, followed by armored troops at the National Day parade...
 
-The leaders, one by one, lost their ability to discern in the darkness. This greatly exceeded their capacity to understand the world. When the lights came on, Lin Baiguang was satisfied to see them each dumbfounded.
+The leaders, one by one, lost all capacity for critical judgment in the darkness. These images far exceeded their ability to comprehend the world. When the lights came on, Lin Baiguang was satisfied to see every face frozen in stupefied amazement.
 
-"Gentlemen, this is the place we come from!" Lin Baiguang said, full of energy.
+"Gentlemen, this is the place we come from!" Lin Baiguang announced, full of energy.
 
-A few people barely managed to squeeze some smiles onto their faces, while others showed expressions of wild joy amidst their stupor. The former seemed more attuned to the trend, while the latter had the potential for opportunism. The intelligence personnel responsible for observing their expressions wrote their intuitive comments under each person's photo.
+A few managed to squeeze forced smiles onto their faces while others displayed expressions of wild joy mixed with their stupor. The former seemed more attuned to the current situation, while the latter showed potential for opportunism. The intelligence personnel tasked with observing their expressions recorded intuitive assessments beneath each person's photograph.
 
-After three days of visiting and study, according to Wu Fo's eavesdropping on their private conversations, the leaders were practically prostrating themselves before the Crossing Group. Pirates worshipped the strong. Almost everyone said in conversation that they had come to the right place by defecting to Lingao. Some were even ambitious, thinking that perhaps the Australians would take over the Central Plains and replace the Zhu Emperor, and everyone could become founding heroes.
+After three days of touring and study, according to Wu Fo's eavesdropping on their private conversations, the leaders had practically prostrated themselves before the Crossing Group. Pirates worshipped strength. Nearly everyone remarked in private that defecting to Lingao had been the right choice. Some were even ambitious, speculating that perhaps the Australians would conquer the Central Plains and replace the Zhu Emperor—and they could all become founding heroes.
 
-In this atmosphere, the necessary disposition of the fleet became much easier. After letting them rest and relax for a few days, a special meeting was convened, headed by Wu De, to announce the policy to the defecting leaders.
+In this atmosphere, the necessary disposition of the fleet became much easier. After allowing them several days of rest and relaxation, a special meeting was convened with Wu De presiding to announce policy to the defecting leaders.
 
-All the defecting leaders, regardless of how many ships they brought, would each receive an independent residence. This type of residence was designed by the Lingao Construction Company for the gradually increasing native administrative cadres in the future. It was also an experiment for personal residences after the collective dormitory system of the Crossing Group was abolished in the future.
+All defecting leaders, regardless of how many ships they had brought, would each receive an independent residence. This housing type had been designed by the Lingao Construction Company for the gradually expanding ranks of native administrative cadres. It also served as an experiment for personal residences after the Crossing Group eventually abolished its collective dormitory system.
 
-This type of cadre housing adopted the idea of row houses to save land and building materials. Each building was a two-and-a-half-story structure with a practical area of 240 square meters. It had running water, drainage, and a simple squat-type flush toilet, but no electricity. All houses also had small front and back yards.
+The cadre housing adopted a row-house design to conserve land and building materials. Each unit was a two-and-a-half-story structure with a practical area of 240 square meters. All featured running water, drainage, and simple flush toilets, though not electricity. Each house also included small front and back yards.
 
-All private property they brought would be protected and freely disposable.
+All private property they had brought would be protected and remain freely disposable.
 
-The family members and children of the leaders would all live on shore. Minor children would attend school. Adult children would attend school or participate in work according to family requirements and personal wishes.
+The family members and children of the leaders would all reside on shore. Minor children would attend school. Adult children would pursue education or employment according to family preferences and personal wishes.
 
-Private servants were not recognized locally. Therefore, all servants brought by the leaders would have their status abolished. Those willing to continue serving the leaders would be treated as employment relationships. Those unwilling would be treated as immigrants.
+Private servants were not recognized locally. Therefore, all servants the leaders had brought would have their status abolished. Those willing to continue serving might do so under formal employment arrangements. Those unwilling would be processed as immigrants.
 
-As for the sailors they brought, those who wished to return home or go elsewhere would be given traveling expenses for disbandment. Those willing to stay would be concentrated for 90 days of quarantine.
+As for the sailors they had brought, those wishing to return home or travel elsewhere would receive disbandment funds. Those willing to stay would be concentrated for ninety days of quarantine.
 
-"After the quarantine ends, those willing to return as sailors will be reorganized and put back on ships; those unwilling will have other work uniformly arranged by us." Wei Aiwen explained the policy.
+"After the quarantine ends, those wishing to return as sailors will be reorganized and assigned to ships; those unwilling will be arranged other work," Wei Aiwen explained.
 
-The people below began to grow uneasy. Servants were fine; there weren't many of them anyway. Many of the sailors were commoners who had been forcibly captured. If they were free to come and go, wouldn't a lot of them run away? They had already lost a lot of people after this catastrophe. If this was done, wouldn't there be no one to command?
+The men below grew restless. Servants were a minor concern—there weren't many. But sailors were another matter entirely. Many had been commoners forcibly captured. If they were free to come and go, wouldn't a good number flee? The leaders had already lost many people through this catastrophe. If this policy proceeded, they might command no one at all.
 
-Then Wei Aiwen continued to announce: "Now, some of your ships have many people, some have few. It's barely enough for sailing, but if there's a battle, it probably won't be enough. So the Navy will set staffing quotas for each ship and fill all vacancies. From now on, pay will be issued according to the roster after each ship is staffed."
+Wei Aiwen continued his announcement: "Currently, some of your ships have many crew, others few. There's barely enough for sailing, but if battle comes, it probably won't suffice. Therefore, the Navy will establish staffing quotas for each ship and fill all vacancies. From now on, pay will be issued according to the roster once each ship is fully staffed."
 
-"In the future, all your food and pay will be issued by the Navy. You don't have to worry anymore. No need to worry about rice and firewood." Wei Aiwen laughed.
+"In the future, all your food and pay will be issued by the Navy. You won't have to worry anymore. No more concerns about rice and firewood." Wei Aiwen laughed.
 
-Shi Shisi and the others, however, couldn't laugh. They naturally knew the tricks here. After reorganizing personnel, a large amount of "sand" would inevitably be mixed in. The tight-knit small groups originally formed by regional and kinship ties would be completely diluted. Even if there were still some familiar faces on their ships, they would no longer be the trusted followers they could command at will.
+Shi Shisi and the others, however, found nothing amusing. They understood the implications perfectly. After personnel reorganization, a substantial amount of "sand" would inevitably be mixed in. The tight-knit small groups originally formed through regional and kinship ties would be completely diluted. Even if familiar faces remained aboard their ships, those men would no longer be the trusted followers who obeyed their every command.
 
-As for unified logistics, it sounded like a good thing, but in reality, whoever's pay you receive, you're their soldier. If the Australians controlled the pay and grain, the brothers on the ships wouldn't listen to them much anymore. Once pay and grain were controlled, they could only obediently follow the Australians' commands.
+As for unified logistics—it sounded beneficial, but in reality, whoever controlled the pay controlled the soldiers. If the Australians managed food and wages, the crews would no longer listen to them. Once pay and provisions were controlled, they could only follow Australian commands obediently.
 
-How could everyone not know the implications? But these conditions were open and fair, and could even be considered generous. Not to mention that they now had no people, no grain, and if they opposed, it would just prove they had "disloyal hearts." What the consequences would be for someone who had just changed allegiance, everyone was very clear.
+How could anyone miss these implications? Yet the conditions were open and fair—generous, even. They now had no men, no provisions, and if they objected, it would merely prove they harbored "disloyal hearts." What consequences awaited someone who had just switched allegiance, everyone understood perfectly.
 
-After several days of visiting and study, they had a direct understanding of the Australians' strength. Not only did they have enough awe, but their ambitions and expectations also grew—looking at the Crossing Group's strength, they might not dare to say they could march to Beijing and become emperors, but occupying a corner of the southeast and establishing a feudal domain was probably achievable. By then, they would be founding heroes with ranks and titles, honored with their wives and children!
+After several days of touring and study, they had gained a direct understanding of Australian strength. Not only had they developed sufficient awe, but their ambitions and expectations had also grown. Judging by the Crossing Group's power, they might not dare say they could march on Beijing and become emperors, but occupying a corner of the southeast and establishing a feudal domain seemed entirely achievable. When that day came, they would be founding heroes with ranks and titles, honored alongside their wives and children!
 
-It would be better to show loyalty now—after all, crushing their little bit of power was effortless for the Crossing Group. Since they were selling themselves to seek refuge, they might as well sell completely. Thinking of this, Shi Shisi was the first to stand up:
+Better to demonstrate loyalty now. After all, crushing their meager power would be effortless for the Crossing Group. Since they were selling themselves to seek refuge, they might as well do so completely. With this thought, Shi Shisi was the first to rise:
 
-"Since I have come to defect to Lingao, I am willing to offer all my subordinates and ships! I only wish to be a vanguard general, charging into battle for the Chiefs!"
+"Since I have come to defect to Lingao, I willingly offer all my subordinates and ships! I ask only to serve as a vanguard general, charging into battle for the Chiefs!"
 
-Everyone was dumbfounded. Li Guangfa followed suit and stood up: "I am also willing to offer my ships and people. From now on, I will be of one mind with the Chiefs. Sharing the same boat through thick and thin."
+Everyone was dumbfounded. Li Guangfa promptly rose as well: "I am also willing to offer my ships and people. From now on, I am of one mind with the Chiefs. Sharing the same boat through thick and thin."
 
-"I am also willing. I've had enough of the days of drifting on the sea!" Fatty Hu also shouted.
+"I'm willing too. I've had enough of drifting on the sea!" Fatty Hu shouted.
 
-With this, the remaining people who were not quite willing also had to chorus their agreement.
+With this, the remaining leaders who might have been less willing had no choice but to chorus their agreement.
 
-Wei Aiwen assumed the manner of a leader, pressing his hands downward: "Since everyone has come to Lingao, we are one family. Since we are one family, there's no need to be particular about whose is whose."
+Wei Aiwen assumed the manner of a leader, pressing his hands downward in a calming gesture. "Since everyone has come to Lingao, we are one family. And within a family, there's no need to be particular about whose is whose."
 
-He continued: "Your ships will still be commanded by yourselves. For those who don't want to drift on the sea anymore, the Executive Committee also has policies."
+He continued: "Your ships will still be under your command. For those who no longer wish to drift on the sea, the Executive Committee has policies as well."
 
-According to the policy set by the Executive Committee: for those willing to hand over their ships, the Executive Committee would pay to purchase the ships. After handing over the ships, those willing to continue with the maritime business would be assigned to work at the Naval Department. Those unwilling to continue going to sea would be assigned elsewhere.
+According to the Executive Committee's policy: for those willing to hand over their ships, the Committee would purchase them at fair value. After surrendering their vessels, those wishing to continue in maritime business would be assigned to the Naval Department. Those unwilling to continue going to sea would be assigned positions elsewhere.
 
 (End of Chapter)

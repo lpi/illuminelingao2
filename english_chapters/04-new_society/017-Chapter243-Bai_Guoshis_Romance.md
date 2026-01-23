@@ -1,101 +1,101 @@
 # Chapter 243: Bai Guoshi's Romance
 
-"Multipass." He swiped his card at the entrance of the residential area. Seeing people playing PSP in the square, he felt a sense of returning to the civilized world. Some were also playing badminton, table tennis, and so on. He wasn't in the mood to watch and returned to his dormitory. He shared a dorm with Cui Yunhong and Dong Shiye—the latter occasionally participated in the exploration team's operations.
+"Multipass." He swiped his card at the residential area checkpoint. Seeing people playing PSP in the square, he felt a surge of having returned to civilization. Others were playing badminton or table tennis. He wasn't in the mood to watch and headed straight for his dormitory. He shared quarters with Cui Yunhong and Dong Shiye—the latter occasionally participated in exploration team operations.
 
-Cui Yunhong had disappeared somewhere after eating, and Dong Shiye was still at work, so the dormitory was empty. As material conditions improved, the dormitory had been furnished—in the past, everyone slept on floor mats. Now decorated anew, Bai Guoshi really suspected he had returned to his university dormitory: loft beds with sleeping space above and a desk below; individual storage lockers and wardrobes; racks for cups and washbasins. The most conspicuous item was the gun rack behind the door—chained to it was an SKS-D rifle, with a full magazine loaded. The only downside was that there was still no internet, and electricity usage was restricted, with power supplied only from 6 PM to 9 PM.
+Cui Yunhong had vanished somewhere after eating, and Dong Shiye was still at work, so the dormitory stood empty. As material conditions improved, the living space had been properly furnished—in the early days, everyone had slept on floor mats. Now, freshly decorated, Bai Guoshi could almost believe he had returned to his university dormitory: loft beds with sleeping quarters above and desks below; individual storage lockers and wardrobes; racks for cups and washbasins. The most conspicuous item was the gun rack behind the door—chained to it was an SKS-D rifle with a loaded magazine. The sole deficiency was the continued absence of internet, and electricity remained rationed, supplied only from six to nine in the evening.
 
-Bai Guoshi went to the bathroom for a shower. The water was cold; hot water was only supplied at night, but he was used to it. The sound of splashing water came from the women's bathroom next door; presumably, someone was showering there too—unfortunately, the design of this bathroom was quite artistic: the male and female entrances were separated, with the women's entrance leading directly into the interior of Group 6. After showering, he washed his clothes. Several people in the dorm liked to hoard dirty clothes until they had nothing to wear before washing, making the room always smell like stinking salted fish. Every time Fang Yijing came to inspect dormitory hygiene, she gave them a "Poor" rating.
+Bai Guoshi headed to the bathroom for a shower. The water ran cold—hot water was only available at night—but he was accustomed to it by now. Splashing sounds emanated from the women's bathroom next door; someone else was showering as well. Unfortunately, the bathroom had been designed with peculiar artistry: the male and female entrances were separated, with the women's entrance leading directly into Group 6's interior. After showering, he washed his clothes. Several dormmates habitually hoarded dirty laundry until they had nothing clean left, leaving the room perpetually reeking of stale fish. Every time Fang Yijing conducted her hygiene inspection, they received a "Poor" rating.
 
-Dragging a pair of slippers, Bai Guoshi returned sluggishly from the bathhouse. The room was still empty—no chance to even find someone to play PES with. He dug out a ziplock plastic bag from his cupboard; inside was a carton of cigarettes. In the original world, he had never touched a bit of tobacco, but now he really wanted a puff. He went out and sat under a tree in the square. Taking the first drag, he choked tears out of his eyes instantly. He hurriedly extinguished the cigarette, but the tears couldn't stop, pouring out under the pretext of the smoke. The almost uninterrupted exploration missions for several months had made him numb, but a cigarette released everything: parents, friends, classmates were all before his eyes: *I'm really f*cking sick, running here. I don't even have a girlfriend, haven't even touched a woman's hand...*
+Dragging a pair of slippers, Bai Guoshi shuffled back from the bathhouse. The room remained empty—he couldn't even find someone to play PES with. He dug a ziplock bag from his cupboard; inside was a carton of cigarettes. In the other timeline, he had never touched tobacco, but now he desperately craved a drag. He went outside and sat beneath a tree in the square. At the first inhalation, smoke seared his throat and tears flooded his eyes. He hurriedly stubbed out the cigarette, but the tears refused to stop, pouring forth under the pretense of smoke irritation. Months of nearly uninterrupted exploration missions had numbed him, but a single cigarette released everything: parents, friends, classmates—all vivid before his eyes. *I'm such a fucking idiot, running here. I don't even have a girlfriend. Haven't even held a woman's hand...*
 
-A tissue was handed to him. Looking up, it was Zhao Xue. "Didn't expect you to cry too, hmph." She had a mischievous smile on her face.
+A tissue appeared beside him. Looking up, he saw Zhao Xue. "Didn't expect you to cry too. Hmph." A mischievous smile played on her lips.
 
-"Choked by smoke," he said, taking the tissue. Zhao Xue's hair was wet, and his heart couldn't help but stir.
+"Choked by the smoke," he said, accepting the tissue. Zhao Xue's hair was still damp, and his heart stirred involuntarily.
 
-"Who believes that? Crying isn't wrong."
+"Who believes that? There's nothing wrong with crying."
 
-"Is your knee better?" Bai Guoshi didn't want to show weakness in front of a woman.
+"Is your knee better?" Bai Guoshi refused to show weakness before a woman.
 
-"Just went to the hospital for treatment, applied medicine, doesn't hurt much anymore." Zhao Xue openly pulled up her pant leg and moved her knee.
+"Just came from the hospital. Applied medicine—doesn't hurt much anymore." Zhao Xue unselfconsciously pulled up her pant leg and flexed her knee.
 
-The young woman's snow-white, firm calf and the white skin faintly revealed on her knee were exposed within inches of the innocent university graduate. The smell of camphor tincture mixed with a scent like orchid or fragrance drifted over, and "Little White" once again felt his ears burning.
+The young woman's snow-white calf, firm and smooth, and the pale skin faintly visible around her knee were exposed mere inches from the innocent university graduate. The scent of camphor tincture mingled with something delicate—orchid, perhaps, or jasmine—drifted over. "Little Bai" felt his ears begin to burn.
 
-"Good that it's fine, good."
+"Good that it's healing. That's good."
 
-"Let's go, wash your face. We'll sort out the report later; you have to present tonight."
+"Come on, wash your face. We need to organize the report—you're presenting tonight."
 
-"Right, right." Bai Guoshi hadn't expected this girl to openly invite him to organize data together and couldn't help but be ecstatic. He immediately cast his gloomy mood to the winds. "I'll go wash up right now. Meet in the office in a bit?"
+"Right, right." Bai Guoshi hadn't expected this woman to openly invite him to work on the data together. Elation swept through him, banishing his melancholy to the winds. "I'll clean up right now. Meet in the office shortly?"
 
-"No need, I'll just wait for you in the square. It's quite a long walk; we can talk on the way."
+"No need for that. I'll just wait for you here in the square. It's quite a walk—we can talk on the way."
 
-Bai Guoshi was dizzy from the impact of happiness. When he stood up, he actually swayed a few times before walking off joyfully.
+Bai Guoshi was dizzy from the impact of happiness. When he stood, he actually swayed several times before walking off in a state of joy.
 
-***
+---
 
-The report meeting for the 45th Long-Range Exploration Operation convened on time at 19:00 in the Executive Committee compound.
+The report meeting for the 45th Long-Range Exploration Operation convened punctually at 19:00 in the Executive Committee compound.
 
-Several bigwigs of the Executive Committee sat solemnly behind a horseshoe-shaped table, facing a row of seats in the middle. It was said that someone arranged the furniture based on the US Congressional Hearing model.
+Several senior figures of the Executive Committee sat solemnly behind a horseshoe-shaped table, facing a row of seats reserved for the presenters. The arrangement had reportedly been modeled after U.S. Congressional hearings.
 
-Those participating in the report were Liu Zheng, Cui Yunhong, Huang Zhuazi, and Bai Guoshi. Zhao Xue and Ye Mengyan were not professionals in this field and didn't need to attend.
+Those participating in the presentation were Liu Zheng, Cui Yunhong, Huang Zhuazi, and Bai Guoshi. Zhao Xue and Ye Mengyan lacked the relevant professional expertise and were not required to attend.
 
-"Gentlemen, please sit. Captain Liu, the report you sent tonight is good and has great reference value. Now we want to hear an oral report," Wen Desi said.
+"Gentlemen, please be seated. Captain Liu, the written report you submitted tonight is excellent and holds great reference value. Now we'd like to hear an oral presentation," Wen Desi said.
 
-"Thank you. Which parts should we discuss first?"
+"Thank you. Which aspects should we address first?"
 
-"Let's talk about the biological field guide first."
+"Let's begin with the biological field guide."
 
-"I suggest Guoshi report on this; he is more professional."
+"I suggest Guoshi present on that—he's more qualified."
 
-Bai Guoshi began his report: "Creating a biological field guide is mainly because the Ministry of Health has notified us several times about incidents of accidental ingestion of poisonous mushrooms. The cafeteria also refuses to use any wild fungi for fear of poisonous ones. Harmful creatures here also attack transmigrators and our laborers. So our idea is to compile a set of biological field guides, tentatively releasing two types first. One is for local edible or usable animals, plants, and wild fungi, for reference by various departments; the second is a harmful organism atlas, including various venomous snakes, poisonous insects, parasites, poisonous plants, etc., for safety publicity use. We have already started working on the first type of guide."
+Bai Guoshi commenced his report: "Creating a biological field guide is primarily motivated by repeated Ministry of Health notifications regarding accidental ingestion of poisonous mushrooms. The cafeteria has also refused to use any wild fungi for fear of toxic species. Additionally, harmful creatures in this region attack both transmigrators and our laborers. Our concept is therefore to compile a comprehensive biological field guide, initially releasing two volumes. One will cover local edible or usable animals, plants, and wild fungi for reference by various departments. The second will be a harmful organism atlas, encompassing venomous snakes, poisonous insects, parasites, toxic plants, and similar threats—this for safety awareness purposes. Work on the first volume has already begun."
 
-"Good idea." Xiao Zishan, Director of the General Office, nodded. "Later it can be printed in color and published. One copy for everyone." The other committee members also nodded in succession.
+"Excellent idea." Xiao Zishan, Director of the General Office, nodded. "Later we can print it in color and publish a copy for everyone." The other committee members nodded in succession.
 
-"The future plan is that this identification atlas can be extended to other aspects, including minerals and the like..."
+"The future plan is to extend this identification atlas to other domains, including minerals..."
 
-"Also regarding our department's issues, concerning the Long-Range Exploration Team itself, we believe the current number of personnel is far from sufficient and urgently needs strengthening. If there is only one team, in case we are ambushed outside, the Transmigration Regime will lose its entire long-range exploration force. I personally suggest establishing at least three six-man reconnaissance squads, training them by pairing veterans with novices. Avoiding the situation where if a professional in a certain field dies, there is no successor—our line of work is a high-risk profession, with such possibilities at any time. In addition, having three teams allows simultaneous investigation in two directions, leaving one on standby. In terms of personnel, we need at least 12 more people, ideally with some outdoor activity experience. We must ensure each squad has one person with military service experience. Regarding equipment, shotguns are scarce now, so we won't apply for more, but at least give us six more steel crossbows and three walkie-talkies, ensuring each squad has one gun, two crossbows, and two walkie-talkies. Additionally, we want to apply for priority power access for two laptops to ensure intelligence organization and guide compilation..."
+"As to matters concerning our department—regarding the Long-Range Exploration Team itself—we believe the current personnel level is grossly insufficient and requires urgent reinforcement. If only one team exists, an ambush during a field operation could cost the Transmigration Regime its entire long-range exploration capability. I personally recommend establishing at least three six-man reconnaissance squads, training them via veteran-novice pairing. We must avoid scenarios where the death of a single specialist leaves no successor—our profession carries high risks; such possibilities exist at any moment. Furthermore, three teams permit simultaneous investigation in two directions while maintaining one on standby. Regarding personnel, we need at least twelve additional individuals, ideally with outdoor activity experience. We must ensure each squad includes one person with military service background. On equipment—shotguns are scarce, so we won't request additional units, but we require at least six more steel crossbows and three walkie-talkies, ensuring each squad possesses one firearm, two crossbows, and two radios. Additionally, we wish to apply for priority power access for two laptops to support intelligence organization and guide compilation..."
 
-Bai Guoshi spoke more and more happily and fluently, but suddenly he noticed all the committee members looking at him with astonished eyes. He broke into a cold sweat—he had gotten too carried away—these were Liu Zheng's lines! How did he usurp the host's role and steal the leader's report?
+Bai Guoshi spoke with increasing fluency and enthusiasm—until he suddenly noticed all the committee members staring at him with astonished eyes. Cold sweat broke out across his back. He had gotten carried away—these were Liu Zheng's talking points! How had he usurped the team leader's role and hijacked the report?
 
-"...Uhh, I've finished reporting... the report was very incomplete..." Bai Guoshi began to stammer.
+"...Uhh, I've finished... the presentation was quite incomplete..." Bai Guoshi began to stammer.
 
-"Thank you for your report," Wen Desi said softly.
+"Thank you for your report," Wen Desi said gently.
 
-After Bai Guoshi finished reporting, Cui Yunhong reported on the mineral situation discovered during this exploration, focusing on the discovery of the kaolin mine and the speculation of nearby lignite. Neither resource was urgently needed, plus there was a garrison city nearby—according to Yu Eshui's research, it was probably the station of that Rear Chiliarch Fort of Lingao.
+Following Bai Guoshi, Cui Yunhong presented on the mineral discoveries from the expedition, focusing on the kaolin deposit and the speculated presence of nearby lignite. Neither resource was urgently needed, and a garrison town stood in proximity—according to Yu Eshui's research, likely the station of the Rear Chiliarchy of Lingao.
 
-"Might as well wipe out this Chiliarch Fort," Ma Qianzhu said. "Chiliarch Liu is already a figure with public grievances; getting rid of him can win over a large batch of military households to defect."
+"Perhaps we should simply eliminate this Chiliarchy," Ma Qianzhu suggested. "Chiliarch Liu has already accumulated considerable public grievances. Removing him could win over a significant number of military households willing to defect."
 
-"It should be very easy to fight; the Chiliarch Fort's defensive capability is very poor," Liu Zheng said. "I can't see any self-defense capability; I wrote the specific situation in the report. In my view, it's worse than Lingao County—at least Lingao has higher walls than it."
+"The battle itself would be trivial—the Chiliarchy's defensive capability is negligible," Liu Zheng said. "I observed no meaningful self-defense capacity whatsoever; the specifics are detailed in the report. In my assessment, it's weaker than Lingao County—at least Lingao has higher walls."
 
-"Let's discuss this later." The conservatives still had concerns about directly attacking Ming government institutions.
+"We'll table this discussion for now." The conservatives still harbored reservations about directly attacking Ming government installations.
 
-"We can organize resource expeditions. Use force to protect laborers to collect resources; we stay in our lane, they stay in theirs." Wu Nanhai took the opportunity to propose his opinion and elaborated on the benefits of such a practice.
+"We could organize resource expeditions instead," Wu Nanhai interjected, seizing the opportunity to advance his proposal. "Use armed escorts to protect laborers collecting resources—we stay in our lane, they stay in theirs." He elaborated on the benefits of this approach.
 
-"Go to Wenchang once, and you can have as many coconuts as you want, without spending money." Wu Nanhai continued to agitate. "Now even if we spend money, they won't ship them here!"
+"A single trip to Wenchang would secure all the coconuts we could want, without spending a single coin." Wu Nanhai continued his advocacy. "Currently, even when we offer payment, they won't ship them here!"
 
-"Why is that? Low price?"
+"Why is that? Our price too low?"
 
-"The price we offer is double that of Qiongshan!" Mo Xiao'an was indignant—Lin Quan'an, who went to the Wenchang area to buy coconuts, returned empty-handed, and several of the staff he took were beaten and injured. The various "local tyrants" that existed in the original timeline existed in this timeline too—the copra trade was monopolized by several merchants in Qiongshan County, and outsiders were not allowed to intervene. Even if he offered a high price, the farmers harvesting coconuts dared not sell to him.
+"We're offering double Qiongshan's rate!" Mo Xiao'an sounded indignant. Lin Quan'an, sent to purchase coconuts in the Wenchang area, had returned empty-handed, and several of his staff had been beaten and injured. The "local tyrants" that characterized the original timeline existed in this one as well—the copra trade was monopolized by several Qiongshan County merchants, and outsiders were forbidden from participating. Even at premium prices, farmers harvesting coconuts dared not sell to him.
 
-"What's the Exploration Team's opinion?"
+"What does the Exploration Team think?"
 
-"We have no objection. As long as the Executive Committee organizes it, we will certainly serve well as pathfinders and guides."
+"We have no objection. If the Executive Committee organizes this initiative, we'll serve as pathfinders and guides."
 
-"Alright then, we'll discuss the details after the meeting." Ma Qianzhu agreed.
+"Very well—we'll work out the details after the meeting." Ma Qianzhu agreed.
 
-"In addition, the Exploration Team needs a survey ship. This way we can conduct round-the-island surveys and also bring the survey team along—after all, ships are much safer than hiking surveys. If something goes wrong, we just retreat to the ship and we're safe."
+"Additionally, the Exploration Team requires a survey vessel. This would enable round-the-island surveys and allow us to bring the survey team along. Ships are considerably safer than overland expeditions—if something goes wrong, we simply retreat to the vessel."
 
-This reason was so compelling that it couldn't be refused, but ships were scarce materials.
+The reasoning was compelling and difficult to refuse, but ships remained scarce resources.
 
-"We can only allocate some small coastal boats of ten or twenty tons, which probably aren't suitable." Wen Desi hesitated. "It will take some time for the big ship to be completed..."
+"We could only allocate small coastal boats of ten or twenty tons, which probably aren't suitable." Wen Desi hesitated. "It will be some time before the larger ship is completed..."
 
-"President Wen, that two-masted schooner was agreed to belong to our Maritime Power Department!" Li Haiping, the representative of the Maritime Power Department, hurriedly came out to say.
+"President Wen, that two-masted schooner was agreed to belong to our Maritime Power Department!" Li Haiping, the Maritime Power Department representative, hastily interjected.
 
-Wen Desi was in a dilemma. The Resource Department's demand wasn't unreasonable, but the Maritime Power Department's urgent need to acquire new ships to increase armed force and transport capacity was also a reality.
+Wen Desi found himself in a dilemma. The Resource Department's demand was reasonable, yet the Maritime Power Department's urgent need for new ships to expand armed capacity and transport capability was equally real.
 
-"How about this: the ship and sailor establishment will still be listed under the Maritime Power Department, and the Exploration Team can call upon it when needed—guaranteeing priority use for the Exploration Team." Ma Qianzhu came up with a solution that offended neither side. "Sailors are also in short supply now; it's better to be managed uniformly by the Maritime Power Department."
+"How about this: the ship and sailor establishment remain under the Maritime Power Department, but the Exploration Team may call upon it when needed—with priority use guaranteed." Ma Qianzhu proposed a compromise that offended neither side. "Sailors are also in short supply; centralized management under the Maritime Power Department makes sense."
 
-"That works too." Liu Zheng knew the possibility of getting the new ship wasn't high. "But I hope the Navy can help train us in boat handling knowledge and such, so we won't be helpless when equipped with boats in the future."
+"That works." Liu Zheng had known the probability of actually obtaining the new ship was low. "But I hope the Navy can help train us in boat handling, so we won't be helpless when equipped with vessels in the future."
 
-"Leave that to me, brother," Li Haiping agreed readily.
+"Leave that to me, brother." Li Haiping agreed readily.
 
 **(End of Chapter)**
