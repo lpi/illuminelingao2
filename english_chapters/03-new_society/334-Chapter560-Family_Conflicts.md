@@ -1,97 +1,97 @@
 # Chapter 560 - Family Conflicts
 
-Just as he was thinking about how to broach the subject with his wife, Chen Sigen said:
+"I wonder what the asking price for that one is?" Chen Sigen asked, gesturing with his chin toward a girl jumping rope in the exercise yard. She looked to be about seventeen or eighteen; although her hair was just growing out from a buzz cut, her delicate features and tall, slender figure were undeniable. Her generous chest swayed rhythmically with every jump.
 
-"I wonder what the asking price for this one is?" As he spoke, he gestured for Liu San to look at a girl doing jump rope in the exercise area. She appeared to be about seventeen or eighteen; though her hair had only grown out into short stubble, she looked pretty with delicate features and a tall, slender figure. Her not-so-small chest swayed rhythmically with the jumping motion.
+"Asking price?" Liu San grunted, feigning disinterest. He knew he was priced out of the market—not by money, but by matrimony.
 
-"Asking price?" Liu San wasn't very interested since he knew he probably couldn't partake.
+"You don't know?" Chen Sigen looked surprised. "I thought this was common knowledge. The Committee has graded the merchandise: S, A, B, C, D, E. Since we're using a cash-based allocation system, they had to slap price tags on them."
 
-"You don't know?" Chen Sigen was somewhat surprised—this should be common knowledge by now. According to Wen Desi's directive, female servants' figures and appearances were rated into grades S, A, B, C, D, and E. The reason for grading was that allocation used a cash-based system where everyone could choose freely; since they were merchandise, grades had to be assigned.
+"I assume C-grade is the baseline?"
 
-According to the policy set by the Female Servant Countermeasures Committee, a grade-C female servant's price was equivalent to the female servant subsidy that transmigrators received. If one wanted someone better, extra money had to be paid out of pocket; conversely, one could save money by purchasing D or E-grade female servants—frugal or extravagant as one pleased.
+"Right. C-grade costs exactly the amount of the 'Female Servant Subsidy' issued to every transmigrator. If you want better quality, you pay out of pocket. If you're cheap or broke, you can buy a D or E-grade and pocket the difference."
 
-"Flow Vouchers are useless anyway, so why not just buy a good one?"
+"Flow Vouchers are useless anyway," Liu San muttered. "Might as well blow it on a top-tier model."
 
-"You only know half of it," Chen Sigen laughed. "You think it's that easy? Those above C-grade are allocated by lottery according to selection priority. If your luck is bad during the draw, you end up at the back of the line. As for S-grade, there'll probably be competitive bidding."
+"You only know half of it," Chen Sigen laughed. "You think it's just about money? Anything above C-grade is allocated by lottery based on a priority queue. If you draw a bad number, you're at the back of the line. And the S-tier? That's going to be a competitive auction."
 
-"Damn, the Executive Committee is always thinking up ways to take our money." Liu San said, though inwardly he felt sour—I can't even spend money if I wanted to!
+"Damn capitalists," Liu San cursed. "Always finding ways to drain our wallets." Inwardly, however, he tasted sour grapes. *I couldn't spend a cent even if I wanted to.*
 
-"If they rated everyone S-grade, that would be something." Chen Sigen knew this girl had been named Zhao Min—the Female Servant School also had a Huang Rong, Li Ke, and Mu Jianping among others. By his assessment, this girl should be rated at least A-grade. Money wasn't the issue; the issue was whether she'd be selected by someone else first. Chen Sigen thought that if not for everyone currently watching the phrase "collective interest" so closely, his proximity advantage would probably let him slip through the back door without issue...
+"If they rated everyone S-grade, that would be a sight." Chen Sigen knew the girl's name was Zhao Min. The school also housed a 'Huang Rong', a 'Li Ke', and a 'Mu Jianping'. By his assessment, Zhao Min was at least an A-grade. The problem wasn't the price; it was the competition. If the collective wasn't watching so closely, he might have tried to use his position as instructor to secure a "backdoor listing"...
 
-Liu San thought for a long time on his way home about how to bring it up and prepared a set of talking points. Unfortunately, Wuyunhua's position at home was very firm. His application to purchase a female servant specifically for domestic labor was directly rejected.
+Liu San rode home in a gloom, rehearsing his pitch. He had spent days preparing a dossier of arguments to present to his wife, Wuyunhua.
 
-"I don't mind if other people want one," Wuyunhua said boldly. "When you've been pent up too long, you need release—can't always solve it yourself, right? But you—when have I ever left you pent up?"
+Unfortunately, Wuyunhua's defense was impenetrable. His application for a "domestic assistant" was summarily rejected.
 
-"What you say is absolutely right, dear," Liu San nodded repeatedly. "It's just the housework is wearing you out..."
+"I don't mind if the single guys want one," Wuyunhua said, her tone dangerously calm. "Men have needs. If they can't solve it themselves, fine. But you? When have I ever left *you* unsatisfied?"
 
-"You can do housework, can't you?" Wuyunhua laughed. "Fu Wuben can help you with work too—don't apprentices empty chamber pots for the boss's wife and such?"
+"You're absolutely right, dear," Liu San nodded frantically. "It's not about that. It's the housework... I hate seeing you so tired..."
 
-"That's the evil old society."
+"You have hands, don't you?" Wuyunhua laughed. "And doesn't Fu Wuben help out? In the old days, apprentices emptied the master’s chamber pots. Are we too good for that now?"
 
-"I think the new society you lot want to build isn't as good as the old one." Wuyunhua said with a laugh.
+"That's the evil old society talking..."
 
-"Not 'you lot'—'we,'" Liu San refused to give up. "Dear, think about it: you have a lot of work yourself, and we'll definitely have children in the future—maybe more than one. How can we manage without someone reliable to look after the home?"
+"Please. The 'new society' you lot are building looks a hell of a lot worse than the old one," she scoffed.
 
-"Not just 'close to your heart' but 'close to your body,' right?"
+"Not 'you lot'—'we'," Liu San corrected weakly. "Honey, look at the big picture. We're going to have kids. Maybe lots of them. How can we manage a household and full-time jobs without reliable help?"
 
-"Absolutely no such intention." Liu San's plan was the roundabout approach: first get someone in the door, then gradually work on her, slowly softening the opposing stance. Eventually achieve the goal.
+"Reliable help? Or just someone 'close to your body'?"
 
-As long as he opened one breach, opening a second and third would be much easier. Right now, his wife's defenses were iron-tight, unwilling to give an inch.
+"Absolutely not!" Liu San protested. His strategy was the wedge: get a servant in the door for cleaning, then gradually soften the boundaries. But Wuyunhua wasn't giving an inch.
 
-But male instinct still made him very enthusiastic about this matter—he still harbored a fantasy that perhaps his wife would agree someday to letting him have a few life secretaries. After all, social environment had a great influence on people.
+Still, the primal instinct died hard. He harbored a flicker of hope that the social environment would eventually wear her down. Everyone else had maids; surely she wouldn't want to be the only one scrubbing her own floors forever?
 
-"I heard you've been very busy with work lately?" Wuyunhua suddenly asked with concern.
+"I heard you've been very busy with work lately?" Wuyunhua asked suddenly, her eyes narrowing.
 
-Liu San was on alert: "Yes, a bit busy, a bit busy."
+Liu San's radar pinged wild warnings. "Yes! Very busy. Terrible workload."
 
-"Since you're so busy, you should just sleep at the department."
+"Since you're so busy," she said sweetly, "you should probably just sleep at the office."
 
-Five minutes later, Liu San appeared on the streets of Bairren City with a bedroll on his back. Acquaintances teased him: "What's this? Off again on Madam's orders to contribute to the transmigrator collective?"
+Five minutes later, Liu San stood on the streets of Bairren City, a bedroll strapped to his back.
 
-"Work is busy, work is busy. Health Department has a meeting." Liu San hastened away, covering up his embarrassment.
+"Kick out again, Old Liu?" an acquaintance called out. "Off to 'contribute to the collective' on Madam's orders?"
 
-The Health Department wasn't a good place to sleep, of course, since its offices were inside the General Hospital—the two were essentially one entity. The disinfectant smell was strong, and in the basement were rows of fresh human specimens. Liu San didn't much like this place. Going to the pharmaceutical factory meant strong medicinal odors, plus workers would definitely buttonhole him to consult on various traditional Chinese medicine technical questions. Usually he was happy to offer guidance, but today he had no interest whatsoever.
+"Busy! Meetings at the Health Department!" Liu San shouted back, fleeing the scene.
 
-After much thought, he decided to spend the night at Runshitang instead. Yang Shixiang was his sworn elder brother who valued highly this sworn younger brother who had revived the family business. Going to Runshitang would certainly mean good food and drink, plus he could enjoy some family atmosphere.
+The Health Department was a terrible place to sleep. The offices were inside the General Hospital, permeating the air with disinfectant and the smell of sickness. The basement morgue full of "fresh specimens" didn't help the ambiance. The pharmaceutical factory was no better—strong chemical odors and workers who would corner him with endless questions about TCM formulations.
 
-Runshitang was in the county seat. The Executive Committee had now removed Lingao County town from the "places to approach with caution" list and placed it in the Blue Zone. After taking over the county yamen, the county town was essentially fully controlled by the transmigrator collective and was quite safe.
+He decided to crash at Runshitang. Yang Shixiang was his sworn elder brother, a man who treated him with the reverence due a savior of the family business. There would be good food, good wine, and the comfort of a traditional patriarchal household.
 
-Liu San brought Fu Wuben out of Bairren City and registered their destination at the city gate—this system had been proposed by the Political Security General Administration. Everyone leaving Bairren City had to register their destination to ensure safety. At the East Gate Market shops, he bought some fruit candies and colorful ball candies as gifts for his "nephew," then boarded the ox cart heading to the county seat.
+Runshitang was in the county seat. The Executive Committee had recently upgraded Lingao County Town from a "Caution Zone" to a "Blue Zone." With the puppet magistrate fully under control, the town was essentially transmigrator territory.
 
-As a transmigrator, Liu San had an assigned vehicle. The assigned vehicle wasn't a jeep or other motor vehicle, nor one of the scarce Red Flag carriages, but rather a utility bicycle—commonly called "28 bar"—a mountain bike, or an electric bicycle. Liu San often needed to go out and sometimes had to carry things, so he had chosen a utility bicycle.
+Liu San registered his destination at the Bairren City gate—a security measure implemented by Zhao Manxiong to track personnel movements—and collected his apprentice, Fu Wuben. He bought a bag of fruit candies at the East Gate Market for his "nephew," then retrieved his assigned vehicle.
 
-The road to the county seat had already been paved with hardened surface. Riding a bicycle on it was smooth and comfortable without any bumps. From Bairren City to the county seat was only five or six kilometers—twenty minutes would do it.
+It wasn't a jeep or even a Red Flag carriage. It was a utilitarian "28-bar" heavy-duty bicycle. Liu San preferred it for its cargo capacity.
 
-Large-scale construction was underway along the highway. This was a priority project in the First Five-Year Plan: the Wenlan River Comprehensive Remediation Project. Every day, several thousand laborers were digging and building dikes along the route. Excavated soil, transported stones, timber, bamboo reinforcement, and various other construction materials were piled everywhere.
+The road to the county seat was now pavement, smooth and hard. The five-kilometer ride was a breezy twenty-minute cruise.
 
-As Liu San passed through, the river on both sides of this section had already been dammed off, exposing the empty, stone-covered riverbed. Some sections had already cleared the stones and were deep-excavating the riverbed. The plan was to increase the Wenlan River's flow depth to 1.5 meters, not only increasing the channel's water storage capacity but also allowing passage of larger barges.
+Construction was exploding along the highway. The "Wenlan River Comprehensive Remediation Project," a cornerstone of the First Five-Year Plan, was in full swing. Thousands of laborers swarmed the riverbanks, digging dikes and hauling stone.
 
-Crowds of laborers were at work. Liu San recalled that a few days ago the Health Department had held a meeting about summer heatstroke prevention and epidemic prevention in densely populated areas—particularly regarding the Tiandu development. Shi Niaoren had required that reserves of Bi Wenshen and Zhuge Xingju San be maintained at certain levels for emergency use.
+Liu San pedaled past sections where the riderbed had been exposed, the water diverted by cofferdams. Workers were dredging the channel to a depth of 1.5 meters, aiming to boost water storage and allow the passage of heavy barges.
 
-"They go on about modern medicine all day long, but when the time comes they still have to ask traditional medicine for help!" Liu San was quite resentful. In the Health Department, he was something of an anomaly; Dr. Shi and Dr. Ai, being returnees from overseas, practically treated him as a "witch doctor" type. Liu San's interest in traditional Chinese medicine was limited, and he was skeptical of the mystical Five Elements theory—his major was Chinese pharmacology, with traditional medicine itself just a side note. But within the Health Department, he found himself involuntarily playing the role of defender of traditional medicine.
+"Make sure we have ample stocks of Bi Wenshen and Zhuge Marching Powder," Liu San muttered to himself, recalling Shi Niaoren's directive about heatstroke prevention.
 
-Grumbling was grumbling, but the work still had to be done. The better the traditional Chinese patent medicines performed, the greater his say in the Health Department. Fortunately, common medications now relied almost entirely on traditional Chinese patent medicines. His position in the Health Department was becoming increasingly important.
+"They mock TCM all day long, but the moment an epidemic looms, who do they come crying to?" Liu San felt a surge of resentment. In the Health Department, he was the odd man out. Drs. Shi and Ai, with their Western degrees, treated him like a witch doctor. The irony was that Liu San himself was skeptical of mystical Five Elements theory—his degree was in pharmacology. Yet, in the face of their arrogance, he found himself forced into the role of TCM's defender.
 
-His bicycle arrived at the west gate of the county seat, outside the Academy Fields. Civil militia holding standard spears stood guard at the manor gate, checking for suspicious characters. On the gatehouse of Academy Fields stood a lookout specifically responsible for observing conditions inside and around the county town.
+Still, job security was job security. As long as the modern pharmaceutical lines were bottlenecked, the colony ran on his herbal patent medicines. His influence was growing by the day.
 
-At the county town gate, the ragged, shifty-eyed local guards had been replaced by strapping young men wearing brand-new official uniforms and holding spears—soldiers transferred from the Army. A full infantry company was garrisoned in the county town.
+He arrived at the county town's west gate. The ragged, shifty-eyed yamen runners of the past were gone, replaced by strapping local militia in crisp uniforms, holding standard-issue spears. A full infantry company of the Transmigrator Army was garrisoned within the walls.
 
-The state of the county town had greatly improved. To ensure the health of personnel stationed there, shortly after taking over the county yamen and gaining control of the county, the Civil Affairs Committee had conducted a comprehensive cleanup of the county town. This included cleaning streets, registering households, mapping the entire county in detail... and repairing some public facilities. For the first time, Lingao County town had roads that didn't flood, and several public buildings had been repaired.
+The town itself had been transformed. The Civil Affairs Committee had launched a "Patriotic Health Campaign," clearing tons of accumulated garbage, dredging the sewers, and spraying disinfectant until the streets reeked of chlorine. For the first time in history, the roads in Lingao County didn't turn into cesspools when it rained.
 
-The Lingao County Police Station, disguised as the Lingao Patrol Squad, had conducted several large-scale crackdowns, detaining all vagrants in the town and sending them all to quarantine camps for purification and resettlement. The Health Department had also come in to conduct several sanitation campaigns on a large scale, clearing out tons of garbage and spraying large quantities of disinfectant.
+The "Lingao Patrol Squad"—a front for the fledgling police force—had swept the streets of vagrants and beggars, shipping them off to the quarantine camps for "purification" and labor reassignment.
 
-Not much basic construction had been done, but the town's atmosphere was already completely renewed. Liu San came and went from the county town frequently, and the contrast felt particularly strong.
+Liu San breathed in the relatively clean air. "Not a bad place to spend a few nights," he mused.
 
-"A place like this—coming to visit often, staying a few nights—isn't bad at all," he said to himself.
+Yang Shixiang was surprised by the late visit—the city gates were about to close—but his welcome was warm.
 
-Yang Shixiang was somewhat surprised by his sudden visit—it was nearly time for the city gates to close, and Liu San rarely visited at such an hour.
+"I'm imposing on you for a few days, brother," Liu San said with a pained smile.
 
-"I'll impose on you for a few days, elder brother," Liu San said with a wry smile.
+"My home is your home," Yang Shixiang said instantly, asking no questions. He ushered Liu San into a guest courtyard attached to his outer study.
 
-"Please, make yourself at home," Yang Shixiang said, not knowing what had happened but readily agreeing. "Treat it as your own home."
+It was a marked step up from a hospital cot. The room was elegant, appointed with rosewood furniture and antiques. Two young shop boys were immediately assigned to attend to him, preparing a hot bath and laying out fresh clothes.
 
-He welcomed him in and settled him in a small courtyard—Yang Shixiang's outer study. Runshitang had a dedicated guest courtyard for hosting visitors; arranging for him to stay in the outer study was treating him like family. Liu San didn't understand the significance, but the Yang family after all had some standing and the father had migrated from Foshan, having seen the wider world. The study was arranged neatly and elegantly, quite comfortable.
+After bathing, Liu San exchanged the requisite courtesies with the Yang family matriarchs. Once the ritual etiquette was satisfied, Yang Shixiang ordered a banquet table set up in the study.
 
-Two young shop boys were immediately assigned to attend to him, tidying the room and preparing bath water. After bathing, there were unavoidable courtesies to be exchanged with his sworn brother's family. Once this elaborate etiquette was complete, Yang Shixiang had a table of wine and dishes set up in the study, and the two drank and talked together.
+Surrounded by good wine, fine food, and deferential servants, Liu San finally relaxed. Here, at least, he was a master.
 
 (End of Chapter)

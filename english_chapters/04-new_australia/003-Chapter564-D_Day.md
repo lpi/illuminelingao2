@@ -1,113 +1,73 @@
 # Chapter 564 - D-Day
 
-By now, the sky was faintly bright. The calm fleet anchored in Dadonghai Bay began to stir. People aboard the ships were busy: soldiers checked their weapons; laborers were roused. By now, most people no longer felt seasick, and their stomachs began to growl. Sailors began distributing breakfast.
+The sky had turned a pale, watery gray. In Dadonghai Bay, the slumbering fleet began to stir. On deck, soldiers checked weapons; below, laborers were roused from their fitful sleep. With the ships at anchor, seasickness began to recede, replaced by the hollow ache of empty stomachs.
 
-Ships that had the capacity supplied hot meals. Sailors distributed disposable wooden bento boxes. When people opened them, they found pure white rice mixed with vegetable flakes, plus a whole fish and an egg.
+On vessels equipped with galleys, hot meals were served. Sailors distributed disposable wooden bento boxes containing white rice mixed with vegetable flakes, a whole fish, and a hard-boiled egg.
 
-The laborers and soldiers happily began eating breakfast. The previously low morale improved somewhat. Those who finished eating could ladle a bowl of hot soup from the steaming iron buckets: a broth made from broad bean paste with dried fish and seaweed, warm and comforting to the stomach.
+For the soldiers and laborers, this was a feast. Morale, battered by days of misery, began to climb. Those who finished eating lined up for steaming iron buckets of soup—a thick broth of broad bean paste, dried fish, and seaweed. It was warm, salty, and infinitely comforting.
 
-Ships unable to provide hot food distributed better dry rations: Type A-1 rations. A hard biscuit made from rice flour mixed with lard, nuts, egg powder, salt, and sugar—the highest-grade emergency ration. Apart from the Special Reconnaissance Team and a few Naval sailors, other native troops had never even seen it. Hot soup was delivered by small boat from the larger ships. Zhuo Tianmin insisted that everyone should have at least one bowl of hot soup. This wasn't meaningless welfare—the laborers needed to replenish the energy depleted by six days of seasickness and loss of appetite. Once ashore, much work awaited them.
+Ships unable to provide hot meals distributed "Type A-1" rations—high-energy biscuits made from rice flour, lard, nut meal, egg powder, salt, and sugar. To the average Ming peasant soldier, who had never seen such refined food, these dense blocks were a marvel. Zhuo Tianmin had insisted on piping hot soup to every ship via small boats; he saw it not as welfare, but as fuel. These men needed to burn calories to build a city, and they needed to recover from the voyage immediately.
 
-The labor team leaders, squadron commanders, and battalion commanders moved through the crowd, encouraging everyone while urging them to pack up their gear. The landing would begin shortly.
+Squad leaders and foremen moved through the eating crowds, barking orders to pack gear. The time was near.
 
-The transmigrators all looked nervous but also excited—D-Day and T-Hour were upon them!
+Nervous excitement crackled through the transmigrators. D-Day. T-Hour.
 
-More than sixty ships had spent six days circumnavigating half of Hainan Island. Now the transmigrator collective's largest maritime operation was about to unfold—the first of countless future landings. Whether the months of planning, preparation, and training would bear fruit depended on this moment.
+Over sixty ships had circumnavigated half of Hainan Island to be here. This was the collective's largest maritime operation to date, the prototype for all future conquests. Months of planning hung on the next few hours.
 
-The ships spread into formation on the sea, waiting to enter Dadonghai Bay in sequence.
+"Commence operations," Wang Luobin ordered from the bridge of the flagship trawler. He handed the headset to the naval commander. "Command is transferred to Li Haiping until shore HQ is established."
 
-"Commence operations!" Wang Luobin issued the order from the 8154 fishing trawler's bridge. Then he announced, "I now transfer command to Li Haiping, until we establish a forward command post on shore."
+Radios crackled. Semaphore flags snapped in the morning breeze.
 
-The fleet's radios and signalmen all sprang into action. Orders went out via radio waves, signal flags, and semaphore, reaching every ship.
+On the decks of the *Xunjing* and *Dajing*, cranes groaned as heavy wooden motor launches were lowered into the water. Smoke chugged from their small steam engines. These boat teams acted as pathfinders, splitting toward Luhuitou and the Tiandu River mouth.
 
-On *Xunjing* and *Dajing*, cranes rumbled into motion. Steel cables stretched taut as heavy wooden motor launches were slowly lowered from the deck into the sea. These were four transport boats, each equipped with a small steam engine and operated by four sailors, capable of carrying twelve people plus supplies.
+Their mission was to mark the landing zones. In day, they would use color-coded panels; at night, colored lights and smoke. Every ship captain held a task card with a matching color strip. It was a system devised by Wen Desi—simple, idiot-proof, and rigidly standardized. "The future nation is an ISO-compliant nation," as he liked to say.
 
-The motor launches carried advance parties who would establish landing sites at Luhuitou and the Tiandu River mouth—two boats for each location. Landings would proceed simultaneously at multiple points to save time in transit and transfer. Luhuitou and the Tiandu River mouth would each first establish a temporary outpost to facilitate the timely commencement of operations.
+As the motor launches sped away, the Type 67 landing craft in the center of the formation roared to life. White spray erupted from its stern as the veteran vessel once again assumed the role of assault vanguard.
 
-The advance parties would set up lights and smoke markers at the landing sites to help subsequent ships identify them day or night. They also carried large identification panels of different colors. Ships heading to different landing points all had task cards specifying not just mission content but—most simply—which color matched their landing destination. This method was simple and intuitive, well-suited to the general education level of the sailors. Reportedly, this system was invented by Wen Desi—he was devoted to standardization. "The future nation is an ISO-compliant nation!" was his famous saying.
+Its cargo deck was packed with heavy armor: two "Dongfanghong" tractors fitted with dozer blades. Wedged around them were cross-country motorcycles, a platoon of Marines, and the Sanya Detachment of the newly formed Special Reconnaissance Battalion.
 
-Seeing smoke now rising from the motor launches' stacks as they started up, the Type 67 landing craft in the middle of the formation let out a tremendous roar. White spray fountained from its stern as this old landing craft once again played the role of assault vanguard.
+The Marines eyed the Recon troopers with a mix of envy and awe.
 
-Aboard the landing craft were two Dongfanghong tracked tractors fitted with dozer blades. Wedged into the spaces alongside the tractors were cross-country motorcycles, reconnaissance soldiers from the newly formed Special Reconnaissance Battalion's Sanya Detachment, and a full marine platoon. The latter were watching the former's equipment with a mixture of envy and amazement.
+The Recon soldiers looked alien. They wore USMC woodland camouflage and carried modern modular gear, marred only by the outdated Type 80 steel helmets on their heads (the Kevlar ones had expired).
 
-The recon soldiers wore U.S. Marine Corps BDUs with full American gear—except for the Type 80 steel helmets on their heads. Synthetic fiber helmets had expiration dates and had been rejected when purchasing supplies initially.
+But their weapons were the real envy. The standard trooper carried an SKS carbine. The marksman held a scoped Mosin-Nagant. The fire-support gunner lugged an MB77B1 assault rifle. And then there was Qian Shuixie.
 
-The Special Recon Team's equipment had always been the best in the transmigrator collective. After profiting from the sunken ship, they'd upgraded even further. Each ordinary trooper carried an SKS. The best marksman in the unit was equipped with an M44 Mosin-Nagant rifle fitted with a scope. One member assigned to fire support used an MB77B1 automatic rifle. Two more members used shotguns. Standing on the bridge, Qian Shuixie had a VZ68 slung over his shoulder, Russian-made binoculars hanging from his chest, a GLOCK 17 tucked at his waist, a U.S. military multi-purpose knife and a jungle machete hanging from his backside. He wore sunglasses, held a radio in his left hand and a 12-gauge pump-action shotgun in his right. At his feet lay a Labrador dog strapped into a specialized life vest. If he'd had a cigar in his mouth, he'd look exactly like a small-time leader from a South American guerrilla force.
+Standing on the bridge wings, Qian Shuixie looked like he had walked off the set of a South American mercenary movie. A VZ68 submachine gun slung over one shoulder, Russian binoculars on his chest, a GLOCK 17 on his hip, a US military Ka-Bar and a jungle machete crossed on his lower back. He wore aviator sunglasses even in the dawn light, held a radio in his left hand, and gripped a 12-gauge pump-action shotgun in his right. At his feet sat a golden Labrador retriever strapped into a custom canine life vest. If he'd had a cigar, the caricature would be complete.
 
-Qian Shuixie hadn't originally been in the Special Recon Team—Xue Ziliang had recruited him. Qian Shuixie's specialty was driving heavy trucks for long-haul transport. After D-Day, he hadn't been assigned any proper job and had drifted around—here driving, there operating boats. The Personnel Office considered it a waste for such a talent to continue being a driver in the new world and had been looking for somewhere he could contribute more.
+Qian Shuixie was a former long-haul trucker recruited into the Special Recon Team by Xue Ziliang. He was a gun nut, a veteran of IPSC and IDPA shooting competitions in the old world. He had drifted after D-Day until the "North American Gang"—Xue Ziliang and Bei Wei—recognized his talent.
 
-Because of his gun hobby, Xue Ziliang had good relationships with the North American group—almost everyone in the North American contingent loved guns. At Xue Ziliang's suggestion, Qian Shuixie decided to join the Special Recon Team.
+Qian Shuixie had blazed through the twelve-week basic training in eight. His physical endurance, honed by years of trucking, was exceptional, and his familiarity with firearms was second nature. Bei Wei was impressed; the Americans really did have a culture of violence that no other nation could match.
 
-Bei Wei welcomed this new combat asset—there was no shortage of transmigrators willing to be officers, but very few wanted to join the Special Recon Team. Nobody was stupid; the Special Recon Team's training was beyond what ordinary military units required. Most people didn't see it as worth the suffering.
+His appointment as Detachment Commander had caused a minor political stir. The Special Recon Team was already becoming known as the private army of the "North American Gang." With Chen Sigen and Xue Ziliang (both Chinese-Americans) leading other detachments, Qian Shuixie's promotion meant three out of four commanders were effectively "American-aligned."
 
-Qian Shuixie didn't mind. He had nothing better to do anyway. Being an ordinary citizen meant he'd come to this new world for nothing! Standing out was the only way to gain greater benefits later!
+But Qian Shuixie didn't care about politics. He wanted action.
 
-Confident in his physical fitness and experience in outdoor activities and shooting competitions—particularly PPC (Police Pistol Competition) and IDPA (International Defense Pistol Association)—he formally joined the Special Recon Team at Xue Ziliang's urging.
+"All hands check equipment!" Qian bellowed. "Life vests on!"
 
-Qian Shuixie passed the basic training program normally requiring twelve weeks in just eight. Many items took only a few days. This impressed Bei Wei. No wonder America was so arrogant—no other country could match the American people's mastery of weapons and machinery.
+The soldiers strapped on their kapok-filled vests.
 
-Of course, twelve weeks of training was far from enough. The subsequent advanced training wasn't so easy. Relying on his good physical condition and years of endurance from long-haul trucking, Qian Shuixie persevered through the training courses. Before Project Giant commenced, he was appointed detachment commander of the Sanya Detachment.
+"Protect your weapons!"
 
-Bei Wei had deliberated at length. The other detachment commanders—particularly Chen Sigen and Xue Ziliang—had other considerations. Xue Ziliang was a valuable instructor; Chen Sigen was needed in too many places within the transmigrator collective, and he was also "Director of the Health Department's Nutrition and Fitness Office." He shouldn't be deployed too far away.
+Qian reached into a pouch, pulled out a condom, and unrolled it over the muzzle of his shotgun. Around him, his men did the same. It was the cheapest, most effective waterproofing available.
 
-As for Ye Mengyan, Bei Wei really didn't feel comfortable sending this young man out alone to take charge—heaven knew what he might do.
+"Slow down! Lookouts, eyes open!" shouted Meng De, the captain of the landing craft. He had taken the helm himself; the entrance to Dadonghai was littered with submerged reefs.
 
-In comparison, Qian Shuixie was the best choice. The only issue was that he was married—family couldn't accompany the troops for the first few months after landing, so two-location separation wasn't ideal. To be prudent, Bei Wei specifically consulted him.
+He checked his watch. 05:50. T-Minus ten minutes.
 
-"No problem. I'm a soldier now, and a soldier's duty is to obey orders." Qian Shuixie responded without hesitation.
+"Rowboat at 3 o'clock!" the lookout shouted.
 
-"Your wife—"
+"Battle stations!" Meng De ordered instinctively. The starboard machine gun swiveled.
 
-"It's fine. She's found an outside posting too, and I can't go with her anyway."
+"Yellow flag! I see a yellow flag!"
 
-Qian Shuixie's wife, Zheng Shangjie, had been officially transferred to the Guangzhou Station as a commercial representative. In America, she'd done countless forms of agency work: airline tickets, cosmetics, health products, insurance, travel companies, knockoff phones, and so on. She was skilled at marketing and promotion. Going to Guangzhou Station was a perfect professional fit.
+"Stand down." Meng De exhaled. It was the pilot boat.
 
-"You're pretty relaxed about letting your wife work in enemy-occupied territory."
+Shi Jinxi, a corporal from the Yulin marine detachment, stood in the bow of the rowboat, waving the yellow signal flag. A former fisherman, he had spent months sounding every inch of this bay, mapping every rock and current while pretending to fish.
 
-"It's fine. She's very capable." Qian Shuixie chuckled. "By the way, when will the Special Recon Team's maid subsidy be distributed..."
+Guided by the pilot boat, the vanguard formation slipped into the bay. The channel was already marked with red-flagged buoys.
 
-The appointment of someone who'd only recently joined the Special Recon Team—and a North American faction member at that—as detachment commander raised objections from certain highly vigilant nationalist elements. Some pointed out that the American flavor in the Special Recon Team was too strong. Not counting Qian Shuixie, two of the current three detachment commanders—Chen Sigen and Xue Ziliang—were Chinese Americans. Add Qian Shuixie, and three of the four detachments would be in "American" hands!
+Inside the bay, preparations were complete. Bai Guoshi and his team had been working for a week, laying out anchorages with buoys that doubled as gas lamps for night operations. On shore, the landing zones were cleared. A reinforced concrete cistern had been built, and latrine pits dug.
 
-Nevertheless, Qian Shuixie's appointment went through—reportedly with strong support from Director Wen.
-
-The fifteen men under Qian Shuixie's command were all handpicked native reconnaissance soldiers. Not only were their combat skills superb, but their loyalty was also absolutely guaranteed.
-
-The Special Recon Team had no real combat missions at Yulin. The Landing Command had assigned them the task of establishing remote perimeter security around Yulin Harbor, intercepting and providing early warning of any land-based personnel approaching the Yulin area. The mission itself was simple: Yulin in ancient times was almost completely isolated. Apart from inland Li tribespeople and herb gatherers or hunters, hardly anyone traveled overland to Yulin. Rather than calling it combat, it was really more like subtropical wilderness adaptation training.
-
-As for Qian Shuixie himself, he would directly command a small team escorting a mining survey group to Tiandu.
-
-"All hands check equipment!" Qian Shuixie shouted. "Put on life vests!"
-
-Everyone retrieved kapok-filled life vests made in Lingao, quickly putting them on and securing them.
-
-"All units!" The NCOs checked each soldier's equipment, shouting reports one after another.
-
-The landing craft picked up speed; spray began splashing in.
-
-"Protect your weapons!" Qian Shuixie quickly fitted a condom over his submachine gun's muzzle.
-
-"Slow down! Lookouts observe!" commanded the landing craft's captain. Meng De himself was at the helm—there were quite a few submerged reefs at Dadonghai's entrance, and he didn't feel comfortable letting inexperienced native naval cadets navigate.
-
-Meng De checked his watch. It was ten minutes to five. T-Hour was 6:00 sharp. According to the landing plan, at T-minus-one-hour, Yulin Stockade would dispatch a pilot boat to meet the landing advance party. But so far, no small boat had appeared on the horizon. Meng De was getting anxious. The Type 67 had a radio, but he didn't know Yulin Stockade's call frequency.
-
-"Rowboat approaching at 3 o'clock!" the lookout called out.
-
-"Sound the alarm! All hands to battle stations!" Meng De issued the order per protocol. As the whistle's alarm sounded, the starboard machine gun trained on the 3 o'clock position.
-
-"There's a flag on the boat," the lookout continued reporting. "A yellow flag."
-
-"Stand down!" This was Yulin Stockade's pilot boat. The yellow flag was the day's recognition signal.
-
-Leading the boat was Shi Jinxi, a corporal from the marine detachment stationed at Yulin Stockade. Originally a fisherman, during his time at Yulin he'd taken a boat out fishing and gathering seaweed, not only enriching the food supply but also mapping out all the reefs, shoals, shallows, and tidal currents throughout Dadonghai. It was under his guidance that the survey team had charted the entire Dadonghai area.
-
-Now, on Wang Tao's orders, he had come to guide the first landing fleet into Dadonghai.
-
-The first landing formation followed the rowboat into Dadonghai Bay. The chain of reefs at Dadonghai had already been marked with buoys. The sea conditions here weren't complicated; with a bit of care, mistakes could be avoided.
-
-Meanwhile, at Yulin Stockade, everyone was busy preparing to receive the first fleet. Starting a week earlier, the marines had been marking the channel with buoys in the bay under Bai Guoshi's direction, delineating anchorage areas. An entire shipload of buoys had been transported from Lingao a month in advance for this purpose. Each buoy had a 6-meter flagpole for identification. Since the transmigrators couldn't yet produce brightly colored paints, they used locally dyed red flags as markers.
-
-To enable correct identification of channels, landing zones, and anchorages at night, some were lighted buoys equipped with gas lamps. The base of each was a small gas generator; one fuel charge could provide six hours of operation.
-
-With assistance from Lingao Construction Company's advance personnel, Yulin Stockade had completed other preparations as well, including expanding the water channel and building a reinforced concrete cistern as a freshwater supply station. Public latrine septing tanks had also been dug. Once the first batch of laborers landed, they would only need to assemble the prefabricated components shipped in; the facilities could be completed and operational within an hour.
+The stage was set. The invasion of Yulin had begun.
 
 (End of Chapter)

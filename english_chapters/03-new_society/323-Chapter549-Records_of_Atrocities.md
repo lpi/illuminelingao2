@@ -1,84 +1,84 @@
 # Chapter 549 - Records of Atrocities
 
-The History Group spent four or five days collecting materials and quickly compiled the first volume of *Records of Atrocities by the Usurper Ming*. Historical materials of the Ming Dynasty were vast as the ocean; naturally, the History Group couldn't check them one by one, so they excerpted and compiled well-known historical events. The only difficulty was how to add "embellishments": handling distinct historical viewpoints was normal, but forging historical materials wasn't so easy.
+The History Group spent four or five days collating materials before quickly producing the inaugural volume of *Records of Atrocities by the Usurper Ming*. As the historical records of the Ming Dynasty were as vast as the ocean, it was impossible to review them exhaustively; instead, the group compiled excerpts of well-known historical events. The only challenge lay in "embellishments": while interpreting history from a unique perspective was standard practice, fabricating historical materials required more finesse.
 
-So they adopted the method of utilizing unofficial histories ("wild history") as much as possible. Compared to official histories, wild histories contained more details not recorded in official records and had more plots that the masses loved to hear.
+They adopted the strategy of utilizing unofficial histories—"wild history"—wherever possible. Compared to official records, wild histories contained vivid details omitted by court historians and plots that resonated more strongly with the masses.
 
-Only sixty copies of the first volume were printed for internal distribution. The Great Library gave forty copies to the General Political Security Bureau, kept ten for its own collection, the Historical Data Group kept two, and the rest were sent to the Executive Committee for review.
+Only sixty copies of the first volume were printed for internal limited distribution. The Great Library allocated forty copies to the General Political Security Bureau, retained ten for its own collection, gave two to the Historical Data Group, and sent the remainder to the Executive Committee for review.
 
-This book immediately attracted everyone's attention. Currently, the transmigrated collective had not yet openly and completely broken with the Great Ming, but that day was not far off. Once the break occurred, camouflage would be thoroughly discarded, and the transmigrated collective would have to find sufficient "rationality" for its actions. Not everyone would be seduced by the ambition of rebelling to become kings and nobles; they would be opposing the Great Ming Dynasty that had existed for nearly three hundred years—the status of the banner of orthodoxy in Chinese hearts was critical.
+This book immediately captured everyone's attention. Currently, the transmigrated collective had not openly broken with the Great Ming, but that day was approaching. Once the rupture occurred, all camouflage would be discarded, and the collective would need a robust "rationality" to justify its actions. Not everyone would be seduced by the ambition of becoming kings and nobles; they would be opposing a dynasty that had stood for nearly three hundred years—the banner of orthodoxy still held immense weight in Chinese hearts.
 
-This book met the needs of this new situation perfectly. Many people called to request additional printing, planning to use it to gradually brainwash their subordinate indigenous cadres. The Executive Committee had to announce that the distribution scope of this book could not be expanded for the time being, and no additional printing was allowed without full argumentation.
+This book met the needs of the moment perfectly. Many departments requested additional copies, planning to use it to gradually brainwash their subordinate indigenous cadres. The Executive Committee had to intervene, announcing that distribution was frozen for the time being, and no additional printing was permitted without full argumentation.
 
-Ding Ding felt great pressure after seeing this book. The idea was actually simple and not hard to implement—just compiling black material. But why hadn't he thought of it? Wu Mu had seized the initiative! The consensus within the transmigrated collective was: Wu Mu of the General Political Security Bureau had a knack for propaganda black materials.
+Ding Ding felt immense pressure after seeing the book. The concept was simple—compiling "black material"—and not difficult to implement. But why hadn't he thought of it first? Wu Mu had seized the initiative! The consensus within the collective was clear: Wu Mu of the General Political Security Bureau had a terrifying knack for propaganda warfare.
 
-So Ding Ding couldn't wait to submit a report to the Executive Committee, requesting that the Literature and Propaganda Department lead a specialized team to compile such works. They would not only continue *Records of Atrocities by the Usurper Ming* but also compile *Records of Atrocities by the Evil Zheng* and *Records of Atrocities by the Eastern Barbarians*, preparing public opinion for future wars with these two forces.
+Ding Ding couldn't wait to submit a report to the Executive Committee, requesting that the Literature and Propaganda Department lead a specialized team to compile such works. They would not only continue the *Records of Atrocities by the Usurper Ming* series but also compile *Records of Atrocities by the Evil Zheng* and *Records of Atrocities by the Eastern Barbarians*, preparing public opinion for future conflicts with these powers.
 
-This later became a convention: whenever the transmigrated collective was about to go to war with someone, a *Records of Atrocities by [X]* would be released—after all, no one in this timeline had access to such massive amounts of data as the Great Library.
+This later became standard operating procedure: whenever the transmigrated collective prepared for war, a specific *Records of Atrocities* would be released. After all, no one in this timeline possessed the massive data advantage of the Great Library.
 
-But the credit for the original idea belonged to Wu Mu. Ding Ding personally visited the General Political Security Bureau and asked Wu Mu to hand over the specific compilation work of *Records of Atrocities by the Usurper Ming* to the Literature and Propaganda Department for overall management. Theoretically, this request wasn't necessary as Wu Mu had only made a suggestion, but Ding Ding decided to be cautious—facing secret police, one couldn't be too cautious.
+But credit for the original concept belonged to Wu Mu. Ding Ding personally visited the General Political Security Bureau to ask Wu Mu to transfer the specific compilation work of *Records of Atrocities by the Usurper Ming* to the Literature and Propaganda Department for centralized management. Theoretically, this request wasn't necessary as Wu Mu had only made a suggestion, but Ding Ding decided to be prudent—when dealing with the secret police, one couldn't be too cautious.
 
-Ding Ding reciprocated by helping Wu Mu compile the experience of using puppet shows for political education into a booklet distribute to all departments—this naturally also highlighted the importance of his Puppet Theater, a "win-win." Thus, Wu Mu suddenly transformed from an obscure clerk-like figure to someone famous throughout the collective.
+Ding Ding reciprocated by helping Wu Mu compile his experience using puppet shows for political education into a booklet for distribution to all departments. This naturally highlighted the importance of his Puppet Theater—a classic "win-win." Thus, Wu Mu transformed from an obscure clerk-like figure into someone famous throughout the collective.
 
-Wei Aiwen was very dissatisfied with this phenomenon and issued a memorandum to the Executive Committee and Ma Jia, reiterating that "political ideological work is the work of the Political Department; other departments should not intervene without authorization, to avoid inconsistent propaganda ideology."
+Wei Aiwen was dissatisfied with this phenomenon. He issued a memorandum to the Executive Committee and Ma Jia, reiterating that "political ideological work is the domain of the Political Department; other departments should not intervene without authorization, to avoid inconsistent propaganda ideology."
 
 Ma Jia forwarded the memorandum to Zhao Manxiong-ski's office.
 
 "Wei Aiwen has objections," Ma Jia said with a smile.
 
-Zhao Manxiong-ski glanced at the header of the memorandum and smiled faintly: "He even forgot the words 'General Staff'."
+Zhao Manxiong-ski glanced at the header and smiled faintly. "He even forgot the words 'General Staff'."
 
-Ma Jia hadn't noticed earlier, but looking closely, the header read "General Political Department." Not only had he forgotten "General Staff," but he had also altered his own department's header without authorization. His department's full official name was clearly "Political Department of the General Staff."
+Ma Jia hadn't noticed earlier, but looking closely, the header read "General Political Department." Not only had he forgotten "General Staff," but he had also altered his own department's letterhead without authorization. His department's full official name was clearly "Political Department of the General Staff."
 
 "He even called to complain," Ma Jia said. "Of course, I fully support you."
 
-"It doesn't matter," Zhao Manxiong said. "Wu Mu's work is only aimed at the staff of the General Political Security Bureau—they have certain particularities, after all."
+"It doesn't matter," Zhao Manxiong said. "Wu Mu's work is targeted solely at the staff of the General Political Security Bureau—they have certain particularities, after all."
 
-The implication was that the General Political Security Bureau would not interfere in other departments in this field.
+The implication was that the General Political Security Bureau would not interfere with other departments in this field.
 
 "I'll explain it to him."
 
 "I'll file this memorandum; I won't return it to you."
 
-"Of course." Ma Jia didn't know why he specifically mentioned this. "The copy was intended for the General Political Security Bureau anyway."
+"Of course." Ma Jia didn't know why Zhao specifically mentioned this. "The copy was intended for the General Political Security Bureau anyway."
 
-"Also, I hope you'll sign this commendation order." Zhao Manxiong-ski took out an official document. Ma Jia looked at it; it was a bureau-wide commendation for Wu Mu. He signed it without a word.
+"Also, I hope you'll sign this commendation order." Zhao Manxiong-ski produced an official document. Ma Jia looked at it; it was a bureau-wide commendation for Wu Mu. He signed it without a word.
 
 "Only a bureau-wide commendation? His current reputation could justify applying for a Chairman's Commendation."
 
-"His work is far from enough. Besides, too much fame is meaningless for him and our department."
+"His work is far from enough. Besides, fame is meaningless for him and our department."
 
-Zhao Manxiong then summoned Wu Mu. Wu Mu, the Director of the General Political Security Bureau's General Office, was currently stationed at the Fangcaodi Education Park, directly in charge of the cadet squads.
+Zhao Manxiong then summoned Wu Mu. Wu Mu, nominally the Director of the General Political Security Bureau's General Office, was currently stationed at the Fangcaodi Education Park, directly overseeing the cadet squads.
 
-Zhao Manxiong first expressed appreciation for Wu Mu's work, then gave him the bureau-wide commendation order, apologizing that currently such a commendation was just a piece of paper without specific rewards, which would have to wait until conditions improved.
+Zhao Manxiong first expressed appreciation for Wu Mu's work, then presented him with the bureau-wide commendation order, apologizing that currently such a commendation was merely a piece of paper without material rewards, which would have to wait until economic conditions improved.
 
-Then he gave instructions regarding the work report Wu Mu had submitted:
+Then he gave instructions regarding the work report Wu Mu had submitted.
 
-"There is one issue I hope you pay more attention to," Zhao Manxiong said. "In political studies, never let the cadets perceive system problems."
+"There is one issue I hope you pay more attention to," Zhao Manxiong said. "In political studies, never let the cadets perceive systemic problems."
 
-"This, I don't understand—" Wu Mu didn't know what this meant.
+"This, I don't understand—" Wu Mu was confused.
 
-"The Great Ming has system problems; won't the future Transmigrator Empire have system problems too?" Zhao Manxiong-ski snorted. "We just need to tell the cadets: 'Great Ming is bad, Transmigrated Collective is good.' That's enough."
+"The Great Ming has system problems; won't the future Empire have system problems too?" Zhao Manxiong-ski snorted. "We just need to tell the cadets: 'Great Ming is bad, Transmigrated Collective is good.' That's enough."
 
 "Yes, I understand!" Wu Mu said. "From now on, it's 'Tartars are bad, Transmigrated Collective is good'."
 
-"Correct." Zhao Manxiong nodded. At the end of the conversation, Zhao Manxiong reminded him: "People doing secret work had best not be famous."
+"Correct." Zhao Manxiong nodded. At the end of the conversation, he added a warning: "People doing secret work had best not be famous."
 
-These words pulled Wu Mu, who had been floating on air with recent success, back to reality. His joy diminished by half.
+These words pulled Wu Mu, who had been floating on air with recent success, back to reality. His joy was instantly halved.
 
 "I will definitely pay attention in the future."
 
-After Wu Mu left, Zhao Manxiong opened a locally made reinforced concrete safe in his office and took out a file—labeled "Wei Aiwen." He placed the memorandum Ma Jia brought inside.
+After Wu Mu left, Zhao Manxiong opened a locally made reinforced concrete safe in his office and retrieved a file labeled "Wei Aiwen." He placed the memorandum Ma Jia had brought him inside.
 
-Wu Mu returned to his temporary office in Fangcaodi and saw the latest batch of cadet reflections on his desk. He checked; it was from the girls' squad. Disinterested in others, Wu Mu dug out Yang Cao's directly.
+Wu Mu returned to his temporary office in Fangcaodi and saw the latest batch of cadet reflections on his desk. He checked; it was from the girls' squad. Disinterested in the others, Wu Mu dug out Yang Cao's file directly.
 
-Yang Cao's handwriting was relatively beautiful among the cadets—clearly not the result of literacy education in Lingao. He remembered Yang Cao stating in her self-confession that she had learned some culture in the opera troupe.
+Yang Cao's handwriting was relatively beautiful among the cadets—clearly not the result of basic literacy education in Lingao. He remembered Yang Cao stating in her self-confession that she had learned some culture in the opera troupe.
 
-The entire text was in vernacular Chinese, fairly smooth. Though it contained many typos and awkward sentences, the general meaning was clear.
+The text was written in vernacular Chinese and was fairly smooth. Though it contained many typos and awkward sentences, the general meaning was clear.
 
-Wu Mu was somewhat disappointed. Her reflection was just a rehash of the materials confessed in her file. From beginning to end, it exuded a cold detachment. There were no tear stains on the paper, nor any chaotic strokes caused by emotional agitation. This woman was truly calm enough—but the calmer she was, the more suspicious. Wu Mu couldn't imagine a woman with such a tragic past remaining calm under the "accusation" atmosphere he had fully cultivated.
+Wu Mu was somewhat disappointed. Her reflection was just a rehash of the materials confessed in her file. From beginning to end, it exuded a cold detachment. There were no tear stains on the paper, nor any chaotic strokes caused by emotional agitation. This woman was calm—too calm. The calmer she was, the more suspicious. Wu Mu couldn't imagine a woman with such a tragic past remaining so composed under the "accusation" atmosphere he had carefully cultivated.
 
-Wu Mu thought for a moment and had He Chun call her in.
+Wu Mu thought for a moment and had He Chun summon her.
 
 "This is your reflection."
 
@@ -86,15 +86,15 @@ Wu Mu thought for a moment and had He Chun call her in.
 
 "Did you feel nothing after watching that play?"
 
-"I wrote it all in the reflection," Yang Cao said.
+"I wrote it all in the reflection," Yang Cao said flatness.
 
-Wu Mu couldn't think of anything else to ask and was momentarily speechless. He felt this woman's heart was hard as iron and unfathomable, thinking she absolutely could not remain in the cadet squad.
+Wu Mu couldn't think of anything else to ask and was momentarily speechless. He felt this woman's heart was hard as iron and unfathomable, reinforcing his belief that she absolutely could not remain in the cadet squad.
 
-"Chief, isn't it that you just want to see this servant cry bitterly and recount every tragic event of my life?" A strange smile appeared on Yang Cao's face. "Would you be at ease with this servant then?"
+"Chief, isn't it simply that you want to see this servant cry bitterly and recount every tragic event of my life?" A strange smile appeared on Yang Cao's face. "Would you be at ease with this servant then?"
 
-Wu Mu was startled; the remark hit the mark. In the past, he held an intellectual superiority over the indigenous cadets, especially during political studies, feeling he had them in the palm of his hand.
+Wu Mu was startled; the remark struck home. In the past, he held an intellectual superiority over the indigenous cadets, especially during political studies, feeling he had them in the palm of his hand.
 
-Yang Cao suddenly shattered his self-superiority. This embarrassed him greatly, and he subconsciously denied it:
+Yang Cao suddenly shattered his superiority. This embarrassed him greatly, and he subconsciously denied it.
 
 "We know all about your past."
 
@@ -108,14 +108,12 @@ Yang Cao didn't strip completely at once; she removed her top, leaving only her 
 
 "This is this servant's past." Yang Cao pointed to her bare shoulders, arms, and half-exposed chest. They were covered in old scars; though faded, they were clearly visible upon close inspection.
 
-"Chief, these were left by the troupe leader, and clients—" Yang Cao spoke in a tone as if unrelated to herself. "When not singing, this servant had to take clients to make money for the leader." She pointed to over a dozen old burn scars on her half-exposed chest. "This is the result of a client spending ten taels of silver."
+"Chief, these were left by the troupe leader, and clients—" Yang Cao spoke in a tone as if discussing a stranger. "When not singing, this servant had to take clients to make money for the leader." She pointed to over a dozen old burn scars on her chest. "This is the result of a client spending ten taels of silver."
 
-Wu Mu had never seen such a shocking scene—he was, after all, a young man in his early twenties, completely stunned.
+Wu Mu had never seen such a shocking sight—he was, after all, a young man in his early twenties. He was stunned into silence.
 
 "Actually, there are other places. If the Chief wants to see, this servant will strip completely—"
 
 "No need!" Wu Mu hurriedly waved his hand. "Put your clothes on!"
 
-Yang Cao put on her clothes. "Are you reassured now? This servant was saved by the Chiefs from the eighteenth level of hell. This servant will never dare forget the Chiefs' grace."
-
-(End of Chapter)
+Yang Cao dressed slowly. "Are you reassured now? This servant was saved by the Chiefs from the eighteenth level of hell. This servant will never dare forget the Chiefs' grace."

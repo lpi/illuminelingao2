@@ -1,6 +1,6 @@
 # Chapter 515 - The Small Steam Engine
 
-Li Di's contraband—the American-made small steam engine—was successfully replicated under the assault of Jiang Ye and the Machinery Works crew. Many of the specialized components were handcrafted by the two fitters Sun Li and Xiao Gui. This steam engine's boiler was unusually compact and ingeniously designed in many respects, giving the two craftsmen quite the headache.
+Li Di's contraband—the American-made small steam engine—was successfully replicated under the combined assault of Jiang Ye and the Machinery Works crew. Many of the specialized components were handcrafted by the two fitters Sun Li and Xiao Gui. The boiler's unusually compact and ingenious design gave them quite the headache.
 
 The result was thirty percent larger in dimensions and twenty-five percent lower in power output. Overall, it would do.
 
@@ -36,6 +36,8 @@ Zhan Wuya planned to convert four transport boats into tugs. Each tug would haul
 
 Wang Luobin smiled. Grand sentiment, sure—but things were obviously not that simple.
 
+---
+
 Landing three thousand people on a desolate beach was an operation even larger than D-Day. And they had to launch construction simultaneously in three directions, requiring correspondingly greater stockpiles of supplies.
 
 Lingao's entire productive capacity was running at full throttle, churning out the materials needed for the Yulinbao landing. Work uniforms alone required nine thousand sets. Mo Xiao'an had originally planned to produce six thousand—by his reckoning, one set on each worker plus two spares would suffice. But when he submitted the production plan, Ma Qianzhu told him the figure was insufficient.
@@ -68,7 +70,7 @@ Li Chiqi's Vehicle Works was swamped. They had to manufacture three different ty
 
 Producing all three at once kept Li Chiqi and Jiang Muzhi running like headless chickens. Fortunately, the Bao Lei family, recruited from Foshan, had stepped up as indigenous technical pillars.
 
-The moment the Bao family left the quarantine camp, they were entrusted with critical duties: Bao Lei became the lead craftsman of the wheel-manufacturing team. Having risen from "looking like beggars" to having food, clothing, and shelter, the Bao father and sons were overwhelmingly grateful to the "Australian bosses" and threw themselves into their work. Before long, they had fabricated wheels of various diameters to Vehicle Works specifications.
+The moment the Bao family left the quarantine camp, they were entrusted with critical duties: Bao Lei became the lead craftsman of the wheel-manufacturing team. Having risen from "looking like beggars" to having food, clothing, and shelter, the father and sons were overwhelmingly grateful to the "Australian bosses" and threw themselves into their work. Before long, they had fabricated wheels of various diameters to Vehicle Works specifications.
 
 After watching their craftsmanship, Jiang Muzhi judged the products to be quite good—apart from a shaky grasp of tolerance, quality was nearly flawless. The only drawback was their slow production speed.
 
@@ -84,7 +86,7 @@ Now, this worker had assembled over twenty carts in under half an hour. Each was
 
 Finally, when he saw the roller bearings on the wheelbarrow axles, Bao Lei knew he would never in his life be able to imitate the Purple Lightning Kai—not even the crudest knockoff. Perhaps the Ming had skilled craftsmen capable of turning iron into tiny spheres and fitting them into round housings, but he would never be able to procure such housings in quantity for installation on wheelbarrows. If he tried, the price of his imitations would be beyond anyone's means.
 
-From that point on, Bao Lei became utterly devoted to the Australians. He worked with all his heart, no longer hoarding his skills. He became far more enthusiastic about mentoring apprentices—he knew his own craftsmanship was nothing compared to theirs.
+From that point on, Bao Lei became utterly devoted to the Australians. He worked with all his heart, no longer hoarding his skills. He grew far more enthusiastic about mentoring apprentices—he understood now that his own craftsmanship was nothing compared to theirs.
 
 When the Machinery Works consulted its archives and fabricated several purpose-built wheel-making machines for the Vehicle Works, Bao Lei was terrified by these mighty devices that could shape hardwood as though kneading dough. He understood perfectly well that such machinery could completely replace his skills—and do the job better.
 

@@ -1,83 +1,87 @@
 # Chapter 539 - Chang Shide and Dugu Qiuhun
 
-Originally, the charges prepared against Chang Shide were severe. Shan Liang and others argued that Chang Shide's conduct amounted to "embezzlement of public funds." But this proposal was voted down at the Senate Standing Committee session. The majority—including Executive Committee members—disagreed with that characterization. A faction, represented by Ji Tuisi, held that Chang Shide's conduct was not even illegal. When the Executive Committee had dispatched him to Leizhou, it placed no restrictions on how funds were to be used. Under that premise, so long as he completed his mission, how he spent public money was his own affair. At most, one could say the Executive Committee's authorization was faulty.
+The charges originally prepared against Chang Shide were severe. Shan Liang and his cohort had pushed for "embezzlement of public funds," but the Senate Standing Committee—and the Executive Committee majority—rejected it.
 
-Some even questioned whether Shan Liang and company's motives were driven by "jealousy." Chang Shide and his colleagues in Leizhou had risked life and limb, seized Leizhou's sugar resources, opened trade with Vietnam, secured a stable revenue and grain source for the transmigrated collective, and located the Hongji coal deposits. Given such achievements, spending a few dozen taels of public money to buy a few women for his own enjoyment was hardly excessive. Fixating on this issue would only dishearten overseas personnel.
+A faction led by Ji Tuisi argued that Chang Shide's conduct wasn't even illegal. When the Executive Committee dispatched him to Leizhou, they had placed no restrictions on fund usage. The mission was results-oriented: as long as he succeeded, how he spent the money was his discretion. At worst, the fault lay with the Executive Committee's loose authorization, not Chang Shide's spending.
 
-Shan Liang and his allies insisted on "separating merit from fault—rewarding achievement and punishing error"—and on "nipping corruption in the bud." Yet at several Standing Committee meetings, fewer and fewer rallied to his side; some even proposed dropping the inquiry into Chang Shide altogether. The new Executive Committee also showed obvious disinterest. Left with no choice, Shan Liang ultimately submitted a motion to question Chang Shide on "misappropriation of funds."
+Some even suggested that Shan Liang's crusade was driven by jealousy. The Leizhou team had risked their lives, seized the sugar market, opened trade with Vietnam, secured a food lifeline, and discovered the Hongji coal deposits. Given these monumental achievements, spending a few dozen taels of silver on women for personal enjoyment seemed trivial. Fixating on it, they argued, would only demoralize frontline personnel.
 
-Ji Xin thought: given the current state of affairs, Chang Shide's acquittal was inevitable. Setting everything else aside, the amount in question was absurdly low—a mere ten taels of silver. Even under Great Ming law, that would not qualify as a crime.
+Shan Liang insisted on "separating merit from fault," demanding corruption be nipped in the bud. But as the hearings approached, his support evaporated. The new Executive Committee showed zero interest in prosecuting a hero. Left with no choice, Shan Liang downgraded the charge to "misappropriation of funds."
 
-Before the hearing, Ji Xin, following Ma Jia's instructions, had circulated background materials on the Chang Shide case to the Senators serving as jurors. The materials covered the Leizhou Station's operating conditions, personnel files on the five slave girls, and their current work assignments. Circulating background materials was proper procedure—but the thorough data and ample facts demonstrating the Leizhou Station's immense contributions could not fail to leave a deep impression on the Senators.
+Ji Xin knew acquittal was inevitable. The sum in question—a mere ten taels—was absurdly low. Even under Ming law, it wouldn't qualify as a crime.
 
-Everyone understood that merit and fault could not simply cancel each other out. Great achievements did not erase minor faults. Yet, seeing such enormous accomplishments, the Senators would naturally realize that Chang Shide had not gained all this without effort.
+Before the hearing, following Ma Jia’s instructions, Ji Xin circulated background dossiers to the juror Senators. These files detailed the Leizhou Station's brutal operating conditions and the current work assignments of the five slave girls. It was standard procedure, but the subtext was clear: *Look at what they achieved. Look at what they endured.*
 
-Sure enough, when Mu Quan read out the bill of inquiry, some Senators already looked impatient. When he reached "…willfully misappropriating public funds totaling a staggering ten taels of silver," someone actually laughed out loud.
+Merit didn't erase fault, but it certainly provided context.
 
-After the reading concluded, Ma Jia asked whether Chang Shide had anything to say.
+When Mu Quan read the bill of inquiry, stating "...willfully misappropriating public funds totaling a staggering ten taels of silver," laughter rippled through the room.
 
-Chang Shide rose calmly. "I wish to make a statement."
+"Does the accused have anything to say?" Ma Jia asked.
 
-"Permission granted." Ma Jia tapped his gavel.
+Chang Shide rose, calm and collected. "I wish to make a statement."
 
-Chang Shide's statement was simple. First, he admitted that purchasing the women did include an element of personal gratification. But the women did not serve him alone. After purchase, these five women also handled a great deal of the Leizhou Station's daily housekeeping—work that would have required personnel anyway. In other words, the women were necessary assets for the Leizhou Station; his extraction of sexual services was merely incidental "added value."
+"Permission granted."
 
-"These slave girls primarily serve the transmigrated collective; serving me personally is secondary." Chang Shide enumerated A'Xiu and the others' outstanding performance at the Leizhou Station. "At our most critical hour, when several thousand rioters outside could have burst in at any moment to smash the machinery, burn down the sugar refinery, and chop us all to pieces—when indigenous employees inside the refinery were wavering and many wanted to flee—only these slave girls displayed the most unwavering resolve, vowing to follow the transmigrated collective in life and death. Why was that? Has no one considered?"
+Chang Shide didn't dodge. He admitted that purchasing the women included personal gratification. But he argued that the women were essential station assets. They handled housekeeping, logistics, and daily operations—work that required personnel regardless. His use of them was merely "value-added."
 
-The Senators' faces showed incomprehension. Chang Shide raised his voice by eight degrees: "Precisely because I had bedded—er, taken them in!"
+"These women primarily serve the collective; serving me is secondary," Chang Shide said. He listed their contributions, then played his ace. "During our darkest hour, when thousands of rioters threatened to burn us alive and chop us into meat paste, when even our paid indigenous staff wavered... these five women stood firm. They vowed to live and die with the station. Why? Has anyone considered that?"
 
-The audience burst into laughter.
+The Senators looked blank.
 
-Chang Shide continued solemnly: "The facts prove that trust built on physical relations is the most solid of all master-servant relationships in this timeline. Slave girls regard being taken in by their master as the greatest expression of trust and favor; thereafter, they follow their master with all their heart. Perhaps this point has escaped everyone's consideration, but we should adapt to local customs and find a path toward harmony between the indigenous population and transmigrators."
+Chang Shide raised his voice. "Precisely because I had bedded—er, taken them in!"
 
-One Senator shouted: "So you also opened the chrysanthemum of the Wen brothers? The materials say they're also unswerving loyal!" The room roared again with laughter.
+The room erupted in laughter.
 
-Chang Shide did not bat an eye. "I have no such predilection. If any of you do, feel free to try it."
+"Trust built on physical intimacy is the strongest bond in this timeline," Chang Shide continued with a straight face. "Slave girls regard being 'taken in' by their master as the ultimate favor. It buys absolute loyalty. We must adapt to local customs to survive."
 
-Ma Jia had to remind everyone: questions must be preceded by raising one's hand; no shouting out.
+"So you also opened the chrysanthemums of the Wen brothers?" a Senator shouted. "The files say they're loyal too!"
 
-Chang Shide then rambled on at length, some of it bordering on absurdity, sending the Senators into repeated fits of laughter. The atmosphere grew quite jovial. Shan Liang was secretly anxious: with this combination of crooked logic and showmanship, Chang Shide was winning over all the goodwill. But Ma Jia's rules forbade interrupting a speaker, so he could only fret in silence.
+The room roared.
 
-Finally, Chang Shide declared: since everyone felt his use of slave girls smacked of misusing public property, he was willing to personally purchase all the girls he had taken in. "After purchase, these slave girls will continue to serve the transmigrated collective's great cause at the Leizhou Station, not merely provide service to me personally—though, of course, certain services can only be provided to me; I regret they cannot serve the public." The Senators laughed again.
+"I have no such predilection," Chang Shide deadpanned. "But you're welcome to try."
 
-"This, too, is a small contribution to the transmigrated collective. I have finished. Thank you all." Chang Shide returned to his seat.
+Ma Jia banged his gavel. "Order! Questions must be recognized!"
 
-Though Shan Liang and others subsequently challenged and refuted his statement, insisting that no amount of merit could shield lawbreaking and demanding severe punishment, Chang Shide offered no further defense. Having amply demonstrated his verbal prowess, he humbly declared that he would unconditionally accept the Senators' verdict and would not defend himself further.
+Chang Shide continued his performance, mixing absurdity with logic, charming the room completely. Shan Liang fumed in silence. The man was turning a corruption trial into a stand-up comedy routine.
 
-Ji Xin watched with mounting amazement. This rough-looking fellow Chang Shide had more twists and turns in his belly than anyone guessed. The procedural maneuvers Ji Xin had prepared proved unnecessary.
+Finally, Chang Shide made his closing offer. Since his use of the women was controversial, he offered to purchase them personally.
 
-Ma Jia, seeing that both sides had finished, called for a vote on whether Chang Shide was guilty of misappropriating funds.
+"They will continue to serve the station, but I will reimburse the collective. Of course, certain services can only be provided to me; I regret they cannot serve the public."
 
-The twenty-five Senators cast secret ballots. The vote was opened on the spot: 19 to 6, declaring Chang Shide not guilty. Ma Jia then announced that the charge of misappropriating funds against Chang Shide was not sustained.
+More laughter.
 
-However, his use of public property for private purposes did exist. Therefore, Ma Jia ruled that Chang Shide must, within fifteen days, pay the full purchase price of four slave girls—two taels apiece for a total of eight taels of silver—converted into circulation coupons and deposited into the Treasury account at the Delon Grain House. Ordinarily, he should have paid for five, but because this "maid benefit" applied to Chang Shide as well, one was deducted.
+"This is my small contribution. Thank you." Chang Shide sat down.
 
-Chang Shide declared on the spot that he unconditionally accepted this verdict. Ma Jia then announced the conclusion of Chang Shide's hearing. After a thirty-minute recess, the Dugu Qiuhun case would be heard. Chang Shide thanked everyone present and shook hands with those who had accompanied him and offered congratulations. Ma Jia thought: his bearing and demeanor right now were straight out of a classic scene in some American film.
+The vote was a formality. 19 to 6: Not Guilty.
 
-During the recess, Ji Xin stepped outside and lit a cigarette. He saw Ma Jia also outside the screening room, drinking water.
+Ma Jia announced the verdict: the charge of misappropriation was not sustained. However, acknowledging the private benefit, Chang Shide was ordered to pay the full purchase price of four slave girls—eight taels total—into the Treasury within fifteen days. (One girl was deducted as his standard "maid benefit.")
 
-"That Chang Shide sure can talk! He turned everyone around in one go," Ji Xin said.
+Chang Shide accepted the ruling unconditionally. He shook hands with his entourage, looking every inch the victorious statesman.
 
-Ma Jia smiled mysteriously. "Eloquence certainly matters—but isn't such a positive response a bit over the top?"
+During the recess, Ji Xin stepped outside for a smoke. He found Ma Jia drinking water by a tree.
 
-Ji Xin thought: the outcome was undoubtedly linked to the active lobbying by the Guangzhou and Leizhou Stations. He murmured with some concern: "Though the Chang Shide affair was admittedly a bit of a tempest in a teapot, this influence of interest groups…"
+"That guy can talk," Ji Xin said. "He turned the whole room around."
 
-Ma Jia nodded. "There is indeed such a tendency. But as you know, it's unavoidable." He poured the water from his cup at the foot of a tree. "Only balance is the key."
+Ma Jia smiled forcefully. "Eloquence matters. But didn't the response feel a bit... orchestrated?"
 
-Ji Xin was a bit puzzled about how this "balance" would be achieved, but seeing Ma Jia's confident demeanor—and recalling the tactics he had used in his rise—he supposed the head of the Law-Studies Club had his methods.
+"The lobbying," Ji Xin murmured. "The interest groups are flexing their muscles."
 
-Then came the hearing of the Dugu Qiuhun case. The questioning of Dugu Qiuhun was far less courteous. The charges against him were extremely severe. Initially, he was to be charged with "rebellion," but this proposal met fierce opposition from both the police system and the Army. Many Senators also felt that, although Dugu Qiuhun had committed a serious organizational error, calling him a traitor smacked of trumped-up charges.
+"It's unavoidable," Ma Jia said, pouring the dregs of his water onto the roots of the tree. "The key is balance."
 
-In the end, the charges were: "unauthorized mobilization of armed forces without authorization," "intent to inflict bodily harm on transmigrators," and "intent to destroy public property." The last charge derived from his attempt to seize the Telecom Building.
+Ji Xin wasn't sure how that balance would be held, but Ma Jia seemed confident.
 
-After Ji Xin read out the bill of inquiry, Dugu Qiuhun was given the floor to respond.
+Then came Dugu Qiuhun.
 
-Dugu Qiuhun stated that he had mobilized the police to enter Bairen Fortress "to maintain order and prevent the situation from escalating."
+The atmosphere shifted instantly. The questioning was sharp, the hostility palpable. The initial charge of "rebellion" had been dropped after fierce opposition from the Army and Police, but the remaining charges were serious: "unauthorized mobilization of armed forces," "intent to inflict bodily harm on transmigrators," and "intent to destroy public property" (for the Telecom Building plan).
 
-"In addition to being East Gate Market Precinct Chief, I am also Bairen Fortress Outer-Perimeter Security Commander. I have authority to handle all manner of emergencies inside and outside the Fortress. When there is a protest march in the city, I naturally have both the duty and the right to enter and maintain order—to prevent acts of vandalism, looting, or arson such as occur in other timelines. Therefore, I cannot accept the charge of unauthorized mobilization of armed forces."
+After Ji Xin read the charges, Dugu Qiuhun stood up. He looked haggard but defiant.
 
-Shan Liang then challenged him: "On what basis did you presume the demonstrators would commit vandalism and looting? Isn't that a kind of 'presumption of guilt' on your own authority? Do you have so little faith in transmigrators' political awareness?"
+"I mobilized the police to maintain order," he stated. "To prevent the situation from escalating."
 
-Dugu Qiuhun shot back: "Every protest march in the world requires approval and police escort. What makes you think transmigrators' awareness is higher than everyone else's?"
+"In addition to being Precinct Chief, I am the Outer Perimeter Security Commander. I have the authority to handle emergencies. When there is a protest march, I have the duty to prevent vandalism, looting, and arson. Therefore, I cannot accept the charge of 'unauthorized mobilization.'"
+
+Shan Liang jumped in immediately. "On what basis did you presume the demonstrators would commit vandalism? Isn't that a 'presumption of guilt'? Do you have so little faith in your fellow transmigrators?"
+
+"Every protest in the world requires police containment," Dugu shot back. "What makes you think transmigrators are special?"
 
 (End of Chapter)

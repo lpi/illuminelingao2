@@ -2,29 +2,29 @@
 
 "Dugu Qiuhun's loyalty to the transmigrated collective is reliable. Punishing him like this will dishearten people."
 
-"If we don't punish him like this, the masses will be disheartened." Ma Qianzhu sighed. "Do you think I wish for this? But the cry of the masses is there; we must give an account."
+"If we don't punish him like this, the masses will be disheartened," Ma Qianzhu sighed. "Do you think I wish for this? But the cry of the masses acts as a mandate; we must give an account."
 
-Ma Jia thought: It looks like the Director wants to "execute Ma Su with tears in his eyes."
+Ma Jia thought: *It looks like the Director wants to play the role of Zhuge Liang executing Ma Su with tears in his eyes.*
 
-At this moment, Wen Desi spoke slowly: "Director, I think we shouldn't make Dugu Qiuhun an example to be thoroughly discredited and denounced. He is young, after all! Young people are easily misled; making small mistakes is inevitable. I think we should just give him a month of confinement, and after he comes out, assign him a position in another department to redeem himself by good service."
+At that moment, Wen Desi spoke up, his voice measured. "Director, I don't believe we should make Dugu Qiuhun an example to be utterly disgraced. He is young, after all! Young people are impressionable; making small mistakes is inevitable. I propose we limit his punishment to one month of confinement. Once released, we can assign him a position in another department to redeem himself through service."
 
-Xiao Zishan thought this punishment was too light—it practically lacked sincerity. Wu De, the newly appointed President of the Planning Commission, said, "CEO Wen, your handling suggestion is too light—the masses probably won't agree."
+Xiao Zishan thought this punishment was too light—it lacked sincerity fundamentally. Wu De, the newly appointed President of the Planning Commission, voiced this concern. "CEO Wen, your handling suggestion is too lenient—the masses likely won't accept it."
 
-"The masses definitely won't agree. Protecting Dugu Qiuhun will result in the entire collective losing cohesion."
+"The masses definitely won't accept it. Protecting Dugu Qiuhun will result in the entire collective losing cohesion."
 
-Ma Qianzhu still insisted on punishing Dugu Qiuhun severely. Everyone offered remonstrations. Wen Desi coughed:
+Ma Qianzhu insisted on severe punishment for Dugu Qiuhun. Everyone offered their own remonstrations until Wen Desi coughed to clear the room.
 
-"Did Dugu Qiuhun commit an organizational error or a line error? I think it was primarily an organizational error." The Executive Committee members realized CEO Wen was making a keynote speech.
+"Did Dugu Qiuhun commit an organizational error or a line error? I believe it was primarily an organizational error." The Executive Committee members realized proper CEO Wen was making a keynote speech.
 
-"The nature of his problem is very serious, so the Director's demand for the severest punishment is correct," Wen Desi said. "Of course, his committing such a grave error wasn't accidental; it was the formation of erroneous concepts under a long-term lack of correct guidance—specifically, personality cult. I believe this point should be clarified in the punishment document."
+"The nature of his problem is strictly serious, so the Director's demand for the severest punishment is correct," Wen Desi continued. "Of course, his committing such a grave error wasn't accidental; it was the formation of erroneous concepts under a long-term lack of correct guidance—specifically, the personality cult. I believe this point should be clarified in the punishment document."
 
-The air in the conference room suddenly stagnated. Everyone waited for what Wen Desi would say next, wondering what stance they should take if he said it.
+The air in the conference room suddenly stagnated. Everyone waited for what Wen Desi would say next, calculating what stance they should take when he said it.
 
 "Comrades, regarding personality cults—it's fine to let the indigenous people worship us, preferably treating us as gods, or at least archangels representing god on earth—of course, I know many comrades disagree. But within our collective, blind worship of any individual is extremely harmful. You've all seen the consequences. Dugu Qiuhun is a victim of this erroneous concept," Wen Desi spoke with assurance.
 
-"But we should also see that Dugu Qiuhun's loyalty to the transmigrated collective is primary. In the spirit of 'curing the sickness to save the patient,' we should give him a way out."
+"But we must also recognize that Dugu Qiuhun's loyalty to the transmigrated collective is primary. In the spirit of 'curing the sickness to save the patient,' we should give him a way out."
 
-The Committee members thought: "loyalty to the transmigrated collective" would be more accurately described as "loyalty to the Executive Committee."
+The Committee members thought: *"loyalty to the transmigrated collective" would be more accurately described as "loyalty to the Executive Committee."*
 
 Wen Desi's tone made it clear he wanted to leave Dugu a path, which greatly surprised most Committee members. Only Ma Jia understood—Dugu Qiuhun was ultimately just a chess piece. Now that he had become a discarded piece, "killing" him would have no effect on the game's outcome.
 
@@ -36,31 +36,31 @@ Dismiss Dugu Qiuhun from all posts. Order him to write a profound self-criticism
 
 "There should be a special communiqué regarding the outcome of this matter," Wen Desi said. "Include the points I just mentioned. Does anyone object?"
 
-Everyone expressed no objection. Thus, the plan for handling Dugu Qiuhun was decided.
+No objections were raised. Thus, the plan for handling Dugu Qiuhun was decided.
 
-The Executive Committee decided: Dismiss Dugu Qiuhun from his post as East Gate Market Precinct Chief and transfer him out of Police Headquarters; revoke his concurrent post as Bairen Fortress Outer-Perimeter Security Commander; revoke all other administrative posts and titles he held. Hand him over to Wu Nanhai for one month of "residential surveillance," then turn him over to Ye Yuming to be assigned work in the Tiandihui for "probation," subject to his attitude of reflection.
+The Executive Committee's decision: Dismiss Dugu Qiuhun from his post as East Gate Market Precinct Chief and transfer him out of Police Headquarters; revoke his concurrent post as Bairen Fortress Outer-Perimeter Security Commander; revoke all other administrative posts and titles he held. Hand him over to Wu Nanhai for one month of "residential surveillance," then turn him over to Ye Yuming to be assigned work in the Tiandihui for "probation," subject to his attitude of reflection.
 
-The probation period was one year. During this year, the Political Security Bureau would assign personnel to secretly monitor him. If he passed probation, he would be reassigned work, though he could no longer work in violent organs like the police or military.
+The probation period was set for one year. During this time, the Political Security Bureau would assign personnel to secretly monitor him. If he passed probation, he would be reassigned, though he could no longer serve in violent organs like the police or military.
 
 The decision would be communicated to all transmigrators. To prevent the document from falling into indigenous hands, this decision would only be published on the internal intranet BBS.
 
-Seeing the matter resolved relatively harmoniously, everyone was satisfied—except Dugu Qiuhun. Even Dugu Qiuhun, the biggest victim of the incident, was left a way out; though the punishment was severe, his political future was not wiped out entirely. After the probation period, he could re-emerge to dedicate his loyalty to the Executive Committee.
+Seeing the matter resolved relatively harmoniously, everyone was satisfied—except Dugu Qiuhun. Even Dugu Qiuhun, the biggest victim of the incident, was left a lifeline; though the punishment was severe, his political future was not annihilated. After the probation period, he could re-emerge to dedicate his loyalty to the Executive Committee once more.
 
-Xiao Zishan proposed moving to the next agenda item, but Ma Qianzhu indicated he had more to say:
+Xiao Zishan proposed moving to the next agenda item, but Ma Qianzhu indicated he had more to say.
 
 "Comrades, although this incident exposed deficiencies in our work, there were also shining moments. For instance, that indigenous police sergeant Zheng Ergen, who stood on principle and refused to open the armory—he was excellent! Without his insistence, the matter might have blown up even bigger. We must commend such a model—"
 
 Wen Desi snorted. "Director, you really can find a silver lining in any disaster. Your dialectics are too powerful."
 
-"Shouldn't adherence to principle be commended?" Ma Qianzhu said.
+"Shouldn't adherence to principle be commended?" Ma Qianzhu asked.
 
-"Adhering to principle is naturally a good thing," Wen Desi said. "But this is dirty laundry. Commending him is tantamount to announcing that Dugu Qiuhun did something wrong. We cannot tarnish our own image in front of the indigenous people."
+"Adhering to principle is naturally a good thing," Wen Desi admitted. "But this is dirty laundry. Commending him is tantamount to announcing that Dugu Qiuhun did something wrong. We cannot tarnish our own image in front of the indigenous people."
 
 Ma Qianzhu retorted, "CEO Wen, are you playing the 'Great, Glorious, and Correct' card too?"
 
-"Of course," Wen Desi said indifferent. "If we admit that we too make mistakes, wouldn't that seriously shake the indigenous people's confidence in us? Logically, that group of indigenous police should all be secretly executed…"
+"Of course," Wen Desi said indifferently. "If we admit that we too make mistakes, wouldn't that seriously shake the indigenous people's confidence in us? Logically, that group of indigenous police should all be secretly executed..."
 
-Everyone looked incredulous; some eyes even showed fear. Wen Desi brought the conversation back: "Of course, we are civilized people; we can't do such things. But open commendation won't do. Give them some benefits secretly; as long as they understand in their hearts, it's fine."
+Everyone looked incredulous; some eyes even showed fear. Wen Desi brought the conversation back from the ledge. "Of course, we are civilized people; we can't do such things. But open commendation won't do. Give them some benefits secretly; as long as they understand in their hearts, it's fine."
 
 "After we occupy Sanya, we'll need to set up security organs there. Why not promote him to deputy precinct chief there?" Wu De suggested. "Sending him far away solves it."
 
@@ -80,7 +80,7 @@ As for Reserve Company Commander Li Yayang, to honor his firm stance, he was awa
 
 "People have complaints about cadre appointments," Wu De said. "Everyone feels the current appointments are opaque. That is a fact."
 
-"The fact is that people have complaints about cadre benefits, not who is a cadre," Wen Desi said. "But to fully demonstrate respect for public opinion, we still need to create a very transparent system."
+"The fact is that people have complaints about cadre benefits, not who is a cadre," Wen Desi countered. "But to fully demonstrate respect for public opinion, we still need to create a very transparent system."
 
 According to the *Common Program* stipulated at the Second General Assembly, all cadres below the Executive Committee were appointed and removed by the Executive Committee. Personnel changes for principal leaders of People's Commissions and Ministries required Senate approval. Appointments and removals of cadres below Minister/Commissar level did not require Senate approval.
 
@@ -91,5 +91,3 @@ In the other timeline, the Organization Department was a key department. Everyon
 All Senators—provided they had not been stripped of political rights—were eligible for administrative posts at all levels. For ease of management, Ma Qianzhu's proposal for establishing grades, ranks, and salaries was finally passed—without definitive grades and military ranks, daily operations were inconvenient, especially in the military. Indigenous personnel had ranks, yet transmigrators did not.
 
 To avoid internal conflict caused by rank disparity, the Executive Committee decided to continue the past philosophy in the new system—minimal material difference between grades, adhering to the principle that the salary gap between the highest and lowest levels should not exceed a factor of two.
-
-(End of Chapter)

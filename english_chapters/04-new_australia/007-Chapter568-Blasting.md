@@ -1,101 +1,109 @@
 # Chapter 568 - Blasting
 
-The Sanya development made extensive use of steam engines—not only the transmigrators' Type 2 standard steam engines, Mozi Types 1 and 2, but also the "Suichao Type 1" light machine copied from American small steam engines. These machines were widely employed as prime movers in various applications, greatly saving labor and improving efficiency. Compared to their state on D-Day, the Elders couldn't help but reflect: though overall technological level had declined, the scale of application had multiplied several times.
+The development of Sanya was powered by steam. From the standard "Type 2" to the "Mozi" series, and even the lightweight "Suichao Type 1"—a copy of American small-scale engines—steam power was ubiquitous. It drove piles, hoisted cargo, and pumped water.
 
-One consequence of widespread steam engine use was a surge in coal demand. The Navy soon had to assign three dedicated transport ships for coal delivery.
+But steam engines eat coal.
 
-The best steam coal was naturally Hongji's anthracite, but Hongji coal supplies were intermittent. Lingao mainly supplied inferior lignite and peat from the Nanbao area, mixed with lignite shipped from Guangdong. The Sanya development's coal demand caused Lingao's coal reserves to plummet. Zhan Wuya had to issue a warning: even if they stopped producing fertilizer entirely and redirected all lignite and peat to power and chemical uses, stockpiles would last less than a week.
+Three dedicated colliers shuttled constantly between Lingao and Sanya, yet the stockpiles dwindled. Zhan Wuya, the energy czar, issued a grim warning: even if fertilizer production ceased, Lingao's reserves of lignite and peat would be exhausted in a week.
 
-The bituminous coal laboriously extracted from Jiazi Coal Mine was for coking—not something they were willing to burn. This premium coking coal was an extremely scarce resource in the south.
+They needed anthracite. They needed Hongji.
 
-The Commerce Department issued a notice: all overseas stations should make every effort to accelerate coal imports. Meanwhile, within the collective, calls to develop the Hongji coal mine rose again. People constantly presented memorials to the Planning Council on the importance and significance of developing Hongji. Many in the Yuan Elder Council Standing Committee shared this view. At the State Council meeting, many specialists from the Industry and Energy Committee expressed concern about the coal supply situation and demanded stable, reliable coal supplies.
+The Planning Council turned its eyes south to Vietnam. The Hongji coal mines were a black gold mine waiting to be tapped. But the geopolitical risks were high.
 
-"Developing Hongji is indeed necessary," Wu De said. "But opening another branch base in the short term exceeds our current capabilities. The Hongji coal mine is under greater defensive pressure than Sanya—it would mean armed occupation right under the Northern Court's nose. Without stationing substantial troops and a sufficiently powerful naval detachment, it won't work."
+"Invading Hongji means war with the Northern Trinh," Wu De argued at the State Council. "We cannot open a second front without a major garrison."
 
-"According to reports from Bei Kai and others, isn't Hongji completely deserted? Would the Northern Court really make a big fuss over such a small place?"
+"Is the Northern Court really a threat?" a committee member asked. "Hongji is uninhabited wilderness."
 
-"Hard to say." Yu Eshui had been summoned as a consultant for the meeting. "Everyone should know how Vietnam grew from a Han Dynasty commandery into a small Southeast Asian hegemon." He cleared his throat. "It was: what's yours is mine, and what's mine is still mine. Vietnam's successive rulers spared no effort to encroach on neighboring territory while maintaining extreme vigilance against encroachment. Vietnam is small, and news spreads faster than in the Ming Dynasty. As soon as we build a stockade there, the Northern Court will know before long. And once they know, they'll definitely attack."
+"Don't underestimate Vietnam," warned Yu Eshui, the Southeast Asia expert. "Since the Han Dynasty, they have expanded aggressively. Their maxim is: 'What is yours is mine, and what is mine is mine.' The Trinh and Nguyen lords have been fighting a civil war for decades. Their armies are battle-hardened, equipped with European firearms, and trained by Portuguese and Dutch advisors. They are not savages. If we build a stockade, they *will* attack."
 
-"Could we ally with the Southern Court? If we're going to clash with the Northern Court anyway."
+"What about allying with the South against the North?"
 
-"Of course. The Southern Court would certainly welcome us throwing ourselves into the fire to weaken the Northern Court. The problem is," Yu Eshui said, "what do we actually gain from Southern Court support?"
+"We could," Yu Eshui nodded. "But what do we gain? Vietnamese troops? We don't need them. And we can't secure the mines effectively while fighting a jungle war."
 
-"The Southern Court certainly won't send troops to support our operations, and even if they did, we probably wouldn't want to use them, right?"
+"Peaceful penetration, then," Wu De concluded. "Commerce first. Buy the land, establish a trading post, and mine quietly."
 
-"Monkey troops don't count for shit..." Dongmen Chuiyu had just started commenting when Yu Eshui cut him off:
+The Leizhou Station was tasked with the job. For now, the "voluptuous beauty" of Vietnam would have to be wooed, not seized.
 
-"Don't underestimate the late-Ming Vietnamese civil war armies. They were equipped and trained under Portuguese and Dutch guidance, widely equipped with firearms, quite Europeanized. Definitely not the semi-savage armies of Southeast Asian petty states. And with decades of continuous civil war, their combat effectiveness can't be too bad. Holding our stockade wouldn't be a problem, but to effectively control and mine without committing substantial forces would probably be impossible."
+***
 
-"That leaves only the peaceful approach then," Wu De said. "I suggest we send someone to Vietnam and first use commercial channels to buy land, create an estate, and gradually mine it. If possible, use local agents."
+Pan Da rode his cross-country motorcycle through the Sanya wilderness, a large pack strapped to his back. Inside was professional-grade EOD gear imported from America.
 
-Finally, it was decided that the Leizhou Station would handle this matter specifically—they already had some commercial and trade relations there, plus some social connections. The Leizhou Station's proposal to establish a Vietnam trading company was also approved at the State Council meeting. Vietnam had not just coal but also abundant rice and timber—strategic materials the transmigrator collective desperately needed.
+"It's only good for leaving an intact corpse," his old colleagues used to joke.
 
-Everyone had long coveted Vietnam, but lacking sufficient strength, they couldn't move directly. This frustrating feeling was like having a voluptuous, beautiful woman nearby—occasionally able to take liberties, yet unable to possess her body.
+Pan Da was the Deputy Commander of Construction, specifically in charge of blasting. Zhuo Tianmin knew civil engineering; Pan Da knew how to blow things up.
 
-Pan Da carried a large pack on his back, riding a cross-country motorcycle across the wilderness. Strapped to the rear seat was a complete set of professional-grade bomb disposal gear imported from America. Though he'd paid a hefty price to obtain this equipment, he himself felt its value was limited—Pan Da's old colleagues used to say its only use was to leave yourself an intact corpse.
+His workforce was a patchwork: one-third veteran pioneers from the Expeditionary Battalion, the rest crash-trained laborers. To cover all the sites—road building, obstacle clearing, quarrying—Pan Da had to split his qualified personnel into thin, dangerous slivers.
 
-The Sanya development required extensive blasting work. Though Zhuo Tianmin was construction commander, his background was in civil architecture—he knew virtually nothing about explosives. So Pan Da served as deputy commander, specifically in charge of blasting and military engineering construction.
+He sped from site to site, putting out fires—metaphorically, and sometimes literally. Safety protocols were a suggestion. Just days ago, a transport boat carrying black powder had vaporized in the bay. Six men gone, just like that.
 
-Pan Da's available personnel mainly came from the Sanya Expeditionary Battalion's engineer platoon. This platoon was assembled from the pioneer training company—one-third were veterans with over six months of specialized pioneer training; the rest were recruits who had received crash courses in demolition for a month.
+Black powder was weak and unstable. Pan Da had demanded high explosives. Nitroglycerin (stabilized into dynamite) and Ammonium Nitrate explosives had been shipped in. They were more powerful, but in the humid heat of Sanya, "stable" was a relative term.
 
-Additionally, there were graduates from the demolition training class for laborers—laborers who'd received short-term crash training. But these demolition workers couldn't compare with the pioneers in quality. For safety, Pan Da reorganized personnel after landing into mixed units: a few pioneers paired with demolition workers to form blasting teams. Five teams total were organized—two assigned to Luhuitou Peninsula. Their mission was to blast roads through the mountain, clear vegetation, and prepare a stable platform on the summit for the battery. The blasted rock would serve as building material.
+A radio message crackled in his helmet. "Misfire at Site 0+1400. Tiandu Road."
 
-Considering local building material supply, Zhuo Tianmin and Pan Da had already discussed: besides establishing a local brick-and-tile factory, ideally there should be a quarry too. For this, Bai Guoshi led a team with Special Recon escort to survey nearby. The quarry couldn't be too far—if it was, transportation demands would make it pointless.
+Pan Da cursed. A misfire was a bomb waiting for a victim.
 
-But this would tie up at least one blasting team for quarry operations, leaving only two teams available. Meanwhile, demand for blasting at construction sites kept increasing. The Yulin-Tiandu roadbed project in particular—though the route followed the relatively flat Tiandu River valley, the terrain was still quite complex, with occasional hillocks and boulders requiring clearing.
+He arrived at the site. A small hillock blocked the road alignment.
 
-If cleared by hand, the earthwork was staggering. The Steel Department's hunger for iron ore was something everyone understood. Now that coking coal sources were resolved and stockpiles were growing, they were just waiting to mass-produce steel.
+"What happened?"
 
-With no alternative, Pan Da had to dilute personnel, reducing each team's size and ratio of pioneers, doubling the number of blasting teams. This compromised safety. Pan Da shuttled between blasting sites by motorcycle or transport boat, inspecting and correcting various safety hazards. When necessary, he personally directed blasting operations.
+"Fuse burned, no bang," the squad leader reported. "I waited fifteen minutes, then pulled the charge." He held up the cylindrical cartridge.
 
-Sea wind mixed with sand pelted his motorcycle helmet. Inwardly, he was tense. Recently, blasting had been widely used to accelerate construction. Qualified personnel ratios were too low, and accident risks were mounting. In fact, just days ago, an explosion had occurred. A transport boat carrying black powder had suddenly exploded in the bay for unknown reasons. All six aboard were missing—obviously blown to bits.
+Pan Da exhaled. At least they followed protocol. He examined the charge. Cheap ammonium nitrate. Dampness had likely ruined the sensitivity.
 
-Black powder was their only bulk-available blasting explosive, but its power and stability were poor. No matter how refined, black powder's detonation velocity was too slow—it really wasn't up to the task as an engineering explosive. Far inferior to nitroglycerin.
+"Good work," Pan Da said. "Don't use this one. Dispose of it later. Continue operations."
 
-Per his request, nitroglycerin explosives and small quantities of ammonium nitrate explosives had been shipped from Lingao. The nitroglycerin was relatively safe—dynamite stabilized with diatomaceous earth and further processed to desensitize it. Though stability was still slightly inadequate, Sanya urgently needed high explosives; they couldn't afford to be too choosy.
+The team drilled new holes. Pan Da climbed the slope to supervise. He watched nervously as laborers gathered below to watch the show.
 
-The Navy had recruited volunteers to crew that ship. The normally seven-day voyage took nearly ten days to arrive. This precious cargo was carefully unloaded and stored in a dedicated simple building standing alone on all sides.
+"Get them back!" Pan Da shouted. "Minimum safe distance is—"
 
-But problems still arose. Pan Da had just received word that a misfire had occurred at one of the sites.
+A gasp from a soldier nearby cut him off.
 
-Misfires were what blasting teams feared most—one careless move could kill people. For this reason, Pan Da personally kept custody of detonators, ensuring ignition safety, issuing them to pioneers only before work started each day.
+Pan Da turned. Time seemed to slow.
 
-He hadn't expected a misfire anyway—and with ammonium nitrate explosives loaded. Ammonium nitrate was slightly safer than nitroglycerin, but the danger coefficient was still high.
+A 75-gram explosive cartridge slipped from a pioneer's sweaty fingers. It tumbled through the air, falling toward the rocky ground below.
 
-The blasting site was at the 0+1400 meter mark on the Tiandu-Yulin roadbed. Here, a small earth-and-rock hillock sat directly on the construction line. Shan Daoqian planned to blast it directly—removing the obstacle while obtaining building material.
+Pan Da’s mind flashed with every explosion he had ever seen. Ammonium nitrate was shock-sensitive. A drop from this height onto rock?
 
-"What happened?" Pan Da asked the pioneer squad leader upon arrival.
+*Dead.*
 
-"The fuse was lit, but it didn't explode." The squad leader gestured. "I waited fifteen minutes, then went to look. The fuse had burned through, but the detonator hadn't fired." He held up the rolled explosive charge. "I retrieved it."
+He dove.
 
-Pan Da relaxed when he saw the detonator had been removed—at least safety training hadn't been wasted. He examined the explosive; it seemed slightly damp—probably the high humidity here had affected ignition sensitivity.
+It was pure instinct, honed by years of service. He hit the dirt, flattening himself against the earth.
 
-Explosive usage standards weren't being followed properly. Pan Da thought crash training really did lead to accidents. But this wasn't really the soldiers' fault—the explosives and ignition materials the transmigrator collective could provide were inherently substandard. Some even had significant safety hazards.
+*Thud.*
 
-"Continue blasting," Pan Da said. "Don't use this charge; take it back with you."
+No boom.
 
-The blasting team resumed work. Pan Da felt uneasy and personally went up to the loading site to observe. The blast holes were properly drilled, exactly per the blasting manual. Several team members were loading charges. Below the small hillock, however, a crowd of laborers had gathered to watch the excitement. Seeing this, Pan Da was alarmed—what was there to see? They weren't even at minimum safe distance. Just as he was about to find someone to chase the laborers away, he heard a startled cry. Looking up, his blood nearly froze—a 75-gram standard explosive cartridge had slipped from a team member's hand and was falling straight down.
+Pan Da blinked. He looked up. The cartridge lay on the rocks, intact.
 
-Finished! Pan Da's first thought was that he was about to be blown to pieces. He remembered this site was using ammonium nitrate explosive—stuff that, before desensitization, would explode on major impact. Dropping from the hillside, wouldn't it detonate immediately?
+But the laborers were rushing forward. Curiosity was a fatal disease.
 
-In an instant, every explosion scene from movies, television, and real life flooded Pan Da's mind. He dove forward, incredibly nimble, and hit the ground flat. This move might or might not save his life—if the explosive landed nearby, lying flat wouldn't help either.
+"Don't touch it!"
 
-"Thud"—the explosive hit the ground. Pan Da was astounded—it hadn't exploded! He had just raised his head when the laborers all rushed over at once. Pan Da knew there were always people who couldn't resist fiddling with things. He leapt up, bounded forward in one stride, snatched up the explosive cartridge, sprinted several paces, and hurled it toward the Tiandu River. Then he threw himself flat again, limbs pressed tight to the ground, eyes shut, mouth open.
+Pan Da scrambled to his feet. He lunged, snatched the cartridge from the ground, sprinted three steps to the edge of the embankment, and hurled it toward the Tiandu River with a roar.
 
-Pan Da's grenade-throwing had been second-best in his entire company during his army days. In crisis, all his skills came alive. The sequence of movements was so smooth that the rushing laborers hadn't even reacted before the explosive splashed into the water. A flash of light, and it exploded in the river. A towering water column shot skyward; the onlooking laborers were all knocked flat by the shockwave.
+He threw himself flat again.
 
-Pan Da too was shoved to the ground like a leaf, his chest constricted. He struggled to get up, realizing his heart was pounding wildly, his legs shaking. Lucky this time—he'd barely escaped with his life. Otherwise, he'd have made an early trip to Cuigang.
+The cartridge spun through the air, a perfect arc.
 
-"Any casualties? Any casualties?" he shouted.
+*Splash.*
 
-"I'm fine." The blasting squad leader shakily got up. Overall, the blasting team had performed decently—when the explosive fell, everyone had hit the deck instead of rushing over to watch.
+*BOOM.*
 
-As for the laborers knocked down in a heap, some had scraped themselves falling from the shockwave; others felt chest constriction and discomfort. Most had just been terrified—they'd never witnessed such a violent explosion.
+A column of water shot skyward. The shockwave slapped the onlookers into the dirt.
 
-"Everyone back to work." Pan Da told the squad leader. "Rest your team for fifteen minutes before continuing. Pay attention to safety."
+Pan Da lay panting, his heart hammering against his ribs. He checked his limbs. Still attached.
 
-The worker who had dropped the explosive had been grabbed by nearby sentries and brought down the hillside, hanging his head dejectedly.
+"Everyone okay?" he croaked.
 
-Pan Da stopped the squad leader from sending the poor wretch to headquarters for disciplinary action. "Forget it, he just made a mistake. But don't let him handle explosives anymore—have him do manual labor for now. Hold a safety education session tonight."
+"I'm... I'm good," the squad leader stammered, pale as a ghost.
+
+The laborers were groaning, picking themselves up. They were shaken, bruised, but alive.
+
+Pan Da stood up, dusting off his knees. The soldier who had dropped the charge was trembling, held by two guards.
+
+"Disciplinary action?" the squad leader asked.
+
+Pan Da looked at the terrified kid. "No. He just made a mistake. But no more blasting for him. Put him on shovel duty. And hold a safety briefing tonight. Everyone attends."
 
 (End of Chapter)

@@ -1,97 +1,87 @@
 # Chapter 553 - Shooting Training
 
-Bai Yu's proposal was to adopt a 9mm caliber. The reason for this caliber was threefold: first, it eliminated the need to follow the imperial system, instead using a simple whole-number approach to determine the caliber; second, 9mm could balance power and manufacturing difficulty at the current stage; and finally, it considered future modification potential.
+Bai Yu advocated for a 9mm caliber. His reasoning was pragmatic: it discarded the archaic imperial system for metric simplicity, struck a balance between stopping power and manufacturing ease, and future-proofed the design.
 
-"Although we can't manufacture metal cartridge cases yet, I recommend designing the handgun's chamber to the dimensions of the 9mm Parabellum cartridge, allowing direct conversion to this ammunition in the future."
+"We can't mass-produce brass casings yet," Bai Yu argued, "but if we bore the chambers to 9mm Parabellum dimensions now, we can easily convert these revolvers to use modern ammunition later."
 
-Another idea for simplifying the process was to eliminate rifling—some held this view. Since the new handgun was merely a crude self-defense weapon for natives with low performance requirements, rifling should be eliminated to dispense with the process of cutting rifling.
+Some voices called for further simplification, suggesting the elimination of rifling. They argued that for a crude self-defense weapon intended for untrained natives, smoothbore barrels would suffice, saving valuable machining time.
 
-"That won't do," Li Yiwo strongly objected. "Eliminating rifling affects weapon performance too much!"
+"Absolutely not," Li Yiwo countered fiercely. "A smoothbore pistol is a pipe dream—literally. Without rifling, accuracy and range drop off a cliff. We're building weapons, not fireworks."
 
-Without rifling, the handgun's range and accuracy would drop too severely. Most people opposed this simplification—cutting rifling wasn't particularly difficult for the transmigrator collective, and they had already manufactured dedicated rifling-cutting equipment. It was simply a matter of changing the cutting head.
+The consensus shifted to Li Yiwo's side. Cutting rifling was a trivial task for the transmigrators' specialized equipment; switching the cutter head took minutes. To sacrifice performance for such a negligible saving was foolish.
 
-"This approach has poor continuity!" Bai Yu firmly objected. If they adopted a smoothbore, there would be no point in using 9mm Parabellum dimensions.
+"It breaks continuity," Bai Yu added. "If we go smoothbore, the 9mm standard becomes meaningless."
 
-The final plan retained the rifling. The cylinder would be non-swing-out fixed type, with a six-round chamber capacity. Barrel length would be 105mm, roughly equivalent to a 4-inch barrel. If needed, 50mm or 155mm barrels could also be used for different requirements. For ammunition, Li Yiwo experimented with simple self-contained cartridges. He combined Minié bullets, black powder, and percussion caps into a standard stiff paper cartridge tube, then sealed the finished assembly with paraffin wax. This made a complete cartridge that could be loaded whole into the chamber.
+The final design was locked: a fixed-cylinder revolver with a six-round capacity and a rifled 105mm barrel—roughly four inches. Shorter or longer barrels could be swapped in for specific mission profiles.
 
-Such ammunition would be extremely difficult for natives of this era to replicate. The reason Li Yiwo strongly opposed a smoothbore design was that smoothbores could use the simplest combination of black powder and round lead balls, which would be easily imitated. Percussion caps, however, were something natives could not possibly manufacture.
+For ammunition, Li Yiwo devised a clever control mechanism: wax-sealed paper cartridges. He combined a Minié bullet, a measure of high-grade black power, and a percussion cap into a stiff paper tube, sealing the entire assembly with paraffin. It was a self-contained unit that loaded as easily as a modern cartridge.
 
-The disadvantage, as with all paper-cartridge weapons, was that after several shots the chamber and barrel would become very dirty, requiring constant cleaning. This placed high demands on the owner's maintenance awareness.
+Crucially, it was impossible for the locals to replicate. While natives might scrounge black powder and cast lead balls for a simple smoothbore, the percussion cap chemistry was beyond their reach. This ensured that if the weapons were lost or stolen, they would eventually become useless paperweights without a steady supply of ammunition from the administration.
 
-The first handgun was handcrafted by Li Yiwo. He gave the gun a blued finish to extend its service life. Subsequent testing proved the makeshift revolver's power to be satisfactory: it could penetrate iron armor at 20 meters and still maintained some lethality at 50 meters. Accuracy was passable.
+The trade-off was fouling. Like all paper-cartridge weapons, the residue built up quickly, demanding rigorous cleaning discipline.
 
-This handgun was quickly standardized, with an official designation of "Model 1630," abbreviated "Model 30." The Planning Council promptly approved small-scale production. The first batch of Model 30s was allocated to the National Police and Political Security General Administration. The trainees would practice with this very handgun.
+The prototype, hand-finished and blued by Li Yiwo himself, performed admirably in testing. At twenty meters, it punched through iron plate; at fifty, it remained lethal.
 
-When the crates of handguns were carried out before the trainees and opened, they immediately caused a stir—the blue-black gun bodies gleamed darkly in the sunlight.
+The Planning Council formally designated it the "Model 1630 Revolver"—or "Model 30" for short—and authorized low-rate production. The first batch was immediately issued to the National Police and the Political Security General Administration.
 
-"That's the Six-Star Pepperbox Hand Cannon!" someone called out.
+When the crates were pried open before the trainees, a hush fell over the ranks. Rows of blue-black steel glinted deeply in the sunlight.
 
-"You're clueless—it's called a revolver!" Someone more knowledgeable immediately corrected the traditional terminology with the "new vocabulary."
+"It's the Six-Star Pepperbox!" someone whispered in awe.
 
-"I heard this gun can fire continuously—how marvelous!"
+"Ignorant," another hissed. "It's called a *revolver*."
 
-Most trainees knew this was a weapon exclusive to the Australians; some Australian leaders always had such "revolvers" hanging from their bodies.
+"I heard it fires continuously. Just pull the trigger and people die!"
 
-"Starting today, you will learn how to use this weapon," Xue Ziliang announced. Then he introduced the red-haired woman beside him. "This is Salina."
+For the trainees, these weapons were symbols of authority. They had seen the Australian leaders carrying them, talismans of their power. Now, that power was being placed in their hands.
 
-The transmigrator collective had quite a few professionals and amateurs skilled in weapons shooting, but Zhao Manxiong didn't need competitive shooting champions. He needed people who could correctly use handguns in law enforcement operations or covert operations, and no one was more professional than the two ATF agents.
+"Starting today, you will master this weapon," Xue Ziliang announced. He gestured to the red-haired woman standing beside him. "This is Instructor Salina."
 
-"Three rules for using firearms," Xue Ziliang enunciated each word for the trainees. "Never point the muzzle at a person! No joking around with firearms! When holding a gun, never put your finger on the trigger! Anyone who violates any of these rules will be immediately expelled!"
+The administration had plenty of marksmen, but Zhao Manxiong didn't need target shooters; he needed gunfighters. He needed operators who could clear a room or suppress a threat in a crowded street. For that, he turned to the professionals: the ATF agents.
 
-This was what Xue Ziliang hated most. When he had previously taught transmigrators, many of them had pointed guns at each other playfully, giving Xue Ziliang a cold sweat—because quite a few habitually had "golden finger."
+"Three rules," Xue Ziliang barked, counting them off on his fingers. "One: Never point the muzzle at anything you don't intend to destroy. Two: Firearms are not toys—no joking effectively avoids death. Three: Keep your finger off the trigger until you are ready to fire. Violate these, and you are gone."
 
-Handguns were few, so each trainee unit practiced in rotation. Both the Weapons Design Group and the Planning Council were eager to learn how the guns performed and generously supplied large quantities of paper cartridges. For a time, the range echoed with thundering gunfire and swirling smoke. The trainees were full of curiosity about their new toys. These things were wonderful—raise your hand, fire a shot, and you could kill someone, and you could fire continuously! Even the famous long guns used by their military brethren couldn't do that!
+He spoke with the venom of experience. He had seen too many "modern" transmigrators flagging each other on the range, their fingers resting casually on triggers. He would not tolerate such stupidity here.
 
-But accurate use wasn't easy. Revolvers had considerable recoil, demanding both arm strength and shooting technique. Xue Ziliang had learned during the previous shooting training course for transmigrators that even most so-called "elders" from the 21st century knew nothing about pistol shooting, couldn't hold a proper grip, let alone these natives.
+Since guns were scarce, the squads rotated through training. The range soon echoed with the boom of black powder and the smell of sulfur. The trainees were giddy with their new power—the ability to deal death with a twitch of a finger was intoxicating.
 
-Xue Ziliang started by teaching how to grip the gun correctly, then moved on to proper gun-holding posture.
+But accuracy was humbled by physics. The Model 30 kicked like a mule, demanding arm strength and solid technique. Xue Ziliang found that even 21st-century enthusiasts struggled with pistol marksmanship; for these natives, who had never held a firearm, it was completely alien.
 
-After a week of continuous use, Li Yiwo personally came to measure these handguns that had each fired roughly a hundred rounds. Aside from slight barrel swelling, everything was normal. Rifling wear was far less than expected—probably due to the pure lead bullets.
+After a week of live fire, Li Yiwo inspected the weapons. Aside from minor fouling, they held up well. "The pure lead bullets are saving the rifling," he noted, measuring the bore with calipers. "If we had better steel, we could forge the barrels instead of using seamless tubing. They'd last forever."
 
-The guns were wiped clean and maintained very well—this of course was the result of Xue Ziliang's constant bellowing and physical encouragement.
+"They're adequate," Xue Ziliang said. "What's the service life?"
 
-"These kids don't even have the habit of cleaning their guns," Xue Ziliang said. "After shooting, they just want to drop them and run. I've taught them how to disassemble and clean for nothing."
+"Originally estimated at 100 rounds. Looks like they'll handle 200 easy, though accuracy will degrade."
 
-"If the steel quality were better, the barrel life would be even longer," Li Yiwo said with some regret as he set down his vernier caliper. "If we could forge barrels instead of making do with seamless steel tubes."
+"Accuracy is secondary," Xue Ziliang shrugged. "For them, it's mostly about noise and courage." He had noticed the trainees' tendency to "spray and pray"—firing wildly to boost their own morale rather than to hit a target. It reminded him of militia fighters in war-torn Africa. Breaking that habit was his priority.
 
-"I think it's adequate. What's the barrel life?"
+On the fifth day, the women's squad took the field.
 
-"Originally planned for 100 rounds. Now it looks like 200 rounds wouldn't be a problem, though accuracy will gradually decline."
+"These are precious instruments, crafted by the Leaders with ultimate technology," He Chun shouted. "You must be worthy of them!"
 
-"Actually, accuracy doesn't matter much—it's just to make noise and boost their courage." During basic handgun tactics training, Xue Ziliang had noticed that native trainees often fired meaninglessly during "moving" shooting drills, with the purpose of boosting morale or intimidation rather than hitting targets—this bore a striking resemblance to the random shooting on war-torn streets in African conflict zones. Xue Ziliang realized he first had to break this habit before teaching modern shooting techniques.
+The women trembled as they approached the table. The dark metal looked cold and unforgiving.
 
-The women's squad finally got their shooting lesson on the fifth day. The used handguns had been carefully cleaned.
+Salina stepped forward. She looked vibrant, her energy restored by decent food and Xue Ziliang's... attention. She enjoyed training locals; she had once told Xue Ziliang it felt like "training police for a third-world African nation." To her, their primitive nature made them eager, malleable students.
 
-"These are precious weapons, manufactured by the leaders using the most advanced technology. You must practice diligently to be worthy of these weapons!" He Chun shouted.
+She started with the basics: disassembly. The Model 30's simplicity was a virtue here; even the mechanically illiterate could strip and clean it.
 
-Looking at these blue-black killing implements, the women's hands and feet trembled slightly. They had long heard the gunfire from other trainee units during practice. Some were too scared to be nearby even when large firecrackers were set off during festivals—now they were expected to use handguns! And on top of that, the one teaching them was a red-haired foreign woman.
+Once they understood the mechanism, Salina prepared for a live fire demonstration.
 
-The lecturer was Salina. She had recently received ample nourishment from Xue Ziliang and was not only radiant but also in much better spirits. She was enthusiastic about teaching trainees—Americans fundamentally enjoyed interacting with people. And the more primitive the people, the more eager they were. Salina was no exception.
+"Watch closely."
 
-Someone submitted a report to Zhao Manxiong noting that Salina had once told Xue Ziliang that training natives was like "training police for Third World countries in Black Africa."
+She leveled the revolver at a target twenty meters away. The boom was deafening, a cloud of white smoke erupting from the muzzle. The women flinched.
 
-After repeating Xue Ziliang's three basic rules, Salina began demonstrating how to disassemble the handgun. Revolvers had few parts and were relatively quick to disassemble and reassemble, making them well-suited for natives who were completely ignorant of machinery.
+"Check the target."
 
-Once the women had fully mastered the handgun's disassembly and assembly, Salina first conducted a demonstration shot. The thunderous roar and white smoke that erupted when the handgun fired somewhat frightened the female trainees.
+A neat hole had been punched through the iron plate and the hardwood backing behind it.
 
-"Alright, go check the target."
+"So powerful..." The whispers rippled through the squad. They realized with a chill that no armor, no muscle, could stop this.
 
-At 20 meters, the iron armor serving as a target had a clean hole punched through it. Moreover, the hardwood table supporting the armor had also been punctured.
+"Now, the grip." Salina reholstered the weapon. In a blur of motion, she drew, fired, and reholstered. She did it again. And again. Three shots in the blink of an eye.
 
-This demonstration was mainly to give trainees confidence in their weapons—to inspire a sense of disdain and superiority in armed law enforcement personnel toward hostile elements.
+The girls forgot to scream. They stared at the target—three fresh holes clustered in the center of the chest plate.
 
-"So powerful!" The female trainees were amazed. They understood clearly that with this thing, even the strongest man couldn't withstand a single shot.
+"Practice, and you can do this too." Salina began correcting their grips. "Left hand supports the barrel, right hand drives high into the beaver tail. Squeeze until you shake, then back off ten percent. Lock your wrists."
 
-"Now we will learn how to grip the gun." She nimbly drew the handgun from her waist, pointed it at the target and fired once, then returned the gun to its holster. She drew again, fired, and reholstered, repeating this three times in rapid succession at incredible speed.
-
-The three lightning-fast shots even cut off the girls' screams of surprise. What stunned them even more was that all the bullets had pierced through the chest area of the iron armor.
-
-"As long as you practice diligently, you too can shoot like me." Salina began teaching how to hold the gun:
-
-Use the left hand to grasp the barrel portion, push the grip into the center of the right hand's tiger's mouth, use the palm to find a comfortable position, then grip firmly. The grip quality of this Model 30 revolver was excellent—not only was its shape perfectly sized for Chinese hands, but it also featured anti-slip texturing.
-
-"You must grip very firmly, but it should still feel comfortable!" Salina watched the female trainees straining to grip their guns. "Grip until your hand trembles slightly, then ease off just a little! Your wrist must remain taut."
-
-Salina individually checked each person's grip. For those with a soft, limp grip, she would firmly help them grip properly without a moment's hesitation. None of them had expected this red-haired woman to be so strong. Lu Cheng felt like her hand was about to be crushed between the iron grip and the gun handle, and she couldn't help but cry out.
+She moved down the line, adjusting hands with professional force. When she reached Lu Cheng, she clamped her hands over the girl's grip, squeezing with shocking strength. Lu Cheng felt her bones grinding against the steel and let out a small cry. Salina didn't flinch, molding the girl's hands to the weapon as if she were shaping clay.
 
 (End of Chapter)

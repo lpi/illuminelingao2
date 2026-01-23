@@ -1,79 +1,77 @@
 # Chapter 551 - Combat Techniques
 
-Krav Maga is a self-defense system that originated in Israel. In the West, it is widely recognized as a highly precise, street-fighting-style personal protection technique designed to counter street attacks, robberies, and sexual harassment. It is an ideal choice for self-defense.
+Krav Maga, a self-defense system originating from Israel, is widely recognized in the West for its brutal efficiency. Designed for the chaos of street fighting, it focuses on neutralizing threats ranging from robberies to sexual harassment, making it the ultimate tool for personal protection.
 
-It is a comprehensive and extensive martial arts system encompassing self-defense techniques, counter-striking and kicking techniques, passive escape techniques, throws and takedowns, ground fighting, unarmed defense against knives, sticks, and firearms, and techniques against multiple attackers.
+More than just a collection of techniques, it is a comprehensive system blending striking, grappling, ground fighting, and defense against knives, sticks, and firearms. It weaponizes instinct, forging aggression and situational awareness into a singular objective: eliminating the threat by any means necessary.
 
-It organically combines the body's instincts with practiced combat techniques, supplemented by a series of training programs including aggression, combat spirit, and situational awareness. Technically, it is distinctly offensive in nature. The sole objective is to eliminate threats to oneself as quickly as possible. It is extremely practical.
+One of Krav Maga’s greatest strengths is its adaptability. It is effective in the most disadvantageous circumstances—dark alleyways, confined spaces, or when one is exhausted or pinned to the ground. This makes it particularly suitable for law enforcement and intelligence operatives.
 
-One advantage of Krav Maga is that it can be employed in various unfamiliar and disadvantageous environments—such as at night, in narrow streets, while seated or lying down when hand and foot movements are restricted, or in a state of exhaustion. It is particularly suited for law enforcement officers and special agents.
+Xue Ziliang did not believe in coddling. Once the trainees grasped the basics, he threw them into the deep end, incorporating realistic simulations into their regimen. He deliberately scheduled these sessions for the end of the day, when bodies were broken and minds were dull.
 
-After instructing the trainees on the essentials of the movements, Xue Ziliang had them practice. Once they had gained a moderate degree of proficiency, he began incorporating realistic simulated training. He often chose to hold classes near the end of each day's schedule, when the trainees' stamina was severely depleted and their willpower somewhat scattered.
+Their opponents were seasoned soldiers from the Army—men hardened by months of military combatives. They were fresh, strong, and merciless.
 
-The attacking side consisted of sergeants and privates on loan from the Army. Not only were they strong and robust, but they had also trained in military combatives for over half a year. They were not only powerful but also highly aggressive.
+The result was a slaughter. The exhausted trainees were swept aside like leaves, none lasting more than a minute against the onslaught.
 
-A group of well-rested soldiers against a troop of physically and mentally exhausted trainees—the outcome was self-evident. The trainee squad was beaten into a crawling mess across the floor; not one of them could last a full minute.
+Looking at his students groaning on the floor, Xue Ziliang knew the road ahead was long. Their form was passable in controlled sparring, but under the pressure of real combat, they froze. Their reactions were fatal fractions of a second too slow.
 
-Looking at the groaning trainees scattered on the ground, Xue Ziliang knew he had a long road ahead. Many of them had passable form during sparring sessions with each other, but when facing real combat, let alone performing their techniques, even their reactions were half a beat slow.
+"And you think you can be agents?" Xue Ziliang bellowed. "Get up! All of you, on your feet in one minute!"
 
-"And you lot think you can become agents?" Xue Ziliang bellowed. "Everyone on your feet within one minute!"
+He believed in forging them through pressure, using stress to engrave self-defense into their muscle memory.
 
-Xue Ziliang often had the trainees fight under tremendous physical and mental pressure, using stress to teach them how to apply self-defense techniques.
+The female squad received no special dispensation. Enemies would not show mercy because of their gender, nor would they adhere to the rules of a fair duel. For women in this line of work, the ability to protect oneself was paramount.
 
-The female squad received no special treatment during combat training—enemies would not show mercy just because they were women, nor would they arrange fair duels. Women in this line of work first had to be able to protect themselves.
+When it was the women's turn, a ripple of laughter went through the Army ranks. "Let's skip this," one soldier jeered. "It's hardly fair."
 
-When it was the female trainees' turn, laughter erupted from the ranks of the Army sergeants. Someone immediately said, "Let's just skip this, shall we? This is too unfair."
+Xue Ziliang was unmoved. "Corporal Huang Ande! Front and center!"
 
-But Xue Ziliang was unmoved and immediately called out a name: "Corporal Huang Ande! You're up!"
+The first match-up was Army Infantry Corporal Huang Ande versus Lu Cheng, Captain of the Political Security General Administration Trainee Corps Women's Squad. Huang Ande was not a giant—standing 172cm and weighing 70kg, he was average by modern standards. But compared to Lu Cheng, who was a petite 155cm and weighed only 40kg, he looked like a titan.
 
-Thus, the first match was Army Infantry Corporal Huang Ande versus Political Security General Administration Trainee Corps Women's Squad Captain Lu Cheng. Huang Ande was not some hulking brute—by modern standards, he had a fairly ordinary physique: only 172cm tall and weighing 70kg. But for Lu Cheng, at 155cm and 40kg, he was a towering giant.
+Huang Ande grinned sheepishly, rubbing the stubble on his chin, clearly unsure of how to proceed against a woman.
 
-Huang Ande gave an embarrassed, toothy grin, unsure of what to do with his hands and feet. He kept rubbing the stubble on his chin.
+"What? Did the sight of a woman turn you into an idiot?" Xue Ziliang barked. "Begin!"
 
-"What? Gone stupid at the sight of a woman?" Xue Ziliang scolded. "Begin!"
+Huang Ande hesitated, his attacks light and tentative.
 
-Huang Ande seemed too embarrassed to strike, his attacks both light and slow. Xue Ziliang barked: "If you don't start fighting seriously, you're cleaning latrines for a year!"
+"Fight seriously or you'll be scrubbing latrines for a year!" Xue Ziliang roared.
 
-This punishment was terrifying. Ten seconds later, Lu Cheng let out a wretched cry as her body flew through the air and crashed heavily onto the padding, knocked out immediately.
+The threat worked. Ten seconds later, Lu Cheng let out a wretched cry as she was hurled through the air, crashing heavily onto the mats and passing out cold.
 
-Huang Ande then proceeded to knock down all six girls in the women's squad in under three minutes. Yao Yulan simply forgot everything she had learned and stood there dumbly before being struck down. Yang Cao had learned some martial arts in her opera troupe days and was fairly agile, but her martial arts foundation proved useless. She landed several punches on Huang Ande, but he seemed not to notice, instead raining down fast and fierce blows. Yang Cao blocked and parried desperately, feeling like her arms were about to break. After less than fifteen seconds of stalemate, Huang Ande landed a punch to her abdomen. Yang Cao's face immediately contorted as she collapsed to her knees, unable to rise for a long time.
+Huang Ande proceeded to dismantle the remaining six women in under three minutes. Yao Yulan forgot everything she had learned and stood frozen until she was struck down. Yang Cao, who possessed some agility from her days in the opera, fared slightly better. She managed to land several punches, but Huang Ande barely flinched. He countered with a barrage of heavy blows. Yang Cao parried desperately, feeling as though her arms were fracturing under the impact. After fifteen seconds, a brutal punch to the gut crumpled her to the floor.
 
-Huang Ande was startled—he hadn't even used that much force! He was about to lean down to check on her when Yang Cao suddenly swept a leg across, striking him squarely on the shin.
+Huang Ande was startled—he hadn't meant to hit her that hard. He leaned down to check on her, only for Yang Cao to suddenly lash out with a leg sweep, catching him on the shin.
 
-But facts quickly proved that technique alone was useless. Huang Ande's body only swayed slightly—as a combat soldier, his reflexes were quick. He immediately jumped back and escaped Yang Cao's attack range. Having put everything into that desperate strike, Yang Cao was completely spent and truly couldn't get up now. Huang Ande hesitated—should he continue and completely finish off this cunning woman?
+But technique alone could not overcome the gap in physical prowess. Huang Ande swayed but didn't fall. His combat reflexes kicked in, and he leapt back out of range. Yang Cao, having spent her last ounce of energy on that failed gambit, collapsed completely. Huang Ande hesitated, wondering if he should finish her off.
 
-"Stop!" Xue Ziliang called a halt.
+"Halt!" Xue Ziliang shouted.
 
-"Did everyone see that?" Xue Ziliang pointed at Yang Cao, still struggling on the ground. "No matter what martial arts you have, without sufficient stamina, it's all worthless! Those punches and kicks hitting him were no different from dusting him off."
+"Did you see that?" Xue Ziliang pointed to the writhing Yang Cao. "It doesn't matter what martial arts you know—without stamina, it's useless! Your punches were like tickles to him."
 
-He watched Yang Cao struggle to her feet—she was still clutching her stomach.
+He watched Yang Cao struggle to stand, still clutching her stomach. "Although you haven't mastered Krav Maga, that sweep showed promise. Good."
 
-"Although you haven't learned Krav Maga yet, that leg sweep you just did had some merit. Good!"
+"Continue training!" Xue Ziliang announced. "Cry now if you want, because later you won't have the strength to weep! I will train you useless lot until you can actually survive!"
 
-"Continue training!" Xue Ziliang announced loudly. "If you need to cry, do it now—later, you won't even have the strength to cry! I'm going to train you useless lot ruthlessly until you can protect yourselves!"
+And so, the beatings became a daily ritual. Bruises were badges of honor. Lu Cheng's arms were constantly swollen, requiring daily massages with medicinal wine. The Medical Department supplied them with copious amounts of Runshitang's "San Li Tong Compound Tincture"—a new topical remedy developed by Liu San, with the trainees serving as willing test subjects.
 
-And so everyone was regularly beaten badly. Bruises all over the body were commonplace. Lu Cheng's arms were red and swollen every day, to the point where she could barely lift them. Massaging each other with medicinal wine became a daily necessity for the trainees. The Medical Department supplied them generously with Runshitang's "San Li Tong Compound Tincture"—a new topical formulation developed by Liu San based on his San Li Tong powder. The trainees served as test subjects for its efficacy.
+Amidst the nightly groans of pain, Yao Yulan received her first love letter. It was from Huang Ande, secretly slipped into her hand during training. Scrawled crookedly and riddled with errors, it earned nothing but her contempt. She spat on the ground and tossed it into the trash. As a "city girl," she looked down on refugees, especially one who had beaten her so thoroughly on the training mats.
 
-While everyone was groaning every night, Yao Yulan received the first love letter of her life—from Huang Ande. This letter, secretly slipped into Yao Yulan's hand during training, scrawled crookedly and full of misspellings, earned her utter contempt. She spat once and tossed it into the trash. As a "city person," she naturally looked down on anyone of refugee origin. Moreover, this soldier had beaten her quite badly on the training ground.
+The next day, Huang Ande was not assigned to the women's squad. He looked at Yao Yulan with hopeful eyes, only to be met with a cold glare. His heart shattered. He had thought his flirtation was foolproof. Crushed, he channeled his heartbreak into violence. That day, every trainee who faced him was knocked out cold. Even Xue Ziliang was baffled by the sudden surge in the corporal's ferocity.
 
-During the next day's combat training session, Huang Ande was not assigned to spar with the women's squad. He looked toward Yao Yulan with hopeful eyes, only to receive a disdainful look. Huang Ande's hopes were instantly dashed—he had thought his newly learned flirting technique was foolproof. He channeled his disappointment into limitless energy. That day, every trainee who faced him was directly knocked out, leaving even Xue Ziliang puzzled—when had this Army sergeant become so ferocious?
+However, as the weeks passed, the tide began to turn. The trainees' fitness improved, and their technique sharpened. The sparring sessions looked less like beatings and more like fights. Soldiers began to hit the mat. They stopped smiling and started fighting with grim seriousness.
 
-However, as their physical fitness gradually improved and their grasp of combat techniques deepened, the sparring between trainees and soldiers began to look less like "beatings." After several weeks, soldiers started being knocked down, and gradually more and more of them fell. The soldiers no longer arrived at the training ground with smiles on their faces; they fought with much greater seriousness.
+The combat training did more than harden their bodies; it forged the confidence they needed to operate independently.
 
-Combat training not only tempered their bodies but also gave the trainees greater confidence to carry out missions independently.
+Another tool that bolstered their confidence was the handgun.
 
-Another weapon that boosted the trainees' confidence was the handgun.
+Alongside unarmed combat, the trainees began formal firearms training. Their weapon of choice was the "Six-Star Pepperbox"—not a Smith & Wesson, but a locally manufactured revolver based on designs from the Weapons Design Group.
 
-Alongside combat instruction, the trainees began formal small arms shooting training. The weapon they used was the so-called "Six-Star Pepperbox." Of course, this was not an S&W revolver, but rather a Lingao-version revolver manufactured by the Machinery Factory based on designs from the Weapons Design Group.
+As the transmigrator administration expanded into the grassroots, there was an urgent need to arm the growing number of native cadres, police, and intelligence officers.
 
-As administration extended deeper into the grassroots and various administrative organizations continued to expand, the transmigrator collective urgently needed to equip their growing number of native cadres, police, intelligence officers, and security personnel with an effective self-defense weapon.
+Currently, native cadres were defenseless. Police carried only truncheons and bayonets, with a few ancient rifles among them. This was insufficient. Although the bandit suppression campaign had improved security, threats still lurked. Gou Er remained at large, and the administration's aggressive policies on land and taxation had undoubtedly made enemies. Fear of the transmigrators' military power kept these hostile elements in check, but the risk of retaliation against native collaborators was high. These cadres were the lifeblood of the administration; their deaths would be a significant loss and a blow to morale.
 
-Currently, native cadres were unarmed. Police had only regulation truncheons and bayonets, with a small number equipped with rifles at best. This fell far short of meeting demands. Although Lingao's public security had significantly improved after the bandit suppression campaign, no one could guarantee that there were no other latent hostile elements: Gou Er and his son remained at large, and the bandit suppression, county yamen takeover, and land surveying had inevitably touched some people's interests. These people, fearful of the transmigrators' instruments of violence, dared not take openly hostile actions, but the possibility of them attacking and retaliating against native collaborators remained very real. Native cadres were the transmigrators' most reliable human resources—once killed, they would not only be difficult to replace quickly but would also shake the confidence of natives serving the collective.
+The Machinery Factory had previously produced mild success with Derringer-style pistols for agents, but their limited capacity and heavy caliber made them unsuitable for general issue. There was no interest in mass-producing them.
 
-Previously, the Machinery Factory had manufactured some Derringer pistols for transmigrators operating in enemy territory. The feedback had been satisfactory. However, everyone felt this type of pistol had poor sustained firepower, and its large caliber made it overly cumbersome. Since there was ongoing debate about whether such guns were even necessary to manufacture, the Machinery Factory had no interest in putting the Lingao-version Derringer into mass production.
+Before the Second General Assembly, Wu De had commissioned a study on the issue. The conclusion was clear: arming cadres was essential, especially those working in the field who were vulnerable targets.
 
-Before the Second General Assembly convened, Wu De had instructed his subordinates to conduct a special investigation on this issue. The conclusion was that arming cadres was necessary—especially grassroots cadres, who were virtually defenseless against hostile elements yet whose work required frequent activity in the field. Under such circumstances, they were easy targets for attack.
-
-After Wu De became head of the Planning Council, he formally implemented this plan. The plan received support from Ma Qianzhu. The General Staff also backed it—both the Army and Navy lacked individual self-defense firearms. Native officers had no handguns; they could use rifles in battle but otherwise went about unarmed except for their command sabers. Moreover, Minié rifles—even short-barreled versions—were unsuitable for all soldiers. Many specialized units in the military, such as artillery, engineers, logistics troops, and Navy sailors, rarely used rifles. Equipping them with rifles was both inconvenient and added to costs.
+Upon becoming head of the Planning Council, Wu De, with the support of Ma Qianzhu and the General Staff, moved to implement this plan. The military also faced a shortage of sidearms; officers, artillerymen, engineers, and sailors were mostly unarmed aside from sabers, as rifles were clumsy and impractical for their roles. A standardized sidearm was the logical solution.
 
 (End of Chapter)

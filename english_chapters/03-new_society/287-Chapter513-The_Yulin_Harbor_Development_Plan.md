@@ -1,14 +1,14 @@
 # Chapter 513 - The Yulin Harbor Development Plan
 
-"An expansion of this scale for the steel industry—do we have adequate stockpiles?" Wen Desi asked. These were not Great Leap Forward–style backyard furnaces but genuine industrial blast furnaces. By the standards of another timeline, they qualified as outdated, small-capacity facilities slated for restriction or demolition. In the seventeenth century, however, they were the height of technology.
+"An expansion of this scale for the steel industry—do we have adequate stockpiles?" Wen Desi asked. These were not Great Leap Forward–style backyard furnaces but genuine industrial blast furnaces. By the standards of another timeline, they qualified as outdated, small-capacity facilities slated for restriction or demolition. In the seventeenth century, however, they represented the height of technology.
 
 Setting aside refractory materials—that problem had been solved using bittern from the salt fields—the cooling water jackets alone required several tons of steel, and they were castings. Wen Desi knew that of all casting work, steel was the most difficult; its low fluidity made large steel castings like cooling jackets extremely challenging.
 
-"The technical conditions for building this new equipment are fully mature, and the material requirements are also met. Expansion to this scale poses no problem," Ma Qianzhu replied. "However, we will consume a great deal of our pig-iron and steel stocks to manufacture the equipment. Allocations of pig iron and steel for other purposes will have to be further cut…"
+"The technical conditions for building this new equipment are fully mature, and the material requirements are met. Expansion to this scale poses no problem," Ma Qianzhu replied. "However, we will consume a great deal of our pig-iron and steel stocks to manufacture the equipment. Allocations of pig iron and steel for other purposes will have to be further cut…"
 
 "What about the mining equipment? And all the supporting systems—boilers, steam engines… These things are made from tons of steel," Zhan Wuya objected. "Then there's the rail production slated for Tiandu that the Planning Commission scheduled. The shortfall is forty percent. Even if we had enough materials, we'd still need to add production equipment to deliver on time."
 
-"Those priorities will naturally be guaranteed," Ma Qianzhu said, opening his notebook. "Gentlemen, since August the Planning Commission has been cutting steel allocations across the board for the express purpose of breaking through this critical steel–coal bottleneck. The difficulties are temporary. Once we get past this hurdle, steel will no longer be a controlled material—you've all seen the projected output. That said, current stocks remain tight." He then read out the present inventories of steel, pig iron, and wrought iron.
+"Those priorities will naturally be guaranteed," Ma Qianzhu said, opening his notebook. "Gentlemen, since August the Planning Commission has been cutting steel allocations across the board for the express purpose of breaking through this critical steel-and-coal bottleneck. The difficulties are temporary. Once we get past this hurdle, steel will no longer be a controlled material—you've all seen the projected output. That said, current stocks remain tight." He read out the present inventories of steel, pig iron, and wrought iron.
 
 "That really isn't much," Zhan Wuya said. "We'll have to halt all munitions production. Casting cannons and shells consumes a lot of pig iron."
 
@@ -16,17 +16,17 @@ The transmigrated collective's armaments work had always proceeded at a slow but
 
 Halting all munitions production was a highly sensitive issue. Since this was a Five-Year Plan implementation meeting, Ma Qianzhu was the only one who could plausibly represent the military, so no one jumped up to object. Still, once this measure was announced, the military's reaction was easy to imagine—especially the young Turks led by Zhang Bailin and Wei Aiwen. Artillery was their pride and joy.
 
-The matter was significant. All eyes turned to Ma Qianzhu—who also held the title of Chief of the General Staff.
+The matter was significant. All eyes turned to Ma Qianzhu, who also held the title of Chief of the General Staff.
 
-"It can be done, but it's a close thing." Ma Qianzhu pulled another Sacred Ship notebook from the combination-locked briefcase he always carried; the cover bore the word "Armaments."
+"It can be done, but it's a close thing." Ma Qianzhu pulled another notebook—this one from the combination-locked briefcase he always carried—bearing the word "Armaments" on its cover.
 
 "Current Minié rifle stocks stand at four basic loads per weapon. The Artillery Training Detachment has one basic load of shells; the coastal heavy guns, half a load. The 8154's naval guns have one-and-a-half loads; the schooner patrol boats, one load. Ammunition reserves aboard the other sailing warships are insufficient. After absorbing Zhu Cailao's remnants, our sailing fleet expanded rapidly. The old miscellaneous cannons and shells aboard were removed and melted down, but new cannons haven't been mounted in time—the shortfall is large. As for shells, don't even mention it," Ma Qianzhu said candidly.
 
 "Enough for one battle, though?"
 
-"As long as it isn't a joint attack by the Ming army and Zheng's main fleet, we may not be able to annihilate the enemy entirely, but we can certainly repel them," Ma Qianzhu had participated in several war-game exercises at the General Staff under Xi Yazhou's direction.
+"As long as it isn't a joint attack by the Ming army and Zheng's main fleet, we may not be able to annihilate the enemy entirely, but we can certainly repel them." Ma Qianzhu had participated in several war-game exercises at the General Staff under Xi Yazhou's direction.
 
-Wen Desi asked, "Is there currently any danger of war?"
+"Is there currently any danger of war?" Wen Desi asked.
 
 "According to analysis from the Intelligence Department, not at present."
 
@@ -62,7 +62,7 @@ Wen Desi asked, "Is there currently any danger of war?"
 
 "Very well. Director Wen, the crews of those schooner patrol boats you designed were all trained by her."
 
-Xiao Zishan cleared his throat to remind Director Wen not to go off on a tangent, then said, "So next year's pig-iron prices will rise even more sharply."
+Xiao Zishan cleared his throat to remind Director Wen not to go off on a tangent. "So next year's pig-iron prices will rise even more sharply."
 
 Although once the Tiandu development was complete and the blast furnaces began producing iron, Lingao's pig iron would be entirely self-sufficient—with large quantities of finished steel products available for export—that was still a year away at the earliest.
 
@@ -72,7 +72,7 @@ Although once the Tiandu development was complete and the blast furnaces began p
 
 "We could use the opportunity to establish a commodities-exchange system and control Guangdong's iron market through bulk-commodity trading…"
 
-"Hold on—economics we'll discuss later, or we'll spiral off endlessly," the meeting's moderator, Xiao Zishan, cut off Yi Fan's discourse. "Let's stick to the coal-and-iron issue."
+"Hold on—economics we'll discuss later, or we'll spiral off endlessly," Xiao Zishan, the meeting's moderator, cut off Yi Fan's discourse. "Let's stick to the coal-and-iron issue."
 
 "With a stable coal supply secured on the island, our next step is the Tiandu Iron Mine," Wen Desi said. "Let's now discuss the Tiandu development plan."
 
@@ -82,7 +82,7 @@ Behind the curtain hung a large-scale map of the Sanya area, festooned with colo
 
 "At the Executive Committee's behest, the Planning Commission has completed the Tiandu Development Plan," Ma Qianzhu said. "Please review it."
 
-Developing Tiandu was not simply a matter of building a mining area and expanding the Yulinbao dock. The transmigrated collective intended to construct Yulin as an entirely new base—a future staging ground for transmigrator naval expeditions to Southeast Asia for trade and colonization. The overall plan was ambitious: Phases One and Two would be completed within the First Five-Year Plan; Phases Three and Four would be undertaken in the Second Five-Year Plan.
+Developing Tiandu was not simply a matter of building a mining area and expanding the Yulinbao dock. The transmigrated collective intended to construct Yulin as an entirely new base—a future staging ground for naval expeditions to Southeast Asia for trade and colonization. The overall plan was ambitious: Phases One and Two would be completed within the First Five-Year Plan; Phases Three and Four would be undertaken in the Second Five-Year Plan.
 
 "Phase One involves developing the Tiandu mining district," Ma Qianzhu said, pointing at the map, "along with basic supporting infrastructure."
 
@@ -94,7 +94,7 @@ Anyoule Town, across from Yulinbao Fortress, would be completely rebuilt accordi
 
 Tiandu Township—destined not to appear for another three hundred years—would now be founded ahead of schedule. The transmigrated collective's Tiandu Mining Bureau would be headquartered there. The Bureau would manage not only the Tiandu iron mine but also the future development of manganese and phosphate deposits in the Damao area.
 
-A railway would be built between Tiandu Township and the Yulinbao dock to transport ore.
+A railway would link Tiandu Township and the Yulinbao dock to transport ore.
 
 "This means we'll be investing heavily in the Yulin area," Wen Desi observed.
 
@@ -102,7 +102,7 @@ A railway would be built between Tiandu Township and the Yulinbao dock to transp
 
 This new base was essentially a blank slate. Indigenous inhabitants were few; Ming authority was dozens of kilometers away in Yazhou. The transmigrated collective could plan, develop, and build in this region entirely at will, without expending great effort on conquest or negotiation. Unlike Lingao's "coexistence model," the Yulin Harbor area would become the first territory under the transmigrated collective's outright rule.
 
-"Yulinbao will be upgraded to the Sanya Special District," Wen Desi said.
+"Yulinbao will be upgraded to the Sanya Special District," Wen Desi announced.
 
 The Executive Committee promptly approved the Tiandu Development Plan. The entire operation would commence in the spring of 1630. Its complexity rivaled the original D-Day landings. All departments began planning the allocation of materials and personnel.
 

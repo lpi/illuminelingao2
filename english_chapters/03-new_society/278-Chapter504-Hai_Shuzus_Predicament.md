@@ -1,81 +1,77 @@
 # Chapter 504 - Hai Shuzu's Predicament
 
-In the cabin below deck of the *Guangding*, Lin Baiguang leaned against his bedroll, pondering the urgent tasks awaiting him in Qiongshan.
+In the cramped cabin of the *Guangding*, Lin Baiguang leaned against his bedroll, his mind occupied by the chessboard of Qiongshan.
 
-First and foremost was cultivating Hai Shuzu. Originally, the transmigrated collective had hoped to lure him to Lingao under the pretext of reclaiming his ship, using the opportunity to win him over. However, Hai Shuzu clearly harbored suspicions and refused to venture to Lingao.
+His primary objective was the recruitment of Hai Shuzu. The original plan—luring him to Lingao under the pretext of reclaiming his ship—had failed. Hai Shuzu remained wary, refusing to venture into the "Australian" den.
 
-Of course, were I in his shoes, I wouldn't dare come rashly either, Lin Baiguang thought. Who knows what the Australians are plotting? Hai Shuzu was, after all, a man of some means.
+*If I were in his shoes, I wouldn't go rashly either,* Lin mused. *Who knows what schemes we might be hatching? To a man of his standing, caution is natural.*
 
-If he wouldn't come to Lingao, the collective would simply gain a large seagoing vessel and a shipload of cargo at no cost—not a bad outcome. Yet by comparison, Hai Shuzu himself was far more valuable to them. It was not that they intended to exploit his status as a descendant of Hai Rui to court local gentry; there were more practical applications.
+If he refused to come, the collective would merely gain a large vessel and its cargo by default—not a terrible outcome. But Hai Shuzu himself was the true prize. The value lay not just in his lineage as a descendant of Hai Rui, but in his potential utility for a specific industrial need.
 
-The Industry Commission had been petitioning the Executive Committee to find a way to mine coal near Qiongshan. The coal deposits in the Haikou region were among Hainan's better reserves, predominantly lignite suitable for coking. Once the Tiandu iron mine was developed, coking coal would become a major bottleneck. The high-grade anthracite from Vietnam's Hongji mine was ill-suited for coking and came with all the difficulties of extraction in a foreign land, not to mention the constraints of shipping capacity. The Industry Commission wanted a nearby source of stable coal supply.
+The Industry Commission had been clamoring for a local coal source. The Haikou region possessed some of Hainan's better coal deposits—dominantly lignite suitable for coking. With the impending development of the Tiandu iron mine, coke would soon become the bottleneck of their steel industry. High-grade anthracite from Vietnam was ill-suited for coking, and the logistics of foreign extraction and shipping were messy. They needed a secure, local supply.
 
-In this era, however, the Haikou region's coal deposits had yet to be exploited on any significant scale. Opening a mine in ancient times was a troublesome affair—not because of bureaucratic red tape or excessive taxation, but because mining operations often faced interference from local powers. Sometimes it was driven by economic interests; other times it involved claims about "fengshui" or "earth veins"; and occasionally it was suppressed by primitive environmental concerns—mining and smelting inevitably degraded local environments and caused serious pollution.
+In the Ming dynasty, however, opening a mine was a labyrinthine ordeal. The obstruction wasn't imperial policy or taxation, but the predatory nature of local powers. Mines were magnets for extortion, cited for disturbing "fengshui" or severing "earth veins." Primitive environmentalism also played a role—smelting and excavation caused pollution that invariably angered locals.
 
-Official attitudes toward mining were inconsistent and highly arbitrary. Generally speaking, local officials were unenthusiastic: the Ming had no concept of a resource tax, and aside from the brief mining levy during the Wanli reign, mining offered no benefit to local finances. Though it could line the pockets of various minor and major clerks, mining invariably attracted hordes of workers. Laborers had always been considered a "destabilizing element," often imposing heavy "stability maintenance" burdens on the government. With no benefits and plenty of trouble to stir up, officials usually opted for outright prohibition whenever disputes arose.
+Official attitudes were arbitrary at best. Since the Ming state lacked a coherent resource tax, mining offered no fiscal benefit to local governments, only headaches. Mines attracted large, unruly workforces—"destabilizing elements" in the eyes of officials concerned with maintaining order. With no profit to gain and only trouble to expect, magistrates usually defaulted to prohibition at the first sign of conflict.
 
-Without a powerful local figure to preside over affairs—or at least a connection to such a person as a protective umbrella—a mine was nearly impossible to open.
+Without a powerful local patron to provide political cover, opening a mine was impossible.
 
-Because of these unfavorable factors, the transmigrated collective had refrained from rashly dispatching an agent—someone like Lin Quan'an—to invest directly in mining. Instead, they hoped to entice locals to open mines themselves while the collective purchased the output. But mining did not yield coal overnight; the required investment was substantial. If the transmigrated collective's purchase price was too low, no one would bother mining; if too high, the Planning Commission deemed it uneconomical.
+Given these realities, the Executive Committee had vetoed sending a direct agent like Lin Quan’an. Their strategy was to find a local proxy to front the operation while the collective provided the capital and technology.
 
-So they eventually adopted a different approach: find a local agent to serve as the front while the transmigrated collective actually invested in the mining operation.
+Hai Shuzu was the ideal candidate. His family name alone carried immense weight, capable of smoothing over bureaucratic frictional and silencing local thugs.
 
-From the Executive Committee's perspective, Hai Shuzu was an ideal agent. With the Hai family's prestige, smoothing things over with local officials and power brokers would be relatively easy.
+The challenge was persuasion. Hai Shuzu’s venture into maritime trade proved he had both an adventurous streak and a thirst for wealth. Now, according to Chen Tong’s intelligence, the Hai family faced a liquidity crisis. This was the opening Lin needed.
 
-How then to persuade Hai Shuzu? Lin Baiguang mulled it over. The fact that Hai Shuzu had pooled funds to build a ship and venture into overseas trade suggested an adventurous streak and a strong desire for wealth. With these two premises in hand, persuading such a man to open a mine should not be difficult. Moreover, according to the intelligence Chen Tong had gathered, the Hai family was currently facing a severe financial crisis—an excellent opportunity.
+Lin Baiguang paced the small cabin, calculating the timeline. The current coke ovens relied on coal purchased from Guangdong, which was sufficient for now. But once iron ore began arriving from Tiandu next year, the demand for coke would skyrocket.
 
-Lin Baiguang calculated on the cabin floor again and again. Time was of the essence. The present coke ovens used coal purchased from Guangdong; consumption was still low and manageable. But once the first shipments of iron ore arrived from Tiandu next year, coke would immediately become a bottleneck for the steel industry.
+Upon arriving in Qiongzhou, Lin wasted no time. Staff transferred from Leizhou and new escorts from Guangdong arrived in waves, and renovations on the grain shop proceeded rapidly.
 
-After Lin Baiguang's arrival in Qiongzhou, the managers and clerks transferred from Leizhou, as well as the escorts brought in from Guangdong, arrived one after another. Renovations of the property proceeded apace.
+While the station took shape, Lin directed his agents to dig deeper. Chen Tong intensified his infiltration of the Hai household, while Gao Di surveyed the broader social fallout.
 
-During this interval, Lin Baiguang instructed Chen Tong to intensify the infiltration of the Hai household to stay abreast of firsthand developments. He dispatched Gao Di to conduct a general survey of local social conditions.
+The report, delivered a week later, was promising. Hai Shuzu’s ill-fated trading voyage had been funded by fifty-one households totaling ninety shares. Hai himself held twenty-three. The investors were a motley crew: clan members, relatives, friends, and small merchants blinded by dreams of Western Ocean riches. Even household servants had pooled their meager savings to buy slivers of equity.
 
-After seven or eight days, the information gathered was encouraging for Lin Baiguang. Hai Shuzu's fund-raising effort to build a ship and trade at Batavia had drawn investments from fifty-one households in money or goods, totaling ninety shares. Hai Shuzu himself held twenty-three. The composition of these fifty-one investors was highly complex: members of the Hai clan, relatives, friends, small local merchants attracted by the promise of profits from Western trade—even household servants from the Hai family and other households who had pooled their savings to collectively take four shares.
+For the small investors, the loss was catastrophic. Many had bet their life savings—their "coffin money"—on this venture. "Limited liability" was a foreign concept to them; they saw only ruin. Daily, they besieged the Hai residence, weeping and demanding restitution.
 
-Among the ninety shares, such minor investors were numerous; some held only half a share. Hai Shuzu's failed venture dealt these small shareholders a devastating blow—many had staked their entire life savings, their coffin money, on this "investment." These small investors, with virtually no capacity to absorb risk, were hardly about to accept a phrase like "maritime trade carries risk; invest with caution" and quietly nurse their wounds or jump off a bridge. Nor did they understand concepts like "limited liability." Instead, they descended on the gates of the Hai residence daily, creating uproarious scenes and demanding repayment.
+For Hai Shuzu, who prized his family’s reputation above all else, the public spectacle was agonizing. Engaging in commerce was already considered beneath the dignity of a scholar; this failure turned a quiet disgrace into a loud scandal.
 
-For Hai Shuzu, who placed great importance on family reputation, this was tantamount to a public slap in the face. Engaging in maritime commerce was already considered undignified among the literati; now this scandal only made his humiliation worse.
+But shareholders were only the first wave. To build such a massive ship, Hai Shuzu had taken high-interest loans. Now the creditors were circling.
 
-His troubles did not end there. Besides the shareholdings, there were also loans—otherwise he could never have built such a large seagoing vessel. Loans naturally carried interest, and the rates were not low. When creditors heard the ship had been seized by pirates, they too showed up at his door to dun him.
+Worst of all were the families of the passengers—small peddlers and traders who had booked passage on the ship. Though most had been rescued by the transmigrators and had even recouped some losses through trade in Lingao, many had still lost capital, and some had lost lives. Widows and orphans wailed at the gates, demanding Hai Shuzu "return their husbands and fathers."
 
-Worst of all was a third group: neither shareholders nor creditors, but small peddlers who had been passengers on the Hai family's ship. Most of them had been rescued by the transmigrated collective and not only survived but recouped some of their financial losses. Yet many had lost both loved ones and capital. Widows and orphans, hair disheveled, came to his gates to wail and demand he "return our lives."
+"There is no defense against that kind of grief," Lin Baiguang sighed. "Maritime trade is not for the faint of heart."
 
-"There really is no defense against this," Lin Baiguang sighed. "Maritime trade truly is not for the faint of heart."
+"As the saying goes, 'People see the thief eating meat, not the thief getting flogged,'" Gao Di remarked. "I saw plenty of it when I served Master Gao. Men ruined by a single storm, stranded in foreign lands, or stripped of everything by pirates. Even Master Gao lost ships and tens of thousands of taels over the years."
 
-"Master, as the saying goes, people only see the thief eating meat, never the thief taking a beating," Gao Di remarked. "Many have ruined themselves in maritime trade. I heard Master Gao speak of it often when I worked in his household—some perished at sea, some lost everything, others lost their capital and were stranded abroad unable to return home… Even Master Gao himself has lost ship and cargo several times, totaling tens of thousands of taels."
+Lin nodded. The risks were immense, compounded by the terrifying custom of unlimited liability. A merchant's personal assets were never safe from his business debts. A single failure could mean total annihilation.
 
-Lin Baiguang nodded. The accidental risks of maritime trade were simply too great, and what made it even more terrifying was the commercial custom of "unlimited liability"—all of one's public and private assets could be seized to satisfy debts. A single failed venture could leave a merchant utterly broken, never to recover.
+Hai Shuzu knew this. As a descendant of Hai Rui, the paragon of integrity, his bankruptcy would be more than personal ruin—it would be a stain on a revered legacy.
 
-Hai Shuzu was of course well aware of this terrible outcome. And he was, after all, a descendant of Hai Gong—the famous Hai Rui. If he were to fall so low, it would not merely be a matter of personal gain or loss; it would disgrace his family name.
+"What is the state of the Hai family's assets?" Lin asked.
 
-Lin Baiguang could easily imagine Hai Shuzu's current state of mind.
+"An empty shell," Chen Tong replied. "Apart from two hundred *mu* of clan ritual land, they hold less than two hundred *mu* of private fields. Movable property is negligible. Hai Rui was famous for his poverty—he couldn't even afford a coffin when he died. His descendants have maintained that tradition."
 
-After long deliberation, he asked Chen Tong, "What is the state of the Hai family's assets?"
+To uphold their ancestor's reputation, the Hai family had eschewed the darker methods of wealth accumulation common among the gentry—land annexation, usury, and litigation racketeering.
 
-"An empty shell," Chen Tong replied. Besides two hundred *mu* of ancestral ritual land held by the clan collectively, the Hai family possessed fewer than two hundred *mu* in private holdings. Movable property was negligible—Hai Rui had been renowned for his incorruptibility, so poor at his death that he could not afford a proper coffin. Naturally, his descendants had little by way of wealth.
+"Remarkable," Lin exclaimed. "Truly worthy descendants of Hai Gong."
 
-Because the family had produced such a celebrated figure known for integrity, and in order to safeguard the family's reputation, the Hais avoided the underhanded money-making schemes commonly employed by local gentry.
+"Indeed," Chen Tong agreed. "The locals say this calamity is a tribulation decreed by fate."
 
-"Truly remarkable!" Lin Baiguang exclaimed. "Worthy descendants of Hai Gong indeed."
+"If they can weather this storm, they may yet prosper," Lin said enigmaticallly. "It depends on whether Hai Shuzu has the vision to seize a lifeline."
 
-"Just so," Chen Tong agreed fervently. "Everyone's saying this is a tribulation decreed by fate."
+He turned to Gao Di. "Go and investigate the creditors. Find out if they are willing to sell the Hai family's promissory notes."
 
-"If the Hai family can weather this calamity, they will surely prosper," Lin Baiguang remarked obliquely. "It all depends on whether Hai Shuzu has the necessary discernment."
+Gao Di’s eyes lit up. "I understand."
 
-He instructed Gao Di, "Go and find out whether the creditors who lent money to the Hai family might be willing to sell their promissory notes."
+"Don't rush. Drive a hard bargain," Lin cautioned. "Those notes will soon be worthless paper in their hands."
 
-Gao Di understood at once. "I understand."
+Without external aid, Hai Shuzu was effectively bankrupt. Repaying the principal and interest would strip him of everything.
 
-"Don't rush in—drive a hard bargain," Lin Baiguang cautioned. "Hai Shuzu's notes will soon be worth nothing."
+"Handle this discreetly," Lin added. "We aren't buying these debts out of charity, but for leverage. Silence is key."
 
-If Hai Shuzu had no other source of income and no external financial support, he was in effect already bankrupt. Lin Baiguang did a rough mental calculation: repaying debts and interest alone would be enough to make him lose everything.
+Meanwhile, Hai Shuzu had fled to Guangzhou to escape the storm. He was at his wit's end. Since the news of the piracy broke, he hadn't slept a full night. Survivors trickling back had brought fragmented accounts: pirates, a battle, rescue by the "Australians." It wasn't until his navigator returned with a letter and gifts that the full picture emerged.
 
-"This matter of buying up debts must be handled discreetly," Lin Baiguang admonished Gao Di.
+The Australians had invited him to Lingao to reclaim his ship. He wanted to go—it was his only hope of recovering capital—but fear held him back. His family warned him it was a trap, a kidnapping scheme by foreign devils.
 
-He was not buying the debts out of charity but to use as leverage. If word got out, it would benefit neither party.
-
-At this moment, Hai Shuzu had fled altogether to Guangzhou. He was at his wits' end. Ever since his ship was plundered in the strait, he had not slept a single peaceful night. Some of those aboard had gradually returned, and from their mouths he learned only that the ship had been attacked by pirates in the Qiongzhou Strait. Fortunately, the Australians from Lingao had come to their rescue and everyone escaped with their lives; they had even managed a bit of trade in Lingao. The five-masted ship had also been towed there for salvage. Because the manager Hai Shuzu had sent along with the ship had died, he dared not put much faith in the accounts of the small traders and sailors. It was not until the ship's navigator returned, bearing a letter and gifts from the Australians, that he learned the details.
-
-Invited to come in person to Lingao to reclaim ship and cargo, Hai Shuzu had hesitated—not because he didn't want to go. Going to Lingao at least offered a sliver of hope of recovering some capital; staying put was simply awaiting doom. But his family and friends urged him not to go, warning that the Australians might be baiting a trap to kidnap him for ransom.
+Paralyzed by indecision and hounded by creditors, the descendant of Hai Rui found himself cornered, waiting for a miracle—or the end.
 
 (End of Chapter)

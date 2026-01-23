@@ -1,73 +1,79 @@
 # Chapter 569 - Malaria Strikes
 
-The blasting accident's zero fatalities was luck, but luck couldn't last forever. In the feverish atmosphere of the Elders pushing to extract iron ore at all costs, safety incidents occurred regularly. Almost every day brought workplace accidents.
+Luck is a finite resource. The blasting team had escaped disaster, but the rest of the project was not so fortunate. In the feverish drive to extract iron ore, safety protocols were trampled by the march of progress.
 
-When the Mechanical Works rushed production, the result was products manufactured by native workers going directly to Sanya. Combine that with hastily trained native operators whose skills were unpolished and safety awareness weak, and the high accident rate was unsurprising. Within the first week, two boilers exploded, killing eleven. Then an automatic brick-making machine threw parts during operation, killing one and injuring several.
+Workplace accidents became a daily ritual.
 
-Injuries and deaths from careless machine operation happened every few days. On average, the site was killing 0.778 people per day. This was still near the beaches—once they moved inland, wouldn't the death toll climb higher?
+The rush orders from the Mechanical Works meant that equipment arrived in Sanya fabricated by hastily trained apprentices. These machines were then operated by equally green native laborers. The result was carnage.
 
-Wang Luobin had no interest in Zhuo Tianmin's proposal to "reduce workload and strengthen safety education."
+In the first week, two boilers exploded, killing eleven. An automatic brick-making machine disintegrated during operation, shrapnel killing one man and maiming several others.
 
-"What we need now is iron ore. More iron ore," Wang Luobin said. "Deaths are up, yes, but will education really help?"
+The death rate stabilized at a chilling 0.778 persons per day. And this was on the relatively benign coast. What would happen when they pushed into the mountains?
 
-"Our mission is to extract iron ore as quickly as possible. Everything must center on that goal."
+"We need to slow down," Zhuo Tianmin argued. "Strengthen safety education. Reduce the workload."
 
-Zhuo Tianmin still hesitated. Wang Luobin added: "Have them reinforce education during meals and before sleep. Assign some people as construction safety officers."
+"We need iron ore," Wang Luobin countered, his face set like stone. "Deaths are rising? Yes. Will education stop a boiler from blowing? No. Our mission is iron. Everything else is secondary."
 
-"And the quality of the machines—this is treating lives carelessly!" Zhuo Tianmin was indignant.
+"This is treating human lives as consumables!" Zhuo Tianmin's voice rose.
 
-"We can submit a report on this issue to the Manufacturing Supervisor," Wang Luobin said noncommittally.
+"This is National Destiny," Wang Luobin said quietly. "If we fail here, everyone dies eventually. Write a report to the Manufacturing Supervisor if it makes you feel better. We can co-sign it."
 
-Zhuo Tianmin wanted to press further, but realized even if he pushed, there would be no results. Wang Luobin would never agree to any measures that slowed construction. After all, Project Giant was being called a "matter of national destiny" in the newspapers. If he went against the current, he'd only smash his own head.
+Zhuo Tianmin swallowed his anger. He knew Wang Luobin was right, in the cold calculus of survival. He wrote the report.
 
-"Then let's write a report," Zhuo Tianmin said. "I'll write it."
+But morale was plummeting. The laborers were terrified.
 
-"We can co-sign this report," Wang Luobin said. "As for morale issues, we can take other measures to comfort everyone."
+"We need to do something for them," Wang Luobin conceded. "He Fanghui, find a cemetery site."
 
-So the next day, He Fanghui received an assignment: find a cemetery site.
+"A cemetery?"
 
-"The terrain should be high and dry. Surroundings should be scenic," Wang Luobin instructed. "See if there's anyone among the natives who's been a fengshui master. Take him along."
+"Yes. A nice one. High ground, good fengshui. Burying the dead in shallow graves scares the living. Make it a park."
 
-"For burying laborers?"
+He Fanghui found a gentle slope overlooking the sea. He cleared the brush, planted flowers, and laid out flat stone markers in the style of the Cuigang Martyrs' Cemetery. It was a beautiful place to be dead.
 
-"Of course. Burying the dead wherever they fall is bad for morale. The dead don't really care, but the living can't handle it."
+Yet posthumous honors did not stop the bleeding. The Yulin-Tiandu railway line was a meat grinder.
 
-After considerable effort, He Fanghui found a suitable gentle slope. The cemetery would follow Cuigang's model—no mounds, just flat stone tablets flush with the ground. Grass lawns, trees and flowers all around, made to look like a park.
+The route winded through subtropical jungle where the air hung heavy and wet. Casualties from landslides and falling timber were common, but the true torment came from the wildlife.
 
-He Fanghui brought in labor teams for clearing and construction. After more than ten days, it took some shape. After a brief memorial service, the first batch of deceased laborers' ashes were buried there. Those drowned or killed in explosions had symbolic graves with articles of clothing.
+Leeches. Millions of them.
 
-Yet the posthumous honors couldn't stop mounting casualties. The Yulin-Tiandu railway construction accounted for the vast majority of workplace injuries. The route passed through subtropical jungle and valleys with complex geological conditions. Casualties from falling rocks, toppling trees, and landslides were numerous.
+They dropped from trees; they crawled up boots. The Construction Command issued multi-layer "anti-leech socks" and tubes of salt, but it wasn't enough.
 
-The leeches caused enormous trouble. The transmigrator collective could only take protective measures—laborers were issued multi-layer anti-leech socks. Trouser legs, sleeves, and necks were all covered. Everyone received a tube of salt.
+Shan Daoqian declared war on the jungle. He employed a scorched-earth policy: bulldozers stripped the earth bare for fifty meters on either side of the track. Flamethrowers and brush fires incinerated the undergrowth. Drainage ditches were dug to dry out the breeding grounds.
 
-Shan Daoqian employed crude physical methods, using bulldozers, blasting, and burning to destroy leech habitats. He ordered all vegetation within fifty meters of the route stripped, supplemented by terrain modification including raising the roadbed and digging drainage ditches.
+Laborers worked in sweltering 30-degree heat, bundled in layers of protective clothing, choking on the smoke of burning *qinghao* (wormwood) designed to repel mosquitoes.
 
-Drainage was the primary concern—elimination not just leeches but also mosquito breeding grounds. Every day, laborers went to work bundled up, laboring in nearly 30-degree temperatures. They rotated rest every hour. Smoke from burning qinghao wormwood drifted everywhere to repel mosquitoes.
+Meter by meter, the rails extended. A coal-gas locomotive chugged back and forth, bringing food, ammo, and fresh bodies to the front.
 
-The roadbed extended meter by meter. A locomotive powered by coal gas pulled flatbed trains along the just-laid track, bringing replacement laborers, food, medicine, and materials to the front lines.
+But the jungle had a weapon they couldn’t bulldoze.
 
-But the most severe test was yet to come. Finally, cases of "shaking fits" appeared. Hippo, assigned for health work, visited the ward: six patients, some pale and shivering, others flushed and sweating. Classic malaria symptoms.
+Forty days after the landing, the first cases appeared.
 
-"This is malaria," Hippo concluded. "Isolate them first. Put mosquito screens on the windows."
+Dr. Hippo walked into the field hospital ward. Six patients lay on the cots. Some were shivering violently under heaps of wool blankets, helpless against an internal chill. Others were flushed crimson, sweating through their sheets.
 
-"Yes, Doctor." Serving as head nurse was Guo Fu. She was now core nursing personnel. The Health Department was considering training her as the first native doctor.
+"Shaking fits," the natives called it.
 
-"Tomorrow you'll hold a meeting with health workers," Hippo continued. "Have them inspect each camp's mosquito prevention. Those with mosquito nets should hang them properly. Barracks without nets must install window screens. Qinghao must be burned 24 hours a day."
+"Malaria," Hippo pronounced the death sentence. "Isolate them. Screens on the windows. Now."
 
-"Second—distributing antimalarial drugs to health workers you must do personally, ensuring every one takes medication on time. Including yourself."
+"Yes, Doctor."
 
-"Third—though the Army and Navy have their own health workers, you should still inspect and supervise them. Especially the Army—they often venture inland."
+Head Nurse Guo Fu moved efficiently to carry out the orders. She had become indispensible, and the Health Department was already grooming her to be the first native-trained physician.
 
-"Assign two nurses specifically to care for malaria patients. Regular medication goes without saying. Watch for keeping them warm, cooling them down, and hydration. Give patients Grade 1 sick rations."
+"Tomorrow, summon all health workers," Hippo instructed, lighting a cigarette to mask the smell of sickness. "Inspect every camp. Mosquito nets must be hung properly. No net? Screens. No screens? Burn wormwood 24 hours a day."
 
-"Our difficulties are just beginning." Hippo pulled a cigarette. Guo Fu lit it. "It's been about 40 days since D-Day. The malaria incubation period is passing. Soon we'll face an outbreak peak."
+"Prevention is key," he continued. "You will personally oversee the distribution of antimalarials. Watch them swallow the pills. That includes yourself."
 
-"With you here, Doctor, any difficulty can be overcome." Guo Fu wore an expression of complete trust.
+"I understand."
 
-"I'm not a deity." Hippo smiled bitterly. Antimalarial drug reserves were finite—would they be enough?
+"Assign two nurses just for these six," Hippo sighed, exhaling smoke. "Keep them warm during the chills, cool during the fever. Hydrate them. Give them Grade 1 sick rations."
 
-"Doctors aren't deities, but divine healers." Guo Fu smiled sweetly. That smile made Hippo's heart flutter.
+He looked out the window at the green hell of the jungle. "This is just the beginning. We're past the incubation period. The peak is coming."
 
-The news of malaria cases drew the command's attention—this had been everyone's primary concern. An emergency meeting was held inside Yulin Stockade to discuss countermeasures. If large numbers of laborers fell ill, that alone would delay the development schedule.
+"With you here, Doctor, we can overcome anything," Guo Fu said, her eyes shining with absolute trust.
+
+"I'm not a god, Guo Fu." Hippo smiled bitterly. His stockpile of drugs was finite. The mosquitoes were infinite.
+
+"Doctors aren't gods," she smiled, a sweet expression that made his heart skip a beat. "But they are close enough."
+
+The news of the outbreak hit the Command Post like a bomb. An emergency meeting was called. If the workforce collapsed, Project Giant would grind to a halt. The real war for Sanya had just begun.
 
 (End of Chapter)

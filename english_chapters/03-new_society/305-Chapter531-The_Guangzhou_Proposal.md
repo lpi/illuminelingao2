@@ -1,69 +1,75 @@
 # Chapter 531 - The Guangzhou Proposal
 
-"Where exactly do we get this 'sand' from? Being an escort requires specialized training; you can't just round up any refugees to do the job," Zhang Yuchen asked.
+"Where exactly do we source this 'sand'?" Zhang Yuchen asked, frowning. "Escort work demands specialized training. You can't just round up refugees and expect them to perform."
 
-"Not ordinary refugees, of course—proper personnel trained in Lingao," Yan Maoda said. "Isn't there an escort from Rising Power named Zhou Shizhai, currently serving as a guest adviser in the Public Security department? Boss Sun speaks highly of him; he knows all the tricks of the escort trade. Let him handle the professional training. The men we train will gradually be inserted as we establish 'external counters,' and eventually we'll break up that little Jiangxi clique inside Rising Power Escort Agency. Some of them should ideally be absorbed into other departments in Lingao."
+"We won't use ordinary refugees. We need proper personnel trained in Lingao," Yan Maoda replied. "Remember Zhou Shizhai from Rising Power? He's serving as a guest adviser in Public Security now. Boss Sun speaks highly of him; the man knows every trick in the escort trade. We should have him handle the professional training. As we establish our commercial fronts, we'll gradually insert these new men, eventually breaking up that insular Jiangxi clique currently running Rising Power. Ideally, we'll absorb some of them into other departments in Lingao."
 
-"No need to worry about Rising Power getting ideas. We control the finances right now. What good does their solidarity do? The moment Delon freezes their accounts, Rising Power shuts down," Meng Xian said, unconsciously stroking the whiskers he had just begun to grow. As the increasingly prominent chief manager of Delon Bank in Guangzhou, he had to look more mature—lest major clients find him too young and unreliable.
+Meng Xian, the increasingly prominent chief manager of the Delon Bank in Guangzhou, absently stroked his new whiskers. He was growing them out to counter his youthful appearance, which sometimes made major clients hesitate. "No need to worry about Rising Power getting ideas," he said. "We control the purse strings. What good is their solidarity? The moment Delon freezes their accounts, Rising Power shuts down."
 
-"Who freezes their own account?" Zhang Xin laughed. "Old Yan, are you being paranoid? Rising Power today is nothing like the old Rising Power. Without our management, Sun Kecheng probably can't even keep track of all the enterprises under Rising Power's name, let alone run them."
+Zhang Xin laughed. "Who freezes their own account? Old Yan, aren't you being paranoid? Creating a crisis where there is none. Rising Power today isn't the agency of the past. Without our management, Sun Kecheng probably couldn't even list all the enterprises under his banner, let alone run them."
 
-The "external-counter" properties under Rising Power's banner—inns, restaurants, warehouses, logistics, shipping—were now under Yan Maoda's control. Escort agencies traditionally operated ancillary businesses like warehouses and mule-and-horse inns, but neither their business philosophy nor their management could compare with modern people. As the Guangzhou Station continuously expanded its investments, this segment had been completely taken over by Yan Maoda. Sun Kecheng did not mind—after all, he and his people were martial-arts men, with little aptitude for commerce. As long as the Australian managers were willing to invest and expand Rising Power, he could sit back and share in the profits while finding decent jobs for his townsmen, relatives, and fellow disciples. Why not?
+The commercial properties nominally under Rising Power—inns, restaurants, warehouses, logistics, and shipping—were now firmly under Yan Maoda's control. While escort agencies traditionally operated ancillary businesses like warehouses and mule inns, their antiquated business philosophy and management style could not compete with modern methods. As the Guangzhou Station expanded its investments, Yan Maoda had completely subsumed this sector. Sun Kecheng didn't mind; he and his men were martial artists, not merchants. As long as the Australian managers continued to invest and expand the business, he was content to sit back, share the profits, and find decent jobs for his townsmen and relatives.
 
-"Exactly!" Meng Xian said brashly. "Financial and managerial authority are both in our hands. Sun Kecheng only controls the escort corps."
+"Exactly!" Meng Xian added brashly. "Financial and managerial authority are in our hands. Sun Kecheng only controls the muscle."
 
-"I never said Rising Power would get ideas. Old Sun is very reliable. But local cliques are harmful to the whole," Yan Maoda said, picking up a water pipe. In Guangzhou's wealthy households, fashionable paper cigarettes were already in vogue, but Yan Maoda had gone native and switched to a water pipe. This one alone was worth over fifty taels: the finest white copper, engraved with intricate patterns, inlaid with small pearls, crystals, and agates—all crafted by the jewelers of Purple Treasure Studio for their own boss. Since it was winter, a delicate Eight-Treasure openwork embroidered silk cover slipped over it—painstakingly stitched in imitation of palace patterns over a month by Yan Maoda's chambermaid.
+"I never said Rising Power would revolt. Old Sun is reliable. But local cliques are harmful to the organization," Yan Maoda said, picking up a water pipe. In Guangzhou's wealthy circles, fashionable paper cigarettes were in vogue, but Yan Maoda had gone native. His pipe was a masterpiece worth over fifty taels: fine white copper engraved with intricate patterns and inlaid with pearls, crystal, and agate—crafted by the master jewelers of Purple Treasure Studio. A delicate Eight-Treasure openwork silk cover, painstakingly stitched by his chambermaid over a month, protected it from the winter chill.
 
-He took up a paper spill, hand-rolled by the maidservants and scented with jasmine, lit it from a candle, and lit the pipe himself—outside, a young servant would handle this task; in the mansion, a personal maid; but in the safe house, no one could put on airs; everyone did things themselves. He took a few puffs, exhaled smoke, and continued:
+He lit a jasmine-scented paper spill from a candle and unified flame and tobacco himself. Outside, a servant would handle this; in the mansion, a personal maid. But here in the safe house, they dropped the pretenses.
 
-"Rising Power's situation has to be resolved. This whole crew of escorts is now deployed across our various enterprises for security work. Whether they're reliable is critical." He took another drag. "There's another consideration. We sell so-called 'Australian goods'; our connection to Australian merchants—or that we ourselves are Australians—is already an open secret among Guangzhou's wealthy. The moment Lingao clashes with the Great Ming, Rising Power's stance becomes uncertain! If they turn on us—though Boss Sun and his core brothers are honorable, the agency's scale has expanded so fast that too many new people have come in; there's no telling if a few rogues have slipped in—or if Sun is forced to distance himself from us, our entire network in Guangdong is finished."
+He took a few deep puffs, exhaling a plume of smoke. "Rising Power's status must be resolved. Their escorts are deployed across our various enterprises for security. Their reliability is critical." He paused for another drag. "There's a deeper concern. We sell 'Australian goods'; our connection to the Australian merchants—or the fact that we *are* Australians—is an open secret among Guangzhou's elite. If Lingao clashes with the Great Ming, Rising Power's stance becomes uncertain. Sun and his core brothers are honorable, but the agency has expanded too fast. Who knows if rogues have slipped in? If Sun is forced to distance himself from us, our entire network in Guangdong collapses."
 
-The other three nodded. This was indeed a worrying matter. Zhang Xin said, "I think we need to standardize a few talking points. First, we are not Australians—that must be stated categorically."
+The other three nodded grimly.
 
-This needed no elaboration; everyone knew the stakes. Besides, they now had formal Great Ming household registrations. To continue claiming to be some kind of overseas person would only invite trouble.
+"I think we need to standardize our narrative," Zhang Xin said. "First, we must categorically deny we are Australians."
 
-"Second, regarding the source of the Australian goods—there's no need to hide it; it comes from Lingao. The news of Lingao's great iron ship and the Gaoguang Shipping runs between the two places is no longer much of a secret in the Guangzhou area."
+This went without saying. They now held formal Great Ming household registrations; claiming overseas origin would only invite disaster.
 
-Guo Yi said, "We've all thought about this. I wonder if we should split Rising Power up a bit, rather than hanging everything under its banner. Rising Power's ties to the three Purple-family enterprises in Guangzhou are too close; any observer can see our special relationship with them." He sipped his cold tea. "If the Guangzhou Station ever has to go underground or withdraw, Rising Power will certainly be implicated."
+"Second, regarding the source of goods—there's no need to hide it. It comes from Lingao. The news of Lingao's great iron ship and the regular Gaoguang Shipping runs is hardly a secret in Guangzhou anymore."
 
-Yan Maoda nodded. "Right! Going forward, our national expansion should not use the Rising Power name either. Once we've openly broken with the Great Ming, we should quickly take Guangdong and Guangxi, but pushing further north won't happen overnight."
+"We've all considered this," Guo Yi interjected, sipping his cold tea. "I wonder if we should fragment Rising Power rather than hanging everything under one banner. Their ties to the three Purple-family enterprises are too visible. Any observer can see the connection. If the Guangzhou Station ever has to go underground or withdraw, Rising Power will be implicated."
 
-The group pondered how to reorganize Rising Power. Zhang Xin said, "Why don't we submit a reorganization proposal for Rising Power at the General Assembly?"
+Yan Maoda nodded. "Correct. Moving forward, our national expansion shouldn't use the Rising Power name. Once we've openly broken with the Ming, we should move quickly to secure Guangdong and Guangxi, but pushing north won't happen overnight."
 
-"That's off-topic," Meng Xian waved dismissively. "The Assembly is for electing a new Executive Committee and setting grand policy. What grand policy does Rising Power Escort Agency count as? That's operational detail."
+The group debated how to restructure the agency.
 
-"Whether it counts or not, bringing a few proposals is better than arriving empty-handed," Guo Yi said. "It shows we take the General Assembly seriously."
+"Why don't we submit a reorganization proposal for Rising Power at the General Assembly?" Zhang Xin suggested.
 
-Yan Maoda smiled. "Actually, we have a much better proposal." He paused. "It's about Xiao Guo's status—and the other people swept in by accident. They can't stay 'temporary' forever; there should be a formal ruling."
+"That's off-topic," Meng Xian waved a hand dismissively. "The Assembly is for electing a new Executive Committee and setting grand strategy. Rising Power's internal structure is an operational detail."
 
-Zhang Xin nodded repeatedly. "Yes, yes—now that's a major issue."
+"Whether it counts or not, bringing proposals is better than arriving empty-handed," Guo Yi argued. "It shows we take the General Assembly seriously."
 
-Meng Xian said, "I absolutely support Guo Yi receiving the same treatment as everyone else: voting rights and shareholding. Anyone who disagrees can go screw themselves."
+Yan Maoda smiled. "Actually, we have a much better proposal." He paused for effect. "It concerns Xiao Guo's status—and others in his situation. They can't remain 'temporary' forever. We need a formal ruling."
 
-"Xiao Meng, that's not appropriate…" Hearing Meng Xian curse on his behalf, Guo Yi feared he might let it slip at the Assembly and seriously damage his own reputation.
+Zhang Xin nodded vigorously. "Yes, that is a major issue."
 
-"Given the Guangzhou Station's record over the past year and more, everyone can see. If someone with such great contributions still can't be called a comrade, who can?" Yan Maoda said. "Anyone who opposes your equal rights, I'd say, is thoroughly rotten."
+"I absolutely support Guo Yi receiving the same treatment as everyone else: full voting rights and shares," Meng Xian stated. "Anyone who disagrees can go screw themselves."
 
-Pepi parted her cherry lips: "Xiao Guo is the best. Why shouldn't he get equal treatment? If anyone makes trouble, I'll go find Director Ma!" With that, she swayed her slender waist and struck a pouting pose.
+"Xiao Meng, that's not appropriate…" Guo Yi murmured, worried that Meng Xian's foul language might slip out at the Assembly and damage their cause.
 
-Zhang Xin laughed. "Exactly. Xiao Guo has long deserved this qualification. In my view, the two from ATF and the four members of the Ming family should also have equal rights. Never mind the size of their contributions—we all came on the same boat. As long as someone isn't actively sabotaging, in this timeline we should all be in the same boat. There's no reason to artificially distinguish 'permanent' from 'temporary.'"
+"Given the Guangzhou Station's track record over the past year, the results speak for themselves. If someone with such contributions isn't a comrade, who is?" Yan Maoda said. "Anyone opposing your rights is rotten to the core."
 
-Zhang Yuchen said, "I agree. We've crossed into another timeline—are we really still going to have regular workers and temporary workers?"
+Pepi pursued her lips. "Xiao Guo is the best. Why shouldn't he be equal? If anyone makes trouble, I'll go find Director Ma personally!" She struck a pose, hands on her slender hips.
 
-Guo Yi was momentarily touched by his comrades and offered a few words of thanks. Then he said, "What worries me is that some people at this General Assembly may try to make an issue of our living standards. Does anyone have a strategy for that? If someone raises questions at the Assembly, we need an answer."
+Zhang Xin laughed. "Exactly. Xiao Guo earned his place long ago. In my view, the two from ATF and the four members of the Ming family should also have equal rights. Forget the size of the contribution—we all came on the same boat. Unless someone is actively sabotaging us, we should all be equal. There's no reason to artificially distinguish 'permanent' from 'temporary' in this timeline."
 
-Everyone around the table fell silent. In terms of creature comforts, the Guangzhou Station staff were probably the best-off among all transmigrators—including the newcomer Meng Xian. Because they all posed as major merchants, their lifestyles naturally could not appear shabby, and all the necessary trappings were in place. As for the woman problem—the issue causing the greatest uproar—in Guangzhou it was not even an issue. Apart from Guo Yi, who was relatively cautious and had taken in only one chambermaid, Yan Maoda and Zhang Xin had each taken two chambermaids. Meng Xian, young and vigorous with strong appetites, had already taken in four maids and concubines. Zhang Yuchen, having feelings for Zhang Yu, had secretly taken in only one.
+"I agree," Zhang Yuchen said. "We've crossed into a new world—are we really going to maintain a caste system of regular and temporary workers?"
 
-"According to Zhang Yu, Chang Shide in Leizhou has become a target for many people—just because he has several women around him," Zhang Yuchen said. "Some are accusing him of embezzlement—buying women with public funds, using public position for private gain, and so on. The fire is intense. Someone has already proposed a hearing, demanding he explain the matter in person. When the Assembly convenes, he'll have a tough time getting through."
+Guo Yi was touched by their support. He offered a few words of thanks, then pivoted back to business. "What worries me is that some people at the Assembly may attack our lifestyle. Does anyone have a strategy for that? If questions explain our spending, we need an answer."
 
-"To be honest, Old Chang's situation is nothing!" Zhang Xin was indignant on his behalf. "How much could a few women have cost him? Besides, opening a station in Leizhou was always going to require buying some servants for housework—it's just incidental. I'll say something that doesn't sound nice: if you don't sleep with a woman a few times and 'break her in,' she'll feel you don't trust her."
+Silence fell around the table. In terms of comfort, the Guangzhou Station staff were likely the most privileged of all transmigrators. Even Meng Xian, a newcomer, lived like a lord. Posing as major merchants required a certain level of opulence; they couldn't appear shabby. But the "woman problem"—the issue causing the greatest uproar back in Lingao—was hardly a blip in Guangzhou.
 
-Meng Xian nodded vigorously. "Shiba! (This is a Korean exclamation.) Exactly right. Take my maids—before I bedded them, they were all like wooden dummies…"
+Guo Yi was relatively cautious, keeping only one chambermaid. Yan Maoda and Zhang Xin each had two. Meng Xian, young and vigorous, had already acquired four maids and concubines. Zhang Yuchen, harboring feelings for Zhang Yu, had discreetly taken only one.
 
-Pepi wrinkled her brow. "Too vulgar. All this 'bedded' talk—can't you men talk about something else?"
+"According to Zhang Yu, Chang Shide in Leizhou has become a target," Zhang Yuchen said. "People are accusing him of embezzlement—buying women with public funds, using his position for private gain. The heat is intense. Someone has already proposed a hearing, demanding he explain himself. He'll have a tough time at the Assembly."
 
-"That's the point," Zhang Xin said with a careless wave. "Even where we came from—if a couple dating reaches a certain point and doesn't go to bed, can you really say there's feeling?"
+"Honestly, Old Chang's situation is blown out of proportion!" Zhang Xin said indignantly. "How much could a few women cost? Besides, opening a station in Leizhou requires servants for the household—it's incidental. I'll be blunt: if you don't sleep with a woman a few times and 'break her in,' she'll feel you don't trust her."
 
-"Old Chang is like us. Having women around is normal; not having them would be strange," Yan Maoda said. "I think this is something we should remind the new leadership about—don't split hairs on this issue."
+Meng Xian nodded vigorously. "*Shiba!* Exactly right. Take my maids—before I bedded them, they were like wooden dummies…"
+
+Pepi frowned. "Too vulgar. All this 'bedded' talk—can't you men discuss something else?"
+
+"That's the point," Zhang Xin said, waving his hand carelessly. "Even back in the old world—if a couple dates for a while and nothing happens, can you really say there's feeling?"
+
+"Old Chang is just like us. Having women around is normal here; *not* having them would be strange," Yan Maoda reasoned. "We should remind the new leadership not to split hairs on this issue. We're in the 17th century, after all."
 
 (End of Chapter)

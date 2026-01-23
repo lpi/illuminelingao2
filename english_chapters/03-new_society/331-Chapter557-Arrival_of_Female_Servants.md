@@ -1,77 +1,73 @@
 # Chapter 557 - Arrival of the Female Servants
 
-Upon hearing that Ship A would take a long time to repair, the various parties that had been eyeing it also backed off. Besides the Navy, which was determined to get it, both the Long-Range Exploration Team and the Special Reconnaissance Team were eager to lay claim to the vessel.
+When news broke that Ship A would require extensive, multi-year repairs, the frenzy of interest surrounding it evaporated. The Navy, the Long-Range Exploration Team, and the Special Reconnaissance Team—all of whom had been aggressively jockeying for ownership—quietly withdrew their claims.
 
-During this period before spring arrived, all parties continued the preparatory work for "Project Giant" that had been interrupted by the General Assembly. To ensure the workers and immigrants about to board ships and do hard labor remained ideologically steadfast, various relevant departments went into high gear to "strengthen convictions." The puppet theater troupe rehearsed a new play called *The Land of Bliss* with the theme of developing wilderness and establishing a beautiful new homeland, performing it repeatedly on tour.
+With spring approaching, the machinery for "Project Giant" roared back to life, picking up where the General Assembly had left off. To ensure the ideological fortitude of the laborers and immigrants destined for the harsh southern frontier, the propaganda apparatus went into overdrive. The puppet theater troupe debuted a new production titled *The Land of Bliss*, designed to instill a pioneering spirit and a vision of a utopian homeland.
 
-The puppet play's script was loosely based on the Soviet novel *Virgin Soil Upturned*, heavily copying its characters and plot elements, though naturally the setting was transplanted to Australia.
+The script was a localized adaptation of the Soviet novel *Virgin Soil Upturned*, keeping the core narrative arc but transplanting the setting to the untamed wilds of Australia.
 
-The puppet play depicted "vast Australian wilderness where a group of landless, poor farmers who had drifted to Australia, under the leadership of Australian leaders, cleared the land, fought against nature, established farms, planted endless fields of wheat and rice, raised many cattle and sheep, and the people lived happily ever after."
+*The Land of Bliss* depicted a vast, fertile Australian wilderness where a group of destitute, landless farmers, guided by benevolent "Australian leaders," tamed the savage land. They battled the elements, established thriving collectives, harvested endless fields of golden wheat, and raised fat cattle, living happily ever after in a worker's paradise.
 
-Of course, there was no shortage of "Australian leaders" who constantly grasped the correct direction, united the masses, educated backward elements, and resolutely struggled against hostile elements. There were hesitant and selfish small farmers, old people full of outdated thinking who refused to make progress, bold and idealistic youth, activists who sacrificed themselves for the collective interest and the leaders' safety... Various bad elements were fully represented as well: from villains who stole public property and caused dams to burst, to insidious "enemies" who stirred up discontent among the masses with ulterior motives, attempting to destroy the people's good life. The enemy was never explicitly identified, but this puppet character spoke in standard official Mandarin and occasionally let slip phrases like "sir," "my lord," and "the Emperor."
+The play was populated by archetypes: the wise "Australian leader" who always pointed the way forward; the hesitant, selfish peasant; the obstinate elder focusing on the past; the fiery, idealistic youth; and the martyr who sacrificed everything for the collective. And, of course, the villains: saboteurs who destroyed dams and stole public grain, and insidious "class enemies" who whispered discontent in the shadows. The enemy was never explicitly named, but their puppets spoke in high official Mandarin and slipped in damning phrases like "My Lord" and "The Emperor."
 
-Ding Ding felt that merely depicting a beautiful future wasn't enough, so *The Trial* was always performed one day and *The Land of Bliss* the next, providing a thorough contrast.
+Ding Ding, feeling that a diet of pure optimism was insufficient, mandated a rotating schedule: *The Trial* one day to remind them of the misery they had escaped, and *The Land of Bliss* the next to show them the paradise they were building.
 
-The infectious power of art was tremendous—the puppet play's effect far exceeded everyone's expectations. Most immigrants were farmers without much worldly experience, but they weren't afraid of hard work. They valued land and stable life above all else. As long as this could be satisfied, it could fully stimulate their maximum enthusiasm.
+The impact was profound. Most immigrants were simple farmers with little worldly experience but an infinite capacity for hardship. Land and stability were their twin gods. The promise of satisfying these primal needs ignited a fanatical enthusiasm that stunned even the propagandists.
 
-While painting a splendid picture of a rosy future in the southern seas for the workers and immigrants, the Planning Council was drafting mortality rate schedules calculated by the week. Death quotas were set based on weekly work tasks and changing conditions.
+While the propaganda department painted rosy pictures of the Southern Seas, the Planning Council was quietly drafting mortality schedules. These were cold, actuarial tables calculating "acceptable death quotas" based on weekly workload projections and environmental hazards.
 
-Death quotas related to the Planning Council's overall planning: how many new laborers needed to be sent to Sanya each week; determined how much grain, clothing, and tools needed to be shipped to Yulin. It also affected the speed of transporting new immigrants from Guangzhou to Lingao and whether the quarantine camp needed to be expanded. In this grand enterprise of developing Sanya, people were merely numbers on a document.
+These quotas were central to the logistical lattice of Project Giant: they determined how many fresh bodies needed to be shipped to Sanya each week to replace the fallen, how much grain and cloth to allocate to Yulin, and whether the quarantine camps in Lingao needed expansion. In the grand calculus of colonial development, human lives were merely integer values in a spreadsheet.
 
-Beyond positive propaganda, internal security work was also strengthened. The Political Security General Administration had established intelligence networks among the workers, constantly feeding back on public sentiment so timely work adjustments could be made. Secret arrests were carried out on "defeatist elements" who spread pessimistic and panicked talk about the Yulin development. Zhou Dongtian conducted interrogations daily to unearth whether these people had any external connections or internal conspiracies. This was a point of great concern to Zhao Manxiong.
+Parallel to the propaganda, internal security was tightened. The Political Security General Administration wove a web of informants throughout the labor camps, monitoring the pulse of the masses. "Defeatist elements"—those spreading rumors or panic about the Sanya expedition—were quietly disappeared. Zhou Dongtian presided over their interrogations, hunting for external handlers or organized conspiracies, a prospect that deeply worried Zhao Manxiong.
 
-Zhao Manxiong didn't believe the Ming Dynasty's spy organizations were sophisticated enough to infiltrate agents into this batch of immigrants for propaganda and organizing activities, but the internal formation of various small cliques among the immigrants required close attention. He specifically emphasized this point in a memorandum to the Sanya Development Leadership Group.
+Zhao Manxiong doubted the Ming intelligence apparatus was sophisticated enough to infiltrate agents into the immigrant pool for complex agitation. His true fear was the organic formation of internal cliques. In a classified memorandum to the Sanya Development Leadership Group, he flagged this as a critical threat.
 
-Regional cliques in particular were very harmful. In his memorandum, he explicitly pointed this out: regional cliques bound by common dialect and customs had strong exclusivity. Once a sizable regional clique formed, it would undoubtedly infringe upon the rights of the less numerous "outsiders"—this was a common occurrence in many places.
+"Regionalism is the cancer of cohesion," he wrote. "Cliques bound by dialect and shared origin possess strong exclusivity. Once such a group reaches critical mass, it inevitably preys on the minority 'outsiders.' This has been the historical norm."
 
-Once regional cliques formed, leader figures would emerge to control the "fellow townsmen" either openly or secretly. Regional cliques would strengthen the tendency to use common dialects. Some dialects were nearly incomprehensible to outsiders, almost like internal "jargon." This not only posed a challenge to the transmigrators' authority but also contained the danger of instability.
+He warned that once these cliques cemented, "elders" or "big brothers" would emerge to control their fellow townsmen. Dialects would harden into secret codes, impenetrable to outsiders and authorities alike. This challenged the absolute authority of the Transmigrator Senate and created pockets of ungovernable instability.
 
-Under the tight control of the transmigrator regime in Lingao, this situation could still be effectively prevented and contained. But once in Sanya, control would be relatively lax. In the harsh environment, people would inevitably engage in activities like "looking for fellow townsmen."
+In Lingao, under the iron grip of the administration, such tendencies were easily crushed. But Sanya would be a frontier town with looser controls. In that harsh environment, the instinct to "seek one's own kind" would be powerful.
 
-Zhao Manxiong drew the Five Bosses of Sanya's attention to the absolute necessity of suppressing any possibility of small cliques forming through hometown connections. If necessary, the most severe measures should be employed to prohibit this, up to and including physical elimination. Among those secretly arrested were workers who had attempted to organize hometown associations. Regardless of their motives, Zhao Manxiong wrote "indefinite labor reform" on all their disposition recommendations.
+Zhao Manxiong urged the Five Bosses of Sanya to be ruthless. "Suppress any formation of hometown associations immediately. If necessary, use physical elimination. We cannot tolerate a state within a state."
 
-But the Political Security General Administration's busiest time was just beginning. They would soon face even more demanding screening and assessment work. At the end of January 1630, ships from Guangzhou brought the long-awaited first batch of "special supplies"—women.
+Accordingly, workers attempting to organize "fellowship societies" were arrested. Regardless of their actual intent, Zhao Manxiong stamped their files with a single sentence: *Indefinite Labor Reform*.
 
-The purchase of women had been arranged by Zhang Xin through the Qiwei Escort Bureau's channels. Sun Kecheng initially had misgivings about this task—it was obvious even without thinking that these women were being bought for the Australians. Purchasing women for foreigners was already a crime, and in traditional thinking, it carried the taint of "separating flesh and blood."
+But the Political Security Bureau's workload was about to spike. At the end of January 1630, a convoy from Guangzhou arrived carrying the most anticipated "special cargo" of the year: women.
 
-Zhang Xin explained to him: this batch of women was all being sent to Lingao, guaranteed not to be shipped to Australia, so it wouldn't "separate flesh and blood." Furthermore, if the women's parents or relatives wished to accompany them, Lingao would make appropriate arrangements for them as well.
+The procurement had been orchestrated by Zhang Xin through the channels of the Qiwei Escort Bureau. Sun Kecheng, the old bureau master, had initially balked at the commission. Buying women for the "Australians"—foreigners, in his eyes—felt sickeningly close to human trafficking, a violation of the traditional taboo against "separating flesh and blood."
 
-Zhang Xin gave repeated assurances and even specifically called Zhou Shizhai back to explain, finally dispelling Sun Kecheng's concerns.
+Zhang Xin had to work hard to dismantle these scruples. "Manager Sun, these women are going to Lingao, not overseas to Australia. They remain on Chinese soil. And if their families wish to accompany them, we will resettle the entire household. There is no separation involved."
 
-"Manager Zhang, please understand!" Sun Kecheng said somewhat apologetically. "You've come from afar and settled in that poor backwater of Lingao. You certainly need women by your side to take care of you. But if we were to take away other people's daughters, separated by ten thousand *li* from Australia, with family never to meet again—we truly dare not commit such a sin."
+It took repeated assurances and a personal intervention by Zhou Shizhai to finally ease Sun Kecheng's conscience.
 
-Zhang Xin thought this was rather pedantic. If sold to wealthy merchants or officials from Beijing, wasn't that also thousands of *li* away, possibly never to meet again? What was all this about "ten thousand *li* apart" and "separating flesh and blood"?
+"Manager Zhang, please understand," Sun Kecheng had said, his face pained. "You gentlemen have come from afar to settle in this backwater. It is natural you need women to care for you. But to take a daughter ten thousand *li* across the ocean, never to see her kin again... that is a sin we dared not commit."
 
-But he knew that old-school escort masters like Manager Sun had their own moral code. If something conflicted with his moral code, Manager Sun would rather not make money than compromise. On the positive side, such a person was honest and reliable; on the negative side, some things became difficult to handle.
+Zhang Xin privately found this moralizing quaint. Was selling a girl to a rich merchant in Beijing really so different? But he respected the old man's code. Men like Sun Kecheng would forfeit profit before honor. That made them difficult to work with, but impossible to buy off.
 
-After his repeated assurances and persuasion, Sun Kecheng finally agreed to handle this matter. However, he declared that escort guards wouldn't do this work; the actual handling would be done by the outer office managers. The standards Zhang Xin gave were: respectable family background, unmarried, under 25 years old, with natural feet.
+Sun Kecheng eventually agreed, with a caveat: his armed escorts would not handle the "cargo." The procurement and transport would be managed by the commercial clerks of the outer offices.
 
-"It's best not to buy from tooth-sellers. Body price no more than ten taels of silver per person. For parents or relatives willing to go along, two taels for resettlement. All persons to be escorted by bureau personnel."
+Zhang Xin laid out the criteria: "Respectable family background, unmarried, under 25, natural feet. No brothel girls or tooth-seller wares. Price cap of ten taels. An additional two taels resettlement fee for any family members."
 
-Sun Kecheng knew that the Australians' aesthetic preferences were tall stature, long legs, slim waist, large breasts, and big eyes, so he instructed capable personnel to procure according to these standards through various outer offices.
+Knowing the Australians favored "northern" aesthetics, Sun Kecheng instructed his agents to look for tall stature, long legs, slim waists, and large breasts.
 
-In the end, over four hundred people were purchased through Qiwei's commercial network from Guangdong, Guangxi, and Jiangxi provinces. This was rough selection. After arriving in Guangzhou, a second screening was conducted according to the Female Servant Countermeasures Committee's standards.
+The dragnet across Guangdong, Guangxi, and Jiangxi netted over four hundred candidates. This was the rough cut. A second, more rigorous screening took place in Guangzhou under the auspices of the "Female Servant Countermeasures Committee."
 
-Under the direct concern of Chairman Wen Desi of the Female Servant Countermeasures Committee, several specialized measuring tools were specially made and distributed to Guangzhou and Leizhou. One type was the "standard height" and "reserve height"—actually two rulers, one 1.60 meters and one 1.55 meters. The latter served as a backup dimension when insufficient suitable candidates meeting the former could be found.
+Chairman Wen Desi took a personal interest in the quality control. He commissioned specialized anthropometric tools: rigid height gauges set to 1.60m (Standard) and 1.55m (Reserve), soft tape measures for bust-waist-hip ratios, and a visual reference chart for body proportions.
 
-This method was simple and intuitive, well-suited for native staff to master, and was a hard requirement. Additionally, three soft tape measures were provided for defining bust, waist, and hip measurements. A height-to-measurements comparison chart was also specially provided, listing qualification standards. The final item was a body proportion scale: some women were quite tall but had overly long torsos.
+The method was brutal but effective. Native staff could simply apply the gauges—pass or fail.
 
-Overall, the standards set by Chairman Wen were quite low—not only was height set at 1.60 meters, but the bust requirement was merely at the B-cup level. Even the body proportions were set quite loosely. As for skin color, no requirement was specified at all, only a general stipulation of "fair complexion." But this, like "big eyes," was a guideline rather than a hard target.
+To the committee, the bar was ostensibly low: 1.60 meters and a B-cup. Skin color was a loose requirement for "fairness." Yet, to the staff on the ground, these standards felt impossibly high. In the nutrition-poor environment of the 17th century, finding women who met these modern aesthetic benchmarks was like searching for needles in a haystack.
 
-Yet this set of standards still made the Female Servant Countermeasures Committee members feel the standards were too high—based on the quality of native women in this timeline they had seen, almost none met everyone's aesthetic standards. If there had to be one, it would be Gao Lujie—and she only qualified on the basis of long legs and a proportionate figure.
+"If we're going to do this, we do it right," Wen Desi insisted when his team wavered. "If we just wanted female bodies, we could pull them from the refugee camps. We are building a gene pool."
 
-"If we're going to do this, we should do it well," Wen Desi said. "Otherwise we could just pull a batch of girls directly from the quarantine camp and distribute them—why bother making purchases on the mainland?"
+"But is there really enough supply..."
 
-"Can we really get this many..."
+"China is vast," Wen Desi said dismissively. "The numbers are there."
 
-"China is vast with a huge population. There will always be qualified ones." Wen Desi wasn't worried about this.
+Of the initial four hundred, only a hundred barely scraped past the committee's inspection. Desperate to fill the quota, the team applied the new standards to Guangzhou's refugee camps, culling another hundred candidates.
 
-Of the more than three hundred transported to Guangzhou, roughly over a hundred barely met the standards. Then, using these standards to select from Guangzhou's refugee camps, they picked nearly another hundred. Thus the first batch of over two hundred was shipped to Lingao, accompanied by over a hundred family members.
+The final shipment to Lingao consisted of two hundred strictly vetted women, accompanied by over a hundred family members. The "rejects" were not discarded; they were simply reclassified as general labor immigrants and shipped out in the next batch.
 
-Those not selected wouldn't be wasted—they would be shipped as reserve personnel afterward.
+The arrival was anti-climactic. After months of heated debate and anticipation, the actual event was met with a strange calmness. The endless arguments on the BBS had burned everyone out.
 
-The arrival of women didn't cause a great stir. After the previous storms of commotion, everyone had become somewhat indifferent to this matter. Even the discussions on BBS about this topic had cooled down.
-
-This batch of women was taken directly under the General Affairs Office's management. A special quarantine camp was established, completely isolated from other camp areas.
-
-(End of Chapter)
+The women were quietly transferred to the custody of the General Affairs Office and housed in a special quarantine camp, hermetically sealed from the rest of the settlement. The real distribution would come later.

@@ -1,77 +1,59 @@
 # Chapter 508 - The Jiazi Coal Mine
 
-After the public's curiosity subsided, the large ship purchased from the Hai family—which had been christened *Qionghai Coal* before setting sail from Lingao—weighed anchor and moved to the Hai family dock. The wharf was already piled high with construction materials: timber, bricks, stone, and lime. These had been purchased by Chen Tong on Lin Baiguang's instructions, intended for building out the dock.
+Once the public sensation faded, the vessel—now christened *Qionghai Coal*—moved to the private Hai family dock. The wharf was already a hive of activity, piled high with timber, stone, and lime purchased by Chen Tong.
 
-Zhang Xingpei had arrived secretly in Qiongshan County several days earlier, accompanied by a construction crew. This team had been personally trained by transmigrators at the Lingao Construction Company. By their skill level, they were even better than rural construction contractors in the twenty-first century. Moreover, they possessed a skill such contractors lacked: the assembly of prefabricated wooden structures.
+Zhang Xingpei had arrived days earlier with a specialized construction crew trained by the Lingao Construction Company. Their expertise far exceeded that of modern rural contractors, for they possessed a unique skill: assembling prefabricated structures.
 
-Zhang Xingpei had studied architecture in the United States and was keenly interested in the all-wood-frame houses common in American residential construction. He had devoted considerable effort to this type of building. These wooden structures were mostly assembled from prefabricated components, transported to the site, and erected on foundations. A two-story, freestanding wooden house of over two hundred square meters could be completed in four or five days if work proceeded at full tilt—far faster than brick-and-mortar construction. Once finished, the building could be put to use immediately, with no need to wait for cement and mortar to cure.
+Drawing on American timber-frame techniques, Zhang had developed a system of standardized, pre-cut components produced in Lingao. A two-story, two-hundred-square-meter house could be erected in four days, requiring no drying time for mortar. It was ugly—the wood treated with black tar preservative gave it a grim, industrial look—but it was fast.
 
-Mei Wan, general manager of the Lingao Construction Company, was very interested in this type of building. The Executive Committee had long pressed the company to construct housing as quickly as possible; adopting prefabricated structures would dramatically speed the process. After several experiments, Zhang Xingpei finalized six house types. The Lingao Construction Company established a dedicated factory to manufacture and stockpile these prefabricated components, ready for deployment at any time. They had proven invaluable when constructing refugee camps after the recent typhoon.
+Steam derricks on the *Qionghai Coal* hoisted bundles of these components ashore. The pier itself was a prefabricated assembly brought in by barge. In less than five days, Zhang Xingpei transformed the mud bank into a sturdy, level wharf decked with sawn planks and reinforced with iron fittings.
 
-Hand-cranked derricks on *Qionghai Coal* began hoisting bundles of straw-rope-wrapped wooden prefab components from the cargo hold and lowering them onto the pier. The pier itself was prefabricated, shipped in earlier by a cargo vessel from the Gao Guang Boat Company. In under five days, Zhang Xingpei had completed this orderly and sturdy wooden wharf.
+Wrought iron rails were laid along the pier, anticipating the heavy coal flow to come. For now, they carried flatcars laden with housing modules.
 
-Planks of uniform width, cut by a sawmill, were nailed down tightly with broad-headed nails, making the surface as level as solid ground. Two rails of wrought iron were installed on the wharf—anticipating the current need to transport large quantities of building materials and the future requirement to move coal. Prefab housing components were offloaded onto flatcars and pushed directly to the shore-side storage yard.
+A small diesel cement mixer, hidden inside a shed to avoid frightening the indigenous laborers, churned out concrete for the footings. Unlike traditional buildings, these structures were raised on stilts to separate them from the damp ground.
 
-Cement and yellow sand were hoisted out of the hold bucket by bucket. To accelerate construction, Zhang Xingpei had brought along a small diesel-powered cement mixer. This device was carefully installed inside a completed building and kept under guard to prevent hired indigenous laborers from catching sight of it and spreading alarming rumors.
+Using makeshift hoists, the crew assembled the camp at breakneck speed. The speed of construction left the local onlookers dumbfounded.
 
-The indigenous workers Chen Tong had hired had already cleared and leveled the building sites per Zhang Xingpei's instructions. The ground was tamped solid with a mixture of lime and sand. Then the construction company's crew set to work erecting houses. All prefab buildings were of the raised-platform type, suspended above ground level to eliminate the need for foundations.
+Within a week, the wasteland had become a functional logistics hub: a wharf, warehouses, a stockyard, and cranes. Local laborers dug a moat and built brick walls complete with battlements and machicolations. A three-story blockhouse watched over the river. In this chaotic era, such fortifications were standard prudence for any remote commercial outpost.
 
-With the help of a simple makeshift hoist, one wooden-frame building after another rose in rapid succession—the speed astonished even Zhang Xingpei. The houses all displayed an ugly grayish-black hue, the result of tar-based preservative treatment.
+With the base secure, four flat-bottomed transport boats loaded supplies and began the journey up the Nandu River to the mining site.
 
-The major drawback of these structures was their vulnerability to typhoons; a passing storm would surely flatten them. Still, Zhang Xingpei considered this a minor concern. The typhoon season had passed, and experience in Lingao suggested that the northwestern part of Hainan was less affected by typhoons and would not face wind disasters every year. Once the situation stabilized, they could gradually replace these buildings with brick-and-stone construction.
+They quickly learned that "Prefectural Seat" did not equal "Safe." As soon as the boats touched the riverbank near Jiazi, a ragged band of bandits emerged from the tree line. Fortunately, the plainclothes security team was alert. A scattered volley of gunfire dropped several attackers, sending the rest fleeing into the hills.
 
-A week later, the Hai family dock had transformed from a patch of wasteland into a fully functional coal-transport facility: a wharf, more than a dozen buildings of various types, an open-air stockyard covering several thousand square meters, and three cranes. Subsequently, the locally hired indigenous laborers dug a ditch around the entire dock and erected walls of brick and stone. Battlements, machicolations, and other defensive features were all included. Once complete, the place was a fortress. In this era, such precautions were unremarkable—the Hai family building a fortified compound to protect their dock in such a remote location was entirely expected.
+Undeterred by the welcome party, the boats made another run that same day, delivering more materials and a reinforced security detail led by Huang Xiong. A former Ming junior officer trained in modern tactics, Huang immediately set the men to digging trenches and planting chevaux-de-frise.
 
-Zhang Xingpei then directed the construction of a three-story blockhouse near the pier to defend the dock against seaborne attack.
+That night, shadows lurked at the edge of the camp light, but the defenses and the memory of the "thunder-sticks" kept them at bay.
 
-After the dock was fully completed, the four flat-bottomed transport boats offloaded from *Qionghai Coal* were loaded with building materials and began ascending the Nandu River toward the Jiazi Coal Mine.
+"Security is nonexistent here," Lin Baiguang observed, standing next to Shan Daoqian, the road engineer.
 
-The transport boats soon established a temporary dock on the riverbank and offloaded the first batch of supplies.
+"It's mountain country," Shan replied nervously. "Imperial law stops at the tree line."
 
-One fact was immediately confirmed: although Qiongshan County was the prefectural seat, its security was equally poor. The moment the four flat-bottomed boats touched shore, they encountered a ragged band of mountain bandits. Fortunately, plainclothes guards were aboard; after firing their guns and dropping several attackers, the crowd dispersed.
+The mine was situated 9.3 kilometers inland from the river. The terrain was rough, necessitating a dedicated transport link. Shan’s crew was tasked with laying a rail line connecting the pithead to the river dock.
 
-The flat-bottomed boats made another round trip that day, bringing in more building materials, living supplies, and security personnel. The security team leader was Huang Xiong, a former minor Ming military officer. Carrying a Minié rifle and a leather document satchel, he directed his men according to what he had learned in the officers' crash course: setting up chevaux-de-frise, digging trenches, and fortifying the camp.
+"It's a big investment," Shan noted, "but without it, we'd need a herd of oxen to move the coal."
 
-Such precautions proved entirely necessary. That night and over the following days and nights, suspicious figures lurked near the camp. They refrained from attacking only because of the formidable defenses and their fear of firearms.
+The geography lay in their favor. The gradient from the mine to the river was a consistent ten-degree decline, allowing loaded cars to coast downhill by gravity—a massive saving in energy.
 
-"Security conditions in Qiongshan County are poor," Lin Baiguang observed. He had come to the temporary dock to accompany Shan Daoqian and his road-building crew. *Qionghai Coal*'s second voyage to Haikou had delivered large quantities of wooden rails, spikes, crushed stone, and the road gang. Additionally, four more transport boats had been added.
+"What about the locals?" Shan asked. "Building a road through bandit country..."
 
-The mining site was roughly 9.3 kilometers from the riverside dock. This was mountainous terrain with poor accessibility. To facilitate extraction and transport, they would need to build a fortified compound at both the mine and the riverside, linking them by rail.
+"Bandits we can shoot," Lin said. "The real headache is theft. Where a railroad goes, scavengers follow. Even in the 20th century, we couldn't stop villagers from stealing rail spikes. Here, iron is precious currency."
 
-Laying nearly ten kilometers of track was a substantial investment, but without it, whether using human or animal power, transport efficiency would be dismal.
+"That’s why we’re sticking to iron-clad wooden rails," Shan said. "If we laid solid iron tracks, they’d be ripped up faster than we could bolt them down."
 
-From the mining site to the riverside dock, the terrain was largely flat, with minimal construction difficulty and a gradient of roughly ten degrees. Loaded ore cars could coast downhill to the river by gravity alone—a significant labor savings. Otherwise, the mine would have to support a large herd of oxen.
+Wooden rails were less durable and carried less load, but they were unappealing to scavengers. In Lingao, theft of public property was curbed by the threat of hard labor. Here, in the "Orange Zone"—hostile territory—the transmigrators lacked legal authority.
 
-"There won't be any bandits here, will there?" Shan Daoqian asked nervously. He was accustomed to organizing construction in peaceful areas; building a road in a place where people might attack at any moment was a first.
+"If we kill a thief and the local magistrate gets involved, it becomes a diplomatic incident," Lin sighed. "It's a delicate balance."
 
-"Certainly there are, and plenty of them," Lin Baiguang warned. "This is mountain country. The authority of the Ming government carries no weight here."
+Finding a director for this remote outpost had been a challenge. The role required a geologist who could handle explosives, a commander who could repel bandits, and a diplomat who could manage indigenous labor—all while enduring total isolation.
 
-"The moment you leave Lingao, you realize just how bright and clear the skies are in the liberated zone," Shan Daoqian said.
+The Executive Committee chose Tang Menglong. Into his thirties, physically robust, and skilled in martial arts, Tang was a veteran of the Exploration Team.
 
-"Bandits are actually the easier problem. With the security team and Minié rifles, I don't believe bandits stand a chance. The real concern is the local hill folk."
+He accepted the post on one condition: "I need batteries and a charging station. Paradox games are the only thing that will keep me sane out there."
 
-"Exactly." Shan Daoqian had participated in railway projects; wherever a railway went, theft flourished. Pilfering, looting, and extorting project units were commonplace for construction firms. If even the proletarian dictatorship of the twentieth century could not stamp it out, the seventeenth-century Ming certainly could not.
+"Done," Xiao Zishan, the HR director, agreed. "And we’ll assign you a 'lifestyle secretary' to manage your... domestic needs."
 
-"That's why I proposed continuing to use iron-clad wooden rails here instead of forged iron rails. If we laid iron rails, we'd attract scavenger gangs. We'd never keep up with repairs."
+Tang Menglong paused. A personal secretary? Until now, that perk had been reserved for high-ranking officials who usually turned them into concubines. The Committee was clearly desperate to keep him happy.
 
-Lingao had already begun using forged iron rails. Wooden rails were inferior in load capacity and durability, but they essentially eliminated rail theft. In Lingao, the punishment for stealing public property was severe—six months in a labor-reform camp was enough to leave a lasting impression.
-
-"True—it's a headache. If we actually kill someone and the other side takes it to the authorities, we'll have trouble too," Lin Baiguang said. Here in Qiongshan County, the transmigrators had no law-enforcement authority and could not freely resort to force. Even with the Hai family as a protective umbrella, situations where the law could not punish a mob were difficult to handle.
-
-"Fortunately, I don't have to stay here and manage things," Shan Daoqian said, looking at Lin Baiguang with some sympathy. "You've got your work cut out for you."
-
-Lin Baiguang said nothing, turning the problem over in his mind.
-
-Selecting a director for the Jiazi Coal Mine had taken the Executive Committee considerable thought. The candidate had to know something about mining techniques and blasting, possess enough military skills to lead a defense against hostile actions at any moment, and be neither too young nor too impetuous.
-
-In the end, they chose Tang Menglong, a member of the Long-Range Exploration Team. Over thirty years old and thus mature enough to qualify, Tang's background was in geological surveying for mines—roughly relevant—and he had long worked in the field, capable of enduring hardship and in excellent health. He also knew a bit of martial arts. A reasonably suitable candidate.
-
-Nevertheless, this assignment was an exceptionally difficult posting. Though the Long-Range Exploration Team endured hardships, its members could at least return to Lingao periodically to catch their breath and enjoy modern life. Being dispatched solo to an Orange Zone—defined by the transmigrated collective as a relatively dangerous area within enemy-occupied territory, just one step below the Red Zone where active hostilities were always expected—was another matter entirely. Far from base and companions, in a desolate mountain wilderness, commanding several hundred indigenous laborers to mine coal with virtually no modern comforts—the mental fortitude required was considerable.
-
-Tang Menglong agreed to accept the assignment but made one request: he must be provided with storage batteries and charging equipment—otherwise the boredom would be unbearable.
-
-"No problem; that's only fair," Xiao Zishan agreed, nodding repeatedly. "We'll also arrange a personal secretary for you."
-
-"A personal secretary?!" Tang Menglong thought: the subject of personal secretaries had been discussed for months. Apart from a few people who had been assigned secretaries for work reasons—and promptly taken them as concubines—no one else had enjoyed this benefit. The Executive Committee must truly be sparing no expense for this mine. That was quite considerate.
+"I accept," Tang said.
 
 (End of Chapter)

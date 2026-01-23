@@ -2,7 +2,7 @@
 
 The subsidy amount was roughly equivalent to the average price of an ordinary female slave aged sixteen to twenty-five in the Guangdong-Guangxi region, using the Guangzhou human-market price as a benchmark. Specialty "merchandise" such as trained "thin horses" was not factored in.
 
-Anyone receiving the subsidy who wished to purchase a slave would pay the purchase price to the organization and entrust the caretaker cabinet to handle the procurement collectively. Those without such intentions could spend the money however they pleased. Anyone who did not currently want to buy an indigenous girl could save the funds and use them later to acquire a Slavic mare.
+Anyone receiving the subsidy who wished to purchase a slave would pay the purchase price to the organization and entrust the caretaker cabinet to handle procurement collectively. Those without such intentions could spend the money however they pleased. Anyone who did not currently want to buy an indigenous girl could save the funds and use them later to acquire a Slavic mare.
 
 "At the company where I used to work, the firm organized summer travel. Originally, routes were arranged uniformly; the company footed the bill, but people still complained. In the end, they switched to handing out travel allowances directly—several price tiers, clearly labeled. Want the cheap option? Fine. Want the expensive one? Pay the difference yourself. Don't want to go at all? Also fine. Everyone was satisfied."
 
@@ -22,7 +22,7 @@ After online discussions and written submissions, followed by several rounds of 
 
 Of the Five Hundred, only one held an explicitly opposing stance: Du Wen. Hearing that the maid issue was being openly discussed, Du Wen stormed into the Executive Committee compound and shoved open the door to Ma Qianzhu's office.
 
-"Director! What is the meaning of this? How has our organization become so vulgar—so depraved…" Tears welled in Du Wen's eyes; she was on the verge of crying.
+"Director! What is the meaning of this? How has our organization become so vulgar—so depraved?" Tears welled in Du Wen's eyes; she was on the verge of crying.
 
 Ma Qianzhu went on sorting the documents on his desk, ignoring her.
 
@@ -54,11 +54,11 @@ Astonishingly, one girl said that, so long as her position as the principal wife
 
 Reading such comments, Du Wen wanted to weep but had no tears. She left the dormitory, muttering under her breath, "Backward! A disgrace to women!"
 
-At last she found Li Mei. Li Mei had been distracted for days—not over the secretary-distribution business but over news of the Executive Committee's dissolution and the upcoming Second General Assembly.
+At last she found Li Mei. Li Mei had been distracted for days—not over the secretary-distribution business, but over news of the Executive Committee's dissolution and the upcoming Second General Assembly.
 
 The Li family had been swept into the transmigration by pure accident; they had become unwilling members of the collective. Yet over the past year and a half, they had done rather well. Li Mei even felt that getting sucked through the wormhole was a blessing in disguise. In the original timeline, she and her husband were already retired. Her daughter-in-law's career had been smooth, but without a powerful patron, upward mobility was limited.
 
-In this timeline, her old man had become a naval adviser. Judging by his health, he could easily serve another decade or more; once the Navy's cadre roster expanded, he could retire at least as a lieutenant general or admiral. As for her daughter-in-law—currently Director of the Li-Region Affairs Office and concurrently Precinct Station Political Instructor—Li Mei estimated that whether she developed along the ethnic-affairs track or the public-security track, her future rank would not be low; eventually, she could at least reach vice-ministerial level.
+In this timeline, her old man had become a naval adviser. Judging by his health, he could easily serve another decade or more; once the Navy's cadre roster expanded, he could retire at least as a lieutenant general or admiral. As for her daughter-in-law—currently Director of the Li-Region Affairs Office and concurrently Precinct Station Political Instructor—Li Mei estimated that whether she developed along the ethnic-affairs track or the public-security track, her future rank would not be low; eventually, she could turn into a vice-ministerial figure.
 
 Her son's situation was less satisfactory, but the family's basic standing in this new world was secure. The next step was to work on elevating the family's social status and accumulating more wealth.
 
@@ -72,7 +72,7 @@ Among the limited agenda-item discussions, half targeted the Women's Cooperative
 
 "This is a grave injustice," Li Mei complained at the dinner table to her whole family. "All I did was take the Gou Family Village spoils on credit from the Executive Committee to sell. The proceeds from those sales I turned over to the Executive Committee in full. Plus, unsold inventory has already been settled. I just took a margin as a sales-service fee. How is that embezzlement?"
 
-"I was against your starting a company in the first place. See? Here comes the trouble," Ming Lang grumbled. Discontented at being a mere nobody all along, he was now doubly annoyed at his mother's meddling. "Never mind whether you're being wronged—the 'infringing on public interests' label is stuck to you now and won't come off."
+"I was against your starting a company in the first place. See? Here comes the trouble," Ming Lang grumbled. Discontents at being a mere nobody all along, he was now doubly annoyed at his mother's meddling. "Never mind whether you're being wronged—the 'infringing on public interests' label is stuck to you now and won't come off."
 
 Ming Qiu said, "You really didn't think this through! Trading for profit is one thing, but what you're doing is essentially official profiteering—and monopoly profiteering at that. Pocketing a margin on the transmigrated collective's war spoils, a no-capital business—how could people not be jealous?!"
 
@@ -82,7 +82,7 @@ Mu Min had been silent, but now she spoke up: "Mom, I think you should hand over
 
 Li Mei thought: right now, it's not making much, but someday it'll be on the level of Walmart. Giving it up? She was truly reluctant.
 
-But what happened next made her even more anxious. Ding Ding suddenly showed up at the Cooperative's office and retrieved the application form he had submitted in Pan Pan's name when she joined as a shareholder. He even returned the share certificate and the Cooperative's 1628–1629 fiscal-year financial report distributed to shareholders.
+But what happened next made her even more anxious. Ding Ding suddenly showed up at the Cooperative's office and retrieved the application form he had submitted in Pan Pan's name. He even returned the share certificate and the Cooperative's 1628–1629 fiscal-year financial report distributed to shareholders.
 
 Ding Ding refused to explain why he was suddenly withdrawing his stake; he said only that he and Pan Pan "should focus on their primary duties and not be distracted by other matters."
 

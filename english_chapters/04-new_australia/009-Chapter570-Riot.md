@@ -1,113 +1,109 @@
 # Chapter 570 - Riot
 
-"There's no real treatment for this disease," Hippo said. "We can only rely on quinine. We brought plenty. There's also large stockpiles in Lingao. So I'm not worried about the mortality rate—with quinine, lives can be saved. What I'm worried about is that if there's an explosive outbreak, we'll face shortages in beds and nursing staff, seriously affecting patients' recovery."
+"There is no cure," Hippo said bluntly. "We have quinine, which suppresses it. But if we face an explosive outbreak, we don't have enough beds, we don't have enough nurses, and frankly, we don't have enough drugs."
 
-"We'll follow your lead on this matter. Do whatever you say," Wang Luobin said. "Above all—there cannot be an explosive epidemic outbreak!"
+"Do what you can," Wang Luobin said. "Just prevent a total collapse."
 
-Epidemic outbreaks caused serious labor losses, whether from death or illness. From a ruthlessly pragmatic view, with sufficient new labor to replace losses, the dead were actually preferable to the sick—patients consumed far more resources than healthy people. Not only couldn't they work, but they required manpower and materials for care.
+In the cold arithmetic of the Planning Council, a sick laborer was worse than a dead one. A corpse was a one-time loss; a patient was a resource sink. But labor was precious—it took ninety days and significant capital to import a worker from Guangzhou. They couldn't afford to let them die *en masse*.
 
-The transmigrator collective hadn't reached that level yet. Labor remained quite precious. Each basic laborer took 90 days from recruitment in Guangzhou to being ready for work—and the food, medicine, and labor costs consumed during those 90 days represented substantial expense.
+"Prevention," Hippo said. "Nets. Screens. And smoke."
 
-"Besides medication, prevention is key. Especially increasing mosquito net supplies," Hippo said. "Every person needs one. Until we have enough, at minimum all windows must be covered with gauze."
+The camp disappeared into a haze of *qinghao* smoke. It choked the lungs and stung the eyes, but it kept the mosquitoes at bay. Yet, the parasite was already in the blood.
 
-"As for burning qinghao to repel mosquitoes, I've already submitted a report to the Executive Committee. Director Liu says dry qinghao can be supplied without limit—if there's not enough, they'll purchase more from the mainland. Best to assign someone specifically to handle this."
+Cases mounted. The hospital overflowed. Women from the migrant families were drafted as temporary nurses.
 
-"Does drinking qinghao soup have preventive effects?" He Fanghui interjected. "Isn't artemisinin the next-generation antimalarial?"
+Hippo watched his quinine reserves dwindle with mounting panic. They had miscalculated. They assumed Hainan's malaria was like Lingao's—sporadic. But Sanya was a pestilent hotbed. They needed chloroquine, primaquine—modern synthetics they couldn't produce. They were fighting a 21st-century war with 19th-century weapons.
 
-"Qinghao has no killing effect on malaria parasites. What's effective is actually sweet wormwood. And even with sweet wormwood, extracting the active compound is still beyond our current pharmaceutical factory's capabilities. Just give patients quinine honestly," Hippo said. "To be prudent, all Elders should also start taking preventive medication from today."
+Then the dying started.
 
-The transmigrator collective subsequently launched a vigorous sanitation campaign—clearing and burying garbage, filling low-lying areas, eliminating standing water, installing window screens. Large quantities of dry qinghao arrived from Lingao along with dedicated ceramic smoking braziers—with braziers, fire hazards were reduced. The camp barracks were all wooden; careless fire use could spell disaster.
+It began with three or four a day, then ten, then twenty. The cemetery filled up in a week. He Fanghui had to open "Phase Two."
 
-The entire camp was shrouded day and night in qinghao smoke. Actually, there were few mosquitoes on the beach. The qinghao was mainly smoking people. From Wang Luobin down to basic laborers, everyone was tormented by the terrible smoke, all of them complaining bitterly.
+Every day, the funeral pyres on the secluded beach roared to life. The wind carried the cloying scent of burning flesh back to the camp.
 
-But these measures didn't seem very effective. After a few days, malaria entered large-scale outbreak phase. First a few cases per day, then a dozen, then dozens. The hospital quickly filled. Hippo ordered several isolated barracks vacated immediately as dedicated quarantine wards. With health workers insufficient, all women among the migrants were mobilized as temporary nursing personnel.
+Panic spread like a contagion. Rumors whispered that the "miasma" of the railway line was a death sentence. Fear turned to anger.
 
-Antimalarial drugs were distributed according to disease severity. This timeline's malaria parasites had no drug resistance yet—medication took effect almost immediately. But even so, it took at least ten days for someone to go from illness onset to returning to work. As more and more laborers fell ill, Hippo began to panic—they simply hadn't brought this many antimalarial drugs!
+Though Shan Daoqian tried to lead by example, taking his pills and working the line, the laborers saw only death. Political Security operatives flashed "Orange Alerts": *Riot Imminent.*
 
-The health sector hadn't estimated Hainan's malaria situation as particularly severe. The antimalarial drugs brought were mainly intended for future Taiwan landings and Southeast Asian development. After arriving in Lingao, malaria was only sporadic in most areas—it became more common only near Li territory. This gave them a mistaken assessment of Hainan's malaria severity.
+The Construction Command convened. "We need to calm them," Zhuo Tianmin said. "Better food. Visible leadership. Rotate the Elders to the front lines."
 
-By this calculation, to keep laborers working effectively, every laborer needed preventive oral antimalarials—far exceeding their reserves. Mass production of quinine was still years away. If they exhausted all reserves, what then? And for malaria, quinine wasn't the most effective anyway—far inferior to synthetic chloroquine and primaquine in treatment and cure rates.
+But it was too little, too late.
 
-But Hippo had no choice now. The sick were increasing daily. Many had poor constitutions and, combined with overwork from the previous period, had low resistance. Even with specific medications, they couldn't pull through. The mortality rate climbed—from zero deaths initially to three or four per day, then seven or eight, then a dozen. The deceased were carried to a secluded beach and cremated on pyre stacks. At peak, over twenty corpses were burned on the beach daily. The newly developed cemetery filled within a week; He Fanghui had to urgently develop Phase Two.
+The strike began the next morning. A labor team refused to leave the barracks. When captains tried to force them, they were beaten.
 
-The daily, unceasing cremation smoke caused great panic among laborers. Rumors spread that working on the roadbed would cause infection with miasma (which wasn't entirely untrue—those infected were mainly railway workers). Morale in the camp steadily declined. Fear pervaded the camp. Though no one dared voice objections under the transmigrator collective's overwhelming military force, reports from internal work network operatives indicated that laborer resentment and fear were growing.
+Zhuo Tianmin rushed to the scene. He believed in reason. He believed that if he explained the science—that the medicine worked, that prevention was key—they would understand.
 
-But construction pace didn't slow at all. Shan Daoqian went to the front-line construction site daily to lead by example. He took his medication faithfully, confident in the drug's preventive effects.
+He stood on the steps of the Public Hall. "Brothers! Listen to me! Taking the pills will protect you! I take them myself!"
 
-But the laborers didn't see it that way. They were filled with fear and resentment about continuing to work in "miasma-plagued territory." Operatives began issuing orange alerts: riots were imminent!
+"To hell with your pills!" a laborer screamed. "Keep them! We want to live!"
 
-The Construction Command held an emergency meeting to discuss countermeasures. Three resolutions were made: First, from today forward, all Elders regardless of position would lead by example and rotate to front-line work sites—no need to actually work, just be present as role models to reassure everyone. Second, significantly improve food provisions to soothe grievances while strengthening laborer constitutions. Third, distribute the compound antimalarial tablets—previously issued only to Elders and soldiers—first to workers entering inland areas. Meanwhile, dispatch Hippo back to request more antimalarial tablets, aiming for universal medication.
+A ceramic brazier smashed at Zhuo Tianmin's feet.
 
-But events outpaced their expectations. That day, a strike broke out in the camp. A labor team, led by its captain, refused to report for work at the railway construction site. Several other teams either drove out or detained the captains and squad leaders trying to take them to work.
+"Don't be afraid—"
 
-Zhuo Tianmin was at the labor camp's public hall. Hearing the commotion, he came out to speak with them. He was greeted with ceramic smoking braziers and other objects thrown at him.
+The mob surged.
 
-"We won't work!" laborers shouted at him. "We didn't come here to die!"
+Logic died. Fear took over. A dozen hands grabbed the Elder. Fist met flesh.
 
-Zhuo Tianmin knew the situation was worsening by the minute: many labor teams, though not explicitly declaring a strike, were watching and waiting, refusing to leave camp for work.
+"Kill him!" someone shrieked. "Kill the running dog!"
 
-Wang Luobin contacted Zhuo Tianmin by radio: "What's the situation?"
+Zhuo Tianmin fell. Boots rained down on his ribs. For the first time since arriving in this timeline, he felt the cold, paralyzing terror of impending death. His status as a "Senator," a "Creator," meant nothing here. He was just meat.
 
-"No good. They won't go to work." Zhuo Tianmin wiped sweat from his forehead, his face smeared with dust. "Let me try talking to them some more..."
+The riot exploded. The Public Hall was torched. The mob rampaged through the camp, looting supplies and hunting down the "collaborators"—the native team leaders and health workers. Several nurses were cornered and raped.
 
-Zhuo Tianmin continued pleading with them to abandon their resistance and go to work, promising that taking medication regularly would prevent infection. The current patients had all been infected earlier.
+News reached Command.
 
-"...If you take these pills, you won't get malaria. I take them too. I can go to the work site with everyone..." Without a megaphone, Zhuo Tianmin strained his voice to shout.
+"They have Zhuo Tianmin," Wang Luobin said, his face draining of color.
 
-"To hell with your pills!" The laborers holed up in the barracks threw out the pills issued to them. "Keep them for yourself. We want to live!"
+"Send in the troops," Xi Yazhou pulled his pistol.
 
-"Don't be afraid—" Before Zhuo Tianmin could finish, several men who'd been unable to contain themselves rushed forward and punched him. He was knocked down with a single blow. Then a dozen hands crowded in, grabbing him from all sides. Someone shouted "Kill him!" In an instant, he'd taken several blows. Zhuo Tianmin couldn't move at all. Overwhelming terror flooded his mind: he was going to be beaten to death!
+"He's a hostage," Qian Shuixie said coolly. "If we wait, they'll realize his value. We have to hit them now, while they're confused."
 
-When he was knocked down, the labor camp instantly erupted in chaos. People set fire to the public hall and looted supplies, beating health workers and labor squad leaders and team captains—"running dogs." Several female health workers distributing medication couldn't escape and were raped. In the confusion, Zhuo Tianmin's clerk escaped the camp and rushed to Yulin Stockade to report. The labor teams not involved in the disturbance were quickly led away by their captains. Infantry squads on perimeter security duty quickly secured key points per protocol, preventing the riot from spreading further.
+"Do it," Wang Luobin ordered. "Bring him out alive. Crush the rest."
 
-Wang Luobin had received word of the camp disturbance. Now hearing the public hall was burning and Zhuo Tianmin had been seized by laborers, he was shocked. A riot?!
+The riot squad advanced. A shield wall of rattan and steel moved against the mob. Stones clattered harmlessly off helmets.
 
-Xi Yazhou had arrived, fully armed, waving a pistol.
+The infantry didn't stop. They advanced in silence, a machine of suppression.
 
-"I think we should deploy the troops."
+Clubs rose and fell.
 
-"Zhuo Tianmin is trapped inside. If we rush in recklessly, won't that..." Wang Luobin hesitated.
+The mob, disorganized and leaderless, broke instantly. The "bravery" born of desperation evaporated before the discipline of the Army.
 
-"Right now the people inside haven't figured things out yet. Once they do, they'll guard Zhuo Tianmin closely and use him as a hostage to negotiate. Saving him will become difficult. The chaos inside is our opportunity." Qian Shuixie also supported an immediate assault.
+Zhuo Tianmin was found in the dirt, battered, bleeding, but alive. The rioters had been too busy looting to finish him off.
 
-"Fine. Go in. Bring Zhuo Tianmin out unharmed," Wang Luobin ordered. "Try to minimize casualties."
+"I'm fine," he croaked as they loaded him onto a stretcher. "Just... bruises."
 
-"Begin," Xi Yazhou commanded the messenger beside him.
+But as he was carried away, he saw the other victims. Health workers with broken limbs. Nurses weeping, their clothes torn. The shrouded bodies of loyal staff.
 
-Infantry in riot gear formed a line and advanced toward the camp. Stones rained down on their rattan shields and steel helmets with a pitter-patter. The infantry advanced steadily, heads lowered, shields raised, without hesitation. The few who tried to resist were quickly routed by clubs. Within minutes, the infantry had control of the situation—the laborers had no weapons and no organization. They didn't even know what they were trying to do. The few who tried to organize were scattered before they could get started.
+He closed his eyes.
 
-Striking laborers were herded out and made to sit on open ground, not permitted to move while awaiting judgment.
+The toll was heavy. Ten native staff dead. The Public Hall reduced to ash, taking valuable documents with it.
 
-Zhuo Tianmin had been beaten black and blue, but his life was safe. Someone had thought to hold him hostage, which had saved him.
+The inevitable backlash was swift and merciless.
 
-"Old Zhuo, you've suffered." Wang Luobin comforted him when the stretcher bearing him emerged.
+"Laborers have no right to strike," the Council declared. "And raising a hand against an Elder is treason."
 
-"I'm fine." Zhuo Tianmin propped himself up and raised a hand. "This isn't a big deal. Don't make a mountain out of a molehill..."
+"We must kill," Xi Yazhou raged. "They beat an Elder! If we don't wash this in blood, our authority is dust!"
 
-"There, there. Rest well." Wang Luobin soothed him. "We'll handle this."
+"Public execution," He Fanghui agreed. "For the murderers. For the rapists. For the leaders."
 
-Zhuo Tianmin wanted to say more, but just then several female health workers in tattered clothes limped past, supporting each other and crying. Then came stretchers—some groaning in pain, others silent with sheets covering their faces.
+Qian Shuixie stayed silent. He believed in workers' rights, but he wasn't suicidal. A line had been crossed.
 
-He sighed and lay down, saying nothing more.
+The next day, the entire camp was assembled on the beach.
 
-Wang Luobin ordered Zhuo Tianmin taken to his bedroom in Yulin Stockade, with Gao Lujie to tend him. Zhuo Tianmin's briefcase, documents, and pistol were all recovered. These had been in the public hall's concrete safe and survived.
+Bayonets gleamed under the tropical sun. The atmosphere was heavy with the promise of violence.
 
-The smoke from the public hall cleared. The labor camp's public hall had burned to a heap of charred, scattered timbers. If firefighting had been slower, the fire might have spread—with unimaginable consequences.
+In front of the assembled thousands, a massive funeral pyre burned. Eleven white-shrouded bodies—the victims of the riot—lay upon it, their souls ascending in smoke.
 
-Ten people had died in the riot: three health workers, five labor squad and team leaders, and two clerks. All were people the transmigrator collective had trained. These personnel losses pained Wang Luobin. The burning of the public hall also meant a batch of yet-uncopied documents was lost forever.
+Beside the fire stood the gallows.
 
-Punishment was swift and severe. Everyone agreed that beating an Elder, burning buildings, and killing native staff went beyond the scope of a strike. Furthermore, the transmigrator collective had never acknowledged natives' right to strike. Together, the Elders deemed this tantamount to rebellion.
+The trial was a formality. "In the name of the Senate and the People..."
 
-"This must be handled in the bloodiest way possible!" Xi Yazhou declared heatedly. "They actually beat an Elder! Without executing a batch of them, how will they learn that Elders are sacred and inviolable?!"
+Twenty-five men were dragged up the steps. Ringleaders. Murderers. Rapists.
 
-"We must kill to warn the rest," He Fanghui firmly agreed. "They killed native staff in the riot—if we don't punish them severely, how will those who serve us feel secure? The murderers must be publicly executed!"
+The ropes tightened. The trapdoors fell.
 
-Qian Shuixie disagreed. In his view, laborers striking was a normal exercise of rights. Their methods had just gotten excessive—but he wisely offered no objection. He didn't express support either.
+Twenty-five bodies swung in the sea breeze, silhouetted against the roaring flames of the pyre. The lesson was burned into the memory of every laborer present:
 
-That day, all labor work was suspended. Everyone assembled in front of the labor camp. All available Army and Navy troops concentrated there, bayonets gleaming like a forest—a solemn, oppressive atmosphere. The natives could tell from the atmosphere: there would be killing.
-
-Facing the labor camp's main gate, a funeral pyre had been built on the beach with eleven white-shrouded corpses placed atop it. Not far away, carpenters were installing gallows.
-
-Before the pyre, a brief trial was held. Those identified as having participated in attacking and beating an Elder, killing labor team leaders and health workers, or raping female health workers were all sentenced to death. One by one, under brief "In the name of the Yuan Elder Council and the People, sentenced to death" pronouncements, they were dragged to the gallows and executed. As the hangings proceeded, the pyre was lit. Flames shot skyward, illuminating the swinging corpses on the gallows. By the time the trial ended, twenty-five had been hanged.
+*The grip of the Australians is iron. Work, and you might live. Rebel, and you will surely die.*
 
 (End of Chapter)

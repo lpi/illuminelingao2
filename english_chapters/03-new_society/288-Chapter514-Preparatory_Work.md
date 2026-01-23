@@ -8,7 +8,7 @@ In the Director's vision, this was the transmigrated collective's Construction C
 
 "I say we just call it the Engineering Team. 'Corps' sounds too grandiose. Besides, how is a construction company supposed to command a corps?"
 
-After the military training concluded, specialized vocational training began for this large engineering team. The military phase was chiefly meant to instill organization and discipline; the transmigrated collective had no intention of using them for combat. A full infantry battalion would be detached from the Army and dispatched to Yulinbao, where it would be permanently stationed. To this end, the Army was authorized to recruit a supplementary battalion from newly cleared immigrants in quarantine.
+After the military training concluded, specialized vocational training began for the large engineering team. The military phase had been chiefly meant to instill organization and discipline; the transmigrated collective had no intention of using them for combat. A full infantry battalion would be detached from the Army and dispatched to Yulinbao, where it would be permanently stationed. To this end, the Army was authorized to recruit a supplementary battalion from newly cleared immigrants in quarantine.
 
 This infantry battalion would constitute the transmigrated collective's core military force in the future Sanya region. Its missions were twofold: to counter any hostile indigenous forces or Ming troops that might appear, and—more importantly—to deter and suppress insurrection within the Engineering Team itself. In the Executive Committee's assessment, given the harsh local conditions and the intensity of construction, such incidents were virtually inevitable.
 
@@ -16,7 +16,7 @@ Zhuo Tianmin submitted a list to the Executive Committee itemizing every categor
 
 Even so, the gaps were large. Zhuo Tianmin therefore requested that the Executive Committee coordinate the assignment of skilled workers to train the Engineering Team—this would at least address some of the less technically demanding trades.
 
-Zhuo Tianmin established five training classes, drawing participants from among the laborers.
+He established five training classes, drawing participants from among the laborers.
 
 The first was a construction-worker training class, taught by rough carpenters, masons, and plumbers from the Lingao Construction Company's crews.
 
@@ -36,7 +36,7 @@ To acclimatize the Engineering Team to the upcoming sea voyage—and prevent sea
 
 For transporting the Engineering Team, Zhuo Tianmin selected *Qionghai Coal*—the largest vessel in the transmigrated collective's possession, capable of carrying enough people in a single voyage. Chen Haiyang promptly recalled *Qionghai Coal* from its coal-hauling duties, substituting smaller vessels.
 
-After the recalled *Qionghai Coal* had its holds cleaned, it was renamed *Sanya One*. Its primary mission would be troop transport. Hammocks and bunks were crammed aboard, and footboards and handrails for latrines were installed along the gunwales.
+After the recalled ship had its holds cleaned, it was renamed *Sanya One*. Its primary mission would be troop transport. Hammocks and bunks were crammed aboard, and footboards and handrails for latrines were installed along the gunwales.
 
 For cargo transport, the auxiliary vessel chosen was a 1,500-ton self-propelled flat-deck barge. Its large capacity and shallow draft made it ideal for the landing operation. Previously, fuel shortages had kept it dormant at Bopu, serving only as a floating crane. Now its crane was removed and the hull cleaned out. Compartments were unsealed; the empty fuel tanks were reconnected to *Fengcheng*'s oil lines and refilled with diesel.
 
@@ -46,7 +46,7 @@ For cargo transport, the auxiliary vessel chosen was a 1,500-ton self-propelled 
 
 When the generator was test-run, everything was indeed normal. Self-propelled barges were low-tech and built to take a beating.
 
-This self-propelled barge was christened *Swift Whale*. Together with *Great Whale*—now undergoing modernization with a diesel-engine installation—it would handle the transport of heavy equipment and large materials for this operation.
+This barge was christened *Swift Whale*. Together with *Great Whale*—now undergoing modernization with a diesel-engine installation—it would handle the transport of heavy equipment and large materials for this operation.
 
 Wang Luobin took his mechanical-department crew aboard *Fengcheng* and wandered through its cavernous engine room, heads together in murmured discussion.
 
@@ -74,7 +74,7 @@ But extracting those generator sets and re-installing them ashore to run again w
 
 "The risk isn't too great," Jiang Ye said; coal-gas generators were right up his alley. "Use better materials for the gasifier, install it directly on deck, and surround it with blast-resistant sandbags."
 
-The discussion concluded with a decision to install a gasifier on *Fengcheng*'s deck. This infuriated Li Di: the graceful lines of the big iron ship would now be topped not only by a coal-gas bladder but also sandbags and a coal bunker… It was hideous.
+The discussion concluded with a decision to install a gasifier on *Fengcheng*'s deck. This infuriated Li Di: the graceful lines of the big iron ship would now be topped not only by a coal-gas bladder but also sandbags and a coal bunker. It was hideous.
 
 But electricity was paramount; Li Di's objections were overruled. Even his argument about military security was dismissed—someone had demonstrated that, apart from the transmigrated collective's own artillery, no one else could lob a shell onto *Fengcheng*'s deck.
 

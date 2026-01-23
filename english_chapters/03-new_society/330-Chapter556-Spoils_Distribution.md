@@ -1,95 +1,91 @@
-# Chapter 556 - Spoils Distribution
+# Chapter 556 - Distribution of Spoils
 
-The OA system published a catalog of all the types and quantities of materials obtained in Matter A, along with their distribution plan. Clothing, shoes, and cigarettes would be distributed to every transmigrator as welfare in batches. Food, liquor, professional clothing, tools, equipment, and materials would be stored and distributed uniformly by the Planning Council.
+The OA system published a comprehensive manifest of the materials recovered from Matter A, along with the approved distribution plan. Essential items like clothing, shoes, and cigarettes would be issued to every transmigrator as welfare benefits. Strategic resources—food, liquor, specialized workwear, tools, and industrial materials—would be stockpiled and allocated centrally by the Planning Council.
 
-Although these materials weren't of particularly great significance, they were still very welcome. Especially the clothing and shoes. Nearly two years after landing, clothes and shoes were being consumed particularly quickly. Although there was now a garment factory capable of producing hats, clothes, and shoes domestically, the styles and colors always looked rather dowdy—nothing compared to this batch of athletic casualwear. As for the shoes, that went without saying.
+Although these items were mundane, they were greeted with enthusiasm. The clothing and shoes, in particular, were a godsend. Nearly two years after landing, the transmigrators' original wardrobes were in tatters. While the domestic garment factory could produce basic hats, clothes, and shoes, the styles were drab and the colors lifeless—nothing like the vibrant, modern athletic casualwear from the ship. And the shoes? The difference in quality went without saying.
 
-Regrettably, there was no underwear or socks, which were currently the items with the greatest shortage. Local products still had defects in fit and comfort.
+Regrettably, the shipment contained no underwear or socks, the two items in most critical shortage. Local substitutes still suffered from poor fit and uncomfortable materials.
 
-The General Affairs Office distributed the first batch of clothing and shoes on a per-capita basis. Although there were no children's clothes or shoes, children still received a share per person to demonstrate absolute fairness. Even cigarettes were distributed absolutely equally—one carton per person regardless of gender or age. Non-smokers could use them to trade for other things.
+The General Affairs Office managed the distribution strictly on a per-capita basis. In a display of absolute fairness, even children received a full adult share, despite there being no child-sized clothing in the haul. Cigarettes were treated with the same egalitarian rigor—one carton per person, regardless of gender, age, or smoking habits. Non-smokers immediately found themselves holding valuable currency for the black market.
 
-Leather goods weren't very useful and wouldn't be distributed for now. Briefcases were listed in the "official issue supplies" catalog, to be issued to personnel who needed them.
+Leather goods were deemed non-essential and withheld for now. Briefcases were cataloged as "official supplies," to be issued only to personnel with a demonstrated need.
 
-Liquor and pornographic magazines wouldn't be distributed. Xiao Zishan transferred all the pornographic magazines to the Grand Library for collection; transmigrators could borrow them to read within the library. The whisky was reserved for emergency use.
+Liquor and adult magazines were excluded from general distribution. Xiao Zishan transferred the entire collection of pornography to the Grand Library's restricted section, available for on-site perusal only. The whisky was sequestered as a strategic reserve for emergencies.
 
-As for other miscellaneous daily items, clothing, and objects found on the ship, these were handled through auction—listed on the BBS for anyone interested to bid on, with highest bidder winning. The Flow Vouchers earned went into a dividend-specific account, to be distributed to all transmigrators according to their shares at year's end.
+Miscellaneous daily items and personal effects found on the ship were auctioned off via the BBS. Proceeds from these auctions were deposited into a dividend account, to be distributed to all transmigrators based on their shares at the end of the year.
 
-The disposal method didn't cause controversy. The only point of dispute was this batch of weapons. No one competed for the CZ99 handguns, but how to distribute the automatic rifles, submachine guns, and machine guns sparked heated debate. Navy and Army officers waged fierce verbal battles on the BBS over these guns, each side laying out the importance and necessity of automatic weapons to their respective branch.
+The disposal of consumer goods caused little friction. The weapons, however, were another matter entirely. While the CZ99 handguns sparked no competition, the distribution of automatic rifles, submachine guns, and machine guns ignited a firestorm. Army and Navy officers waged fierce verbal battles on the BBS, each branch aggressively arguing its desperate need for automatic firepower.
 
-This discussion began with calm reasoning and fact-presentation, then inevitably ended with harsh words exchanged. The result, naturally, was all posts being deleted.
+The debate began with calm reasoning and citations of tactical doctrine, but quickly descended into mud-slinging. Inevitably, the moderators stepped in, and the entire thread was nuked.
 
-The argument subsequently moved to the newspapers:
+The battlefield then shifted to the *Lingao Times*.
 
-"Automatic rifles, submachine guns, and machine guns have always been standard Army weapons. It's only natural for the Army to possess and use them." This appeared in an article published in the *Lingao Times* signed by "A Loyal and Fearless Army Officer."
+"Automatic rifles, submachine guns, and machine guns are intrinsic to infantry warfare. It is only natural that they be fielded by the Army," argued an op-ed signed by "A Loyal and Fearless Army Officer."
 
-The next day, the newspaper ran another article titled *The Application of Automatic Weapons in Boarding Combat*, expounding from a tactical perspective the importance of automatic weapons to the Navy in current naval warfare.
+The very next day, the Navy retaliated with an article titled *The Application of Automatic Weapons in Boarding Actions*, expounding on the critical role of rapid-fire weapons in modern naval engagements.
 
-This Navy move was quite clever. Those who didn't understand thought it was merely academic discussion, when in reality it was "silently moistening the earth," giving the public the concept that "the Navy also needs automatic weapons."
+The Navy's strategy was insidious. To the uninitiated, these pieces appeared to be dry academic discussions, but their true purpose was "moistening the earth silently"—planting the subliminal idea in the public consciousness that the Navy had a legitimate claim to these weapons.
 
-Subsequently, the Navy published multiple "academic" articles in succession in the *Lingao Times*, including: *Tactics of Naval Infantry in Amphibious Operations Under New Conditions*, *Amphibious Special Warfare*, and so on.
+Following this opening salvo, the Navy flooded the *Lingao Times* with a series of "academic" papers: *Naval Infantry Tactics in Asymmetric Amphibious Operations*, *The Evolution of Amphibious Special Warfare*, and so on. Whether professional analyses or fabricated nonsense, they all shared a common leitmotif: the indispensability of automatic weapons for the Navy.
 
-These articles were either quite professional or simply fabricated, but they shared a common thread—explicitly or implicitly pointing out the importance of automatic weapons in combat.
+"They're manufacturing consent!" Wei Aiwen slammed the newspaper onto his desk. Though currently serving in the General Staff, he remained an armor officer at heart and a staunch Army loyalist. He snatched up the phone and dialed Zhang Bailin.
 
-"They're building momentum!" Wei Aiwen slapped the newspaper down on the table. Though he was now at the General Staff, he was still "an armor soldier at heart" and naturally stood with the Army. He immediately called Zhang Bailin:
+"Bailin! You're falling behind! The Navy is winning the propaganda war!"
 
-"Bailin! You're falling behind! The Navy is manufacturing public opinion in the newspapers!"
+"I saw it. Those traitors... always playing dirty."
 
-"Right, I saw it too. These traitors, always playing dirty."
+The Navy, with its ranks and nomenclature carrying a distinctive whiff of the Imperial Japanese Navy—especially after they unofficially adopted the *Warship March*—had been slapped with the label "Traitors" by the Army. The Navy, in turn, referred to the Army as "Yellow Nazis." To prevent open conflict, both terms were banned from public discourse and the BBS.
 
-The transmigrators' Navy, with its system and nomenclature carrying a whiff of the old Imperial Japanese Navy—especially after the *Warship March* was officially "borrowed" as the Naval March—had this label slapped on them by the Army. Of course, the Navy's label for the Army was "Yellow Nazis." Consequently, these two terms were forbidden from being openly discussed in public venues and on the BBS to avoid provoking conflict between the two sides.
+"If this keeps up, the machine guns are going to end up in their hands—or at best, we'll have to split them fifty-fifty," Wei Aiwen said, his voice tight with anxiety. "The Executive Committee has been debating this for days. If public opinion sways them, we're screwed."
 
-"If this keeps up, the machine guns and such might fall into the Navy's hands—or at least get split half with them." Wei Aiwen was very anxious. The Executive Committee had been discussing this issue for several days now. If they were influenced, things could go badly.
+"The Navy has more ink-spillers than we do. We're short on literary talent," Zhang Bailin admitted, sounding troubled. In a firefight, the Army feared no one, but in a war of words and subtle insinuations, they were outmatched.
 
-"The Navy has more pen-pushers; we don't have many people here who know how to work with that stuff." Zhang Bailin was also troubled by this matter. When it came to fighting, the Army was certainly no worse than the Navy, but when it came to refined scolding and article-writing, the Army clearly couldn't match the Navy's prowess.
+"Those bastards have crossed the line!" Wei Aiwen cursed, then paused. "If you can't write, steal! Go to the library, dig up every article you can find on automatic weapon tactics, stitch them together, and get them published. We have to seize the narrative!"
 
-"These traitors have gone too far!" Wei Aiwen cursed, then thought for a moment. "Can't write it yourself, can't you copy? Go to the library and search for all articles related to automatic weapons tactics, cobble them together and publish quickly. We must seize the position of public opinion!"
+"Right, I'm on it!" Zhang Bailin hung up and immediately rallied a team to scour the archives. He realized that rigid plagiarism wouldn't fly; they needed to adapt the material to their current reality.
 
-"Alright, I'll get on it immediately!" Zhang Bailin hung up the phone, found a few people to discuss, and they split up to find articles. He figured just copying existing material probably wouldn't work; it would be best to combine it with the local timeline's environment.
+He personally penned a short piece titled *The Machine Gun is Artillery*. Reading it over, he felt the logic was shaky—what the hell was he even arguing?—but compared to the Navy's ghostwritten drivel, he figured it was par for the course.
 
-So he wrote a short piece himself: *The Machine Gun is Artillery*. After finishing, he felt it was rather shaky content—what was all this, anyway?—but seeing a Navy ghost-written article in the newspaper that was complete nonsense, Zhang Bailin figured they were even.
+And so, the Army-Navy "Academic Paper War" escalated. The sudden explosion of military theory in the papers was transparent to anyone with half a brain. After a few days, having exhausted all actual academic points, both sides resorted to nitpicking each other's syntax and grammar, implying that their opponents' tactical incompetence was rooted in their poor scholarship.
 
-Thus the Army-Navy "academic paper war" escalated. The purpose of this sudden surge in military academic interest was obvious to anyone with discernment. After several days, with nothing more "academic" left to discuss, both sides began picking apart each other's articles for errors, implying the other side had questionable academic standards.
+The "academic dispute" nearly culminated in a physical brawl. Only the forceful intervention of the Army and Navy People's Commissars prevented a mass incident.
 
-This "academic dispute" ultimately nearly came to blows. It was only through the forceful suppression by the Army and Navy People's Commissars that it avoided escalating into a bigger incident.
+"Fighting over a few guns like children... do they think the Executive Committee is dead?!" Ma Qianzhu slammed his hand on the table, rising to his feet. "Fine. Neither the Army nor the Navy gets a single one. You can all go play with your Minié rifles!"
 
-"Hmph, ready to cause trouble over a few guns—do they think we Executive Committee don't exist?!" Ma Qianzhu slammed the table and stood up. "Neither the Army nor the Navy gets a single one—everyone can go play with Minié rifles!"
+The Executive Committee's final ruling was swift. One of each weapon type and rocket launcher would be allocated to the design bureau for reverse-engineering and preservation. Twelve automatic rifles and six submachine guns were assigned to the Special Reconnaissance Team. The remainder would be crated and stored in the central armory. Neither the Army nor the Navy received a single round, finally silencing the dispute.
 
-In the end, the Executive Committee announced that one each of the weapons and rocket launchers obtained in Matter A would be allocated to the design group as samples for research and preservation. Twelve automatic rifles and six submachine guns would be assigned to the Special Reconnaissance Team. The remaining weapons would be stored in the armory for now. Neither the Army nor the Navy got anything, finally settling the dispute.
+The final item on the agenda was the disposal of the salvaged vessel. Codenamed "Ship A," the vessel had been secretly towed at night to a mangrove-shrouded cove in Bopu immediately after being raised. The area was a Navy restricted zone, inaccessible to natives and surrounded by impassable mudflats and dense forest. It could only be reached by small boat, ensuring maximum security.
 
-The final matter was disposing of the salvaged fishing vessel. This ship, codenamed "Ship A," had been secretly towed at night to a cove covered in mangroves at Bopu after being raised. Not only was this a Navy restricted zone where natives couldn't approach, but it was surrounded on all sides by mudflats and forest, making overland access nearly impossible—one had to enter by small boat. This made it convenient for secrecy and guarding.
+Once at Bopu, the ship underwent basic preservation: the hull was scrubbed of marine growth and the interior cleaned. It was then sealed to prevent further deterioration. With the secrecy level now lowered, the priority shifted to repair and refit.
 
-After Ship A was towed to Bopu, basic maintenance had already been conducted: cleaning the hull inside and out and removing attached marine organisms. The hull had been temporarily sealed for preservation. Once the confidentiality level was lifted, how to repair this ship as quickly as possible became a pressing priority.
+The ship was towed by steam launch to the main shipyard and dry-docked for a comprehensive overhaul.
 
-The ship was now towed by steam launch to the shipyard dock and put into drydock, awaiting comprehensive overhaul.
+A task force was assembled to develop a restoration plan, led by Meng De, Wang Luobin, Zhong Lishi, and Qian Shuiting—the North American expert on small vessels.
 
-Various departments organized a special group including Meng De, Wang Luobin, Zhong Lishi, and Qian Shuiting from North America who had experience with small vessels. The goal was to develop a restoration and utilization plan.
+Although all identification numbers and logs had been destroyed, the team's analysis suggested it was a 110-ton seiner built on the American West Coast—an oceangoing fishing vessel modified for smuggling.
 
-Although all hull numbers, logs, and anything that could reveal the ship's origins had been completely destroyed, based on available information they could roughly determine it was a 110-ton seiner built on the American West Coast, an oceangoing fishing vessel. But it had been modified for smuggling.
+Most fishing gear had been stripped, leaving only external fixtures as camouflage. The freezer hold remained, though the refrigeration plant appeared barely used. The propulsion system was the real prize: the original engine had been replaced with a high-performance power plant. Lin Chuanqing estimated the ship could hit thirty knots. Enlarged fuel tanks gave it a range far exceeding that of a standard fishing boat.
 
-Most of the fishing equipment on board had been removed except for external fixtures kept as cover. The freezer hold was still there, but the refrigeration equipment appeared to have been rarely used. The ship's propulsion system had been modified—the engine replaced with a more powerful one. Lin Chuanqing examined it and said the ship could make thirty knots; the fuel tanks had also been enlarged, giving it greater range than typical oceangoing fishing vessels.
+The electronics suite was equally impressive, featuring advanced radar, navigation, and radio systems unheard of on a civilian trawler. Unfortunately, saltwater immersion had ruined most of it, though Zhong Lishi was optimistic about salvaging some components.
 
-The ship's electronic equipment was quite advanced—not only standard navigation equipment but also high-performance radar, navigation, and radio systems not normally found on fishing vessels. Unfortunately, due to seawater immersion, most equipment was no longer functional, but Zhong Lishi believed repair could be attempted.
+The bridge was reinforced with steel plating. Suspicious universal mounts were bolted to both sides of the bridge and the stern—clearly intended for heavy machine guns.
 
-The area around the bridge had been reinforced with steel plate. Universal mounts with suspicious purposes were installed on both sides of the bridge and at the stern—most likely for mounting machine guns or similar weapons.
+"This thing is leagues ahead of the 8154!" Meng De exclaimed, patting the hull. "The speed alone puts it in a different class! And it's armored!"
 
-"This ship is far more advanced than our 8154!" Meng De was quite excited. "Speed alone puts it in first place! It even has protective armor!"
+"Is the engine salvageable?" Zhong Lishi asked, eyeing the machinery that had spent months underwater. "Do we have the capability for a major marine engine overhaul?"
 
-"Can the engine assembly still be used?" Zhong Lishi was worried about the engine that had been soaking for months. "Do we have the capability for major overhaul of marine engines?"
+"It's possible," Wang Luobin said, having spent hours in the engine room. "But we'll have to pull it off the mounts. A full tear-down is required."
 
-"It's possible." Wang Luobin had studied the engine room for a long time. "We'll probably have to take it off its mounts for a full overhaul."
+"Absolutely not!" Meng De shook his head vigorously. He had interned at a shipyard and knew the risks. "Remounting a marine engine is an art form. Taking it out is easy; putting it back and aligning the shaft is a nightmare. Ideally, we shouldn't touch the mounting."
 
-"That won't work!" Meng De shook his head repeatedly. He had done an internship at the shipyard. "Dismounting and mounting marine engines is technical work. Taking it down is easy—putting it back is hard! Getting the center of gravity right is critical."
+But the engine wasn't the biggest headache. Everyone agreed that while the engine was damaged, the mechanical department could likely fix it. The real problem was the propulsion gear—the propeller and rudder had been badly twisted by the reef impact.
 
-But this wasn't the thorniest issue. Everyone agreed that although the ship's engine assembly had sustained some damage, with the mechanical department's capabilities it could probably be repaired. The difficulty lay in the propeller and rudder that had been bent and twisted by the reef.
+"Without years of industrial experience and specialized equipment, repairing these is a long shot," Wang Luobin noted grimly. "We can try hammering the rudder back into shape, but the prop blades... that's high-precision metallurgy."
 
-"Without several years of industrial technology accumulation and equipment modification, we probably can't repair them." Wang Luobin looked and shook his head. "We can try with the rudder, but the propeller blades are a bit high-tech."
+"We have reserve modern alloys and CNC centers. We can CAD the design and machine a new one from scratch," someone suggested.
 
-"Use reserve modern metal materials. We have CNC centers—use CAD to make drawings and machine directly."
+"That's our only option. But this prop was likely cast. A machined replacement might not have the same structural integrity."
 
-"That's the only option. But this propeller was probably cast; a machined one might not work."
+The consensus was that Ship A would need two to three years of work before it could be commissioned. However, the remaining fishing equipment could be stripped and put to immediate use, much like the gear from the 8154 trawler.
 
-The assessment was that Ship A would likely need two or three years of repairs before returning to service. However, the various fishing equipment on board could be removed and put to use first, just like with the 8154 trawler.
-
-As for the engine, they decided to remove it for repairs—without removal, they couldn't even clean out the seawater properly. As for the electronic equipment, all of it would be removed and given to Zhong Lishi for research—whatever could be repaired would be repaired.
-
-(End of Chapter)
+As for the engine, the decision was made to pull it. Leaving it in place made it impossible to properly flush the salt and corrosion. The electronics would be stripped entirely and handed over to Zhong Lishi for research and potential repair.

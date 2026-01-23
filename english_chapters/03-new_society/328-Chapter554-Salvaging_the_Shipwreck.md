@@ -1,93 +1,83 @@
 # Chapter 554 - Salvaging the Shipwreck
 
-The thick case file on Matter A was now brought to the conference table. Gao Xiaosong, who had been in charge of the matter at the time, cleared his throat and began describing the events from beginning to end. The Eight-Person Conference listened to the detailed briefing about the sunken ship.
+The classified file on "Matter A" thudded onto the conference table. Gao Xiaosong, the officer in charge, cleared his throat and began his briefing to the Eight-Person Conference.
 
-After Zhou Weisen and the others had completed their investigation, the Executive Committee approved the decision to salvage items from the wreck. A secret salvage team was assembled, composed primarily of personnel from the Navy and the Long-Range Exploration Team, as well as those who had previously participated in surveying the sunken vessel.
+Following Zhou Weisen's reconnaissance, the Executive Committee had greenlit a covert salvage operation. Ideally, the mission was a "feasibility study for guano mining and a survey for a Taiwan transit base." In reality, it was a treasure hunt.
 
-Beyond salvaging items, the salvage team also had a mission to establish a temporary support base on Dongsha Island in preparation for subsequent salvage operations. Of course, in the official mission bulletin, this operation's purpose was described as "feasibility study for guano mining and establishing a transit consideration base for Taiwan navigation."
+A mixed task force—comprising Navy personnel, the Long-Range Exploration Team, and the original survey crew—departed for Dongsha Island. It wasn't until the flotilla of one motor-sailer, a large transport ship, and several longboats dropped anchor that Gao Xiaosong revealed the truth to the crew.
 
-The salvage party—consisting of one motor-sail vessel, one large sailing ship, and several rowboats—arrived at Dongsha Island. Only then did Gao Xiaosong, who was in charge of salvage operations, reveal the true purpose of the trip to the participants. Some transmigrators who had been kept in the dark were shocked speechless. Everyone agreed: these people posed a major threat to the transmigrator collective. If they couldn't "come over to the light" in time, they would be resolutely eliminated!
+"Guano?" Gao Xiaosong scoffed, addressing the stunned men. "We're not here for bird shit. We're here for a smuggler's ship packed with contraband."
 
-However, everyone also looked forward to the upcoming task—a ship was a treasure trove for the transmigrator collective. A seagoing vessel was a mobile little world; even a fishing boat would have many useful tools and supplies aboard.
+The shock dissolved into electric excitement. A smuggling vessel meant drugs or, better yet, weapons. The transmigrators were desperate for modern firepower. The SKS was reliable, but it was ugly and semi-automatic. Dreams of AK-47s and machine guns danced in their heads. Even if it was drugs, well, morphine was always in short supply.
 
-The mystique of this particular vessel sparked everyone's speculation. According to Lin Chuanqing, this ship was most likely a smuggling vessel dealing in illicit goods—either drugs or weapons.
+The native sailors watched in confusion as their "leaders" buzzed with manic energy over a desolate, sun-baked rock in the middle of nowhere.
 
-This speculation raised everyone's excitement. If it was an arms-smuggling ship, they'd hit the jackpot! The SKS rifle was considered too ugly by many, not to mention it was only semi-automatic. Everyone hoped to find large quantities of AK-47s or better—maybe machine guns.
+Driven by the prospect of loot, the team worked with feverish efficiency. A lightweight trestle pier materialized on the beach. Marine platoons swept the island, securing the perimeter and locating the freshwater wells. A distillation plant was jury-rigged next to the wells to desalinate the brackish water, ensuring survival for the hundred-man team.
 
-Although Lin Chuanqing mentioned the ship might be carrying drugs, everyone still unanimously believed it carried weapons.
+The salvage began. It was grueling work. Lacking heavy cranes or commercial diving gear, the team relied on manpower and the two qualified divers, Zhou Weisen and Lin Chuanqing. For two weeks, they stripped the wreck of everything not bolted down: tools, supplies, even the old tires used as fenders.
 
-The excited "leaders" left the carefully selected native naval personnel in the fleet puzzled, unable to understand what about this desolate little island could make them so happy.
+Ashore, the salvaged goods were rinsed, dried, and cataloged. It was a haul of useful junk, but the prize—the weapons—remained elusive.
 
-Driven by the fervor of potentially acquiring weapons, work proceeded rapidly. Standardized lightweight trestle bridges were quickly constructed along the shore. A Marine platoon searched the entire island. After confirming it was uninhabited, they established a temporary camp in a sheltered coconut grove, then sent people to secure the wells.
+"We haven't breached the sealed compartments yet," Zhou Weisen reported, wiping salt from his face. "If the goods are anywhere, they're in there."
 
-Salvage operations and the survival of over a hundred people on the island both required fresh water. The island's well water wasn't purely fresh, so a temporary distillation station was set up beside the well specifically for desalination.
+Breaking into the sealed hold underwater was a nightmare of leverage and lung capacity. Finally, a hatch gave way. Inside, stacked under heavy green tarps, were long, rectangular crates.
 
-Salvage work proceeded smoothly. Despite lacking professional salvage equipment and sufficient diving gear—with only two qualified divers—everyone's efforts and the stimulation of their fervor meant that over a dozen or more days of salvage activity had gradually retrieved all the sundry items, tools, and equipment from the ship. Even the worn-out automobile tires used as bumpers on the hull were removed.
+It took every ounce of strength Zhou Weisen and Lin Chuanqing possessed to wrestle a single small crate out of the dark hold and float it to the surface with lift bags.
 
-Salvaged items were first soaked in fresh water to remove salt, then air-dried in special shaded shelters. Items were inspected by dedicated personnel, catalogued, and packed into crates for storage.
+On the deck of the support ship, the crew crowded around as the lid was pried off. CHEERS erupted. Inside, pristine in their factory packaging, were twelve handguns, complete with spare magazines.
 
-The items recovered were a hodgepodge, but what everyone most wanted to find—weapons—still hadn't turned up.
+"SIG P226!" someone shouted.
 
-"Those compartments haven't been opened yet," Zhou Weisen said. "If there's anything, it'll be in there."
+"Wrong," Zhou Weisen corrected, picking one up. He racked the slide, the action smooth as silk. "It's a CZ99. Yugoslavian. A clone, but a damn good one."
 
-Although using simple tools underwater to unlock sealed cabin doors was extremely difficult, Zhou Weisen and Lin Chuanqing managed to use tools to open one compartment. The small cabin was stacked with large green tarps. Zhou Weisen pulled back the tarps, revealing long rectangular iron crates stacked neatly beneath.
+"Yugoslavia?" Most of the younger crewmen had only a vague concept of the dissolved nation.
 
-Zhou Weisen expended great effort to drag out a small crate. It was extremely heavy. The two of them struggled mightily to bring the crate out of the compartment and float it to the surface using flotation bags.
+"Fifteen rounds of 9mm," Weisen grinned, slapping a magazine home. "It's a beast."
 
-When the crate was opened, it caused a cheer: inside were handguns in individual packaging boxes, twelve in total, each with four magazines. The crate hadn't taken on any water, and the guns were very well preserved.
+The discovery validated the mission, but it also brought a tinge of disappointment. Handguns were great, but they weren't assault rifles.
 
-"It's a SIG P226!" someone in the crowd called out.
+"Don't lose heart!" Lin Chuanqing rallied them. "Where there are pistols, there's ammo. At the very least, we're sitting on a stockpile of 9mm."
 
-"It's a CZ99," Zhou Weisen, who had shot countless guns in America, immediately recognized it. "Yugoslav make!" He picked one up, racked the slide, and confirmed again.
+But the diving was taking its toll. The wreck was a labyrinth of dark, twisted metal. Zhou Weisen and Lin Chuanqing were exhausted. They managed to recover a few more crates—military supplies and NATO 7.62mm ammunition—but the pace was agonizingly slow. The discovery of the 7.62mm rounds hinted at heavier weapons like FALs or M14s, but getting to them was impossible.
 
-"Yugoslavia?" No one had much concept of weapons made by this country that no longer existed.
+"We need to raise the ship," Lin Chuanqing argued. "My gear is rotting down there. The engines, the electronics—every day in the salt water is destroying them. If we lift her now, we can salvage the machinery. Wait another month, and she's just scrap metal."
 
-"This is a good gun," Zhou Weisen said, expertly loading a magazine. "Fifteen-round magazine, strong firepower."
+Gao Xiaosong radioed the request to Lingao. The Executive Committee, sensing the urgency, approved the plan and dispatched an 8154 trawler to assist.
 
-Weapons had been found, but not the automatic weapons everyone had most hoped for. There was some disappointment. Lin Chuanqing said, "Don't lose heart! Since there are handguns, there'll be other weapons. At the very least, we'll salvage a lot of 9mm Parabellum ammunition."
+Raising a hundred-ton vessel from ten meters without heavy cranes required ingenuity. Lin Chuanqing proposed a classic refloating technique: seal the hull, pump out the water, and pump in compressed air. The ship's buoyancy would do the rest.
 
-But retrieving weapon crates from the compartments was extremely difficult. Wreck diving required excellent skills; ordinary people couldn't do it. Even someone like Lin Chuanqing with some diving experience was only making up the numbers. Let alone carrying heavy weapon crates through narrow passages and hatches.
+"She was scuttled by opening the seacocks," Lin Chuanqing explained. "The hull is intact. If we close the valves and seal the hatches, she'll float."
 
-After several consecutive dives, Zhou Weisen and Lin Chuanqing completely exhausted their strength. They managed to bring up a few more crates containing military supplies and ammunition. One crate held NATO 7.62mm rounds. This greatly encouraged everyone—the cargo most likely included rifles chambered for this ammunition. Zhou Weisen believed there might be FAL automatic rifles or M14s.
+Equipment was rushed from Lingao. Lin Chuanqing and Zhou Weisen dove back into the gloom, navigating the interior of the ship to locate and close the seacocks. Lin's experience as a captain was invaluable; he knew exactly where to look.
 
-After discussion, everyone agreed that relying on diving for retrieval was too inefficient. The wreck's interior was dim and cramped, making thorough searching impossible and dangerous. It would be best to raise the entire vessel in one effort and then search it.
+After a month of preparation, the pumps roared to life. Air hissed into the hull.
 
-Lin Chuanqing particularly advocated raising the ship as soon as possible. As a former fishing vessel captain, he knew the shipboard equipment well. Some specialized equipment on this ship had already been damaged. If they could raise it quickly, they could salvage a large portion of the loss. In particular, the engine room equipment—the longer it soaked in seawater, the more severe the damage. By the time they raised it later, it would only be good as scrap steel for remelting.
+Slowly, agonizingly, the sea began to churn. A dark shape broke the surface, shedding cascades of water and foam. The American fishing vessel rose from the grave, greeted by the thunderous applause of the salvage team.
 
-"Seawater corrosion of the hull materials is also quite severe. Marine organisms have already started attaching to the hull. After a few more months of soaking, even if we raise it, the ship will be ruined!" Lin Chuanqing warned.
+Once stabilized, the wreck was towed alongside the large sailing ship. Lin Chuanqing boarded the ghost ship and dropped the anchor.
 
-Gao Xiaosong communicated with the Executive Committee via radio, requesting expedited salvage of the vessel. The Executive Committee held an emergency consultation on this issue and ultimately decided to raise the wreck. An 8154 trawler was specially dispatched to assist.
+Gao Xiaosong posted armed guards. "No one touches her until the search team is done."
 
-For recovering a vessel of less than a hundred tons from depths of less than 10 meters, the simplest method would be using a crane hoist. Unfortunately, the transmigrator collective had no crane of sufficient capacity. Heavy ship-mounted gantry cranes and derricks would have been suitable, but they were installed on the *Fengcheng* and couldn't be used.
+Lin Chuanqing led the search party back into the now-dry hold. They moved quickly, cracking opening the remaining compartments. Crates of ammo, magazines, and supplies were hauled out.
 
-Lin Chuanqing suggested a method of sealing leaks, then pumping water out of the hull while blowing in compressed air. With increased air inside the hull, buoyancy would increase and the vessel could be directly floated up. This salvage method required underwater leak-sealing technology. The transmigrator collective had no such technology, but this vessel had only opened its seacocks—the hull and all watertight compartment doors were intact. The vessel's tonnage was small, making this method entirely viable.
+But still, no rifles.
 
-The final decision was to adopt this relatively simple salvage method. Equipment and spare diving gear were urgently shipped from Lingao. Lin Chuanqing and Zhou Weisen risked several dives deep into the ship's compartments to locate and close the seacocks one by one. Fortunately, Lin Chuanqing's experience working on American fishing vessels gave him thorough knowledge of valve locations and closing procedures.
+"Where are they?" someone muttered, kicking a crate.
 
-After nearly a month of intense labor, the American fishing vessel finally rose slowly from the churning waves amid the spray, drawing cheers from the onlookers.
+"Here!"
 
-Once the vessel surfaced, the pumping slowed. Small boats positioned alongside monitored the draft on both sides and fore and aft, guarding against capsizing from pumping too fast. Once the hull was fully righted, it was towed alongside the large sailing ship. Lin Chuanqing boarded the wreck and manually lowered the anchor chain.
+A shout from the forward hold. A new crate had been pried open. Inside lay rows of dull metal rifles.
 
-Everyone wanted to board this mysterious sunken ship for a closer look, but Gao Xiaosong ordered that no one except search personnel be allowed aboard, to prevent anyone from damaging items. Everyone had to continue watching from shore.
+"AKs?"
 
-Under Lin Chuanqing's guidance, several transmigrators conducted a carpet search of the entire vessel. They found many supplies and equipment that had gone undiscovered during the dives, and the iron crates in several locked compartments were all offloaded.
+"Sort of..."
 
-Several crates were opened in succession. The contents varied widely—besides the previously discovered handguns, there were cartridges, magazines, and the like. Just no AKs. Not only no AKs, but not a single rifle in sight. Just as disappointment set in, someone suddenly called out:
+The guns were strange. They had the distinctive silhouette of a Kalashnikov, but the proportions were wrong, and they were fitted with straight box magazines.
 
-"Found it!"
+"It's a variant," Gao Xiaosong guessed, scratching his head. He knew soldiers, not obscure firearm taxonomy.
 
-Everyone gathered around. In a newly opened crate, rifles had been found.
+Zhou Weisen, the aficionado, stepped forward. "Behold, the M77B1," he announced reverently. "It's a Yugoslavian AKM chambered in 7.62 NATO."
 
-"Is this an AK?" someone asked.
-
-The gun looked rather strange—an AK47-style body fitted with a straight box magazine. The proportions seemed somewhat off.
-
-"Should be some variant of the AK." Gao Xiaosong found the gun unfamiliar, but its shape was definitely AK-like. Key components like the receiver closely resembled the AK.
-
-Although Gao Xiaosong was a soldier, his actual knowledge of weapons was far inferior to amateur enthusiasts. He was quite unfamiliar with any automatic rifle outside the AK and M16 families. Moreover, Zhou Weisen and Lin Chuanqing were firearms enthusiasts from the world's largest light weapons market—America—and were extremely knowledgeable about small arms.
-
-"This is the M77B1 automatic rifle," Lin Chuanqing said. "Essentially an AKM automatic rifle chambered for NATO 7.62mm," Zhou Weisen added. "Also made in Yugoslavia."
-
-"So the arms dealers were trafficking Yugoslav weapons—a strange choice."
+"Yugoslavian guns running NATO rounds," Lin Chuanqing mused. "Our smugglers had eclectic taste."
 
 (End of Chapter)

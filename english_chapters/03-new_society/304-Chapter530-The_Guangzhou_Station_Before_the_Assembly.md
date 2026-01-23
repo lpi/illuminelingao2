@@ -1,26 +1,24 @@
 # Chapter 530 - The Guangzhou Station Before the Assembly
 
-Every Saturday evening at this hour, the members of the Guangzhou Station gathered secretly in the station's safe house to hear the latest directives from Lingao.
+Every Saturday evening at this hour, the members of the Guangzhou Station gathered secretively in the station's safe house to hear the latest directives from Lingao.
 
-The people seated around the rosewood table were almost unrecognizable compared to their former selves.
+The people seated around the rosewood table were almost unrecognizable compared to their former selves. The most striking difference was their hair: all had grown it out and tied it into topknots. Meng Xian, whose hair was still too short, wore a false topknot concealed beneath a gauze turban.
 
-The biggest difference was that they had all grown out their hair and tied it up in topknots. Meng Xian's hair was still too short; he wore a false topknot covered with a gauze turban.
+They were dressed in the attire favored by wealthy men of the Great Ming—silks and satins went without saying. The accessories and pendants they wore were enough to drive any colleague back in Lingao wild with envy. Pepi's gauze gown was so sheer, its colors so vivid, and its embroidery so exquisite that any female transmigrator who saw it would die of jealousy.
 
-They all wore the attire favored by wealthy men of the Great Ming—silks and satins went without saying. The accessories and pendants they wore alone were enough to drive any colleague back in Lingao wild with envy. Pepi's gauze gown was so sheer, its colors so vivid, its embroidery so exquisite that any female transmigrator who saw it would die of jealousy.
-
-On the table sat four varieties of dried fruits. The topmost-grade Wuyi Da Hong Pao tea—by any standard in this timeline—had gone cold. None of them had taken a single sip. In any other location, attendant servants and maids would long since have poured out the tea and brought fresh. But here, they dared not enter. This courtyard on Huifu Street was Master Guo's forbidden ground; any servant who ventured in unbidden would vanish without a trace the following day.
+On the table sat four varieties of dried fruit. The topmost-grade Wuyi Da Hong Pao tea—by any standard in this timeline—had gone cold. None of them bad taken a single sip. In any other residence, attendant servants and maids would long since have poured out the cold tea and brought fresh. But here, they dared not enter. This courtyard on Huifu Street was Master Guo's forbidden ground; any servant who ventured in unbidden would vanish without a trace before the sun rose.
 
 Guo Yi, Yan Maoda, Zhang Xin, Pepi, and the recently arrived Meng Xian sat around the table, watching as Zhang Yuchen unfolded the telegram and read it aloud.
 
-They had already guessed most of its contents. Although no official dispatch had yet arrived from Lingao, news of the Maid Revolution, the Executive Committee's resignation, and the impending Second General Assembly had reached Guangzhou through casual radio chats between Zhang Yuchen and Zhang Yu, Li Chiqi's sister. Not long ago, they had received an official telegram announcing the Executive Committee's resignation and the formation of the caretaker cabinet.
+They had already guessed most of its contents. Although no official dispatch had yet arrived from Lingao, news of the "Maid Revolution," the Executive Committee's resignation, and the impending Second General Assembly had reached Guangzhou through casual radio chats between Zhang Yuchen and his sister, Zhang Yu. Not long ago, they had received an official telegram announcing the Executive Committee's resignation and the formation of the caretaker cabinet.
 
-The news unsettled the Guangzhou Station personnel. Under the previous Executive Committee's leadership, the station's development had been smooth sailing. Now they suddenly heard there was to be a change of leadership—though they knew it was the proper thing to do. And hearing that the maid issue had stirred up serious internal strife only deepened the anxiety of these staff members stationed far from home. First, they feared internal disputes could split the collective; second, they worried about becoming targets for certain elements within the collective. When it came to possessing women, everyone at the Guangzhou Station except Pepi was "over quota." Their colleagues back in Lingao were agonizing over personal secretaries, while here they were surrounded by lovely maids and concubines. If those people ever saw this, they would be torn limb from limb.
+The news unsettled the Guangzhou Station personnel. Under the previous Executive Committee's leadership, the station's development had been smooth sailing. Now they suddenly heard there was to be a change of leadership—though they knew it was arguably the proper course. Hearing that the maid issue had stirred up serious internal strife only deepened the anxiety of these staff members stationed far from home. First, they feared internal disputes could split the collective; second, they worried about becoming targets for certain elements within the group. When it came to possessing women, everyone at the Guangzhou Station except Pepi was "over quota." Their colleagues back in Lingao were agonizing over personal secretaries, while here they were surrounded by lovely maids and concubines. If those people ever saw this, they would be torn limb from limb.
 
-Should someone with ulterior motives whip up the Guangzhou issue, there was no telling what decisions the caretaker cabinet might make against the station under the pressure of "public opinion." The recent establishment of an audit department and rumors of a comprehensive financial audit and inspection of all departments only deepened their concerns. If problems were sought, the Guangzhou Station handled enormous sums of money, grain, and goods—there had to be some irregularities. It all depended on whether anyone intended to make an issue of it.
+Should someone with ulterior motives whip up the "Guangzhou issue," there was no telling what decisions the caretaker cabinet might make against the station under pressure from "public opinion." The recent establishment of an audit department, coupled with rumors of a comprehensive financial audit and inspection of all departments, only deepened their concerns. If problems were sought, they would be found: the Guangzhou Station handled enormous sums of money, grain, and goods—there had to be irregularities. It all depended on whether anyone intended to make an issue of it.
 
 Guo Yi was particularly anxious about his own future. Though he was station chief—the transmigrated collective's number-one general in the commercial and foreign-trade arena—his status remained a problem. To this day, he still held only a temporary ID.
 
-If someone intended to single out a negative example from the Guangzhou Station, he—an outsider with no power base within the collective—was the ideal candidate.
+If someone intented to single out a negative example from the Guangzhou Station, he—an outsider with no power base within the collective—was the ideal candidate.
 
 The telegram had two parts. The first requested that the Guangzhou Station quickly prepare a batch of women in Guangzhou—"women who suit modern tastes"—with basic requirements of good health, regular features, and unbound feet, aged between sixteen and twenty-five.
 
@@ -42,7 +40,7 @@ Guo Yi nodded. Beyond its explicit meaning, Yan Maoda's remark carried a second 
 
 Zhang Xin added, "I agree. As for staying behind, Pepi and I will do it." Zhang Xin was essentially the station's general manager, familiar with every aspect; with him there, things would run smoothly.
 
-No one objected. Pepi had no interest whatsoever in General Assemblies. She was wholly absorbed in Ziming Tower, adeptly navigating among officials and the powerful, reveling in the flattery of many men. From time to time, she hosted local notables and their cherished mistresses at her little salon. Her life was infinitely fulfilling; Lingao held no appeal for her.
+No one objected. Pepi had no interest whatsoever in General Assemblies. She was wholly absorbed in Ziming Tower, adeptly navigating among officials and the powerful, reveling in the flattery of men. From time to time, she hosted local notables and their cherished mistresses at her little salon. Her life was infinitely fulfilling; Lingao held no appeal.
 
 Zhang Yuchen, on the other hand, was eager to go back. He would finally get to meet Zhang Yu in person. After more than a year of radio chats, he was dying to see this girl. He had even scoured Guangzhou for pretty little trinkets and clothing to present to her.
 

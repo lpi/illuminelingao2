@@ -1,85 +1,75 @@
-# Chapter 559 - Education of Female Servants
+# Chapter 559 - Recentering the Curriculum
 
-After taking her position, Dong Weiwei first determined the educational objectives. This concerned the question of what exactly the Female Servant School should teach.
+Upon assuming the principalship, Dong Weiwei's first order of business was to define the strategic objectives. What, exactly, was this school supposed to produce?
 
-Everyone knew perfectly well why transmigrators urgently wanted so-called life secretaries or female servants. But there was debate over exactly what skills female servants needed. Some envisioned it as the Lingao version of "raising thin horses"—listing many requirements for sexual technique training. However, the worthies of the Female Servant Countermeasures Committee concluded: the pool of obtainable women at the current stage was very small, with limited selection room, and the overall quality of female servants was subpar. The transmigrator collective didn't have many resources to spend on training women. Therefore, these "life secretaries" were essentially domestic service staff, or as everyone called them, "female servants"—not professional concubines.
+Everyone knew *why* the transmigrators wanted "Life Secretaries." The unspoken demand was for concubines. However, the exact skillset required was a matter of fierce debate. Some factions envisioned a Lingao version of the "Yielding Breeze Pavilion"—a dedicated academy for erotic arts and bedroom techniques.
 
-Training of life secretaries should focus on household labor. Sexual service was an incidental function. As for what bedroom techniques were needed, transmigrators could cultivate those according to their own tastes—the Female Servant School would merely provide qualified raw material.
+The Female Servant Countermeasures Committee, however, threw cold water on these fantasies. The available pool of women was simply too small and the average quality too low. The transmigrator collective lacked the resources to train high-end courtesans from scratch. Therefore, the official verdict was pragmatic: these were not professional entertainers or sex workers, but high-functioning domestic staff with benefits.
 
-Dong Weiwei's curriculum focused on Mandarin education as the priority, so female servants could engage in deep and effective communication with their masters, understand and satisfy their masters' various needs at any time—especially comprehending the specific meanings of many modern vocabulary terms.
+"Sexual service is an incidental function," the memo read. "The primary utility of a Life Secretary is household management. Bedroom techniques are a matter of private cultivation by the individual master; the School generally provides compliant raw material."
 
-Basic literacy courses were required to reach the Level C diploma standard: recognizing 500 commonly used Chinese characters, knowing addition, subtraction, multiplication, and division, plus simple abacus use and bookkeeping—fundamental household management abilities.
+Dong Weiwei's curriculum reflected this pivot. The core pillar was Mandarin immersion. A Life Secretary needed to communicate deeply and effectively with her master, understanding not just the language but the nuance of modern vocabulary and concepts.
 
-Cooking—transmigrators didn't yet have the conditions to cook independently, but the foundation could be laid in advance. Every era treated cooking as women's duty, but a girl from a family that couldn't even get enough to eat obviously wouldn't have great culinary skills. Let alone the taste differences between Ming and modern eras.
+Basic literacy was mandatory, aiming for a Level C diploma: recognition of 500 common characters, basic arithmetic (addition, subtraction, multiplication, division), and simple bookkeeping. They were being trained to run a modern household, not just decorate it.
 
-Laundry, window-washing, and cleaning—these most basic domestic tasks also had to be taught from scratch. Many female servants came from homes with dirt floors where the concept of sweeping didn't even exist. Obviously they wouldn't have skills in floor maintenance, floor waxing, toilet cleaning, or window washing either.
+Cooking was another essential module. While few transmigrators had private kitchens yet, the foundation had to be laid. Cooking was traditionally women's work, but a girl from a starving peasant family who had never seen a wok, let alone a gas stove, would be useless in a modern kitchen. The flavor gap between the Ming Dynasty and the 21st century was a chasm that needed bridging.
 
-Things modern people considered simple were concepts that natives either completely lacked or understood differently. Even maids from wealthy households were the same. Dong Weiwei inquired about the skills these maids had mastered and found them quite different from transmigrator needs. She retrieved books and instructional videos on hotel service and domestic service courses from the Grand Library.
+Then came the domestic sciences: laundry, sanitation, and deep cleaning. Many of these women came from homes with dirt floors where "sweeping" was a theoretical concept. They had no schema for floor wax, glass cleaner, or the sanitary maintenance of a porcelain toilet.
 
-The Female Servant Countermeasures Committee built a small courtyard at the Female Servant School. Inside were complete sets of rooms decorated in both modern and traditional styles, plus a modern bathroom, washroom, and kitchen, specifically for the female servants' domestic training.
+Dong Weiwei pulled training manuals and instructional videos on hotel management and domestic service from the Grand Library. The Committee even built a "simulation suite" within the school—a mock apartment with modern and traditional decor, a fully plumbed bathroom, and a kitchen—where trainees could practice the art of Western-style housekeeping.
 
-Daily etiquette and walking posture were all guided one by one. Most female servants came from impoverished backgrounds; even if their figures and appearances were passable, their bearing was completely absent. Due to lack of nutrition and care combined with excessive labor, their skin and hair were generally poor, with yellowish hair and dull eyes. Their movements were clumsy.
+Etiquette and posture were drilled relentlessly. Most trainees were rough peasant girls; malnutrition and hard labor had left them with poor skin, dull hair, and clumsy movements. Even the few who were naturally pretty carried themselves with the slouch of the downtrodden.
 
-Dong Weiwei personally taught them body training classes. Every day the female servants did yoga, practiced posture, plus one hour of belly dance training. When Chairman Wen learned of this, he immediately authorized special approval to renovate a body training classroom in the school, fitted with large floor-to-ceiling mirrors and flooring, with barres installed.
+Dong Weiwei personally led the physical conditioning. Every day included yoga, posture correction, and an hour of belly dancing. When Wen Desi heard about the belly dancing, he immediately authorized the renovation of a classroom into a mirrored dance studio with barre rails.
 
-Every day a long line of women walked in circles around the room following the metronome's rhythm, each balancing a half-brick on her head, followed by splits, back bends...
+Each morning, lines of women walked in circles to the ticking of a metronome, balancing half-bricks on their heads, before moving on to splits and backbends.
 
-"Too bad we can't make synthetic fibers—can't produce bodysuits. Otherwise, wearing those and standing here, practicing splits and such... The Executive Committee is truly wise."
+"It's a tragedy we can't manufacture spandex yet," Xiao Bailang sighed, watching the class through the window. "If they were wearing bodysuits doing those splits... the Executive Committee really is wise."
 
-Xiao Bailang, who had delivered the large mirrors, was drooling at this sight. All his complaints from when he was making the mirrors vanished completely. To make these three large mirrors, he had spent two days and nights at the glass factory, complaining constantly. Now the Executive Committee's "arbitrary directives" had suddenly become "wise."
+Xiao Bailang, who had been conscripted to manufacture the massive floor-to-ceiling mirrors, had spent two days cursing the "arbitrary directives" of the leadership. Now, seeing the results, his grievances vanished, replaced by unabashed voyeurism.
 
-"Just have them practice bottomless! A bra and thong would be enough!" Chen Sigen said with a laugh—he had come to teach Dong Weiwei and check on how the nutritional meals he'd formulated were working.
+"Forget bodysuits. Just hav 'em practice in bra and panties," Chen Sigen laughed. He was there to audit the nutritional program he had designed.
 
-"What bras and thongs—just strip them naked to practice!" Xiao Bailang licked his lips. "Grab that big foreign mare Salina to be the instructor, practicing together!" He sighed with regret. "These clothes now, really not inspiring."
+"Why stop there? Just strip them naked!" Xiao Bailang licked his lips. "Get that big foreign mare Salina to instruct them. Now *that* would be a show." He shook his head ruefully. "These uniforms are a buzzkill."
 
-Not only was there no leotard, but even the uniforms the female servant trainees wore couldn't inspire transmigrator fantasies.
+Indeed, the uniforms were designed for modesty, not fantasy.
 
-Originally, the female servants' clothing had been a topic of great interest, with many different proposals raised in dedicated discussion threads: high-slit qipaos, miniskirt maid outfits with lacy aprons... Generally speaking, they all contained elements of sexual fantasy, bordering on lingerie. Wearing such clothes didn't prevent housework, but going out became inconvenient, and the transmigrators weren't broad-minded enough to want their female servants flashing flesh in public.
+The original BBS threads had been filled with fevered suggestions: high-slit qipaos, French maid outfits with lacy aprons, anything that screamed specific fetish. But the Committee ruled that while such clothes were fine for the bedroom, they were impractical for housework and inappropriate for public display. The transmigrators wanted concubines, but they weren't eager to have *their* women flashing skin to the neighbors.
 
-What was actually issued was the most common mass-produced pullover blue cotton schoolgirl uniform with a long skirt—the same standard uniform worn by female students at Fragrant Meadow. As a distinguishing mark, they had a calligraphy cloth tag reading "Health Care" on their chests.
+The compromise was a standard mass-produced blue cotton pullover and a long skirt—essentially the same uniform worn by students at the Fragrant Meadow School, distinguished only by a cloth chest tag reading "HEALTH CARE."
 
-The only difference in clothing from regular female students was that each female servant trainee was issued a bra. The bras were produced by the Light Industry Department's garment factory—very simple without underwire, providing only basic breast support. Bras had been made long ago, but since they weren't urgent supplies and it was unknown whether there was demand for export to Guangdong, only small quantities were produced for internal transmigrator use. This was the first time they were mass-produced and issued to native women.
+The only hidden upgrade was the underwear. Each trainee was issued a bra. Produced by the Light Industry Department, these were simple, wire-free designs meant for basic support rather than entrapment. It was the first time bras had been mass-issued to native women.
 
-Chen Sigen checked the clinic's weekly physical examination records—he needed to use this data to judge whether his meal planning was appropriate. Most female servants had varying degrees of malnutrition, plus more or less problems with excessive or insufficient micronutrient intake—all of which needed to be addressed individually.
+Chen Sigen ignored Xiao Bailang's leering and focused on the clinic's weekly data. Most of the women suffered from chronic malnutrition or specific micronutrient deficiencies. His meal plans were slowly correcting this, but it was a long game.
 
-The weather was nice, so Chen Sigen put a chair on the clinic's porch to read the data while sunbathing. Just then, Liu San and his apprentice Fu Wuben arrived. Fu Wuben was pushing a Zidian Kai bicycle loaded with two large wicker baskets, tied up tightly with rope, with straw stalks poking out through the basket gaps.
+As they sat on the clinic porch, soaking up the sun, Liu San arrived with his apprentice, Fu Wuben. The young man was pushing a heavy-laden 'Purple Lightning' bicycle, its cargo baskets overflowing with sealed pottery jars.
 
-"What's this?" Chen Sigen asked curiously.
+"What's the haul?" Chen Sigen asked.
 
-"Tonic medicine." Liu San smiled mysteriously. "All good stuff."
+"Tonic medicine," Liu San said with a mysterious smile. "The good stuff."
 
-The unloaded baskets contained small pottery jars, at least a hundred of them. Though the lids were tightly sealed, a strong medicinal aroma still emanated.
+The jars contained herbal pastes. While the school focused on macronutrients, the "Female Servant Countermeasures Committee" had commissioned the Health Ministry to use Traditional Chinese Medicine to accelerate the "beautification" process.
 
-While the Female Servant School had Chen Sigen formulate meal plans to improve nutrition, it also employed traditional Chinese medicine conditioning methods. Chang Shide had specially contributed several secret formulas for nourishing yin and improving complexion from the old army doctor in Leizhou—including Three-White Decoction. Based on Chang Shide's experience, this formula was indeed somewhat effective.
+Liu San had adapted several secret formulas for "nourishing yin" and "improving complexion" from an old army doctor in Leizhou, including the famous Three-White Decoction. He viewed the assignment as a perk—proximity to the water meant getting first glimpse of the moon.
 
-These formulas were passed to Liu San—he had been commissioned by the Female Servant Countermeasures Committee to be responsible for the female servants' physical conditioning. He often said "conditioning" as "training"—fully revealing his true nature.
+"Conditioning," Liu San called it, though his tone suggested he was "grooming" prize racehorses.
 
-Liu San quite enjoyed this assignment—proximity to the water brought first access to the moon. He could fully observe the female servants' appearances and figures up close.
+The formulas were standard Runshitang fare, but upgraded. Money was no object; Xiao Zishan had opened the General Affairs Office's war chest for this project. The pharmacists at Runshitang, knowing these tonics were for the Leaders' future bedmates, had sourced the finest ingredients and prepared them with religious care.
 
-After studying the old army doctor's so-called secret formulas, Liu San found them rather ordinary. Merely nourishing yin and supplementing qi—he hadn't had much interest in traditional gynecology before, but he had many reference books compiling traditional formulas at hand, and as a shareholder in Runshitang, he could access all the secret formulas stored by the medicine shop. Runshitang's specialty was precisely health-nourishing tonic pills, with an extensive collection of such secret formulas.
+The results were undeniable. Between the protein-rich diet, the yoga, and the herbal supplements, the women were transforming. Their skin was clearing, their hair gaining luster, their bodies filling out in all the right places. They were being physically engineered to satisfy the transmigrators' desires and to bear healthy heirs.
 
-After several rounds of consideration, Liu San developed several tonic paste formulations targeting the different physical conditions among the current female servants. As for medicinal materials, Xiao Zishan had made clear there was no need for frugality—all expenses would be covered by the General Affairs Office's special administrative fund account.
+"Spot any you like?" Chen Sigen asked, gesturing to the courtyard where the women were jump-roping.
 
-When Runshitang received this business and learned it was for the leaders' concubines, everyone from shop owner Yang Shixiang to the managers and clerks below put forth their utmost effort, carefully selecting materials and refining the preparations. Delivered once daily, with Runshitang sending a special person. Each female servant had to consume her portion under the supervision of management personnel without fail.
+"Doesn't matter if I do," Liu San's face fell. The subject was a sore spot. The "tigress" at home kept a tight perimeter. Aside from a few stolen moments on business trips to Leizhou, he had been forced into monogamy.
 
-Today's delivery of tonic paste was brought personally by Liu San—his purpose was the same as Chen Sigen's: to see how effective it was.
+"Ah. Right. You brought sand to the beach," Chen Sigen nodded sympathetically.
 
-The effect was quite remarkable. Under the dual efficacy of sufficient nutrition and medicinal conditioning, even without looking at the data, one only needed to see the female servants' rosier complexions and the luster in their hair and eyes to know this effort hadn't been wasted.
+"She's... vigilant," Liu San sighed.
 
-Improved nutrition and physical exercise would help the female servants develop good figures, supple bodies, and healthy constitutions—both to fully satisfy transmigrators' various needs and desires, and to prepare for bearing healthy offspring.
+"The burden of attachment," Chen chuckled. "This is the joy of bachelorhood. The bitterness ends, and the sweetness begins."
 
-"Spotted any you like yet?" Chen Sigen surveyed the female servants doing jump-rope exercises in the courtyard.
+Liu San watched the jumping figures with a mix of longing and resignation. The bachelors had a bright, harem-filled future ahead of them. He could theoretically afford a whole squad of Life Secretaries, but in practice, he was destined to watch from the sidelines.
 
-"Even if I did, it wouldn't matter." Liu San's interest waned when this topic came up. The tigress at home kept her fence very tight, occasionally launching preemptive strikes. Aside from sneaking a few bites during business trips to Leizhou, Liu San had been quite well-behaved.
+*Back in the old world, having a girlfriend was a status symbol,* he thought gloomily. *Now it's a shackle.*
 
-"Oh, you brought your wife with you." Chen Sigen nodded with an expression of sudden realization.
-
-"This is very hard to convince her of." Liu San sighed again.
-
-"I can understand," Chen Sigen nodded. "Very difficult to change." He chuckled. "This is the advantage of being single—bitterness ends, sweetness begins."
-
-Liu San felt even less enthusiastic. The "sexual blessings" awaiting the bachelors had a bright and splendid future. For now there was only one life secretary, but later, as long as one's body could handle it, organizing an entire Women's Army Company was possible. His tonic medicine business would probably be very prosperous—except he could only watch from the sidelines.
-
-Back when he had a girlfriend at his side, he'd been envied by the bachelors whose only companion was their own hand, and had even felt a bit proud. Now it seemed like shackles. Liu San thought gloomily as his eyes swept over the girls; yet he also felt giving up this opportunity was too wasteful—he definitely had to fight for it. Even if she could only be a real maid for now, he had to get one home!
-
-(End of Chapter)
+Still, observing the bloom of health on the trainees' cheeks, he resolved not to give up entirely. Even if she was just a "maid" on paper... surely he could smuggle one into the house under the guise of domestic necessity. It was a waste to let such an opportunity pass.

@@ -1,103 +1,97 @@
 # Chapter 567 - Sanya City
 
-Hu Xun had no choice but to agree. He had substantial property in Anyoule Market—besides his residence and household valuables, there were many salvaged goods from wrecked passing ships stored in the town's public warehouse awaiting resale. Now it all went to the transmigrators.
+Hu Xun had no choice. Resistance was impossible. He surrendered his jurisdiction, his warehouse filled with scavenged goods, and essentially his dignity.
 
-The natives hid in their homes, inns, and shops, peering through cracks in windows and doors at what was happening outside. The streets were very quiet; only sea pirates in matching tight-waisted jackets carrying long muskets walked about. No fires had been set, no burning or looting, no screams from rape or murder. Everyone relaxed slightly.
+The natives of Anyoule Market hid behind shuttered windows, peering through cracks at the new masters walking their streets. These "sea pirates" wore matching tight-waisted jackets and carried long muskets, moving with eerie discipline. There was no looting, no burning, no screams of rape. The tension in the air began to ease.
 
-After a while, they heard gongs on the street, summoning all shop owners, ship captains, and household heads to come out and gather at the temple on the east side of town for a meeting. No one dared refuse, and they all cautiously ventured out.
+Then, the gongs sounded.
 
-He Fanghui, holding an oversized tin megaphone, stood on the stone steps with a stern face. His energetic gaze swept over the few dozen people below. Summoning his *qi*, he bellowed like he was conducting an auction in the old world:
+"All shopkeepers! Ship captains! Heads of households! Assemble at the East Temple!"
 
-"Fellow townspeople!" His voice was loud and resonant. He spoke the local lingua franca, Hainan dialect. Besides this, He Fanghui could also speak Cantonese, Hainan Wenchang dialect, Chaozhou dialect, and Hakka. He had been assigned as the Sanya Region's civil affairs liaison. Since the only "civil affairs" in the Sanya region was Anyoule Market, He Fanghui had become the local emperor of Anyoule Market.
+No one dared refuse. They filtered out of their homes, a timid herd.
 
-Following the command's directives, He Fanghui first announced the "requisition" of supplies. All materials, grain, and assets within Anyoule Market would be requisitioned if needed by the Australians. Receipts would be issued for requisitioned items, with repayment at a later date.
+He Fanghui stood on the stone steps of the temple, holding an oversized tin megaphone. He was the appointed Civil Affairs Liaison for the Sanya Region, which effectively made him the Emperor of Anyoule Market.
 
-He then announced various regulations: no going out after dark; all able-bodied men and women must follow the "Construction Command's" dispatch to work for the "Australians"; no one except work parties was permitted to leave Anyoule Market.
+He swept his gaze over the crowd, inhaled deeply to summon his *qi*, and bellowed like an auctioneer.
 
-"If you all obey and serve properly, we guarantee your families, livestock, and property will be safe and sound." He Fanghui held the tin megaphone. "Follow the police team's commands. No resistance, no delays!" He suddenly waved his hand:
+"Fellow Townspeople!"
 
-"Bring up the criminal elements who took advantage of the chaos to riot!"
+His voice boomed in perfect Hainan dialect. For good measure, he could have repeated it in Cantonese, Hakka, Teochew, or Wenchang dialect. He was a linguistic chameleon, and he used it to dominate the space.
 
-The police team marched up three poor wretches in ragged clothes.
+"By order of the Sanya Construction Command, I announce the following!"
 
-"Anyone who disobeys our orders or harbors ulterior motives will meet this fate." He Fanghui said sternly. "String them up!"
+First, requisition. All grain, materials, and assets were subject to Australian seizure. Receipts would be issued; repayment would come... later.
+Second, curfew. Martial law after dark.
+Third, corvée labor. All able-bodied residents were now employees of the Construction Command. No one leaves the town without a pass.
 
-The police team immediately erected a crude wooden gallows in the middle of Anyoule Market's street. Three looters were hanged on the spot.
+"If you obey," He Fanghui shouted, his tin voice ringing off the tiles, "your families and property are under our protection. Follow the Police Team's orders. Do not resist. Do not delay!"
 
-The crowd was stunned into silence, trembling as they watched the unfortunate souls still kicking on the gallows. Several of the more timid wet themselves.
+He paused, letting the silence hang. Then he waved a hand.
 
-The ship captains and managers of vessels moored here knew their ships and cargo were doomed; their faces were ashen. He Fanghui ordered them to immediately report their cargo manifests. Items needed would be "purchased through negotiation" at Guangdong prices; cargo not needed could be retained. They could keep their ships, but all crew would be at Australian disposal.
+"Bring them up!"
 
-"...When the trade winds return, you'll naturally be released. Until then, everyone behave yourselves."
+The police dragged three ragged men onto the stage. They were the looters caught during the surrender.
 
-The ship captains naturally didn't dare say no. Each meekly handed over their cargo manifests.
+"This is the price of disorder," He Fanghui stated, his voice ice-cold. "String them up."
 
-He Fanghui took over Anyoule Market's public hall as his headquarters. The health team disinfected the building. He Fanghui's main task was to assist Sun Xiao in maximally extracting Anyoule Market's resources.
+A crude gallows had already been erected in the square. The police moved with practiced efficiency. No trials, no speeches. Just the kick of a stool and the snap of rope.
 
-After inspecting Anyoule Market and surveying the overall situation, He Fanghui hurried back to the public hall to assign tasks.
+The three men jerked and danced in the air.
 
-When he arrived, the place reeked of disinfectant. Tables, chairs, and stationery were already set up. Several Planning Council "abacus operators" surrounded tables, clicking away on their abacuses. The clatter of beads mixed with the scratching of clerks with ink bottles around their necks, writing with metal-tipped pens. Planning Council staff were overwhelmed with work—sealing and requisitioning supplies and equipment everywhere, registering the population.
+Below, the crowd trembled. Several men wet themselves. The message was received: *The new masters are civilized, but they are not soft.*
 
-This efficiency was truly gratifying, He Fanghui thought. Several documents already lay on his desk. He glanced through them—all investigation and statistics materials. Most important was Anyoule Market's household registration book.
+Next, He Fanghui turned to the ship captains. "Hand over your manifests. We will purchase necessary cargo at Guangdong market prices. Unnecessary cargo, you keep. Your ships are yours, but your crews are ours until the trade winds return."
 
-Hu Xun's secretary had very cooperatively handed over Anyoule Market's household registration book—not the fraudulent Yellow Register for fooling officials, but the actual population register.
+The captains handed over their papers with shaking hands.
 
-"You killed three people just like that. Such a waste." Sun Xiao complained. "They were perfectly good free labor. Besides, those people were obviously toiling masses who just died so senselessly."
+He Fanghui commandeered the town's public hall as his HQ. The Health Team sprayed the place with disinfectant until it smelled like a hospital. Inside, the Planning Council's "Abacus Army" set up shop. The clack of beads and the scratching of steel-nibbed pens filled the room as they cataloged every bolt of cloth and sack of rice in the town.
 
-"Killing to establish authority," He Fanghui said. "Without killing a few, how do you get these people to obey?"
+"You killed three people," Sun Xiao complained, looking up from a ledger. "That's three units of labor wasted."
 
-He Fanghui conferred with Sun Xiao. They decided to first conscript the town's "professional personnel." Cooks and kitchen helpers were quickly gathered and sent to the communal kitchens. Then came iron, wood, masonry, and tile craftsmen for the construction teams. Finally came the prostitutes—Anyoule Market had three brothels, plus various unlicensed streetwalkers.
+"Kill the chicken to scare the monkey," He Fanghui shrugged. "Order is cheaper than chaos."
 
-"A population under a thousand total, yet sixty or seventy prostitutes!" Sun Xiao exclaimed after reviewing the household register.
+They moved on to labor allocation. Cooks were sent to the mess halls. Craftsmen—saws, hammers, trowels—were drafted into construction teams. Then came the "Special Service Personnel."
 
-"That's good news—means we don't have to force decent women into prostitution," He Fanghui said.
+"Sixty prostitutes for a population of under a thousand?" Sun Xiao raised an eyebrow at the register. "This town is a den of vice."
 
-"Prostitutes are also working-class people," Sun Xiao said sympathetically. "So-called 'not forcing decent women' is just a fig leaf."
+"Good news for us," He Fanghui said. "It means we don't have to force 'decent' women into comfort work."
 
-"Liberating prostitutes can wait. For now, let them temporarily serve the great transmigration enterprise." He Fanghui was unconcerned. "We can use the existing facilities too—no need to build special buildings."
+"Prostitutes are working class too," Sun Xiao said, ever the humanitarian. "Ideally, we should liberate them."
 
-Other townspeople—able-bodied men and women—were organized into teams by age, ready for Zhuo Tianmin's dispatch at any time.
+"Liberation can wait. For now, they serve the Great Cause." He Fanghui was a pragmatist. "Keep the brothels open. Just ensure the Health Team inspects them."
 
-Multiple construction sites opened simultaneously. Building materials were unloaded from ships and piled everywhere. Large quantities of prefabricated building components greatly accelerated construction speed. These buildings used elevated structures with low foundation requirements, well-suited for construction on sandy soil like around the harbor.
+While Anyoule Market was reorganized, the rest of the invasion force broke ground.
 
-Four sites were under construction simultaneously: Yulin Stockade, Luhuitou, Tiandu River mouth, and Anyoule Market. Of these, the Tiandu River mouth outpost had the smallest workload—an earth-and-timber outer wall, a ditch, and several buildings were completed in half a day. This outpost's purpose was to control the Tiandu River mouth and ensure smooth communication between Yulin Stockade and Tiandu Town. The planned light railway from Tiandu Town to Yulin Stockade would run along the Tiandu River.
+Four construction sites opened simultaneously: Yulin Stockade expansion, Luhuitou Battery, Tiandu River Outpost, and the designated site for "Sanya City."
 
-On the cleared ground outside Yulin Stockade, a labor camp was quickly built. Rows of buildings laid out in a grid pattern, with Zhuo Tianmin's Engineering Headquarters at the center. He declined the dedicated bedroom offered inside Yulin Stockade, saying it would be more convenient to work from the labor camp headquarters.
+At the cleared ground outside Yulin, a massive labor camp rose from the sand. It was a grid of prefabricated huts, centered on Zhuo Tianmin’s Engineering Headquarters.
 
-The labor camp had an attached clinic with fifty beds and a simple surgical operating room capable of basic procedures. To ensure hygiene, there was also a dedicated shower room. Bathing water was pumped from the Tiandu River, passed through settling tanks, and disinfected with bleaching powder. Wastewater from bathing was used to flush the communal latrines. Drinking water for laborers and soldiers came from the water station, processed the same way as daily-use water but with an additional boiling step.
+Hygiene was enforced with military rigor. Latrines were flushed with wastewater; drinking water was boiled and distributed from central cisterns; bathing was mandatory in the communal showers, fed by river water treated with bleach. In this tropical climate, disease was a deadlier enemy than any Ming army.
 
-Warehouses were built on Yulin Stockade's original cargo yard. The construction team rushed to add roofing covering a third of the open yard. Below, it was partitioned into several sub-warehouses for storing grain, weapons and ammunition, merchandise, and valuable tools and equipment.
+The warehouses were strict no-fire zones. "No Smoking" signs were posted everywhere. Electric lights were used at night. Grain—the lifeblood of the project—was stored in sealed tin drums to prevent rot and rats.
 
-Grain was the most important material. The grain warehouse held not only large quantities of Grassland Series rations but also brown rice, dried vegetables, and pickles—enough to feed all laborers and soldiers for a month. Because grain was so important, it was all packed in sealed tin drums rather than straw sacks.
+Two hundred meters from Anyoule Market, the migrant laborers were setting up tents. They would build the new city—Sanya City.
 
-These supplies were so crucial that losing even a portion would seriously set back the entire Project Giant. The Sanya Command guarded the warehouses extremely closely. Not only was a marine platoon stationed day and night inside Yulin Stockade, but pumps and fire hoses had been specially brought in for fire prevention. No open flames were permitted anywhere inside Yulin Stockade—no smoking allowed; electric lights only at night.
+It would not be a renovation of the old market. It would be a new organism, born of Planning Council blueprints.
 
-Hu Wumei's migrants were settled two hundred meters outside Anyoule Market. This batch included only able-bodied men and women for now. Until the new Anyoule Market—or "Sanya City"—was built, they could only live in tents.
+The layout was a strict grid. The centerpiece: a five-story brick-and-stone City Hall, built like a fortress to serve as a last redoubt. In front, a commercial plaza. Beneath the streets, brick-lined sewers.
 
-Sanya City wouldn't reuse old Anyoule Market but would be rebuilt on a new site. In terms of municipal construction, Sanya City would adopt entirely new urban planning and building styles.
+"We don't build medieval cities," Ji Tuisi had declared during the planning phase.
 
-Sanya City followed a grid layout. First, a municipal hall would be built—a five-story fortress-style brick-and-stone building serving as both administrative facility and stronghold, shelter, and warehouse. The migrants had separate reserves of grain, medicine, clothing, and tools. If one warehouse was destroyed, they could hold out on the other for a while.
+Waste would be fed into biogas digesters to fuel streetlamps. Coconut shells—an infinite local resource—would be carbonized in dry-distillation furnaces to produce charcoal and chemical feedstocks.
 
-In front of the municipal hall was a plaza for markets and gatherings. Two streets radiated from the plaza in a cross pattern. Buildings around the plaza would all be commercial—no residences. Below the streets were brick-and-stone drainage channels. Though not grand enough to boat through, they were wide enough for maintenance workers to walk in, and could accommodate future utility lines.
+The water system, designed by Tian Jiujiu, avoided lead and expensive copper. It used aqueducts and settling tanks, feeding into concrete public cisterns. The cisterns featured a coin-operated innovation: insert a token, get 20 liters. A lesson in capitalism and conservation for the new citizens.
 
-Discharged wastewater would join city garbage in biogas digestting tanks. The biogas produced would fuel street lamps. Processed wastewater would irrigate farmland, and residue would serve as fertilizer.
+Walls? No.
 
-Ji Tuisi also planned to build a dry distillation furnace here. Yulin was the transmigrator collective's timber supply base, with abundant scrap from log processing. Moreover, coconuts would be processed locally in Sanya, producing large quantities of coconut shells. This waste could be carbonized—the resulting wood tar would be shipped to Lingao as chemical feedstock, and the coal gas would supply Sanya's civilian lighting and industrial use. Dry-distilled coconut shells made excellent activated charcoal.
+"Walls are obsolete," the plan stated. Sanya City would be defended by wide earthen ramparts and deep, seawater-filled moats. When the city inevitably expanded, the ramparts would be bulldozed to form the foundation for a ring road, and the moats lined to become drainage canals. It was forward-thinking urban planning disguised as fortification.
 
-Running water was limited by the transmigrator collective's lack of abundant raw materials for mass-producing pipes—this timeline had no PVC. Using lead like Europeans would be convenient but toxic. Bronze would work but was too expensive. Cast iron remained, still constrained by raw material production capacity. So in the end, Tian Jiujiu's water system design for Sanya continued the aqueduct model: pumps drawing water at the source, conveying it through covered channels to settling tanks for treatment, then distributing disinfected water through cast iron mains to public cisterns. The cisterns were reinforced concrete with removable lids for cleaning. Multiple taps were installed in cistern walls. The Mechanical Works had even designed a coin-operated payment system—inserting one token would open a tap for enough time to dispense 20 liters of water.
+The goal was clear: Sanya City would be a model. A showcase of Cleanliness, Order, and Australian Superiority. It would awe the natives and provide a civilized vacation spot for the overworked Elders.
 
-Sanya City didn't have high walls—according to Executive Committee plans, Sanya would continuously expand over the coming years to accommodate more population and enterprises. Building walls now would mean demolishing them later for ring roads—a waste of labor. So Sanya's defense system was wide earthen ramparts plus ditches. The ramparts had trenches with parapets, plus several towers. The rampart edges featured defensive bands of standardized bamboo stakes; beyond these were deep, seawater-filled moats.
+To build it, they needed bricks. Shipping them from Lingao was wasteful.
 
-This defensive works performed well, and once the city needed to expand outward, the rampart could be easily modified to serve as a ring road foundation. Even the moat wouldn't be wasted—after brick-lining, it could become sewer channels.
+"Make them here," Zhuo Tianmin ordered.
 
-The Executive Committee spared no expense in building Sanya precisely to make Sanya City a model for future transmigrator-state new cities. It would face not only local natives but also merchants trading between China and Southeast Asia, demonstrating their strength. A clean, orderly, well-managed new city.
-
-Also, everyone yearned for Sanya's scenery, hoping to vacation there with their life secretaries in the future. To satisfy this requirement, a clean, orderly, well-equipped city was essential.
-
-The migrants' job was working on their new city. Over six hundred men and women served as laborers at the construction site, with specialized construction teams doing the actual building. To supply the massive construction demand for bricks and tiles, three or four ships loaded with building materials arrived daily, unloaded, and hurried off. Zhuo Tianmin hoped to produce bricks and tiles locally rather than waiting for building materials to arrive each day. Currently, all construction supplies were in short supply. If bricks and tiles could be produced locally, the freed shipping capacity could transport more cement, bamboo, and steel reinforcement.
-
-This request was quickly approved. Since Sanya was a construction priority, construction volume would naturally be substantial—they couldn't keep shipping bricks and tiles from Lingao. Local self-sufficiency was essential. Eventually, the exploration team found suitable clay near the Tiandu River mouth. Small brick kilns were built on-site.
-
-The kilns were planned to use local specialty fuel—scrap wood and branches. But these proved insufficient and unsuitable. In practice, coal remained the primary fuel. Yulin Stockade had no local coal supply; fuel coal would have to be shipped from Lingao. Given the many coal-using equipment here, establishing a dedicated coal transport line wasn't unreasonable.
+Clay deposits were found near the Tiandu River. Kilns were built. Since local wood was needed for construction (and carbonization), coal was shipped in to fire the kilns. It was a complex logistical chain, but the machine of colonization was beginning to hum.
 
 (End of Chapter)

@@ -1,143 +1,123 @@
 # Chapter 566 - The Fall of Anyoule Market
 
-Wang Luobin and the others landed at Pier No. 1 aboard a motor launch, escorted by Army soldiers from the Expeditionary Battalion. The motor launch was impressively bedecked with four command flags.
+Wang Luobin and the command staff approached Pier No. 1 in a motor launch noticeably bedecked with four fluttering command flags. An Army squad from the Expeditionary Battalion stood at the bow, providing an armed escort.
 
-Wang Tao had changed into a set of neat field training uniform, wearing all his honors: the Hainan Island Circumnavigation Medal, the Bopu Defense Battle sleeve patch, the Yulin Stockade Development Medal, and the Collective Third-Class Merit bar. He stood with the Yulin Stockade marine detachment in front of Yulin Stockade, awaiting their arrival. Bayonets gleamed like a forest, banners fluttered. The scene was quite solemn.
+On the pier, Wang Tao waited. He had changed into a crisp field uniform, his chest adorned with every decoration he had earned: the Hainan Circumnavigation Medal, the Bopu Defense Service Bar, the Yulin Development Medal, and the Collective Third-Class Merit Badge. Behind him, the Yulin Marine Detachment stood in formation, a forest of gleaming bayonets under snapping banners.
 
-After exchanging a few pleasantries, Wang Tao completed the handover procedures with Li Haiping—this area was technically under Naval jurisdiction, and since he wasn't a Naval officer, he had only been serving as acting commander.
+The handover was formal and swift. Technically, Yulin had been a Naval jurisdiction, and Wang Tao—a civilian administrator—had merely been "Acting Commander."
 
-Subsequently, Xi Yazhou, commander of the Army Sanya Expeditionary Battalion and concurrent commander of the Sanya Special Zone Garrison, and Li Haiping, commander of the Navy Sanya Detachment and concurrent commander of the Sanya Base Fleet, conducted a brief changeover ceremony in front of Yulin Stockade. To the sound of buglers from both Army and Navy, an infantry squad and a marine squad stood at attention at the stockade gate for review. Then Li Haiping saluted and announced loudly: "I hereby relinquish command of Yulin Stockade!"
+Now, Xi Yazhou (Commander, Sanya Expeditionary Battalion) and Li Haiping (Commander, Sanya Base Fleet) stepped forward. Bugles sounded. Infantry and marine squads presented arms.
 
-"I hereby assume command of Yulin Stockade!" Xi Yazhou returned the salute. Both sides then exchanged the stockade's documents and materials.
+"I hereby relinquish command of Yulin Stockade!" Li Haiping announced, saluting.
 
-"Good, the ceremony's done," Wang Luobin said. "Is the command post set up?"
+"I hereby assume command!" Xi Yazhou returned the salute. Documents were exchanged. The simple ceremony marked the end of the frontier era and the beginning of the occupation.
 
-"It's ready. Please, everyone, move in."
+"Ceremony complete," Wang Luobin said, cutting through the pomp. "Is the Command Post ready?"
 
-The new command post was established inside the original Yulin Stockade. All previous personnel had been relocated. As for Wang Tao and his apprentice Wang Degang, they would be officially transferred from Yulin Stockade for other assignments the next day.
+"Ready. Please follow me."
 
-Except for a few brief departures, Wang Tao had essentially never left this place. Now, leaving the Yulin Stockade he had painstakingly built over nearly a year, Wang Tao naturally felt some reluctance. But this was not his ideal home; Yulin Stockade was merely a temporary stop.
+The new CP was located inside the central bastion of the original stockade. It had been gutted and remodeled days prior, partitioned into offices and a war room. The beds were made, the desks polished.
 
-Xi Yazhou, taking over Yulin Stockade, assured him that everything he'd left behind would be well maintained—Yulin Stockade would be preserved forever as a model of "self-reliance and hard struggle." But Wang Tao doubted whether his native chickens would survive past tomorrow.
+Wang Tao, who was scheduled to return to Lingao the next day, felt a pang of melancholy. He had built this place from nothing, raising chickens and fighting malaria. Now, it was being handed over to the big shots. Xi Yazhou promised to preserve the stockade as a monument to "self-reliance," but Wang Tao doubted his native chickens would survive the week.
 
-The large bastion inside Yulin Stockade that had originally served as command headquarters had been remodeled several days earlier, partitioned into offices and conference rooms. Even the main officers' bedrooms were already furnished with beds and desks—ready for move-in.
+In the conference room, a large-scale map was spread across the main table, covered by a sheet of glass. Clerks armed with grease pencils stood ready.
 
-The big bosses inspected and nodded approvingly. They felt the Administrative Office had done quite well in logistics support this time.
+"I assume command," Wang Luobin stated.
 
-However, quite a few transmigrators were coming to Yulin Stockade. If their living conditions were too poor, they'd definitely complain. Wang Luobin asked:
+Clerks immediately began placing markers on the glass: ship berths, supply dumps, troop concentrations. The chaos of the landing was reduced to tidy geometric shapes.
 
-"Are the Elders' quarters arranged?"
+The four leaders gathered around the map.
 
-"All arranged," Wang Tao said. "Army and Navy officers will stay in tents or aboard ships—that's per regulations. The others will stay in the east and west bastions. Conditions are acceptable. The last bastion is reserved for the guard squad."
+"Security situation?" Wang Luobin asked.
 
-"I don't need to stay here," Li Haiping said. "I can sleep on the ship. Besides, if I stayed here, there'd be no one in charge at the Luhuitou battery construction site."
+Xi Yazhou cleared his throat. "Maritime threats: negligible. The Navy can handle any pirate raid. Land threats: minimal. Yazhou City is sixty kilometers away. Intelligence confirms there is no road connecting us—just dense jungle and mountains. No Ming army can traverse that terrain to attack us."
 
-Wang Luobin ordered the radio set up quickly to establish communications networks. The PHS system had no base station here, and walkie-talkies had limited range. They would have to rely on radio for command. Fortunately, native radio operators' skills were now adequate. Shao Zong, who had accompanied the expedition, only needed to handle equipment maintenance.
+"So we can relax?"
 
-In the conference room, a table was set up, then a detailed large-scale map was spread upon it. Several panes of glass were carefully placed over the map. Clerks brought ink pens for writing and marking on transparencies.
+"Basically. The only potential threat is the Li tribes. They might ambush small patrols for supplies, but they lack the numbers for a sustained assault."
 
-"I am now in command," Wang Luobin announced. Clerks began placing various paper markers on the table according to initial reports: each ship's berth, supply depots, building foundation locations, troop and labor team positions—all clearly displayed. The situation around Yulin Harbor was now visible at a glance.
+"Bandits?"
 
-The four leaders gathered around the table. Xi Yazhou cleared his throat and explained the security situation:
+"This place is too godforsaken even for bandits," Xi Yazhou scoffed. "Bandits need victims. Here, there are only monkeys."
 
-"Currently, our development work has security guarantees. The Navy can repel medium-scale maritime raids." Almost every ship in the fleet was equipped with varying numbers of cannons, some even with machine guns—not to mention the two 8154 fishing trawlers holding down the fort.
+He drew lines on the glass. "1st Company will disperse platoons to the Tiandu River, Anyoule Market, and Luhuitou. 2nd Company holds the stockade. Marines concentrate at Luhuitou to guard the battery construction. The most dangerous window is after the escort fleet leaves—we'll be relying on the battery."
 
-"As for land," Xi Yazhou continued, "Yazhou's seat of government is 60 kilometers away by direct overland route. According to conclusions from Intelligence Department research of historical records, there's no decent road connecting the two locations. In fact, there's essentially no road at all. I believe no armed force in this timeline would be willing or able to traverse roadless mountains and dense forest for a 60-kilometer long-range assault on us. So we don't need to worry about armed suppression from enemies."
+"Those two guns?" Xi Yazhou muttered. "We'd be better off hoping the noise scares them away."
 
-"So we can rest easy?" Wang Luobin asked.
+"As long as the defense holds for a few days, the main fleet will be back," Li Haiping assured him.
 
-"Basically, yes," Xi Yazhou said. "The only potential threat is inland Li tribespeople. According to Wang Tao's reports, the Li occasionally came to trade at Anyoule Market. We can't rule out the possibility they might ambush and rob our small detachments on the roads."
+Discussion turned to the expansion. Yulin Stockade would grow north, south, and east. "New Yulin" would feature ten bastions, double walls, and a massive warehouse district for ore export.
 
-"Countermeasures?"
+A signalman entered. "Report: Envoys from Anyoule Market are at the gate. They request to see the 'Maritime Lord'."
 
-"Such small-scale raids are hard to defend against, but the Li rarely come here, and even when they do, it's only a handful of people. Even if a few incidents occur, they won't cause significant damage."
+"Meet them?"
 
-"What about bandits?"
+"No," Wang Luobin was blunt. "I don't care what they want. The schedule says Anyoule Market surrenders in one hour."
 
-"This godforsaken place can't even sustain bandits," Xi Yazhou said. "There's almost no towns or villages, and a few dozen *li* inland you're in Li territory. Bandits have no room to survive—there'd have to be relatively populous areas like Yazhou City for bandit activity."
+"I've ordered the bombardment for T-plus-45 minutes," Li Haiping said eagerly. "The sailors can storm the beach. One charge, it's ours."
 
-Xi Yazhou picked up an ink pen and drew on the glass. "The Expeditionary Battalion's First Company will deploy its three platoons to Tiandu River mouth, Anyoule Market, and Luhuitou area as sentries. Second Company stays at Yulin Stockade pier for both sentry duty and as reserve. Other units will serve as mobile labor. All marines will concentrate at Luhuitou Peninsula for sentry duty."
+"Wait," Wang Luobin checked his watch. "Send Wang Tao."
 
-"I agree." Wang Luobin nodded. The others concurred.
+Wang Tao was summoned.
 
-"The most dangerous time will be after the escort fleet leaves," Xi Yazhou added. "The special service boats have good firepower but are few in number—easily overwhelmed by superior enemy forces."
+"Do you think you can talk Hu Xun into opening the gates?" Wang Luobin asked.
 
-"The Luhuitou battery must be completed first," Li Haiping said. "With heavy artillery, we'll be safe."
+"No," Wang Tao admitted. "He's a local warlord. Stubborn."
 
-"Honestly, those two guns firing once every three or four minutes would be doing well," Xi Yazhou said. "Rather than hoping the cannon can fight off a hundred enemies, better to hope the enemy will be frightened off by artillery fire."
+"Guarantee his life and family's safety. Guarantee his personal liquid assets. But not his real estate."
 
-"As long as the defense system holds, even Zheng Zhilong can do nothing," Li Haiping said. "Within three to five days, the Navy main force will move south—just in time to catch the enemy."
+"I'll try."
 
-The core of the defense system was Yulin Stockade. Yulin Stockade would be expanded northward, southward, and eastward—the west side was the dock with no expansion potential. The new Yulin Stockade would consist of inner and outer defensive walls, ten bastions, and twelve towers, capable of accommodating a full infantry battalion while safely and reliably storing large quantities of supplies and equipment. New Yulin Stockade's southern section would be developed as a massive warehouse area with open storage yards, specifically for storing exported ore and supplies.
+"You have forty-five minutes. If he refuses, we level the place."
 
-Besides serving as an export dock, Yulin Stockade would bear the task of being the core of the entire Sanya region's defense system.
+Wang Tao hurried to Anyoule Market. He wasn't being sent out of mercy; the Planning Council simply calculated that a pristine town was more valuable than a pile of rubble. They needed the buildings, and they needed the labor.
 
-As the group discussed affairs in the conference room, someone suddenly came to report: several people had emerged from Anyoule Market across the way, requesting to see the "Maritime Lord."
+Inside the market, Hu Xun was sweating. His secretary had returned with the rejection. These Australians were arrogant beyond belief.
 
-"Should we meet them?"
+"Who do they think they are?!" Hu Xun raged.
 
-"No." Wang Luobin was blunt. He had no interest in what the natives in Anyoule Market thought or did. He only knew that according to the schedule, in one more hour, Anyoule Market should open its gates and surrender.
+Suddenly, a voice like thunder rolled over the town.
 
-"I've already given orders. Bombardment begins in fifteen minutes." Li Haiping was eager for action. "Sailors can go ashore directly—one charge and it's ours. We won't even need the marines."
+"ATTENTION, CITIZENS OF ANYOULE MARKET. ATTENTION. RESISTANCE IS FUTILE. OPEN YOUR GATES AND SURRENDER IMMEDIATELY. YOUR LIVES WILL BE SPARED. OPPOSITION WILL RESULT IN DESTRUCTION. YOU HAVE THIRTY MINUTES."
 
-"Wait," Wang Luobin thought for a moment. "Send for Wang Tao."
+The voice was colossal, booming from the sky itself. Hu Xun's face went white. He had never heard a loudspeaker—a high-power PA system mounted on a special service boat. To his 17th-century ears, it was the voice of a god, or a demon.
 
-Wang Tao had been packing, preparing to take the *Sanya No. 1* back to Lingao that very day.
+"Master! Listen!" his secretary pleaded. "They have sorcery! We must surrender!"
 
-"Do you have confidence you can persuade Hu Xun to surrender?" Wang Luobin asked him in the conference room.
+"It... It's nothing!" Hu Xun stammered, terrified. "They're bluffing! Tell the men: five taels for a wound, fifty for a death!"
 
-"No," Wang Tao said frankly. "My relationship with him is only superficial. This kind of old local boss is difficult to deal with." He thought for a moment. "Can we promise him any benefits?"
+But the militia had dissolved. The sight of the iron ships and the booming voice had broken their will. Commanders threw down their weapons and begged Hu Xun to capitulate.
 
-"Guarantee the safety of him and his family," Wang Luobin said. "Also his personal property—not including land or real estate other than his own residence."
+With five minutes left on the clock, the gates of Anyoule Market swung open.
 
-"Well—" Wang Tao thought these terms weren't bad, but whether the other party would see it that way was unknown.
+Wang Tao met Hu Xun at the entrance. The "Mayor" was trembling violently.
 
-"Let me try."
+"Brother Wang! Brother Wang!" Hu Xun threw himself into a bow. "For the sake of our friendship! Save me!"
 
-"His people have already arrived. Do your best to persuade him." Wang Luobin checked his watch. "You have 45 minutes."
+"I will do my best," Wang Tao said coolly. "But you and your family will have to endure some 'inconvenience' for a few days."
 
-Wang Tao's final task was to persuade Hu Xun to surrender. Wang Luobin wasn't suddenly showing mercy; he merely felt that if the town could be taken bloodlessly, it would save gunpowder and ammunition while avoiding too much loss of property and lives. Everything in Anyoule Market, from roof tiles to prostitutes, was in the Planning Council's calculations. Though the population inside was limited, there were many logistical service personnel urgently needed by the Engineering Command.
+Hu Xun shoved a heavy jewelry box into Wang Tao's hands. "Please! Put in a good word!"
 
-"I'll go immediately." Wang Tao accepted the order.
+Wang Tao weighed the box—heavy. A nice retirement fund. He immediately handed it to the discipline officer beside him. "Evidence."
 
-Hu Xun's hands and feet went cold when he heard the secretary he'd sent received such a response. This Master Wang seemed like a decent person—who knew he'd be so arrogant? These sea bandits from Lingao, who did they think he was!
+Police squads led by Zheng Ergen marched into the town. They moved with discipline, rifles shouldered.
 
-Just as he was fuming, an enormous voice roared from outside: "Attention, people of Anyoule Market! Attention! Resistance is futile. Open your gates and surrender immediately. Your lives and property will be guaranteed. Any stubbornness will bring consequences upon your own heads!"
+"Looters!" someone shouted.
 
-The voice came from a ship, but such an enormous speaking voice—Hu Xun had never heard anything like it. His face went white with fright—was this sorcery?
+In the chaos, opportunists were smashing shop windows. Zheng Ergen didn't hesitate. "Shoot them."
 
-"Master, look—" The secretary who'd been sent with "tribute" asked. He fervently hoped for surrender and the opening of gates. The situation was obvious—if they fought, Anyoule Market couldn't hold out long. Though he got along well with Master Hu, he had no intention of dying alongside him.
+*Crack. Crack.*
 
-"It's nothing!" Hu Xun said. "Their cannons can't reach the stockade walls—we're over two *li* from the shore. What's there to fear? Tell everyone, prepare to fight!" He steeled himself. "Tell the men: one tael of silver per day, five taels for each wound! Fifty taels for each death in compensation!" With heavy rewards come brave men—this was the only card Hu Xun could play.
+Two looters fell. The rest scattered like rats.
 
-But the militiamen had no interest in his "heavy rewards." Many were already terrified by the fast ships and the warships bristling with cannon muzzles. Everyone was calculating how to escape with their lives.
+"Gongs!" Zheng Ergen ordered. "Sound the curfew! Anyone on the streets is shot on sight!"
 
-Hu Xun made promises and threats, but no one was interested in fighting. The militia commanders also felt that if it came to a real battle, the stockade was doomed. One after another, they urged Hu Xun to surrender.
+The town fell silent. The militia surrendered their weapons—or simply dropped them and ran home.
 
-A few minutes before the ultimatum expired, Hu Xun emerged with his secretary and handed over Anyoule Market. With no suspense whatsoever, Anyoule Market fell right on schedule.
+Within an hour, Sun Xiao arrived with the "Confiscation Squad."
 
-Hu Xun was trembling all over. He watched as teams of sea pirates in tight, fitted jackets came ashore from various points around the bay. Ships packed the bay as far as the eye could see—what an array he had never witnessed! He couldn't fathom why these people had mobilized such massive forces. Was this place worth deploying so many ships and men?
+At Wang Tao’s suggestion, Hu Xun’s home was spared from looting. He was a useful puppet, a man who knew the local landscape. With his family and wealth held hostage, he would be a loyal dog for the new administration.
 
-"Brother Wang! In light of our good relationship these past months, you must put in good words for me. My life and fortune all depend on you now." Hu Xun rushed to bow repeatedly the moment he saw Wang Tao.
-
-Though Wang Tao's friendship with him couldn't be called deep, Yulin Stockade's smooth operation had owed much to Hu Xun's support. Many living supplies and labor had been obtained from Anyoule Market. Even though his attempt to recruit Hu Xun had failed, he didn't want the man's fate to be too miserable.
-
-"I'll do my best," Wang Tao said. "These are extraordinary times. I'm afraid Master Hu and your family will have to suffer some inconvenience for a few days."
-
-"Yes, yes. I can only ask Master Wang for your help." Hu Xun pressed a small jewelry box into his hand as he spoke. "Please put in good words for me."
-
-Wang Tao hefted it briefly—heavy. Quite a windfall! But he didn't need this bribe. He immediately handed it to Fu Wuben beside him.
-
-He then ordered Hu Xun, the secretary, the militia commanders, and others taken to the public hall in Anyoule Market and held there. Guards were posted at these men's residences. Zheng Ergen led the police team, rifles on their backs, marching proudly into Anyoule Market.
-
-During the brief chaos of the surrender, some looting incidents had occurred. The police caught a few people red-handed taking things from shops. The would-be rioters scattered immediately.
-
-Zheng Ergen ordered his men to beat gongs through the streets, calling out: "All good citizens stay home! No going outside! Anyone seen on the streets will be killed on sight!"
-
-The police collected the militiamen's weapons—more like picked them up, really; the militia had thrown them down and fled home. They secured key points.
-
-Once everything calmed down, Sun Xiao arrived at Anyoule Market according to the predetermined plan, accompanied by the Planning Council's special search team—commonly known as the "confiscation squad."
-
-At Wang Tao's suggestion, Hu Xun's movable property and residence were preserved—after all, he was the local boss who knew the surrounding situation well. When necessary, they could use him to deal with officials and locals. He was a useful asset. With Hu Xun's entire household—family and servants alike—and property in the transmigrator collective's hands, they needn't worry about his compliance.
+Anyoule Market had fallen. Not a single shot had been fired by the invaders.
 
 (End of Chapter)

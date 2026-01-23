@@ -1,101 +1,95 @@
 # Chapter 561 - Sworn Brother
 
-The banquet was exquisite. The Yang family had come from the prosperous lands of Guangdong, and their refinement in enjoyment far exceeded that of local gentry and landlords. With their finances recently much improved, the quality of their living had risen accordingly. The banquet table held few dishes, but each was meticulously prepared. The wine was specially purchased from the mainland—Lanling wine, a premium liquor commonly enjoyed by wealthy Ming Dynasty people.
+The banquet was exquisite. The Yang family, hailing from the prosperous heartlands of Guangdong, possessed a refinement in their enjoyment of life that far outstripped the local gentry and landlords of Lingao. With their coffers recently overflowing, the quality of their daily living had ascended to match. The table held few dishes, yet each was a masterpiece of meticulous preparation. The wine, a premium Lanling vintage commonly savored by the wealthy of the Ming Dynasty, had been specially procured from the mainland.
 
-Yang Shixiang had the attending apprentices heat the wine, then dismissed them. Only he and Liu San remained in the study—he had some important matters to discuss.
+Yang Shixiang ordered his apprentices to warm the wine, then dismissed them. He and Liu San were left alone in the study; he had important matters to discuss.
 
-Since forming a sworn brotherhood and partnership with Liu San, Yang Shixiang's business had grown ever larger, practically bringing in bushels of gold daily. Precisely because of this, he paid increasingly close attention to developments within the transmigrator collective. The Australians were not only his investors, major clients, and technical advisors, but were essentially his patrons. To some extent, the Australians' rise or fall also determined Runshitang's prospects.
+Since swearing brotherhood and forming a partnership with Liu San, Yang Shixiang’s business had expanded voraciously, practically raking in bushels of gold by the day. Precisely because of this success, he paid increasingly close attention to every ripple within the transmigrator collective. The "Australians" were not merely his investors, major clients, and technical advisors—they were, in essence, his patrons. To a significant extent, the rise or fall of the Australians dictated the fate of Runshitang.
 
-Liu San often came to Runshitang on matters related to traditional Chinese patent medicine manufacturing and sales, but rarely had the opportunity to sit down for casual conversation and gossip.
+Liu San often visited Runshitang to discuss the manufacture and sale of traditional patent medicines, but rarely did he have the leisure to sit for casual conversation and gossip.
 
-Yang Shixiang was eager to learn the details of the "Female Servant Revolution." This affair wasn't as airtight a secret as the transmigrators imagined. In fact, rumors emerged within days, saying the Australians had caused internal turmoil over women. Some even stated with certainty that the trouble arose because the leaders inside had each taken dozens of wives while the lower ranks had none. Others said the Australians didn't lack women, but had fought over a woman of celestial beauty, competing for her affections until conflict erupted.
+Yang Shixiang was burning to learn the truth behind the so-called "Female Servant Revolution." This affair wasn't nearly as airtight a secret as the transmigrators imagined. In fact, rumors had begun swirling within days, whispering that the Australians had fallen into internal turmoil over women. Some stated with certainty that the trouble arose because the leaders within the barbed wire commanded dozens of wives each, leaving the lower ranks with none. Others claimed the Australians didn't lack women in general, but had fought over a peerless beauty, their competition for her affections escalating into open conflict.
 
-Yang Shixiang was quite surprised by this news—he hadn't expected the Australians to be short of women! Ships arrived from Bopu Harbor every ten days or so carrying one or two boatloads of refugees, including many women. The Australians numbered at most a thousand; one each should be easily managed.
+Yang Shixiang found this news perplexing—he hadn't expected the Australians to be short of women! Ships arrived from Bopu Harbor every ten days or so, disgorging one or two boatloads of refugees, among them many women. The Australians numbered at most a thousand; surely one woman apiece was easily manageable?
 
-His sworn brother Liu San had a wife—Yang Shixiang had even sent a gift specifically to Wuyunhua, and was rather awed by the robustness and presence of Australian women. He had a vague sense that his sworn brother was somewhat henpecked.
+His sworn brother Liu San had a wife—Yang Shixiang had even sent a gift specifically to Wuyunhua, and had been rather awed by the robust presence of that Australian woman. He harbored a vague suspicion that his sworn brother was somewhat henpecked.
 
 After three rounds of wine, Yang Shixiang finally broached the subject obliquely.
 
-Liu San started—this matter had even reached the county town. Good news never leaves home, but bad news travels a thousand *li*. He nodded slightly:
+Liu San started—so this matter had even reached the county town. *Good news never leaves the gate, but bad news travels a thousand li.* He nodded slightly. "Indeed, it's true."
 
-"Indeed, it's true."
+"What was the outcome?" Yang Shixiang asked quickly.
 
-"What was the outcome?" Yang Shixiang quickly asked.
+"Everyone is satisfied."
 
-"Everyone is satisfied." Liu San's expression as he said this bore no trace of satisfaction, leaving Yang Shixiang puzzled.
+Liu San’s expression bore no trace of satisfaction, leaving Yang Shixiang puzzled. "From your manner, brother, you don't seem satisfied at all."
 
-"From your manner, brother, you don't seem satisfied at all."
+After a few more cups, Liu San couldn't help but vent his grievances about his girlfriend. They were complaints any man could relate to.
 
-After a few cups of wine, Liu San couldn't help venting his complaints about his girlfriend. Any man could relate to such grievances.
+"So you're not permitted to take a concubine." Yang Shixiang looked at his somewhat dejected sworn brother and thought this hardly constituted a crisis. "What's difficult about that? Since you can't bring one home, just set up another household outside."
 
-"So you're not permitted to take a concubine." Yang Shixiang looked at his somewhat dejected sworn brother and thought this wasn't really a big deal. He said, "What's difficult about that? Since you can't bring one home, just set up another household outside."
+Liu San was startled; he hadn't expected Yang Shixiang to suggest this. After a moment’s hesitation, he shook his head. "That won't work. For now, we're not allowed to establish residences outside Bairren City. Besides..."
 
-Liu San was startled—he hadn't expected Yang Shixiang to suggest this. After hesitating a moment, he shook his head:
+Besides, if his wife found out about such audacious behavior, wouldn't she immediately storm over and cause a scene for the whole city to witness? The thought made him realize it was completely unfeasible.
 
-"That won't work. For now, we're not allowed to establish residences outside Bairren City. Besides—"
+Of course, there was no Women's Federation here to back Wuyunhua. The women among the transmigrators were few, and they couldn't exactly be described as a united front. If it really came to a fight, apart from Du Wen, probably no one would come to Wuyunhua's aid. Liu San realized that, strictly speaking, he *could* do whatever he wanted when it came to gender relations.
 
-Besides, if his wife found out about such audacious behavior, wouldn't she immediately come storming over, causing a scene for the whole city to see? Thinking this, he realized it was completely unfeasible.
+But if he did, years of affection would be destroyed. Liu San couldn't bear that cost.
 
-Of course, there was no Women's Federation here to back up Wuyunhua. The women among the transmigrators were not only few in number but couldn't be said to be particularly united or harmonious with each other. If it really came to a fight, apart from Du Wen, probably no one would come to help Wuyunhua. Liu San realized that when it came to gender relations, he could actually do whatever he wanted.
+"Forget it. Let your younger brother work on this slowly," he said listlessly.
 
-But if he really did that, years of feelings between them would be completely destroyed. Liu San couldn't bear that.
+Yang Shixiang had already formulated a plan: if Liu San truly desired a concubine, his wife's family had relatives in Zhangzhou who had recently crossed the sea to join him. There were several girls of marriageable age in that branch; arranging for one to become Liu San's concubine would be effortless.
 
-"Forget it, let your younger brother work on this slowly," he said listlessly.
+Since Liu San wasn't willing, Yang Shixiang didn't press. What he truly urgently needed to know was this: had the Australians been fatally compromised by this disturbance?
 
-Yang Shixiang had already had an idea in mind: if Liu San truly wanted this, his wife's family had relatives in Zhangzhou who had recently crossed the sea to join him. There were several girls of marriageable age in the family; arranging for one to become Liu San's concubine wouldn't be difficult.
+Rumors ran wild outside. Some said the Australians had slaughtered each other, leaving corpses strewn through Bairren City. Others claimed the leaders had set a 'Hongmen Banquet' trap, luring in the troublemakers before dropping a cup as a signal, whereupon arquebuses opened fire, mowing down hundreds instantly. Still others whispered that the main leaders had all been assassinated, and a new faction had seized power.
 
-Since Liu San wasn't willing, Yang Shixiang didn't press further. What he was eager to know was: had the Australians been fatally affected by this disturbance?
+One rumor veered uncomfortably close to the truth: the 'East Gate Grand Official' who managed the East Gate Market had rebelled, leading his men in an attempt to storm Bairren City. A firefight had erupted at the gates; outnumbered, the Grand Official and his men were wiped out. Some storytellers even vividly described how gunfire had echoed through Bairren City all night long...
 
-There were many rumors outside—some said the Australians had fought among themselves, with corpses strewn throughout Bairren City; some said the Australian leaders had set a Hongmen banquet trap, lured in the troublemakers, then gave a signal by dropping a cup, whereupon both sides opened fire with arquebuses, killing hundreds at once; others said all the main leaders had been killed and a different group was now in power...
+The locals weren't very familiar with Dugu Qiuhun, so the protagonist of this tale was often swapped for Dongmen Chuiyu. Since Dongmen Chuiyu had indeed been transferred and vanished from East Gate Market, the rumor gained an air of credibility.
 
-One rumor came particularly close to the truth: the East Gate Grand Official who managed East Gate Market had rebelled against the leaders, leading his men in an attempt to storm Bairren City. At the city gate, both sides exchanged gunfire; the East Gate Grand Official was outnumbered and he and all his men were killed. Some people even colorfully described how gunfire had echoed through Bairren City all night...
+Liu San frowned as he heard how wild the stories had become. *What is the Political Security General Administration doing?* Didn't such rumors seriously damage the transmigrator collective's "great, glorious, and correct" image?
 
-The natives weren't very familiar with Dugu Qiuhun, so the story got switched to Dongmen Chuiyu instead. After Dongmen Chuiyu was transferred and disappeared from East Gate Market, this gave the rumor an air of credibility.
+He had to expend considerable effort to explain to Yang Shixiang that these were merely rumors. As for demonstrations and protests, such things were trivial. Not only had the transmigrator collective's strength remained intact, but after weathering this storm, it would emerge even stronger.
 
-Liu San frowned upon hearing how wild the outside rumors had become—what was the Political Security General Administration doing? Didn't such rumors seriously damage the transmigrator collective's great, glorious, and correct image?
+To make his point, he had to outline the electoral system and the basics of their political structure, lest his sworn brother fail to grasp the nuance.
 
-He had to expend considerable effort to explain to Yang Shixiang that these were all rumors. As for demonstrations and the like, such things were nothing. Not only had the transmigrator collective's strength not been damaged, but after experiencing this storm, it would become even stronger.
+Only after a lengthy explanation did Yang Shixiang feel at ease. He had no interest in political systems, but he understood the core message: this was merely "civil struggle," devoid of the actual bloodletting that would damage their foundation. He relaxed and laughed. "Then I was overly worried. As long as the core strength is unharmed, that is good."
 
-For this, he had to explain the electoral system and the transmigrator collective's basic political system, lest his sworn brother fail to understand.
+Liu San then pivoted to his plan for developing new medicines. His next targets were *Ten Drops Water* and *Huoxiang Zhengqi Water*—two essential summer remedies—as well as an attempt to manufacture *Fengyoujing*. All were urgently needed for the Yulin development project.
 
-Only after quite a bit of explanation did Yang Shixiang feel at ease. He wasn't interested in political systems, but understood from Liu San's words that this was merely "civil struggle"—no actual fighting that had damaged their core strength. He relaxed and said with a laugh:
+Yang Shixiang had absolute faith in every proposal Liu San made. The patent medicine business was booming so remarkably that he was seriously considering relocating the pharmaceutical workshop from the city to the "Private Enterprise Park" outside Bairren City. Runshitang's current workshop was already bursting at the seams.
 
-"Then I was overly worried. As long as the core strength wasn't harmed, that's good."
+"That would be excellent," Liu San thought. This had been part of the plan all along—keeping the factory at Runshitang initially was merely for convenience. Since Yang Shixiang was proposing the move himself, it was perfect.
 
-Liu San then mentioned his plan to develop new medicines. His next step was to develop and manufacture Ten Drops Water and Huoxiang Zhengqi Water, two summer medicines, as well as attempt to manufacture Fengyoujing. All were urgently needed for the Yulin development.
+"Now that I have capital, your elder brother wants to build a grand workshop like those in your Australia! To really do something magnificent." Yang Shixiang was deeply impressed by the Australians' industrial scale. Fueled by wine and recent success, his excitement grew. His cousin, Yang Shiyi, had completely changed his attitude, sending frequent gifts and letters, and adopting a much more respectful tone. He was even courteous to the old manager Liu Benshan, whom Yang Shixiang had sent to Foshan. Moreover, Yang Shiyi had indicated that cash payments were no longer strictly required and credit limits could be raised. After years of suffering his relatives' disdain, Yang Shixiang could finally hold his head high.
 
-Yang Shixiang had complete faith in every new medicine Liu San proposed. Now the traditional Chinese patent medicine business was so good that he was seriously considering relocating the pharmaceutical workshop from the city to the "Private Enterprise Park" outside Bairren City. Runshitang's workshop was already overwhelmed.
+The conviction that cooperating with the Australians meant 'Great Enterprise' was now deeply etched in his mind. Hearing that their core strength was intact and their presence in Lingao secure, he was ready to pursue even greater achievements with his sworn brother.
 
-"That would be excellent," Liu San thought. This had been planned all along—keeping the factory at Runshitang in the past was merely for convenience. Since Yang Shixiang was now proposing it himself, that was all the better.
+"Your foolish elder brother wants to install those, um, 'machines' in the factory," Yang Shixiang said. "Last time I visited the mill and saw your waterwheel—it was so fast, so fine. Everyone says you Australians are the most ingenious. Surely you have machines for making medicine?"
 
-"Now that I have some money, your elder brother wants to build a big workshop like those in your Australia! To really do something grand." Yang Shixiang was deeply impressed by the Australians' factories. After a few cups of wine, he grew somewhat excited. His mood had been very good lately: his cousin Yang Shiyi had completely changed his attitude—not only frequently sending letters and gifts, but also becoming much more polite in his language. He was even very courteous to the old manager Liu Benshan whom Yang Shixiang had sent to oversee business in Foshan. Moreover, he had repeatedly indicated that purchases no longer required cash payment and credit limits could be increased. After years of being looked down upon by relatives, Yang Shixiang could finally hold his head high.
+"There are indeed machines." Liu San nodded. He had long wanted to open a pharmaceutical factory utilizing mechanical processing rather than manual labor. Runshitang currently employed over twenty medicine workers, plus a dozen casual laborers and apprentices. Mechanization could cut that workforce by two-thirds, freeing up capital for expanded production.
 
-The impression that cooperating with the Australians meant great enterprise had been deeply imprinted in his mind. Now that he heard the Australians' core strength was unharmed and they could still stay in Lingao, he could continue pursuing great achievements with this sworn brother.
+The veteran workers, intimately familiar with drug properties and pharmacology, were wasted on simple manual labor.
 
-"Your foolish elder brother wants to install those, um, machines in the factory," Yang Shixiang said. "Last time I visited the mill and saw your water mill—it was so fast and good. Everyone says you Australians are the most ingenious. Surely you have machines for making medicine too?"
+"What machines are needed?" Yang Shixiang was fascinated by the concept of mechanized production, though he had no concept of the specific machinery required for processing medicinal herbs.
 
-"There are indeed machines." Liu San nodded. He had long wanted to open a pharmaceutical factory that used machinery-assisted processing, rather than the current manual operations. Runshitang currently employed over twenty medicine workers, plus more than a dozen casual laborers and apprentices. Using machinery-assisted production could reduce personnel by two-thirds. The labor savings could then be used for expanded reproduction.
+"There are many types." Liu San realized he would need to submit an application. Manufacturing equipment for medicines should receive priority, but since Runshitang was a joint venture, he wasn't sure how the pricing would be determined. He decided to prepare the ground. "The price probably won't be cheap."
 
-Old medicine workers who had long handled medicinal materials understood drug properties and pharmacology intimately. Having such talent continue doing simple manual labor was obviously wasteful.
+"Expensive doesn't matter, as long as it works well—silver sitting in a vault won't breed baby silver!" With money in hand, Yang Shixiang's speech took on a delightfully profound, if slightly dandyish, tone.
 
-"What machines are needed?" Yang Shixiang was extremely interested in mechanized production, but had no concept whatsoever of what machinery was needed for processing medicinal materials.
+"Since Elder Brother has this intention, I'll attend to it the moment I return." Liu San was genuinely excited. This was a classic example—a model of native capitalist cooperation with the transmigrator collective. The Executive Committee would surely grant favorable policies for the sake of future propaganda, perhaps even designating it a "Model Enterprise."
 
-"There are many machines of various types," Liu San thought he would need to submit an application himself. Manufacturing equipment for medicines should receive priority. But Runshitang was a joint venture, so he wasn't sure how pricing would be determined. He could only prepare the groundwork first:
+Becoming a positive model would smooth many paths.
 
-"The price probably won't be cheap."
+In truth, whether Runshitang became a "model" mattered little to Liu San personally—his shareholder status was nominal; the true shareholder was the collective. Yet, he sincerely hoped Runshitang would grow into a pharmaceutical giant in this new world.
 
-"Expensive doesn't matter, as long as it works well—silver just sitting there won't breed baby silver!" Yang Shixiang had money in hand, and his words couldn't help taking on a dandyish tone.
+His sworn brotherhood with Yang Shixiang had begun as a mere vehicle for cooperation. However, over six months of discussing pharmacology, exchanging knowledge, and managing the business side by side, a deep friendship had taken root. Moreover, Yang's family treated him with a warmth and concern that felt like true kinship. It warmed Liu San's heart.
 
-"Since elder brother has this intention, I'll take care of it as soon as I return." Liu San was quite excited. This was a classic example—a model of native capitalist cooperation with the transmigrator collective. Those people in the Executive Committee would definitely give some favorable policies for future propaganda purposes, and might even set up a "model case."
+Naturally, he would look after his sworn brother's interests.
 
-Becoming a positive model would make everything so much easier.
+"Then I'll trouble my worthy younger brother with this," Yang Shixiang said excitedly. "I'll instruct Manager Liu right away to recruit more workers from Foshan—"
 
-Actually, whether Runshitang could become a "model" had little to do with Liu San himself—Liu San's shareholder status was nominal; the true shareholder was the transmigrator collective itself. But he still very much hoped Runshitang could keep growing bigger and stronger, becoming a pharmaceutical giant in the new world.
-
-Liu San's sworn brotherhood with Yang Shixiang had begun merely as a means of strengthening cooperation. However, over more than half a year of discussing pharmacology, exchanging medical knowledge, going out together to purchase medicinal materials and manage business, the two had built a deep friendship. Moreover, his sworn brother's entire family cared for him deeply, showing constant warmth and concern, just like true family. This made Liu San feel warmed. He naturally had to look after his sworn brother's interests.
-
-"Then I'll trouble my worthy younger brother with this," Yang Shixiang said excitedly. "I'll instruct Manager Liu right away to find more workers from Foshan—"
-
-Liu Benshan was now Runshitang's manager in Foshan, overseeing all Runshitang affairs in Guangdong.
+Liu Benshan was now Runshitang's manager in Foshan, overseeing all of the firm's affairs in Guangdong.
 
 (End of Chapter)

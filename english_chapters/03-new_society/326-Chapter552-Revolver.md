@@ -1,79 +1,60 @@
 # Chapter 552 - Revolver
 
-Some dissenting voices opposed the plan: would broadly arming natives at this stage cause weapons to disperse? The debate was particularly intense regarding handguns for native cadres. The military operated under centralized management and was tightly controlled from the top down by transmigrators, minimizing the risk of weapons dispersal. But once in the hands of highly dispersed native cadres, weapons would become very difficult to manage.
+The proposal to arm native cadres sparked immediate controversy. Was it safe to distribute weapons so broadly? The centralized nature of the military kept its arsenal under strict transmigrator control, minimizing the risk of proliferation. But placing firearms in the hands of dispersed native officials was a different matter entirely; once issued, these weapons would be difficult to track and harder to retrieve.
 
-However, the reality of the threat ultimately led the Planning Council to propose manufacturing a handgun specifically for native personnel as a standard self-defense weapon.
+However, the reality of the security situation silenced the dissenters. The Planning Council eventually approved the manufacture of a standard-issue self-defense sidearm for native personnel.
 
-The task was assigned to the First Weapons Design Group. Unlike the Second Design Group, which focused primarily on "retro-style" weapons, the First Group specialized in designing "modern weapons." The main force of the First Weapons Group was Li Yiwo.
+The project fell to the First Weapons Design Group. Unlike their counterparts in the Second Group, who focused on "retro" black powder weaponry, the First Group specialized in "modern" designs. The driving force behind this team was Li Yiwo.
 
-This usually quiet, rotund man was an expert in machining—not only skilled as a fitter but also experienced and proficient with other machine tools. This craftsmanship had fostered Li Yiwo's side business. He had secretly and illegally manufactured guns in the past; replicating a simple blowback pistol like the Type 64 was child's play for him. According to him, he had made handguns, shotguns, and rifles. To prove he wasn't boasting, he had brought two of his own creations in his personal luggage—a 9mm Makarov/Type 59 and an M1911.
+Li Yiwo was a quiet, rotund man whose unassuming appearance belied a dangerous mastery of mechanics. A master fitter by trade, his true passion lay in the clandestine art of gunsmithing. In the old world, he had manufactured firearms as a hobby—highly illegal, but executed with the precision of a master craftsman. He could replicate a Type 64 pistol with his eyes closed and had even built shotguns and rifles from scratch. To prove his bona fides, he had brought two of his creations through the wormhole: a 9mm Makarov and an M1911.
 
-Li Yiwo had donated his complete set of gunsmithing tools and much of his custom-made specialized equipment to the organization. With this gear, as long as roughly suitable steel could be found, making an AK wasn't too difficult—though of course not comparable to factory-produced AKs. The only issue was that ammunition was difficult to make; he humbly admitted that he could only reload.
+Upon arrival, Li Yiwo donated his entire workshop—a treasure trove of custom tools and molds—to the collective. With these, he claimed he could build an AK-47 from scrap iron, although he admitted that manufacturing the ammunition was the real bottleneck.
 
-Li Yiwo had taken up this trade more out of interest than for profit—the kind of thing that people who love weapons and have hands-on ability often do. But once interest was backed by profit, his dedication to technical research only intensified. His creations grew increasingly ambitious, progressing from crude replicas of simple pea-shooters to passable reproductions of various famous handguns. Without the wormhole, Li Yiwo's fate would have been predictable. His wife Li Yuanyuan said their participation in the transmigration was largely out of desperation.
+For Li Yiwo, transmigration was a liberation. No longer forced to hide his passion in the shadows, he could now build guns in broad daylight, discussing rifling twists and trigger pulls with like-minded enthusiasts. He and his wife, Li Yuanyuan, a clerk for the Executive Committee, had found a happiness in Lingao that the old world had denied them.
 
-In Lingao, the couple lived quite happily. His wife worked as a clerk in the Executive Committee, while he could finally make guns openly and legitimately—to manufacture firearms in broad daylight and discuss his work openly with others was a joy Li Yiwo had never experienced before.
+Initially, however, his skills were underutilized. The transmigrators' own armory was well-stocked with modern firearms, and the mass production of Minié rifles for the native army was an industrial process that didn't require his artisanal touch. Instead, he was assigned to the Machinery Factory to reload ammunition, primarily the 7.62×54mm rounds for the SKS rifles, which were being consumed at an alarming rate.
 
-However, Li Yiwo hadn't found many opportunities to apply his skills. The transmigrators' armory was quite well-stocked, with rifles, handguns, and shotguns all available, making his handmade firearms unnecessary for the time being. Everyone praised his craftsmanship, but no one wanted to personally use guns made from substandard local steel. As for Minié rifles manufactured for natives, those were industrial-scale mass-produced items that didn't require his input—Zhan Wuya and the others had prepared complete sets of production tooling for Minié rifle manufacturing in the other timeline.
+It was tedious work. The days of reloading a few dozen rounds for a weekend range trip were over; now, he faced mountains of thousands of spent brass casings daily. But Li Yiwo was resourceful. With support from Zhan Wuya, he scaled up his operation, turning his personal reloading bench into a semi-automated production line. This efficiency bought him the time to return to his true calling: design.
 
-Therefore, Li Yiwo was assigned specifically to manufacture light weapons ammunition at the Machinery Factory—primarily reloading cartridges for the SKS rifle's 7.62×54mm rounds. These cartridges were consumed in large quantities during several battles. Li Yiwo had frequently reloaded this ammunition before and was quite familiar with it, having even assembled a small set of specialized equipment including bullet molds and a dedicated press.
+While he turned his nose up at the clumsy Derringers, the new mandate for a native service pistol piqued his interest. The First Weapons Design Group gathered at the Machinery Factory to break down the problem.
 
-He couldn't produce jacketed bullets—fortunately lead was abundant here, so he simply used pure lead. The powder was the finest high-grade black powder—no matter how hard the Chemical Department tried, nitrocellulose remained stuck at the level of lacquer production.
+The group's intellectual core was Bai Yu, an armor officer with formal training in weapons engineering. While Li Yiwo had the hands of a master smith, Bai Yu provided the theoretical framework for mass production.
 
-But the current situation wasn't like the old days of reloading a few, a dozen, or at most a hundred rounds at a time. Even the daily shooting practice conducted by transmigrators to maintain their weapons familiarity produced at least two thousand spent casings afterward. Having to reload these one by one was pure drudgery.
+They reviewed the Planning Council's requirements:
+1.  **Economical**: Cheap materials, easy to manufacture, capable of rapid mass production.
+2.  **Controlled Lethality**: Ideally using ammunition that natives could not replicate or scavenge, preventing the weapons from being turned against the creators.
+3.  **Usability**: Simple operation, high reliability. Performance was secondary; an effective range of 25 meters was deemed sufficient.
 
-With Zhan Wuya's support, Li Yiwo improved his equipment, converting what had originally been small-scale gear suited for his own covert use into a production line that multiple workers could operate. Only then did he have the time and energy for his true calling—light weapons manufacturing.
+"To meet these specs, it has to be a revolver," Li Yiwo said, scanning the document. "Unless we want to mass-produce 13mm single-shot pistols—basically sawed-off Miniés."
 
-He hadn't participated in Derringer pistol production—he looked down on such crude weapons. He focused his energy on replicating military 12-gauge shotguns. Shotguns had low ammunition requirements and didn't need metal cartridge cases. The Navy and Special Reconnaissance Team were very interested in such weapons.
+"Forget the single-shot," Bai Yu said dismissively. "Fire once, reload once? It's good for suicide and not much else."
 
-The task of replicating handguns temporarily interrupted his shotgun research. The members of the Weapons Design Group gathered from their respective posts at the Machinery Factory office, preparing to discuss this "native-specific handgun" project.
+The team agreed. Revolvers were robust, required less precision metallury than semi-automatics—no slide springs or complex extractors—and offered sustained fire.
 
-The soul of the First Weapons Design Group was Bai Yu. Not only was he an armored officer, but he had formally studied weapons design and engineering. Although Li Yiwo had rich gun-making experience, he had little experience with designing weapons for mass production—he had always operated in a cottage-workshop manner.
+"So, what are we cloning? Webley or Smith & Wesson?" Li Yiwo asked. He had the schematics for almost every major handgun in history memorized. "The Webley has better performance."
 
-After receiving the specifications, the design group members studied the Planning Council's weapon requirements:
+"I vote Smith & Wesson," Wang Ruixiang chimed in. He had a romantic attachment to the classic American design. In the other timeline, he had carried a 4-inch barrel S&W in 9mm, paired with a police holster he'd bought at a surplus store. It was more fashion statement than sidearm, but he loved it.
 
-The weapon had to be cheap enough, consume minimal materials, and be convenient to produce and manufacture, capable of rapidly achieving large-scale production capacity.
+"The Webley reloads faster," Li Yiwo countered. "Top-break action. You snap it open, the ejector star clears the cylinder, you drop in a fresh moon clip. It's elegant."
 
-Regarding ammunition, ideally the natives would be unable to replicate or find substitutes, to prevent the handguns from being used by hostile elements if lost.
+"And complex," Bai Yu noted. "Top-break frames take a lot of stress. Our steel might not hold up. Plus, without metal cartridges, the ejection mechanism is useless."
 
-The handgun needed to be easy to use and operate, safe and reliable. Performance didn't need to be outstanding; an effective range of 25 meters was acceptable.
+"Smith & Wesson it is, then," Wang Ruixiang said, hopeful.
 
-"To meet these requirements, we can only go with a revolver," Li Yiwo said after reviewing the specifications. "Or we could just mass-produce 13mm 'single-shots'—barrel and ammunition both compatible with the Minié rifle."
+"Still too complicated," Bai Yu shook his head. "The Council wants simple. Swing-out cylinders require tight tolerances. If we fuck up the crane alignment, the timing goes off, and the gun explodes."
 
-"Forget the 'single-shot.' Fire once, reload once—good for either assassination or suicide." Bai Yu had always disliked such crude, ugly weapons. The others in the First Group shared his sentiment.
+"So... a solid frame?" Li Yiwo asked. "Western style?"
 
-Revolvers had low material requirements and used hammer firing, eliminating the need for springs and firing pins that demanded high-quality materials and production techniques. Their feeding mechanism was simple and reliable while still providing sustained firepower.
+"Western style," Bai Yu confirmed. "Single Action Army style. Fixed cylinder, loading gate on the right. One round in, rotate, one round in. It's slow to load, but it's indestructible and easy to build."
 
-"Which model do we copy? Webley or Smith & Wesson?" Li Yiwo could visualize the line drawings and structural diagrams of most handguns in the world. Given the materials, he could reproduce most of them to about eighty or ninety percent accuracy—though of course performance couldn't compare. "In terms of performance, the Webley revolver is somewhat better."
+Wang Ruixiang proposed using 13mm seamless steel tubing for the barrels to share supply lines with the Minié rifle production.
 
-"Let's go with Smith & Wesson." Wang Ruixiang was quite fond of this handgun, although in the other timeline he had never even seen an S&W pistol—not even a knockoff. But he had fallen in love with this rather romantic weapon.
+Bai Yu shot that down immediately. "13mm is massive. That's a .50 caliber handicap. To drive a slug that heavy, you need a lot of powder. In a revolver with no recoil system? It would break the shooter's wrist."
 
-Among the self-defense handguns procured through the North American Branch, there were many S&W revolvers chambered in 9mm Parabellum, mostly with 4-inch barrels. Wang Ruixiang had obtained one and, paired with a replica American police revolver holster and cartridge belt he'd bought at a military surplus store, kept it strapped to his hip.
+He explained further, "Revolvers vent gas through the cylinder gap. A massive charge for a 13mm slug would turn that gap into a flamethrower. It's dangerous and wasteful. We need a smaller caliber. Less powder, less recoil, thinner barrel walls. It solves the material problem and the handling problem."
 
-"The Webley revolver reloads very quickly," Li Yiwo said. The Webley revolver loaded by pushing forward on a retention lug at the rear left of the cylinder, causing the grip to hinge down for loading. Then the frame and barrel would close, ready to fire. When ejecting casings, the gun would break open again, and a star-shaped extractor would automatically clear the cylinder. This was a faster, more advanced mechanism than a swing-out cylinder, better suited for speed loaders.
+"Besides," Bai Yu added, "a 13mm revolver would be a hand-cannon. It would be huge, heavy, and hold maybe four or five shots. We want a sidearm, not field artillery."
 
-"The materials probably can't meet those requirements," Bai Yu said. This gun's structure was complex and heavy, thus requiring higher-grade materials. "Besides, we don't have metal casings to use, so we can't demonstrate its advantages."
-
-"Let's copy the Smith & Wesson," Wang Ruixiang insisted.
-
-"I think it's still too complicated. The Planning Council's directive is to simplify—simplify again," Bai Yu said. "Eliminate all unnecessary parts, minimize processes and machining requirements as much as possible."
-
-"If we simplify Smith & Wesson any further, we'll have to make a Western-style revolver."
-
-The final decision was to adopt the Western-style revolver. Its cylinder couldn't swing out; the chambers had to be manually rotated, loading one round per rotation. Loading was slower, but it eliminated the swing-out mechanism, allowing even lower tolerances in production and assembly.
-
-Originally, to further reduce production difficulty and unify production standards, Wang Ruixiang proposed having this revolver use 13mm seamless steel tubing like the Minié rifle, allowing them to use the same size tubing without separate material preparation. They could even use the scraps generated from cutting Minié rifle barrels.
-
-But Bai Yu considered this modification counterproductive: adopting a 13mm caliber was too large and would inevitably require excessive propellant, resulting in overkill.
-
-Revolvers had no recoil-dampening components like a recoil spring, meaning the shooter absorbed all the recoil. Therefore, they couldn't fire ammunition with too much powder charge.
-
-Excessive recoil would make the gun difficult to control during firing, affecting accuracy. Moreover, revolvers' unique construction caused propellant gases to vent through the cylinder gap. If the bullet was too large, more powder would be needed, and excessive or incomplete combustion of propellant gases could injure the shooter.
-
-More powder meant more expanding gases upon firing, which in turn raised requirements for barrel and chamber materials and machining quality. Using smaller caliber ammunition would significantly reduce barrel material requirements as well as structural and process requirements.
-
-The final issue was that 13mm cartridges, whether metal or paper-cased, were too large and heavy in dimensions and weight. The resulting handgun would increase in size accordingly. To reduce size, magazine capacity would have to be sacrificed.
-
-"In my view, even the current 13mm Minié rifle has an excessive caliber and overkill. But that's already an established fact and can't be changed anytime soon."
+The decision was made: a rugged, simple, solid-frame revolver. It wouldn't win beauty contests, but it would work.
 
 (End of Chapter)
