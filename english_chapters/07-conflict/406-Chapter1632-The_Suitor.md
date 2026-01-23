@@ -1,93 +1,93 @@
 # Chapter 1632 - The Suitor
 
-"That's all for last week's review. What shall we talk about today? As everyone knows, not long ago, a group of so-called martial arts heroes made a big fuss in Lingao. Why did they make a fuss?" Hu Qingbai began today's content. "There were many purposes. One of them was to try to steal our Australasian industrial secrets...
+"That's all for last week's review. What shall we discuss today? As everyone knows, not long ago, a group of so-called martial arts heroes made quite a stir in Lingao. Why?" Hu Qingbai launched into the day's content. "There were many motives. One of them was an attempt to steal our Australasian industrial secrets...
 
-"Our Political Security Bureau cracked their conspiracy. According to the confessions of these so-called martial arts heroes, they came to find our so-called 'Australian secret recipes,' and by the way, kidnap or bribe a few 'Australian craftsmen' to go to the Ming-controlled areas to serve them.
+"Our Political Security Bureau cracked their conspiracy. According to the confessions of these so-called martial arts heroes, they came seeking our 'Australian secret recipes,' and incidentally, to kidnap or bribe a few 'Australian craftsmen' to return with them to Ming-controlled areas and serve their masters.
 
-"Everyone knows that there are many, many reasons why the Senate can be ever-victorious, both our own and the enemy's. But where does our fundamental strength come from? Student Cao Cao, please speak."
+"Everyone knows there are many, many reasons the Senate has been ever-victorious—both our own strengths and the enemy's weaknesses. But where does our fundamental power come from? Student Cao Cao, please answer."
 
-Liu Xiang's body trembled—what an overwhelmingly domineering name! Looking closely, it was actually a thin and small boy, showing no potential of a generation's overlord.
+Liu Xiang's body gave an involuntary twitch—what an overwhelmingly domineering name! Looking closely, he saw a thin, small boy showing no potential whatsoever to become a generation's overlord.
 
-"We have industry, possess the strongest productive forces..."
+"We have industry—we possess the strongest productive forces..."
 
-"Very correct. And our industry is systematic. It cannot be obtained by relying on one person's wisdom or some secret recipe. This is what the Ming officials and gentry find difficult to understand. In their eyes, industry equals craftsmen. Their thinking is still stuck in small workshops.
+"Exactly right. And our industry is *systematic*. It cannot be replicated through one person's wisdom or some secret recipe. This is what the Ming officials and gentry find difficult to understand. In their eyes, industry equals craftsmen. Their thinking remains stuck in small workshops.
 
-"So what consequences will there be if the Ming officials and gentry take our secret recipes thinking they can replicate our success? What I'm showing everyone today are two pieces from private notes recently collected from the Mainland. Let's invite two students to come up and read them. Please raise your hands!"
+"So what consequences arise when Ming officials and gentry think they can replicate our success by stealing our secret recipes? Today I'm showing everyone two passages from private notes recently collected on the Mainland. Let's invite two students to come up and read them. Please raise your hands!"
 
-"*'The hair-bandits' [Australians'] secret records of firearms also contain much falsehood. There is one called the 'Heart-Gouging Cannon-Casting Method,' which says to cast an iron pillar, heat it until red-hot, then gouge out its heart with a sharp iron-cutting blade, and the cannon barrel shall be complete. It also notes that where the heart is gouged, cold water should be used to stimulate it to protect the gouging knife from melting. However, when governors and inspectors tried this method in casting cannons, all failed. Later, one learned in the 'I Ching' and also versed in Western miscellaneous learning explained the fallacy of this method in detail, saying that red-hot iron is actually the Fire Phase; stimulating it with cold water creates the tendency of Kan and Li crossing, Dragon and Tiger contending. The reason for the explosion is the clash of Yin and Yang, which Heaven and Earth cannot tolerate. Judging by the name 'Heart-Gouging,' the hair-bandits may have some evil arts to suppress and make this technique successful. Our dynasty should prohibit this technique.*'"
+"*'The hair-bandits' [Australians'] secret records of firearms also contain much falsehood. There is one called the "Heart-Gouging Cannon-Casting Method," which instructs one to cast an iron pillar, heat it until red-hot, then gouge out its heart with a sharp iron-cutting blade—whereupon the cannon barrel shall be complete. It further notes that where the heart is gouged, cold water should be applied to protect the gouging knife from melting. However, when governors and inspectors tried this method in casting cannons, all failed. Later, a scholar well-versed in the I Ching and also familiar with Western miscellaneous learning explained the fallacy of this method in detail, saying that red-hot iron is actually the Fire Phase; stimulating it with cold water creates the tendency of Kan and Li crossing, Dragon and Tiger contending. The reason for the explosions is the clash of Yin and Yang, which Heaven and Earth cannot tolerate. Judging by the name "Heart-Gouging," the hair-bandits may possess some evil arts to suppress and make this technique successful. Our dynasty should prohibit this technique.*'"
 
-Laughter came from the classroom.
+Laughter rippled through the classroom.
 
-"Students, don't laugh. The next piece is even better."
+"Students, don't laugh. The next passage is even better."
 
-"*'The hair-bandits' craftsmanship all relies on evil arts. When the hair-bandits first appeared in Guangli, they became famous for their glassware. Later, merchants transported hair-bandit books to Hangzhou. Those who sought profit compiled excerpts into 'Hair-Bandit Secret Methods' and presented it to a wealthy merchant, which included the glassware manufacturing method. Upon obtaining this method, they imitated it, but what they produced was only one or two out of ten; the rest all shattered in the kilns, or burst and injured people when coming out of the kilns. By chance, a manager learned in the 'I Ching' who saw matters clearly reported: This method uses Li Fire to calcine the essence of Wu Earth, stealing the ingenuity of creation, which is too excessive, and cannot be tolerated by Heaven and Earth, hence much damage...*'"
+"*'The hair-bandits' craftsmanship all relies on evil arts. When the hair-bandits first appeared in Guangli, they became famous for their glassware. Later, merchants transported hair-bandit books to Hangzhou. Those seeking profit compiled excerpts into "Hair-Bandit Secret Methods" and presented it to a wealthy merchant, which included the glassware manufacturing method. Upon obtaining this method, they imitated it, but what they produced was only one or two out of ten; the rest all shattered in the kilns, or burst and injured workers when emerging from the kilns. By chance, a manager learned in the I Ching who saw matters clearly reported: This method uses Li Fire to calcine the essence of Wu Earth, stealing the ingenuity of creation—which is excessive, and cannot be tolerated by Heaven and Earth—hence much damage...*'"
 
-Sure enough, the second piece triggered even louder laughter, especially when the last sentence was read out, the whole room burst into laughter.
+Sure enough, the second passage triggered even louder laughter. When the final sentence was read, the whole room burst into hilarity.
 
-Hu Qingbai deliberately waited a moment before stepping in to maintain order. "Alright, students. Now you can raise your hands and share your thoughts."
+Hu Qingbai deliberately waited a moment before stepping in to restore order. "Alright, students. Now you may raise your hands and share your thoughts."
 
-A forest of arms swished up.
+A forest of arms swished upward.
 
-Hu Qingbai was very satisfied enjoying this enthusiastic classroom atmosphere, then called a name: "Student Ke Leier!"
+Hu Qingbai savored this enthusiastic classroom atmosphere, then called a name: "Student Ke Leier!"
 
-Liu Xiang chuckled inwardly. This Ke Leier was the student he was sponsoring. His father was named Ke Ke—not a foreigner, but an authentic Chinese citizen. Ke Ke was a carpenter who had always worked at the woodwork factory. When Liu Xiang was looking for people at the woodwork factory to do private work making ship models, he found that not only was his craftsmanship good, but his son could also be considered clever and nimble: he could learn things like three-view diagrams as soon as he was taught. Liu Xiang then recommended him for school.
+Liu Xiang chuckled inwardly. This Ke Leier was the student he was sponsoring. The boy's father was named Ke Ke—not a foreigner, but an authentic Chinese citizen. Ke Ke was a carpenter who had always worked at the woodwork factory. When Liu Xiang had gone looking for people there to do private work building ship models, he'd discovered that not only was the man's craftsmanship excellent, but his son was clever and nimble too: he could grasp concepts like three-view diagrams as soon as they were explained. Liu Xiang had then recommended him for school.
 
-"Teacher, I believe that the Ming Dynasty's understanding of science is very limited. It's not that the Ming doesn't have science, but this science still remains at the level of empiricism. This is determined not only by the craftsmen's own low economic conditions and cultural level but also by the Ming merchants' and gentry's lack of understanding of it and their contempt for craftsmen's skills..." Ke Leier stood up and spoke eloquently, perhaps because Liu Xiang was sitting right behind him.
+"Teacher, I believe the Ming Dynasty's understanding of science is very limited. It's not that the Ming lacks science, but that this science remains stuck at the level of empiricism. This is determined not only by the craftsmen's own low economic conditions and cultural level but also by the Ming merchants' and gentry's lack of understanding and contempt for craftsmen's skills..." Ke Leier stood and spoke eloquently—perhaps because Liu Xiang was sitting right behind him.
 
-Ke Leier's expression was the viewpoint from the Senate's approved textbooks—nothing remarkable. But being able to explain clearly, while closely tied to examples and well-organized, was quite good.
+Ke Leier's answer hewed closely to the viewpoint in the Senate's approved textbooks—nothing remarkable. But being able to explain clearly while tying examples together in an organized fashion was quite good.
 
-After listening to a whole period of "Weekly Current Events" political education class, Liu Xiang finally greeted Hu Qingbai after class.
+After sitting through the full period of "Weekly Current Events" political education, Liu Xiang finally greeted Hu Qingbai when class dismissed.
 
-"Aiya! My old leader is as impressive as ever!" Liu Xiang reached out to Hu Qingbai first.
+"Aiya! My old leader is as impressive as ever!" Liu Xiang reached out first.
 
-Hu Qingbai lightly patted the chalk dust from his hands, shook hands with Liu Xiang, and teased: "You, this deserter, are a rare guest!"
+Hu Qingbai lightly patted the chalk dust from his hands, shook Liu Xiang's hand, and teased: "You, the deserter, are a rare guest!"
 
-The two bantered about "parting sentiments" for a bit, then Liu Xiang inquired about Ke Leier's academic performance. Since Hu Qingbai held the position of the Selection Group's homeroom teacher, he naturally knew—otherwise, he wouldn't have specifically called on Ke Leier to answer a question just now.
+The two bantered about "parting sentiments" for a bit before Liu Xiang inquired about Ke Leier's academic performance. Since Hu Qingbai held the position of homeroom teacher for the Selection Group, he naturally knew—otherwise he wouldn't have specifically called on Ke Leier just now.
 
-"This student is okay in mathematics and physics, but not good in biology and chemistry. However, these two subjects are generally poor. We're considering revising the textbooks..." Hu Qingbai had barely chatted with Liu Xiang for a couple of sentences before he had to rush off to handle work—Hu Qingbai's main job was as the People's Commissioner for Education. Originally, the education sector was small, with Fangcaodi almost encompassing everything, so he mainly taught and compiled textbooks. Now with more people and bigger territory, schools had to be set up everywhere, and large-scale vocational education had to be carried out, so administrative work had increased significantly.
+"This student is passable in mathematics and physics but weak in biology and chemistry. Though, to be fair, those two subjects are generally poor across the board. We're considering revising the textbooks..." Hu Qingbai had barely chatted with Liu Xiang for a couple of sentences before having to rush off to handle work—his main job was People's Commissioner for Education. Originally, the education sector had been small, with Fangcaodi encompassing almost everything, so he'd mostly taught and compiled textbooks. Now with more people and a larger territory, schools had to be established everywhere and large-scale vocational education implemented. Administrative burdens had grown immensely.
 
-Liu Xiang didn't mind. The education sector was just this busy. Besides, he was currently in an "undefined identity" state. Talking directly with Hu Qingbai about how the education sector could support the next phase of action wasn't appropriate now—at least not until he went through the procedures at the Organization Department this afternoon.
+Liu Xiang didn't mind. The education sector was just that busy. Besides, he was currently in an "undefined identity" state. Speaking directly with Hu Qingbai about how the education sector could support the next phase of operations wasn't appropriate yet—at least not until he went through the procedures at the Organization Department that afternoon.
 
-Liu Xiang brought his two guards, Lin Dengwan and Di Bage, and wandered around the campus, listening outside this classroom, looking outside that classroom. Liu Xiang was mainly observing the higher primary situation—he wanted to judge for himself what five years of full-time education was really like.
+Liu Xiang took his two guards, Lin Dengwan and Di Bage, and wandered around campus, listening outside this classroom, peering into that one. He was mainly observing the higher primary grades—he wanted to judge for himself what five years of full-time education actually looked like.
 
-The class sizes in higher primary were not large, and the age differences among students were small. The few particularly conspicuous older students were probably sponsored students of some other Senators. However, in the class Liu Xiang was "auditing," the most eye-catching performer was a girl. He didn't hear her name clearly because the naturalized citizen teacher had a bit of an accent—he couldn't even tell if the girl's surname was Bao or Pao. This lesson was about geometry, but it was obvious the teacher's preparation was insufficient, relying entirely on her lesson plan to read from the script. The problem on the blackboard didn't have only the one solution method she had prepared. Now she had been defeated by this female student. She was standing in the aisle between the first and second large groups, watching this female student explain a more concise solution on the podium along with the other students.
+Class sizes in higher primary were modest, and age differences among students were small. The few particularly conspicuous older students were probably sponsored students of other Senators. In the class Liu Xiang was "auditing," however, the most eye-catching performer was a girl. He didn't catch her name clearly because the naturalized citizen teacher had a bit of an accent—he couldn't even tell if her surname was Bao or Pao. The lesson covered geometry, but obviously the teacher's preparation was insufficient, relying entirely on her lesson plan and reading from script. The problem on the blackboard admitted more than the single solution she'd prepared. Now she'd been bested by this female student. She stood in the aisle between the first and second desk groups, watching along with the other students as the girl explained a more concise solution on the podium.
 
-"The problem already stated that a bienao is a triangular pyramid where all four faces are right triangles. So we know that edge DE is perpendicular to DC..."
+"The problem already states that a *bienao* is a triangular pyramid where all four faces are right triangles. So we know that edge DE is perpendicular to DC..."
 
-Liu Xiang listened while nodding, but sighed inwardly—*It would be impossible to directly pull higher-grade students for administrative internships. There are too few, and they're too precious...*
+Liu Xiang listened while nodding, but sighed inwardly. *Pulling higher-grade students directly into administrative internships would be impossible. They're too few and too precious...*
 
-He wasn't the first externally stationed Senator to covet Fangcaodi students. When they were running the engine project, they had once borrowed a batch of Fangcaodi students in Kaohsiung to serve as administrative interns, and after graduation, they were also placed as cadres in Taiwan and Jeju. The problem was whether he could now angle for some higher primary or even Selection Group personnel. After all, training cadres couldn't always be at the lower levels—there had to be some elite talent.
+He wasn't the first externally stationed Senator to covet Fangcaodi students. Back during the engine project, they'd once borrowed a batch of Fangcaodi students in Kaohsiung to serve as administrative interns, and after graduation those students were placed as cadres in Taiwan and Jeju. The question was whether he could now angle for some higher primary or even Selection Group personnel. After all, training cadres couldn't always start at the lower levels—there had to be some elite talent.
 
-Before long, Liu Xiang strolled to the Academy for the Selection Group and the First Generation. He asked the doorman. This class period they were all doing chemistry experiments in the laboratory building. There were five more minutes until the class ended.
+Before long, Liu Xiang strolled to the Academy for the Selection Group and the First Generation. He asked the doorman. This period, they were all doing chemistry experiments in the laboratory building. Five more minutes until class ended.
 
-Liu Xiang left his guards where they were and strolled to the laboratory building himself. This small building with reinforced concrete structure—the most luxurious when Fangcaodi was completed back then—had ivy climbing up its outer walls and already had quite some charm. Come to think of it, the Senate had invested quite a lot in education...
+Liu Xiang left his guards where they were and strolled to the laboratory building himself. This small reinforced-concrete structure—the most luxurious building when Fangcaodi was completed back then—now had ivy climbing its outer walls and already possessed a certain charm. Come to think of it, the Senate had invested quite heavily in education...
 
-"Hm? That fellow looks familiar. Who is it from the Army?" Just as Liu Xiang was waiting for the class to end outside, he suddenly saw another Senator barge into the lobby of the laboratory building. "Oh, it's that Germanophile Zhang Bolin! What is he doing here?"
+*Hm? That fellow looks familiar. Who is it from the Army?* Just as Liu Xiang was waiting outside for class to end, he suddenly spotted another Senator barging into the laboratory building's lobby. *Oh—it's that Germanophile Zhang Bolin! What's he doing here?*
 
-*Clang! Clang! Clang!* There were no electric bells, so they rang a bell specially cast by the steel factory.
+*Clang! Clang! Clang!* There were no electric bells; instead, they rang a bell specially cast by the steel factory.
 
-"Uncle Liu... Greetings, Chief!" Ke Leier ran out as soon as the class ended. Just now, after the politics class, Liu Xiang was chatting with Hu Qingbai and didn't let Ke Leier come over to talk. Now he had specifically come looking for him, which made the little guy particularly happy.
+"Uncle Liu... Greetings, Chief!" Ke Leier came running out as soon as class ended. After politics class earlier, Liu Xiang had been chatting with Hu Qingbai and hadn't let him come over. Now Liu Xiang had specifically sought him out, which made the boy particularly happy.
 
-"Good! Young man, you've grown strong!" Liu Xiang patted his shoulder. "Have your father take a good look too when we meet! In a few days, he'll be coming to the East Gate Market to take the fitter grade examination, and you'll be able to see each other soon!"
+"Good! Young man, you've grown strong!" Liu Xiang clapped him on the shoulder. "Have your father take a good look too when we meet! In a few days he'll be coming to East Gate Market to take the fitter grade examination—you'll be able to see each other soon!"
 
 "Thank you, Chief!"
 
 ...
 
-While chatting, Liu Xiang's peripheral vision caught Zhang Bolin calling Zhang Yunmi out individually and saying something to her.
+While chatting, Liu Xiang's peripheral vision caught Zhang Bolin calling Zhang Yunmi out individually, saying something to her.
 
-"Could it be... about yesterday's matter?" Liu Xiang muttered in his heart, then immediately shook his head, thinking, *Forget it, this matter is not good to get involved in.*
+*Could it be... about yesterday's matter?* Liu Xiang mused, then immediately shook his head. *Forget it—not something I should get involved in.*
 
-But as they were chatting, Ke Leier saw Liu Xiang suddenly shake his head and couldn't help but ask: "Chief? What's wrong?"
+But as they talked, Ke Leier noticed Liu Xiang suddenly shake his head and couldn't help asking: "Chief? What's wrong?"
 
-"Nothing, just thought of something. You still have to rush to the classroom for the next class, right! Study hard. When your father comes to the East Gate Market, I'll treat your whole family to a meal! Go on!" Liu Xiang estimated that the break time was about over and started shooing him away.
+"Nothing—just thought of something. You still have to get to your next class, right? Study hard. When your father comes to East Gate Market, I'll treat your whole family to a meal! Go on!" Liu Xiang estimated break time was nearly over and began shooing him away.
 
-"Ha! Good! Thank you, Chief! Finally can eat something good!" Ke Leier had a mischievous personality. He saluted and said goodbye to Liu Xiang, then ran off to his classroom in a flash.
+"Ha! Great! Thank you, Chief! Finally some good food!" Ke Leier had a mischievous streak. He saluted, said goodbye, and dashed off toward his classroom in a flash.
 
-Liu Xiang turned around to look. Zhang Yunmi seemed to have thrown a little temper, spun around resentfully, and went into the classroom, leaving Zhang Bolin alone outside.
+Liu Xiang turned to look. Zhang Yunmi seemed to have thrown a small fit, spun around resentfully, and headed into the classroom—leaving Zhang Bolin standing alone outside.
 
-"Just as expected... not good to get involved!" Liu Xiang didn't show himself but waited a while to avoid the embarrassment of running into Zhang Bolin. After Zhang Bolin left, Liu Xiang slowly went downstairs. He didn't go to "inspect" the Junior First Generation's classroom but left directly.
+*Just as I thought... not something to get involved in.* Liu Xiang didn't show himself. He waited a while to avoid the awkwardness of running into Zhang Bolin. After the man left, Liu Xiang slowly descended the stairs. He didn't bother "inspecting" the Junior First Generation's classroom but departed directly.
 
-It was time to go to Bairencastle. Have lunch, then go to the Organization Department...
+It was time to head to Bairencastle. Have lunch, then visit the Organization Department...
 
-(End of Chapter)
+**(End of Chapter)**

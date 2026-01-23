@@ -1,125 +1,137 @@
 # Chapter 41: Farewell to the Ming (For Now)
 
-"Amsterdam... no, Guangzhou—I'll be back." Xiao Zishan stood in the courtyard, gazing at the distant blue sky above the Lingnan First Building on Slope Mountain—its red sandstone structure with double-eaved hip-and-gable roof. Oh wait, it wasn't an ancient building. He smiled to himself. "It's a *modern* building."
+"Amsterdam... no, Guangzhou—I'll be back."
 
-This residence with its blue-brick paving, white walls, and black tiles was full of Lingnan flavor. Xiao Zishan remembered that in the twenty-first century, this should be Huifu Road—a street of cheap, excellent eateries, including some famous establishments operating for decades. He'd eaten "Yinji" rice noodle rolls and "Chengji" congee there... But in this timespace, it was quite a desolate place. Though houses could be seen, they were interspersed with abandoned gardens, even farmland and vegetable plots. Scattered woods and small ponds appeared everywhere.
+Xiao Zishan stood alone in the courtyard, his gaze drifting toward the distant silhouette of the Lingnan First Building on Slope Mountain. Its red sandstone façade and double-eaved hip-and-gable roof caught the afternoon light, looking for all the world like something from an imperial dynasty. He caught himself and smiled. In this timespace, it *was* an imperial building—the modern reconstruction wouldn't exist for another four centuries.
 
-Xiao Zishan had been familiar with such scenes since childhood. The southern city he'd grown up in resembled this. Traditional Chinese cities had fields and wasteland within city walls. Even into the 1960s and '70s, some areas still had villages inside cities—within urban districts, there were large tracts of farmland and village homes, even organized as production brigades.
+The residence around him was pure Lingnan: blue-brick paving worn smooth by generations of feet, whitewashed walls glowing in the autumn sun, black tiles forming neat rows overhead. In his own time, this would be Huifu Road—that narrow lane of legendary eateries where he'd queued for Yinji rice noodle rolls at dawn and slurped Chengji congee late into the night. But that bustling food street was just a ghost of the future. What surrounded him now was something far more desolate: scattered houses interspersed with abandoned gardens, vegetable plots running wild, small ponds glinting between copses of trees.
 
-This place had been selected as the transmigrators' future Guangzhou stronghold. The Haopan Street location would now serve only as a trading post, with the new residence as a backup base.
+The scene stirred old memories. He'd grown up in a southern city much like this—one of those places where the boundary between urban and rural had never quite solidified. Traditional Chinese cities had always been porous things, farmland and wasteland bleeding through the walls. Even into the 1960s and '70s, some districts had contained whole villages, complete with production brigades and collective fields. The past had a way of persisting.
 
-The new property was purchased with Gao Ju's money, but the location was found by Sun Chang—Xiao Zishan was increasingly fond of this young man. He worked efficiently and had a knack for understanding the transmigrators' thinking.
+This particular property had been selected as the transmigrators' future Guangzhou stronghold. The trading post on Haopan Street would continue serving its commercial purpose, but this new residence would become something more: a backup base, a fallback position for when things inevitably grew complicated.
 
-The property occupied higher ground than the surroundings, had an irregular shape, and was bordered by water on two sides. Its original owner had built a small residence and created a garden on the remaining land. Now, after changing hands multiple times, both house and garden had fallen into ruins—a wasteland of rubble and thorns. Only a pond of clear water, half a rockery, a few large trees, and a pavilion not yet completely collapsed hinted at its former glory.
+Gao Ju's money had purchased the property, but it was Sun Chang who'd found it. Xiao Zishan was growing increasingly fond of the young man. He worked with quiet efficiency and possessed an intuitive understanding of what the transmigrators needed—a rare quality in someone who still thought they were merely eccentric foreign merchants.
 
-Of all the properties Sun Chang found, this was the most dilapidated and cheapest—the buildings needed almost complete renovation. But it was quiet and secluded, with plenty of room for expansion. They decided to buy it immediately.
+The estate occupied a slight rise, its irregular boundaries following the contours of two small waterways. Some forgotten official or wealthy merchant had once built a modest residence here and laid out an ornamental garden on the remaining land. Now, after passing through too many indifferent hands, both house and garden had tumbled into ruin. Rubble choked the pathways. Thorns had claimed the flower beds. Only a few stubborn survivors hinted at former glory: a pond still holding clear water, half a rockery emerging from the weeds, several ancient trees whose roots had cracked the flagstones, and a pavilion that hadn't quite finished collapsing.
 
-The renovation plan was entirely designed by the transmigrators' architectural team. The concept: modernize the interior while preserving the overall Ming-era appearance, to meet the transmigrators' future needs for a Guangzhou base.
+Of all the properties Sun Chang had scouted, this one was simultaneously the most decrepit and the most promising. The buildings needed near-total renovation, which kept the price low. But the site was secluded, defensible, and offered ample room for expansion. They'd made their decision immediately.
 
-In the Executive Committee's plans, this location would serve as the transmigrators' trade, intelligence, and communications center along the Guangdong coast.
+The renovation plan came from the transmigrators' architectural team, and it embodied the same philosophy they applied to everything: modern functionality hidden beneath period-appropriate appearances. From the outside, the compound would remain perfectly authentic—the sort of Ming-era residence that wouldn't merit a second glance from passing officials. Inside, every room would be optimized for their actual purposes.
 
-The architects preserved the original residence's structural appearance, with comprehensive repairs and reinforcement. This section would be for dealing with locals.
+The Executive Committee had grand plans for this location. In time, it would serve as their trade hub, intelligence center, and communications node for the entire Guangdong coast. The existing residence would handle the public-facing work—receiving local visitors, conducting legitimate business. The restored garden would provide both cover and recreation. And behind it all, concealed within traditional courtyard exteriors, would rise modern facilities: offices, dormitories, a monitoring room, a telegraph station, warehouses, and a vault built to hold the silver that would fuel their revolution.
 
-Part of the ruined garden near the residence would be restored as a garden. The rest of the space was allocated for modern facilities: planned offices, dormitories, monitoring room, telegraph room, warehouse, and vault. Of course, all these buildings would have traditional courtyard exteriors, but internal facilities and structure would follow modern principles for maximum space efficiency.
+Of course, modern facilities required modern power. Wind turbines were impossible—the city offered neither consistent wind nor visual concealment for such conspicuous structures. Solar remained too inefficient to be practical. Though they hadn't yet solved the problem of smuggling a generator into the heart of Ming Guangzhou, they'd prepared regardless: the plans included an underground, soundproofed generator room. Better to have the infrastructure ready than scramble to install it later.
 
-Installing security equipment and communications devices meant dealing with electricity. Wind power wouldn't work inside the city—limited wind aside, the tall frames would be too conspicuous. Solar power was too inefficient. Though the Committee hadn't yet found a safe way to get a generator into the Guangzhou base, they prepared to build an underground, soundproofed generator room—better safe than sorry.
+The existing wells had tested acceptably. Local well-cleaners could restore them to working order for daily needs; drinking water would require additional purification. For now, the Guangzhou base would operate without electricity or running water, but the construction would incorporate channels and conduits for future upgrades.
 
-The garden and residence had wells. After testing, they were mostly acceptable. Hiring local well-cleaners for a deep cleaning would make them usable for daily needs; drinking water would require purification.
+Defense had been carefully considered. The waterways on the northwest boundary would be dredged and their banks reinforced. The crumbling perimeter walls were being raised to a uniform six meters—tall, but not suspiciously so. In wealthy households, courtyard walls routinely reached eight or nine meters. Climbing roses had been planted along the tops, their dense thorns serving as an elegant anti-intrusion measure.
 
-Though for quite some time this Guangzhou base would have neither electricity nor running water, construction would include pre-cut channels for future equipment and wiring.
+All of this, however, remained mostly theoretical—plans on a designer's computer, blueprints waiting for funding and time. Resources were tight. The wormhole's energy was dissipating steadily, and the Committee had decided to halt crossing-trade operations after this final trip. The transmigrators who'd spent months building networks and gathering intelligence in Ming-era Guangzhou would all withdraw, consolidating for the main crossing operation.
 
-For defense: the small waterways and pond on the northwest sides would be dredged and the banks reinforced. The crumbling walls were uniformly raised to 6 meters—in wealthy households' back courtyards, walls could reach 8 to 9 meters. Climbing roses were planted on the walls—their dense thorns also served as anti-theft measures.
+So the ambitious construction plan had been only partially implemented. Sun Chang had hired local bricklayers, and they were making steady progress on the residence and walls. Xiao Zishan watched them work—hauling bricks, mixing mortar, calling out to one another in broad Cantonese—and felt an unexpected pang of reluctance settle in his chest.
 
-But all this currently existed only on the designer's computer. Funds weren't abundant; excessive investment in a non-urgent project wasn't advisable. The wormhole's energy was about to dissipate. To preserve the last energy, crossing trade would stop after this trip. The transmigrators who had been active in the Ming timespace for several months would all withdraw until the final crossing operation.
+Who knew when he might return?
 
-Thus the ambitious construction plan had only been partially implemented. Sun Chang had hired bricklayers who were repairing the residence and surrounding walls. Watching the workers busily carrying bricks and mixing mortar, Xiao Zishan felt a pang of reluctance—who knew how long before he could return here.
+After the crossing, everything would change. They would no longer be harmless Australian merchants peddling curious novelties for honest profit. They would become something else entirely: a political force flying its own banner, openly pursuing what could only be called rebellion. As an Executive Committee member, Xiao Zishan would almost certainly be too valuable—and too recognizable—to risk in enemy-controlled territory.
 
-After the official crossing, they would no longer be harmless Australian merchants selling novel goods for profit. They would be a political force with their own banner, plotting rebellion. As an Executive Committee member, he probably wouldn't be sent back to Guangzhou under enemy control. How long before the transmigrators' flag could fly over the Lingnan First Building?
+He found himself wondering: how many years before the transmigrators' flag could fly over the Lingnan First Building?
 
-While musing, he saw Wen Desi enter with a beaming face. This past week, Xiao Zishan had been supervising the new residence while Director Wen and Engineer Wang handled the crossing trade.
+"Zishan! Still supervising?"
 
-"Zishan, still supervising?"
+He turned to find Wen Desi striding through the gate, wearing his characteristic broad grin. For the past week, Xiao Zishan had been managing the new residence while Director Wen and Engineer Wang handled the final crossing-trade operations.
 
-"Director Wen, why are you here? You should be keeping a low profile lately."
+"Director Wen." Xiao Zishan raised an eyebrow. "Why are you here? You should be keeping a low profile."
 
-"No worries—I've got Qiwei escorts with me, plus my protective charms..."
+"No need to worry. I've got Qiwei escorts, plus my protective charms..."
 
-"Hehe, the same old three: spray, knife, stab-vest?"
+"Hehe. The usual three? Pepper spray, knife, stab-vest?"
 
-"No—I learned from last time. Added a simple gas mask." Director Wen patted his bulging waist. He had just visited Gao Ju and spun Yu Eshui's vague prophecy with appropriately mystical flourishes.
+"Upgraded." Wen Desi patted his bulging waist. "I learned from last time. Added a simple gas mask." He'd just come from visiting Gao Ju, spinning Yu Eshui's deliberately vague prophecy with appropriately mystical flourishes.
 
-"What was Gao Ju's expression?"
+"How did Gao Ju take it?"
 
-"Hard to describe!" Wen Desi thought. "Like he'd just eaten a dozen sour olives! But when he learned we'd leave the goods on credit before departing, he was so moved he almost cried..."
+Wen Desi paused, searching for the right words. "Imagine a man who's just bitten into a dozen sour olives all at once. That was his expression." A grin broke across his face. "But when he learned we'd leave the goods on credit before departing, he was so moved he nearly wept."
 
-Both burst out laughing.
+Both men laughed.
 
-Considering that for a long time after the crossing, the transmigrators wouldn't be able to easily produce large quantities of "Australian goods" as they did now, they'd decided after discussion to leave Gao Ju a large consignment on credit. Gao Ju was moved nearly to tears—the goods were worth 200,000 taels! For the Executive Committee, this credit arrangement actually carried little risk—in RMB terms, it was only about 30,000. It wouldn't affect their funds on this side.
+The decision had been practical rather than generous. For a long time after the crossing, the transmigrators wouldn't be able to produce "Australian goods" in significant quantities—their priority would be survival and industrialization, not luxury exports. Rather than let their remaining inventory rot in a warehouse, they'd offered Gao Ju a massive consignment on credit: goods worth two hundred thousand taels.
 
-"So he paid quite a bit too?"
+The old merchant had been overwhelmed. For the Executive Committee, however, the risk was minimal. In RMB terms, the entire consignment represented perhaps thirty thousand yuan. A modest investment for maintaining their most valuable local connection.
 
-"Two thousand taels of gold. Plus many items we hadn't dared sell before—since this is the last time, sell and run." Wen Desi stopped laughing. "This is our last income before the crossing."
+"So he paid well in return?"
+
+"Two thousand taels of gold." Wen Desi's smile faded slightly. "Plus a number of items we'd never dared sell before. Since this is our last run anyway—sell and disappear."
+
+"This is our last income before the crossing," Xiao Zishan said quietly.
+
+"It is."
 
 "Is it enough?"
 
-"We've calculated several times. Not counting this income, current reserves are already sufficient—with a two-million-yuan cushion for emergencies."
+"We've run the numbers several times. Even without this haul, our reserves were already sufficient. This gives us a two-million-yuan cushion for emergencies."
 
-"Someone will want something new by then."
+"Someone will inevitably want something new that wasn't on the list."
 
-"If it's not enough, we won't buy it. Everything essential has been budgeted. Anything additional is just icing on the cake."
+"If it's not on the list, we don't buy it." Wen Desi's voice was firm. "Everything essential has been budgeted. Anything else is just polish on a finished blade."
 
-"I just worry we've overlooked something critical. We're going to rebuild an entire industrial system. Can't afford to drop the ball at a crucial moment." Xiao Zishan remained the pessimist.
+Xiao Zishan shook his head slowly. "I just worry we've overlooked something critical. We're attempting to rebuild an entire industrial civilization from scratch. One missing component at a crucial moment..."
 
-"Let's not talk about depressing things. Let's sort out matters here." Wen Desi said.
+"Don't talk about depressing things." Wen Desi clapped him on the shoulder. "Let's sort out matters here."
 
-Back in the newly repaired room, Sun Chang stood waiting with an account book. He had effectively become the steward. Entrusting such a large estate to someone they'd known less than three months—in modern times, no one would do it. But here and now, the transmigrators had no choice but to trust.
+They found Sun Chang waiting in the newly repaired room, account book in hand. The young man had effectively become the estate's steward—a remarkable amount of responsibility for someone they'd known less than three months. In the modern world, such trust would have been unthinkable. Here and now, they had no choice.
 
-"Sun Chang, we're returning to Australia this time. We won't be back until next year. Guard the residence well and don't cause trouble. Consult Manager Sun if anything comes up. For difficult matters, you may also seek Master Gao Ju's advice—I've spoken to him, and he'll see you."
+"Sun Chang." Wen Desi adopted his most authoritative tone. "We're returning to Australia this time. We won't be back until next year at the earliest. Guard the residence well. Avoid drawing attention to yourself. If questions arise, consult Manager Sun. For more difficult matters, you may seek advice from Master Gao Ju—I've already spoken to him, and he's agreed to receive you."
 
-"Yes. May I ask where I should meet the masters on your return?"
+"Understood, Master." Sun Chang bowed. "May I ask where I should meet you upon your return?"
 
-"No need. We'll send someone to contact you when we arrive." Wen Desi took out an aluminum commemorative medal sawn in half, giving one piece to Sun Chang. "When the time comes, use this as proof—you may follow that person's instructions."
+"You won't need to. We'll send someone to contact you." Wen Desi produced a halved aluminum medal—a modern commemorative coin, sawn neatly down the middle—and handed one piece to Sun Chang. "When the time comes, use this as verification. You may follow that person's instructions without question."
 
-"Yes. There's another matter I'd like guidance on."
+"Yes, Master." Sun Chang tucked the half-medal away carefully. "There is one other matter I'd like guidance on."
 
-"What is it?"
+"Speak."
 
-"This estate is so large—I alone may not be able to manage it well. Could the masters please buy one or two more household servants?"
+"This estate is quite large. I worry that I alone may not be able to manage it properly. Would the masters consider purchasing one or two additional servants?"
 
-"No need. After we leave, Gao Qing's family will move here. Gao Di is already studying with your martial uncle—teach him well in daily matters. Don't let him grow up useless like his father.
+"That won't be necessary. After we leave, Gao Qing's family will relocate here. Young Gao Di is already studying with your martial uncle—supervise his practical education carefully. Make certain he doesn't grow up useless like his father."
 
-"All household income and expenses are under your management. Gao Di will keep accounts. Gao Qing's family has set stipends and monthly rice—just distribute according to schedule. Your monthly salary is two taels, half a *shi* of rice per month."
+Wen Desi continued laying out the arrangements: Sun Chang would control all household income and expenditures; Gao Di would keep the accounts; Gao Qing's family would receive fixed stipends and monthly rice rations, to be distributed on schedule. Sun Chang's own salary was set at two taels of silver and half a *shi* of rice per month.
 
-"Understood."
+"Understood completely, Master."
 
-"Though I say don't cause trouble, that doesn't mean you should be a shut-in at home!"
+"When I said avoid drawing attention," Wen Desi added, "I didn't mean you should become a recluse."
 
-"?" Sun Chang looked confused.
+Sun Chang looked puzzled. "Master?"
 
-Wen Desi realized his slip but didn't correct it. He continued with a stern face: "Go out and about. Gather information. Report when we return."
+Wen Desi caught his slip—*shut-in* was hardly Ming-era vocabulary—but pressed on without acknowledging it. "Go out. Move through the city. Listen to what people are saying. When we return, I'll want a full report on anything of interest."
 
-"Yes."
+"Yes, Master."
 
-"Wait patiently. We'll be back."
+"Wait patiently." Wen Desi held the young man's gaze. "We *will* be back."
 
-The day after the transmigrators left, Gao Qing's family was packing to move to the Australian masters' new residence. Steward Yan called for Gao Qing by the gate again.
+---
 
-Hearing the voice, Gao Qing was about to go out when his wife exploded:
+The day after the transmigrators departed, Gao Qing's family was packing their belongings for the move to the Australian masters' new residence. They'd barely begun when Steward Yan appeared at the gate, calling for Gao Qing.
 
-"Go! Go on—go fawn over them! We came first, yet Sun Chang who came later got freed and became steward, while you—first in the door, still just a handyman!"
+Hearing his voice, Gao Qing made as if to go out—but his wife exploded before he could take two steps.
 
-Gao Qing stood silently, still seeming inclined to go out.
+"Go on then! Run to them!" Gao Xian's voice rose to a shriek. "We arrived first, but Sun Chang—who came *after* us—has already been freed and made steward! And you? First through the door, still nothing but a common handyman!"
 
-Gao Xian broke into crying and shouting: "Marrying a useless wretch like you cursed me for eight lifetimes! Don't you have any sense? What has the Gao family ever given us? How have Master Wen and the others treated us? And you want to sell them out—for nothing!"
+Gao Qing stood motionless, wearing his usual expression of defeated patience.
 
-"Master Wen is still a foreigner... in the future..."
+"I must have been cursed for eight lifetimes to marry such a wretch!" Gao Xian was crying now, tears cutting tracks through her fury. "Have you no sense at all? What has the Gao family ever given us? How have Master Wen and the others treated us? And you want to sell them out—*for what?*"
 
-"So what if he's a foreigner? If they treat us well, I'd follow them to the ends of the earth! You just keep selling out—stay with the Gao family as their good slave!"
+"Master Wen is still a foreigner," Gao Qing mumbled. "In the future—"
 
-Their two children watched their mother rage, saying nothing. Both were old enough to understand that their parents had different ideas, but emotionally they preferred the Australian masters—so pleasant to speak with, always giving them good food and fun Australian trinkets. Their hearts naturally sided with their mother.
+"*So what* if he's a foreigner?" Gao Xian's voice cracked. "If they treat us well, I'd follow them to the ends of the earth! But you? Keep crawling back to the Gao family. Stay their good slave forever!"
 
-Gao Qing hung his head in silence. Seizing the chance, Gao Xian had already stepped out, smiling broadly at Steward Yan: "What bad timing—my husband went to the other residence early this morning to tidy up. I'm just packing with the children. Once we're done, we'll head over. Is there something? Should I have him come see you tomorrow?"
+Their two children watched in silence. Both were old enough to understand that their parents pulled in opposite directions, but their hearts had already chosen sides. The Australian masters were kind. They spoke pleasantly, gave them good food, presented them with wonderful trinkets. Their mother was right.
 
-Steward Yan knew she was lying but couldn't do anything about it. He left sheepishly, muttering to himself: *These damn overseas foreign merchants really know how to sweet-talk people! Just a few days, and every one of them is now fiercely loyal!*
+Gao Qing's head sank lower. In the moment of silence, Gao Xian seized her chance. She smoothed her clothes, fixed a bright smile on her tear-streaked face, and stepped out to greet the waiting Steward Yan.
+
+"Ah, what poor timing! My husband left for the new residence early this morning—he's tidying the place for our arrival. I'm just finishing the packing with the children. Once we're done, we'll head straight over." She bowed slightly. "Was there something you needed? I could have him come see you tomorrow?"
+
+Steward Yan knew perfectly well she was lying. He could probably hear Gao Qing standing just inside the doorway. But what could he do? He left with what dignity he could muster, muttering to himself as he went.
+
+*These damned overseas merchants certainly know how to sweet-talk people. A few days with them, and everyone turns fiercely loyal!*
 
 **(End of Chapter)**

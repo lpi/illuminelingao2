@@ -1,95 +1,101 @@
 # Chapter 1631 - The Politics Lesson
 
-If there was really a full Senate vote, whether the land reform proposal would win was hard to say. That was why land policy had become the G-spot of all Senators—no one dared to poke at it, so it kept being put off.
+If the full Senate ever actually voted, whether the land reform proposal would pass was anyone's guess. That was precisely why land policy had become the G-spot of all Senators—no one dared to prod it, so it kept getting deferred.
 
-Now facing the pressing reality of "fighting back to the Mainland," it really couldn't be delayed any longer. Supervisor Ma expressing himself so obliquely was definitely not just this one instance in the special class; there might be new findings in the latest theoretical journals too.
+Now, with the pressing reality of "fighting back to the Mainland," delay was no longer an option. Supervisor Ma expressing himself so obliquely in the special class was surely not an isolated instance; there might be new findings in the latest theoretical journals as well.
 
-His mind was spinning in circles, but his mouth was already tearing Latin America apart until there was barely anything left.
+Liu Xiang's mind churned in circles, but his mouth was already shredding Latin America until barely anything remained.
 
-Latin Americanization was one of the main narrative contexts of the "China Collapse Theory." When Liu Xiang was playing "Keyboard Politburo" back in the day, he had put in quite a bit of effort on this, and now rattled off a large passage of lecturing without taking a breath.
+Latin Americanization had been one of the main narrative frameworks behind the "China Collapse Theory." Back when Liu Xiang was playing "Keyboard Politburo," he'd invested considerable effort on this topic, and now he rattled off a torrent of lecture without pausing for breath.
 
-Just as the rambling was going off into the ether, Qian Xuanhuang came to report that Master and Madam had called saying they wouldn't come back today and had to "hold a temporary enlarged meeting."
+Just as the rambling drifted toward the stratosphere, Qian Xuanhuang came to report that Master and Madam had called to say they wouldn't be returning tonight—they had to "attend a temporary enlarged meeting."
 
-Both Liu Xiang and Qian Shuixie were startled. Although there had been some political turmoil recently due to the martial arts drama, the surrounding environment was excessively quiet. There was no major action in any direction. Apart from a few departments, various agencies rarely worked through the night. Could something have happened?
+Both Liu Xiang and Qian Shuixie tensed. Although there had been some political turmoil recently over the martial-arts drama, the surrounding environment was bizarrely quiet. No major operations were underway in any direction. Apart from a handful of departments, few agencies ever worked through the night. Had something happened?
 
-"In that case, I'll take my leave first. I'll come to pay my respects to Speaker Qian again tomorrow." Liu Xiang rose to say goodbye.
+"In that case, I'll take my leave. I'll come pay my respects to Speaker Qian again tomorrow." Liu Xiang rose to depart.
 
-"I'm really sorry..." Qian Shuixie looked apologetic.
+"I'm terribly sorry..." Qian Shuixie looked apologetic.
 
-"It's fine, it's fine. It's rare leisure time for me too." Liu Xiang said, "I'll come again tomorrow when Speaker Qian has time."
+"It's fine, really. This counts as rare leisure time for me too." Liu Xiang smiled. "I'll return tomorrow when Speaker Qian has time."
 
 "Good, good."
 
-"Then we'll take our leave as well." The members of the Girls' Sailor Team also said their goodbyes.
+"Then we'll be leaving as well." The members of the Girls' Sailor Team said their goodbyes too.
 
-*Speaking of which, what's the deal with this "temporary enlarged meeting"? Judging from the meeting format, it's probably not a small matter! What's the situation with Ai Beibei attending as well? The health department... is there an epidemic?*
+*Just what is this "temporary enlarged meeting" about? Judging by the format, it's probably no small matter. Why is Ai Beibei attending? The health department... could there be an epidemic?*
 
-As Liu Xiang stood on the deck watching the Girls' Sailor Team's carriage disappear into the night, he couldn't help muttering in his heart.
+Standing on the deck, watching the Girls' Sailor Team's carriage vanish into the night, Liu Xiang couldn't suppress his silent speculation.
 
-"Yunmi, the stuff Teacher Liu said today, didn't we also find some of it in the Grand Library? Why specifically ask about it?"
+---
 
-Little Lin and Little Zhang were whispering in the same carriage.
+"Yunmi, didn't we already find some of what Teacher Liu was talking about in the Grand Library? Why specifically ask him?"
 
-"Asking always yields something! At least didn't you get another writing direction on your side?" Zhang Yunmi didn't know what she was thinking, responding absent-mindedly.
+Little Lin and Little Zhang were whispering together in the same carriage.
 
-"That's not right. After that attack, I felt like you became more withdrawn, not as cheerful as before. But today you were so proactive." Little Lin suddenly pulled Zhang Yunmi into her arms. "Didn't we promise to be together for life! Darling wife, don't abandon me! Whatever you do, don't look for a middle-aged man!"
+"Asking always yields something! At least you got another angle for your essay, didn't you?" Zhang Yunmi's response was distracted, her mind clearly elsewhere.
 
-"Not look for a middle-aged man, and wait for your little pet Zhuo Min to grow up instead!" Zhang Yunmi pushed Lin Ziqi away with a look of disgust.
+"That's not the point. After that attack, you became so withdrawn—not as cheerful as before. But today you were so proactive." Little Lin suddenly pulled Zhang Yunmi into her arms. "Didn't we promise to be together for life? Darling wife, don't abandon me! Whatever you do, don't go looking for a middle-aged man!"
 
-"No, no, no! That's not the point! Wife, wife, are you really going to look for a middle-aged man? No way! You're the number one idol!" 
+"Skip the middle-aged man and wait for your little pet Zhuo Min to grow up instead!" Zhang Yunmi pushed Lin Ziqi away with a look of disgust.
 
-"Can I be an idol forever? Besides, doesn't being an idol attract those otaku middle-aged men anyway? This kind of thing is just for fun, how can you take it seriously? As for those monkeys in the Selection Group, whether you're an idol or not, there's always a bunch of 'ambitious' ones with bootlicking faces trying to get close." Zhang Yunmi had a troubled look. "I like dressing up nicely and singing and dancing, but I can't dedicate dance as a career like Teacher Liu [Wencai, not Liu Xiang]. Hobbies and work are two different things!"
+"No, no, no! That's not the point! Wife, wife—are you really thinking about a middle-aged man? No way! You're the number-one idol!"
 
-"Hey, hey, hey, wife! Are! You! Really! Seriously! Considering! This!!!" Lin Ziqi was truly surprised this time, asking word by word.
+"Can I be an idol forever? Besides, doesn't being an idol just attract those otaku middle-aged men anyway? It's all just for fun—how can you take it seriously? As for the monkeys in the Selection Group, idol or not, there's always a pack of 'ambitious' ones with bootlicking faces trying to cozy up." Zhang Yunmi's expression turned troubled. "I like dressing up nicely and singing and dancing, but I can't dedicate my life to dance the way Teacher Liu Wencai does. Hobbies and work are two different things."
 
-"After the New Year is over, the First Five-Year Plan will be finished. We'll have voting rights at the Second Five-Year Plan Congress. You really don't understand what this means?" Zhang Yunmi sighed.
+"Hey, hey, hey, wife! Are! You! Really! Seriously! Considering! This!!!" Lin Ziqi was genuinely shocked now, asking word by word.
 
-Little Lin's mouth was agape, not knowing what to say. Although her bestie had been withdrawn lately, she only thought Little Zhang was stimulated and needed time to recover. She didn't expect Little Zhang was thinking about these issues.
+"After the New Year, the First Five-Year Plan will be complete. At the Second Five-Year Plan Congress, we'll have voting rights. You really don't understand what that means?" Zhang Yunmi sighed.
 
-"But, but... these middle-aged men all have lifestyle secretaries already!" Lin Ziqi finally connected again, though it didn't follow Little Zhang's logic just now.
+Little Lin's mouth hung open, not knowing what to say. True, her bestie had been withdrawn lately, but she'd assumed Little Zhang was just recovering from the shock and needed time. She hadn't realized Little Zhang had been thinking about things like *this*.
 
-"Then what else? Live like Teacher Wu or Auntie Du? Or find a naturalized citizen? Setting aside whether he'd take a mistress—I doubt they'd dare—would there be any common language?" Little Zhang said, shaking her head. "When your little pet Zhuo Min is trained up, then it might be possible. Good luck, I have high hopes for you!"
+"But, but... these middle-aged men all have lifestyle secretaries already!" Lin Ziqi finally reconnected, though not following Little Zhang's earlier logic.
 
-"But, but, why Teacher Liu? Aren't there some like Manor Owner Lu who are closer in age?"
+"Then what else? Live like Teacher Wu or Auntie Du? Or find a naturalized citizen? Setting aside whether he'd dare take a mistress—I doubt they would—would there even be any common ground?" Little Zhang shook her head. "Once your little pet Zhuo Min is trained up, maybe that'll be possible. Good luck—I'm rooting for you!"
 
-"Yeah, those guys have been trying to get us to call them 'Onii-chan' for years, and it had to be at sweetness level four-plus! Only now do I know what a bunch of lolicon perverts!" Zhang Yunmi vented viciously.
+"But, but, why Teacher Liu specifically? Aren't there some like Manor Owner Lu who are closer in age?"
 
-"Umm... but, why Teacher Liu..."
+"Oh, those guys have been trying for years to get us to call them 'Onii-chan'—and it always had to be at sweetness level four-plus! Only now do I realize what a bunch of lolicon perverts!" Zhang Yunmi vented viciously.
 
-"From the moment we got on the carriage, when did I ever say it was him! Don't worry, he's not my type. I was just talking about our tragic fate as female Senators!" Not to be outdone, Zhang Yunmi pulled Lin Ziqi into her arms: "Keep talking nonsense, and you won't sleep tonight!" As she spoke, she grabbed Lin Ziqi's pair of buns from behind and kneaded them vigorously.
+"Umm... but still, why Teacher Liu..."
 
-"Wife! Please spare me! Speaking of which, aren't you the one mooching a bed at my place tonight! How are you still so fierce! Don't, ah..." Lin Ziqi begged for mercy while squealing.
+"Since we got in the carriage, have I ever actually said it was him? Relax, he's not my type. I was just lamenting the tragic fate of us female Senators!" Zhang Yunmi pulled Lin Ziqi into her arms. "Keep talking nonsense and you won't sleep tonight!" As she spoke, she grabbed Lin Ziqi's twin buns from behind and kneaded vigorously.
 
-The atmosphere in the carriage was ambiguous. The coachman and the guards outside each had awkward expressions...
+"Wife! Please spare me! Speaking of which, aren't you the one mooching a bed at my place tonight? How are you still so fierce? Don't... ahh..." Lin Ziqi squealed and begged for mercy.
 
-Poor Zhang Yunmi still had no idea what major event had happened today that required an enlarged meeting to be convened; even less did she know that the agenda of this enlarged meeting was closely related to her.
+The atmosphere in the carriage turned ambiguous. The coachman and guards outside wore uniformly awkward expressions...
 
-In the classroom of the Primus Class at the Academy, only a few people sat scattered about. The faces of the classmates were all very blurry, yet their names could be called out accurately. On the podium, a slightly plump figure was lecturing about something.
+Poor Zhang Yunmi still had no idea what major event had occurred today to warrant a temporary enlarged meeting—much less that the agenda of that meeting was closely related to her own future.
 
-"...Right now, the syllabus for the 'Politics' course is still being compiled. What exactly to teach hasn't been completely decided. But some consensus has been reached, and these things that have reached consensus are what I am going to teach you...
+---
 
-"...Speaking from my experience, I can only say that the politics class in our schools back then was the one that told the most truth. The state is a violent machine for the ruling class to maintain its rule, the law is a tool for the ruling class to maintain its rule, there are individuals who betray their class but no class that betrays its interests...
+In the classroom of the Primus Class at the Academy, only a few figures sat scattered about. The faces of her classmates were strangely blurred, yet their names could be recalled with perfect accuracy. On the podium, a slightly plump silhouette lectured on something.
 
-"...No matter whether you have mathematical talent in the future or not, statistics must be studied well. This is the foundation of all social sciences. Without statistics, social science majors cannot be called 'science' at all. And correspondingly, if you learn statistics well, you will have mastered a modern art of governance! Today we will talk about the statistical concept we hear most often in our original spacetime, the so-called GDP..."
+"...Right now, the syllabus for the 'Politics' course is still being compiled. What exactly to teach hasn't been fully decided. But certain consensus has been reached, and those are the things I'm going to teach you...
 
-"...In this world, never inherit your past way of thinking again. You must establish the consciousness of the ruling class."
+"...Speaking from my experience, I can only say that the politics class in our old schools was the one that told the most truth. *The state is a violent machine for the ruling class to maintain its rule. The law is a tool for the ruling class to maintain its rule. There are individuals who betray their class, but no class that betrays its interests...*
+
+"...Whether or not you have mathematical talent, statistics must be studied well. It is the foundation of all social sciences. Without statistics, social science cannot be called 'science' at all. And correspondingly, if you master statistics, you will have mastered a modern art of governance! Today we will discuss the statistical concept we heard most often in our original timeline: the so-called GDP..."
+
+"...In this world, never inherit your old way of thinking again. You must establish the consciousness of the ruling class."
 
 Such a powerful sentence made Lin Ziqi open her eyes.
 
-She had fallen asleep again. She quickly raised her head—in any spacetime, she didn't like listening to politics class. She always felt it didn't have much to do with her.
+She had drifted off again. She quickly raised her head—in any timeline, she didn't like politics class. It always felt irrelevant to her.
 
-Looking at Zhang Yunmi again, her eyes were bright and focused. Thinking about the whispered conversation between them in bed this morning: about the future, about "boyfriends," and some "unsuitable for minors"...
+She glanced at Zhang Yunmi. Those eyes were bright and focused. She recalled their whispered conversation in bed that morning: about the future, about "boyfriends," and certain topics "unsuitable for minors"...
 
-She was lost in thought when suddenly the door was knocked and opened. A naturalized citizen academic secretary entered, who was also Principal Zhang's lifestyle secretary. She said a few words in his ear. Zhang Zhixiang, who had been spitting rhetoric, immediately stopped the lesson and said, "Study by yourselves for now," then hurried out.
+She was lost in thought when the door was suddenly knocked and opened. A naturalized citizen academic secretary entered—who was also Principal Zhang's lifestyle secretary. She whispered a few words in his ear. Zhang Zhixiang, who had been mid-lecture, stopped immediately and said, "Study on your own for now," then hurried out.
 
-Fangcaodi [Fragrant Grass Field] was now completely different from the beginning—except for the statue at the entrance with its ambiguous meaning and its 80s-era style. Although the playground track was still made of cinders, the grass in the middle had changed from weeds to specially cultivated grass varieties; the teaching building had also been expanded with two wings. A new library had been specially built. The "practical training classroom," which had originally just been a reed mat shed, had also become a neat factory building. The school motto on the wall had been freshly repainted, and a newly designed Fangcaodi exclusive coat of arms had been added.
+---
 
-He ran into his former colleague Xiao Zhaochuan and, after greeting him, asked about Hu Qingbai's current teaching location. Today was Monday. After the flag-raising ceremony, he had gone to the lecture hall to give "Weekly Current Events" political education to the Selection Group students. Leaving behind Xiao Zhaochuan, whose pile of papers was already high enough to bury his eyes, Liu Xiang headed straight for the lecture hall.
+Fangcaodi was now utterly different from its early days—except for the entrance statue with its ambiguous meaning and its 1980s-era style. Though the playground track was still made of cinders, the grass in the middle had been replaced with specially cultivated varieties; the teaching building had been expanded with two new wings. A dedicated library had been constructed. The "practical training classroom," once a mere reed-mat shed, was now a proper factory building. The school motto on the wall bore a fresh coat of paint, and a newly designed Fangcaodi crest had been added.
 
-The lecture hall had been built with great care back in the day. After all, amplification equipment couldn't be guaranteed long-term, so making full use of the building's internal structure was inevitable. At that time, the construction company was "full of talents" and "brimming with expertise," unlike now where most had changed careers, leaving only Mei Wan, Qi Feng, and a few others still holding down the fort. Back then, everyone had put all their effort into the lecture hall project, personally taking turns to supervise the work, then testing the sound effects, and finally making patches before finishing it. So now, even though Liu Xiang had just arrived at the door, he could clearly hear Hu Qingbai's voice. He reached out and tested—the door was unlocked as expected. Walking in quietly, Hu Qingbai saw Liu Xiang. After a moment, he remembered this former subordinate and didn't make a fuss, only slowing down his speech slightly. Opening the door naturally made a sound, but the students didn't stir. Only a few boys twisted their bodies wanting to turn around and look but controlled themselves.
+Liu Xiang ran into his former colleague Xiao Zhaochuan, greeted him, and asked about Hu Qingbai's current location. Today was Monday. After the flag-raising ceremony, Hu had gone to the lecture hall to deliver "Weekly Current Events" political education to the Selection Group students. Leaving behind Xiao Zhaochuan—whose pile of papers was high enough to bury his eyes—Liu Xiang headed straight for the lecture hall.
 
-"The discipline is not bad!" Liu Xiang found the nearest empty seat and sat down, sighing with emotion.
+The hall had been built with great care back in the day. After all, amplification equipment couldn't be guaranteed long-term, so exploiting the building's internal acoustics had been essential. At that time, the construction company "brimmed with talent" and "overflowed with expertise"—unlike now, when most had changed careers, leaving only Mei Wan, Qi Feng, and a handful of others still holding down the fort. Everyone had poured effort into the lecture hall project, personally rotating as supervisors, then testing sound effects, then patching problems before final completion. So now, even standing at the door, Liu Xiang could clearly hear Hu Qingbai's voice. He reached out and tested—unlocked, as expected. Walking in quietly, Hu Qingbai caught sight of him. After a moment, recognition dawned and he didn't make a fuss, only slowing his speech slightly. Opening the door naturally made a sound, but the students remained still. Only a few boys fidgeted as if to turn and look but controlled themselves.
 
-"...I think Chen Guangji's reflection from last time was the best written. It's not because the depth of his thinking was particularly profound, but because of his use of Mandarin, that breath of life in his writing—it's stronger than most people. When everyone writes articles, from time to time you use your hometown dialect. Some dialect characters have no corresponding Mandarin characters, and you still substitute a similar-sounding one." Hu Qingbai praised this Chen Guangji student well, then called on everyone to learn from him. Following the students' gazes, Liu Xiang found this slightly thin and slender student, his head slightly lowered, his face flushed red. Liu Xiang nodded slightly.
+*Not bad discipline*, Liu Xiang thought. He found the nearest empty seat and sat down.
 
-(End of Chapter)
+"...I thought Chen Guangji's reflection from last time was the best written. Not because the depth of his thinking was particularly profound, but because of his use of Mandarin—that breath of life in his writing. It's stronger than most. When everyone writes, from time to time you slip into your hometown dialect. Some dialect characters have no corresponding Mandarin equivalents, and you just substitute a similar-sounding one." Hu Qingbai praised this Chen Guangji student thoroughly, then called on everyone to learn from him. Following the students' gazes, Liu Xiang located the slightly thin and slender student—head slightly lowered, cheeks flushed red. Liu Xiang nodded approvingly.
+
+**(End of Chapter)**

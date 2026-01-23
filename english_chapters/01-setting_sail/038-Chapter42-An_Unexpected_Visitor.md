@@ -2,98 +2,104 @@
 
 One year later.
 
-Southern China, a certain major city.
+Southern China, a major coastal city.
 
-Guo Yi walked into his office. He was a civil servant of the People's Republic—though today he was a bit late, having drunk a few too many glasses at dinner with old classmates the night before.
+Guo Yi walked into his office nursing a hangover. He was a civil servant of the People's Republic—and today he was late, thanks to too many glasses at the previous night's reunion dinner.
 
-When old classmates met, drinking was inevitable. But those who drank too much usually weren't doing so out of happiness.
+Old classmates meeting meant drinking. There was no avoiding it. But those who drank too much were rarely celebrating success.
 
-Those who'd done well naturally bragged to the heavens, wanting everyone to know how successful they were. Those who hadn't done well simply didn't show up.
+The ones who'd prospered never shut up about it—they wanted everyone to know exactly how well they'd done. The ones who'd failed simply didn't show up.
 
-For someone like him, stuck in the middle, the mood was actually the most depressing...
+For someone like Guo Yi, trapped in the murky middle, the mood was bleakest of all. The successful mocked him for clinging to his iron rice bowl, lacking any real ambition. The unsuccessful assumed he spent his days sipping tea and reading newspapers. Neither group was entirely wrong.
 
-Those doing well looked down on them, mocking them for coasting along on an iron rice bowl without ambition. Those doing poorly assumed they just drank tea all day...
+On his desk sat a stack of materials—the latest reports on social trends. Guo Yi worked in a department whose mandate was maintaining social stability, unity, harmony, and tranquility. The sort of department whose very name required quotation marks.
 
-On his desk sat some materials—the latest reports on social trends. Guo Yi worked in a department dedicated to maintaining social stability, unity, harmony, and tranquility.
+He flipped through several unremarkable reports before coming to one tagged "Pending"—a status summary from a coastal county in Guangdong. Over the past year, a peculiar group had been congregating at an idle maritime militia training base there. Daily, they conducted military drills: marching, running, physical training. Nightly, they held meetings that stretched late, reportedly involving the chanting of slogans. A concerned citizen had reported them as a suspected pyramid scheme. The Commerce Bureau's enforcement squad found no signs of illegal sales. The local police station visited and likewise found nothing amiss. When questioned, the person in charge explained it was simply pre-employment training for a company. The business license checked out—registered for over a year. The base was properly rented from the local People's Armed Forces Department.
 
-After routinely reviewing several unremarkable reports, he came to one marked with a "Pending" tag—a status report from a coastal city in Guangdong. Over the past year, a strange group of people had been gathering at an idle maritime militia training base there. Every day they conducted military drills—marching, running, other physical training activities. At night they held meetings that ran late, apparently with chanting of slogans. Someone suspected it was a pyramid scheme and reported it to the Commerce Bureau. The enforcement squad checked once but found no signs of pyramid sales. The local police station had also visited without finding any violations. The person in charge explained it was pre-employment training for a company. They checked the business license—indeed such a company existed, registered over a year ago. The militia base was rented from the local People's Armed Forces Department.
+And yet something felt off. The report had wound its way up the chain until it landed on Guo Yi's supervisor's desk. His superior's instruction was characteristically vague: "If you have time, go take a look. See if there are any problems."
 
-Still, the situation seemed suspicious. So the report wound its way to Guo Yi's supervisor's desk. The supervisor's instruction: "If you have time," he said, "go check it out. See if there are any problems."
+Whether in intelligence or stability work, sitting in an office reviewing documents was always the primary activity.
 
-Whether intelligence work or stability work, sitting in an office reviewing documents was always the main job.
+One name kept appearing in the materials: Wen Desi. According to registration documents, he served as legal representative, chairman, and general manager of the company—all three positions held by one man.
 
-One person mentioned in the materials was named Wen Desi. According to registration documents, he was the company's legal representative, chairman, and general manager.
+Guo Yi hadn't previously encountered this individual. To be fair, Director Wen wasn't the sort of person their department typically monitored. But within the bureau, Guo Yi was known for his obsessive love of digging through materials and archives. This hobby had offended people—he still didn't know exactly whose toes he'd stepped on—and so while colleagues around him climbed the ladder, he remained stuck at the staff-member level. Any assignments with potential for recognition were invariably kept far from him.
 
-Guo Yi hadn't seen this person's file before. To be fair, this Director Wen wasn't the type to be on their radar. But within the bureau, Guo Yi was known for his love of digging through materials and archives. This hobby had offended people—he himself didn't know whose toes he'd stepped on with the information he'd dug up—so after several rounds of promotions in his department, he remained a mere staff member. And all work that could earn credit was kept far from him.
+He pulled up Wen Desi's file. An unremarkable man in his thirties, formerly an engineer and manager at several companies, with comfortable but not exceptional income. He enjoyed travel and harbored strong interests in history and military affairs. He made handicrafts. He was an outdoor enthusiast and firearms hobbyist, also something called a "survivalist"—apparently the type who stockpiled provisions and dreamed of building bunkers against nuclear winter. No evidence existed that he possessed or had attempted to acquire actual weapons—he didn't even own a dog. His online activity consisted mainly of inquiries about ammunition prices and outdoor equipment on various forums. His background was spotless: no criminal record, no bad debts, not even a traffic violation.
 
-He pulled up Wen Desi's file. An ordinary, unremarkable person in his thirties, formerly an engineer and manager at several companies, with decent income. He enjoyed traveling and had strong interests in history and military affairs. Did some handicrafts. An outdoor sports and weapons enthusiast, also something called a "survivalist"—preparing to dig bunkers for nuclear winter. Presumably his home was stocked with provisions. But no evidence he possessed or attempted to possess weapons—not even dogs of any variety. He frequented certain websites, posting inquiries about which ammunition was cheaper, outdoor equipment, and so forth. Clean background, no bad records, not even traffic violations.
+His company had been registered six months ago with one million yuan in capital. Guo Yi knew that registered capital often existed only on paper, but based on Wen Desi's tax history, the man could have genuinely produced the funds. Bank records showed he'd emptied his savings six months prior—over 800,000 yuan withdrawn in quick succession. Since then, his personal accounts had remained relatively bare.
 
-His company had been registered six months ago with one million yuan in capital. Guo Yi knew registered capital was usually empty, but based on Wen Desi's past income-tax payments, coming up with one million wasn't difficult. Checking his bank records: six months ago he'd emptied his savings in several withdrawals—over 800,000 yuan. Since then, his personal account hadn't held such large fixed deposits.
+The company's financial activity appeared normal—regular business operations, buying and selling, nothing extraordinary. Expenses included wages, utilities, office costs. The account maintained a modest balance, hovering around 100,000 yuan.
 
-The company account transactions also appeared normal—regular business operations, buying and selling. Listed expenses included: wages, utilities, office costs. There was cash in the account but not much—hovering around 100,000.
+Tax records confirmed Guo Yi's assessment. The company conducted legitimate business, paid taxes in full, and had committed only minor accounting irregularities—nothing approaching evasion, though they practiced standard tax avoidance.
 
-Guo Yi also checked tax bureau records, confirming his thoughts. The company's business activities were conducted normally, all taxes and fees paid in full. Some minor accounting irregularities had been found, but no issues with tax evasion—though reasonable tax avoidance did exist.
+He sat back and considered. Nothing here suggested potential for mass incidents or other threats to social harmony. But the boss had spoken, and Guo Yi figured he might as well treat the assignment as a working vacation.
 
-Guo Yi pondered for a while. He saw no potential for mass incidents or other disharmonious elements. But since the boss had spoken, he might as well take a field trip—call it a vacation.
+---
 
-This county town was ordinary, like countless similar coastal towns in Guangdong—densely populated and economically prosperous. Prosperity brought a large floating population. Every day at the long-distance bus station plaza, people carrying bundles and dragging families came and went—chasing their dreams.
+The coastal town was ordinary—one of countless such places along the Guangdong shore, densely populated and economically vibrant. Prosperity brought a massive floating population. Every day at the long-distance bus station, people with bundled belongings and trailing families flowed in and out, chasing their various dreams.
 
-Among this surging crowd, for the past half year, nearly every day brought truly unexpected guests. They dressed variously, spoke in all dialects, furtively clutching maps and notes, in groups of three to five or alone, scanning the station plaza for something.
+Among this churning crowd, for the past six months, unexpected visitors had been arriving almost daily. They dressed in all manner of clothing and spoke in all manner of dialects. They clutched maps and notes and scanned the station plaza, searching for something specific. They came in groups of three or five, or sometimes alone.
 
-Xiao Zishan stood at the station exit, holding up a fruit box torn open, with crooked brush-written characters: "Crossing Trade." His once white and plump face had grown much thinner and darker. He wore a sweat-stained promotional T-shirt and a frayed straw hat.
+Xiao Zishan stood at the station exit, holding aloft a piece of torn cardboard—the bottom of a fruit box—with crooked brush-painted characters: **Crossing Trade**. His face, once pale and plump from years of office work, had grown thin and dark. He wore a sweat-stained promotional T-shirt and a frayed straw hat.
 
-A former foreign-enterprise white-collar worker—even if unemployed—appearing in such a getup at a coastal town... Xiao Zishan himself didn't know if he'd gone crazy or was living an absurd dream that had gone on far too long. And yet, he knew, more and more people were chasing the same dream.
+A former white-collar worker at a foreign enterprise, even if unemployed, appearing in this getup at a provincial bus station... Xiao Zishan himself couldn't quite say whether he'd gone mad or was simply trapped in an absurd dream that had stretched on far too long. And yet, he knew, more and more people were chasing the same dream.
 
-Today, as usual, some would arrive. Xiao Zishan knew that some would hesitate and shrink back as before, while others wouldn't be selected. The road to dreams would be winding.
+Today, as always, some would arrive. Some would hesitate and ultimately lose their nerve. Others wouldn't pass selection. The road to their shared fantasy wound through many obstacles.
 
-Guo Yi emerged from the exit. The September weather was still somewhat stifling, the sun scorching. This was his first time in this small city. He scanned the crowd at the exit. His gaze immediately caught the torn cardboard box.
+Guo Yi emerged from the exit into September heat. The weather was still oppressively humid, the sun merciless. This was his first time in this particular town. He scanned the crowd.
 
-"Crossing Trade"
+His gaze caught immediately on the torn cardboard sign.
 
-Wasn't this the company Wen Desi had started? In that instant, Xiao Zishan's gaze briefly met his. That flash of a moment might be called "a fated encounter"—but neither experienced a sudden shiver or radiated an irresistible kingly aura to make the other submit. Guo Yi was interested in the company; Xiao Zishan sensed this person was no ordinary visitor.
+*Crossing Trade.*
 
-Years in sales hadn't developed Xiao Zishan in many areas, but he'd learned to read people. This person had sharp, alert eyes; his movements displayed calm confidence; his clothes were low-key yet neat; he carried little luggage. This was someone who ate the government's rice—nine times out of ten, from some authority department. And this person was watching him—not interested in him as a dark-skinned fat man, but in the box he was holding.
+Wasn't that the company Wen Desi had founded? In that instant, his eyes met Xiao Zishan's. That brief moment might have been called a "fated encounter"—but neither man experienced any mystical shiver, and neither radiated an irresistible kingly aura that might compel the other's submission. Guo Yi was interested in the company. Xiao Zishan recognized that this newcomer was no ordinary traveler.
 
-Before his next thought could form, a tall, plump young man laden with bags approached:
+Years in sales had failed to develop many of Xiao Zishan's abilities, but he'd learned to read people. This man had sharp, alert eyes. His movements conveyed calm confidence. His clothing was low-key but neat. He carried minimal luggage. This was someone on a government salary—nine times out of ten, from one of the authority departments. And this man was watching him—not because of any personal interest, but because of the sign he held.
+
+Before Xiao Zishan could process his unease, a tall, plump young man laden with bags approached.
 
 "Crossing Company?"
 
 "That's us. And you are?"
 
-"I'm here to cross over..."
+"I'm here to cross over—"
 
-Xiao Zishan broke into a cold sweat: *Buddy, you really have to say that out loud in public?* "Um... that... where did the PLA sweep?"
+Xiao Zishan felt cold sweat prick his back. *Buddy, do you really have to say that out loud?* "Er... that... where did the PLA sweep?"
 
-Everyone who came had to exchange the code phrase. This absurd rule came from who knows where—we're not some comedy troupe... probably someone's gangster-novel obsession.
+Every arrival had to verify themselves with the code phrase—some absurd rule inherited from who-knew-where. They weren't a comedy troupe implementing secret handshakes. Probably someone's gangster-novel fixation.
 
-"Asia! Asia!" The young man, apparently still excited, spoke loudly. "I'm Meng Xian! Meng Xian!"
+"Asia! Asia!" The young man was clearly still buzzing with excitement, his voice far too loud. "I'm Meng Xian! Meng Xian!"
 
-"I know, I know..." Xiao Zishan's head was sweating. He was a low-key person; with a thief's guilty conscience, he lowered his voice. "Go to the parking lot. There's a minibus, plate number ******."
+"Yes, I know, I know..." Xiao Zishan's scalp was damp. He was by nature a cautious person; with a thief's guilty conscience, he lowered his voice to compensate. "Go to the parking lot. There's a minibus—plate number ******."
 
-"Where's Director Wen..."
+"Where's Director Wen—"
 
-"You'll see him soon... I still have to pick up a few more people..." Xiao Zishan looked around nervously, hoping their exchange hadn't attracted attention.
+"You'll see him soon. I still have more people to collect." Xiao Zishan glanced nervously around, hoping their exchange had gone unnoticed.
 
-The bustling crowd around them was busy with their own affairs; no one noticed them. Xiao Zishan's heart steadied slightly. That person from before had disappeared. Somehow, he felt a vague unease—should he report this to the Executive Committee when he returned?
+The crowd around them remained absorbed in their own affairs. No one seemed to have paid them any attention. Xiao Zishan allowed himself a steadying breath—then noticed that the man from before had vanished. An uneasy prickle ran down his spine. *Should I report this to the Executive Committee?*
 
-That day, Guo Yi observed them from a corner for quite a while. Though he couldn't hear what they said, he could roughly tell the man with the fruit box was picking someone up. One person was excited; the other seemed uneasy, vigilant—indicating the conversation contained some secret. From the picker's familiarity with the surroundings and the box's wear, such pickups had been going on for quite a while. He tailed the enthusiastic Meng Xian to the parking lot and noted the minibus's plate number.
+---
 
-The minibus didn't leave immediately—meaning more people were expected. But Guo Yi decided not to wait around. First, he went to the telecom and mobile companies, pulling the company's call records. Contrary to his expectations, the company's phone traffic was quite heavy—almost daily, large numbers of calls coming and going.
+That day, Guo Yi observed from a discreet corner for quite some time. He couldn't hear what they were saying, but he could read the interaction clearly enough. The man with the cardboard sign was meeting someone—one party excited, the other anxious and vigilant. Their body language suggested the conversation touched on something sensitive. From the sign-holder's familiarity with the surroundings and the worn condition of his cardboard, such pickups had been happening for a while.
 
-With help from local authorities, most landline numbers were quickly traced: the majority belonged to domestic small and medium enterprises, research institutes, design academies, plus various trading and consulting companies. All kinds of businesses.
+Guo Yi followed the enthusiastic Meng Xian to the parking lot and noted the minibus's plate number.
 
-Mobile numbers were trickier—phone registrations were looser, many owners untraceable, and the geographic spread too wide. Guo Yi started investigating from the landline end.
+The vehicle didn't leave immediately—more arrivals were expected. But Guo Yi decided not to wait. Instead, he visited the local telecom carriers and pulled the company's call records. Contrary to expectations, phone traffic was heavy—large numbers of calls incoming and outgoing almost daily.
 
-What he found left him extremely puzzled.
+With assistance from local authorities, most landline numbers were quickly traced. The majority belonged to domestic small and medium enterprises, research institutes, design academies, plus assorted trading and consulting firms. An eclectic mix.
 
-This company was frequently contacting enterprises, research institutes, and design academies across the country. They'd also purchased considerable equipment and materials—nothing special for a company. But the range of industries involved was absurdly broad and strange. Ordering generators, small hydropower equipment, transformer facilities—understandable. But also multiple wind-power systems plus large quantities of spare parts. The company also showed great enthusiasm for various blueprints and technical documents—even interested in condom and sanitary-napkin manufacturing technology.
+Mobile numbers proved trickier—registrations were looser, many owners untraceable, and the geographic spread was enormous. Guo Yi focused on the landline trail.
 
-"Does he have that much money?" Guo Yi couldn't help questioning the motive. Money laundering surfaced in his mind again. Or were they collecting technical intelligence? From enterprise feedback, they weren't interested in high-tech products. Quite the opposite—they were keen on simple, outdated, obsolete technologies and processes. Was there any industrial spy who worked this way?
+What he found left him deeply puzzled.
 
-Perhaps they were using all this as smoke to cover some major secret? If so, what were they trying to do?
+This company was in regular contact with enterprises, research institutes, and design academies across the entire country. They'd purchased substantial equipment and materials—nothing unusual for an operating business. But the range of industries involved was bizarrely broad. Ordering generators, small hydropower equipment, transformer facilities—that made sense. But also multiple wind-power systems and vast quantities of spare parts. The company showed intense enthusiasm for technical blueprints and manufacturing documentation—they'd even inquired about condom and sanitary-napkin production technology.
 
-That evening, Guo Yi lay exhausted on the hotel bed, declining the Nth phone call offering him a relaxation massage. His mind was a jumbled mess. He fell into a drowsy sleep.
+*Does he have that kind of money?* Guo Yi found himself questioning the very premise. Could this be money laundering? Or were they collecting industrial intelligence? But according to every feedback he'd gathered, they showed no interest in high-technology products. Quite the opposite—they actively sought simple, outdated, even obsolete technologies and processes. What kind of spy operated that way?
 
-In his dream, Guo Yi saw Wen Desi wearing a strange long robe. A huge ship. Riding the wind and waves. In the distance, a verdant island—blue sky, white clouds, azure sea, silver sand...
+Perhaps all this activity was smoke—cover for something else entirely? If so, what were they actually trying to do?
+
+That evening, Guo Yi lay exhausted on his hotel bed, declining the Nth phone call offering "relaxation massage services." His mind churned with contradictions. He drifted into restless sleep.
+
+In his dream, he saw Wen Desi wearing a strange flowing robe. A massive ship. Wind and waves. In the distance, a verdant island rose from an azure sea—blue sky, white clouds, silver sand...
 
 **(End of Chapter)**

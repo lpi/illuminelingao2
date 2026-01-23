@@ -1,77 +1,77 @@
 # Chapter 1628 - Insider Information
 
-"Tell me about it," Qian Shuixie said, looking at the wine in his Czech crystal carved red wine glass. "Domestic class contradictions are prominent, what to do? Start a war abroad to divert the masses' attention—the old routine."
+"Tell me about it," Qian Shuixie said, swirling the wine in his Czech crystal goblet. "Domestic class contradictions getting too prominent? Start a war abroad to divert the masses' attention—the oldest trick in the book."
 
-This caused a bit of aversion in Liu Xiang, because he still supported the mainland strategy. While there might be a hint of diverting attention, the dignified Senate had been beaten to its doorstep by the powerful of the Ming. If they didn't launch an offensive and continued to hide their light and bide their time, wouldn't people point fingers and curse the Executive Committee all the same?
+This irked Liu Xiang. He still supported the mainland strategy. There might be a grain of truth to the diversion angle, but the dignified Senate had been struck at its very doorstep by Ming forces. If they didn't launch an offensive and kept biding their time, wouldn't the masses curse the Executive Committee all the same?
 
-In short, those in power carry original sin. Liu Xiang now somewhat understood the psychology of those self-proclaimed "Soy Sauce Senators." He still remembered the attitude of that Deputy Director who had just parachuted into Qiongshan and initiallly found fault with everything he did—*You are guilty just for being a leader! You serve errors! We the masses are the most innocent and blameless!*
+Those in power carried original sin—that was the lesson. Liu Xiang now understood the psychology of those self-proclaimed "Soy Sauce Senators" a little better. He still remembered the attitude of that Deputy Director who had just parachuted into Qiongshan and found fault with everything he did—*You're guilty simply for being a leader! You serve up errors! We, the masses, are the most innocent and blameless!*
 
-Fortunately, his attitude changed after working for a while. Practical work truly exercises people best.
+Fortunately, that attitude changed after the man had done some actual work. Nothing taught humility like practical experience.
 
-"The situation is pressing, too." Liu Xiang took a big gulp of beer. "If we don't launch an offensive, the Executive Committee won't be able to justify itself either."
+"The situation is pressing, too," Liu Xiang said, taking a deep swig of beer. "If we don't launch an offensive, the Executive Committee won't be able to justify itself."
 
-"That's true too." Qian Shuixie nodded. "But this matter should be handed over to our Special Reconnaissance Team to be professionally suitable."
+"True enough." Qian Shuixie nodded. "But this should be handed over to our Special Reconnaissance Team. It's more their line of work."
 
-Liu Xiang was confused again. According to his understanding, capturing a big city like Guangzhou was nothing more than the Pearl River Campaign back then: simultaneous naval and land operations, plus artillery. Even if the Special Reconnaissance Team was useful, it would be for "decapitation" and "reconnaissance." They couldn't be asked to climb ladders and siege the city, right?
+Liu Xiang was puzzled. In his understanding, capturing a city like Guangzhou meant nothing more than a repeat of the Pearl River Campaign: coordinated naval and land operations backed by artillery. Even if the Special Reconnaissance Team proved useful, it would be for decapitation strikes and reconnaissance—not scaling ladders and storming walls, surely?
 
-Perhaps seeing Liu Xiang's confusion, Qian Shuixie laughed loudly: "Old brother, do you still think attacking Guangzhou is as complicated as when we burned the Five Rams Station back then?"
+Perhaps reading Liu Xiang's confusion, Qian Shuixie laughed. "Old brother, do you still think taking Guangzhou is as complicated as when we burned the Five Rams Station?"
 
-"What else could it be?"
+"What else would it be?"
 
-Qian Shuixie got up and poured himself some more mixed fruit brandy: "The current Guangzhou is actually no different from being defenseless. As long as we are willing, we can have a party in Guangzhou tomorrow: just within the Guangzhou Great World, there are three companies of troops stationed. And a dozen cannons."
+Qian Shuixie rose and poured himself another glass of fruit brandy. "Current Guangzhou is practically defenseless. If we wanted, we could be throwing a party there tomorrow. The Great World alone has three companies of troops garrisoned inside—plus a dozen cannons."
 
-"Doesn't this mean preparation for war was made long ago?"
+"So preparations for war were made long ago?"
 
-"Not necessarily," Qian Shuixie shook his head. "Big Brother said that there was originally a debate within the Executive Committee about whether to attack Guangzhou. The focus was still on the issue of trade with the Ming—Si Kaide, that capitulationist, was always afraid that war with the Ming would cause an interruption in trade—of course, he doesn't oppose it now either. As for sending a few companies over, it was mainly to stand guard and act as a construction team. The investment in the Great World isn't small."
+"Not exactly." Qian Shuixie shook his head. "Big Brother said there was originally debate within the Executive Committee about whether to attack Guangzhou at all. The sticking point was trade with the Ming—Si Kaide, that capitulationist, kept worrying that war would disrupt commerce. Of course, even he's on board now. As for sending those companies over, it was mainly for guard duty and construction work. The investment in the Great World isn't trivial."
 
-*You gotta be kidding me!* Liu Xiang complained loudly in his heart! "I've been designing the actions over in Guangzhou according to the underground government plan all along! This is great; is this the rhythm of scraping everything and starting over?"
+*You've got to be kidding me!* Liu Xiang howled internally. He'd been designing the Guangzhou operations according to an underground government plan all along! Was he supposed to scrap everything and start over?
 
-Liu Xiang thought depressedly: *It's bad not being in the ruling center! Lack of channels for grapevine news!*
+*This is the problem with being far from the ruling center*, he thought bitterly. *No grapevine access at all.*
 
-Speaking of "man proposes, heaven watches," just as the two were acting like they were doing underground work, Qian Xuanhuang's footsteps broke this mysterious atmosphere very punctually.
+Speaking of plans going awry, just as the two men were engaged in what felt like clandestine plotting, Qian Xuanhuang's footsteps punctured the conspiratorial atmosphere.
 
-"Sir!" It was Qian Xuanhuang's voice. "People from the General Office act here. They say they are the orderly and guard assigned to Senator Liu in Lingao. The official letter is with me."
+"Sir!" came Qian Xuanhuang's voice. "People from the General Office are here. They say they're the orderly and guard assigned to Senator Liu from Lingao. I have the official letter."
 
-Qian Shuixie sat up straight and said loudly: "Please invite them up."
+Qian Shuixie straightened. "Show them up."
 
-Liu Xiang took the official letter and looked at it. It indeed had the General Office's seal. He let Qian Xuanhuang bring the people in—the official letter also had a special handwritten note saying there were things to be handed over to Liu Xiang personally.
+Liu Xiang examined the letter. It did bear the General Office's seal. He nodded for Qian Xuanhuang to bring them in—the letter also contained a handwritten note indicating items to be delivered to Liu Xiang personally.
 
-"Hello, Chief! Guard Lin Dengwan (Leader One), Di Bage (Debug), Orderly Ye Siman (Yesman), reporting to you!" The three of them gave a very distinctive self-introduction as soon as they arrived.
+"Reporting to the Chief! Guard Lin Dengwan (Leader One), Guard Di Bage (Debug), Orderly Ye Siman (Yesman)!" The three announced themselves with distinctive self-introductions the moment they arrived.
 
-"Hello, Chief! This is the package the Executive Committee designated for you to sign for personally!" Another young man with an Executive Committee liaison cloth patch pinned to his chest took out a package and handed it to Liu Xiang. The kraft paper envelope was stamped with a red seal: Top Secret. Liu Xiang opened it and saw: another thick document, *Research on Historical Materials of the Liberation of Shanghai and the Suppression of Counter-revolutionaries Movement*, with a receipt attached. Liu Xiang took a pen from his chest pocket, filled out the receipt, and gave it to the liaison. This bustling young man then took his leave.
+"Reporting to the Chief! This package is designated by the Executive Committee for your personal signature!" Another young man, an Executive Committee liaison patch pinned to his chest, handed over a kraft-paper package stamped with a red seal: *Top Secret*. Liu Xiang opened it to find a thick document—*Research on Historical Materials of the Liberation of Shanghai and the Suppression of Counter-revolutionaries Movement*—with a receipt attached. He filled out the receipt and returned it, and the bustling young liaison took his leave.
 
-Turning back to exchange a few words with these three people, and incidentally teasing Di Bage's rare surname, he sent them to wait outside—by convention, the *Feiyun* did not receive anyone other than Senators and Senator's maids.
+Liu Xiang exchanged a few words with the three newcomers, teasing Di Bage about his unusual surname, before sending them outside to wait. By convention, the *Feiyun* received no one other than Senators and their personal attendants.
 
-"This is really preparing to open fire!" Once it was quiet again, Liu Xiang patted the *Research on Historical Materials* in his hand and sighed to Qian Shuixie.
+"So they really are preparing to open fire!" Once quiet returned, Liu Xiang patted the *Research on Historical Materials* and sighed to Qian Shuixie.
 
-Seeing Liu Xiang's obvious helplessness and anxiety, Qian Shuixie understood after a little thought—this guy probably didn't know from the beginning that armed recovery was going to be carried out this time. Maybe he still thought it was going to be an underground government like in Leizhou.
+Seeing Liu Xiang's obvious unease, Qian Shuixie understood after a moment's thought: the man probably hadn't realized from the start that armed seizure was on the table. He must have assumed an underground government approach, like in Leizhou.
 
-After chatting a few more sentences, Liu Xiang indeed expressed with great sorrow that he had always thought it was an underground government and completely didn't expect the Guangzhou direction to be an armed takeover. Firstly, Liu Xiang was eager to study the newly sent *Research on Historical Materials*. Secondly, Qian Shuixie was also anxious to contact the *Xiaocang*—the sun was almost setting, and Duoduo, that girl, had slipped out for the whole day and still hadn't been seen. It was really worrying.
+After a few more exchanges, Liu Xiang indeed admitted, with some dismay, that he'd been expecting an underground takeover all along—armed occupation of Guangzhou had never crossed his mind. But their conversation wound down quickly. Liu Xiang was eager to study the newly arrived *Research on Historical Materials*, and Qian Shuixie was anxious to reach the *Xiaocang* on the radio. The sun was already setting, and Duoduo had been out all day without word. It was worrying.
 
-At this time, Qian Xuanhuang came up: "Sir, a call came from the port. Miss's boat just passed the fort monitoring point..."
+Just then, Qian Xuanhuang reappeared. "Sir, a call from the port. Miss's boat just passed the fort checkpoint..."
 
-"I'm going over right now!" Qian Shuixie stood up abruptly. "Rebelling, is she! does she have any sense of crisis!" He hurriedly smiled apologetically to Liu Xiang: "I have to go over first. Big Brother and Sister-in-law are busy, Duoduo that girl..."
+"I'm going right now!" Qian Shuixie shot to his feet. "Is that girl trying to start a mutiny? Does she have any sense of danger at all?" He smiled apologetically at Liu Xiang. "I have to go. Brother and sister-in-law are busy, and Duoduo..."
 
-"No problem, no problem, you go ahead." Liu Xiang said hurriedly.
+"Go, go," Liu Xiang said quickly.
 
-"Xuanhuang, you serve Mr. Liu first, start grilling."
+"Xuanhuang, see to Mr. Liu. Get the grill started."
 
-"No rush, no rush." Liu Xiang said no rush, but his stomach was already very hungry.
+"No rush." Liu Xiang said this, but his stomach was already growling.
 
-Of course, nothing happened to Qian Duoduo. It was just that this girl was finally not satisfied with crawling along the coast. Today, in the name of the captain, she ordered the boat to sail to Xuwen on the *Xiaocang*. Little Lin and Little Zhang, the most "senior" girls in the Girls' Commando Team, felt that there were more patrol boats in the strait recently, and going to Xuwen was a straight up-and-down route, so it would be hard to get lost. So they argued slightly with Qian Duoduo, made a few agreements, and finally agreed.
+Nothing had actually happened to Qian Duoduo. It was simply that the girl had grown tired of hugging the coastline. Today, exercising her authority as captain, she'd ordered the *Xiaocang* to sail to Xuwen. Little Lin and Little Zhang—the most senior members of the Girls' Commando Team—pointed out that patrol boats had increased in the strait recently, and the route to Xuwen was straightforward enough to be nearly foolproof. After some negotiation and a few agreed conditions, they relented.
 
-The boatswain on the ship was a retired marine who had participated in the Xuwen naval battle and was specially hired by Qian Shuixie. He was also relatively familiar with the Xuwen route. A boatload of people went and returned without any danger. It was just that on the return trip, Qian Duoduo insisted on going to the combat waters where the Gu family pirates were encircled and suppressed back then to "pay respects," which delayed time.
+The boatswain aboard was a retired marine who had fought in the Xuwen naval battle. Qian Shuixie had hired him specifically for his familiarity with those waters. The whole crew made the voyage there and back without incident. The delay came on the return leg, when Qian Duoduo insisted on stopping at the site where the Gu family pirates had been annihilated to "pay her respects."
 
-Qian Shuixie knew that the *Xiaocang* was about to enter the port after talking to the *Xiaocang* via the PHS radio, so he personally went to the park anchorage to "pick up" the people. After Qian Shuixie left the dining room, Liu Xiang began to study the *Research on Historical Materials*, comparing it with the *Compilation of Local Conditions* as he read. Qian Xuanhuang came in from time to time to deliver a few plates of grilled seafood, meat skewers, and vegetables, and refilled his beer. unknowingly, more than an hour passed, and it got dark—Guo Ling'er was accompanying the little girl to sleep in the guest room on the ship at this moment and had no time to come over and serve.
+Having confirmed via PHS radio that the *Xiaocang* was approaching port, Qian Shuixie went personally to the park anchorage to collect her. After he left the dining room, Liu Xiang settled into studying the *Research on Historical Materials*, cross-referencing passages with the *Compilation of Local Conditions*. Qian Xuanhuang came and went, delivering plates of grilled seafood, meat skewers, and vegetables, refilling his beer. Before he knew it, more than an hour had passed and darkness had fallen. Guo Ling'er was putting the little one to sleep in the guest cabin and couldn't come to attend him.
 
-During pregnancy, one cannot have intercourse; during breastfeeding, because there is no period to signal, intercourse can easily lead to accidental pregnancy again, so one cannot have intercourse either; after weaning, the baby starts to recognize people, so intercourse is also extremely inconvenient. But many Senators who think with their lower bodies, especially certain people who treat lifestyle secretaries as toys, completely disregard these. Therefore, in the past few years, there have been several cases of miscarriage caused by intercourse during pregnancy, or accidental pregnancy caused by intercourse during lactation, making Ai Beibei, Shi Niaoren, and other medical personnel furious. Finally, under the operation of Du Wen and others, a "Campaign to Establish Good Living Habits" was launched, and sex education pamphlets were distributed to every Senator.
+During pregnancy, intercourse was forbidden; during breastfeeding, the absence of a menstrual signal made accidental pregnancy likely, so it was forbidden then too; after weaning, the baby began recognizing faces, which made intimacy deeply inconvenient. Yet many Senators who thought with their lower bodies—especially certain individuals who treated lifestyle secretaries as playthings—ignored all of this. In recent years, there had been several miscarriages caused by intercourse during pregnancy and unintended pregnancies during lactation, driving Ai Beibei, Shi Niaoren, and the rest of the medical staff to fury. Eventually, under Du Wen's coordination, a "Campaign to Establish Good Living Habits" was launched, and sex education pamphlets were distributed to every Senator.
 
-Just as this matter ended, Shan Liang and others, who had been criticizing Du Wen and the health department's "education movement" for "trampling on Senators' rights and interfering with Senators' lives," launched another attack, demanding that the Executive Committee distribute free second secretaries to all Senators and expand living space to solve the problem of expectant fathers and new fathers' "Five Misses" taking up posts without licenses again. After all, not all Senators bought a second maid. For example, some spent the money, some built their own private villas, some were controlled by someone... This matter dragged on for a long time and still hasn't been resolved. However, many Senators who led teams had already developed their own "Nth Secretary" from the grass around their nests—unlicensed ones. But whether these unlicensed ones counted as mistresses, lifestyle secretaries, or some other status? In short, things were getting more and more troublesome.
+No sooner had this dust settled than Shan Liang and his faction—who had been loudly condemning Du Wen and the health department for "trampling on Senators' rights and interfering with Senators' lives"—launched a counter-offensive. They demanded that the Executive Committee provide free second secretaries to all Senators and expand living quarters to address the problem of unlicensed "Five Misses" substituting for legitimate partners during spouses' confinements. Not every Senator had purchased a second maid, after all. Some had spent their money on private villas, others were under a certain someone's strict control... The issue remained unresolved after prolonged debate. Still, many Senators leading their own departments had already cultivated an "Nth Secretary" from within their immediate circles—all unlicensed. Whether these women counted as mistresses, lifestyle secretaries, or some other category was anyone's guess. The situation was growing increasingly tangled.
 
-Liu Xiang actually wanted to develop a second secretary too, but that Lu Cheng, whom he didn't want to contact deeply, kept getting close to him—this basically blocked the path of "advancement by favor" for others. He couldn't openly tell this Lu of the Women's Federation face to face that "I'm not interested in you." As a result, the entire "best excuse period" passed, and Liu Xiang failed to "take in a new person." He could only find a few naturalized craftsmen from the timber factory to build ship models together after get off work to pass the time and energy. Unexpectedly, this became a model example. When Du Wen wrote an article criticizing a certain group of Senators who only knew how to think with their lower bodies, she specially brought Liu Xiang out as a positive character, making Liu Xiang want to cry but having no tears. Of course, when Guo Ling'er, who was responsible for reading newspapers to Liu Xiang, read this passage, her eyes were obviously filled with tears, and her reputation soared from worship directly to fanatic believer. She bolted the door on the spot, and then *this and that* happened...
+Liu Xiang had wanted to find a second secretary himself, but Lu Cheng of the Women's Federation—whom he had no desire to cultivate—kept getting close to him. This effectively blocked the "advancement by favor" route for any other candidate. He couldn't exactly tell her to her face that he wasn't interested. The entire "best excuse period" slipped by, and Liu Xiang failed to take in anyone new. He ended up spending his evenings building ship models with a few naturalized craftsmen from the timber factory, burning off his restless energy that way. Unexpectedly, this turned him into a poster child for virtue. When Du Wen penned an article criticizing Senators who thought only with their lower bodies, she held Liu Xiang up as a paragon—leaving him on the verge of tears. Naturally, when Guo Ling'er read this passage aloud during her newspaper-reading duties, her eyes brimmed with emotion, and her regard for him soared from *worship* straight to *fanatic believer*. She bolted the door on the spot, and *events proceeded from there*...
 
-Sitting for an hour, Liu Xiang didn't realize that so much time had passed—know that IT coolies have very strong sitting skills. Just after finishing a paper titled *Initial Attempts to Consolidate Urban Power in New China* and preparing to turn the page, Liu Xiang heard Qian Shuixie's scolding and Qian Duoduo's rebuttal coming from outside.
+Liu Xiang had been sitting for over an hour without noticing. IT workers, after all, are legendary for their sitting endurance. He had just finished a paper titled *Initial Attempts to Consolidate Urban Power in New China* and was preparing to turn the page when he heard Qian Shuixie's scolding and Qian Duoduo's defiant rebuttals drifting in from outside.
 
-The arguing voices of the uncle and niece grew from small to large, travelling all the way to the deck. Qian Duoduo was tanned dark, with a sun hat on her head, her striped shirt spotted with water stains and some salt crystals.
+The argument between uncle and niece swelled as they approached, voices carrying all the way to the deck. Qian Duoduo appeared, deeply tanned beneath her sun hat, her striped shirt spotted with water stains and crusts of dried salt.
 
-(End of Chapter)
+**(End of Chapter)**

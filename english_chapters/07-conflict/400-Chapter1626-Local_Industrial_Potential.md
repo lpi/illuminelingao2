@@ -1,6 +1,6 @@
 # Chapter 1626 - Local Industrial Potential
 
-"Every time I look at it, I find it amazing. After all this time, the steel industry turns out to be a traditional leading industry of Guangzhou Prefecture!" Liu Xiang couldn't help but sigh with emotion after carefully reorganizing the data.
+"Every time I look at it, I find it amazing. After all this time, the steel industry turns out to be a traditional leading industry of Guangzhou Prefecture!" Liu Xiang couldn't help but exclaim after carefully reorganizing the data.
 
 This wasn't exactly a secret, but Liu Xiang rarely paid attention to historical materials of regions unrelated to his jurisdiction. Now that he examined them, he felt quite surprised.
 
@@ -16,9 +16,9 @@ Lingao's huge industrial appetite had further intensified the expansion of this 
 
 Timber processing was directly driven by the Hong Kong Shipyard. The standardized production model brought convenience not only to the Hong Kong Shipyard but also greatly improved the production capacity of various workshops that had undergone industrial transformation. In particular, the improvement in precision and the unification of weights and measures made large-scale collaborative production and subcontracting possible. Besides ship material production—which had the largest profit and was the best way to learn "craftsmanship"—these old-style workshops had also begun to try collaboratively producing other products according to "Australian craftsmanship." However, they almost completely relied on orders from the Planning Academy, and their technical level and processing capabilities remained very low. To further improve, relevant technology transfer and additional processing equipment were necessary. The latter was difficult for the industrial sector, whose production schedule was already full. Liu Xiang felt the potential here wasn't great.
 
-The biggest influence instead came from the brewing industry, driven by domestic and export sales of distilled spirits like "Princess of Tang," "Scholar Unrivaled," and "Lady Lan." Because of the large-scale purchase of local brew, with complete disregard for taste in favor of alcohol content, local brewing workshops had popped up like bamboo shoots after rain in the surrounding areas. Even peasant households with some surplus grain—such families seemed to have increased significantly since sweet potatoes were introduced to the Guangzhou Prefecture market on a large scale—would make a vat of local wine, cover it with a quilt, and wait for the local liquor collectors to come and exchange it for money.
+The biggest influence instead came from the brewing industry, driven by domestic and export sales of distilled spirits like "Princess of Tang," "Scholar Unrivaled," and "Lady Lan." Because of the large-scale purchase of local brew—with complete disregard for taste in favor of alcohol content—local brewing workshops had popped up like bamboo shoots after rain in the surrounding areas. Even peasant households with some surplus grain—such families seemed to have increased significantly since sweet potatoes were introduced to the Guangzhou Prefecture market on a large scale—would make a vat of local wine, cover it with a quilt, and wait for the local liquor collectors to come and exchange it for money.
 
-With more people brewing wine, grain seemed to be in higher demand. In the past two years, many families had switched to growing grain, especially sweet potatoes. To a certain extent, this had changed the traditional agricultural structure of the farmland around Guangzhou Prefecture, which had mainly focused on vegetables, breeding, and economic crops like indigo and other plant dyes. This was a huge impact spanning across industrial sectors!
+With more people brewing wine, grain seemed to be in higher demand. In the past two years, many families had switched to growing grain, especially sweet potatoes. To a certain extent, this had changed the traditional agricultural structure of the farmland around Guangzhou Prefecture, which had mainly focused on vegetables, breeding, and economic crops like indigo and other plant dyes. This was a massive impact spanning across industrial sectors!
 
 "This is the power of industrialization! Even if it's just the radiant heat of some industries, it can boil the water of a small peasant economy society!"
 
@@ -26,7 +26,7 @@ With more people brewing wine, grain seemed to be in higher demand. In the past 
 
 "As for Ryukyu..." Liu Xiang grabbed a map of East Asia and used his pen to measure the distance.
 
-"Looking at straight-line distance, actually, Jeju and Ryukyu are about the same distance from Japan's main trading ports. But the problem is, except for us who dare to sail the Black Water Ocean, other sea merchants don't! They inevitably have to go north along the island chain. So these Ryukyu islands should function mainly as cargo distribution centers."
+"Looking at straight-line distance, Jeju and Ryukyu are actually about the same distance from Japan's main trading ports. But the problem is, except for us who dare to sail the Kuroshio Current, other sea merchants don't! They inevitably have to go north along the island chain. So these Ryukyu islands should function mainly as cargo distribution centers."
 
 Liu Xiang struggled for a long time between the Sanzan Islands and the Amami Islands, but still circled the position of Naha Port with a red pen.
 
@@ -36,11 +36,11 @@ Liu Xiang struggled for a long time between the Sanzan Islands and the Amami Isl
 
 "Vietnam—ah, I feel the probability of me going there is very high! Coal and grain, isn't this situation exactly like what I did in Qiongshan! Just swapping Jiazi Coal Mine for Hongay Coal Mine. This overwhelming sense of familiarity!" Liu Xiang spent the least thought on Vietnam because, analyzing from an industrial perspective, if he went to Vietnam, apart from increasing the military proportion, the rest would just be an enlarged version of Qiongshan County—and even more unscrupulous! After all, the Vietnamese were not "of the same language and race" in Liu Xiang's perception, so he could act more drastically.
 
-"However, I must make my attitude clear: absolutely no Governor-General system in Vietnam!" Liu Xiang pondered further: "Many Senators hold maps from the two Han dynasties saying that the lands of Tonkin and Annam have been China's inherent territory 'since history began,' being the Jiu Zhen and Ri Nan Commanderies. If we establish a Governor-General system, then later when we conquer the core territories of the ancient Nine Provinces, do we also have to establish Governor-General offices? This is purely asking for trouble by starting off on the wrong foot." Liu Xiang sighed.
+"However, I must make my attitude clear: absolutely no Governor-General system in Vietnam!" Liu Xiang pondered further. "Many Senators hold maps from the two Han dynasties saying that the lands of Tonkin and Annam have been China's inherent territory 'since history began,' being the Jiu Zhen and Ri Nan Commanderies. If we establish a Governor-General system, then later when we conquer the core territories of the ancient Nine Provinces, do we also have to establish Governor-General offices? This is purely asking for trouble by starting off on the wrong foot." Liu Xiang sighed.
 
-"The three Lius left the capital; the abolition of the Inspectorate and the establishment of State Shepherds marked the beginning of the chaos of the Flaming Han! The initiator of this—did he have no descendants!" Suddenly, his train of thought jumped to the end of the Eastern Han Dynasty, and Liu Xiang started sighing randomly again.
+"The three Lius left the capital; the abolition of the Inspectorate and the establishment of State Shepherds marked the beginning of the chaos of the Flaming Han! Did the initiator of this have no descendants!" Suddenly, his train of thought jumped to the end of the Eastern Han Dynasty, and Liu Xiang started sighing at random again.
 
-Looking at the map and recalling the infinite cycle of Vietnam's annexation, submission, rebellion, and independence, a certain person who claimed to be "the best in liberal arts among engineering students, the strongest in science among liberal arts students, and the best in engineering among science students" had already begun to conceive the *Manifesto on the Crusade Against the Rebels of Nanyue*.
+Looking at the map and recalling the infinite cycle of Vietnam's annexation, submission, rebellion, and independence, a certain person who claimed to be "the best in liberal arts among engineering students, the strongest in science among liberal arts students, and the best in engineering among science students" had already begun to compose the *Manifesto on the Crusade Against the Rebels of Nanyue*.
 
 "...You hundred tribes of Nanyue, before the Qin established the Guilin and Xiang Commanderies, were all barbarians, disrespecting ancestors, having no written records, possessing no name of a state. It was not until Zhao Tuo established himself that there was civilization... And now, the Senate of the Australian Provisional Government of the Great Song specially dispatches one hundred thousand elite troops and ten thousand ships to hunt in the land of Nanyue, solely to restore China and save the common people! You should conform to heaven and respond to men, welcoming the King's army with baskets of food and pots of drink..." Liu Xiang took a deep breath, pushed open the porthole, and shouted the last sentence loudly to the sea: "Do not say you were not warned!" After shouting it out, Liu Xiang instantly felt as if he had been buffed by a hundred spells, spewing out various light and shadow effects intended to blind all pay-to-win dog eyes.
 
@@ -48,7 +48,7 @@ Looking at the map and recalling the infinite cycle of Vietnam's annexation, sub
 
 Liu Xiang was hit by the "Cute Sound of Instant Death," and his expression immediately softened.
 
-"Miss! Are you perhaps the reinforcement invited by the monkey?" Liu Xiang, incapacitated by combat, snatched up the little girl who had woken from her nap, tickling and teasing her.
+"Miss! Could you perhaps be the reinforcement invited by the monkey?" Liu Xiang, incapacitated by cuteness, snatched up the little girl who had woken from her nap, tickling and teasing her.
 
 Guo Ling'er looked at the father and daughter laughing loudly with a baffled expression.
 
