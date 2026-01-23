@@ -1,18 +1,20 @@
 # Chapter 580 - The Main Road
 
-Quark Qiong emerged from the small room with a face flushed crimson. It was quite a while before he told Li Luoyou what had happened inside: he'd been semi-forcibly stripped of his trousers, then made to lie on an iron bed, whereupon several women with faces covered by white cloth masks, showing only their eyes, came and scrubbed him from front to back below with brushes dipped in medicinal solution.
+Quark Qiong emerged from the small room with a face flushed crimson. It was quite a while before he told Li Luoyou what had happened inside: he'd been semi-forcibly stripped of his trousers, then made to lie on an iron bed, whereupon several women with faces covered by white cloth masks—showing only their eyes—came and scrubbed him from front to back below with brushes dipped in medicinal solution.
 
-Then his freshly cleaned and disinfected parts were carefully examined by multiple observers for several minutes, and poked about with cold, pincer-like instruments. Quark silently lamented his fate, but the burly men beside him made him dare not resist.
+Then his freshly cleaned and disinfected parts were carefully examined by multiple observers for several minutes, and probed with cold, pincer-like instruments. Quark silently lamented his fate, but the burly men beside him made him dare not resist.
 
-He then heard people discussing that his body hair was too thick to see clearly, followed by debate whether to shave him. Quark was horrified—he wasn't a woman! If his nether regions were shaved and anyone found out, he'd be a laughingstock for life.
+He then heard people discussing that his body hair was too thick to see clearly, followed by debate about whether to shave him. Quark was horrified—he wasn't a woman! If his nether regions were shaved and anyone found out, he'd be a laughingstock for life.
 
 He pleaded desperately in Mandarin and Cantonese, saying he was willing to give up everything if they would just not do this shameful thing to him. In the end—whether due to his pleading or because they decided it was unnecessary—he barely escaped this ordeal.
 
-"...For days after I got back from Lingao, I still had that medicinal smell on me." Quark said helplessly. "These Australians are truly strange people!"
+"...For days after I got back from Lingao, I still had that medicinal smell on me," Quark said helplessly. "These Australians are truly strange people!"
 
 But at the moment, his face was stony as he followed Li Luoyou out of customs in silence.
 
-Outside customs was another cobblestone paved courtyard. As the group was looking around, suddenly a young man in a blue servant's coat came hurrying over:
+---
+
+Outside customs was another cobblestone paved courtyard. As the group was looking around, a young man in a blue servant's coat came hurrying over:
 
 "Excuse me, might this be Master You from Foshan?"
 
@@ -22,9 +24,9 @@ Outside customs was another cobblestone paved courtyard. As the group was lookin
 
 "Please lead the way."
 
-The man quickly rose and led the way. At the courtyard's edge was a broad road, with many signs posted along it. They bore what appeared to be place names—County Town, Ma Niao, Bairren, and several others. Under each sign gathered groups of villager-looking folk carrying shoulder poles and baskets, waiting. Among them were also "cropped ones" wearing the Australians' trademark short jackets.
+The man quickly rose and led them forward. At the courtyard's edge ran a broad road, with many signs posted along it. They bore what appeared to be place names—County Town, Ma Niao, Bairren, and several others. Under each sign gathered groups of villager-looking folk carrying shoulder poles and baskets, waiting. Among them were also "cropped ones" wearing the Australians' trademark short jackets.
 
-Everyone found this interesting. Suddenly from a row of buildings at the road's head came the sound of whistles, and a four-wheeled cart pulled by four oxen slowly appeared on the road. The ox-cart was a long box shape, quite tall, with each wheel reaching shoulder height. Two drivers sat at the front, a sign reading "Bairren" hung from the front of the cart.
+Everyone found this interesting. Suddenly from a row of buildings at the road's head came the sound of whistles, and a four-wheeled cart pulled by four oxen slowly appeared on the road. The ox-cart was a long box shape, quite tall, with each wheel reaching shoulder height. Two drivers sat at the front, a sign reading "Bairren" hanging from the front of the cart.
 
 "Passengers, attention! Passengers, attention! The scheduled cart to Bairren is now arriving! Please step back behind the safety line and queue for boarding!"
 
@@ -34,9 +36,11 @@ The ox-cart slowly pulled up to the Bairren sign and stopped. The waiting crowd 
 
 But clearly his shouting had little effect; everyone wanted to squeeze to the front. To the front for what? Was the ox-cart giving away money or rice?
 
-Then several people wearing conical hats and carrying short clubs at their waists appeared in the courtyard. They waved their clubs and shouted, and order gradually returned as people began to form a line. Clearly the locals were quite afraid of these "police" with their conical hats and short clubs—probably Lingao's "runners."
+Then several people wearing conical hats and carrying short clubs at their waists appeared in the courtyard. They waved their clubs and shouted, and order gradually returned as people began to form a line. Clearly the locals were quite afraid of these "police" with their conical hats and short clubs—probably Lingao's version of "runners."
 
 The driver climbed down and lowered folding iron step ladders. The queuing passengers began boarding the ox-cart one by one, seating themselves along both sides of the carriage. Then the driver raised a simple sun awning. Those with shoulder poles and baskets used the iron rings and ropes on the carriage's outer walls to secure their goods outside. This ox-cart now looked quite odd, covered in external attachments.
+
+---
 
 Li Luoyou's party naturally had no need for public transportation. Runshitang had prepared two sedan chairs and four or five wheelbarrows in advance. The master rode in the sedan chair; servants loaded the luggage onto the carts and walked alongside.
 
@@ -72,7 +76,11 @@ Even someone with no engineering experience like Li Luoyou knew the road's cost 
 
 This was unpleasant to hear. Li Luoyou gave an indifferent snort. The servant knew his master was displeased and said no more, just walking alongside the sedan chair.
 
-Though they couldn't see the work sites from the road, the endless piles of gravel, yellow sand, and excavated soil along the roadside suggested a massive project. Ox-carts fully loaded with bricks, timber, bundles of thin bamboo strips, and many sacks waited in neat rows by the roadside to unload. Some sacks had torn edges, spilling gray powder. The squirrel-cage cranes he'd seen at the harbor were here too, standing in rows. Strange though—no one was running inside them now. Instead, black iron machines puffed and wheezed, belching white steam and black smoke. Iron wheels of various sizes spun rapidly, making clanking sounds. Several men blackened by coal smoke attended these devices, constantly shoveling coal into them.
+---
+
+Though they couldn't see the work sites from the road, the endless piles of gravel, yellow sand, and excavated soil along the roadside suggested a massive project. Ox-carts fully loaded with bricks, timber, bundles of thin bamboo strips, and many sacks waited in neat rows by the roadside to unload. Some sacks had torn edges, spilling gray powder.
+
+The squirrel-cage cranes he'd seen at the harbor were here too, standing in rows. Strange though—no one was running inside them now. Instead, black iron machines puffed and wheezed, belching white steam and black smoke. Iron wheels of various sizes spun rapidly, making clanking sounds. Several men blackened by coal smoke attended these devices, constantly shoveling coal into them.
 
 From time to time, blue-clad workers in rattan helmets passed by carrying tools and pushing carts. They were covered in mud and dust, but looked energetic—each one robust and dark-skinned. Occasionally they'd sing songs about "...strength..." To Li Luoyou, accustomed to gentle crooning, this sounded like howling, though it was indeed quite stirring and inspiring.
 
@@ -80,11 +88,13 @@ The laborers were very disciplined. Someone waved red and green flags to direct 
 
 Li Luoyou watched this riverside construction and couldn't help clicking his tongue. River management on this scale—how much manpower and resources must Lingao be investing? Never mind the road construction and buildings... The Australians had really invested heavily here!
 
-If so, cooperation with the Australians was worth discussing. Li Luoyou reasoned: regardless of where the Australians came from, how good their goods were, or how capable they were, the fundamental point was their ability to protect themselves. If they couldn't protect themselves, sooner or later they'd be driven out or destroyed by either government troops or sea lords. Cooperation would hold little benefit for him.
+If so, cooperation with the Australians was worth discussing. Li Luoyou reasoned: regardless of where the Australians came from, how good their goods were, or how capable they seemed, the fundamental point was their ability to protect themselves. If they couldn't protect themselves, sooner or later they'd be driven out or destroyed by either government troops or sea lords. Cooperation would hold little benefit for him.
 
 Only if they could guarantee their continued presence in Lingao was cooperation possible—just like his main partners, the Portuguese.
 
-Now it seemed the Australians' investment in Lingao was enormous. With such huge investment, they must have both the ability and determination to defend their property. With these two points, Li Luoyou could discuss deeper cooperation with the Australians.
+Now it seemed the Australians' investment in Lingao was enormous. With such massive investment, they must have both the ability and determination to defend their property. With these two points established, Li Luoyou could discuss deeper cooperation with the Australians.
+
+---
 
 Li Luoyou's party soon reached the county town. Along the way, he'd seen enough of the ugly buildings the Australians had constructed. "Ugly" wasn't because the buildings weren't solid or well-built, but because they were all built to standard geometric specifications with almost no curves visible. All buildings had no decoration beyond whitewashing; many were identical in form, proportion, and dimensions. The Australians' architecture's main feature was practicality and sturdiness. There were many multi-story buildings—not just two floors, but three, four, even five or six stories. Li Luoyou couldn't understand why—Lingao had plenty of wasteland. Following the main road, many areas had not just no villages but not even cultivated fields, just wild grassland—why would the Australians use such land-saving methods?
 
@@ -110,9 +120,13 @@ As the sedan chair passed, he noticed the fortress gate was open. Several women 
 
 "That's right," the servant pointed out. "This area of school lands used to yield barely one in ten. Only after Tiandihui took over the contract did it become like this. What you don't know, Master, is that just the preparation before planting was enough to astound anyone."
 
-He went on with great interest to describe how the Australians turned and leveled the fields, how they dug ditches, how they used over a dozen oxen to pull iron frames through the fields for cultivation, how they brought cartloads of charcoal and lime to spread on the land... Li Luoyou listened carefully, increasingly feeling the Australians' intentions differed from the Europeans'. Europeans, regardless of nationality, came to Ming primarily interested in trade and commerce, or simply raiding and plundering. He'd never heard of any being interested in farming. Of course, their lack of interest was understandable—Ming was neither their homeland nor a colony for settlement.
+He went on with great interest to describe how the Australians turned and leveled the fields, how they dug ditches, how they used over a dozen oxen to pull iron frames through the fields for cultivation, how they brought cartloads of charcoal and lime to spread on the land...
 
-The Australians here were recruiting refugees, building roads and cities, dredging rivers, establishing farms... Though Li Luoyou hadn't read much history, he knew such activities far exceeded a maritime merchant's needs. The Portuguese occupied Macau merely seeking a temporary anchorage; the Australians were building a "little Australia" here! He suddenly thought: could this be another Jurchen situation?
+Li Luoyou listened carefully, increasingly feeling the Australians' intentions differed from the Europeans'. Europeans, regardless of nationality, came to Ming primarily interested in trade and commerce, or simply raiding and plundering. He'd never heard of any being interested in farming. Of course, their lack of interest was understandable—Ming was neither their homeland nor a colony for settlement.
+
+The Australians here were recruiting refugees, building roads and cities, dredging rivers, establishing farms... Though Li Luoyou hadn't read much history, he knew such activities far exceeded a maritime merchant's needs. The Portuguese occupied Macau merely seeking a temporary anchorage; the Australians were building a "little Australia" here!
+
+He suddenly thought: could this be another Jurchen situation?
 
 Thinking this way, cooperation with the Australians required extreme caution.
 
@@ -128,4 +142,4 @@ Now Li Luoyou knew what the card was called—a "document." Saoye handed over ev
 
 The sentry simply took the documents and examined each one, then checked the luggage on the carts. Finally he waved his hand: "Enter the city."
 
-(End of Chapter)
+*(End of Chapter)*

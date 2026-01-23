@@ -1,8 +1,8 @@
 # Chapter 953 - Tiandihui Contracting System
 
-The Hai family had also jointly invested with the Australians to develop the Jiazi Coal Mine. Since the Australians occupied Qiongshan, Hai Shuzu had further invested in the cargo transport business on the Nandu River and at Haikou harbor. Wealth was flowing in from all directions. Under these circumstances, whether the Australians recruited workers or not had nothing whatsoever to do with him.
+The Hai family had also jointly invested with the Australians to develop the Jiazi Coal Mine. Since the Australians occupied Qiongshan, Hai Shuzu had further invested in cargo transport on the Nandu River and at Haikou harbor. Wealth was flowing in from all directions. Under these circumstances, whether the Australians recruited workers or not had nothing whatsoever to do with him.
 
-But ever since the Australians arrived in Qiongshan, because of his prior connections with them and because the Civil Affairs People's Committee had consistently sought to cultivate him as a bridge to the gentry and major landowners, Hai Shuzu had gradually become the leading figure among Qiongshan's gentry and large landowners. Many matters requiring negotiation fell to him to discuss with Liu Xiang.
+But ever since the Australians arrived in Qiongshan, thanks to his prior connections with them and because the Civil Affairs People's Committee had consistently sought to cultivate him as a bridge to the gentry and major landowners, Hai Shuzu had gradually become the leading figure among Qiongshan's gentry. Many matters requiring negotiation fell to him to discuss with Liu Xiang.
 
 Since the gentry and large landowners looked to him as their anchor, he could hardly refuse. He invited everyone to his home to deliberate.
 
@@ -30,13 +30,13 @@ Of course there was grain. Traditional Chinese agricultural landlords all treate
 
 Asking the large landowners to hand over grain was like carving out their hearts. Moreover, after the land surveys, all the various exemptions the gentry had enjoyed through privilege and corruption had been wiped clean. Their previously light burdens would inevitably increase substantially with the summer and autumn taxes. Many had already been resentful about this. Now, hearing they were supposed to give up grain as well, they found it even more unacceptable.
 
-The crowd hemmed and hawed, with some resuming their cries of poverty, saying they had already strained themselves to donate grain during the disaster relief fundraising, and now the people in their households could only drink thin gruel, and so forth.
+The crowd hemmed and hawed, some resuming their cries of poverty—claiming they had already strained themselves donating grain during the disaster relief fundraising, and now the people in their households could only drink thin gruel, and so forth.
 
 For a while the reception hall was so noisy that speech became impossible.
 
 Hai Shuzu waved both hands with a bitter smile: "Gentlemen, say all this to the Chiefs—telling this humble scholar is useless. I'm not asking for a single grain of your rice..."
 
-The hall immediately fell silent. The Hai family might be reasonable, but the Australians were decidedly unreasonable. And everyone had witnessed their methods during the bandit suppression and rural pacification campaign in Qiongshan—they were thorough and decisive, never sparing those who deserved death yet never killing indiscriminately.
+The hall immediately fell silent. The Hai family might be reasonable, but the Australians were decidedly unreasonable. And everyone had witnessed their methods during the bandit suppression and rural pacification campaign in Qiongshan—thorough and decisive, never sparing those who deserved death yet never killing indiscriminately.
 
 Then they thought back to the scene half a month ago when tenant debts were being settled, and many involuntarily hunched their shoulders. Though the crowd had been indignant moments before, their fervor now visibly deflated. Most were pragmatists: at present, there was no sign that the Great Ming would return to Qiongzhou within at least the next decade. The Australians were the "emperor" of Hainan Island.
 
@@ -58,11 +58,11 @@ An old man interjected nervously: "Then—then what about the land? More than ha
 
 Immediately many others began clamoring as well. Hai Shuzu calmly waved his hand: "Since you gentlemen lack the manpower to farm, you could contract the land to the Tiandihui to work..."
 
-These words were like throwing a block of ice into a pot of hot oil. First came a moment of silence, then many people scrambled to speak at once: some questioning, some inquiring, some so panicked they could only cry "heaven above, earth below" without managing to articulate anything coherent.
+These words were like throwing a block of ice into a pot of hot oil. First came a moment of silence, then pandemonium—some questioning, some inquiring, some so panicked they could only cry "heaven above, earth below" without managing to articulate anything coherent.
 
 The Tiandihui had already been operating in Qiongshan for some time. Besides contracting land directly, the Tiandihui was also cultivating small and medium landlords and rich and middle peasants in the countryside, using "Australian farming methods" to guide cultivation. Their various accomplishments had indeed attracted the gentry's interest—especially Hai Shuzu himself, who had contracted all his land to the Tiandihui. Though harvest time had not yet arrived, the crops were clearly growing far better than on ordinary fields. If not for the typhoon, there would certainly have been an excellent harvest.
 
-But entrusting their fields entirely to the Australians to farm was simply too bold. They were not like those small and medium landlords and yeoman farmers with just a hundred *mu* or so—the Hai family itself was really only at the small landlord level—most of the large landowners gathered here owned over five hundred *mu*, with a dozen families having several thousand *mu* each. Many worried that if they really contracted their land to the Tiandihui, what if the Tiandihui cheated them? The Tiandihui, after all, was not some easily bullied tenant farmer—it was the genuine "Australian government."
+But entrusting their fields entirely to the Australians was simply too bold. They were not like those small and medium landlords and yeoman farmers with just a hundred *mu* or so—the Hai family itself was really only at the small landlord level. Most of the large landowners gathered here owned over five hundred *mu*, with a dozen families having several thousand *mu* each. Many worried that if they really contracted their land to the Tiandihui, what if the Tiandihui cheated them? The Tiandihui, after all, was not some easily bullied tenant farmer—it was the genuine "Australian government."
 
 After the commotion had subsided somewhat, Hai Shuzu said: "This humble scholar has only this one solution. As for the Australians' credibility: to this day, they have meant what they said, never breaking faith. Their conduct is open and aboveboard. In my shallow view, they would never stoop to swindling people of their land." He glanced at the assembled company—several gentry members' faces immediately turned sour. Using "commendation" to dishonestly acquire the land of small landowners and yeoman farmers was something they themselves had done before.
 

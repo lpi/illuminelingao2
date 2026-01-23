@@ -2,11 +2,11 @@
 
 "I'm very busy! The Jesuit lords always have many matters to entrust to me." Landu stroked his lip whiskers with an air of importance—these he'd grown specially to enhance his masculine aura.
 
-"Is that so?" The black slave woman said, "Would you be interested in doing a small favor for my master in the midst of your busy schedule?"
+"Is that so?" The black slave woman said. "Would you be interested in doing a small favor for my master in the midst of your busy schedule?"
 
 "Who is your master?"
 
-"This," the black slave woman took out the money pouch. "Do you find my answer satisfactory?"
+"This," the black slave woman produced the money pouch. "Do you find my answer satisfactory?"
 
 Judging by its weight, this pouch held at least three hundred Spanish pesos. For the cash-strapped Landu, this was extremely tempting. After his nightmare, his enthusiasm for defecting to Lingao had cooled considerably. With this money, he could at least survive in Macau for a while longer.
 
@@ -22,7 +22,7 @@ Judging by its weight, this pouch held at least three hundred Spanish pesos. For
 
 "You've been to Lingao."
 
-Landu suddenly became alert: few people knew that he'd participated in Aragon's adventure, attacking Lingao. When Aragon had originally set sail, he'd kept it strictly secret. After his humiliating defeat back to Macau, he'd been even more tight-lipped about such a disgraceful rout. As for the sailors who'd been aboard, they were either Europeans or Malays recruited from various islands in the South Seas. They knew how to sail but not the destination. The few who had known had either died in the night raid that night or in the battle with Zheng Zhilong. Very few remained.
+Landu suddenly became alert: few people knew that he'd participated in Aragon's adventure, attacking Lingao. When Aragon had originally set sail, he'd kept it strictly secret. After his humiliating defeat back to Macau, he'd been even more tight-lipped about such a disgraceful rout. As for the sailors who'd been aboard, they were either Europeans or Malays recruited from various islands in the South Seas. They knew how to sail but not the destination. The few who had known had either died in the night raid or in the battle with Zheng Zhilong. Very few remained.
 
 As for himself, he'd never publicized his participation in this mission.
 
@@ -32,7 +32,7 @@ How did this black woman know he'd been to Lingao?
 
 "Nothing to me, but my master wants to know."
 
-Your master must know this! Landu thought. Who is this person? What underhanded thing does he want me to do?
+Your master must know this already! Landu thought. Who is this person? What underhanded thing does he want me to do?
 
 "I wouldn't say I've been there," Landu said cautiously. "I entered Lingao's harbor, that's all."
 
@@ -54,7 +54,7 @@ The black woman's askew yellow eyes flashed with venom, but she continued: "My m
 
 The other party remained silent.
 
-"Many people here have been to Lingao. Why look for me?" Landu found this strange. Ships left Macau for Lingao every week. Many people who'd traded there—
+"Many people here have been to Lingao. Why look for me?" Landu found this strange. Ships left Macau for Lingao every week. Many people had traded there—
 
 "Those are my master's instructions," the black slave woman said. "He says you understand the Australians better than anyone here."
 
@@ -84,13 +84,15 @@ He became cautious: "This mission is very difficult."
 
 "Fine." Landu then said to the vendor: "Come, give me a bowl of that milk you make from beans. It's too dark here."
 
+---
+
 Half an hour later, the black slave woman reported verbatim to Li Siya about her meeting with Landu.
 
 "He really asked for six hundred," Li Siya commented listlessly.
 
 Since her humiliating escape from Bopu by small boat, more than a year had passed. This conspirator of Macau, this female pirate of the South China Sea, continued playing her intrigues and adventures. Sometimes serving one person, sometimes advising another. When good opportunities arose, she wouldn't refuse a lucrative maritime robbery.
 
-The more chaotic the seas became, the better her business. Even her constant fence-sitting gave her many opportunities others lacked. Various parties hoped to use her as a channel to establish relations or open dialogue with others. The games of alliance and counter-alliance on the South China Sea had many enthusiasts.
+The more chaotic the seas became, the better her business. Even her constant fence-sitting gave her opportunities others lacked. Various parties hoped to use her as a channel to establish relations or open dialogue with others. The games of alliance and counter-alliance on the South China Sea had many enthusiasts.
 
 Li Siya, as a pirate and maritime mercenary, had somehow become a celebrity of the moment. One moment she appeared in Manila, the next in Batavia. Sometimes she surfaced in Guangzhou, sometimes she showed up in Tayouan Harbor.
 
@@ -104,7 +106,7 @@ Li Siya estimated that Zheng Zhilong was very likely to win. Not only did he hav
 
 After Zheng Zhilong eliminated all opponents, he would forcibly establish new order on these seas. Not only would the Portuguese be powerless to resist, but even the Dutch might not be his match.
 
-So recently, Li Siya's activities had begun to lean toward serving Zheng Zhilong's potential opponents—though she still didn't dare openly offend Zheng Zhilong. To be precise, she'd been serving the Dutch.
+So recently, Li Siya's activities had begun to lean toward serving Zheng Zhilong's potential opponents—though she still didn't dare openly offend him. To be precise, she'd been serving the Dutch.
 
 She had just met with a personal representative of the Dutch East India Company Governor de Carpentier—Savage Gonzales. This man was a true Spaniard, formerly a Spanish officer. After dishonorable discharge, he'd been destitute and had to try his luck in Manila. When luck didn't come in Manila, he simply went over to the Dutch side, becoming an officer for the East India Company. The Dutch East India Company welcomed all European dregs willing to serve it. The death rate for whites in the East Indies was high. The Governor needed large numbers of soldiers, officers, and commercial agents, so he basically accepted everyone. But for Spanish Catholics, serving the Dutch carried the danger of losing one's soul—the Dutch allowed religious freedom at home, but in the East Indies, all Company personnel had to participate in Protestant religious services. Otherwise, it was treason, punishable at any time by hanging—the East India Company's laws were famously harsh and merciless.
 
@@ -112,7 +114,7 @@ With nowhere else to turn, Savage Gonzales risked his soul to serve the Dutch. A
 
 After the Pescadores expedition failed, he followed the fleet to Tayouan, where they built a castle. Savage Gonzales served for a time as the local fortress artillery commander. During that time, he traded fire several times with attacking Chinese pirates and local natives. He survived both battle and disease.
 
-He gradually became trusted. When the Governor needed someone to enter Portuguese colonial territory, the Spaniard Savage Gonzales became a suitable candidate. A true Spaniard could obviously slip into Macau more safely than a Dutchman—Macau had the Jesuits, the Dutch's mortal enemies. Besides, in the Governor's planned next move, this former Spanish artillery officer would also be very useful.
+He gradually became trusted. When the Governor needed someone to enter Portuguese colonial territory, the Spaniard Savage Gonzales became a suitable candidate. A true Spaniard could obviously slip into Macau more safely than a Dutchman—Macau had the Jesuits, the Dutch's mortal enemies. Besides, in the Governor's planned next move, this former Spanish artillery officer would also prove very useful.
 
 Savage Gonzales was tall and powerfully built. In his early years of fighting the Turks, he'd lost an eye and now wore an eyepatch. Together with his scars, it outlined the image of an "unmistakable old soldier."
 
@@ -145,6 +147,8 @@ What did the Dutch want this information for? Li Siya thought. Were they plannin
 "I'll wait here, of course." Though Gonzales wasn't particularly devout, being forced to participate in Protestant prayers every day still made him uncomfortable. Temporarily escaping this religious drudgery couldn't be better—and Macau's climate and food were much better than the East Indies.
 
 "You can stay at the 'Crown Inn.' Good food, and some women you might find interesting." Li Siya said, taking a money pouch from a drawer. "Here's three hundred reales."
+
+---
 
 After Savage Gonzales took his leave, she summoned Li Chun—also known as Li Huamei. She'd just returned from Goa and was resting.
 

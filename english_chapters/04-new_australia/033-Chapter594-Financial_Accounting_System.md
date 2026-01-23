@@ -1,129 +1,151 @@
 # Chapter 594 - Financial Accounting System
 
-"I know, his theory differs from mine." Yi Fan said, "His argument is: before industry is fully expanded and resources can be allocated at will to control the capacity of various departments, finance and accounting are just bookkeeping. However, even current capacity is estimated based on project needs; accurate and timely budget accounting cannot be separated from production. Finance is not just government expense investment, but also a party regulating currency. Currency issuance and withdrawal cannot be separated from finance."
+"I'm well aware of his position. His theory differs fundamentally from mine." Yi Fan leaned forward. "His argument runs thus: before industry is fully expanded and resources can be allocated at will across various departments, finance and accounting are merely bookkeeping. But even our current capacity is estimated based on project needs—accurate and timely budget accounting cannot be divorced from production. Finance isn't merely government expenditure; it's also the instrument that regulates currency. Currency issuance and withdrawal are inseparable from finance."
 
-Yi Fan spoke with enthusiasm. His concern for monetary policy was far less than his enthusiasm for the fiscal and tax system. He had always prided himself as the "Chief Accountant," and secretly calculated that Cheng Dong's position as Fiscal Comptroller was a political appointment; he would step down after at most two terms, and by then Yi Fan would be a very competitive candidate for this position.
+Yi Fan spoke with mounting fervor. His interest in monetary policy was actually subordinate to his enthusiasm for the fiscal and tax system. He had long styled himself the "Chief Accountant," and privately calculated that Cheng Dong's position as Fiscal Comptroller was a political appointment—the man would step down after two terms at most. By then, Yi Fan would be a highly competitive candidate for the position.
 
-From a nameless middle manager to suddenly entering the position of the Nine Elders—this hope made Yi Fan always spare no effort in things where he could perform. Although the Wudaokou group hadn't formed a very strong organization, at least now it could make a loud enough voice.
+From obscure middle manager to potential member of the Nine Elders—this prospect drove Yi Fan to spare no effort on matters where he could distinguish himself. Though the Wudaokou group had not coalesced into a particularly powerful organization, it could at least make itself heard.
 
-He talked excitedly about his package of fiscal and tax plans. Some things were actually already implemented, while others only existed in his notebooks and countless memos—writing memos and formulating policies were basically Yi Fan's main recreational activities usually.
+He expounded enthusiastically on his comprehensive fiscal and tax proposals. Some were already implemented; others existed only in his notebooks and countless memoranda. Writing memos and formulating policies had essentially become Yi Fan's primary recreational activity.
 
-"What is the most basic and urgent problem in Lingao's economy currently? Fiscal tax, accounting, and market!" He slapped the table fiercely. "Without this modern system, we might as well cancel all currency and regress to an economic structure of physical rationing and barter."
+"What is the most fundamental and urgent problem facing Lingao's economy? Fiscal taxation, accounting, and markets!" He slapped the table for emphasis. "Without this modern system, we might as well abolish all currency and regress to an economic structure of physical rationing and barter."
 
-"If you put it that way, the Director will definitely approve," Chen Ce said. "Talk about your plan; less commentary."
+"Put it that way and the Director will certainly approve," Chen Ce remarked. "Tell us about your plan. Less commentary."
 
-Wu Di also said: "Don't mention names; let's discuss the matter itself." Saying so, he glanced around uneasily.
+Wu Di added: "Skip the names. Let's discuss the substance." As he spoke, he glanced around the room with visible unease.
 
-"Fine," Yi Fan said. "Many people just treat taxation as a means of accumulation. Actually, fiscal tax issues are very complex. Fiscal tax determines investment and consumption of public goods, determines the scale of public debt, determines control over financial markets; as for accounting, I believe everyone understands: a fiscal system cannot be built without economic data. Accounting determines the grasp of economic data, determines investment direction, determines the scale and details of imports and exports; the market determines whether there are locations and institutions to execute currency issuance and withdrawal, determines the government's control over currency..."
+"Very well," Yi Fan said.
 
-His speech was trivial to those present. This was common sense. Yi Fan spoke like this mainly to practice his speech for the formal Senate Fiscal and Financial Hearing—he intended to leave a full and profound impression on the Elders with this. For this purpose, he had practiced many times alone by the Wenlan River.
+"Many people treat taxation merely as a means of accumulation. In reality, fiscal and tax issues are enormously complex. Fiscal taxation determines investment in and consumption of public goods; determines the scale of public debt; determines control over financial markets. As for accounting—I trust everyone here understands: a fiscal system cannot be built without economic data. Accounting determines mastery of economic data, determines investment direction, determines the scale and particulars of imports and exports. Markets determine whether locations and institutions exist to execute currency issuance and withdrawal; markets determine the government's control over currency..."
 
-"The root of fiscal tax is tax. In adopting a tax system, besides the direct tax like agricultural tax we must inherit, new tax types should try to follow the turnover tax system of the old spacetime. As for a two-level tax system, there is no need to inherit it—our territory is still very small; under the condition of few indigenous tax personnel with low quality, having two sets of institutions is inappropriate. So temporarily only the National Tax Bureau holds control. Local government finance relies on full appropriation from superiors; as for public debt, it is issued to all Lingao residents, underwritten by Delung, and repurchased by Delung when necessary. At the current scale, it is not necessary to immediately establish corresponding market institutions, but Delung internal divisions must be clear. Audit must be stationed in Delung to prevent indiscriminate issuance and excessive repurchase. It is necessary to establish a Financial Committee combined of the Ministry of Finance and Audit to make quarterly plans for Delung's regular and irregular businesses."
+His speech covered territory familiar to everyone present—this was common knowledge. Yi Fan delivered it primarily to rehearse his presentation for the formal Senate Fiscal and Financial Hearing. He intended to leave a full and profound impression on the assembled Elders. To that end, he had practiced many times alone by the banks of the Wenlan River.
 
-"Public debt can wait, especially when our jurisdiction is just Lingao," Wu Di said. "At this stage, the simpler this stuff is, the better; otherwise it distracts too much energy."
+"The root of fiscal taxation is the tax itself. In adopting a tax system, apart from direct taxes like the agricultural tax that we must inherit, new tax categories should follow the turnover tax system of the old spacetime as closely as possible. As for a two-level tax system—there's no need to replicate that here. Our territory remains quite small. Given our shortage of qualified indigenous tax personnel, maintaining two separate institutional structures is impractical. For now, only the National Tax Bureau holds authority. Local government finance will depend on full appropriations from above.
 
-"Without public debt, what currency can you issue? How did you learn finance?" Yi Fan already found Wu Di disagreeable; now he just sprayed him directly.
+"Regarding public debt: it will be issued to all Lingao residents, underwritten by Delung, and repurchased by Delung when necessary. At our current scale, there's no immediate need to establish corresponding market institutions, but internal divisions within Delung must be clearly delineated. Audit must be stationed within Delung to prevent indiscriminate issuance and excessive repurchases. We should establish a Financial Committee combining the Ministry of Finance and Audit to produce quarterly plans for Delung's regular and irregular business operations."
 
-"I didn't say we can't issue it, but just swapping hands between the Ministry of Finance and Delung is enough; don't sell publicly." Wu Di said. "In such a small place like Lingao, is there any meaning in playing too many tricks? Not to mention free purchase, even if you allocate sales, who can you sell to?"
+"Public debt can wait, particularly while our jurisdiction is confined to Lingao," Wu Di interjected. "At this stage, the simpler this apparatus, the better. Otherwise it drains too much energy."
 
-"Many people in Lingao got rich relying on us; shouldn't they contribute a bit? Anyway, they are secretly transferring assets outside."
+"Without public debt, what currency can you possibly issue? How did *you* study finance?" Yi Fan had long found Wu Di disagreeable; now he attacked him directly.
 
-"How much can that be? Besides, people transferring assets is because we haven't exuded 'Tyrant's Qi'," Wu Di said. "They still lack sufficient confidence in our prospects."
+"I never said we *can't* issue—just that swapping hands between the Ministry of Finance and Delung is sufficient. There's no need to sell publicly." Wu Di countered. "In a place as small as Lingao, what's the point of elaborating these mechanisms? Forget free purchase—even with allocated sales quotas, who would you sell to?"
 
-"Alright, you continue." Chen Ce said.
+"Plenty of people in Lingao have grown wealthy because of us. Shouldn't they contribute something? Besides, they're secretly transferring assets offshore anyway."
 
-"Then comes accounting, which is the foundation of the entire economy and finance. Currently, although Lingao has over a hundred product lines, they mainly boil down to heavy industry using coal, iron, and non-ferrous metals as raw materials with internal infrastructure as consumers; light industry mainly processing food, cotton cloth garments, matches, etc., with Lingao residents as the main body gradually increasing foreign exports; and luxury industry mainly consisting of sanitary ceramics, clocks, cosmetics, mainly for export and gradually promoting internally.
+"How much could that amount to? Moreover, people transfer assets because we haven't yet radiated 'Tyrant's Aura,'" Wu Di replied. "They still lack sufficient confidence in our prospects."
 
-"In these three product lines, the first type is the main item Lingao needs to pay externally for, and priced in silver it doesn't directly generate profit. The second type's raw materials are mostly imported too, but the profit from the export portion can support the continued development of the entire industry, while domestic sales priced in grain coupons actually convert to silver pricing ultimately. The third type is supported by the first type of industry and is one of the main sources of profit. Simultaneously, Lingao also has imports in the pure consumption field: grain, population. Grain supports population import, and population costs must add inspection, quarantine, physical recovery, etc. So this block needs human resource cost accounting to determine the direction and method of population import through detailed accounting.
+"Fine. Continue," Chen Ce said.
 
-"The above accounting is just a general discussion on costs. Expense accounting requires a large number of basic accounting personnel. Given the relatively simple production situation currently, a centralized accounting department can be set up under the Ministry of Finance to uniformly account for all units, but prepare reports separately, gradually expanding the scale of the general ledger and accelerating the preparation of monthly consolidated reports. Simultaneously, accounting and taxation are inseparable; not only central SOEs need accounting, Fiscal Tax and Delung need it more."
+"Next: accounting. This is the foundation of the entire economy and finance. Though Lingao currently has over a hundred product lines, they essentially divide into three categories.
 
-"The stuff you're talking about, I bet most of the Senate don't understand." Chen Ce said.
+"First: heavy industry using coal, iron, and non-ferrous metals as raw materials, with internal infrastructure as the primary consumer.
 
-"Isn't that nonsense? People who understand this stuff are all in the fiscal and financial department. Doesn't Director Ma advocate 'Engineers Running the Country' all day long? We also count as a type of engineer."
+"Second: light industry—primarily food processing, cotton textiles, garments, matches, and so forth—with Lingao residents as the main market, though exports are gradually increasing.
 
-Chen Ce suddenly realized this guy was ambitious; his ambition should have been seen from his creating that whatever Cheka. He couldn't help but feel vigilant.
+"Third: luxury industry—mainly sanitary ceramics, clocks, cosmetics—primarily for export, with gradual domestic market penetration.
 
-"So I see you better not do unified accounting. This touches the material planned allocation system Director Ma always insists on." Wu Di reminded him again, "He won't give up this concept easily."
+"Of these three, the first category constitutes Lingao's main external expenditure. Priced in silver, it generates no direct profit. The second category's raw materials are mostly imported as well, but profits from the export portion can sustain the entire industry's continued development, while domestic sales priced in grain coupons ultimately convert to silver pricing. The third category is supported by the first and represents one of our primary profit sources.
 
-"I know this." Yi Fan recently nodded. "This is a proposal, not a final draft. Even if my plan is fully approved, there will be various problems in implementation; we'll adjust then."
+"Simultaneously, Lingao also has imports in the pure consumption sphere: grain and population. Grain supports population importation, and population costs must include inspection, quarantine, physical recovery, and so forth. This sector requires human resource cost accounting to determine the direction and method of population import through detailed analysis.
 
-"Finally is the market. Mainly referring to financial markets," Yi Fan continued. "Currently, joint-stock operations already exist among Lingao civilians and between civilians and the Transmigration Government. Then first establishing an over-the-counter market to carry out government-guided stock trading is a problem that must be solved as soon as possible. Similarly, Zichengji, Delung, and Leitang's external joint ventures can also be included in this market. Zichengji's point in Guangzhou can be seen as the prototype of a Guangzhou Stock Exchange. However, the stock market is currently only a very small pilot in the financial market. For Lingao's fiscal and monetary system, the most important thing is to establish a bond market as soon as possible, starting with public debt issuance. Public debt can play a role in regulating currency scale through the fiscal side, while Delung regulates currency on the bank side through credit scale. At the same time, the financial market must also include maritime and fire insurance institutions. Grand maritime trade is based on two points: one is shareholding system, two is insurance system. regarding commodity trading, the Cooperative is now a prototype of a commodity exchange..."
+"The above covers only general cost accounting. Expense accounting demands a large corps of basic accounting personnel. Given the relatively simple current production situation, a centralized accounting department can be established under the Ministry of Finance to uniformly handle all institutional accounts while preparing reports separately—gradually expanding the general ledger's scope and accelerating preparation of monthly consolidated reports. Concurrently, accounting and taxation are inseparable: not only central SOEs require accounting; Fiscal Tax and Delung need it even more."
 
-"Securities, commodity exchanges, and your insurance companies—don't bullshit about them for now; same as the bond market. Economic scale is too small; it's meaningless to engage in this. And there aren't enough clients now." Chen Ce interrupted his further high discourse. "At least wait until unifying Hainan and occupying Guangdong. The grander you make it now, the greater the possibility of getting shot down. The Executive Committee bunch may not like Director Ma's theory, but they all believe in the 'Simple is Good' theory."
+"The material you're presenting—I'd wager most of the Senate wouldn't understand a word of it," Chen Ce observed.
 
-"Fine, fine, I'll simplify it and be done."
+"Obviously not. People who understand this work are all *in* the fiscal and financial department. Doesn't Director Ma extol 'Engineers Running the Country' every other day? Well, we're also a type of engineer."
 
-"Director Yi, you talked for half a day all on theory. How exactly to organize this accounting and audit system?" Jin Zhijiao had been silent in the meeting, but spoke up now. "According to your statement, our 'Cheka' equals shouldering audit, accounting, and statistics all in one. How to coordinate relations with corporate accounting departments becomes a problem."
+Chen Ce suddenly perceived that Yi Fan harbored serious ambitions—one could have discerned this from his creation of the Cheka. He felt a flicker of wariness.
 
-"I have an idea for this," Yi Fan said. "The accounting system actually focuses on central SOEs and shareholding enterprises. Due to shortage of qualified accounting personnel and small scale of individual enterprises, we can adopt a setup where a centralized accounting center handles all Lingao enterprise account data. Internal transactions among central SOEs can be treated as related-party transactions currently; only imports and exports generate cash flow. Separate the expense accounting department to handle all enterprise expense expenditures. Additionally, set up a Planning and Budget Department to coordinate budgets of all enterprises in Lingao, Guangzhou, Lei, and Sanya."
+"So I'd suggest you avoid unified accounting," Wu Di cautioned. "That impinges on the material planned allocation system Director Ma insists upon. He won't surrender that concept easily."
 
-"Discussion on this is premature." Chen Ce said, "I think you just need to improve the financial systems of each enterprise. Once data collection is complete, anything can be done later."
+"I'm aware of this." Yi Fan nodded. "This is a proposal, not a final draft. Even if my plan receives full approval, implementation will reveal various problems. We'll adjust then."
 
-"Fine, fine. By the way, regarding adding bank security personnel for Delung Bank, Cheng Dong has no objections, right?" Chen Ce asked.
+"Finally: markets—specifically, financial markets." Yi Fan pressed on. "Currently, joint-stock operations already exist among Lingao civilians and between civilians and the Transmigration Government. Therefore, first establishing an over-the-counter market for government-guided stock trading is an urgent necessity. Likewise, external joint ventures of Zichengji, Delung, and Leitang can be incorporated into this market. Zichengji's outpost in Guangzhou could be considered the prototype of a Guangzhou Stock Exchange.
 
-He was asking Du Mo, the Office Director of Delung Bank—this person was one of the very few who hadn't lost a pound since D-Day. He had done finance work, so became a member of the fiscal-financial staff. He worked in Cheka for a time, then after Delung's separation, he changed to become Delung Bank Office Director because he had handled office reception before.
+"However, the stock market is currently only a very modest pilot within the financial market. For Lingao's fiscal and monetary system, the most important priority is establishing a bond market as quickly as possible, beginning with public debt issuance. Public debt can regulate currency scale through the fiscal side, while Delung regulates currency via credit scale on the banking side. Simultaneously, the financial market must incorporate maritime and fire insurance institutions. Grand maritime trade rests on two pillars: the shareholding system and the insurance system. As for commodity trading, the Cooperative already functions as the prototype of a commodity exchange..."
 
-Du Mo and Yi Fan were completely consistent on many concepts, so he was Yi Fan's diehard fan and Yi Fan's basic personnel in Cheka. This transfer came suddenly and he couldn't refuse. regarding Yi Fan stuffing Jin Zhijiao to him from the Organization Department suddenly, he had considerable complaints—the Cheka in his imagination was a place like the Independent Commission Against Corruption, not an accounting firm.
+"Securities exchanges, commodity exchanges, your insurance companies—table all of that for now, along with the bond market. Economic scale is too small; engaging in this is pointless. And we haven't nearly enough clients yet." Chen Ce cut off his soaring rhetoric. "At minimum, wait until we've unified Hainan and occupied Guangdong. The more grandiose you make these proposals now, the greater the likelihood they'll be shot down. The Executive Committee may not embrace Director Ma's theories, but they all subscribe to the 'Simple is Good' philosophy."
 
-"Committee Member Cheng signed after seeing it. I estimate next time the Executive Committee holds a standing meeting, it will be a process passed in one stroke." Du Mo said it was wrapped in a large pile of signed reports, a tiny bank business request.
+"Fine, fine. I'll simplify and be done with it."
 
-Subsequently, everyone continued to chat about heaven and earth, discussing only romance (idle talk). Yi Fan felt he drank too much water and needed to go to the toilet.
+---
 
-"I need to go too. Let's go together." Chen Ce said.
+"Director Yi, you've been theorizing at length. How exactly do you propose to organize this accounting and audit system?" Jin Zhijiao had remained silent throughout, but now spoke up. "According to your description, our 'Cheka' effectively shoulders audit, accounting, *and* statistics all in one. How to coordinate relations with corporate accounting departments becomes a significant issue."
 
-In a modern small toilet on the third floor, two men urinated side by side. Just as Yi Fan let out a groan of relief, Chen Ce whispered:
+"I have thoughts on that," Yi Fan replied. "The accounting system actually centers on central SOEs and shareholding enterprises. Due to the shortage of qualified accounting personnel and the small scale of individual enterprises, we can adopt centralized accounting—a single accounting center handling all Lingao enterprise data, with reports prepared separately. Internal transactions among central SOEs can be treated as related-party transactions for now; only imports and exports generate cash flow. Separate the expense accounting department to handle all enterprise expenditure disbursements. Additionally, establish a Planning and Budget Department to coordinate budgets across all enterprises in Lingao, Guangzhou, Lei, and Sanya."
 
-"Your plan actually has the meaning of creating a SASAC (State-owned Assets Supervision and Administration Commission). This will probably face sniping from the Director, and Wu De will definitely ally with him—with a SASAC, the Planning Agency's status drops greatly. Once these two get together, your plan will be hard to pass."
+"Discussion of this is premature," Chen Ce said. "I think you need only improve the financial systems of each enterprise. Once data collection is complete, everything else can follow."
 
-"I am aware of this point." Yi Fan maintained his urinating posture, whispering, "There are nine Executives after all, aren't there."
+"Fine, fine." Yi Fan pivoted. "By the way, regarding additional bank security personnel for Delung Bank—Cheng Dong has no objections, correct?" Chen Ce asked.
 
-"Very risky." Chen Ce expressed worry. "Don't forget, President Wen—don't look at him being a liberal in the past, a small capitalist, he is essentially also a planned economy element. He is a standardization fanatic—from this angle, his desire for control is stronger than the Director. As for Zhan Wuya, a thorough engineer, he will definitely stand on President Wen's side. Ma Jia is slippery, and since this matter doesn't concern him, no need for him to jump out. Others have similar attitudes, mainly 'buying soy sauce' (bystanders)."
+He was addressing Du Mo, Delung Bank's Office Director—one of the very few people who hadn't lost a single pound since D-Day. Having done finance work previously, he had become part of the fiscal-financial staff. He worked in the Cheka for a time, then transferred to become Delung Bank's Office Director after the separation, since he had prior experience handling office reception.
 
-"What about the Senate Standing Committee? The Executive Committee doesn't cover the sky with one hand."
+Du Mo and Yi Fan aligned completely on many concepts; he was Yi Fan's devoted follower and one of his core personnel in the Cheka. The transfer had come suddenly and could not be refused. As for Yi Fan suddenly transplanting Jin Zhijiao from the Organization Department into his operation—Du Mo harbored considerable resentment. The Cheka he had imagined was something akin to Hong Kong's Independent Commission Against Corruption, not an accounting firm.
 
-"Your plan is so complex and professional; do you expect Standing Committee people to understand? They can only decide direction—you want them to decide appropriation amounts and allocation, no problem. You want them to decide how much currency to issue, how accounting entries go, these are professional issues; they shouldn't manage them originally."
+"Committee Member Cheng signed off on it. I expect it'll be rubber-stamped at the next Executive Committee standing meeting." Du Mo indicated the request was buried in a large stack of signed reports—a minuscule bank administrative matter.
 
-Yi Fan was silent for a moment: "I still want to try."
+The conversation drifted into casual chitchat, touching on everything and nothing—pure idle talk. Yi Fan realized he'd drunk too much tea and needed to relieve himself.
 
-"I think you better stay calm and prepare a simple one for submission."
+"I should go as well. Let's walk together," Chen Ce said.
 
-"I have a simple one too," Yi Fan said. "Submit the complex one first, make a fuss, then bring the simple one; it'll be easier to pass." He buttoned his trousers. "Overly simple things won't have problems for a moment, but will definitely have downsides over time. Anyway, I've said it beforehand; the decision power is above."
+---
 
-"What do you plan to do about the redemption of precious metals and copper cash?" Cheng Dong received the three main generals submitting the plan in his office. "This matter involves people's livelihood and hearts; we cannot be incautious."
+In the modern lavatory on the third floor, two men stood at adjacent urinals. Just as Yi Fan let out a groan of relief, Chen Ce whispered:
 
-His office was a bit crowded. Most numerous were filing cabinets, stuffed with various financial documents and dossiers. In the past, this was the aggregation point for all financial data of the Transmigration Group. As departments became more numerous, quite a few dossiers transferred to where they should go. The originally crowded and messy office finally looked somewhat decent.
+"Your plan essentially amounts to creating a SASAC—a State-owned Assets Supervision and Administration Commission. This will likely draw fire from the Director, and Wu De will certainly ally with him. With a SASAC, the Planning Agency's status diminishes substantially. Once those two combine forces, your plan will face serious opposition."
 
-Standard furniture was still the earliest manufactured plain wood tables and chairs; decorations were only a few potted green plants. Many people hung Ming calligraphy and paintings looted in their offices, or at least hung a few Fujian-produced Kraak porcelain plates as decoration. But here there were none at all. The walls were dazzlingly white.
+"I'm aware of this." Yi Fan maintained his stance, whispering back. "There are nine Executives, after all."
 
-Yi Fan sometimes felt this person's plain living in this regard reached the point of pretentiousness.
+"Extremely risky." Chen Ce expressed concern. "Don't forget President Wen—he may have presented as a liberal in the past, a petty capitalist, but at core he's also a planned-economy adherent. He's a standardization fanatic. From that angle, his craving for control exceeds even the Director's. As for Zhan Wuya—a thoroughgoing engineer—he'll certainly stand with President Wen. Ma Jia is slippery; since this doesn't concern him, he won't stick his neck out. The others hold similar attitudes—mostly 'buying soy sauce,' as they say."
 
-"Someone come." He shouted. A young woman wearing a female clerk dress uniform appeared at the office door. "Pour tea!"
+"What about the Senate Standing Committee? The Executive Committee doesn't rule with absolute authority."
 
-"Yes." The secretary withdrew.
+"Your plan is so complex and technical—do you really expect Standing Committee members to understand it? They can only decide general direction. You want them to determine appropriation amounts and allocation? That's fine. You want them to decide how much currency to issue or how accounting entries should flow? These are professional issues—they shouldn't be managing that in the first place."
 
-"You finally have a secretary too." Wu Di patted a horse's butt (flattered) calmly, "Counted as rare among Executives, right?"
+Yi Fan was silent for a moment. "I still intend to try."
 
-"Not rare. President Wen and the Director still don't have one. Now that Elders have hope of being assigned secretaries, I dare to use one. Otherwise, I'd be a target." Cheng Dong smiled bitterly. The secretary brought three glass cups of Kombucha drink a moment later.
+"I think you'd be wiser to stay calm and prepare a simplified version for submission."
 
-"Only this; make do for now."
+"I have a simplified version as well," Yi Fan said. "Submit the complex one first—stir things up—then introduce the simplified version. It'll pass more easily." He buttoned his trousers. "Excessively simple measures won't cause problems immediately, but will certainly create drawbacks over time. Regardless, I've stated my position in advance. The decision rests above."
 
-"No problem, I love drinking this." Wu Di immediately drank half a cup in one breath.
+---
 
-Yi Fan didn't drink, going straight to the topic: "Simply put, issue a public notice stipulating a final deadline for circulation of silver and copper cash. After expiration, prohibit all circulation of metal coins not issued by us in Lingao."
+"What do you plan to do about redeeming precious metals and copper cash?" Cheng Dong received the three principal generals submitting the proposal in his office. "This matter touches people's livelihood and public trust. We cannot proceed incautiously."
 
-Seeing Cheng Dong frowning straight away, he knew the other party didn't quite approve of this proposal—this was within his expectations.
+His office was somewhat cramped, dominated by filing cabinets stuffed with various financial documents and dossiers. This had once been the aggregation point for all the Transmigration Group's financial data. As departments multiplied, substantial files had transferred to their proper destinations, and the once-chaotic office finally looked somewhat respectable.
 
-"—This is an administrative measure, which must be supplemented by specific implementation methods. My idea is..."
+The standard furniture remained: plain wooden tables and chairs from the earliest manufacturing runs. Decorations consisted solely of a few potted green plants. Many people hung looted Ming Dynasty calligraphy and paintings in their offices, or at least displayed a few pieces of Fujian-produced Kraak porcelain as ornament. Here there was nothing of the sort. The walls were glaringly white.
 
-"Before stating your idea, there is one point I must clarify with you first." Cheng Dong said, "I, and also the Executive Committee, although approving the redemption of gold, silver, and copper cash on the market, absolutely do not wish to leave commoners with an impression that we are looting wealth. Commoners won't care about your economic policy or monetary policy. They will only think you are looting this for self-enrichment, that's one; even worse, they might think we are about to run away, hence looting gold, silver, and copper cash so desperately. Public sentiment fits 'hard to raise, easy to ruin'; commoners have long been pitted by the government to be extremely suspicious. Such major economic measures must be very careful. Absolutely cannot leave a handle of competing with people for profit."
+Yi Fan sometimes felt this man's ascetic simplicity bordered on affectation.
 
-"Actually, there is indeed such an intention—"
+"Someone come!" Cheng Dong called out. A young woman in the standard female clerk's uniform appeared at the office door. "Tea!"
 
-"I know this of course; the key is 'eating conventions' (optics/manners). Eating conventions." Cheng Dong emphasized, "Cannot be too ugly, especially in our first base area."
+"Yes, sir." The secretary withdrew.
 
-"Yes, we understand this." Yi Fan nodded repeatedly. "So in our discussion, we try to use soft means as much as possible. Achieve the goal through commodity circulation and taxation. But this will take a longer time."
+"You finally have a secretary," Wu Di offered smooth flattery. "That's rare among Executives, isn't it?"
 
-The specific measures were: all retail and wholesale channels controlled by the Transmigration Group in Lingao would switch entirely to pricing in circulation notes after a transition period, no longer accepting silver and copper cash; during the transition period, shops would set up exchange counters to accept silver and copper cash and pay out circulation notes; during the transition period, execute dual pricing, adopting devalued pricing for silver and copper cash to urge consumers to use circulation notes...
+"Not that rare. President Wen and the Director still don't have one. Now that Elders have hope of being assigned secretaries, I dare to employ one. Otherwise I'd become a target." Cheng Dong smiled wryly. A moment later, the secretary returned bearing three glass cups of kombucha.
+
+"This is all we have. Make do."
+
+"No problem—I love this stuff." Wu Di immediately drained half his cup in one gulp.
+
+Yi Fan didn't drink. He went straight to the matter at hand: "Put simply, we issue a public notice specifying a final deadline for the circulation of silver and copper cash. After that date, all metal coins not issued by us are prohibited from circulation in Lingao."
+
+Seeing Cheng Dong frown immediately, Yi Fan knew the other man didn't fully approve of this proposal—which was within expectations.
+
+"—This is an administrative measure requiring supplementary implementation procedures. My idea is..."
+
+"Before you elaborate, there's one point I must clarify." Cheng Dong raised his hand. "Both I and the Executive Committee, while approving the redemption of gold, silver, and copper cash circulating in the market, absolutely *do not* wish to leave commoners with the impression that we're looting their wealth.
+
+"Commoners won't care about your economic policy or monetary policy. They'll only conclude you're plundering for self-enrichment—that's one concern. Worse, they might suspect we're about to flee, which would explain why we're so desperately hoarding precious metals and copper cash. Public sentiment is easily ruined and difficult to restore. Commoners have been betrayed by governments so often that they're intensely suspicious. Such major economic measures must be handled with extreme care. We absolutely cannot hand critics a handle to accuse us of competing with the people for profit."
+
+"In truth, there *is* such an intention—"
+
+"Of course I know that. The key is *propriety*. Propriety." Cheng Dong emphasized the word. "The optics cannot be too ugly, especially in our foundational base area."
+
+"Yes, we understand." Yi Fan nodded repeatedly. "That's why in our discussions, we emphasized soft measures as much as possible—achieving objectives through commodity circulation and taxation. But this will require considerably more time."
+
+The specific measures were as follows: after a transition period, all retail and wholesale channels controlled by the Transmigration Group in Lingao would switch entirely to circulation note pricing, no longer accepting silver or copper cash. During the transition period, shops would establish exchange counters accepting silver and copper cash and paying out circulation notes. During the transition period, dual pricing would apply, with devalued rates for silver and copper cash to encourage consumers to adopt circulation notes...
 
 (End of Chapter)

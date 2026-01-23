@@ -1,109 +1,113 @@
 # Chapter 1149 - The Visitor
 
-Li Siya arrived in Kaohsiung again, this time disguised as a wealthy merchant's female relative visiting relatives.
+Li Siya arrived in Kaohsiung once again, this time disguised as a wealthy merchant's female relative visiting kin.
 
-She stayed in a high-end inn in the commercial district. From the window, she could see the busy street scene below.
+She lodged at a high-end inn in the commercial district. From her window, she could observe the bustling street scene below.
 
-"The recovery speed is astonishing," she noted to herself. "These Australians operate like precise machines."
+"Their recovery speed is astonishing," she noted to herself. "These Australians function like precision machines."
 
-She noticed the newly built Customs Clock Tower and the huge clock face on it. She heard the bell chime on the hour.
+She spotted the newly completed Customs Clock Tower and the great clock face mounted upon it. She heard the bell chime on the hour.
 
-"Standard time..." Li Siya muttered. She realized this wasn't just a timing tool, but a symbol of rule and order.
+"Standard time..." Li Siya murmured. She recognized it for what it was—not merely a tool for telling time, but a symbol of rule and order.
 
-Her contact in Kaohsiung, a lurking spy, came to report.
+Her contact in Kaohsiung, a deep-cover operative, arrived to report.
 
-"The control here is getting tighter," the spy complained. "Residence permits, travel passes, health certificates... layers of checks. It's hard to move."
+"Control here grows tighter by the day," the spy complained. "Residence permits, travel passes, health certificates—layer upon layer of checks. Moving about freely is nearly impossible."
 
-"What about the Dutch guests?" Li Siya asked.
+"What of the Dutch guests?" Li Siya asked.
 
-"They live in the Customs Building now. Very close to that Committee member Zhong."
+"They've taken up residence in the Customs Building now. Very close to that Committee member, Zhong."
 
-"Is there a chance to contact them?"
+"Is there any opportunity to contact them?"
 
-"Difficult. There are sentries everywhere around the Customs Building. And foreign guests are accompanied when they go out."
+"Difficult. Sentries are posted everywhere around the Customs Building. And the foreign guests are accompanied whenever they venture out."
 
-Li Siya pondered. She needed to pass a message to Huygens.
+Li Siya pondered. She needed to get a message to Huygens.
 
-"Did you find the person I asked you to look for?"
+"Have you located the person I asked about?"
 
-"Found him. A cook in the trading house kitchen. He's greedy for money."
+"Yes. A cook in the trading house kitchen. He's susceptible to bribes."
 
-"Good." Li Siya took out a letter. "Find a way to get this letter to Mr. Huygens' servant. Let him pass it to his master."
+"Good." Li Siya produced a letter. "Find a way to place this in Mr. Huygens' servant's hands. Let the servant deliver it to his master."
 
 "Understood."
 
-The letter contained intelligence about Zheng Zhilong's attitude and some suggestions on how the Dutch could cooperate with the Zheng family to contain the Australians. She believed Huygens, as a diplomat, would understand its value.
-
-...
-
-Huygens received the letter the next day tucked in his folded napkin during breakfast. He read it quietly, expression unchanged, then put it into his pocket.
-
-Later, in his room, he re-read the letter carefully.
-
-"Interesting," he murmured. "Someone wants to play a game of balance."
-
-He didn't know who "Li Siya" was (the letter was unsigned), but the content was very insightful about the geopolitical situation.
-
-He decided not to act rashly. He was a guest of the Australians now, and any improper move could endanger his mission and the children. But this information was useful for future reference.
-
-This afternoon, Dr. Zhong invited Huygens to visit the newly completed lighthouse project site.
-
-"This lighthouse will use the Fresnel lens we developed," Zhong Lishi introduced enthusiastically. "Its light can reach over 20 nautical miles away."
-
-Huygens listened attentively. "Fresnel lens? A novel optical design."
-
-"Yes. It greatly reduces the thickness of the lens while maintaining focus," Zhong Lishi explained.
-
-They stood on the cape, looking at the vast ocean.
-
-"Dr. Zhong, your technology is amazing," Huygens said. "But have you considered that technology alone cannot solve all problems?"
+The letter contained intelligence regarding Zheng Zhilong's disposition, along with suggestions on how the Dutch might collaborate with the Zheng family to contain Australian expansion. She was confident that Huygens, as a diplomat, would recognize its value.
 
 ---
 
-Zhong Lishi looked at him. "What do you mean, Mr. Huygens?"
+Huygens received the letter the following day, tucked inside his napkin during breakfast. He read it with no change of expression, then slipped it into his pocket.
 
-"Politics, diplomacy, human hearts..." Huygens said meaningfully. "These are often more complicated than clockwork."
+Later, alone in his chamber, he reread the letter with care.
 
-Zhong Lishi smiled. "We have people specializing in those complications. I'm just a technician."
+"Interesting," he murmured. "Someone wishes to play a game of balance."
 
-"A very outstanding technician," Huygens laughed.
+He had no idea who "Li Siya" was—the letter bore no signature—but its analysis of the geopolitical situation was remarkably insightful.
 
-On the way back, they encountered Xu Ke. Xu Ke was patrolling near the construction site.
+He resolved to take no rash action. He was a guest of the Australians now, and any improper move could jeopardize both his mission and the children. Yet this intelligence would prove useful for future reference.
 
-"Dr. Zhong," Xu Ke greeted. He glanced at the Dutchman beside him.
+That afternoon, Dr. Zhong invited Huygens to visit the newly completed lighthouse project site.
+
+"This lighthouse will employ a Fresnel lens of our own design," Zhong Lishi explained with evident enthusiasm. "Its beam will be visible from over twenty nautical miles away."
+
+Huygens listened attentively. "A Fresnel lens? A novel optical design."
+
+"Yes. It drastically reduces the lens's thickness while preserving its focusing power," Zhong Lishi elaborated.
+
+They stood atop the cape, gazing out across the vast expanse of sea.
+
+"Dr. Zhong, your technology is extraordinary," Huygens remarked. "But have you considered that technology alone cannot solve every problem?"
+
+---
+
+Zhong Lishi turned to him. "What do you mean by that, Mr. Huygens?"
+
+"Politics. Diplomacy. The human heart..." Huygens spoke with deliberate weight. "These are often more intricate than any clockwork."
+
+Zhong Lishi smiled. "We have people who specialize in those particular complexities. I am merely a technician."
+
+"A most distinguished technician," Huygens replied with a laugh.
+
+On the way back, they encountered Xu Ke. He was patrolling near the construction site.
+
+"Dr. Zhong," Xu Ke greeted. His gaze flicked to the Dutchman at Zhong Lishi's side.
 
 "This is Lieutenant Xu from the Navy," Zhong Lishi introduced.
 
-Huygens tipped his hat politely. Xu Ke returned a salute, his eyes sharp. He sensed something unusual about this Dutchman—too calm, too observant.
+Huygens tipped his hat in polite acknowledgment. Xu Ke returned a crisp salute, his eyes sharp and assessing. There was something unusual about this Dutchman—too calm, too observant.
 
-"Everything okay, Lieutenant?" Zhong Lishi asked.
+"All quiet, Lieutenant?" Zhong Lishi asked.
 
-"Routine patrol," Xu Ke said. "Please stay safe. The area isn't fully cleared yet."
+"Routine patrol," Xu Ke replied. "Please remain on guard. The area hasn't been fully cleared yet."
 
-After they left, Xu Ke called a subordinate. "That Dutchman, Huygens. Increase surveillance on him. He feels... deep."
+After they had passed, Xu Ke summoned a subordinate. "That Dutchman—Huygens. Increase surveillance on him. He strikes me as... deep."
 
 "Yes, Chief."
 
-That night, Li Siya received news that the letter was delivered. But there was no response from Huygens.
+---
 
-"He's cautious," Li Siya judged. "But the seed is planted."
+That night, Li Siya received confirmation that the letter had been delivered. But there was no response from Huygens.
 
-Her mission in Kaohsiung wasn't just this. She also began spreading rumors in teahouses and markets: "The Australians are going to capture men for hard labor," "There's plague in the refugee camps"...
+"He's cautious," Li Siya concluded. "No matter. The seed has been planted."
 
-These small panic-inducing rumors wouldn't cause immediate chaos, but they would erode trust in the Committee over time.
+Her mission in Kaohsiung extended beyond this single objective. She also began seeding rumors in teahouses and markets: "The Australians plan to press-gang men into hard labor..." "There's plague spreading in the refugee camps..."
 
-"Water dripping wears away the stone," Li Siya thought viciously.
+Such whispers of panic wouldn't spark immediate chaos, but they would erode trust in the Committee, drop by insidious drop.
 
-However, she underestimated the Committee's control over public opinion. The police and "Life Committee" aunts in the streets soon detected the source of strange talk.
+*Water dripping upon stone*, Li Siya thought with grim satisfaction.
 
-"Someone is talking nonsense in the teahouse?" The police chief frowned. "Arrest the agitators!"
+Yet she had underestimated the Committee's grip on public discourse. Police and the watchful "Life Committee" aunts patrolling the streets quickly traced the source of the strange talk.
 
-Li Siya sensed danger and withdrew quickly before the net closed. She disappeared into the darkness of the harbor, boarding a smuggling boat leaving port.
+"Someone's spreading lies in the teahouse?" The police chief scowled. "Arrest the agitators!"
 
-"I will be back," she vowed silently.
+Li Siya sensed danger closing in and withdrew just before the net drew tight. She slipped into the shadows of the harbor and boarded a smuggling boat departing the port.
 
-Wei Bachi looked at the security report the next morning. "Rumors? Spies?" He sneered. "Clowns jumping around. As long as our iron fist is hard enough, these tricks are useless."
+*I will return*, she vowed silently.
 
-He turned his attention back to the blueprint on the table. "Expansion of the steel plant... this is the real business."
+---
+
+Wei Bachi perused the security report the following morning. "Rumors? Spies?" He gave a contemptuous snort. "Mere clowns prancing about. As long as our iron fist remains hard, such tricks are useless."
+
+He turned his attention back to the blueprint spread across his desk. "Expansion of the steel plant... *this* is the real work."
 
 (End of Chapter)

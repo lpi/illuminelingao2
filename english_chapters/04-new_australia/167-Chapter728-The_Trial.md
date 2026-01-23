@@ -8,13 +8,13 @@ Outsiders were excluded from local social networks, rarely trusted by locals. Th
 
 In a major city like Guangzhou, things might be better. In semi-closed rural society, outsiders peacefully controlling local power was very difficult.
 
-In 21st-century China, "outsider" still carried pejorative connotations—let alone the far more closed society with almost no population mobility of the 17th century.
+In twenty-first-century China, "outsider" still carried pejorative connotations—let alone the far more closed society with almost no population mobility of the seventeenth century.
 
 Without support from local magnates, how to establish their own people with sufficient authority was something Wen Desi had been contemplating.
 
-Now the local magnates and gentry who'd resisted them had been annihilated. Most were killed; the rest were either already hanged or about to be. According to established guidelines, these people would be "cleared"—the document's euphemism for "executed."
+Now the local magnates and gentry who had resisted them had been annihilated. Most were killed; the rest were either already hanged or about to be. According to established guidelines, these people would be "cleared"—the document's euphemism for "executed."
 
-Those who'd narrowly escaped death—including their clansmen, distant relatives, guards... anyone who'd received their patronage and counted as beneficiaries—would be entirely relocated to Lingao for "resettlement." The Civil Affairs People's Committee would disperse and resettle this population across Hainan Island.
+Those who had narrowly escaped death—including their clansmen, distant relatives, guards... anyone who had received their patronage and counted as beneficiaries—would be entirely relocated to Lingao for "resettlement." The Civil Affairs People's Committee would disperse and resettle this population across Hainan Island.
 
 After these measures, Sanliang Market's "elite class" would be completely swept away. Newcomers with sufficient capital and strong capabilities could easily establish authority locally.
 
@@ -30,7 +30,7 @@ The town-wide assembly at the threshing ground went smoothly. Wen Desi found thi
 
 These three worked under the civil affairs team's direct supervision. Wen Desi ordered five hundred taels of silver and several hundred *shi* of rice allocated as operating funds. Existing community organizations were restored—the fire brigade reopened; the watchmen resumed their rounds. Those whose homes and property had been destroyed in the fighting received relief rice. The civil affairs team also planned to distribute relief silver.
 
-"I'm truly surprised." Ji Xin, the arbitration tribunal representative responsible for inspecting and handling the task force's legal matters, saw this temporary organization already functioning. Innkeeper Chen handled security; Li Cunfa managed economics and Reasonable Burden; Monk Daoliao managed corpse collection and charitable relief for the poor. Everything quickly became orderly. "Before coming to Guangdong, I worried natives would fear government retaliation and refuse to publicly volunteer as liaison officers."
+"I'm truly surprised," said Ji Xin, the arbitration tribunal representative responsible for inspecting and handling the task force's legal matters, seeing this temporary organization already functioning. Innkeeper Chen handled security; Li Cunfa managed economics and Reasonable Burden; Monk Daoliao managed corpse collection and charitable relief for the poor. Everything was quickly becoming orderly. "Before coming to Guangdong, I worried natives would fear government retaliation and refuse to publicly volunteer as liaison officers."
 
 In traditional Chinese society, local notables stepping up to maintain order after war wasn't considered "collaboration." It even earned praise for "protecting the homeland." Such people were typically local gentry and magnates whom the government had always relied on for grassroots governance. Naturally, when authorities returned, they wouldn't punish such behavior. Among them were genuinely public-spirited righteous people, but also despicable opportunists seeking to exploit the situation for personal gain. Circumstances varied greatly.
 
@@ -42,9 +42,9 @@ Liu Deshan's residence, being heavily damaged, was among the first listed for re
 
 While worrying, this group suddenly appeared before his house. Liu Deshan assumed the crop-heads had come to confiscate his property. These tools were probably for digging up floor tiles and tearing down walls to find "hidden treasure." He was so frightened he couldn't move.
 
-"Sir, we meet again." The leader was the same Australian who'd come to his house yesterday. He smiled and waved his axe—nearly making Liu Deshan wet himself. "We keep our word. We're here to fix your house."
+"Sir, we meet again." The leader was the same Australian who had come to his house the day before. He smiled and waved his axe—nearly making Liu Deshan wet himself. "We keep our word. We're here to fix your house."
 
-"This... um... ah..." Before Liu Deshan could react, marines swarmed into the courtyard. Someone immediately removed the threshold his clerks had hastily nailed yesterday, pushed in a modified wheelbarrow loaded with bricks, tiles, and lime. Others nimbly set up ladders and climbed to the roof. Others went straight to the clerks to borrow buckets, preparing to mix mortar. Seven or eight pairs of hands started repairs at once.
+"This... um... ah..." Before Liu Deshan could react, marines swarmed into the courtyard. Someone immediately removed the threshold his clerks had hastily nailed the day before, pushed in a modified wheelbarrow loaded with bricks, tiles, and lime. Others nimbly set up ladders and climbed to the roof. Others went straight to the clerks to borrow buckets, preparing to mix mortar. Seven or eight pairs of hands started repairs at once.
 
 Liu Deshan stood dumbfounded. In his understanding, soldiers were all idle layabouts and good-for-nothings—genuine "official bandits." Not robbing or killing was already considered strict discipline. An army that made reparations for damage and personally helped repair houses was absolutely unheard of.
 
@@ -56,13 +56,13 @@ Liu Deshan stood dumbfounded. In his understanding, soldiers were all idle layab
 
 ---
 
-While Liu Deshan fussed over tea, Innkeeper Chen cursed and led his group to the Bureau. The "Bureau" the sergeant mentioned was the former Militia Bureau—originally a temple that had been refurbished. With many rooms and spacious halls, it made an excellent office space. After breaking through on October 26th, the squadron had established its command center here.
+While Liu Deshan fussed over tea, Innkeeper Chen cursed and led his group to the Bureau. The "Bureau" the sergeant mentioned was the former Militia Bureau—originally a temple that had been refurbished. With many rooms and spacious halls, it made excellent office space. After breaking through on October 26th, the squadron had established its command center here.
 
 The group was brought to the Bureau. A large courtyard nearby now served as temporary detention. Room after room was packed with dejected faces.
 
-The three of them were separately escorted to a courtyard that had been the Bureau's main hall—where committee members had held their private courts to "try cases." Any "suspicious person" captured by militia in Sanliang and surroundings, or any unfortunate who'd offended the masters, was brought here for harsh interrogation. Besides lacking a yamen's formal plaques and insignia, it had everything—magistrate's bench, torture implements, everything.
+The three of them were separately escorted to a courtyard that had been the Bureau's main hall—where committee members had held their private courts to "try cases." Any "suspicious person" captured by militia in Sanliang and surroundings, or any unfortunate who had offended the masters, was brought here for harsh interrogation. Besides lacking a yamen's formal plaques and insignia, it had everything—magistrate's bench, torture implements, everything.
 
-This now served as the temporary military court for hearing cases. Tribunal representative Ji Xin had been trying cases since morning—mostly local commoners accusing former magnates and gentry. Some claimed they'd caused deaths; some accused them of abducting women; some accused them of seizing property... an endless variety. Some came openly with written complaints begging for justice; others sent anonymous notes secretly. These materials now filled a table behind the court.
+This now served as the temporary military court for hearing cases. Tribunal representative Ji Xin had been trying cases since morning—mostly local commoners accusing former magnates and gentry. Some claimed they had caused deaths; some accused them of abducting women; some accused them of seizing property... an endless variety. Some came openly with written complaints begging for justice; others sent anonymous notes secretly. These materials now filled a table behind the court.
 
 Some cases no longer needed trial—the defendants had died during the assault or been hanged that night. Complaints against Luo Tianqiu were especially numerous, the charges "complete with all five poisons." Ji Xin thought: this man was truly a textbook "bully landlord."
 
@@ -92,9 +92,9 @@ Qingxia quickly pulled Jiang Suo down to kneel.
 
 "No thanks needed." This Australian actually smiled. "What's your name? Where are you from? What's your profession?"
 
-Qingxia answered each question, saying only that they were traveling equestrian performers, not daring to mention they'd been militia instructors. She said they were being falsely accused because the innkeeper had tried to extort their horse and property.
+Qingxia answered each question, saying only that they were traveling equestrian performers, not daring to mention they had been militia instructors. She said they were being falsely accused because the innkeeper had tried to extort their horse and property.
 
-"Your Honor, please discern the truth! We are performing artists, wandering everywhere, complete outsiders. How could we be militia instructors here?" Qingxia knew that flat denial was her only chance at survival.
+"Your Honor, please discern the truth! We are performing artists, wandering everywhere, complete outsiders. How could we be militia instructors here?" Qingxia knew flat denial was her only chance at survival.
 
 Ji Xin nodded, examining the three. The woman speaking was about twenty, tall and well-proportioned with large natural feet—clearly trained in martial arts. The young man beside her was sixteen or seventeen, short but sturdy. The other woman was in her early thirties, somewhat attractive but pale and unsteady—apparently ill.
 
@@ -106,7 +106,7 @@ Qingxia's face flushed crimson, furious beyond words. As a woman performing publ
 
 "This humble woman is certainly still a virgin with no connection to Lord Luo! This Innkeeper Chen is spewing blood from his mouth! Please, Your Honor, investigate clearly!"
 
-Seeing this woman's intense reaction, Ji Xin knew she spoke truth. He glanced at Innkeeper Chen's smug expression. Though jurisprudence didn't concern itself with personal impressions, their contrasting behavior inevitably affected Ji Xin's judgment.
+Seeing this woman's intense reaction, Ji Xin knew she spoke truth. He glanced at Innkeeper Chen's smug expression. Though jurisprudence didn't concern itself with personal impressions, their contrasting behavior inevitably affected his judgment.
 
 Regardless of whether these three were militia instructors, Innkeeper Chen clearly had ulterior motives. The attempted horse extortion might well be true.
 
@@ -124,15 +124,15 @@ This was undeniable hard evidence. Qingxia momentarily had no counter-argument.
 
 The Australian then asked Aunt Jiang: "You're wounded?"
 
-Aunt Jiang didn't dare answer, unsure whether to admit or deny. But she'd limped in supported by Qingxia—impossible to deny. She whispered: "This humble woman is indeed wounded."
+Aunt Jiang didn't dare answer, unsure whether to admit or deny. But she had limped in supported by Qingxia—impossible to deny. She whispered: "This humble woman is indeed wounded."
 
 "How were you wounded?"
 
 Qingxia quickly answered: "Reporting to Your Honor! She was accidentally stabbed by this humble woman during practice."
 
-"Sir! They're lying!" Innkeeper Chen hadn't expected this young woman to become so polished, calmly trying to explain everything away. Furious—no longer caring about the horse, but feeling utterly humiliated—he quickly produced the inn's guest register.
+"Sir! They're lying!" Innkeeper Chen hadn't expected this young woman to have become so polished, calmly trying to explain everything away. Furious—no longer caring about the horse, but feeling utterly humiliated—he quickly produced the inn's guest register.
 
-"Sir, please look." He pointed to names in the ledger. "This group arrived three months ago with eight people. They stayed at my inn until half a month ago when they moved to live at the Luo ancestral hall. The ancestral hall isn't an inn—and Luo Tianqiu was no charitable man. Why would he let them live in the ancestral hall for free? Your Honor can easily verify this!" He continued smugly: "And now only three remain! Where's the old man? Where's the other man? And the three children—where are they all?!"
+"Sir, please look." He pointed to names in the ledger. "This group arrived three months ago with eight people. They stayed at my inn until half a month ago when they moved to live at the Luo ancestral hall. The ancestral hall isn't an inn—and Luo Tianqiu was no charitable man. Why would he let them live in the ancestral hall for free? Your Honor can easily verify this!" He continued smugly: "And now only three remain! Where's the old man? Where's the other man? And the three children—where are they all?"
 
 Ji Xin listened, realizing Innkeeper Chen spoke truth. He nodded silently and asked:
 

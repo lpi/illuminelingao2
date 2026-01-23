@@ -1,157 +1,165 @@
-# Chapter 644 Artillery Duel
+# Chapter 644 — Artillery Duel
 
-The Number 6 Gunner standing next to the ammunition box immediately opened the lid, searched for the number he needed from a table pasted on the inside of the lid, and then answered loudly:
+The Number 6 Gunner, standing beside the ammunition box, immediately flipped open its lid, searched for the required number on the table pasted inside, and shouted the answer:
 
-"Elevation 4 degrees 40 minutes!"
+"Elevation four degrees forty minutes!"
 
-The Number 3 Gunner standing on the right side of the breech immediately turned the handle to adjust the cannon to the correct angle—the new gun mount developed by the Mechanical Department not only could adjust firing direction but also improved the elevation adjustment system. The angle indicator was installed directly on the breech; the Number 3 Gunner could quickly adjust it into place by turning the handle, reducing the work of the Number 4 and Number 1 Gunners. Meanwhile, the Number 6 Gunner took out a shell from the ammunition box and handed it to the Number 5 Gunner waiting aside. The shell was an old-style fixed ammunition: the spherical solid shot was tied together with a propellant bag wrapped in cloth strips and cotton cloth. The Number 5 Gunner put the shell into a wicker basket and then carried it to the Number 1 Gunner for inspection.
+The Number 3 Gunner, positioned on the right side of the breech, immediately turned the handle to adjust the cannon to the correct angle. The new gun mount developed by the Mechanical Department not only allowed adjustment of firing direction but also improved the elevation system; an angle indicator was installed directly on the breech, allowing the Number 3 Gunner to quickly dial in the setting without burdening the Number 4 and Number 1 Gunners. Meanwhile, the Number 6 Gunner retrieved a shell from the ammunition box and handed it to the waiting Number 5 Gunner. The shell was old-style fixed ammunition: a spherical solid shot tied together with a propellant bag wrapped in cloth strips and cotton. The Number 5 Gunner placed the shell in a wicker basket and carried it to the Number 1 Gunner for inspection.
 
 "Ammunition correct! Load!"
 
-The Number 2 Gunner received the shell, oriented the propellant bag towards the breech, and put the shell into the muzzle. The Number 3 Gunner holding the rammer immediately inserted the rammer into the muzzle, pushing the shell all the way to the bottom of the bore. The Number 4 Gunner standing on the left side of the breech pricked a long awl through the vent of the breech into the bore, piercing the wrapping cloth outside the propellant bag, took out a friction primer, hooked the pull ring on the primer with the hook on the lanyard, and inserted it into the vent.
+The Number 2 Gunner received the shell, oriented the propellant bag toward the breech, and inserted the shell into the muzzle. The Number 3 Gunner, holding the rammer, immediately thrust it into the muzzle, pushing the shell all the way to the bottom of the bore. The Number 4 Gunner, standing on the left side of the breech, pricked a long awl through the vent into the bore, piercing the cloth wrapping around the propellant bag. He then withdrew a friction primer, hooked the pull ring on the primer to the lanyard's hook, and inserted it into the vent.
 
 "Ready!"
 
-This dazzling series of complex movements took only a short few dozen seconds. The coordination between the 6 gunners had to be very skilled to be busy without disorder. A well-trained M1857 artillery crew could reach 4 rounds per minute during rapid fire. However, the cannon would overheat quickly and fail to fire this way. Now the artillery on the earthen dike adopted a sustained rate of fire of one round per minute.
+This dazzling series of complex movements took only a few dozen seconds. The coordination among the six gunners had to be flawless to be busy without falling into disorder. A well-trained M1857 artillery crew could reach four rounds per minute during rapid fire—though the cannon would overheat quickly and fail to fire at such a pace. For now, the artillery on the earthen dike maintained a sustained rate of one round per minute.
 
 "Fire!"
 
-The Number 4 Gunner immediately pulled the lanyard in his hand hard. With a huge bang and a long burst of fire, the entire cannon and the gunners around it were enveloped in a cloud of huge white smoke. The cannon, pushed by the huge recoil, jumped backward.
+The Number 4 Gunner yanked the lanyard. With a tremendous bang and a long burst of flame, the entire cannon and all the gunners around it disappeared within a cloud of white smoke. The cannon, pushed by the tremendous recoil, leapt backward.
 
-"M1857, cheap price and sufficient quantity." Lin Shenhe, who stood beside Zhang Berlin holding binoculars, muttered to himself. He claimed to be here to inspect the performance of weapons and equipment and the results of artillery training on the field, but actually, he was here to watch the excitement. Incidentally, to see what new gadgets he could tinker with.
+"M1857—cheap price and sufficient quantity." Lin Shenhe, standing beside Zhang Berlin with binoculars, muttered to himself. He claimed to be here to inspect the performance of weapons and equipment and to evaluate the results of artillery training in the field, but in reality he had come to watch the excitement—and to see if there were any new gadgets he could tinker with.
 
-The killing effect of solid shots was very satisfactory, but amidst such a surging tide of people, it seemed difficult to force the enemy to rout. Two Ming army units were still shouting and charging towards the Grand Camp.
+The killing effect of solid shot was immensely satisfying, yet amidst such a surging tide of humanity, it seemed difficult to force the enemy into a rout. Two Ming army columns continued shouting and charging toward the Grand Camp.
 
-"Don't worry!" Lin Shenhe pretended to be calm, "According to Civil War experience, infantry has to persist until they eat canister shot within 100 meters before they rout..."
+"Don't worry!" Lin Shenhe pretended to remain calm. "According to Civil War experience, infantry usually has to persist until they eat canister shot at under a hundred meters before they rout..."
 
-"Boss, this is the Ming Army, not the Union Army or the Confederate Army." Zhang Berlin regarded Lin Shenhe as an expert among experts because all muzzle-loading artillery gunnery and tactics were taught by him. "Shouldn't a medieval army like the Ming Army collapse very quickly?"
+"Boss, this is the Ming Army, not the Union Army or the Confederates." Zhang Berlin regarded Lin Shenhe as the expert among experts—all muzzle-loading artillery gunnery and tactics had been taught by him. "Shouldn't a medieval army like the Ming Army collapse very quickly?"
 
-"That the Ming Army will collapse once shelled is not what I said." Lin Shenhe shrugged, "However, causing the whole army to collapse just by shelling is probably something only the Great Qing can achieve."
+"That the Ming Army will collapse after one round of shelling is not something I ever said." Lin Shenhe shrugged. "Then again, causing an entire army to collapse from shelling alone is probably something only the Great Qing ever achieved."
 
-According to his observation, the density of shelling was still a bit low relative to the surging crowd. This density of fire was just an average level in the Civil War era.
+According to his observations, the density of shelling was still somewhat inadequate relative to the surging crowd. The current rate of fire represented merely an average level for the Civil War era.
 
-"Quick! Pull quickly!" Soldiers of the Firearms Camp roared, constantly whipping the conscripted laborers and oxen/horses. Red Barbarian Cannons were dragged toward gun positions one by one amidst cursing, groaning, wailing, and the neighing of oxen and horses. Last night these heavy cannons had been set up behind trenches in various camps as defensive weapons. Since the cannons were fully four *li* away from the Hair Bandit camp, the shots couldn't reach at all. Li Baidao organized men and horses to drag the cannons, seeking to get as close as possible before firing.
+---
 
-But the movement of men and horses in front blocked the Firearms Camp's advance. The road wasn't cleared until the Chaozhou soldiers began to attack. Li Baidao dared not delay, hurriedly urging soldiers to push the cannons.
+"Quick! Pull quickly!" Soldiers of the Firearms Camp roared, constantly whipping the conscripted laborers and oxen. Red Barbarian Cannons were being dragged toward gun positions one by one amidst cursing, groaning, wailing, and the neighing of animals. The previous night, these heavy cannons had been set up behind the trenches in various camps as defensive weapons. Since the guns were fully four *li* from the Hair Bandit camp and could not reach at all, Li Baidao was organizing his men to drag the cannons forward, seeking to close the distance before opening fire.
 
-"The enemy is transporting cannons." News came from the observation post.
+But the movements of the troops ahead blocked the Firearms Camp's advance. The road did not clear until the Chaozhou soldiers launched their attack. Li Baidao dared not delay any longer and hurriedly urged his soldiers to push the cannons forward.
 
-"Where?" Ying Yu pushed his hat back on his head, raising binoculars to look, "Saw them!" He shouted, then picked up the telephone:
+"The enemy is transporting cannons." The observation post relayed the news.
 
-"Berlin, government troops are pushing Red Barbarian Cannons on your front right! Hurry give them a beating with shells!"
+"Where?" Ying Yu pushed his hat back on his head and raised his binoculars. "Got them!" he shouted, then picked up the telephone:
 
-"Load solid shot, target distance 1320 meters!" Zhang Berlin went into battle personally, holding binoculars to range, "Whole company rapid fire!"
+"Berlin, government troops are pushing Red Barbarian Cannons on your front right! Give them a beating with shells!"
 
-A few minutes later, an artillery company organized by Zhang Berlin immediately opened fire on the Firearms Camp's moving Red Barbarian Cannons.
+"Load solid shot—target distance 1,320 meters!" Zhang Berlin took personal command, holding binoculars to estimate range. "Whole company, rapid fire!"
 
-Solid shots fired by 12-pounder Napoleon guns smashed down on the Firearms Camp one after another. The first round of shells landed in the infantry ranks lining up not far from the Firearms Camp, causing a burst of chaos. Li Baidao looked pale with fright as shells fired from the earthen dike dragged smoke trailing over the charging infantry in front, falling straight towards here!
+A few minutes later, the artillery company Zhang Berlin had organized opened fire on the Firearms Camp's moving Red Barbarian Cannons.
 
-"Bad!" Just as this thought flashed through his mind, the second round of shells already smashed down on the Firearms Camp's team overwhelmingly.
+Solid shots from 12-pounder Napoleon guns crashed down on the Firearms Camp one after another. The first volley landed among the infantry ranks lining up not far from the Firearms Camp, throwing them into momentary chaos. Li Baidao's face went pale as he watched shells fired from the earthen dike trail smoke over the charging infantry in front and descend straight toward his position!
 
-A shell landed not far away, then bounced and flew towards the column. It directly broke an ox in two, then the bloody shell jumped up again and brought down several laborers, leaving a ground of severed limbs and mince. Then several more shells landed in the column. The entire Firearms Camp was in chaos with men shouting and horses neighing. Runaway horses and frightened oxen scrambled in the column, ruthlessly trampling wounded soldiers on the ground. Cannons overturned; one gun carriage was hit directly by a shell, the gun barrel knocked upright then heavily crashing down, smashing the brains of several unlucky guys. The gun carriages, sturdy to the point of being clumsy, fell apart with just a graze from the flying shells.
+*This is bad!* Just as this thought flashed through his mind, the second volley smashed down upon the Firearms Camp.
 
-Li Baidao watched as the most powerful Red Barbarian Cannons either overturned on the ground or had their carriages destroyed by shells, sinking into the mud unable to move. Not to mention heavy casualties among oxen and horses, the frightened oxen ran wild everywhere with blood-red eyes. Surrounding infantry were charged by oxen and horses, throwing the formation into great chaos. Some were cursing "Pujie," some cursing "F*ck your mother."
+A shell landed not far away, then bounced and flew into the column. It broke an ox clean in two, and the blood-soaked shell leapt again, bringing down several laborers and leaving a ground of severed limbs and meat. More shells crashed into the column. The entire Firearms Camp descended into pandemonium—men shouting, horses screaming. Runaway horses and terrified oxen stampeded through the formation, ruthlessly trampling the wounded on the ground. Cannons overturned; one gun carriage was struck directly by a shell, its barrel flung upright before crashing back down and crushing the brains out of several unlucky men. The gun carriages, sturdy to the point of clumsiness, fell apart with even a glancing blow from the flying shot.
 
-Fortunately, the 12-pounder rapid fire didn't last too long, so Li Baidao managed to pick up his little life. The most valuable and powerful Red Barbarian Cannons in his Firearms Camp had been beaten to pieces. Some broke in two, some barrels cracked, some carriages were destroyed, and cannons sank deep into the mud. Great manpower would be needed to dig the cannons out.
+Li Baidao watched as his most powerful Red Barbarian Cannons either overturned or had their carriages destroyed, sinking into the mud beyond salvage. Oxen and horses—the critical draft animals—had suffered catastrophic losses, and the terrified beasts now ran wild everywhere with blood-red eyes. The surrounding infantry were charged by the stampeding animals, throwing their formations into complete disorder. Curses erupted in every dialect—some shouting "*Pujie*," others screaming "Fuck your mother!"
 
-Li Baidao already knew the enemy's artillery range far exceeded his own and could no longer entertain the idea of pushing cannons closer to fire—going further forward, he feared he couldn't even set up the cannons.
+Fortunately, the 12-pounder rapid fire did not last too long; Li Baidao managed to escape with his life. But the most valuable and powerful Red Barbarian Cannons in his Firearms Camp lay in ruins. Some barrels had broken in two. Some had cracked. Gun carriages had been destroyed, and cannons had sunk deep into the mud. It would take tremendous effort just to dig them out.
 
-Immediately, he gathered the remnants and gathered back, preparing to use two 4000-jin heavy cannons that could fire fifteen-jin cannonballs. These two Red Barbarian Cannons could reach up to three *li* away at furthest. But what they could hit was hard to say.
+Li Baidao now understood that the enemy's artillery range far exceeded his own. He could no longer even entertain the notion of pushing cannons closer to fire—going any farther forward, he feared, and he might not even have the chance to set them up.
 
-"The Ming Army opened fire!" The observation post shouted in the walkie-talkie. Zhang Berlin was startled and subconsciously squatted down. He saw two black shadows tearing through the smoke flying towards here, but both shells landed one after another in places still far from the trench, only kicking up a large amount of dirt. Then two more shells flew over; one bounced a few times on the ground and finally fell into the trench.
+He immediately gathered the remnants and fell back, preparing to deploy two 4,000-*jin* heavy cannons capable of firing fifteen-*jin* cannonballs. These two Red Barbarian Cannons could reach as far as three *li* at maximum range—though what they might actually hit was anyone's guess.
 
-Ying Yu called the observation post via walkie-talkie: "Find the enemy gun position!"
+"The Ming Army opened fire!" the observation post shouted over the walkie-talkie. Zhang Berlin started and ducked instinctively. He watched two black shapes tear through the smoke and arc toward them, but both shells landed harmlessly in the ground far from the trench, throwing up nothing more than great plumes of dirt. Two more shells followed—one bounced several times across the ground and finally tumbled into the trench.
 
-Soon the place where the Firearms Camp fired was found. Ranging showed they were firing from about 2100 meters away.
+Ying Yu called the observation post via walkie-talkie: "Locate the enemy gun position!"
 
-"At this distance, the Red Barbarian Cannon's range can't reach at all." Lin Shenhe said.
+The Firearms Camp's firing position was quickly identified. Ranging showed they were firing from approximately 2,100 meters away.
 
-Seeming to confirm his words, the two Red Barbarian Cannons fired several shots, but not a single shell hit the earthen dike. The farthest one only rolled into the trench by bouncing.
+"At this distance, the Red Barbarian Cannon's range can't possibly reach," Lin Shenhe remarked.
 
-Seeing that after firing the shells didn't even touch the enemy's dirt skin, Li Baidao was greatly anxious. He shouted loudly "Add more powder!"
+As if to confirm his words, the two Red Barbarian Cannons fired several more rounds, but not a single shell touched the earthen dike. The farthest one only rolled into the trench after bouncing.
 
-The gunners had originally loaded the maximum gunpowder according to the gun scale. Now hearing to add more powder, everyone turned pale with fright. Because cannons exploding was a common occurrence in the army at that time; once a cannon burst, surrounded gunners would hardly survive even if not killed on the spot.
+Seeing his shells couldn't even graze the enemy's dirt, Li Baidao grew frantic. He shouted: "Add more powder!"
 
-"Add powder!" Li Baidao drew his waist saber and slashed in the air, "Violators—beheaded!"
+The gunners had already loaded the maximum gunpowder according to regulations. Hearing this order, everyone's face went pale. Cannon bursts were common in the army of that era; once a cannon exploded, the surrounding gunners would hardly survive even if they weren't killed on the spot.
 
-Under the threat of beheading, the gunners added one-third more gunpowder. To show he wasn't afraid of overloading, Li Baidao lit the cannon personally.
+"Add powder!" Li Baidao drew his waist saber and slashed the air threateningly. "Violators—beheaded!"
 
-The 4000-jin Red Barbarian Cannon burst out with a huge bang violently. The heavy gun carriage retreated almost jumping. Two soldiers who couldn't dodge in time were immediately knocked down, vomiting blood and dying.
+Under threat of beheading, the gunners added one-third more gunpowder. To prove he was not afraid of overloading, Li Baidao lit the cannon himself.
 
-This shell finally flew over a distance of nearly two kilometers and hit a bastion of the camp, but at this time the trajectory was already so low that it only smashed fiercely against the bastion wall, knocking down a piece of dirt.
+The 4,000-*jin* Red Barbarian Cannon erupted with a tremendous blast. The heavy gun carriage recoiled so violently it nearly jumped. Two soldiers who failed to get clear in time were knocked flat, vomiting blood and dying.
 
-"Enemy artillery bearing..." The observation post finally discovered the smoke when Li Baidao's Red Barbarian Cannon fired through the dense gunpowder smoke.
+This shell finally traveled nearly two kilometers and struck a bastion of the camp—but by that point its trajectory had grown so shallow that it merely smashed against the bastion wall, knocking down a clump of dirt.
 
-"Knock out the enemy gun position!" Ying Yu ordered, "I don't want enemy artillery interference."
+"Enemy artillery bearing..." The observation post finally spotted the smoke from Li Baidao's Red Barbarian Cannon through the thick haze of gunpowder.
 
-But even Lin Shenhe couldn't guarantee to immediately destroy these two isolated gun positions at a distance of 2000 meters using M1857s. Several shells fired in succession deviated very far. While everyone was busy aiming and calculating, suddenly a loud bang came from the direction of the Firearms Camp gun position, and a plume of thick smoke rushed straight into the sky.
+"Knock out the enemy gun position!" Ying Yu ordered. "I don't want any interference from their artillery."
 
-"Unknown explosion at enemy gun position!" The observation post reported.
+But even Lin Shenhe could not guarantee to immediately destroy two isolated gun positions at a distance of 2,000 meters using M1857s. Several shells fired in succession all went wide. While everyone was busy aiming and calculating, a tremendous boom erupted from the direction of the Firearms Camp's position, and a pillar of thick smoke rushed straight into the sky.
+
+"Unknown explosion at enemy gun position!" the observation post reported.
 
 "Did the powder magazine explode?" Zhang Berlin hurriedly raised his binoculars.
 
-Lin Shenhe shook his head: "Powder magazine explosion would be much more violent. I think it's a burst barrel."
+Lin Shenhe shook his head. "A powder magazine explosion would be much more violent. I think it's a burst barrel."
 
-His estimate was not wrong. After firing twice with "super-strong charges" in succession, a heavy cannon suddenly burst. The shockwave and fragments instantly killed more than a dozen people around. Li Baidao escaped a calamity only by being washed away more than ten meters by the shockwave and falling on a dead horse.
+His estimate was correct. After firing twice in succession with "super-strong charges," a heavy cannon had suddenly burst. The shockwave and fragments killed more than a dozen men around it instantly. Li Baidao escaped catastrophe only by being flung more than ten meters by the blast and landing on a dead horse.
 
-Li Baidao propped up his body and climbed up. His head was dizzy, ears buzzing. He shook his head hard and found the surrounding soldiers had all fled, leaving even that intact Red Barbarian Cannon behind. several of his personal soldiers ran over to hold him up. Li Baidao wanted to continue loading and firing, only to find cracks had already appeared on the barrel of this intact heavy cannon. Firing another shot would undoubtedly mean his own death. He was so angry he slashed his saber wildly in the air.
+Li Baidao propped himself up and climbed to his feet. His head spun dizzily and his ears buzzed. He shook his head hard, only to find that all the surrounding soldiers had fled—they had even abandoned the intact Red Barbarian Cannon. Several of his personal soldiers ran over to hold him up. Li Baidao wanted to continue loading and firing, but upon inspection he discovered that cracks had already appeared in the barrel of the remaining heavy cannon. Firing another shot would be suicide. He was so furious he slashed his saber wildly through the air.
 
-The whistling of Hair Bandit shells flying over sounded in the air again. A personal soldier hurriedly snatched his saber, saying: "Garrison Commander Sir, quick, take cover, the Hair Bandits are firing again." Several other people held him up and ran back.
+The whistle of incoming Hair Bandit shells sounded overhead again. A personal soldier snatched the saber from his hands. "Garrison Commander Sir—quickly, take cover! The Hair Bandits are firing again!" Several others seized him and hauled him back.
 
-"The enemy artillery position is finished." Zhang Berlin phoned Ying Yu.
+"The enemy artillery position is finished," Zhang Berlin reported to Ying Yu by telephone.
 
-"Very good, quickly organize artillery fire to intercept enemy infantry!"
+"Excellent. Quickly organize artillery fire to intercept the enemy infantry!"
 
-Although the 12-pounder cannon fire was fierce, it didn't make the enemy waver quickly. Although the huge killing effect produced every time a shell landed caused a portion of soldiers to waver and rout, they quickly surged up again driven by officers. The main body of government troops had surged to a place five hundred meters from the earthen dike. Fubo Army's howitzers also joined the roaring ranks, explosive shells constantly falling into the columns. Although the killing effect was average, the fact that shells exploded upon landing caused great vacillation among the officers and soldiers.
+---
 
-When they finally approached to about three hundred meters from the rampart wall under artillery fire, the Fubo Army infantry officers on the rampart wall raised their command sabers simultaneously:
+Though the 12-pounder cannon fire was fierce, it alone could not force the enemy to waver quickly. Although every landing shell produced tremendous killing effect and caused portions of soldiers to break and rout, they were quickly driven forward again by officers behind them. The main body of government troops had surged to within five hundred meters of the earthen dike. The Fubo Army's howitzers had also joined the roaring chorus, their explosive shells constantly falling among the columns. Although the killing effect was modest, the simple fact that shells exploded upon landing threw the officers and soldiers into great vacillation.
+
+When the government army finally clawed its way to within three hundred meters of the rampart wall, the Fubo Army infantry officers on the rampart raised their command sabers simultaneously:
 
 "Sights 300 meters—Fire!"
 
-Hundreds of Minié rifles emitted crackling gunshots. Dense rain of bullets swept through the entire vanguard. Hundreds of people were hit and fell to the ground instantly. This sudden blow finally made the already wavering infantry unable to hold on. The road rushing towards the enemy seemed never so distant and dangerous. Tong Yizhen beheaded several routing soldiers in succession but still couldn't stop the tide of soldiers retreating. He was shouting loudly, demanding generals to maintain order and not allow soldiers to rout. But a bullet suddenly knocked his horse down. He fell to the ground instantly. His personal soldiers hurriedly held him up. Lieutenant Colonel Tong immediately jumped on a second horse, but at this time his standard-bearer's armor suddenly exploded before his eyes; the standard-bearer fell from his horse without even a hum.
+Hundreds of Minié rifles crackled in thunderous volleys. Dense rain of bullets swept through the entire vanguard. Hundreds of men were struck and fell instantly. This sudden blow finally broke the already wavering infantry. The road rushing toward the enemy suddenly seemed infinitely distant and impossible. Tong Yizhen beheaded several routing soldiers in succession but still could not stem the tide of men streaming backward. He was shouting loudly, demanding his generals maintain order and forbidding the soldiers to rout. But a bullet suddenly knocked his horse down. He crashed to the ground. His personal soldiers rushed to help him up, and Lieutenant Colonel Tong immediately leapt onto a second horse—but at that moment his standard-bearer's armor exploded before his eyes. The man fell from his saddle without a sound.
 
-This terrified him to the point of splitting his liver and gall. The Hair Bandits were shooting with some firearm he couldn't see. He knew he was already in a very dangerous position and no longer insisted on continuing the attack, allowing personal soldiers and house guards to protect him retreating down. Once the main general retreated, the soldiers ran even faster. Smoke dispersed, leaving only a ground of flags, armor, weapons, and corpses.
+This terrified him to the core. The Hair Bandits were shooting with some weapon he could not even see. He knew he was in a very dangerous position and no longer insisted on continuing the attack. He allowed his personal soldiers and household guards to escort him backward. The moment the commanding general retreated, the soldiers ran even faster. The smoke dispersed, leaving only a ground littered with flags, armor, weapons, and corpses.
 
-The soldiers on the earthen dike burst out a wave of cheers from the heart. Many had prepared for a desperate battle, not expecting the government army to retreat so quickly. Pride, contempt, and a sense of pride filled their chests. Many waved their weapons and cheered for their first victory.
+The soldiers on the earthen dike erupted in waves of heartfelt cheers—they had beaten back the assault. Many had steeled themselves for a desperate struggle, never expecting the government army to retreat so quickly. Pride, contempt, and a fierce sense of accomplishment filled their chests. Many waved their weapons and cheered for their first victory.
 
-He Rubin watched helplessly as four thousand combat soldiers routed under Hair Bandit artillery fire without even approaching the enemy's earthen dike. The Firearms Camp, on which he placed high hopes and thought comparable to Hair Bandit artillery, was beaten upside down by enemy artillery before even setting up gun positions. His face darkened completely. How to fight such a battle? Not even a chance for close combat! He had already seen that Hair Bandit cannons shot further and more accurately than Red Barbarian Cannons, and the speed of fire was much faster. Compared to Red Barbarian Cannons that took a long time to fire one shot, the cannons set on the Hair Bandit earthen dike were spewing thick smoke and fire almost non-stop, pouring bullets like rain on the heads of officers and soldiers.
+He Rubin watched helplessly as four thousand combat soldiers routed under Hair Bandit artillery fire without even approaching the enemy's earthen dike. The Firearms Camp, on which he had placed such high hopes, believing it comparable to Hair Bandit artillery, had been beaten into oblivion before it could even set up gun positions. His face had grown completely dark. *How is one supposed to fight such a battle?* There wasn't even a chance for close combat! He had already seen that the Hair Bandit cannons shot farther, shot more accurately, and fired far faster than his Red Barbarian Cannons. Compared to the Red Barbarian Cannons, which took ages to fire a single shot, the cannons on the Hair Bandit earthen dike seemed to spew smoke and fire almost continuously, pouring bullets like rain upon the heads of his officers and soldiers.
 
-"Reporting to Your Excellency!" A personal soldier ran over hurriedly and knelt down, "Leilian Lieutenant Colonel General Zhao was killed in action!"
+"Reporting to Your Excellency!" A personal soldier rushed up and knelt. "Leilian Lieutenant Colonel General Zhao was killed in action!"
 
-"What?!" He Rubin was startled. He hurriedly raised binoculars to look towards the direction of Zhao Qiansi's main attack. Those two thousand people were fleeing back in total defeat.
+"What?!" He Rubin was stunned. He quickly raised his binoculars and looked toward the direction of Zhao Qiansi's main attack. Those two thousand men were in full, chaotic retreat.
 
-A great general died before even engaging in close combat! He hurriedly asked: "How did General Zhao die in action?"
+A great general dead before even reaching close combat! He hurriedly asked: "How did General Zhao die?"
 
-"Reporting to Your Excellency, he was hit by a bird gun..."
+"Reporting to Your Excellency—he was hit by a bird gun..."
 
-"Nonsense!" He Rubin could no longer contained his panic, "This Commander saw clearly, his big flag was fully six or seven hundred paces from the stockade wall, how could he be hit by a bird gun?"
+"Nonsense!" He Rubin could not contain his alarm. "This Commander saw clearly—his big flag was fully six or seven hundred paces from the stockade wall. How could he be hit by a bird gun?!"
 
-The personal soldier didn't know why his Excellency was so particular about what killed him, and hurriedly reported: "Small one dare not speak nonsense. General Zhao's body has been snatched back and is now in the camp. Confirmed hit by bird gun."
+The personal soldier did not understand why His Excellency was so fixated on the cause of death. He quickly replied: "This small one dares not speak falsehood. General Zhao's body has been recovered and is now in the camp. He was confirmed hit by a bird gun."
 
-"Get out!" He shouted angrily, gasped a rough breath, and loudly ordered: "Beat drums!"
+"Get out!" He Rubin shouted. He drew a rough breath, then bellowed: "Beat drums!"
 
-With the drum sound, a new wave of fresh troops marched out from the camp. This was the Training Guerrilla's men and horses, plus the Governor's Standard and Regional Commander's Standard. It could be called the most elite men and horses in this expedition. Of course, he still had the Regional Commander's Standard Troops and five hundred house guards, but this was his capital; he wouldn't use them until the most critical moment.
+At the sound of drums, a new wave of fresh troops marched out from the camp. This was the Training Guerrilla's force, combined with the Governor's Standard and the Regional Commander's Standard—the most elite soldiers in this entire expedition. Of course, He Rubin still retained his own Regional Commander's Standard troops and five hundred household guards, but this was his final capital. He would not commit them until the most critical moment.
 
-He called the battalion generals of the three battalions over to give confidential instructions.
+He called over the battalion generals of the three battalions for confidential instructions.
 
-"Everyone saw it." He had a gloomy face, "Hair Bandit cannons are very severe. Shoot far, shoot accurate. Li Baidao's Firearms Camp was crippled before opening fire—can't count on them. When you spread out the formation in a while, remember, the ranks must be spread loose. Separate squad by squad. Don't crowd people together like Generals Tong and Zhao did just now, densely rushing up!"
+"Everyone saw what happened." His face was grim. "Hair Bandit cannons are extremely effective—long range, accurate fire. Li Baidao's Firearms Camp was crippled before it could even open fire. We can't count on them. When you spread out your formations, remember this: ranks must be kept loose. Separate squad by squad. Do not crowd your men together like Generals Tong and Zhao did just now, rushing up in a dense mass!"
 
 "Humble generals understand!"
 
-He Rubin said slowly, "Whichever General's men and horses ascend the stockade first, this Commander will record the top merit for him!"
+He Rubin continued slowly: "Whichever General's men and horses are first to ascend the stockade—this Commander will record the top merit for him!"
 
-He Ming was very surprised seeing the government army rout before approaching the Grand Camp. He secretly counted; the cannon that fired the most on the entire earthen dike only fired just over fifty shells. The artillery fire was far from dense, yet four or five thousand men and horses retreated just like that. Even for a medieval army, back then the Zulus fought the British until corpses littered the field before dispersing. It seemed the Ming Army's combat will was not high. However, he heard people from the Great Library History Research Team say that the difference between Ming Army elite and general troops was very big.
+---
 
-"The ones launching the attack just now were the Leilian Lieutenant Colonel and Chaozhou Lieutenant Colonel units." Dongmen Chuiyu had already obtained the latest report summarized by observation posts.
+He Ming was very surprised to see the government army rout before even approaching the Grand Camp. He secretly counted: the cannon that had fired the most on the entire earthen dike had expended just over fifty shells. The artillery fire had been far from dense, yet four or five thousand men and horses had retreated just like that. Even for a medieval army—back in the day, the Zulus had fought the British until corpses littered the field before dispersing. It seemed the Ming Army's combat will was not particularly high. Then again, he had heard people from the Great Library's History Research Team say that the difference between Ming Army elites and general troops was enormous.
 
-"According to observation post observations: at least 31 Ming officers of Chiliarch rank and above participated in the attack. Our side confirmed killing 5, probable killing 7. According to sniper reports, Leilian Lieutenant Colonel Zhao Qiansi was hit by a sniper during the battle, current life or death unknown."
+"The units that just attacked were the Leilian Lieutenant Colonel and Chaozhou Lieutenant Colonel forces." Dongmen Chuiyu had already obtained the latest summary report from the observation posts.
 
-Hearing that a sniper hit a major Lieutenant Colonel, He Ming nodded. The sniper's power was indeed not to be underestimated. After all, cannons, no matter how powerful, couldn't achieve such precision strikes.
+"According to observations: at least 31 Ming officers of Chiliarch rank or above participated in the attack. Our side confirmed killing 5 and probable killing 7. According to sniper reports, Leilian Lieutenant Colonel Zhao Qiansi was hit by a sniper during the battle. Current status—life or death unknown."
 
-"Artillery fired a total of 493 shells, 371 solid shots, 122 explosive shells." He turned a page, "Destroyed eleven Red Barbarian Cannons."
+Hearing that a sniper had hit a major Lieutenant Colonel, He Ming nodded. The sniper's power was not to be underestimated—after all, cannons, no matter how powerful, could not achieve that kind of precision strike.
 
-"Our side's casualties and equipment loss figures."
+"Artillery fired a total of 493 shells: 371 solid shots, 122 explosive shells." Dongmen Chuiyu turned a page. "Destroyed eleven Red Barbarian Cannons."
 
-"Five lightly wounded, no deaths, no losses."
+"Casualties and equipment losses on our side."
 
-(End of Chapter)
+"Five lightly wounded. No deaths. No losses."
+
+---
+
+*(End of Chapter)*

@@ -26,11 +26,11 @@ Inside the city walls was a blue zone; only inside the Provincial Governor's com
 
 "Having those Japanese soldiers protect me will be sufficient."
 
-Subsequently, under Pak Deok-maeng's guidance, Feng Zongze surveyed several locations inside and outside Jeju City. The city possessed large-scale horse paddocks—every year after the "horse tribute presentation," the selected horses were driven here to await transport by sea.
+Subsequently, under Pak Deok-maeng's guidance, Nick surveyed several locations inside and outside Jeju City. The city possessed large-scale horse paddocks—every year after the "horse tribute presentation," the selected horses were driven here to await transport by sea.
 
 Because as many as 700 horses had to be presented in peak years, a paddock capable of holding over a thousand horses had been constructed outside the city walls. But Nick was disappointed after inspecting it in person: the paddock was extremely crude—so crude it hardly qualified as a "structure." It was nothing more than an open-air enclosure. The ground, churned up by horses' hooves, lay exposed and desolate. There were some drinking troughs and water cisterns. Since it was still early in the year and the horse tribute presentation was more than six months away, not a single horse was present. Even the fencing was incomplete, with entire sections missing; what remained was dilapidated. The only roofed building was the residence of the paddock watchmen.
 
-The horse-managing clerk informed Nick through the translator that this was merely a temporary paddock. After inspection and approval, horses were held here for just a few days until weather and sea conditions were suitable for departure to Jocheon, where they would board ships for the mainland.
+The horse-managing clerk informed Nick through the translator that this was merely a temporary paddock. After inspection and approval, horses were held here for just a few days until weather and sea conditions were suitable, then driven to Jocheon to board ships for the mainland.
 
 Properly roofed stables existed only at the postal relay station, the Provincial Governor's compound, and the military barracks.
 
@@ -56,7 +56,7 @@ Seeing Nick's dark expression, the man grew frightened and stammered: "R-r-repor
 
 "Idiots!" Nick could no longer contain himself. "Just because many horses die every year, you can continue letting them die? What's the point of having you people?!"
 
-The naturalized cadre shrank back, not daring to utter a word. Had he not received sufficient education, he might have dropped to his knees crying "This lowly one deserves death! Have mercy, my lord!" at this point.
+The naturalized cadre shrank back, not daring to utter a word. Had he not received sufficient education, he might have dropped to his knees crying "This lowly one deserves death! Have mercy, my lord!" at that moment.
 
 Seeing the man's ashen face and trembling body, Nick's heart softened.
 

@@ -1,14 +1,14 @@
 # Chapter 1059 - Current Conditions and Systemic Flaws
 
-Arriving with him at Jeju were cadet soldiers drawn from the Cavalry Training Unit, the Logistics Training Unit, and the Artillery Training Unit. All three branches required extensive use of draught horses, so back in Lingao they had rotated through the Mopanling Ranch to gain practical experience in horse husbandry and training.
+Arriving with Nick at Jeju were cadet soldiers drawn from the Cavalry Training Unit, the Logistics Training Unit, and the Artillery Training Unit. All three branches required extensive use of draught horses, so back in Lingao they had rotated through the Mopanling Ranch to gain practical experience in horse husbandry and training.
 
-The Cavalry Training Unit, apart from a skeleton crew left in Lingao to maintain the organization, had deployed one company to Shandong with nearly all remaining personnel and equipment transferred to Jeju. By order of the General Staff, the Cavalry Training Unit's base was being relocated from Lingao to Jeju Island. Henceforth, Jeju would serve as the Bravery Wave Army's cavalry formation and training base.
+The Cavalry Training Unit, apart from a skeleton crew left in Lingao to maintain the organization, had deployed one company to Shandong. Nearly all remaining personnel and equipment were being transferred to Jeju. By order of the General Staff, the Cavalry Training Unit's base was relocating from Lingao to Jeju Island. Henceforth, Jeju would serve as the Bravery Wave Army's cavalry formation and training base.
 
 Additionally, both the Logistics and Artillery Training Units would establish their own draught horse training squadrons on Jeju Island, dedicated to training their respective horse drivers and handlers.
 
-This batch of over two hundred cadets transferred from Lingao was largely composed of inexperienced first-year soldiers, yet they still formed the core force Nick could trust the most. Compared to the lifeless local Volunteer Corps, they were far superior in both enthusiasm and loyalty. Moreover, having completed three months of recruit training and being armed, they constituted a force that could be relied upon.
+This batch of over two hundred cadets transferred from Lingao was largely composed of inexperienced first-year soldiers, yet they still formed the core force Nick could trust most. Compared to the lifeless local Volunteer Corps, they were far superior in both enthusiasm and loyalty. Moreover, having completed three months of recruit training and being armed, they constituted a force that could be relied upon.
 
-Since these cadets had arrived at Jeju, Nangong Wudi even felt he could free up additional mobile forces to advance governance into every corner of the island—the cadets could serve as the Jeju City garrison.
+Since these cadets had arrived at Jeju, Nangong Wudi felt he could free up additional mobile forces to advance governance into every corner of the island—the cadets could serve as the Jeju City garrison.
 
 The cadets established their respective temporary camps by branch on the periphery of the paddock. Although housing was available for them in Jeju City, Nick insisted that the cadets become accustomed to the smell of horse manure and horses. Only then would they be qualified for horse husbandry and driving work in the future.
 
@@ -32,7 +32,7 @@ Nick knew this was quite common throughout East Asia—particularly among civili
 
 Some of the cadets had learned hoof trimming and shoeing; he immediately assigned them to trim and shoe the horses. He himself began examining the reproductive status of the healthy horses selected for work.
 
-Overall, the horses from the Jeju Provincial Office and Jocheon relay station were in a state of considerable disarray. The herd included old horses and young horses, mares and geldings, as well as uncastrated stallions—a thoroughly mixed composition.
+Overall, the horses from the Jeju Provincial Office and Jocheon relay station were in considerable disarray. The herd included old horses and young horses, mares and geldings, as well as uncastrated stallions—a thoroughly mixed composition.
 
 He took rough measurements of each uncastrated stallion of suitable age. The tallest stood 131 cm; the shortest, 105 cm. The average height was approximately 120 cm.
 
@@ -52,7 +52,7 @@ Additionally, Nick noticed that elderly stallions made up a disproportionately h
 
 Under normal circumstances, working stallions would be gelded for easier management and use. Finding many stallions—including many elderly ones—among the working horses was highly abnormal.
 
-The mare situation was equally unsatisfactory. Not only were mares of all ages worked together, but many showed signs of overwork. As with the stallions, elderly mares made up a large proportion.
+The mare situation was equally unsatisfactory. Not only were mares of all ages worked together, but many showed signs of overwork. As with the stallions, elderly mares made up a disproportionately large percentage.
 
 Malnutrition and overwork led to a predictable result: mares that went into heat but did not conceive—"empty breeding"—wasted both the mare's breeding opportunity and the stallion's siring potential.
 
@@ -66,7 +66,7 @@ But the incoming horses were often swapped out the moment they arrived at the of
 
 The officials at the government pastures were no fools either. Operating on the principle of "sharing the benefits," every time they supplied new horses to the offices and garrisons, they mixed in useless old or inferior animals. The receiving officials turned a blind eye—after all, with more old horses, deaths came faster, which meant faster replenishment with new horses. Everyone benefited.
 
-As for the annual embezzlement of fodder, that was standard practice. A large portion of the grain allotted for working horses consisted of coarse grains like sorghum, buckwheat, and barley. Officials at every level routinely embezzled and resold them. If even ten percent of the concentrated feed actually reached the feed troughs, that was considered good.
+As for the annual embezzlement of fodder, that was standard practice. A large portion of the grain allotted for working horses—coarse grains like sorghum, buckwheat, and barley—was routinely embezzled and resold by officials at every level. If even ten percent of the concentrated feed actually reached the feed troughs, that was considered good.
 
 "So that's how it is!" Nick sighed. No wonder the mortality rate here was so high.
 
@@ -76,7 +76,7 @@ More practically, given that Jeju Island's herds had been in the hands of such p
 
 This being the case, breeding stallions needed to be imported from Lingao as soon as possible to begin improving the local stock.
 
-During his three years in Lingao, he had used the Tieling draught horses brought by the Exemplar Council and "Aranchi," the English Thoroughbred racehorse he had personally brought, as studs to breed a new generation of breeding stock. He had already begun differentiating between riding and draught lines.
+During his three years in Lingao, Nick had used the Tieling draught horses brought by the Exemplar Council and "Aranchi," the English Thoroughbred racehorse he had personally brought, as studs to breed a new generation of breeding stock. He had already begun differentiating between riding and draught lines.
 
 Originally, he had worried that the sea voyage might be too rough—that transporting breeding stallions could cause deaths. The death of "Landian" had left deep psychological scars, making him reluctant to ship horses by sea. Obtaining even a few breeding horses was no easy matter. A mare's gestation period was eleven months. Even using the practice of breeding a mare immediately after foaling, a pair of breeding horses could produce at most three foals in three years. Moreover, to protect breeding mare fertility, Nick was reluctant to do this. Thus, apart from the original pair of purebred Tieling draught horses—Datie and Xiaotie—only two more had been added, one of which was a stallion.
 

@@ -1,77 +1,77 @@
 # Chapter 824 - Governor de Carpentier
 
-"This is the intelligence you got from that woman?" In an official residence in Batavia, Dutch East India Company Governor de Carpentier looked at the report in his hand and asked the respectful Spanish veteran before him.
+"This is the intelligence you obtained from that Portuguese woman?" In an official residence in Batavia, Dutch East India Company Governor de Carpentier examined the report before him, then directed his question to the respectful Spanish veteran standing at attention.
 
-A man of medium build stood before the fireplace. He looked arrogant and cruel, with sharp eyes, a broad forehead, a handlebar mustache, and a short beard below his lip, making his thin face look long. Years of exposure to the East Indies sun had turned his skin an unhealthy bronze. Though only in his early forties, his hair was graying—the East Indies were not hospitable.
+A man of medium build stood near the fireplace. His bearing was arrogant, his gaze sharp and cruel. A broad forehead sat above a handlebar mustache, with a short beard below his lip that made his thin face appear longer still. Years of exposure to the East Indies sun had weathered his skin to an unhealthy bronze. Though barely past forty, his hair was already graying—the Indies were not kind to European constitutions.
 
-This man was the Governor-General of the Dutch East India Company in Batavia: de Carpentier. As the successor to Jan Pieterszoon Coen, the founder of the Company's presence in Southeast Asia, he was also an outstanding Governor, possessing all the traits of a senior Company executive: shrewdness, ruthlessness, calculating mind, and perseverance.
+This was the Governor-General of the Dutch East India Company in Batavia: de Carpentier. As successor to Jan Pieterszoon Coen, the architect of the Company's Southeast Asian presence, de Carpentier was himself an outstanding administrator. He possessed every trait the Company valued in its senior executives: shrewdness, ruthlessness, a calculating mind, and unwavering perseverance.
 
-"Yes, Your Excellency," Savanchi Gonzalez said. "It cost four thousand guilders."
+"Yes, Your Excellency," Savanchi Gonzalez replied. "The cost was four thousand guilders."
 
-"Quite a lot." The Governor blurted out with a merchant's reaction. Gonzalez felt a flash of disdain—though just a so-called "country gentleman" from the Castilian countryside, he possessed the character of a "Spanish Lord," incompatible with the Dutch "shopkeeper" mindset.
+"Quite substantial." The words escaped the Governor with a merchant's reflexive wince. Gonzalez felt a flicker of disdain—though he was merely a so-called "country gentleman" from the Castilian countryside, he harbored the pride of a "Spanish Lord" and found the Dutch "shopkeeper mentality" distasteful in the extreme.
 
-De Carpentier carefully examined the bound booklet in his hand. Written in a woman's beautiful, delicate script were the answers to his 125 questions. Some answers were simple, just a few words; others spanned dozens of pages.
+De Carpentier carefully examined the bound booklet in his hands. It was written in a woman's beautiful, delicate script—answers to his 125 questions. Some responses were brief, just a few words; others sprawled across dozens of pages.
 
-He rang the bell on the table, and his secretary entered.
+He rang the bell on his desk, and his secretary appeared.
 
-"Translate this booklet. Into German." The Governor said. "Quickly."
+"Translate this booklet into German," the Governor ordered. "With dispatch."
 
-"I'll translate it overnight. I'll bring it to you tomorrow morning." The secretary bowed and withdrew.
+"I will work through the night. You shall have it tomorrow morning." The secretary bowed and withdrew.
 
-The Dutch Governor couldn't read Portuguese. He had to wait for the translation. But this "Sebanc"—having stayed in Macau for months, he must have gathered useful information.
+The Governor couldn't read Portuguese and would have to await the translation. But this "Sebanc"—having spent months in Macau—must have gathered useful intelligence worth examining now.
 
-"Well, you came from Macau; you must have heard much about these Australians. I hear it's a trade point they frequent."
+"Well. You've come from Macau; you must have heard a great deal about these Australians. I understand it's a trading point they frequent."
 
 "Yes, Your Excellency."
 
-"Tell me what you saw." De Carpentier picked up a goblet from the tray, filled it with rare Portuguese wine, and handed it to him.
+"Tell me what you observed." De Carpentier picked up an ornate goblet from a tray, filled it with rare Portuguese wine, and offered it to his guest.
 
-"Thank you, Your Excellency." Savanchi Gonzalez gratefully took the cup and drank a large mouthful. Honestly, the wine wasn't good—over a year of sea travel and the local 30+ degree heat had turned it sour. But for someone deprived of wine for so long, it was nectar.
+"Thank you, Your Excellency." Savanchi Gonzalez accepted the cup gratefully and drank a substantial mouthful. In truth, the wine had suffered—over a year at sea combined with the local heat above thirty degrees had turned it distinctly sour. But for a man deprived of wine for so long, it was nectar from the gods.
 
-"I heard many stories about the Australians in Macau, and saw their goods..."
+"I heard many stories about the Australians while in Macau, and I saw their goods..."
 
-"Start from the beginning. Tell me your impression of that Portuguese woman."
+"Begin from the start. Tell me your impression of that Portuguese woman."
 
-"She is beautiful!" Savanchi Gonzalez laughed. "And hot. A bit like a Creole woman. Very smart and cunning. God as my witness, a little devil hides in her body!"
+"She is beautiful!" Savanchi Gonzalez laughed. "And passionate—somewhat like a Creole woman. Extremely clever and cunning. God as my witness, a little devil resides in that body of hers!"
 
-"She is said to be influential in Macau?"
+"She is said to wield considerable influence in Macau?"
 
-"Yes." Savanchi Gonzalez said. "Word is she's ruthless; her enemies often die mysteriously or vanish without a trace. She acquires wealth from the sea, so she has power among the upper class."
+"Yes." Savanchi Gonzalez nodded. "Word has it she is ruthless; her enemies often meet mysterious deaths or vanish without a trace. She derives her wealth from the sea, which grants her power among the upper classes."
 
-The Governor nodded. His Macau intelligence network confirmed this: Li Siya had strong influence in the Municipal Council via bribery. Generous and asking for little, she was a welcome patron to the councilors.
+The Governor nodded thoughtfully. His own Macau intelligence network confirmed this assessment: Li Siya had cultivated strong influence within the Municipal Council through generous bribes. She gave lavishly and asked for little in return, making her a welcome patron among the councilors.
 
-"Though it seems to me she's reclusive; never appears in public. Many have heard of her but never seen her. Few even know where she lives."
+"Though she seems to be quite reclusive—never appearing in public. Many have heard of her, yet few have ever seen her face. Fewer still know where she lives."
 
-"How did you meet her?"
+"How did you come to meet her?"
 
-"In a tavern, then someone took me—blindfolded."
+"In a tavern. Then someone escorted me—blindfolded."
 
-"She is careful." The Governor muttered. Li Siya had many enemies. Macau wasn't big; hiding wasn't easy.
+"She is careful." The Governor murmured. Li Siya had made many enemies. Macau wasn't large; staying hidden couldn't be easy.
 
-"Talk about the Australians."
+"Now tell me about the Australians."
 
-Savanchi Gonzalez recounted his observations in Macau, especially the "Aussie goods" sold there: vast amounts of rum and Chinese spirits, various papers from fine writing paper to toilet paper, sugar products—especially white sugar, rock sugar, and fruit candies...
+Savanchi Gonzalez recounted his observations in Macau, particularly the "Aussie goods" available there: vast quantities of rum and Chinese spirits, all manner of papers from fine writing stock to toilet paper, and an array of sugar products—especially white sugar, rock sugar, and fruit candies...
 
-De Carpentier listened carefully—though the Sebanc soldier spoke incoherently, it was genuine first-hand material. Combined with Li Siya's intelligence, it was enough for Batavia to determine policy toward the Australians.
+De Carpentier listened carefully. Though the Sebanc soldier spoke somewhat ramblingly, this was genuine firsthand material. Combined with Li Siya's more structured intelligence, it would be sufficient for Batavia to formulate an appropriate policy toward the Australians.
 
-The Australians' appearance initially drew no Dutch attention—Guangzhou, China's biggest trade port, was occupied by the Portuguese. After failing to open ports in Zhangzhou and Quanzhou, the VOC's window to China shifted to Tayouan in Taiwan. Their main partners were Fujian merchants, not Guangdong ones. Let alone Hainan, a remote island in western Guangdong. News of overseas people occupying a remote Chinese island took six months to reach Batavia, and no one cared. Only when Leizhou began selling massive amounts of high-quality sugar did "Australians" truly enter the VOC's vision.
+The Australians' initial appearance had drawn little Dutch attention. Guangzhou—China's greatest trading port—was dominated by the Portuguese. After failing to establish footholds at Zhangzhou and Quanzhou, the VOC's window into China had shifted to Tayouan on Taiwan. Their primary trading partners were Fujian merchants, not those of Guangdong—let alone Hainan, a remote island on China's western coast. News that overseas people had occupied some backwater Chinese island took six months to reach Batavia, and no one paid much attention. Only when Leizhou began exporting massive quantities of high-quality sugar did "Australians" finally enter the VOC's field of vision.
 
-Sugar was one of the VOC's most profitable cargoes from China, sold to Europe and the Middle East—second only to spices. Now, large quantities of high-quality sugar appearing in Guangzhou, Macau, and Vietnam naturally attracted attention. Reports from Tayouan stated: Chinese merchants bringing white sugar said it came from Leizhou and Lingao—and that Lingao's commerce was booming, with prosperous import-export trade.
+Sugar ranked among the Company's most profitable China trade cargoes, sold to Europe and the Middle East—second only to spices. When large shipments of premium sugar began appearing in Guangzhou, Macau, and Vietnam, the merchants naturally took notice. Reports from Tayouan indicated that Chinese merchants bringing white sugar claimed it originated from Leizhou and Lingao—and that Lingao's commerce was booming, its import-export trade growing ever more prosperous.
 
-Batavia's merchants checked maps for "Lingao"; finding it far from key ports, they relaxed. Then, they got more news from their coastal ally Liu Xiang: the group in Lingao called themselves Australians, descendants of a former dynasty, etc. Key news: Australian armaments were strong enough for self-defense, having defeated Spanish and pirate attacks. This made the merchants nervous—a new power was rising in Lingao.
+Batavia's merchants consulted their maps for "Lingao." Finding it far from any major port, they relaxed somewhat. Then came additional intelligence from their coastal ally Liu Xiang: the group occupying Lingao called themselves Australians—descendants of a former dynasty, and so forth. More crucially: Australian armaments were formidable enough for effective self-defense, having repelled both Spanish and pirate attacks. This made the merchants nervous. A new power was arising in Lingao.
 
-Although the Dutch took no action, they watched Lingao. The VOC's priority was monopolizing the spice trade from the East Indies to the Middle East/Europe, followed by expanding dominance in Japan/China trade. Would the Australians' sudden appearance and mass exports affect this?
+Although the Dutch took no immediate action, they began monitoring Lingao closely. The VOC's primary objective was monopolizing the spice trade from the East Indies to Europe and the Middle East. Their secondary goal was expanding dominance in the Japan-China trade. Would the Australians' sudden appearance and aggressive exports affect this equilibrium?
 
-Overall, Australian overseas trade wasn't aggressive. Despite heavy imports/exports, their main partner was plainly the Ming. Second was Tonkin. Products sold elsewhere were mostly sold in Macau or Guangzhou. The VOC network never reported Australian merchant ships at Southeast Asian ports—though Aussie goods were flooding in. Clearly, Australians lacked long-range shipping capability. This reassured the merchants: monopolizing shipping meant monopolizing profit.
+On the whole, Australian overseas trade did not appear aggressive. Despite heavy import-export volumes, their primary trading partner was clearly the Ming Empire, followed by Tonkin. Products sold elsewhere were mostly marketed through Macau or Guangzhou. The VOC's network never reported sightings of Australian merchant vessels at Southeast Asian ports—though Aussie goods were flooding in everywhere. Evidently, the Australians lacked long-range shipping capability. This reassured the merchants: control the shipping, control the profits.
 
-Especially since Lingao's goods were competitive. Besides alcohol and sugar, glass and paper had huge potential. The former had beaten Venetian goods in the Far East. Cheap Lingao glass and mirrors flooded Southeast Asia and India. Venetian products, from expensive mirrors to cheap beads, lost completely. The Council even wrote to Europe to stop purchasing Venetian goods, replacing them with Lingao products. Merchants found that even with shipping costs, buying glass mirrors in Guangzhou for sale in Europe was cheaper than Venetian ones—especially for large pieces. Paper wholesale prices were shockingly low.
+Particularly when Lingao's goods proved highly competitive. Besides alcohol and sugar, glass and paper showed enormous potential. In the Far Eastern markets, Lingao glass had already routed Venetian products. Cheap mirrors and glassware from Lingao now flooded Southeast Asia and India. Venetian goods—from expensive mirrors to cheap trade beads—had lost completely. The Batavia Council had even written to Europe instructing them to cease purchasing Venetian products and substitute Lingao manufactures instead. Merchants discovered that even with shipping costs, buying glass mirrors in Guangzhou for resale in Europe was cheaper than Venetian ones—particularly for large pieces. Paper wholesale prices were astonishingly low.
 
-From this, Lingao's Australians were potential partners, not enemies—the Dutch feared powers with strong naval forces. Destroying or squeezing out naval rivals to monopolize routes was their consistent aim.
+Viewed from this perspective, Lingao's Australians were potential trading partners rather than enemies. The Dutch feared only powers with strong naval capabilities. Destroying or squeezing out maritime rivals to monopolize trade routes was their consistent strategy.
 
-Lingao didn't fit this. Although reports said Australians had a navy, including a castle-like iron ship, no one had seen the iron ship move. So De Carpentier thought it was either a rumor or the ship was immobile, not a threat.
+Lingao did not fit that threat profile. Although reports mentioned an Australian navy—including a castle-like iron ship—no one had actually witnessed this iron vessel move. De Carpentier therefore concluded it was either rumor or an immobile hulk, not a genuine threat.
 
-This was a key concern for the Governor. As the Sea Coachman, he knew the potential threat of a super-ship. If it could sail, it was a massive threat, and its cargo capacity would be unimaginable.
+This question was the Governor's chief concern. As a "Sea Coachman," he understood the potential threat of a super-ship better than most. If such a vessel could actually sail, it represented an enormous danger, and its cargo capacity would be virtually unimaginable.
 
-"...About the big iron ship, it exists." Savanchi Gonzalez said. "Many merchants and sailors who've been to Bopu confirm it. Li Siya says it exists too."
+"...About the great iron ship—it does exist." Savanchi Gonzalez's words interrupted the Governor's thoughts. "Many merchants and sailors who've visited Bopu confirm it. Li Siya says the same."
 
 (End of Chapter)

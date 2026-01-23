@@ -1,6 +1,6 @@
 # Chapter 584 - East Gate Market Travels
 
-That evening, Yang Shixiang's family banquet was quite refined—not a showy "five-five feast" with impractical decorations. Twelve small dishes for drinks, plus ten hot dishes. Local flavors blended with Guangdong official cuisine style, creating something distinctive. Though Li Luoyou sampled sparingly, he found the flavors quite pleasant.
+That evening, Yang Shixiang's family banquet was quite refined—not the showy "five-five feast" with its impractical decorations, but twelve small dishes for drinks and ten hot dishes. Local flavors blended with Guangdong official cuisine style, creating something distinctive. Though Li Luoyou sampled sparingly, he found the flavors quite pleasant.
 
 After dinner came tea and fruit. Two singing girls—gifts from Yang Shiyi—kept them company, singing and playing drinking games. Though Quark knew nothing of such customs, with women present he grew excited, grinning foolishly and shouting approval. That night he even shamelessly asked Saoye if he could get a woman to sleep with—much to everyone's disdain.
 
@@ -8,21 +8,21 @@ Exhausted from traveling, Li Luoyou rose very late the next day, only getting up
 
 The steward smiled: "The area is very peaceful. Please enjoy yourselves as you wish." He quickly called out: "Prepare the carriage!"
 
-Li Luoyou had ridden mule carts in the capital—nearly shaking his organs loose. Hearing about carriage travel, his brow already furrowed. Saoye quickly went to speak quietly with the steward.
+Li Luoyou had ridden mule carts in the capital—an experience that nearly shook his organs loose. Hearing about carriage travel, his brow already furrowed. Saoye quickly went to speak quietly with the steward.
 
 "No problem," the steward said. "This is an Australian carriage, not a northern saddle cart. More comfortable than an open sedan chair."
 
-The carriage was naturally a Red Flag, though the design had been improved: more leaf springs, ball bearings on the axles, and refined interior. The exterior was finely decorated by Zizhen Studio's skilled craftsmen from Guangdong—elegant yet luxurious.
+The carriage was naturally a Red Flag, though the design had been improved: more leaf springs, ball bearings on the axles, and a refined interior. The exterior was finely decorated by Zizhen Studio's skilled craftsmen from Guangdong—elegant yet luxurious.
 
 With limited horses, only two such carriages had been built. They weren't for daily use—only for diplomatic receptions.
 
-"This resembles European carriages." Li Luoyou sat inside, his rear on the yielding spring cushion—factory-wound springs that weren't quite industrial grade but worked for sofas.
+"This resembles European carriages." Li Luoyou sat inside, his rear on the yielding spring cushion—factory-wound springs that weren't quite industrial grade but worked well for sofas.
 
-"Lighter and more comfortable than English carriages." Quark examined the interior. "Inside it's like the cool sedan chairs we rode."
+"Lighter and more comfortable than English carriages," Quark said, examining the interior. "Inside it's like the cool sedan chairs we rode."
 
 Due to Lingao's hot weather, this carriage didn't use the velvet and satin of the first Red Flag. Instead: cool, smooth bamboo, rattan, and gauze.
 
-Glass windows were set in frames with green gauze screens, plus fine bamboo blinds for shade. Inside, besides two facing rows of seats, were small side stools designed for Ming conditions. Carriages moved fast; servants and maids couldn't walk alongside like with sedan chairs. But having them share seats with their master was unthinkable—hence these two small stools.
+Glass windows were set in frames with green gauze screens, plus fine bamboo blinds for shade. Besides two facing rows of seats, there were small side stools designed for Ming conditions. Carriages moved fast; servants and maids couldn't walk alongside like with sedan chairs. But having them share seats with their master was unthinkable—hence these two small stools.
 
 Saoye sat on one. Suddenly his eyes lit up: "Master, this carriage is truly remarkable!"
 
@@ -34,11 +34,13 @@ One flask held hot water; the larger one was filled with crushed ice. Besides wa
 
 "What does it taste like?" Li Luoyou teased.
 
-"Sweet and sour, with a strange fragrance." Quark smacked his lips. "Quite good."
+"Sweet and sour, with a strange fragrance," Quark smacked his lips. "Quite good."
 
-After gulping down a bottle of kombucha, Quark felt like drinking. But there was no rum in the cabinet—making the Englishman cry "stingy!"
+After gulping down a bottle of kombucha, Quark felt like drinking more. But there was no rum in the cabinet—making the Englishman cry "stingy!"
 
-The carriage left the county town and onto the main road. The weather was fine—neither too hot nor too cool, with favorable winds and timely rains. Farmers were in their fields; workers and merchants walked or pushed carts and carried loads. The road was bustling with travelers. The two-horse carriage rolled grandly down the center of the road; people pointed and stared. Li Luoyou pretended not to notice, sitting steadily. Inwardly he regretted that traveling this way was too conspicuous!
+---
+
+The carriage left the county town and rolled onto the main road. The weather was fine—neither too hot nor too cool, with favorable winds and timely rains. Farmers were in their fields; workers and merchants walked or pushed carts and carried loads. The road was bustling with travelers. The two-horse carriage rolled grandly down the center of the road as people pointed and stared. Li Luoyou pretended not to notice, sitting steadily, though inwardly he regretted that traveling this way was too conspicuous.
 
 Shortly the carriage stopped. The steward climbed down from the driver's seat to report: they'd arrived at East Gate Market.
 
@@ -56,13 +58,15 @@ Quark involuntarily crossed himself.
 
 "Gentlemen, this way please."
 
-East Gate Market's prosperity quickly captivated them. It couldn't compare to Guangzhou or Foshan in bustling activity. But the orderly buildings and level roads were unprecedented. The atmosphere far surpassed Guangzhou or Foshan a hundredfold. The road surface was spotless—not just no garbage, not even a fruit peel—and no puddles. The roadside trees, though small, already provided some shade.
+---
+
+East Gate Market's prosperity quickly captivated them. It couldn't compare to Guangzhou or Foshan in bustling activity, but the orderly buildings and level roads were unprecedented. The atmosphere far surpassed Guangzhou or Foshan a hundredfold. The road surface was spotless—not just no garbage, not even a fruit peel—and no puddles. The roadside trees, though small, already provided some shade.
 
 Puzzling were the poles along the street, topped with iron-framed glass covers.
 
 "What are those?" Li Luoyou asked.
 
-"Street lamps." The steward answered.
+"Street lamps," the steward answered.
 
 Li Luoyou had guessed as much. But lined up along the main street—such extravagance was perhaps only seen in the palace. He'd heard eunuchs in the capital mention that the palace's eternal lanes had stone lanterns lit every night.
 
@@ -74,11 +78,11 @@ True crops were impossible to count. But fake crops were many. Careful observati
 
 Those with brimmed hats, belts, and short swords were soldiers; those in rattan helmets with open shirts and rolled sleeves were probably workshop craftsmen; those in straw hats with rolled-up trousers were obviously farmers. The final category—neatly dressed, buttons all fastened, often carrying bags—Li Luoyou couldn't identify. He asked the steward.
 
-"Those are Australian clerks." The steward said. "They handle affairs and governance for the Australians."
+"Those are Australian clerks," the steward said. "They handle affairs and governance for the Australians."
 
 "Secretary-type people then—like yamen clerks." Li Luoyou nodded.
 
-"Yes and no." The steward said. "It's complicated. Just these clerks have many ranks—they call them 'cadres' internally. Among those, there are still more distinctions that outsiders like us can't figure out. But you can see, sir—any 'cadre' has four pockets on their jacket. Regular clerks have only two below."
+"Yes and no," the steward said. "It's complicated. Just these clerks have many ranks—they call them 'cadres' internally. Among those, there are still more distinctions that outsiders like us can't figure out. But you can see, sir—any 'cadre' has four pockets on their jacket. Regular clerks have only two below."
 
 Looking around, indeed that was so. Li Luoyou nodded, then suddenly noticed women wearing similar clothes.
 
@@ -86,7 +90,7 @@ Looking around, indeed that was so. Li Luoyou nodded, then suddenly noticed wome
 
 "Indeed." The steward reported this as news. "Australians don't distinguish between men and women. Women can be officials and managers. Some factories and workshops only hire female workers. A few female clerks aren't strange."
 
-The beggars and ruffians common in prosperous markets were entirely absent here. Not even street performers or martial artists. Li Luoyou thought it strange—had they specially cleaned up because he was coming? He couldn't imagine having such importance.
+The beggars and ruffians common in prosperous markets were entirely absent here. Not even street performers or martial artists. Li Luoyou found it strange—had they specially cleaned up because he was coming? He couldn't imagine having such importance.
 
 They simply strolled through the market. Many shops lined the streets with every kind of merchandise. Li Luoyou entered a few at random—nothing unexpected. The Australian goods sold here were available in Guangzhou too. But the buildings made a deep impression.
 
@@ -116,11 +120,11 @@ On the third-floor gallery hung a large signboard—black with gold-leaf charact
 
 Li Luoyou asked the steward what "Cooperative" meant.
 
-"I don't know either." The steward said—probably an Australian name.
+"I don't know either," the steward said—probably an Australian name.
 
 The central atrium had a circular counter staffed by five or six blue-skirted female clerks—these were in their mid-twenties, attractive. Each had a small box-like device before her. When customers came, the clerks pressed something on it, producing a clear "ding"—then a drawer popped out. Li Luoyou watched, fascinated but confused.
 
-"That's for collecting money." The steward explained. "Money goes in that drawer."
+"That's for collecting money," the steward explained. "Money goes in that drawer."
 
 Li Luoyou didn't understand the point of this, and the steward didn't know either. But the Australians seemed to love this device—everywhere money was collected, they used these drawer-popping boxes.
 
@@ -128,15 +132,15 @@ Beyond the counter, more female clerks stood throughout the atrium, approaching 
 
 "My my," young Gu Baocheng, who'd never seen such a display, blushed. "This doesn't seem like a proper establishment."
 
-"It's a kind of business strategy." Li Luoyou saw it differently. "Without real valuable goods, a few women won't help."
+"It's a kind of business strategy," Li Luoyou said, seeing it differently. "Without real valuable goods, a few women won't help."
 
-"The shop manager is actually an Australian woman, so all the clerks are women." The steward added with interest.
+"The shop manager is actually an Australian woman, so all the clerks are women," the steward added with interest.
 
 "Oh? Quite a remarkable woman."
 
 "Indeed! Her business ideas are one better than the next. Look at this shop—from construction, to hiring, to setting rules... all her doing."
 
-"I'd like to meet her sometime." Li Luoyou said.
+"I'd like to meet her sometime," Li Luoyou said.
 
 No sales counters in the shop—only display cases with glass fronts showing various goods: visible but not touchable. Each item had a stiff card noting prices—three types: retail, wholesale by case, and batch. "Bulk" said "negotiable."
 
@@ -148,7 +152,7 @@ Customers selected from the display cases; clerks wrote tickets on the spot; cus
 
 Quark asked: "If the actual goods don't match the samples?"
 
-"Impossible. Quality here is guaranteed." The steward said. "Australian goods' greatest advantage is consistent quality. Whatever the sample looks like, the goods look exactly the same. Even if there's any difference, it's microscopic."
+"Impossible. Quality here is guaranteed," the steward said. "Australian goods' greatest advantage is consistent quality. Whatever the sample looks like, the goods look exactly the same. Even if there's any difference, it's microscopic."
 
 He then asked: "What's this 'yuan' in the prices? I notice payment isn't in silver or copper coins."
 
@@ -156,9 +160,9 @@ He then asked: "What's this 'yuan' in the prices? I notice payment isn't in silv
 
 After the steward explained circulation notes and showed him the actual paper money, Li Luoyou fell into deep thought. Today's sights had brought many shocks, but none compared to circulation notes.
 
-Li Luoyou was no economist; he didn't understand monetary economics. But his merchant's mind understood perfectly the difficulty of promoting paper currency—and the enormous benefits once successful.
+Li Luoyou was no economist; he didn't understand monetary theory. But his merchant's mind understood perfectly the difficulty of promoting paper currency—and the enormous benefits once successful.
 
-Throughout Ming, coin minting had been neglected. People suffered from currency shortage and circulation difficulties. Private casting of small, debased coins was rampant; even officials didn't prohibit it. Token currencies similar to circulation notes existed locally, but never on such a scale. From the steward he learned the Australians had strict systems for note use and exchange, with a special granary for management—these practices were beyond mere expedient solutions to coin shortage.
+Throughout Ming, coin minting had been neglected. People suffered from currency shortage and circulation difficulties. Private casting of small, debased coins was rampant; even officials didn't prohibit it. Token currencies similar to circulation notes existed locally, but never on such a scale. From the steward he learned the Australians had strict systems for note use and exchange, with a special granary for management—these practices went far beyond mere expedient solutions to coin shortage.
 
 The Australians' elaborate efforts to promote circulation notes here—such ambition! This was clearly not just about settlement and trade. Li Luoyou added another layer of doubt.
 

@@ -1,97 +1,97 @@
 # Chapter 1134 - Li Siya
 
-In Anping Harbor, many ships awaited departure. Most were Guangzhou-style and Fujian-style junks of various sizes, interspersed with a few Western-style sailing vessels. The harbor bristled with masts.
+Anping Harbor bristled with masts. Ships of every description awaited departure: Guangzhou-style and Fujian-style junks of various tonnages, interspersed with a handful of Western-rigged sailing vessels.
 
-In an inconspicuous corner of the dock, an unremarkable medium-sized Guangzhou junk was moored. Its waterline sat deep, as if fully loaded with cargo, awaiting departure.
+In an inconspicuous corner of the dock, an unremarkable medium-sized Guangzhou junk rode at anchor. Its waterline sat deep, as though laden with cargo, ready to sail.
 
-Sailors were scattered casually across the deck, looking quite relaxed. But below deck, a secret meeting was underway.
+Sailors lounged across the deck with studied indifference. But below, in the darkness of the hold, a secret meeting was underway.
 
-In the dark, foul-smelling cargo hold that had been emptied, two chairs had been placed. On one sat a young woman wrapped in a black cloak, its hood covering her head, her face nearly lost in shadow. Only her voice revealed she was a young woman.
+The cargo space had been emptied of goods. Two chairs occupied the reeking darkness. On one sat a young woman wrapped in a black cloak, its hood drawn low over her face until only shadows remained. Only her voice betrayed her youth.
 
-Sitting opposite her was a man also wearing a cloak. From the scant light entering through the hatch, it was clear that despite his grime-covered face, he wasn't old. He similarly seemed afraid of being recognized, covering his face with a corner of his cloak.
+Opposite her sat a man, similarly cloaked. What little light filtered through the hatch revealed a grimy face that was nonetheless not old. He too seemed wary of recognition, keeping a fold of fabric drawn across his features.
 
-"I have a job for you. Listen carefully," the man said.
+"I have a job for you," the man said. "Listen carefully."
 
-"I'm all ears," the woman replied.
+"I'm listening."
 
-"A large Fujian junk carrying Taiwan-bound migrants is anchored below Anping Battery. This ship sets sail for Bengang at dawn tomorrow."
+"A large Fujian junk carrying Taiwan-bound migrants is anchored below Anping Battery. She sails for Bengang at dawn."
 
-"So I must board that ship tonight?"
+"So I must board tonight?"
 
-"Immediately—meaning you depart as soon as you agree. This evening, this ship will unload cargo. Some of it will be transferred to that ship—you'll slip across during the unloading."
+"Immediately—meaning you depart the moment you agree. This evening, cargo will be transferred from this ship to that one. You'll slip across during the transfer."
 
-"Very well. Now tell me about the mission you're giving me."
+"Very well. Tell me about the mission."
 
-"Your mission is simple: make the Dutch and the Australians enemies—bring them to blows."
+"Your mission is simple: make the Dutch and the Australians into enemies. Bring them to blows."
 
-"The simpler the mission, the harder it is." The woman commented. "How much time do I have?"
+"The simpler the mission, the harder the execution." The woman's voice carried a note of dry amusement. "How much time do I have?"
 
-"The sooner the better." The man said. "His Lordship hopes within three or four months."
+"The sooner the better. His Lordship hopes for results within three or four months."
 
-"That's too difficult," the woman said.
+"That's too difficult."
 
 "Three thousand taels of silver."
 
-The woman refused outright: "Five thousand taels."
+"Five thousand."
 
-"Three thousand five hundred taels." The man raised the offer.
+"Three thousand five hundred."
 
-"Five thousand taels. Not a *qian* less."
+"Five thousand. Not a *qian* less."
 
-"Three thousand eight hundred taels, maximum—plus a year's free use of a pass flag for your ship." This flag was quite valuable; selling it at a discount to any merchant would net at least a thousand taels.
+"Three thousand eight hundred, maximum—plus a year's free use of a pass flag for your ship." The flag was valuable; sold at discount to any merchant, it would fetch at least a thousand taels.
 
-"Four thousand taels, plus the flag. That's the price."
+"Four thousand, plus the flag. That is the price."
 
-"Deal."
+"Done."
 
 ---
 
-"A thousand taels up front," the woman said. "The rest after completion."
+"A thousand taels up front," the woman said. "The balance upon completion."
 
-"No problem." A smile appeared on the man's face. "My elder brother said you're a jaw-dropping marvel of a woman—you certainly won't disappoint us this time."
+"No problem." A smile flickered across the man's face. "My elder brother said you are a jaw-dropping marvel of a woman. I trust you won't disappoint us."
 
-"You flatter me." Though her face was invisible, one could sense she was smiling radiantly. "Please convey to His Lordship the General that I'm willing to serve him wholeheartedly."
+"You flatter me." Though her face remained hidden, one could sense her radiant smile. "Please convey to His Lordship the General that I am willing to serve him wholeheartedly."
 
-"Then I await good news." The man gave a restrained laugh.
+"Then I await good news." The man gave a low, restrained laugh.
 
-The ship rocked slightly. Light from the hatch swept across her cheek—it was Li Siya.
+The ship rocked gently. Light from the hatch swept briefly across her cheek—it was Li Siya.
 
-She looked somewhat fuller than before, with fine wrinkles at the corners of her eyes. Years of maneuvering among great powers at sea had worn away at a woman's beauty.
+She looked somewhat fuller than before, with fine lines at the corners of her eyes. Years of maneuvering among the great powers of the sea had worn away at a woman's beauty.
 
-Li Siya didn't lack money, nor did she have ambitions requiring large investments. Adventure and intrigue were her entertainment—she reveled in them.
+Li Siya did not lack money, nor did she harbor ambitions requiring vast capital. Adventure and intrigue were her entertainment—she reveled in the game.
 
-She didn't particularly hate or resent the Australians, though she felt a vague irritation toward them—because she hadn't received their attention: whether admiration, appreciation, or hatred. Li Siya always felt that, having played so many tricks on the Australians, incited various powers against them, and even kidnapped one of their leaders, they should hate her to the bone. But so far, the Australians showed no sign of viewing her with any special enmity.
+She did not particularly hate the Australians, though she felt a vague irritation toward them. It stemmed not from any injury, but from their indifference. Having played so many tricks on them, having incited various powers against them, having even kidnapped one of their leaders, she felt they ought to hate her to the bone. Yet the Australians showed no sign of regarding her with any special enmity.
 
-Of course, her interest in the Australians went far beyond this. Since connecting her younger sister with the Australians, she'd obtained much firsthand material. But the question that interested her most—what exactly was the "Proof of the Seven Seas' Hegemon"—had yielded not a single clue.
+Of course, her interest in them ran far deeper than wounded pride. Since connecting her younger sister with the Australian enterprise, she had obtained much firsthand intelligence. But the question that consumed her—what exactly was the "Proof of the Seven Seas' Hegemon"—remained utterly unanswered.
 
-Even the Committee members who had the most contact with Li Huamei, in naval and trade matters, had never let slip a word. Li Huamei didn't dare speak this phrase before them, fearing it might alert them. Though she needn't be so careful with ordinary sailors and soldiers, these people knew nothing about it.
+Even the Committee members who had the most contact with Li Huamei, in naval and trade matters, had never let slip a word. Li Huamei dared not utter the phrase in their presence, fearing to alert them. And while her milk-sister could speak freely with ordinary sailors and soldiers, those common folk knew nothing of such matters.
 
-Regardless, what was called the "Proof of the Seven Seas' Hegemon" sounded related to the navy, and the Australians' naval power was well known. Through her milk-sister, Li Siya could obtain information about many strange new devices the Australians equipped. She speculated these might be proof of some kind of recognition, or some kind of authority.
+Regardless, anything called the "Proof of the Seven Seas' Hegemon" surely related to naval power, and the Australians' maritime strength was legendary. Through her sister, Li Siya obtained information about the strange new devices the Australians equipped—weapons and instruments beyond anything in this age. She speculated these might be proof of some recognition, or some form of authority.
 
-The Australians had very likely already obtained the "Proof of the Seven Seas' Hegemon"! She thought this, and once personally sailed south into the Southern Sea, pressing toward even more southern waters to explore, trying to find traces of the Australians' northward journey.
+The Australians had very likely already obtained this "Proof"! Convinced of this, she had personally sailed south into the Southern Sea, pressing toward ever more distant waters, searching for traces of the Australians' northward journey.
 
-But this expedition brought her no new intelligence. Apart from many barren green islands and naked natives, there was nothing. The Dutch navigator she'd hired told her clearly that even sailing all the way south past the Tropic, she wouldn't find any Australia—only some barren large islands.
+But the expedition yielded nothing. Apart from barren green islands and naked natives, there was no trace of any advanced civilization. The Dutch navigator she had hired told her plainly that even sailing past the Tropic, she would find no Australia—only desolate, scattered landmasses.
 
-After this unsuccessful expedition, Li Siya turned her attention back to Lingao. She realized that, given the Australians' power over the South China Sea, their strength couldn't be contained in any foreseeable future. To truly probe the Australians' depths and the "Proof of the Seven Seas' Hegemon," she'd have to infiltrate people among them. For this purpose, after returning from her overseas voyage, she'd begun preparations.
+After this fruitless voyage, Li Siya redirected her attention to Lingao itself. She had come to accept that, given the Australians' dominion over the South China Sea, their strength could not be contained in any foreseeable future. To truly probe their depths and uncover the "Proof of the Seven Seas' Hegemon," she would have to infiltrate their ranks. Since returning from her overseas journey, she had devoted herself to this preparation.
 
-In the expansion following their victories, it would be easy to infiltrate the Australians' ranks as merchants or defectors to gather intelligence. She wanted to know:
+The Australians were expanding rapidly in the wake of their victories. Infiltrating their organization as merchants or defectors would be simple enough. She wanted to know:
 
-The secret of the Australians' powerful devices and the "Proof of the Seven Seas' Hegemon," and if possible, how to obtain this power and proof. The Australians' origins and intentions: why they'd abandoned the homeland that had given them such power to come here, and what goals they sought to achieve. The Australians hadn't explicitly stated they wanted to conquer the mainland, but many people were watching them. Li Siya hoped to use this to judge their next moves and exploit them.
+The secret of the Australians' powerful devices. The nature of the "Proof of the Seven Seas' Hegemon," and if possible, how to obtain this power. The Australians' origins and true intentions: why had they abandoned the homeland that had granted them such capabilities to come here, and what goals did they pursue? They had never explicitly declared their intention to conquer the mainland, but many powers watched them warily. Li Siya hoped to divine their next moves and exploit them accordingly.
 
-Her milk-sister had already connected with them as a merchant, but merchants weren't highly valued. Especially given Li Huamei's background, which made them perpetually wary of her. For her to gain further trust, she'd have to make greater contributions to the Australians—or have greater utility.
+Her milk-sister had already established herself as a merchant trading with the Australians, but merchants were not highly valued. Given Li Huamei's known background, the Australians remained perpetually wary of her. For her to gain further trust, she would have to render greater services—or demonstrate greater utility.
 
-But this couldn't happen overnight, and they were very shrewd. Such opportunities wouldn't come easily. So she'd thought of another approach.
+But such opportunities could not be manufactured overnight. The Australians were shrewd; they would not be easily deceived. So Li Siya had conceived another approach.
 
-She'd learned from her milk-sister that the Australians were searching for women meeting certain criteria as their servants—their so-called servants were really concubines. Though the Australians' aesthetic tastes differed greatly from Ming gentlemen's, from the various criteria they'd specified, these servants' purposes were obvious.
+She had learned from her sister that the Australians were actively seeking women meeting certain criteria as personal servants—their "servants" being, in truth, concubines. Though Australian aesthetic preferences differed markedly from those of Ming gentlemen, the various specifications they had provided made the true purpose obvious.
 
-Therefore, finding women who precisely met their criteria and sending them to Lingao was the best method. She could control these women by holding their families hostage.
+Therefore, finding women who precisely matched their criteria and sending them to Lingao offered an ideal method of infiltration. She could control these women by holding their families hostage.
 
-Men were most relaxed and least guarded in bed. With beloved women, they might say anything to show off. Even if they didn't, casual remarks overheard on ordinary days would yield far more intelligence than Li Huamei obtained.
+Men were most relaxed and least guarded in bed. With beloved women, they might say anything to impress. And even if they held their tongues, casual remarks overheard on ordinary days would yield far more intelligence than Li Huamei could ever obtain.
 
-Besides servants, the Australians' massive recruitment of refugees and sailors was also an excellent entry point. Ordinary refugees were useless, but they were very interested in orphan teenagers around ten years old. Reportedly, after extensive absorption and education, many positions were staffed by youths. These children would inevitably become the Australians' trusted personnel, able to obtain considerable intelligence.
+Besides servants, the Australians' massive recruitment of refugees and sailors presented another avenue of entry. Ordinary refugees were useless, but the Australians showed particular interest in orphaned teenagers around ten years old. Reportedly, after intensive education and absorption into Australian culture, many such youths now held positions of responsibility. These children would inevitably become trusted personnel, capable of accessing considerable intelligence.
 
-Before all this, creating some chaos for the Australians would please her greatly—as the saying goes, murky waters yield more fish. If the Australians clashed with the Dutch and lost some personnel, perhaps they'd become less selective in recruitment. Moreover, in this scheme orchestrated by the Zheng family, she had her own plan. If successful, she'd be one step closer to the Australians' secrets.
+Before all else, however, creating some chaos for the Australians would please her greatly—as the saying goes, murky waters yield more fish. If the Australians clashed with the Dutch and lost personnel, perhaps they would become less selective in their recruitment. Moreover, within this scheme orchestrated by the Zheng family, Li Siya had her own design. If successful, she would be one step closer to the Australians' secrets.
 
-Zheng Zhilong was currently no match for the Australians—this was Li Siya's judgment. Their eagerness to incite conflict between the Dutch and Australians reflected their lack of confidence in their own strength. Of course, Liu Laoxiang's existence also prevented them from acting freely.
+Zheng Zhilong was currently no match for the Australians—this was Li Siya's assessment. The Zheng family's eagerness to incite conflict between the Dutch and Australians revealed their lack of confidence in their own strength. Of course, Liu Laoxiang's existence also prevented them from acting freely.
 
 (End of Chapter)

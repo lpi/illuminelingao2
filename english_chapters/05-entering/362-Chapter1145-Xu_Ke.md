@@ -1,99 +1,99 @@
 # Chapter 1145 - Xu Ke
 
-Though before a peer of the same sex, undressing still made Cleadia slightly shy. She removed her stays, still wearing her chemise. Fortunately, Zhong Xiaoying didn't go "stark naked" either, wearing a nightgown.
+Though she stood before a peer of the same sex, undressing still made Cleadia somewhat shy. She removed her stays but kept her chemise. Fortunately, Zhong Xiaoying hadn't gone "stark naked" either—she wore a nightgown.
 
-"Come on," she whispered. "Let's be quiet; everyone else is asleep."
+"Come on," Zhong Xiaoying whispered. "We must be quiet—everyone else is asleep."
 
-Cleadia's cheeks burned—she felt her heart racing, feeling doubly ambiguous. For a moment she even doubted if she should follow her to the bathroom.
+Cleadia felt her cheeks burn and her heart race, the moment charged with an ambiguity she couldn't quite name. For an instant, she even wondered whether she ought to follow her friend to the bathroom at all.
 
-The bathroom inside wasn't large, with over ten open-sided stalls along the wall. Walls and floor were tiled, with drainage troughs on the floor. Along the wall were long wooden benches for scrubbing. People used this daily, so there were water stains on the floor.
+The bathroom wasn't large. Over ten open-sided stalls lined the wall, their surfaces tiled from floor to ceiling. Drainage channels ran along the floor. Wooden benches for scrubbing stood against the walls. People used the facility daily, so water stains marked the tiles.
 
-"Come on, take off your clothes and rinse first." Zhong Xiaoying handed her the small rattan basket.
+"Take off your clothes and rinse first." Zhong Xiaoying handed her a small rattan basket.
 
-"This is a towel, this is soap—infused with lavender essential oil, special supply for Committee members. And this glass bottle is for washing hair, also lavender scented. It makes hair soft and clean." Zhong Xiaoying looked at her curly blonde hair. "Your hair is so beautiful!"
+"This is a towel, and this is soap—infused with lavender essential oil, special supply for Committee members only. And this glass bottle is for washing your hair, also lavender-scented. It leaves hair soft and clean." Zhong Xiaoying studied her golden curls. "Your hair is so beautiful!"
 
-"Your long black hair is also very pretty," Cleadia said, but hesitated to undress.
+"Your long black hair is lovely too," Cleadia replied, but she hesitated to undress.
 
-Zhong Xiaoying knew she was embarrassed and turned away. "I'll wait over here. Rinse off, then come sit down; I'll help scrub your back."
+Zhong Xiaoying understood her embarrassment and turned away. "I'll wait over here. Rinse off, then come sit down—I'll scrub your back."
 
-Face burning, Cleadia stripped off her chemise like a thief, hurriedly hid in a stall, turned on the tap, and quickly started washing.
+Face burning, Cleadia shed her chemise as though committing theft, darted into a stall, opened the tap, and began washing as quickly as she could.
 
-She washed several times in succession before bracing herself to lie on the wooden bench in front of Zhong Xiaoying, letting Zhong Xiaoying scrub her body.
+She rinsed herself several times before steeling herself to lie down on the wooden bench in front of Zhong Xiaoying, surrendering to her ministrations.
 
-"I'm using a loofah; it hurts a little."
+"I'm using a loofah—it may sting a little."
 
-"It's okay, I can bear it," Cleadia whispered.
+"It's all right. I can bear it," Cleadia whispered.
 
-Zhong Xiaoying scrubbed and rubbed with the loofah, soaping and rinsing. With great difficulty, she scrubbed off the grime accumulated on Cleadia over months, rubbing her whole body red. Under the alternating rub of loofah and soap, Cleadia's body tensed and relaxed intermittently. Her face flushed, eyes tight shut, teeth clenched, she let herself be manipulated. Yet occasionally she couldn't help emitting "mm-mm ah-ah" sounds.
+Zhong Xiaoying scrubbed and rubbed with the loofah, applied soap, and rinsed again. With considerable effort, she scoured away the grime that had accumulated on Cleadia over months, leaving her entire body flushed red. Under the alternating friction of loofah and soap, Cleadia's body tensed and relaxed by turns. Her face flamed crimson; her eyes pressed shut; her teeth clenched. She surrendered to the scrubbing, yet occasionally couldn't suppress a soft "mm" or "ah."
 
-Only when another scoop of clear water rinsed over her did she hear Zhong Xiaoying's slightly tired voice: "Alright, get up."
+Only when another scoop of clear water cascaded over her did she hear Zhong Xiaoying's slightly breathless voice: "All right. Get up."
 
-Cleadia hurriedly sat up, wet blonde hair draped over her chest, cheeks crimson, blue eyes misty as if veiled in vapor. Lips bright as blood, her curved body white tinged with pink—Zhong Xiaoying stared blankly for a moment, throat dry, and quickly looked away.
+Cleadia sat up hastily. Wet blonde hair hung in damp curtains across her chest. Her cheeks were scarlet, her blue eyes misty, as though veiled in steam. Her lips gleamed bright as blood, her curved figure white tinged with pink. Zhong Xiaoying stared for a moment, throat suddenly dry, and quickly looked away.
 
-Zhong Xiaoying secretly felt it a pity. Although white women with blue eyes, blonde hair, and snow-white skin had a different charm compared to Han women, their skin felt rough to the touch, with many bumps and unevenness. After washing away the body odor and grime, there was still a faint fox-like smell—even lavender soap couldn't mask it.
+Privately, Zhong Xiaoying felt a twinge of something like disappointment. Though fair-skinned women with blue eyes, golden hair, and snow-white complexions possessed a different kind of allure than Han women, their skin felt rough to the touch, marked by bumps and unevenness. And even with the body odor and grime washed away, a faint, foxy musk lingered—even lavender soap couldn't fully mask it.
 
-"Alright, let's go get dressed." Zhong Xiaoying feigned calm, helping her up. The soap slipped from her hand; she hurriedly bent to pick it up. In her haste, her foot slipped, and she felt her cheek pressed tightly against a firm, elastic object. Her face flushed scarlet.
+"Come, let's get you dressed." Zhong Xiaoying affected a calm tone and helped her up. The soap slipped from her grasp; she stooped hurriedly to retrieve it, but in her haste, her foot skidded, and she felt her cheek press firmly against something soft yet resilient. Her face went scarlet.
 
-Stabilizing herself, she saw Cleadia's face was also full of shyness. Without a word, the two went into the changing room.
+Steadying herself, she saw that Cleadia's face was equally flushed. Without a word, the two made their way to the changing room.
 
-With Zhong Xiaoying's help, Cleadia changed clothes. These were specially chosen by Zhong Xiaoying, new clothes Dr. Zhong had bought for her. Their figures were similar in height and build, only Cleadia was fuller than Zhong Xiaoying, so it was somewhat tight.
+With Zhong Xiaoying's assistance, Cleadia changed clothes. These were garments Zhong Xiaoying had chosen herself—new clothes that Dr. Zhong had bought for her. Their builds were similar in height and proportion, though Cleadia was fuller than Zhong Xiaoying, so the fit was somewhat snug.
 
-Some clothes Cleadia had never seen—she'd never worn a brassiere. As Zhong Xiaoying helped her dress, she taught the method: leaning forward to fit breasts into cups, then fastening, adjusting straps. During accidental touches of tender, sensitive skin, Cleadia couldn't help a few soft gasps.
-
-Early next morning, Dr. Zhong got up and found his daughter, usually up earlier than him, still in deep sleep. He washed up and went to the kitchen to make breakfast, encountering Westerly in the hallway.
-
-"Morning, Westerly."
+Some of the garments were utterly foreign to Cleadia—she had never worn a brassiere before. As Zhong Xiaoying helped her dress, she demonstrated the technique: lean forward to settle the breasts into the cups, then fasten and adjust the straps. When her fingers accidentally grazed tender, sensitive skin, Cleadia couldn't help but gasp softly.
 
 ---
 
-"Morning, Dr. Zhong," Westerly said. "Has Miss Zhong gone to the kitchen?"
+Early the next morning, Dr. Zhong rose to find his daughter—who was usually awake before him—still deep in slumber. He washed up and went to the kitchen to prepare breakfast, encountering Westerly in the hallway.
 
-"She's still resting; perhaps too tired these days," Zhong Lishi said.
+"Good morning, Westerly."
 
-"Oh, Cleadia is sleeping too," Westerly said. "We'll go to the construction site after breakfast."
+"Good morning, Dr. Zhong." Westerly smiled. "Has Miss Zhong gone to the kitchen already?"
 
-At this time, less than three hundred meters from Customs, stood a prefabricated wooden building. Sentries stood guard at the door, but no sign hung there. The louvers on this building's glass windows were always closed; every night, light always shone through the cracks.
+"She's still resting. Perhaps she's overtired from recent days," Zhong Lishi replied.
 
-This was the Kaohsiung Office of the Political Security Bureau and the Kaohsiung Office of the Foreign Intelligence Bureau. The two agencies each occupied half the building, with stairs in the middle.
+"Ah—Cleadia is sleeping too," Westerly said. "We'll head to the construction site after breakfast."
 
-At 7:00 AM, the harbor time whistle blew. Staff inside the office building were working intensely—these two departments operated partially day and night. Operation Engine was running, and Zheng Zhilong's movements in the Taiwan Strait needed constant monitoring. Massive amounts of intelligence and material poured in, keeping everyone busy.
+At that moment, less than three hundred meters from Customs, stood a prefabricated wooden building. Sentries guarded the entrance, but no signboard identified it. The louvers on its glass windows remained perpetually closed; every night, light seeped through the cracks.
 
-Xu Ke came out of his office—as the Foreign Intelligence Bureau's dedicated naval intelligence officer, he had been stationed here since Kaohsiung D-Day. The biggest maritime dangers—the Dutch and Zheng Zhilong—were active in the Taiwan Strait, and the Navy urgently needed intelligence on their activities. Xu Ke had come to Kaohsiung with this mission.
+This was the Kaohsiung Office of the Political Security Bureau facing one half of the building, with the Kaohsiung Office of the Foreign Intelligence Bureau occupying the other. The two agencies were separated by a central staircase.
 
-He had worked all night reading intelligence sent from various coastal locations in Fujian to provide weekly intelligence assessments to the Committee, Military Order Department, and First and Second Fleets. This was a heavy responsibility. Xu Ke had to give it his full attention. Intelligence Bureau agents were scattered across Zheng Zhilong's main operating areas, collecting news on trade goods flow, recruitment, and shipbuilding. Reporting daily dynamic changes of ships in ports.
+At seven o'clock sharp, the harbor whistle sounded. Staff inside the building were already working at a furious pace—these two departments operated around the clock. Operation Engine was in full swing, and Zheng Zhilong's movements in the Taiwan Strait required constant surveillance. Massive quantities of intelligence and material poured in, keeping everyone occupied.
 
-From the current situation, Zheng Zhilong showed no abnormal movements. As he was calculating how to write the report, a guard in the hallway stopped him: "Chief, there's a sailor at the door wanting to see you. He says he's from First Fleet Headquarters, delivering a message to you. Here are his orders credentials."
+Xu Ke emerged from his office. As the Foreign Intelligence Bureau's dedicated naval intelligence officer, he had been stationed here since Kaohsiung D-Day. The greatest maritime threats—the Dutch and Zheng Zhilong—were active in these waters, and the Navy urgently needed intelligence on their activities. Xu Ke had arrived with precisely that mission.
 
-"No need, I'll go to the lobby." Xu Ke wanted fresh air and to let the smoke in his office dissipate.
+He had labored through the night, sifting intelligence dispatched from various coastal stations in Fujian, compiling weekly assessments for the Committee, the Military Order Department, and the First and Second Fleets. The responsibility weighed heavily. Xu Ke had to give it his full attention. Intelligence Bureau agents were scattered across Zheng Zhilong's principal operating areas, monitoring trade flows, recruitment drives, and shipbuilding activity, reporting daily on vessel movements at every port.
 
-In the lobby, a Navy Seaman Apprentice was waiting. Seeing an unfamiliar Chief approach, he immediately stood at attention and saluted.
+From the current intelligence picture, Zheng Zhilong displayed no abnormal activity. As Xu Ke pondered how to frame his report, a guard in the corridor stopped him: "Chief, there's a sailor at the door asking to see you. He says he's from First Fleet Headquarters, bearing a message. Here are his credentials."
 
-The guard introduced, "This is Chief Xu Ke."
+"No need—I'll go to the lobby." Xu Ke wanted fresh air, and his office needed time for the cigarette smoke to dissipate.
 
-"Seaman, business with me?" Xu Ke asked.
+In the lobby, a Navy Seaman Apprentice stood waiting. Seeing an unfamiliar Chief approach, he immediately snapped to attention and saluted.
 
-The messenger conveyed a written order from Navy People's Commissar Ming Qiu: Ordering Xu Ke to report to First Fleet Headquarters immediately.
+The guard introduced him: "This is Chief Xu Ke."
 
-"Go back and report; I'll come right away." Xu Ke dismissed the messenger, secretly wondering. If there was something, Ming Qiu could just call; why send someone specifically with an oral message?
+"Seaman, what business brings you to me?" Xu Ke asked.
 
-Puzzled as he was, although he worked at the Foreign Intelligence Bureau now, his billet was still in the Navy. Ming Qiu was his bona fide department head.
+The messenger conveyed a written order from Navy People's Commissar Ming Qiu: Lieutenant Xu Ke was to report to First Fleet Headquarters immediately.
 
-He hurried to the washroom to wash up. Returning to the office, he was about to put on a cool cotton-linen blend shirt when he suddenly remembered he was seeing Navy leadership. He opened the wardrobe again and took out his tropical Navy Lieutenant uniform. Since being seconded to the Foreign Intelligence Bureau, he hadn't worn the uniform in a long time.
+"Return and report that I'll come at once." Xu Ke dismissed the messenger, privately puzzled. If there was something to discuss, Ming Qiu could simply telephone; why dispatch someone with an oral summons?
 
-First Fleet Headquarters was located in an ordinary barracks building at Cijin Base. A naturalized Navy female Chief Petty Officer wearing clerical insignia was waiting for him at the door: "Lieutenant, I'll take you up; please follow me."
+Puzzling as it was, though Xu Ke now worked at the Foreign Intelligence Bureau, his billet remained with the Navy. Ming Qiu was his direct superior.
 
-To foster a spirit of unity, inside the military, whether Committee member or naturalized citizen, formal occasions required addressing each other by rank or position. Here, the distinction between Chief and naturalized citizen didn't exist.
+He hurried to the washroom to freshen up. Returning to his office, he was about to don a cool cotton-linen blend shirt when he remembered he was reporting to Navy leadership. He opened the wardrobe again and retrieved his tropical Navy Lieutenant uniform. Having been seconded to the Foreign Intelligence Bureau, he hadn't worn it in a long time.
 
-Arriving before the Commissar's office, the Chief Petty Officer said, "Lieutenant, you may go right in. Comrade People's Commissar is waiting for you."
+First Fleet Headquarters was housed in an ordinary barracks building at Cijin Base. A naturalized Navy female Chief Petty Officer wearing clerical insignia awaited him at the entrance: "Lieutenant, I'll escort you upstairs. Please follow me."
 
-"Thank you," Xu Ke replied politely.
+In the spirit of fostering unity, formal occasions within the military required all personnel—whether Committee member or naturalized citizen—to address one another by rank or position. The distinction between "Chief" and naturalized citizen didn't exist here.
 
-Facing the door, Xu Ke adjusted his attire, then knocked.
+Arriving at the People's Commissar's office, the Chief Petty Officer said, "Lieutenant, you may enter. Comrade People's Commissar is expecting you."
 
-"Come in." The office's occupant spoke.
+"Thank you," Xu Ke replied courteously.
 
-"Reporting to the Commissar, Navy Lieutenant Xu Ke, reporting as ordered."
+Facing the door, he adjusted his uniform, then knocked.
 
-Ming Qiu sat in his chair, looking up. He wore a tropical Navy uniform with nothing but branch insignia and rank, looking neat and trim.
+"Enter." The occupant's voice came from within.
+
+"Reporting to the Commissar—Navy Lieutenant Xu Ke, reporting as ordered."
+
+Ming Qiu sat behind his desk and looked up. He wore a tropical Navy uniform bearing nothing but branch insignia and rank tabs, his bearing neat and trim.
 
 (End of Chapter)

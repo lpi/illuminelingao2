@@ -1,97 +1,97 @@
 # Chapter 1046: Occupying Jeongui
 
-"There are stone people!" Nangong Wudi suddenly discovered stone statues standing at the city gate, with very peculiar appearances.
+"Stone people!" Nangong Wudi suddenly noticed statues flanking the city gate, their forms distinctly peculiar.
 
-These were the unique stone statues of Jeju Island: "Dol Hareubang" (Stone Grandfather). They were a manifestation of ancient stone worship.
+These were *Dol Hareubang*—Stone Grandfathers—unique to Jeju Island, a manifestation of ancient stone worship.
 
-However, Nangong Wudi was not a cultural scholar, nor a tourist, so he had little interest in these. After observing the defensive situation on the city wall for a long time, he shouted:
+But Nangong Wudi was neither cultural scholar nor tourist, and the statues held little interest for him. After extended observation of the defensive positions on the wall, he shouted:
 
 "Shikawa!"
 
-"Here!" Shikawa Shuji, who had been promoted to sergeant in the Public Security Army, immediately ran out of the formation. A Public Security Army platoon had been included in the special task force attacking Jeongui County Seat.
+"Here!" Shikawa Shuji, recently promoted to sergeant in the Public Security Army, immediately broke from formation. One of Shikawa's platoons had been attached to the special task force assaulting Jeongui County Seat.
 
-"Take your men and capture the county seat for me within ten minutes."
+"Take your men. Capture this county seat within ten minutes."
 
-"Understood!" Shikawa said crisply.
+"Understood!" Shikawa replied crisply.
 
-Shikawa and his men quickly prepared for battle. He looked at Nangong as if asking for instructions, and seeing the other nod, he abruptly drew his *tachi* (sword), a ferocious look appearing in his eyes: "Fix bayonets!"
+His men prepared rapidly for battle. Shikawa glanced at Nangong, and upon receiving a nod, abruptly drew his *tachi*. A ferocious light ignited in his eyes. "Fix bayonets!"
 
-Following Nangong Wudi raising his *tachi* high and letting out a heart-rending howl: the more than thirty Japanese mercenaries of the Public Security Army's Japanese Company held their Southeast Asia Pattern rifles with gleaming bayonets fixed, howling "Banzai!" at the top of their lungs, and started a "pig charge" (reckless charge) together.
+At his cry, the more than thirty Japanese mercenaries of the Public Security Army's Japanese Company—each gripping a Southeast Asia Pattern rifle with gleaming bayonet attached—howled "*Banzai!*" and launched into what could only be called a "pig charge": a headlong, suicidal rush.
 
-Rushing at the very front was the "Battotai" (Drawn Sword Squad) led by Shikawa, each brandishing a gleaming *tachi*, roaring wildly and charging forward.
+Racing at the very front came the *Battōtai*—the Drawn Sword Squad—led by Shikawa himself. Each man brandished a gleaming *tachi*, roaring wildly as they hurtled forward.
 
-"Suppressive fire." Nangong Wudi ordered.
+"Suppressive fire," Nangong Wudi ordered.
 
-All Minié rifles opened fire at the city wall together, a dense rain of bullets sweeping across the top. After a round of shooting, no Joseon soldiers were left standing on the wall.
+All Minié rifles opened up on the wall, and a dense rain of bullets swept across the ramparts. After a single volley, not one Joseon soldier remained standing atop the fortifications.
 
-The Japanese mercenaries ran quickly across the open ground—there was no moat outside the city, so they approached the foot of the city wall easily. Under the suppressive fire of Minié rifles, not a single feathered arrow was shot from the wall, nor did anyone dare to poke their head out to throw a stone. The mercenaries soon rushed to the foot of the wall. They had no ladders or ropes, but the short and sturdy Japanese soldiers stacked one on top of another, quickly building a human ladder.
+The Japanese mercenaries sprinted across the open ground. With no moat protecting the approach, they reached the base of the wall with ease. Under continuous Minié rifle fire, not a single arrow flew from the defenders, nor did anyone dare raise their head to hurl stones. The mercenaries arrived at the foot of the wall, and the short, sturdy Japanese soldiers immediately began stacking themselves into human ladders.
 
-The first to climb the wall was the Battotai. Only after getting on the wall did they realize how tragic it was—the width of the wall top could at most accommodate one person standing; even two people walking past each other was impossible. If not for the slope right behind, where a misstep would at most mean rolling down, the Japanese mercenaries, who surged up wildly with fierce momentum, would have surely fallen to their deaths.
+The *Battōtai* were first over the top. Only upon gaining the wall did they realize how precarious it was—the walkway could accommodate at most a single person standing; even two passing each other was impossible. Had it not been for the earthen slope immediately behind, where a misstep meant only a tumbling roll rather than a fatal plunge, the wild momentum of the Japanese mercenaries would surely have sent men falling to their deaths.
 
-There were few Joseon soldiers left on the wall. Under the continuous firing of Minié rifles, the low and thin parapets couldn't withstand high-speed bullets. Some soldiers were killed on the spot, while others fully utilized the advantage of the slope and immediately slid down the wall.
+Few Joseon soldiers remained on the wall. Under the sustained fire of Minié rifles, the low, thin parapets offered no protection against high-velocity bullets. Some defenders were killed outright; others exploited the slope's advantage and slid immediately to the ground below.
 
-The bloody battle on the wall that Shikawa imagined did not happen—they faced only dozens of terrified Joseon soldiers with no will to fight. Seeing this group of "Wokou" had already climbed the wall, except for a few officers leading a few soldiers to barely engage and being quickly cut down or stabbed, the rest dispersed in a hubbub.
+The bloody battle Shikawa had anticipated never materialized. They faced only a few dozen terrified Joseon soldiers with no will to fight. A handful of officers led small groups in token resistance before being cut down or bayoneted. The rest scattered in chaos.
 
-In less than ten minutes, the Japanese mercenaries had already captured the city gate. Shikawa swung his *tachi* fiercely to throw off blood drops, led a few men running down the wall, rushed to the city gate, removed the gate bar, and opened the gate, all in one go.
+In less than ten minutes, the Japanese mercenaries had seized the city gate. Shikawa swung his *tachi* in a sharp arc to fling off the blood, then led a squad running down from the wall. They reached the gate, removed the heavy bar, and threw it open—all in one fluid motion.
 
-"Not bad." Nangong Wudi looked at his watch; exactly ten minutes. Although this was expected, the fanaticism displayed by this bunch of mercenaries like Japanese devils was quite something to watch.
+"Not bad." Nangong Wudi checked his watch: exactly ten minutes. Though the outcome had been expected, the fanaticism these mercenaries displayed—reminiscent of Japanese devils from another era—was impressive to witness.
 
-The main force soon entered Jeongui County Seat. How to occupy and loot had already formed a standard procedure in the Planning Commission. The Planning Commission had even compiled a special ISO standard manual to guide the occupation steps of newly captured cities, serving as a course in officer and administrator training. And a special search team under the Planning Commission's jurisdiction was included in every deployed unit to handle the reception, registration, and custody of loot and prisoners.
+The main force soon entered Jeongui County Seat. Occupation and appropriation procedures had long since been standardized by the Planning Commission, which had even compiled a dedicated ISO-standard manual guiding the occupation of newly captured cities. This served as course material in officer and administrator training. Moreover, a specialized search team under Planning Commission jurisdiction accompanied every deployed unit to manage the reception, registration, and custody of loot and prisoners.
 
-The troops entering the city quickly cleared out the stragglers inside. After hoisting a flag written with "Surrender and Spare Death" and constantly broadcasting in Korean with a loudspeaker, the Joseon soldiers who hadn't been killed soon came out from various corners in twos and threes to surrender.
+Troops entering the city quickly cleared out remaining holdouts. After raising a banner inscribed "Surrender and Be Spared" and broadcasting continuously in Korean through a loudspeaker, surviving Joseon soldiers emerged from various corners in twos and threes to lay down their arms.
 
-Due to insufficient troops to surround the entire city, quite a few soldiers and commoners inside jumped off the city walls and fled. Nangong Wudi didn't chase them—this place was an island itself, and it wasn't easy for fugitives to cross the sea to the Korean Peninsula. Except for a few, the majority would eventually fall into their hands.
+With insufficient forces to surround the entire city, considerable numbers of soldiers and civilians escaped by leaping from uncontrolled sections of the wall. Nangong Wudi made no effort to pursue—this was an island, after all, and crossing the sea to the Korean Peninsula would prove no easy feat. Except for a few, the majority would eventually fall into their hands.
 
-Nangong Wudi led his guards and staff officers majestically into the city amidst the tune of "The British Grenadiers" played by fifers and drummers. Unexpectedly, as soon as he stepped into the city gate, he stepped into a mud puddle, splashing mud all over and making his relatively neat uniform filthy.
+Nangong Wudi led his guards and staff officers grandly through the city gate as fifers and drummers played "The British Grenadiers." The moment he stepped inside, however, he planted his foot squarely in a mud puddle, splashing filth across his legs and sullying his relatively neat uniform.
 
-"Damn it." Nangong Wudi cursed—he had actually forgotten: the streets of most cities in this timeline, whether Chinese or foreign, were not paved. Walking with muddy feet was the most normal phenomenon.
+"Damn it." He cursed under his breath—he had forgotten that the streets of most cities in this era, whether Chinese or foreign, remained unpaved. Trudging through mud was the norm.
 
-Chaos occurred briefly in the city, but calm was quickly restored under the rapid suppression of the Public Security Army. Commoners and official slaves originally thought Wokou had come; many jumped down from city walls not controlled by the Fubo Army and fled to the wilderness to hide, while some hid in desolate places within the city. Those who didn't have time to flee could only hide in their houses and resign themselves to fate.
+Brief chaos erupted within the city but was quickly suppressed by the Public Security Army. The commoners and official slaves had assumed *Wokou* had come. Many had fled over sections of wall not controlled by the Fubo Army, scattering into the wilderness to hide. Others concealed themselves in desolate corners within the city. Those unable to escape cowered in their hovels, resigned to fate.
 
-Accompanying civil affairs personnel posted notices to reassure the people, and then constantly broadcast in Korean to calm the people's hearts.
+Accompanying civil affairs personnel posted calming notices and broadcasted continuously in Korean to reassure the population.
 
-Nangong Wudi visited the county seat with interest. Jeongui County Seat looked dilapidated; houses were low buildings with volcanic rock walls and thatched roofs. Even official buildings like the County School (*Hyanggyo*) and Government Office (*Gammyeong*), except for having tiled roofs, were similarly low and small. Basically, a person standing on the ground could touch the eaves by raising a hand.
+Nangong Wudi toured the county seat with interest. Jeongui looked thoroughly dilapidated—houses were squat structures of volcanic rock walls and thatch roofs. Even official buildings like the County School and Government Office, though tile-roofed, remained similarly low and cramped. Standing on the ground, a person could reach the eaves merely by stretching an arm upward.
 
-Ordinary commoners' and official slaves' houses didn't even have floors, just dirt ground. Only the homes of slightly wealthier merchants and officials had raised floors. Because of Jeju Island's geographical environment, the interiors of most houses were very damp and cold.
+Ordinary commoners' and slaves' dwellings lacked even floors—just bare earth inside. Only wealthier merchants and officials enjoyed raised flooring. Due to Jeju Island's geography, most interiors were damp and cold.
 
-The county had a County School, a government granary, and a small market with a few small shops and workshops.
+The county possessed a County School, a government granary, and a small market hosting several shops and workshops.
 
-The shop owners had all fled, leaving only empty shops. Nangong Wudi looked; they were nothing more than sauce shops, general stores, carpenter shops, wine shops, and blacksmith shops—basic commercial handicraft industries indispensable everywhere. However, he did see a very special workshop: a bow and arrow shop.
+The shop owners had all fled, leaving only empty premises. Nangong Wudi inspected them: sauce shops, general stores, carpenter shops, wine shops, blacksmith shops—the basic commercial and handicraft trades found everywhere. One workshop, however, caught his attention: a bow and arrow shop.
 
-The bow and arrow shop was large, empty with no one inside. The stove for roasting bamboo was still lit. Pots boiling ox horn glue and fish bladder glue were simmering on the stove. Piles of timber, bamboo poles, feathers, ox tendons, ox horns, and the like lay on the floor. Finished bows hung on the walls.
+The establishment was substantial, its interior empty and abandoned. The stove for bending bamboo still burned. Pots of ox horn glue and fish bladder glue simmered on the fire. Piles of timber, bamboo poles, feathers, ox tendons, and ox horns covered the floor. Finished bows hung from the walls.
 
-Walking through it, finished and semi-finished products could be seen everywhere. Nangong Wudi roughly estimated that there were a hundred finished bows alone, and at least three or four hundred semi-finished ones. As for feathers arrows, there were even more—two or three hundred bundles of thin bamboo poles for making arrow shafts alone.
+Walking through, he found finished and half-completed products everywhere. By rough estimate, there were a hundred completed bows alone, with three or four hundred more in various stages of production. As for arrow components—the thin bamboo poles for shafts alone numbered two or three hundred bundles.
 
-Obviously, so many bows and arrows couldn't be for Jeju Island itself; they were more likely export commodities from Jeju Island.
+Clearly, this volume far exceeded local demand. These were more likely export goods from Jeju Island.
 
-Connecting this with the large number of horses and cattle locally, it naturally produced abundant ox hides, ox horns, and tendons of horses and cattle—these were important raw materials for making bows and arrows.
+He connected the dots: abundant cattle and horses meant plentiful hides, horns, and tendons—essential materials for bow-making.
 
-The Occupation Army Command was set up in the best building in the county seat: the Jeongui Government Office.
+The Occupation Command established itself in the county's finest building: the Jeongui Government Office.
 
-Nangong Wudi took his seat in the main hall. The captured clerks of the six divisions in the county who hadn't had time to flee were driven over—the local political system of the Joseon Dynasty was a miniature of the Ming Dynasty. The county magistrate's office also had six divisions: Personnel, Revenue, Rites, War, Works, and Punishments, responsible for county affairs. The clerks of the six divisions were all local petty officials selected from local commoners. They were very familiar with the local situation. Therefore, the first step after capturing the city was to control this group of people.
+Nangong Wudi took his seat in the main hall. Captured clerks from the county's six divisions who hadn't managed to flee were herded before him. The Joseon Dynasty's local government mirrored the Ming system in miniature: the magistrate's office maintained six divisions—Personnel, Revenue, Rites, War, Works, and Punishments—to handle county affairs. The divisional clerks were minor officials selected from the local commoner population, intimately familiar with local conditions. Securing their cooperation was therefore the first priority after taking a city.
 
-With no salary and no channel for promotion, relying on grey income to live, these petty officials generally didn't have high loyalty to the dynasty. It was so in the Ming Dynasty, and the same in Joseon. Especially when their lives and property were threatened, the petty officials quickly chose to cooperate.
+With no salaries and no path to promotion, these petty functionaries subsisted on gray income. Their loyalty to the dynasty was typically minimal. This was true in the Ming Dynasty, and equally true in Joseon. Especially when their lives and property hung in the balance, the clerks swiftly chose cooperation.
 
-The official language of the Joseon Dynasty was Chinese (Hanmun). Although "Eonmun" (Hangul) existed, it was not widely used; scholars and officials didn't use it, mainly women and lower-class commoners used it. Because important official and private documents were written in Chinese, although these petty officials couldn't speak Chinese, they could read and write Chinese. So the staff sent by the Planning Commission could communicate with them by "pen conversation" without difficulty even without translators.
+The Joseon Dynasty's official language was Literary Chinese. Though *Eonmun*—the native script—existed, it saw limited use; scholars and officials disdained it, employing it mainly for women and lower-class commoners. Because important documents, both public and private, were written in Chinese, these petty officials could read and write the language even if they couldn't speak it. Staff sent by the Planning Commission could therefore communicate through "brush conversation"—written exchanges—without needing translators.
 
-The petty officials quickly provided sufficient intelligence about the county. The residents within the county seat, including the villages just outside the walls, totaled eight thousand people. Two-thirds of them were official slaves. Of course, many commoners lived in various villages outside the city. The total population of the county, including public and private slaves, was fifteen or sixteen thousand.
+The clerks quickly furnished comprehensive intelligence about the county. The population within the walls, including adjacent villages, totaled eight thousand. Approximately two-thirds were official slaves. Naturally, many commoners lived in scattered villages beyond the city. The county's total population, including public and private slaves, reached fifteen or sixteen thousand.
 
-Regarding horses, all official horse ranches were under the unified management of the Jeju Magistrate; the County Magistrate had no jurisdiction. However, there were some private ranches raising horses, cattle, and sheep.
+Regarding horses, all official horse ranches fell under the unified management of the Jeju Magistrate; the county magistrate had no jurisdiction. There were, however, some private ranches raising horses, cattle, and sheep.
 
-"Is there a person named Kim Man-il in this county?" Nangong Wudi suddenly asked.
+"Is there a person named Kim Man-il in this county?" Nangong Wudi asked abruptly.
 
-The petty officials looked at each other, secretly thinking this gang of Wokou had set their eyes on Master Kim!
+The clerks exchanged glances, thinking privately that this gang of *Wokou* had set their sights on Master Kim.
 
-Kim Man-il was a famous wealthy man in Jeju at the time. Because he donated ten thousand horses to the court at one time, he was enfeoffed as an official (*Nanggwan*).
+Kim Man-il was among the wealthiest men on Jeju Island at the time. Having once donated ten thousand horses to the court in a single contribution, he had been ennobled as an official.
 
-"Master Kim lives in Jeju, not in this county," a clerk among them answered. "He also has ranches within this county's territory."
+"Master Kim resides in Jeju, not in this county," one clerk answered. "He does, however, maintain ranches within our territory."
 
-The most valuable part of the petty officials' confession was the grain stored in the city: over ten thousand *dan* of grain stored in two government granaries. This figure excited Nangong Wudi quite a bit—at least before the refugees arrived, food was abundant.
+The most valuable revelation from the clerks concerned the grain stored in the city: over ten thousand *dan* in two government granaries. This figure delighted Nangong Wudi considerably—at least until the refugees arrived, the food supply would be secure.
 
-But the subsequent conversation quickly made him unable to be happy.
+But subsequent conversation quickly tempered his enthusiasm.
 
-It was true there were over ten thousand *dan* of grain in the county, but Jeju Island had just suffered a famine last year, and grain stocks among the people were extremely scarce. It was just the beginning of winter now; by the time the green crops of next year had not yet ripened (*spring famine season*), relief would inevitably be needed. Moreover, there were five or six thousand official slaves in this county, and these people basically relied on the County Magistrate to distribute food for survival.
+True, the county held more than ten thousand *dan* of grain. But Jeju Island had just suffered a famine the previous year, and the populace's food reserves were severely depleted. Winter had only just begun; by the time spring arrived before the new crops ripened—the dreaded spring famine season—relief would inevitably be needed. Moreover, five or six thousand official slaves resided in this county, and these people depended entirely on magistrate-distributed rations for survival.
 
-Official slaves farmed and grazed for the County Magistrate but got no harvest themselves; their rations and clothing relied entirely on distribution by the County Magistrate. When encountering natural disasters, large numbers of official slaves not only couldn't play a role but became a huge burden on the government office.
+Official slaves farmed and herded for the government but received no harvest themselves. Their food and clothing came solely from government distributions. When natural disasters struck, large numbers of official slaves not only contributed nothing but became a crushing burden on the government office.
 
 **(End of Chapter)**

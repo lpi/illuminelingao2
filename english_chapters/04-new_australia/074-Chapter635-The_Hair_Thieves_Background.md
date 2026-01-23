@@ -1,181 +1,183 @@
 # Chapter 635 - The Hair Thieves' Background
 
-Granular gunpowder is a step up compared to powdered gunpowder. Powdered gunpowder easily absorbs moisture, and during storage and transport, it gradually separates due to shaking, resulting in more charcoal powder in the upper layer and more sulfur powder in the lower layer. This causes uneven mixing, which is unfavorable for both the power and safety of the gunpowder.
+Granular gunpowder represented a significant improvement over powdered gunpowder. The powdered form absorbed moisture readily, and during storage and transport, the mixture gradually separated due to jostling—more charcoal powder accumulating in the upper layer, more sulfur powder settling toward the bottom. This uneven distribution was detrimental to both the power and safety of the gunpowder.
 
-Li Modao watched the craftsmen granulating with great interest and inquired about the details. It turned out this technique was also introduced by Westerners. The craftsmen said that such gunpowder not only ignited reliably but was also less prone to moisture, much better than the powdered gunpowder used previously.
+Li Modao watched the craftsmen granulating with keen interest and inquired about the details. It turned out this technique had also been introduced by Westerners. The craftsmen explained that such gunpowder not only ignited reliably but was also far less prone to absorbing moisture—much superior to the powdered variety used previously.
 
-"Another Western idea!" Li Modao felt a hope in his heart that he could simply meet a Westerner and ask him face-to-face about the usage of these Western firearms.
+*Another Western innovation!* Li Modao felt a growing hope that he might simply meet a Westerner and ask him directly about the proper use of these Western firearms.
 
-"How much gunpowder has been made?" he asked.
+"How much gunpowder has been produced?" he asked.
 
-The manager of the Gunpowder Bureau reported: "Reporting to the Master, ten thousand catties have been made so far. Mostly propellant, with a small amount of explosive powder. Also toxic gunpowder and powder cakes."
+The manager of the Gunpowder Bureau reported: "Answering the Master, ten thousand *catties* so far. Mostly propellant, with a small amount of explosive powder, plus toxic gunpowder and powder cakes."
 
-"That's too little. Ten thousand catties isn't enough."
+"That's far too little. Ten thousand *catties* won't be nearly enough."
 
-"Yes, but the hemp stalk charcoal needed is hard to find; we are switching to willow charcoal." The manager said, "Making gunpowder now is different from before; saltpeter and sulfur must both be purified before use. Just purifying raw sulfur requires beef tallow and lard; ten catties consume two or three catties of fat. It takes quite some time to procure."
+"Yes, but the hemp stalk charcoal we need is difficult to source, so we are switching to willow charcoal," the manager explained. "Making gunpowder now is different from before. Both saltpeter and sulfur must be purified before use. Purifying raw sulfur alone requires beef tallow and lard—ten *catties* of sulfur consume two or three *catties* of fat. Procuring such quantities takes considerable time."
 
-Leaving the Gunpowder Bureau's enclosure, three or four li away black smoke soared into the sky. This was the location of the Blacksmith Battalion. Most military weapons were made of iron. Although the government had specialized bureaus to manufacture weapons, the army still carried some blacksmith tools, iron stock, and charcoal to repair weapons at any time, and rush-produce some high-consumption weapons like arrowheads and iron shot when necessary. Now the Blacksmith Battalion was rushing to make cannonballs and bullets day and night.
+Leaving the Gunpowder Bureau enclosure, Li Modao saw black smoke billowing into the sky three or four *li* distant. This marked the location of the Blacksmith Battalion. Most military weapons were made of iron. Although the government maintained specialized bureaus to manufacture weapons, the army still carried some blacksmith tools, iron stock, and charcoal to repair weapons on the move and rush-produce high-consumption items like arrowheads and iron shot when necessary. Right now, the Blacksmith Battalion was working day and night to cast cannonballs and bullets.
 
-In the camp, clanging sounds of forging and repairing swords and spears came from a shed, while seven or eight iron-smelting furnaces burned fiercely in the open air, melting pig iron to cast cannonballs. The ground was full of clay molds of various sizes.
+Inside the camp, the clanging of forging and sword-repair work echoed from a shed, while in the open air seven or eight iron-smelting furnaces burned fiercely, melting pig iron to cast cannonballs. The ground was covered with clay molds of various sizes.
 
-Li Modao saw the stockpile yard on one side piled high with various iron materials, including iron bricks and rods bought from ironworks, as well as various discarded weapons and objects from the army. Used crucibles and broken clay molds were piled into mounds several feet high. Newly cast cannonballs of various sizes were held in rattan baskets, piling up over an area the size of several mu. Li Modao knew small baskets held large cannonballs, while large baskets held grapeshot.
+Li Modao surveyed the stockpile yard on one side, piled high with various iron materials: iron bricks and rods purchased from ironworks, as well as assorted discarded weapons and objects from the army. Used crucibles and broken clay molds were heaped into mounds several feet high. Newly cast cannonballs of various sizes filled rattan baskets that covered an area the size of several *mu*. Li Modao knew that small baskets held large cannonballs, while large baskets contained grapeshot.
 
-The Thousand Household officer managing the camp hurried out to greet him upon seeing his arrival. Like gunpowder, Li Modao had an urgent demand for producing more cannonballs as quickly as possible. Cannonball consumption was huge during battles, especially since they prepared for a long siege this time. If the situation arose where the Firearms Battalion had no ammo available and missed a war opportunity, his head would not be secure.
+The Thousand Household officer managing the camp hurried out to greet him upon seeing his arrival. Like gunpowder, Li Modao's urgent priority was producing more cannonballs as quickly as possible. Cannonball consumption during battle was enormous, particularly since they were preparing for what might be a prolonged siege. If the situation arose where the Firearms Battalion ran out of ammunition and missed a battlefield opportunity, his head would be forfeit.
 
-He looked at the large cannonballs in the baskets. The casting quality was uneven; some were very round, while others had significant differences in diameter. The surface finish of the projectiles also varied. Some large cannonballs were extremely rough, almost honeycomb-like. More critically, for the same 5-catty cannonballs, sizes actually varied slightly, with some differing greatly—visible errors in dimensions at a glance.
+He examined the large cannonballs in the baskets. The casting quality was inconsistent—some were very round, others showed significant deviations in diameter. The surface finish of the projectiles also varied. Some large cannonballs were extremely rough, almost honeycomb-like in texture. More critically, even among the nominally identical 5-*catty* cannonballs, sizes actually differed slightly—some variations were visible to the naked eye.
 
-"These large cannonballs must be sorted." He said to the Thousand Household officer managing the Blacksmith Battalion who greeted him. "Only the roundest and smoothest can be used for Red Barbarian Cannons. The others can only serve as grape shot/canister shot. Also the dimensions—some big, some small. Must be sorted too."
+"These large cannonballs must be sorted," he told the Thousand Household officer managing the Blacksmith Battalion. "Only the roundest and smoothest can be used in the Red Barbarian Cannons. The others can serve only as grapeshot. The dimensions must also be sorted—some are too large, some too small."
 
-Li Modao knew big cannonballs like this were fine as grape shot for old-style cannons like Crouching Tigers, but using them in breech-loading Frankish cannons or Red Barbarian Cannons would cause loading jams or, in serious cases, even barrel bursts.
+Li Modao understood that oversized or rough cannonballs like these were acceptable as grapeshot for older-style cannons like the Crouching Tiger, but using them in breech-loading Frankish cannons or Red Barbarian Cannons would cause loading jams or, in serious cases, barrel explosions.
 
-Years of experience firing firearms told him that if the projectile wasn't smooth and round enough, even the best-cast cannon would leak gas, failing to shoot far, or worse, explode.
+Years of experience firing firearms had taught him that if a projectile wasn't sufficiently smooth and round, even the best-cast cannon would leak gas—failing to shoot far, or worse, exploding entirely.
 
-The next day, He Rubin was speaking with his staff in the main tent when someone suddenly reported that a person from Qiongshan had answered the recruitment call, claiming to be a Lingao native who had fought the Hair Thieves and knew their details extremely clearly, wishing to serve before the army.
+---
 
-"Good, send a dispatch to Guangzhou to have this person escorted here immediately." He Rubin's spirits lifted. So far, he hadn't recruited a single Lingao local, let alone one claiming to have fought the Hair Thieves.
+The following day, He Rubin was conferring with his staff in the main tent when someone suddenly reported that a person from Qiongshan had answered the recruitment notice, claiming to be a Lingao native who had fought the Hair Thieves and understood their internal affairs in thorough detail. He wished to serve before the army.
 
-"According to the Qiongzhou Prefect's report: This person is named Gou Chengxuan. He was stripped of his Xiucai degree by the province for 'colluding with bandits' and is also wanted by the county. I fear he is not a good person."
+"Excellent—send a dispatch to Guangzhou immediately to have this person escorted here." He Rubin's spirits lifted. So far, he had not recruited a single Lingao local, let alone someone claiming to have actually fought the Hair Thieves.
 
-"Colluding with bandits?" He Rubin thought, could this person have worked for the Hair Thieves? If so, he would be easier to control. If he were a Xiucai, he would have to be polite, but since he was a fugitive colluding with bandits, he could mold him however he wanted. "Let Qiongzhou Prefecture send him here as soon as possible."
+"According to the Qiongzhou Prefect's report, this person is named Gou Chengxuan. He was stripped of his *xiucai* degree by the province for 'colluding with bandits' and is also wanted by the county. I fear he may not be a trustworthy individual."
 
-Gou Chengxuan had escaped from Lingao a few months ago. During the autumn tax collection, he originally waited for the gentry and landlords to stir up trouble so he could fish in troubled waters and create a huge scene, making the Hair Thieves suffer. Unexpectedly, Huang Bingkun disdained allying with him. He acted alone and failed completely, allowing the Hair Thieves' land measurement plan to succeed.
+"Colluding with bandits?" He Rubin wondered—could this man have actually worked for the Hair Thieves? If so, he would be easier to control. If he were a proper *xiucai*, courtesy would be required, but since he was a fugitive accused of bandit collusion, he could mold him however he wished. "Have Qiongzhou Prefecture send him here as quickly as possible."
 
-Failing to stir up trouble, he could no longer stay in Lingao County City. As the transmigrator group took over the county yamen, massive cleaning and rectification of Lingao County City began. Beggars and vagrants formerly surviving in the city were all arrested. Gou Chengxuan knew continuing to disguise as a beggar in the city wouldn't work. If caught by the Hair Thieves, even if his identity wasn't exposed, he'd be taken to quarry stones or dig sand, suffering Fu Youdi's whip. He quickly retrieved clothes and a small amount of silver from a hiding place and escaped the county city under the cover of the Lai brothers.
+Gou Chengxuan had escaped from Lingao several months earlier. During the autumn tax collection, he had waited for the local gentry and landlords to stir up trouble so he could exploit the chaos and create a massive disruption, making the Hair Thieves suffer. Unexpectedly, Huang Bingkun had disdained any alliance with him. Acting alone, he had failed completely, allowing the Hair Thieves' land survey program to succeed.
 
-Seeing he couldn't stay in Lingao, Gou Chengxuan could only prepare to flee. He let Lai Xiao, who worked in the county school, continue lurking in the city, while he took Lai Da to run to Qiongshan County City to settle temporarily. However, Gou Xunli, whom he went to Baopang Mountain to seek refuge with as a sworn brother, remained missing. With no news of his father, family wealth lost, and no way to take revenge, Gou Chengxuan almost wanted to drown himself in despair, fortunately persuaded by Lai Da who followed him.
+Having failed to instigate a revolt, he could no longer remain in Lingao County seat. As the transmigrator group took over the county yamen, a massive campaign of cleaning and reorganization began throughout Lingao County seat. Beggars and vagrants who had formerly scraped by in the city were all arrested. Gou Chengxuan realized that continuing to disguise himself as a beggar in the city would not work. If the Hair Thieves caught him—even if his identity wasn't exposed—he'd be conscripted to quarry stones or dig sand, suffering under Fu Youdi's whip. He quickly retrieved clothes and a small sum of silver from a hiding place and fled the county seat under cover provided by the Lai brothers.
 
-Hearing in Qiongshan that the Court wanted to suppress Lingao, Gou Chengxuan, who had already despaired, finally felt Heaven had opened its eyes. Seeing recruitment for people knowing Hair Thief internal affairs, he enlisted immediately.
+Seeing that he could not remain in Lingao, Gou Chengxuan had no choice but to flee. He left Lai Xiao, who worked in the county school, to continue lurking in the city, while he took Lai Da and ran to Qiongshan County seat to settle temporarily. However, Gou Xunli, the sworn brother whose protection he had sought at Baopang Mountain, remained missing. With no news of his father, the family fortune lost, and no path to revenge, Gou Chengxuan nearly drowned himself in despair—fortunately, Lai Da followed and talked him down.
 
-After being questioned for a while in Qiongshan, Gou Chengxuan and Lai Da were sent to the main camp in Guangzhou by the Qiongshan Magistrate.
+When he heard in Qiongshan that the Court intended to suppress Lingao, Gou Chengxuan, who had already given up hope, finally felt that Heaven had opened its eyes. Seeing the recruitment notice for people with knowledge of Hair Thief internal affairs, he enlisted immediately.
 
-He was sent to Humen Main Camp wearing a cangue and lock like a prisoner. Once off the boat, they unlocked him and let him wait in a tent.
+After being questioned for a time in Qiongshan, Gou Chengxuan and Lai Da were sent to the main camp in Guangzhou by the Qiongshan Magistrate.
 
-Gou Chengxuan's heart was in turmoil. It seemed the government was very rude to him. Was it because his crime of "colluding with bandits" was known to the government? This matter had to be defended no matter what.
+He arrived at Humen Main Camp wearing a *cangue* collar and lock like a prisoner. As soon as he stepped off the boat, they unlocked him and had him wait in a tent.
 
-Before he could catch his breath, a personal guard came to summon him:
+Gou Chengxuan's heart churned with anxiety. It seemed the government was treating him quite rudely. Was it because his crime of "colluding with bandits" was known to the authorities? This accusation had to be refuted at all costs.
+
+Before he could even catch his breath, a personal guard came to summon him:
 
 "By order of the Commander-in-Chief: Summon Gou Chengxuan to enter!"
 
-"Yes, please lead the way, Deputy Master." Gou Chengxuan felt a burst of nervousness—this was his first time seeing such a high official.
+"Yes, please lead the way, Deputy Master." Gou Chengxuan felt a surge of nervousness—this was his first time being granted an audience with such a high official.
 
-He couldn't help trembling all over, hastily tidied his clothes and hat, and followed the guard toward the central army tent. A group of guards standing at the camp gate blocked him with horizontal swords. A guard leader looked him up and down and asked:
+He couldn't help trembling as he hastily tidied his clothes and cap, then followed the guard toward the central army tent. A group of guards standing at the camp gate blocked his path with horizontal blades. The guard leader looked him up and down and asked:
 
 "You are Gou Chengxuan?"
 
-"Yes, this lowly person is Gou Chengxuan." He answered in a low voice, trembling slightly.
+"Yes, this lowly person is Gou Chengxuan." He answered in a subdued voice, trembling slightly.
 
-"Do you carry knives or swords?"
+"Do you carry any knives or swords?"
 
-"This lowly person is a mere scholar..."
+"This lowly person is merely a poor scholar..."
 
-"Cut the crap, do you or not?" The gate-keeping guard leader looked impatient.
+"Cut the nonsense—do you or not?" The gate guard leader looked impatient.
 
-"No, really no." Gou Chengxuan hastily defended himself.
+"No, truly no." Gou Chengxuan defended himself hastily.
 
-The guard leader still wasn't reassured and searched his body before letting him enter the gate. The central army led him to kneel before He Rubin's desk. His heart beat like a drum; daring not lift his head, he said:
+The guard leader still wasn't satisfied and searched his person before allowing him to enter. A soldier led him inside, where he was made to kneel before He Rubin's desk. His heart pounded like a drumbeat; not daring to raise his head, he said:
 
-"Lowly commoner Gou Chengxuan pays respects to Your Excellency the Commander!"
+"This lowly commoner Gou Chengxuan pays respects to Your Excellency the Commander!"
 
-"Are you the one who answered the recruitment notice, saying you understand the Hair Thieves' internal affairs?"
+"Are you the one who answered the recruitment notice, claiming to understand the Hair Thieves' internal affairs?"
 
 "It is this lowly person."
 
-"You say you know the Hair Thieves' internal affairs; then you must serve the Court earnestly, and the Court will naturally reuse you." He Rubin sized him up, feeling this person looked treacherous and not kind. He didn't tell Gou Chengxuan to rise, just sipped tea slowly, asking after a long while:
+"You say you know the Hair Thieves' internal affairs. Then you must serve the Court earnestly, and the Court will naturally make use of you." He Rubin sized him up and decided the man looked shifty and untrustworthy. He didn't tell Gou Chengxuan to rise, merely sipped his tea slowly, and asked after a considerable pause:
 
-"You claim you know all the Hair Thieves' details. Who are you yourself?"
+"You claim to know all the Hair Thieves' particulars. Who are you yourself?"
 
-"Answering Your Excellency, this lowly person is surnamed Gou..." Gou Chengxuan first told his background, naturally daring not mention the Gou family's glorious history in Lingao—harboring pirates, local bullies. He didn't even dare mention he was once a Xiucai, fearing they'd ask about his stripped degree—remember he was still a wanted criminal named by the government. He only said the Gou family was ordinary local gentry. When Hair Thieves first landed, lacking grain and men, they targeted Gou Family Village, gathered troops to break the village, killed his eldest uncle's whole family, robbed grain and wealth, and coerced all villagers. Only he and his father escaped alone.
+"Answering Your Excellency, this lowly person is surnamed Gou..." Gou Chengxuan first recounted his background, naturally not daring to mention the Gou family's illustrious history in Lingao—harboring pirates, acting as local bullies. He didn't even dare mention that he had once been a *xiucai*, fearing they would ask about his stripped degree—after all, he remained a wanted criminal named by the government. He said only that the Gou family was ordinary local gentry. When the Hair Thieves first landed, lacking grain and manpower, they had targeted Gou Family Village, gathered troops to breach the stockade, slaughtered his eldest uncle's entire household, robbed grain and wealth, and coerced all the villagers. Only he and his father had escaped with their lives.
 
-Reaching the painful parts, Gou Chengxuan shed tears secretly. But inside this central army gate, he dared not cry aloud. He just narrated the causes and consequences once.
+When he reached the painful parts, Gou Chengxuan wept quietly. But here inside the central army gate, he dared not cry aloud. He simply narrated the events from beginning to end.
 
-He Rubin saw him speaking through gritted teeth with red eyes. Knowing his words were likely true and he was unlikely a spy sent by Hair Thieves, he asked:
+He Rubin observed him speaking through gritted teeth with reddened eyes. Judging that his words were likely true and that he was unlikely to be a spy sent by the Hair Thieves, he asked:
 
-"You father and son are both wanted criminals named by Lingao County for 'colluding with bandits.' What do you have to say? Speak the truth!"
+"Both you and your father are wanted criminals named by Lingao County for 'colluding with bandits.' What do you have to say for yourself? Speak truthfully!"
 
-Gou Chengxuan's brain buzzed; this was what he feared most. He steadied himself before kowtowing and crying:
+Gou Chengxuan's mind went blank; this was exactly what he feared most. He steadied himself before kowtowing and weeping:
 
-"The lowly one is truly wronged!" Saying this, countless thoughts turned in his mind. The first was whether to reveal Wu Mingjin's collusion with the Hair Thieves. He wanted to bite this magistrate hard, but dared not. Officials protected each other; who knew what backing Wu Mingjin had? If he made accusations, silencing him would be easier than crushing an ant for an official.
+"This lowly one has been truly wronged!" As he spoke, countless thoughts raced through his mind. First was whether to expose Wu Mingjin's collusion with the Hair Thieves. He wanted desperately to sink his teeth into that magistrate—but he didn't dare. Officials protected each other; who knew what backing Wu Mingjin might have? If he made accusations, silencing him would be easier than crushing an ant.
 
-Currently, he could only push all blame onto the Hair Thieves. It wouldn't be too late to take revenge after gaining the government's full trust.
+For now, he could only push all blame onto the Hair Thieves. It would not be too late to take revenge after he had secured the government's full trust.
 
-"The lowly one was framed by the Hair Thieves." Gou Chengxuan sorrowfully fabricated a story, saying after breaking his family's village, the Hair Thieves feared government prosecution, so they bribed corrupt county clerks to deliberately plant pirate flags, documents, and seals on him.
+"This lowly one was framed by the Hair Thieves." Gou Chengxuan sorrowfully fabricated a story: after destroying his family's village, the Hair Thieves feared government prosecution, so they bribed corrupt county clerks to deliberately plant pirate flags, documents, and seals to incriminate him.
 
-As for who this corrupt clerk was, it didn't matter. Anyway, county clerks were either killed by Hair Thieves or had completely joined them; no fear of them biting back.
+As for who this corrupt clerk might be, it didn't matter. The county clerks had either been killed by the Hair Thieves or had completely joined them—none could bite back.
 
-"Master Wu listened to villains' slander, thinking the lowly one's whole family colluded with pirates. The lowly one is truly wronged; beg Your Excellency to perceive clearly!" He bowed repeatedly as he spoke.
+"Master Wu listened to villains' slander, believing my entire family had colluded with pirates. This lowly one has been truly wronged—I beg Your Excellency to see clearly!" He bowed repeatedly as he spoke.
 
-He Rubin didn't care if he was wronged, just wanted to use this to beat him down a bit so he would obey orders submissively. Seeing him kowtowing like pounding garlic, he said:
+He Rubin didn't care whether he was truly wronged; he merely wanted to use this to beat him down so he would obey orders submissively. Seeing him kowtow as if pounding garlic, he said:
 
-"Whether wronged or not, you will be given an explanation after defeating the Hair Thieves! Only you must do your utmost. Even a guilty body can atone for crimes with merit. If you truly have great merit, earning a status isn't difficult."
+"Whether you were wronged or not, you will receive your explanation after we defeat the Hair Thieves! For now, you must do your utmost. Even a guilty man can atone for his crimes through meritorious service. If you truly distinguish yourself, earning a degree is not out of reach."
 
-"Thank You Commander for your vast grace!" Hearing he wouldn't pursue the crime and might even grant a degree for merit, Gou Chengxuan wept with gratitude, banging his head loudly on the ground. "The lowly one will surely do my utmost to repay Your Excellency's grace as high as heaven and thick as earth!"
+"This lowly one thanks the Commander for his immense grace!" Hearing that his crime would not be pursued and that he might even earn a scholarly degree for meritorious service, Gou Chengxuan wept with gratitude, banging his forehead loudly on the ground. "This lowly one will surely give his utmost to repay Your Excellency's grace, as high as heaven and thick as earth!"
 
-" The Hair Thieves' firearms are reputed to be sharp; have you ever seen them?"
+"The Hair Thieves' firearms are reputed to be formidable. Have you ever seen them yourself?"
 
-"Answering Your Excellency." Gou Chengxuan said carefully. "Hair Thief firearms are indeed sharp. The most sharp are their bird guns and volley guns."
+"Answering Your Excellency," Gou Chengxuan said carefully. "The Hair Thief firearms are indeed formidable. The most fearsome are their bird guns and volley guns."
 
-He then explained that such bird guns were divided into two types: one used by submitting Fake Hairs, one used by True Hairs themselves. Regardless of True or Fake Hairs, issued bird guns needed no match cord and could fire upon raising.
+He then explained that such bird guns came in two types: one used by the submissive "Fake Hairs," and one used by the True Hairs themselves. Regardless of whether True or Fake Hairs, the issued bird guns required no match cord and could fire immediately upon being raised.
 
-"Guns used by Fake Hairs are called Minié. Similar to bird guns used by government troops. But firing requires no match cord, nor incense stick. Just placing a copper cap on the nipple allows firing. Can fire even in wind and rain. Each gun uses only one ball, but power is huge; not only pierces iron armor, range is also beyond four hundred paces."
+"The guns used by Fake Hairs are called Miniés. They are similar to the bird guns used by government troops, but they require no match cord or incense stick to fire. One simply places a copper cap on the nipple and the gun fires. They can shoot even in wind and rain. Each gun uses only one ball, but the power is tremendous—not only does it pierce iron armor, but the range exceeds four hundred paces."
 
-Everyone in the central tent showed disbelief. A bird gun shooting beyond four hundred paces—could that still be called a bird gun? Even medium Frankish cannons couldn't hit that far.
+Everyone in the central tent displayed expressions of disbelief. A bird gun shooting beyond four hundred paces—could that even be called a bird gun? Even medium Frankish cannons couldn't hit targets at such range.
 
-Gou Chengxuan then said bird guns used by True Hairs were even more powerful, not needing reloading after each shot. Ammo was stored in an iron box on the gun body; soldiers fired at will. Called Repeating Bird Guns.
+Gou Chengxuan then added that the bird guns used by True Hairs were even more powerful, requiring no reloading after each shot. Ammunition was stored in an iron box attached to the gun body, and soldiers could fire at will. These were called Repeating Bird Guns.
 
-Now everyone disbelieved even more. Gou Chengxuan knew they didn't trust his words, so hurriedly explained:
+Now the disbelief deepened further. Gou Chengxuan sensed they didn't trust his words, so he hurried to explain:
 
-"Days after Hair Thieves landed, Magistrate Wu commanded thousands of county militia to storm the enemy camp. But enemy bird guns rained bullets; militia were mostly dead or wounded before getting close. This is known to all in Lingao; the lowly one does not deceive the lords."
+"In the days just after the Hair Thieves landed, Magistrate Wu led thousands of county militia to storm the enemy camp. But the enemy bird guns rained down bullets, and the militia were mostly killed or wounded before they could even get close. This is known to everyone in Lingao—this lowly one does not deceive the lords."
 
 "What is a volley gun?"
 
-"A volley gun is over ten bird gun barrels connected together. The gunner pulls a trigger, and the bird gun can fire continuously, either three or four shots, or seven or eight, or all at once. Bullet power is no different from Minié—pierces iron armor at four hundred paces."
+"A volley gun consists of more than ten bird gun barrels connected together. The gunner pulls a trigger, and the gun fires continuously—either three or four shots, or seven or eight, or all at once. The power of each bullet is no different from the Minié—piercing iron armor at four hundred paces."
 
-A burst of surprised sighs rose in the tent. Although Ming people hadn't seen repeating guns, they could realize the power of rapid-fire weapons.
+A burst of astonished exclamations arose in the tent. Although Ming people had never seen repeating guns, they could grasp the terrifying power of rapid-fire weapons.
 
-Sitting aside, Chang Qingyun couldn't help saying: "Bunch of nonsense! All firearms in the world need ignition. Without match cord or fuse, and without incense stick to light the vent, how to ignite gunpowder? Firing by placing a copper cap—isn't that sorcery!"
+Sitting to one side, Chang Qingyun couldn't help interjecting: "Pure nonsense! All firearms in the world require ignition. Without match cord or fuse—without an incense stick to light the vent—how can you ignite gunpowder? Firing by placing a copper cap—isn't that sorcery!"
 
-Other staff officers were also very suspicious. After all, this exceeded contemporary common sense too much. Lu Yizhong was more prudent, saying: "Overseas lands have many strange things, like crystal mirrors, self-striking clocks, iron fast ships. Hair Thieves are known for strange skills; having such firearms isn't strange."
+The other staff officers were equally skeptical. After all, this exceeded contemporary common sense by too wide a margin. Lu Yizhong was more measured, saying: "Overseas lands contain many strange things—like crystal mirrors, self-striking clocks, iron swift boats. The Hair Thieves are known for their strange skills. Possessing such firearms is not implausible."
 
-Seeing Gou Chengxuan dared not speak, He Rubin said: "You needn't fear, just speak."
+Seeing that Gou Chengxuan dared not speak, He Rubin said: "Don't be afraid. Continue."
 
-"Yes, yes." Seeing someone defend him and the Commander not refuting him, Gou Chengxuan's courage grew. "Australian... no, Hair Thief firearms actually use gunpowder no different from Great Ming. Only their gunpowder manufacture is finer, and they have several secret medicines used on guns and cannons, specifically fearing no wind or rain, self-igniting."
+"Yes, yes." Seeing someone defend him and the Commander raise no objection, Gou Chengxuan's courage grew. "The Australian—no, the Hair Thief firearms actually use gunpowder no different from the Great Ming's. Only their gunpowder manufacture is more refined, and they possess several secret compounds used on guns and cannons that specifically resist wind and rain and ignite themselves."
 
-"Do you know how to make this secret medicine?"
+"Do you know how to make these secret compounds?"
 
-"Secret medicines are all made in the Hair Thieves' Hundred Fathoms Stockade. All manufacturing passes through True Hairs' hands; Fake Hairs only do menial work. So the lowly one does not know the method."
+"The secret compounds are all made in the Hair Thieves' Hundred Fathoms Stockade. All manufacturing passes through True Hair hands; the Fake Hairs only perform menial labor. Thus, this lowly one does not know the method."
 
-Gou Chengxuan then said Hair Thief land soldiers all wore no armor, only short cloth jackets and rattan helmets. None used swords, spears, or shields; all used Minié fast guns equipped with triangular short spears, extremely sharp.
+Gou Chengxuan then explained that Hair Thief land soldiers all wore no armor—only short cloth jackets and rattan helmets. None carried swords, spears, or shields; all used Minié rifles equipped with triangular short bayonets, extremely sharp.
 
-"...Hair Thieves shoot from afar, stab with triangular short spears up close."
+"...The Hair Thieves shoot from afar and stab with triangular bayonets up close."
 
-Hearing Hair Thieves wore no armor, just cloth and rattan helmets, several generals couldn't help laughing scornfully. Rumors already said Hair Thief troops didn't wear armor—not even cotton armor. As for wearing rattan helmets, it was even stranger. Imitating the rattan armor troops in *Romance of the Three Kingdoms*?
+Hearing that the Hair Thieves wore no armor—only cloth and rattan helmets—several generals couldn't help laughing scornfully. Rumors had already circulated that Hair Thief troops didn't wear armor—not even cotton armor. As for wearing rattan helmets, that was stranger still. Were they imitating the rattan-armored troops from *Romance of the Three Kingdoms*?
 
-"Hair Thief whole army uses bird guns; do they not drill with swords and spears?"
+"Does the entire Hair Thief army use bird guns? Do they not drill with swords and spears at all?"
 
-"Yes, the lowly one only saw Hair Thieves firing bird guns, occasionally drilling stabbing techniques. However, coerced commoners have those trained in long spear use."
+"Yes, this lowly one only saw the Hair Thieves firing bird guns and occasionally practicing stabbing techniques. However, the coerced commoners do include some trained in long spear use."
 
-"Heard Hair Thieves set up a giant cannon on the Bopu beacon tower, shooting ten li. Do you know of it?"
+"I have heard the Hair Thieves mounted a giant cannon on the Bopu beacon tower, capable of shooting ten *li*. Do you know of this?"
 
-"The lowly one knows. There is one on the beacon tower, and one on the big iron ship's deck."
+"This lowly one knows. There is one on the beacon tower, and one on the deck of the great iron ship."
 
-"One shot ten li, is there such a thing?"
+"Can a single shot really reach ten *li*?"
 
-Gou Chengxuan had seen the test firing of these two cannons. The Bopu naval fort artillery conducted live-fire drills every month. He had witnessed the amazing range of the shells, but the officials' reaction just now made him hesitate whether to cater to them and understate the range. However, if he understated it, when the Hair Thieves opened fire, his lie would be exposed immediately, perhaps leading directly to beheading by the government army. He thought for a moment before saying, "The lowly one has not seen it personally, but every firing shakes ten li. People say it can indeed shoot balls ten li away."
+Gou Chengxuan had personally witnessed the test firings of both cannons. The Bopu naval fort artillery conducted live-fire drills every month. He had seen the astonishing range of the shells for himself. But the officials' reactions just now made him hesitate—should he cater to them and understate the range? Yet if he understated it, the moment the Hair Thieves opened fire, his lie would be exposed immediately—perhaps leading directly to his beheading by the government army. He considered for a moment before answering: "This lowly one has not witnessed it firsthand, but every firing shakes the earth for ten *li*. People say it can indeed shoot balls ten *li* away."
 
-He Rubin asked again: "How many troops do Hair Thief land and naval forces have? How many True Hairs among them?"
+He Rubin asked again: "How many troops do the Hair Thief land and naval forces have? How many True Hairs among them?"
 
-"Answering Your Excellency, Hair Thief land force has over ten thousand." Gou Chengxuan naturally knew Australians didn't have that many troops, but decided to exaggerate to avoid angering the official lords by saying too few. "Navy also has ten thousand." He quickly added, "Among them True Hairs are very few, only over a thousand. All are Fujian/Guangdong maritime traitors and coerced commoners from everywhere."
+"Answering Your Excellency, the Hair Thief land forces number over ten thousand." Gou Chengxuan naturally knew the Australians didn't actually have so many troops, but he decided to exaggerate to avoid angering the officials with too low a count. "The navy also numbers ten thousand." He quickly added: "Among them, True Hairs are very few—only about a thousand. The rest are all Fujian and Guangdong maritime traitors and coerced commoners from everywhere."
 
-"How many cannons do Hair Thieves have?"
+"How many cannons do the Hair Thieves possess?"
 
-"From what the lowly one saw, almost everywhere." Gou Chengxuan said Australian cannons could be seen everywhere in Lingao—many road towers had small cannons. As for field cannons, he had seen over ten. He also told He Rubin and others: Hair Thief cannons were lighter than Red Barbarian cannons; barrels not thick, carriages very light, easily towed by horses. The smallest cannon carts could be pulled flying by a single Sichuan horse.
+"From what this lowly one has seen, they are practically everywhere." Gou Chengxuan explained that Australian cannons could be seen all over Lingao—many road towers had small cannons mounted on them. As for field cannons, he had seen more than ten. He also told He Rubin and the others that Hair Thief cannons were lighter than Red Barbarian Cannons: their barrels were not thick, their carriages very light, and they could be easily towed by horses. The smallest cannon carts could be pulled at speed by a single Sichuan horse.
 
-"Hair Thieves lack mules and horses, only use forced laborers and Fake Hairs to pull cannons. One cannon needs dozens of people. So field battles only use light cannons, not heavy cannons."
+"The Hair Thieves lack mules and horses, so they use conscripted laborers and Fake Hairs to drag their cannons. One cannon requires dozens of men. Therefore, in field battles they use only light cannons, not heavy ones."
 
-"So, Hair Thieves have no Red Barbarian Cannons?"
+"So the Hair Thieves have no Red Barbarian Cannons?"
 
-"From what the lowly one saw, indeed none." Gou Chengxuan hesitated before saying.
+"From what this lowly one has seen, indeed they have none." Gou Chengxuan hesitated before answering.
 
-"How is the power of Hair Thief cannons?"
+"How powerful are the Hair Thief cannons?"
 
 (End of Chapter)

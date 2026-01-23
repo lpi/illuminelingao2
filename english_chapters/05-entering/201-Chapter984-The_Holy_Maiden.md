@@ -1,12 +1,12 @@
 # Chapter 984 - The Holy Maiden
 
-Xuan De was of course no impartial judge. Ma Weisan understood clearly: Xuan De's motives for joining the sect were no different from his own. The higher you went in the hierarchy, the thinner the faith and the more calculations of interest. This was tacitly understood among the upper echelons.
+Xuan De was of course no impartial judge, and Ma Weisan understood this clearly. Xuan De's motives for joining the sect were no different from his own. The higher you went in the hierarchy, the thinner the faith and the thicker the calculations of interest. This was tacitly understood among the upper echelons.
 
-Hearing Ma Weisan being so "sensible," Xuan De was quite satisfied in his heart. But the Yizhou affair had already caused tremors within the main altar—it couldn't just be glossed over. Moreover, Yizhou's annual offering of 4,800 taels of silver was a major source of income for the sect. Losing it would have enormous impact on the entire organization. Competition among various folk sects in Shandong Province was fierce. Having territory meant having income, and having income meant expanding territory—the two were mutually reinforcing.
+Hearing Ma Weisan being so "sensible," Xuan De was quite satisfied. But the Yizhou affair had already caused tremors within the main altar—it couldn't simply be glossed over. Moreover, Yizhou's annual offering of 4,800 taels of silver was a major source of income for the sect. Losing it would have enormous impact on the entire organization. Competition among various folk sects in Shandong Province was fierce. Having territory meant having income, and having income meant expanding territory—the two were mutually reinforcing.
 
 On the road to Yizhou, Xuan De had already considered his plan several times over. Eliminating Ma Weisan was one option, but with Yizhou's current unstable situation, he still needed to use Ma Weisan's forces. The Yizhou area was after all his base of operations, carefully cultivated over many years with deep roots. If pushed to desperation, he might simply defect directly to Daoist Zhang, making things even more difficult to handle.
 
-A fleeting smile appeared on his face. Ma Weisan quickly caught that hint of amusement and immediately felt his spirits lift. He hurried to add: "With the Dharma Master's arrival in Yizhou, wherever this disciple can be of service, this disciple will surely serve faithfully."
+A fleeting smile appeared on Xuan De's face. Ma Weisan quickly caught that hint of amusement and immediately felt his spirits lift. He hurried to add: "With the Dharma Master's arrival in Yizhou, wherever this disciple can be of service, this disciple will surely serve faithfully."
 
 "At least you have some self-awareness." Xuan De sneered and stood up. "This seat will tell you this much: the Yizhou matter has alarmed the Patriarch and the Main Altar's Holy Maiden. How do you think it should be handled?"
 
@@ -18,7 +18,7 @@ In the end, Ma Weisan agreed to offer an additional ten thousand taels in "tribu
 
 "Since you are so sincere, this seat will give you a way forward."
 
-Ma Weisan was overjoyed and hurriedly kowtowed: "Thank you for the Dharma Master's great kindness."
+Ma Weisan was overjoyed and hurriedly kowtowed. "Thank you for the Dharma Master's great kindness."
 
 "You needn't thank this seat." Xuan De said coldly. "Your life and honor, you must still fight for yourself. Otherwise, even this seat cannot save you."
 
@@ -28,15 +28,17 @@ Ma Weisan was overjoyed and hurriedly kowtowed: "Thank you for the Dharma Master
 
 Ma Weisan immediately described the current state of affairs in Yizhou. He then had someone fetch the roster of Yizhou's incense halls and used a brush to mark which halls he still controlled, which had defected, and which were of uncertain allegiance.
 
-Those who had completely defected numbered less than one-third. Xuan De felt: this matter could still be salvaged.
+Those who had completely defected numbered less than one-third. Xuan De felt the matter could still be salvaged.
 
-"Such incompetence." He secretly despised Ma Weisan for not utilizing these assets but instead hiding like a turtle with its head withdrawn. That Daoist Zhang, no matter how formidable, was ultimately just one man.
+*Such incompetence.* He secretly despised Ma Weisan for not utilizing these assets but instead hiding like a turtle with its head withdrawn. That Daoist Zhang, no matter how formidable, was ultimately just one man.
 
 This Yizhou branch altar would need to be placed under a more capable and reliable person in the future.
 
 But how to handle things would require separate discussion with others. Those who had come with him this time were all main altar core members who must be given proper respect. Of course, this was purely a courtesy. Hu Qi'er's failure this time secretly pleased him. Her master was none other than the Inner Dharma Hall's Holy Maiden who had accompanied him on this trip.
 
 How to deal with Hu Qi'er was within his authority. Holding this leverage, he had no fear that this proud woman wouldn't bow her head in submission and stop constantly opposing him. At this thought, a vicious smile appeared at his lips. He ordered his subordinates: "Bring the criminal Hu Qi'er to the punishment room in the rear courtyard. This seat will conduct a night interrogation!"
+
+---
 
 The study Ma Weisan had established in the branch altar's main courtyard was his confidential space. Not only did it store large quantities of internal documents and correspondence, but its furnishings were also luxurious and comfortable.
 
@@ -48,15 +50,15 @@ This day, he was drinking and making merry with the two women in his arms when s
 
 With a bang, the door was shoved open. A woman around thirty burst in angrily. It was none other than the Inner Dharma Hall's Holy Maiden, Luo Saichun, who had come with him to Yizhou to clean up the mess.
 
-Xuan De showed a slight smile: "So it's Holy Maiden Luo. I wonder what urgent matter brings you to see this seat so anxiously?"
+Xuan De showed a slight smile. "So it's Holy Maiden Luo. I wonder what urgent matter brings you to see this seat so anxiously?"
 
-Luo Saichun smiled coldly and waved her hand behind her: "All of you withdraw. I have a few words to say to Dharma Master Xuan."
+Luo Saichun smiled coldly and waved her hand behind her. "All of you withdraw. I have a few words to say to Dharma Master Xuan."
 
-Xuan De looked at the people who had followed her in, then nodded composedly: "Fine, you may all withdraw for now!"
+Xuan De looked at the people who had followed her in, then nodded composedly. "Fine, you may all withdraw for now!"
 
-"Sit." He invited Luo Saichun.
+"Sit." He gestured to Luo Saichun.
 
-"No need." Luo Saichun said coldly. "You've already interrogated Ma Weisan and Hu Qi'er?"
+"No need." Luo Saichun's voice was icy. "You've already interrogated Ma Weisan and Hu Qi'er?"
 
 "Correct. I asked them a few questions." Xuan De admitted readily. "What, this seat may not ask?"
 
@@ -64,7 +66,7 @@ Xuan De looked at the people who had followed her in, then nodded composedly: "F
 
 "She committed such a grave offense. Being held in the punishment hall and receiving a few strokes of the dharma whip is already an extremely light punishment," Xuan De sneered. "Holy Maiden Luo, I know you protect your disciple, but don't forget—she bungled the mission and fled in battle. By rights, this seat could open an incense hall right now and sentence her to death by heavenly lightning and fire. I've already shown mercy on your account."
 
-Luo Saichun clearly didn't buy the threat in his words. She stiffened her neck: "Bungling the mission and fleeing in battle—these eight characters aside, whether you even have evidence, Ma Weisan as branch altar master brought the Yizhou altar to complete collapse. Doesn't he deserve the heavenly lightning and fire punishment?"
+Luo Saichun clearly didn't accept the threat in his words. She stiffened her neck. "Bungling the mission and fleeing in battle—leaving aside whether you even have evidence for those eight characters—Ma Weisan as branch altar master brought the Yizhou altar to complete collapse. Doesn't he deserve the heavenly lightning and fire punishment?"
 
 "What punishment Altar Master Ma deserves, this seat knows better than you." Xuan De said. "However, to salvage the Yizhou situation, this seat must rely on him. Treating him somewhat generously is not inappropriate. Don't forget, when we set out, the Grand Altar Master authorized this seat to 'act as circumstances warrant.' Are you perhaps defying the Grand Altar Master's command?"
 
@@ -78,11 +80,11 @@ Xuan De's words immediately made her tremble with rage throughout her body. But 
 
 If it came to open conflict, both sides would suffer, but the damage she would take would be far greater than Xuan De's. Not only would it not help matters, but it would make things even harder for Hu Qi'er, already in dire straits.
 
-At this thought, Luo Saichun forced herself to stay calm: "Fine. What do you want?"
+At this thought, Luo Saichun forced herself to stay calm. "Fine. What do you want?"
 
 "Holy Maiden Luo, this seat believes you should at least understand something about proper hierarchy before we can discuss matters." Xuan De smiled viciously. "Otherwise, this seat has nothing to discuss with you."
 
-Luo Saichun could only swallow her anger: "Fine. Please instruct me, Dharma Master. What exactly do you intend to do?"
+Luo Saichun could only swallow her anger. "Fine. Please instruct me, Dharma Master. What exactly do you intend to do?"
 
 "That's more like it." Xuan De also didn't want to humiliate her too much—after all, Luo Saichun was one of the sect's high-ranking members.
 
@@ -95,6 +97,8 @@ Luo Saichun could only swallow her anger: "Fine. Please instruct me, Dharma Mast
 Luo Saichun understood—this old man probably had some underhanded scheme again. She was a clever woman and immediately guessed it must involve the Yizhou altar and the Ma family's wealth. Xuan De probably had dark intentions. And he was using Hu Qi'er to force her silence.
 
 "Fine, I agree." She bit her lip and nodded in assent. "But Hu Qi'er must be released immediately!"
+
+---
 
 Over the next few days, Xuan De did indeed release Hu Qi'er and Ma Weisan. He ordered them to publicly confess their errors before the incense hall, then remain to "await orders while under probation."
 

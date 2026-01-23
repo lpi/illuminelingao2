@@ -10,9 +10,9 @@ Once everything was in order, he instructed his female apprentice to buy late-ni
 
 While waiting for the others to arrive, Zhan Wuya brought several damaged chain links from the workshop to the workbench in the outer room. He switched on the work lamp and examined the broken sections carefully, then studied them for some time with a magnifying glass. He came from a heat-treatment background; though he didn't understand metallography, years of accumulated experience had given him some insight. After studying the fracture for several minutes, his sense was that the problem lay in how the material bore stress.
 
-Before long, everyone had arrived. They examined the fractured links over and over, discussing how to increase the chain's strength. This time, the General Machinery Plant had been determined to crack the industrial chain problem. Zhan Wuya had personally handled the heat treatment—a large heat-treatment furnace had been specially built for this project. The steel from the Metallurgical Industry Department was the best the steelworks could produce.
+Before long, everyone had arrived. They examined the fractured links from every angle, discussing how to increase the chain's strength. This time, the General Machinery Plant had been determined to crack the industrial chain problem. Zhan Wuya had personally handled the heat treatment—a large heat-treatment furnace had been specially built for this project. The steel from the Metallurgical Industry Department was the best the steelworks could produce.
 
-But the results were still unsatisfactory. Everyone gathered around the pile of chains, examining them from every angle, occasionally commenting. Liang Xin measured each link with vernier calipers, jotting data on a sheet of paper. Sun Li inspected the chains link by link for any defects... Each person was busy analyzing the chains from their own perspective. Until they'd formed a view, there would be no discussion—hypotheses needed physical evidence.
+But the results were still unsatisfactory. Everyone gathered around the pile of chains, examining them from every angle, occasionally commenting. Liang Xin measured each link with vernier calipers, jotting data on a sheet of paper. Sun Li inspected the chains link by link for any defects. Each person was busy analyzing the chains from their own perspective. Until they'd formed a view, there would be no discussion—hypotheses needed physical evidence.
 
 Zhan Wuya's female apprentice kept their tea topped up and occasionally helped light cigarettes or empty the overflowing ashtray.
 
@@ -20,7 +20,7 @@ By midnight, they had finally reached a unified technical conclusion: uneven str
 
 The General Machinery Plant's chain manufacturing process involved forging blanks first, then annealing to relieve stress, followed by machining, normalizing and tempering, surface treatment, and finally assembly.
 
-"I just measured many links," Liang Xin said. "The tolerances aren't ideal—some are as large as ±0.7mm, averaging around ±0.5mm. The dimensional error is too high. According to GB standards, the allowable tolerance for links this size shouldn't exceed ±0.4mm. This shows that the residual stress from machining is more severe than we thought." Liang Xin continued, "Small tolerance deviations accumulate, causing certain links to bear concentrated stress—and eventually snap."
+"I just measured many links," Liang Xin said. "The tolerances aren't ideal—some are as large as ±0.7mm, averaging around ±0.5mm. The dimensional error is too high. According to GB standards, the allowable tolerance for links this size shouldn't exceed ±0.4mm. This shows that the residual stress from machining is more severe than we thought." He continued, "Small tolerance deviations accumulate, causing certain links to bear concentrated stress—and eventually snap."
 
 Sun Li said, "I think we should machine first, then do heat treatment. Even if it wears down some tools, it's worth it—after all, eventually we'll solve the tool problem. They're not one-time consumables that are gone forever once used up. Also, forging should be done at the Arsenal. Their forging press is bigger than ours. For high-strength industrial chain, the more forging tonnage the better."
 
@@ -40,15 +40,15 @@ After forging, the chains were returned to the plant and annealed in the heat-tr
 
 "Good. Be strict! This is our own concern—we're not fooling a customer."
 
-"Of course," Sun Li said. "Let's go—to the testing ground!"
+"Of course." Sun Li nodded. "Let's go—to the testing ground!"
 
-Several naturalized technicians who had been observing and learning alongside them answered with a call, hoisted the chain, and headed out. The female apprentice handed Zhan Wuya a large enamel mug of tea and a towel. He drained most of the mug in one gulp and wiped his sweat. He told the apprentice to bring everyone a few bottles of salted soda water.
+Several naturalized technicians who had been observing and learning alongside them answered with a shout, hoisted the chain, and headed out. The female apprentice handed Zhan Wuya a large enamel mug of tea and a towel. He drained most of the mug in one gulp and wiped his sweat. He told the apprentice to bring everyone a few bottles of salted soda water.
 
 "And two packs of cigarettes!"
 
 Several Elders squatted outside the heat-treatment workshop, smoking—no smoking inside the workshop was a rule Zhan Wuya had set. The female apprentice quickly brought over some small stools. Though the naturalized workers had done most of the hands-on work, the Elders had supervised and guided nearly every step, working around the clock for two days and nights. Their eyes were all bloodshot.
 
-Before long, Sun Li returned, beaming: "Holy cow! Success!"
+Before long, Sun Li returned, beaming. "Holy cow! Success!"
 
 Everyone sprang to their feet. Zhan Wuya was so excited he asked again: "How did the test go?"
 

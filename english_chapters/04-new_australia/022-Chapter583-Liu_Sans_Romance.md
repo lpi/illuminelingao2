@@ -1,10 +1,10 @@
 # Chapter 583 - Liu San's Romance
 
-At the county town gate, the head of the county's fast squad waited with his men. The county town still wasn't a green zone, so staying here required assigned security guards. Liu San considered that Runshitang was quite enclosed, with outsiders rarely coming and going—security was guaranteed. He declined the bodyguards the Political Security General Administration offered, only agreeing to have the police station post hidden sentries at Runshitang's entrance.
+At the county town gate, the head of the county's fast squad waited with his men. The county town still wasn't classified as a green zone, so staying here required assigned security guards. Liu San considered that Runshitang was quite enclosed, with outsiders rarely coming and going—security was guaranteed. He declined the bodyguards the Political Security General Administration offered, only agreeing to have the police station post hidden sentries at Runshitang's entrance.
 
-The residence Yang Shixiang arranged for him was a courtyard between Runshitang and the living quarters—small and secluded, rarely visited by ordinary people. A narrow passage led directly to a small door at the residence's rear, convenient for coming and going.
+The residence Yang Shixiang arranged for him was a courtyard situated between Runshitang and the living quarters—small and secluded, rarely visited by ordinary people. A narrow passage led directly to a small door at the residence's rear, convenient for coming and going.
 
-The steward showed him around the courtyard. The rooms were old but recently renovated by the Executive Office; walls whitewashed, windows fitted with glass, floors installed—clean and bright.
+The steward showed him around the courtyard. The rooms were old but recently renovated by the Executive Office: walls whitewashed, windows fitted with glass, floors properly installed—clean and bright.
 
 Liu San circled the rosewood desk by the window, wiped spotless. Bookshelves, curio shelves, brush holders—all fine things.
 
@@ -14,7 +14,7 @@ Most eye-catching was a telephone on the desk. This gray-green hand-crank milita
 
 Lingao Telecom had recently set up a telephone exchange in the county town, extending phone service beyond the County Office to the Grain Requisition Bureau, the County Fast Squad (County Police Station), and various city gate guard posts.
 
-"Runshitang office phone test." Liu San muttered.
+"Runshitang office phone test," Liu San muttered.
 
 "Hello Director, phone is working normally."
 
@@ -24,23 +24,23 @@ Lingao Telecom had recently set up a telephone exchange in the county town, exte
 
 "Sleep in the east wing room." A female voice came from outside. Liu San looked up—it was Xuanchun.
 
-Xuanchun still wore a half-worn blue cloth skirt, washed spotless, but her top was a water-red satin button-front jacket. Her twin hair buns were tied with red satin ribbons—this style of ribbon was actually a new fashion that had spread out from the transmigrators, specifically from Li Chiqi's sister Zhang Yu.
+She still wore a half-worn blue cloth skirt, washed spotless, but her top was a water-red satin button-front jacket. Her twin hair buns were tied with red satin ribbons—this style of ribbon was actually a new fashion that had spread out from the transmigrators, specifically from Li Chiqi's sister Zhang Yu.
 
 She looked more put-together than before. Liu San's heart stirred involuntarily; he smiled and beckoned.
 
-Xuanchun smiled gracefully, placed both hands at her left hip, and curtsied: "Blessings to Third Master."
+Xuanchun approached with a graceful smile, placed both hands at her left hip, and curtsied: "Blessings to Third Master."
 
-"Good, good." Liu San, having been at the Yang household for a while, knew something of proper household etiquette. The custom called for a tip. He had money—a few yuan in circulation notes would suffice. But Liu San had something special in mind for Xuanchun.
+"Good, good." Liu San, having been at the Yang household for a while, knew something of proper household etiquette. Custom called for a tip. He had money—a few yuan in circulation notes would suffice. But Liu San had something special in mind for Xuanchun.
 
-"Let me arrange the luggage, sir. He's only a half-grown boy who still needs his mother's care." Xuanchun said.
+"Let me arrange the luggage, sir. He's only a half-grown boy who still needs his mother's care," Xuanchun said.
 
 Fu Wuben's face flushed. A country lad, seeing such a pretty, confident maid from a great household naturally made him feel self-conscious.
 
-"He's my disciple, quite capable." Liu San said. "Since you're offering to help, I'll excuse him from the task."
+"He's my disciple, quite capable," Liu San said. "Since you're offering to help, I'll excuse him from the task."
 
-Fu Wuben, having followed Liu San for some time, had developed some sense. He quickly withdrew. Xuanchun smiled and withdrew as well.
+Fu Wuben, having followed Liu San for some time, had developed a sense for such things. He quickly withdrew. Xuanchun smiled and withdrew as well.
 
-Shortly she reappeared, bringing a basin of clear water. First she unwound the towel from his satchel and washed it, then brought hot water for him to wash his face, serving tea—attentive and considerate as ever. Liu San had intended to focus solely on work, setting aside romantic matters. But seeing Xuanchun, his mind wandered.
+Shortly she reappeared, bringing a basin of clear water. First she unwound the towel from his satchel and washed it, then brought hot water for him to wash his face, and served tea—attentive and considerate as ever. Liu San had intended to focus solely on work, setting aside romantic matters. But seeing Xuanchun, his mind wandered.
 
 "Third Master, wash up first and change clothes. What would you like for dinner?"
 
@@ -48,7 +48,7 @@ Shortly she reappeared, bringing a basin of clear water. First she unwound the t
 
 "Of course the kitchen staff will cook." Xuanchun smiled. "If sir doesn't mind, I can cook, but not as well as them."
 
-"I'd like to try yours." Liu San said.
+"I'd like to try yours," Liu San said.
 
 "Good." Xuanchun readily agreed. "After all, you're half-master of this household. You can make that decision."
 
@@ -56,7 +56,7 @@ He'd expected her to demur. Her straightforward acceptance surprised him. Lookin
 
 "You seem happy about something?" he probed.
 
-"I have nothing to be unhappy about." Xuanchun said as she undid his buttons and removed his jacket, half-leaning against him. Again that infinitely wistful voice. Liu San felt a peculiar sensation.
+"I have nothing to be unhappy about," Xuanchun said as she undid his buttons and removed his jacket, half-leaning against him. Again that infinitely wistful voice. Liu San felt a peculiar sensation.
 
 When she bent to unbuckle his belt, he couldn't help reaching to stroke her glossy black hair. Xuanchun lowered her head further, avoiding his hand: "Third Master, it's broad daylight—"
 
@@ -66,7 +66,7 @@ When she bent to unbuckle his belt, he couldn't help reaching to stroke her glos
 
 He took a small box from his satchel. Inside was a silver powder compact—a glass-mirror compact from Zizhen Studio's mass production line for the middle market. Not handmade but machine-stamped in Lingao, then sent to Guangzhou for simple hand-finishing and mirror installation. Low cost since it saved labor.
 
-But in Lingao, such items were rare. Xuanchun was more shocked than pleased. She looked at it again and again, opened and closed it. Finally, she set it down:
+But in Lingao, such items were rare. Xuanchun was more shocked than pleased. She examined it again and again, opened and closed it repeatedly. Finally, she set it down:
 
 "Third Master's gift is too generous. A mere maid like me doesn't deserve it."
 
@@ -92,21 +92,21 @@ Taking the opportunity of helping her up, he held her hand. Xuanchun didn't pull
 
 "Mostly people who came seeking employment. Some are sent by relatives and friends with recommendations." Xuanchun thought nothing of it. "Now that Master Yang is prosperous, naturally more people want to make a living here. Quite a few have been added recently."
 
-Runshitang as a key enterprise now recruited employees only through the quarantine camp's political screening. But the Yang household's servants had never been monitored for their origins. A few spies slipping in would be bad. This should be noted in a report to alert the Political Security General Administration.
+Runshitang as a key enterprise now recruited employees only through the quarantine camp's political screening. But the Yang household's servants had never been monitored for their origins. A few spies slipping in would be troublesome. This should be noted in a report to alert the Political Security General Administration.
 
 Moreover, traditional enterprises often couldn't separate household from business. Traditional hiring favored "one's own people": family and relatives went without saying; apprentices and servants, though not blood-related, also counted as "insiders." Future branch expansion would give newly arrived household servants good opportunities. Runshitang had expanded rapidly lately; Yang Shixiang had mentioned several times that people weren't enough.
 
 Liu San had always been proud of his partnership with Runshitang, considering it inspired—a typical "win-win" situation. Now he could see this partnership had left significant problems.
 
-He resolved that the pharmaceutical factory and branches' personnel matters must absolutely not let Yang Shixiang meddle. While pondering how to handle this, Xuanchun returned with a tray containing a covered bowl. Opening it:
+He resolved that the pharmaceutical factory and branches' personnel matters must absolutely not let Yang Shixiang meddle in.
 
-Mixed fruit sweet soup: papaya, coconut, lychee, mango, sago, and konjac, with floating tapioca pearls—fragrant, colorful, and beautiful. Chilled with crushed ice, it was refreshing and sweet. This dessert, like the ribbons in Xuanchun's hair, was a new fashion brought by the transmigrators. Sago, konjac, and tapioca pearls were food factory products. The recipe had spread from the cooperative's restaurants.
+While pondering how to handle this, Xuanchun returned with a tray containing a covered bowl. Opening it revealed mixed fruit sweet soup: papaya, coconut, lychee, mango, sago, and konjac, with floating tapioca pearls—fragrant, colorful, and beautiful. Chilled with crushed ice, it was refreshing and sweet. This dessert, like the ribbons in Xuanchun's hair, was a new fashion brought by the transmigrators. Sago, konjac, and tapioca pearls were food factory products. The recipe had spread from the cooperative's restaurants.
 
 Liu San had worked up a sweat on the road; this sweet soup was perfect. Eating by the window, gazing at the swaying green shade and dancing flower shadows, he felt an indescribable lightness and relief—truly the pleasure of a Southern king.
 
-"The sweet soup is my own cooking. Not as good as the restaurants'." Xuanchun said. "Does Third Master have any food taboos?"
+"The sweet soup is my own cooking. Not as good as the restaurants'," Xuanchun said. "Does Third Master have any food taboos?"
 
-"No. I only avoid two-legged humans and four-legged tables." Liu San joked. "But the more meat the better. The less fish and shrimp the better."
+"None. I only avoid two-legged humans and four-legged tables." Liu San joked. "But the more meat the better. The less fish and shrimp the better."
 
 Food hall supplies were getting better—daily eggs now, weekly pork, occasional beef. But the protein mainstay remained fish, shrimp, seafood, and bean products. So the Elders particularly craved meat.
 
@@ -124,13 +124,13 @@ Her face flushed slightly, shy yet almost coy—a young maiden's bashfulness. Th
 
 The soft, warm body against him made Liu San's heart pound. Xuanchun said nothing, feeling uneasy. She'd always sensed that Third Master Liu had special feelings for her—not merely craving momentary carnal pleasure.
 
-Since he had feelings, he wasn't heartless. She was approaching her lonely twilight youth—was she to stay like this forever, an aging maid? She needed a proper destination. Her thoughts stirred; her manner changed. She leaned closer to Liu San, making soft "mm, mm" sounds. Liu San's hands roamed her waist and hips, making her heart race.
+Since he had feelings, he wasn't heartless. She was approaching her lonely twilight youth—was she to remain like this forever, an aging maid? She needed a proper destination. Her thoughts stirred; her manner changed. She leaned closer to Liu San, making soft sounds. Liu San's hands roamed her waist and hips, making her heart race.
 
 Liu San stroked her face: "So hot!"
 
 Xuanchun turned her face away, but pressed her body closer—as if only being held tight gave her heart security.
 
-...
+---
 
 Liu San released his hands: "Fetch me some tea."
 
@@ -144,13 +144,15 @@ Xuanchun poured cold tea from the pot. Liu San took a big gulp, refreshingly coo
 
 After Xuanchun left, Liu San made several phone calls to arrange for tomorrow's banquet and reception. The grand feast at the Commercial Hall was essential but not the focus—banquets don't build strong nations. Excellent cooking, at most, makes people think you're all cooks!
 
-The focus was demonstrating their side's strength—military exercises? Artillery firing? Movie screenings or factory tours? Should they show him the Holy Ship? Or give him a look at that stalled Project 854?
+The focus was demonstrating their side's strength. Military exercises? Artillery firing? Movie screenings or factory tours? Should they show him the Holy Ship? Or give him a look at that stalled Project 854?
 
 This was quite a brain-racking problem. Blatant boasting was too obvious; better let him raise the topic himself.
 
-Li Luoyou's party settled in. The newly renovated bathroom astonished Li Luoyou—a room entirely decorated with porcelain, with porcelain bathtub and toilet. The novelty alone was remarkable. And the convenience and cleanliness of use were unprecedented.
+---
 
-The bathroom's sensational effect even exceeded the all-glass windows. Not just Gu Baocheng and Quark came to look, but even the servants found excuses to peek. Everyone was mystified by the hot and cold running water at the turn of a tap. Where was the water heated?
+Li Luoyou's party settled in. The newly renovated bathroom astonished him—a room entirely decorated with porcelain, complete with porcelain bathtub and toilet. The sheer novelty was remarkable. And the convenience and cleanliness of use were unprecedented.
+
+The bathroom's sensational effect exceeded even the all-glass windows. Not just Gu Baocheng and Quark came to look, but even the servants found excuses to peek. Everyone was mystified by the hot and cold running water at the turn of a tap. Where was the water heated?
 
 Quark had some idea. He said there should be pipes leading to some cistern; as for hot water, probably some kind of heater with people constantly stoking a fire.
 
@@ -162,15 +164,15 @@ Li Luoyou enjoyed a thorough hot bath in the blue-and-white porcelain tub, washi
 
 The courtyard had many newly planted trees and flowers. The climate here was even warmer and more humid than Guangzhou; though only February, the courtyard was already lush. Leaves and petals danced gracefully in the breeze—elegant and peaceful.
 
-In the courtyard was an aged gourd vine, specially transplanted from outside the city by Li Luoyou. Now it had taken root, its dense shade covering the trellis.
+In the courtyard was an aged gourd vine, specially transplanted from outside the city. Now it had taken root, its dense shade covering the trellis.
 
 Servants had already set up a rattan couch and tables under the gourd trellis. Li Luoyou reclined on the couch, feeling cool breezes waft over him, the journey's dust swept away.
 
 Saoye and the personal servants waited under the eaves. Gu Baocheng, being of the younger generation, couldn't sit either; only Advisor Han and Quark had chairs. Advisor Han dared not be presumptuous and only sat on a rattan stool. But Quark sprawled in a rattan armchair, gulping kvass.
 
-"This stuff is delicious—sour, sweet, and thirst-quenching." Quark said, pouring a few more ounces of rum into his glass. "Who knew they'd have rum here! Want some?"
+"This stuff is delicious—sour, sweet, and thirst-quenching," Quark said, pouring a few more ounces of rum into his glass. "Who knew they'd have rum here! Want some?"
 
-"Drinking without food—that I can't do." Li Luoyou smiled. Saoye had already brewed fine tea in his usual pot.
+"Drinking without food—that I can't do," Li Luoyou smiled. Saoye had already brewed fine tea in his usual pot.
 
 "Baocheng!" He ignored Quark. "Traveling here, what are your impressions?"
 

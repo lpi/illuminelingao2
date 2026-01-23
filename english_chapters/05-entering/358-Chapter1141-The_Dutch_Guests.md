@@ -1,87 +1,89 @@
 # Chapter 1141 - The Dutch Guests
 
-"Espionage is certain. Never mind this era; even centuries later, diplomats still have the duty to gather intelligence," Wei Bachi said dismissively. "Anyway, show them some muscle. Maybe in the future, we can just tell the Dutch to get the hell out of Tayouan without us having to use force."
+"Espionage is a certainty. Never mind this era—even centuries hence, diplomats will still shoulder the duty of gathering intelligence," Wei Bachi declared dismissively, gesturing with his cigar. "Regardless, we'll flex a bit of muscle. Perhaps one day we'll be able to tell the Dutch to vacate Tayouan without ever unsheathing a sword."
 
-What everyone was most interested in was the "little foreign mare"—the Committee members had been puzzled why the Dutch would bring children all the way to East Asia. Hearing Dr. Zhong explain it was for vaccination, they were relieved. After all, in this era where everyone from emperors and nobles to commoners turned pale at the mention of "blossoms" [smallpox], a medical technique preventing infection was reason enough to take such risks.
+What truly captivated the Committee members was talk of the "little foreign mare"—they had puzzled over why the Dutch would drag children halfway across the world to East Asia. When Dr. Zhong explained it was for vaccination purposes, relief washed through the room. In an age when emperors and peasants alike blanched at the mere whisper of "blossoms"—smallpox—a medical technique that could prevent infection justified almost any risk.
 
-Moreover, given their status, while the sea voyage was arduous, they weren't wretched sailors or petty merchants. They didn't have to risk riding broken ships that needed constant pumping to stay afloat, nor would they die from long-term consumption of poor food or overwork. Their safety was still somewhat guaranteed.
+Besides, given their station, while the sea voyage was surely arduous, these were no wretched sailors or petty merchants. They needn't risk their lives aboard leaking hulks requiring constant pumping to stay afloat, nor would they perish from months of worm-eaten hardtack and backbreaking labor. Their safety, comparatively speaking, was assured.
 
-"speaking of which, what exactly are their identities?" Wei Bachi asked.
+"Speaking of which, what exactly are their ranks and positions?" Wei Bachi inquired.
 
-"According to the messenger from Tayouan, Huygens' father comes representing the Prince—meaning he represents the government of the Seven Provinces, not the East India Company. As for Mr. Bontekoe, he's a Senior Merchant of the East India Company, at least the same rank as Hans Putmans here."
+"According to the messenger from Tayouan, Huygens' father represents the Prince—meaning he speaks for the government of the Seven Provinces, not the East India Company. As for Mr. Bontekoe, he's a Senior Merchant of the Company, at minimum the equal of Hans Putmans in rank."
 
-"I still don't understand why the Dutch would send a diplomat and a Senior Merchant to Taiwan? And specifically send a ship? Just to send their children for cowpox vaccination and incidentally look at our construction achievements? The Dutch aren't crazy, are they?" Liu Zheng still felt it was strange.
+"I still don't understand why the Dutch would dispatch both a diplomat and a Senior Merchant to Taiwan," Liu Zheng mused, brow furrowed. "And on a dedicated ship, no less? Just to vaccinate their children and admire our construction projects? Have they taken leave of their senses?"
 
-"I think their purpose is to negotiate with the Shogunate to resolve the Hamada Yahei incident." Wei Bachi had considered this issue many times. He said, "From 1626 to now, Japanese-Dutch trade has been suspended. According to historical trends, it was indeed settled this year with a final Dutch compromise."
+"I believe their primary purpose is to negotiate with the Shogunate over the Hamada Yahei incident," Wei Bachi replied. He had mulled over this question at length. "From 1626 until now, Japanese-Dutch trade has been suspended. According to historical records, the matter was indeed settled this year—with a final Dutch capitulation."
 
-Put this way, everyone felt more relieved. Trade with Japan was indeed the Dutch East India Company's most important commercial activity in East Asia; one could imagine their urgency to resolve this issue.
+This interpretation put everyone more at ease. Trade with Japan was the Dutch East India Company's most lucrative commercial activity in East Asia; their desperation to resolve the impasse was easy to imagine.
 
-"The only thing I find strange is this Dutch government representative—Mr. Constantijn Huygens isn't an East India Company employee, and the United Government of the Seven Provinces generally doesn't interfere in the Company's Asian activities."
+"The only peculiarity is this Dutch government representative. Constantijn Huygens isn't a Company employee, and the United Government of the Seven Provinces rarely meddles in the Company's Asian affairs."
 
-Li Di said, "Huygens should be aiming more at us—after all, we're already a major power in East Asia now."
+Li Di stroked his chin. "Huygens' true target is likely us. After all, we've become a major power in East Asia."
 
-"That's also possible." Wei Bachi nodded. "Let's entertain them and see what tricks they can play."
+"That's possible," Wei Bachi conceded with a nod. "We'll entertain them lavishly and see what cards they choose to play."
 
-Then he said to Zhong Lishi, "I'll leave this matter to you. I see you're very interested in Papa Huygens..."
+He turned to Zhong Lishi with an amused glint. "I'll leave the hosting duties to you. You seem quite taken with Papa Huygens..."
 
-Zhong Lishi hurriedly defended himself: "I'm interested in his son..." Suddenly realizing this sounded improper, he quickly changed tack: "They are guests; naturally, we must fulfill our duties as hosts." Then he looked at the other Committee members and said earnestly, "They are guests. We absolutely must not do anything to scare them—be dignified."
+"I'm interested in his son—" Zhong Lishi blurted, then caught himself at how that sounded. He coughed and pivoted: "They are guests; naturally we must fulfill our obligations as hosts." His earnest gaze swept across the other Committee members. "They are guests. Under no circumstances should we do anything to frighten them. We must be dignified."
 
-On the spot, all Committee members declared they were "delighted to have friends coming from afar" and absolutely harbored no "zombie" thoughts, claiming to be "gentlemen" of the Committee, and so on. Then they unanimously agreed to hold a grand reception to entertain the distinguished Dutch guests. Wei Bachi was particularly enthusiastic about this:
+Every Committee member promptly declared themselves "delighted to have friends from afar" and harbored absolutely no untoward "zombie" thoughts, insisting they were perfect "gentlemen" of the Committee, and so forth. They unanimously approved a grand reception for their distinguished Dutch visitors. Wei Bachi proved particularly enthusiastic:
 
-"We must entertain our foreign... no, guests well." He waved his cigar wildly. "Let them fully experience the Committee's hospitality and deep friendship toward the Dutch people."
-
-At dusk, Zhong Lishi and several chefs were in the Customs House kitchen preparing dishes for the reception.
-
-Besides being learned, Dr. Zhong was a bona fide "foodie." He not only loved to eat but loved figuring out how to cook. In Lingao, he had started cooking for himself very early on. After Taibai Observatory was completed, Science Department colleagues would gather at the observatory for Dr. Zhong to cook a meal whenever they got good ingredients or found a suitable excuse. Some joked that Taibai Observatory had as much kitchenware as instruments.
-
-For this business trip to Taiwan, he had also made ample preparations for his palate. Various kitchen utensils and condiments filled a whole crate. The kitchen in the Customs House, which had been empty, was now his to use.
+"We must entertain our foreign—no, our *guests*—properly." He waved his cigar for emphasis. "Let them experience the full depth of the Committee's hospitality and our sincere friendship toward the Dutch people."
 
 ---
 
-The kitchen was buzzing with activity. Zhong Lishi instructed Zhong Xiaoying to watch the pot of simmering tomato bisque while he took a mallet to pound meat paste for *yanpi* [dumpling wrappers made of meat and starch]. After preparing the *yanpi*, he turned to tell Xiaoying to bring the seasoned meat filling, only to find the person helping behind him was Huygens.
+At dusk, Zhong Lishi and several cooks labored in the Customs House kitchen, preparing dishes for the reception.
 
-Zhong Lishi was startled. "Mr. Huygens? How did you..."
+Beyond his scholarly pursuits, Dr. Zhong was a bona fide gourmand. He didn't merely love to eat—he delighted in mastering the preparation of dishes himself. In Lingao, he had begun cooking early on. After the Taibai Observatory was completed, colleagues from the Science Department would gather there for Dr. Zhong's cooking whenever they procured quality ingredients or conjured a suitable excuse. Some joked that the observatory housed as much kitchenware as scientific instruments.
 
-Huygens smiled slightly and said to Zhong Lishi, "I'm also very interested in cooking. I heard your daughter say you excel at cooking, especially that your roast duck is delicious. I wanted to see how your roast duck differs from our roast goose..."
+For this business trip to Taiwan, he had prepared amply to satisfy his palate. Kitchen utensils and condiments filled an entire crate. The Customs House kitchen, previously bare, was now entirely his domain.
 
-"Welcome! Welcome! Just don't mind the messy kitchen..." Zhong Lishi greeted Huygens while secretly wondering: When did Zhong Xiaoying learn German? As for these Dutchmen, sticking together a few out-of-tune Cantonese phrases would be rare enough.
+---
 
-Zhong Lishi looked back and saw Zhong Xiaoying deftly pumping air into a duck while laughing and talking with the blonde girl. Though he couldn't hear what they were saying, it was clear they were communicating.
+The kitchen buzzed with activity. Zhong Lishi instructed Zhong Xiaoying to monitor a pot of simmering tomato bisque while he wielded a mallet, pounding meat into a fine paste for *yanpi*—dumpling wrappers fashioned from meat and starch. Having prepared the wrappers, he turned to ask Xiaoying to fetch the seasoned filling, only to discover that the person assisting him was Huygens.
 
-"Xiaoying!?" Zhong Lishi was greatly surprised.
+Zhong Lishi started. "Mr. Huygens? How did you—"
 
-Huygens probably noticed his surprise and couldn't help smiling slightly. "You needn't be surprised. Your daughter doesn't speak German, but Cleadia learned quite a bit of Chinese from Chinese sailors and merchants on the ship and in Batavia..."
+Huygens offered a slight smile. "I too take great interest in culinary arts. Your daughter mentioned that you excel at cooking, particularly that your roast duck is exceptional. I wished to observe how your roast duck differs from our roast goose..."
 
-"It's Cantonese, right?" Zhong Lishi said.
+"Welcome! Most welcome! Please forgive the chaos..." Zhong Lishi greeted him warmly while wondering privately: *When did Zhong Xiaoying learn German?* These Dutchmen cobbling together a few mangled Cantonese phrases would already be remarkable enough.
 
-Huygens was puzzled. "Isn't that Chinese?"
+He glanced back and spotted Zhong Xiaoying deftly pumping air into a duck, laughing and chatting with the blonde girl. Though he couldn't make out their words, they were clearly communicating.
 
-Zhong Lishi didn't know whether to laugh or cry. This traditional misunderstanding, where even in 20th-century Hollywood movies every Chinese spoke Cantonese, indeed had a long history. He could only say, "You see, you speak Low German, while Mr. Bontekoe and I speak High German... You can't say they are the same thing."
+"Xiaoying!?" Zhong Lishi exclaimed in surprise.
 
-"Oh, I understand your meaning." Huygens looked thoughtful. "But the German you speak is very strange..."
+Huygens noticed his astonishment and couldn't suppress a smile. "No need to be startled. Your daughter doesn't speak German, but Cleadia learned a fair amount of Chinese from Chinese sailors and merchants during the voyage and in Batavia..."
 
-Dr. Zhong was about to explain further when he suddenly heard laughter from the two girls beside him. Seeing Zhong Lishi notice her, Zhong Xiaoying smiled mischievously at him. She spoke loudly to him in Mandarin: "Honorable Father, I don't understand her Cantonese very well either..."
+"Cantonese, I presume?" Zhong Lishi said.
 
-Dr. Zhong admonished, "Be careful with your work, watch out for burns!"
+Huygens looked puzzled. "Is that not Chinese?"
 
-Zhong Xiaoying said to Zhong Lishi, "Cleadia says she wants to teach me how to cook fish the Dutch way..."
+Zhong Lishi didn't know whether to laugh or cry. This enduring misunderstanding—the assumption that all Chinese spoke Cantonese, persisting even in twentieth-century Hollywood films—apparently had a long pedigree. "Consider this," he offered. "You speak Low German, while Mr. Bontekoe and I converse in High German... One can hardly call them the same language."
 
-"Really? That's excellent." Zhong Lishi thought this was a good way to promote friendship. Of course, what specific use this friendship had was hard to say...
+"Ah, I take your meaning." Huygens looked thoughtful. "Though the German you speak is quite peculiar..."
 
-Suddenly he realized his thinking had become too "Committee-ized." Everything had to have meaning and utility.
+Dr. Zhong was about to elaborate when laughter erupted from the two girls beside him. Catching Zhong Lishi's gaze, Zhong Xiaoying flashed him a mischievous grin and called out in Mandarin: "Honorable Father, I don't fully understand her Cantonese either!"
 
-Zhong Lishi hung the air-pumped ducks in the oven—he roasted six in total. Not to mention the Committee members, the Dutchmen were probably big eaters too; six ducks were the minimum. He checked the fire, poked it with an iron hook, and closed the door only when the heat was right, then went to observe Cleadia's Dutch-style roast fish.
+"Mind your work—watch out for burns!" Dr. Zhong admonished.
 
-"Remove bones, tail, head, leaving only meat... then add olive oil, bay leaves, onions, milk..."
+"Cleadia says she wants to teach me how to cook fish the Dutch way," Zhong Xiaoying reported.
 
-It was evident Cleadia had good skills; her movements were deft. Dr. Zhong couldn't help praising her a few times. He felt this girl should be a lady of good family, yet surprisingly she could work in the kitchen.
+"Splendid. That's excellent." Zhong Lishi mused that this was a fine way to foster friendship—though what practical use such friendship might serve remained unclear.
 
-"I used to help Mama cook," Cleadia said. "Later God took Mama away, so only I cooked..."
+Then he caught himself: his thinking had become thoroughly "Committee-ized." Everything had to possess meaning and utility.
 
-Dr. Zhong knew average life expectancy was short in this era, but from her words, he could tell the Bontekoe family hadn't been wealthy in earlier years; otherwise, in this era of cheap labor, wife and daughter wouldn't need to cook. No wonder she and Zhong Xiaoying found common language—both came from working backgrounds.
+Zhong Lishi suspended the air-pumped ducks in the oven—six in total. Between the Committee members and the Dutchmen, who were likely hearty eaters as well, six ducks were the bare minimum. He inspected the fire, adjusted it with an iron hook, and closed the door only when the heat felt right before drifting over to observe Cleadia's Dutch-style roast fish.
 
-"Miss Bontekoe is a very capable young lady. She took care of our daily lives all along the journey," Huygens said with a smile. He was a Dutch noble and diplomat, but Dutch social atmosphere differed from general European countries; aristocrats and the wealthy lived simply and valued labor. So their attitude toward labor was relatively positive.
+"Remove the bones, tail, and head, leaving only the flesh... then add olive oil, bay leaves, onions, and milk..."
 
-Dr. Zhong took the opportunity to ask, "Mr. Huygens, is your young son Christiaan well?"
+Cleadia's skill was evident; her movements were deft and practiced. Dr. Zhong couldn't help praising her several times. This girl appeared to be from a respectable family, yet she moved through a kitchen with surprising confidence.
+
+"I used to help Mama cook," Cleadia explained. "Later, God took Mama away, so only I cooked..."
+
+Dr. Zhong knew that life expectancy was short in this era, but her words suggested the Bontekoe family hadn't been wealthy in earlier years—otherwise, with labor so cheap, neither wife nor daughter would have needed to cook. No wonder she and Zhong Xiaoying found common ground; both came from working backgrounds.
+
+"Miss Bontekoe is a most capable young lady. She looked after our daily needs throughout the entire voyage," Huygens remarked with a smile. He was a Dutch noble and diplomat, but the social atmosphere of the Netherlands diverged from that of most European countries; aristocrats and the wealthy lived simply and valued honest labor. Their attitude toward work was correspondingly positive.
+
+Dr. Zhong seized the opportunity. "Mr. Huygens, how fares your young son Christiaan?"
 
 (End of Chapter)

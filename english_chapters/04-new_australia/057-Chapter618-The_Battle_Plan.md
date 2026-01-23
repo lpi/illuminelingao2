@@ -8,11 +8,11 @@ But this basically confirmed that Zheng Zhilong wouldn't provide assistance for 
 
 "Here are several military intelligence reference booklets compiled by the Foreign Intelligence Bureau based on existing materials, for everyone's reference."
 
-Wang Ding then distributed these booklets. They were titled: *Guangdong Ming Force Designations and Garrison Distribution*, *Guangdong Ming Military Officer Roster, Captain and Above*, *Ming Military Weapons and Equipment Illustrated Catalog with Main Specifications: Army (Navy) Volume*, *Ming Military Organization Quick Reference*, and *Ming Military Tactical Characteristics*.
+Wang Ding then distributed the booklets. They were titled: *Guangdong Ming Force Designations and Garrison Distribution*, *Guangdong Ming Military Officer Roster, Captain and Above*, *Ming Military Weapons and Equipment Illustrated Catalog with Main Specifications: Army (Navy) Volume*, *Ming Military Organization Quick Reference*, and *Ming Military Tactical Characteristics*.
 
 These booklets were partly compiled from historical records and accumulated research materials, and partly from fragmentary intelligence gathered through various channels since D-Day. The latter came from extremely diverse sources: some were military intelligence specifically collected by the Guangzhou and Leizhou stations; some were extracted from Qiwei Escort Bureau's routine reports. The most valuable were interrogation records of surrendered Ming soldiers and county yamen military archive clerks, as well as military files from the county yamen's archive storage—not a few of which were genuine firsthand source materials.
 
-Wang Ding and colleagues had also taken the trouble to specifically visit Lin Shenhe. In the Weapons Research Institute's warehouse, various cold and hot weapons used by Ming forces and pirates were stored by category. From the beginning, Lin Shenhe had consciously rescued quite a few captured Ming-era weapons from the steelworks. After cleaning and oiling, they were preserved. He'd even specifically petitioned the Executive Committee to set up a testing range, specifically for conducting lethality tests on captured Ming-era weapons.
+Wang Ding and his colleagues had also taken the trouble to specifically visit Lin Shenhe. In the Weapons Research Institute's warehouse, various cold and hot weapons used by Ming forces and pirates were stored by category. From the beginning, Lin Shenhe had consciously rescued quite a few captured Ming-era weapons from the steelworks. After cleaning and oiling, they were preserved. He had even specifically petitioned the Executive Committee to set up a testing range for conducting lethality tests on captured Ming-era weapons.
 
 These lethality tests covered not only firearms but also cold weapons like spears, bows and arrows, and swords. They also tested casualty effects on personnel both armored and unprotected.
 
@@ -20,7 +20,7 @@ Lin Shenhe's only regret was the lack of ballistic gelatin. As for using livesto
 
 Without these actual test results, relying only on historical records with their contradictory and often scientifically implausible descriptions, the booklet on Ming weapons performance couldn't have been compiled at all.
 
-Everyone found it very convenient after receiving them. Officers who'd served in the PLA in particular were quite familiar with such booklets. They were a simple and effective way to understand the enemy.
+Everyone found the booklets very convenient. Officers who had served in the PLA in particular were quite familiar with such materials. They were a simple and effective way to understand the enemy.
 
 "These booklets are excellent! You've done good work." He Ming nodded approvingly.
 
@@ -28,7 +28,7 @@ Seeing smiles appear on the faces of He Ming, Chen Haiyang, and others, Wang Din
 
 "Alright, let's speculate on the Ming forces' specific military actions," He Ming said. "Then formulate several contingency plans."
 
-Dongmen Chuiyu stood up, beaming. Since transferring to the General Staff, he'd quickly been appointed Secretary-General, responsible for overseeing daily General Staff operations—the Chief of Staff position, being too powerful, couldn't be given to anyone without controversy, so it currently remained unfilled.
+Dongmen Chuiyu stood up, beaming. Since transferring to the General Staff, he had quickly been appointed Secretary-General, responsible for overseeing daily General Staff operations—the Chief of Staff position, being too powerful, couldn't be given to anyone without controversy, so it currently remained unfilled.
 
 Dongmen Chuiyu had originally maneuvered for the Chairman of the Joint Chiefs of Staff position, but that also seemed too prestigious, so he became Secretary-General instead, presiding over joint meetings. He functionally served as the chief of staff.
 
@@ -72,19 +72,21 @@ Bei Wei said: "Leave this to the Special Reconnaissance Team—this is military 
 
 "The Danzhou enemy column is only a possibility," He Ming said. "This threat will be the navy's and Special Reconnaissance Team's responsibility."
 
+---
+
 Next came discussion of a topic hotly debated in Parliament: whether to proactively engage outside their borders or conduct a defensive counterattack from prepared positions.
 
 On this issue, not only was Parliament internally divided, but the military itself had differing opinions.
 
 Most people advocated defensive operations from prepared positions. Their main arguments were:
 
-The highest-ranking military officer among the transmigrators who'd served had only been a PLA company commander. No one had experience facing a war of this scale. There would inevitably be many command and coordination problems. Defense was relatively easier than offense.
+The highest-ranking military officer among the transmigrators who had served had only been a PLA company commander. No one had experience facing a war of this scale. There would inevitably be many command and coordination problems. Defense was relatively easier than offense.
 
 Second, the soldiers had plenty of training but little combat experience. They needed battle to test them. When fighting an enemy with numerical superiority, organizing combat was easier for the defending side, and soldiers' psychological pressure was much less. More importantly, using a defensive victory to build soldiers' confidence.
 
 After a defensive victory, then begin pursuit—rear-area order would be easier to maintain. A defensive victory would greatly encourage civilians who favored the transmigrators, intimidate hostile elements, and bring fence-sitters to the transmigrators' side.
 
-Finally, the strategy of defense first, then counterattack, fit well with the traditional Chinese way of thinking—"don't fire the first shot," "let them start the trouble," "tolerance has limits." The transmigrators would gain moral high ground. Propaganda could emphasize that what the transmigrators had done in Lingao wasn't like harmful pirates at all—rather, they'd attacked pirates and evil gentry, developed production, taken in refugees, and stabilized society. They could be called model gentry. Being suppressed despite all this was completely unreasonable. This would lay good groundwork for future expansion.
+Finally, the strategy of defense first, then counterattack, fit well with the traditional Chinese way of thinking—"don't fire the first shot," "let them start the trouble," "tolerance has limits." The transmigrators would gain moral high ground. Propaganda could emphasize that what the transmigrators had done in Lingao wasn't like harmful pirates at all—rather, they had attacked pirates and evil gentry, developed production, taken in refugees, and stabilized society. They could be called model gentry. Being suppressed despite all this was completely unreasonable. This would lay good groundwork for future expansion.
 
 "Given the Ming forces' scale, organization, and Hainan's road conditions, the enemy's advance route can only be along the post roads, advancing county by county. This way they can more conveniently obtain supplies along the way. Marching is also easier—after all, the Ming will be carrying large quantities of supplies and firearms, requiring certain road standards." Dongmen Chuiyu pointed at the large map. "This gives us the advantage of choosing our battlefield at will. We just need to select terrain favorable to our weapons anywhere along the Qiongshan-Lingao post road and deploy our forces. We can even conduct battlefield construction in advance—dig trenches, build bastions, even transport heavier artillery to positions. The advantage is very clear."
 
@@ -98,9 +100,9 @@ Not proactively attacking but waiting for the enemy to attack wasn't moral high 
 
 Finally, he strongly demanded that after annihilating the Ming forces, they bombard Guangzhou city. If explosives permitted, they should preferably blow down a section of the city wall to give officials and gentry sufficient shock.
 
-The two sides debated this question extensively, from military tactics all the way to political significance and economic construction.
+The two sides debated this question extensively, ranging from military tactics all the way to political significance and economic construction.
 
-Those favoring engagement outside borders had another concern: defensive counterattack was certainly safe, but what about the infrastructure already built within Lingao? Farmland, water systems, roads, power poles—these couldn't be defended. If the imperial forces systematically destroyed infrastructure during their advance, setting aside the loss of facilities and materials—people's hearts would become unstable. It would be extremely disadvantageous for post-war reconstruction.
+Those favoring engagement outside borders had another concern: defensive counterattack was certainly safe, but what about the infrastructure already built within Lingao? Farmland, water systems, roads, power poles—these couldn't be defended. If the imperial forces systematically destroyed infrastructure during their advance, setting aside the loss of facilities and materials, people's hearts would become unstable. It would be extremely disadvantageous for post-war reconstruction.
 
 Chen Haiyang wasn't enthusiastic about decisive battle outside borders either. He said:
 
@@ -118,7 +120,7 @@ Chen Haiyang's proposal won most people's approval. The final battle plan was: t
 
 The army would dispatch small units and the Special Reconnaissance Team for screening operations toward Qiongshan. Keep enemy scouts and small units from entering areas near Lingao.
 
-Once the enemy main force concentrated and left Qiongzhou, the navy would first destroy the Ming naval forces, cutting off the Qiongzhou Strait connection with the mainland, preventing sea retreat. The army would seek opportunities for decisive battle with the enemy main force in the field, using naval warships for mobility if necessary. After destroying the enemy, ride the momentum to take Qiongzhou Prefecture city.
+Once the enemy main force concentrated and left Qiongzhou, the navy would first destroy the Ming naval forces, cutting off the Qiongzhou Strait connection with the mainland and preventing sea retreat. The army would seek opportunities for decisive battle with the enemy main force in the field, using naval warships for mobility if necessary. After destroying the enemy, ride the momentum to take Qiongzhou Prefecture city.
 
 Wei Aiwen then stood up to speak: "I have no objections to the battle plan itself. But I hope the planned battle is a proper, dignified field battle: at a time and place of our choosing, fight a magnificent great battle—and film the entire process for future repeated viewing. This is a political battle—we want everyone to understand our power. Especially for our soldiers—many of them don't yet realize what the weapons in their hands mean. Centuries of habit make them believe common people can't beat officials. Even with powerful weapons, if they've truly experienced it through practice, they'll have an earth-shaking transformation of consciousness."
 

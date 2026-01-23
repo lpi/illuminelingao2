@@ -1,117 +1,117 @@
 # Chapter 1022 News from Macau
 
-Zheng Zhilong was different from Liu Xiang. The Shorn-Haired Criminals weren't his greatest threat, so he hadn't paid much attention to their movements in the past. The reason was simply that they hadn't shown the slightest intention of challenging his maritime commercial hegemony.
+Zheng Zhilong differed fundamentally from Liu Xiang. The Shorn-Haired Criminals were not his paramount threat, so he had paid little attention to their movements in the past. The reason was simple: they had shown not the slightest inclination to challenge his maritime commercial hegemony.
 
-Although they had an enormous iron ship, he never saw their vessels heading to Japan, the Philippines, or Batavia. They weren't even visible along the coast—except for Guangzhou, they practically went nowhere.
+Though they possessed an enormous iron ship, he never observed their vessels heading toward Japan, the Philippines, or Batavia. They were scarcely visible along the coast at all—except for Guangzhou, they practically went nowhere.
 
-A small group holed up on an island that never made moves—just like the "mountain lords" everywhere in Fujian—wasn't his concern.
+A small group holed up on a remote island, never stirring—much like the "mountain lords" scattered throughout Fujian—was simply not his concern.
 
-When he was wiping out maritime rivals, vague news came that some former pirate leaders were recruiting for the Australians among scattering bands. He also heard that some small groups had defected to Lingao. However, this alone didn't mean much, especially since at the time he was troubled by Li Kuiqi's sudden betrayal. At his lowest point, he was left with only a few hundred men and boats—he simply had no capacity to inquire what the Shorn-Haired Criminals intended to do.
+When he was eliminating his maritime rivals, vague reports reached him that some former pirate captains were recruiting for the Australians among dispersing bands. He also heard that certain small groups had defected to Lingao. But this alone meant little, particularly since Li Kuiqi's sudden betrayal troubled him greatly at the time. At his lowest point, reduced to only a few hundred men and boats, he lacked the capacity to inquire what the Shorn-Haired Criminals intended.
 
-The result was that when the criminals suddenly bared their fangs, he realized he had very little intelligence on the Australians—only scattered rumors.
+The result was that when they suddenly bared their fangs, he discovered he possessed almost no intelligence on the Australians—only scattered rumors.
 
-Of course, there were already many rumors about the criminals. Because they were filled with adjectives like "enormous," "unbelievable," and "countless," Zheng Zhilong could only view these rumors skeptically—indeed, from his level of understanding, the rumors about Australians were simply too absurd.
+And rumors about the Criminals abounded. But because they overflowed with adjectives like "enormous," "unbelievable," and "countless," Zheng Zhilong could only regard them skeptically. From his frame of understanding, the tales about Australians seemed simply absurd.
 
-For this, he had already dispatched capable spies to Guangdong waters to gather information. Now that they suddenly appeared in Taiwan, it added several more worries for Zheng Zhilong—the Australian fleet had passed through Liu Xiang's territory, and Liu Xiang apparently hadn't expressed any objection. Guo Huaiyi's letter clearly stated that the Australian ships and personnel all looked fresh, with no signs of storms or battle. Had the Australians already reached some understanding or alliance with Liu Xiang? If the two merged, how powerful would they be?
+To remedy this, he had already dispatched capable spies to Guangdong waters to gather information. Now that the Australians had suddenly appeared in Taiwan, his worries multiplied. The Australian fleet had passed through Liu Xiang's territory, and Liu Xiang had apparently raised no objection. Guo Huaiyi's letter clearly stated that the Australian ships and personnel all appeared fresh, bearing no signs of storms or battle. Had the Australians already reached some understanding—or alliance—with Liu Xiang? If the two merged forces, how formidable would they become?
 
-Since Liu Xiang had moved his entire force from the Pearl River mouth to the Chaozhou-Shantou area, he kept intruding into Fujian waters, challenging the hegemony Zheng Zhilong had just established there. He also received intelligence: Liu Xiang's large ships were already heading to Japan and Manila—these were his important revenue sources that he absolutely wouldn't allow anyone to touch. Even the Dutch had to respect his determination to monopolize Japan trade.
+Since Liu Xiang had relocated his entire force from the Pearl River mouth to the Chaozhou-Shantou region, he had persistently intruded into Fujian waters, challenging the hegemony Zheng Zhilong had only just established. Intelligence confirmed that Liu Xiang's large ships were already sailing to Japan and Manila—crucial revenue sources that Zheng Zhilong would never permit anyone to touch. Even the Dutch respected his determination to monopolize the Japan trade.
 
-But Liu Xiang was different from the Dutch. The Dutch needed to depend on him for Great Ming goods, while Liu Xiang didn't. His move to Fujian waters was precisely to interfere with Japan trade.
+But Liu Xiang was different from the Dutch. The Dutch needed him for Great Ming goods; Liu Xiang did not. His move into Fujian waters was precisely intended to disrupt the Japan trade.
 
-The Australians—why had they suddenly come to Taiwan as well? Could they also have their eyes on the fat meat of Japan trade?
+And now the Australians—why had they suddenly come to Taiwan as well? Could they also have their eyes on the rich profits of the Japan trade?
 
-What worried him even more was that Guo Huaiyi's letter clearly confirmed certain rumors he had previously scoffed at: Although the Australian fleet had no legendary iron ships, there were indeed large ships belching black smoke that could sail without any sails.
+What worried him even more was that Guo Huaiyi's letter confirmed certain rumors he had previously dismissed: Though the Australian fleet contained no legendary iron ships, there were indeed large vessels belching black smoke that could sail without any sails whatsoever.
 
-As a sea lord who had dominated the seas for years, he naturally understood the enormous threat this implied.
+As a sea lord who had dominated these waters for years, he understood immediately the enormous threat this implied.
 
-The only thing that reassured him was that Australian ships were few. Although the first batch arriving at Dagou were all large ships, there were fewer than thirty. In terms of numbers, they had no advantage. If it came to armed conflict, as long as he found the right opportunity to deploy his main force in a trap, he could annihilate them all—even with fire ships.
+The only reassurance lay in the Australians' limited numbers. Although the first batch arriving at Dagou were all large ships, fewer than thirty had appeared. In terms of quantity, they held no advantage. Should armed conflict arise, as long as he found the right opportunity to deploy his main force in an ambush, he could annihilate them all—even with fire ships.
 
-"Dagou," he thought. "That name is really well-chosen." [*Translator's note: "Dagou" means "Beating Dogs"*]
+"Dagou," he thought. "That name is remarkably well chosen." *[Translator's note: "Dagou" means "Beating Dogs"]*
 
-At this thought, a smile appeared on his face.
+A smile crossed his face.
 
-At this moment, a dark face appeared at the door. Although the man wore Chinese clothing, his dark skin and curly hair indicated he was Black. He reported in Portuguese: Lin Yishao had arrived.
+At that moment, a dark face appeared at the doorway. Though dressed in Chinese clothing, his dark skin and curly hair marked him as Black. He reported in Portuguese: Lin Yishao had arrived.
 
-These Black servants couldn't speak a word of Chinese and were all Catholics. Zheng Zhilong specifically used them for his confidential affairs. Lin Yishao was one of his spies, specifically responsible for liaison with the Portuguese and intelligence collection.
+These Black servants could not speak a word of Chinese and were all Catholics. Zheng Zhilong employed them specifically for his confidential affairs. Lin Yishao was one of his spies, responsible for liaising with the Portuguese and collecting intelligence.
 
-"Send him in." Zheng Zhilong ordered in Portuguese.
+"Send him in," Zheng Zhilong ordered in Portuguese.
 
 "Greetings, My Lord!" The visitor entered and bowed according to official protocol.
 
-Although sea lords mostly came from common backgrounds, they greatly admired officialdom's ways. Now that Zheng Zhilong was a proper court military official, employing these official manners was entirely appropriate.
+Though sea lords mostly rose from common backgrounds, they greatly admired the ways of officialdom. Now that Zheng Zhilong held a proper court military position, such formal manners were entirely appropriate.
 
-"Oh, is that Yishao? You've returned!"
+"Ah, is that Yishao? You've returned!"
 
-The man slowly stood up. The visitor was in his thirties, with brown eyes and black hair. Lin Yishao was Sino-Portuguese mixed-race, able to speak fluent Portuguese. Like Zheng Zhilong, he was also Catholic.
+The man slowly straightened. He appeared to be in his thirties, with brown eyes and black hair. Lin Yishao was Sino-Portuguese mixed-race and spoke fluent Portuguese. Like Zheng Zhilong, he too was Catholic.
 
-Zheng Zhilong had dispatched Lin Yishao to Macau to investigate the Australians' situation. He knew from many channels that Australians frequently operated in Macau and even had a base there.
+Zheng Zhilong had dispatched Lin Yishao to Macau to investigate the Australian situation. He knew from multiple channels that Australians operated frequently in Macau and even maintained a base there.
 
-Lin Yishao didn't waste words and began reporting his experiences in Macau.
+Lin Yishao wasted no words and began his report.
 
-After arriving in Macau, Lin Yishao immediately visited local "connections."
+Upon arriving in Macau, he had immediately visited local "connections."
 
-As Zheng Zhilong's liaison, Lin Yishao had quite a few connections locally, including gray-area figures like Huang Shunlong—they were well-informed.
+As Zheng Zhilong's liaison, Lin Yishao maintained numerous contacts locally, including gray-area figures like Huang Shunlong—men who were invariably well-informed.
 
-But these connections now showed a cautious attitude toward Zheng Zhilong's subordinate's sudden visit, and their speech wasn't as frank.
+But these connections now displayed a cautious attitude toward this sudden visit by Zheng Zhilong's subordinate. Their words came less freely than before.
 
-"Oh, the criminals are that powerful in Macau?" Zheng Zhilong became somewhat interested.
+"Oh? The Criminals are that powerful in Macau?" Zheng Zhilong's interest sharpened.
 
-"The criminals are now Macau's financial backers." Lin Yishao said.
+"The Criminals are now Macau's financial backers," Lin Yishao replied.
 
-Trade between Macau and the Senate had originally been quite frequent, already forming a vested interest group. And since last year when the court ordered the Portuguese forbidden from trading in Guangzhou, the Portuguese lost their channel for importing Chinese goods. Yet Guangzhou's officials turned a deaf ear to Australian trade. So the Australians occupying Hong Kong Island became the Portuguese's only import-export channel facing the Great Ming.
+Trade between Macau and the Senate had originally been quite frequent, already forming a vested interest group. And since the previous year, when the court forbade Portuguese trade in Guangzhou, the Portuguese had lost their channel for importing Chinese goods. Yet Guangzhou's officials turned a deaf ear to Australian trade. Thus the Australians occupying Hong Kong Island had become the Portuguese's only import-export channel facing the Great Ming.
 
-Controlling such a lifeline, the Australians were essentially masters of the Portuguese. As long as they ordered a halt to Portuguese trade, the Portuguese would find it very difficult to stay in Macau.
+Controlling such a lifeline, the Australians were essentially masters of the Portuguese. Should they order a halt to Portuguese trade, Macau would find it exceedingly difficult to survive.
 
-"Don't tell me those smugglers have become decorations?" Zheng Zhilong said with great interest. As long as one had money, there was no worry about finding goods. So-called government bans were often just empty paper.
+"Surely those smugglers haven't become mere ornaments?" Zheng Zhilong asked with keen interest. Where money flowed, goods could always be found. So-called government bans were often mere paper.
 
-"Since the Australians arrived at Hong Kong Island, the Pearl River mouth has become their world. Their ships constantly patrol. Not a single boat can escape their eyes. Those smugglers either submitted to the Australians and followed their orders, or they're feeding fish in the Pearl River."
+"Since the Australians arrived at Hong Kong Island, the Pearl River mouth has become their domain. Their ships patrol constantly—not a single vessel escapes their eyes. Those smugglers have either submitted to the Australians and followed their orders, or they're feeding fish in the Pearl River."
 
-Lin Yishao continued, saying he finally went to find Li Siya.
+Lin Yishao continued, explaining that he had finally sought out Li Siya.
 
-"Her?" Zheng Zhilong said thoughtfully. Li Siya had once served him, providing much intelligence.
+"Her?" Zheng Zhilong said thoughtfully. Li Siya had once served him, providing substantial intelligence.
 
-"Yes, she has much intelligence and is willing to provide it. Only..." Lin Yishao hesitated.
+"Yes. She possesses considerable intelligence and is willing to share it. Only..." Lin Yishao hesitated.
 
-"She wants a lot of money."
+"She wants substantial payment."
 
-"Yes, she produced a small booklet, wanting five hundred taels. She showed me a small portion. It's very substantial. So your humble servant took the liberty of buying it." He took out a thin booklet from his breast.
+"Indeed. She produced a small booklet, asking five hundred taels. She showed me a portion—very comprehensive. So your humble servant took the liberty of purchasing it." He withdrew a thin booklet from his breast.
 
-Zheng Zhilong didn't mind. He was a merchant. Successful merchants, besides calculating profits, also knew when to spend money.
+Zheng Zhilong did not object. He was a merchant. Successful merchants, beyond calculating profits, also knew when spending money was worthwhile.
 
-The booklet was hand-copied, written precisely in Li Siya's strange yet graceful handwriting—Zheng Zhilong knew it was written with a quill pen; the calligraphy was different from brush writing.
+The booklet was hand-copied, written precisely in Li Siya's distinctive yet graceful handwriting—Zheng Zhilong recognized it as quill penmanship, different from brush calligraphy.
 
-At a glance, the contents were very comprehensive—much more detailed than the hearsay he'd heard before. Five hundred taels was indeed money well spent.
+At a glance, the contents were remarkably thorough—far more detailed than the hearsay he had encountered before. Five hundred taels was indeed money well spent.
 
-He wasn't in a hurry to read it, asking: "Are the Australians very powerful?"
+He was in no hurry to read it. "Are the Australians truly formidable?"
 
-"Yes, very powerful." Lin Yishao answered without hesitation. "Australian warships frequently operate at the Pearl River mouth. There are several black-smoke-belching ships, extremely fast. Not a single ship can run as fast as them, and when they run fastest, they don't even hoist sails..."
+"Yes. Very formidable," Lin Yishao answered without hesitation. "Australian warships operate frequently at the Pearl River mouth. Several of those black-smoke-belching ships are extraordinarily fast. No vessel can outrun them, and at their highest speed, they don't even hoist sails..."
 
-Although this wasn't news, hearing it from his most trusted spy gave it completely different weight.
+Though this was not news, hearing it from his most trusted spy carried entirely different weight.
 
-Then Lin Yishao spoke of *Lichun*—this ship's appearance at the Pearl River mouth was too unusual not to attract nearby attention. The Portuguese had specifically sent people to Hong Kong Island to spy. The information obtained was obviously quite shocking.
+Lin Yishao then spoke of *Lichun*. This ship's appearance at the Pearl River mouth was too extraordinary to escape notice. The Portuguese had specifically dispatched agents to Hong Kong Island to gather intelligence. What they discovered was clearly shocking.
 
-Most terrifying were the cannons on board. Reportedly, one shell traveled over ten *li*, and after landing, there was a violent explosion. Someone had seen *Lichun* firing at floating targets of old fishing boats at sea—one shot blasted the boat to pieces, not even a wood splinter could be found.
+Most terrifying were the cannons aboard. Reportedly, a single shell traveled over ten *li*, and upon landing, it produced a violent explosion. Someone had witnessed *Lichun* firing at floating targets—old fishing boats at sea—and one shot had blasted a boat to splinters. Not even a fragment of wood remained.
 
-For someone like Lin Yishao, firearms and large ships weren't particularly shocking things. Zheng Zhilong himself had large vessels and heavy artillery no inferior to contemporary naval powers. But the rumors about *Lichun* made him feel the situation was very serious. For this, he had specially taken a small boat to Kowloon to spy on Australian fleet training from there—confirming the rumors were true.
+For someone like Lin Yishao, firearms and large ships were not particularly shocking. Zheng Zhilong himself possessed large vessels and heavy artillery no inferior to any contemporary naval power. But the rumors about *Lichun* impressed upon him the gravity of the situation. To confirm them, he had specially taken a small boat to Kowloon to observe Australian fleet training from a distance—and confirmed the rumors were true.
 
-"Although the Australians are few in numbers and ships, they're all elite with strong combat power."
+"Though the Australians are few in numbers and ships, they are all elite with formidable combat power."
 
-"Hmm. It seems we have a powerful rival."
+"Hm. It seems we have a powerful rival."
 
 "What is it, My Lord?"
 
-"The Australians have come to Taiwan." Zheng Zhilong said. "Right at Dagou."
+"The Australians have come to Taiwan." Zheng Zhilong's voice was measured. "Right at Dagou."
 
 "Dagou? That's in Dutch territory."
 
-"Correct. I think they deliberately chose Dagou—to neighbor the Dutch, not me. The Beigang area, at least, is still our territory." Zheng Zhilong said. "The Dutch have an alliance with them, right?"
+"Precisely. I believe they deliberately chose Dagou—to neighbor the Dutch, not me. The Beigang area, at least, remains our territory." Zheng Zhilong paused. "The Dutch have an alliance with them, do they not?"
 
-"Your humble servant investigated. That's correct, but it's not an alliance—just a trade agreement." Lin Yishao said. "The Dutch permitted them to open a trading post in Batavia; the Dutch also opened trading posts in Hong Kong and Lingao. Reportedly there's another trading post south of Hainan Island."
+"Your humble servant investigated. That is correct, but it is not an alliance—merely a trade agreement," Lin Yishao explained. "The Dutch have permitted them to open a trading post in Batavia; the Dutch have likewise opened trading posts in Hong Kong and Lingao. Reportedly there is another trading post south of Hainan Island."
 
-"The Australians are really courting the Dutch." Zheng Zhilong said. He had a strong aversion to the Dutch. Although the Dutch were his trade partners, he had experience with their shamelessness and greed—deeply knowing that only force was the way to talk to them.
+"The Australians are certainly courting the Dutch," Zheng Zhilong observed. He harbored a strong aversion to the Dutch. Though they remained his trade partners, he had experienced their shamelessness and greed firsthand—and knew deeply that only force spoke to them.
 
-"Better to say the Dutch are courting the Australians. I've learned the Dutch can now obtain many Great Ming goods from the Australians."
+"Better to say the Dutch are courting the Australians. I have learned the Dutch can now obtain many Great Ming goods directly from the Australians."
 
-"So the Dutch's attitude toward us is far worse than before. They have a new love." Zheng Zhilong joked.
+"So the Dutch's attitude toward us has grown considerably cooler. They have found a new love." Zheng Zhilong's tone carried an edge of dark humor.
 
 (End of Chapter)

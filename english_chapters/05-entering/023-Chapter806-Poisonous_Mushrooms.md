@@ -1,6 +1,6 @@
 # Chapter 806 - Poisonous Mushrooms
 
-The stretcher was carried into the emergency room. As they reached her, Guo Fu asked, "What happened?"
+The stretcher was carried into the emergency room. As it reached her, Guo Fu asked, "What happened?"
 
 Everyone in Sanya knew this second-in-command at the Health Station, the elite among female nurses. An orderly who had accompanied the patient answered quickly: "Food poisoning."
 
@@ -20,13 +20,13 @@ Poisonous mushroom poisoning, Guo Fu thought. This was the most common type of f
 
 She had witnessed fatal cases of mushroom poisoning and knew the serious consequences. Most critically, if a major negligent death occurred in her assigned squad, she would certainly be sent back to Lingao for a "study session" at the Health Department. Among naturalized citizens and natives, "study sessions" now ranked just below "labor reform camps" in their imaginations.
 
-"Don't panic." Guo Fu calmed her while instructing the on-duty nurse: "Quick—go get Doctor Hippo. And call every on-duty nurse who's free!"
+"Don't panic." Guo Fu calmed her while instructing the on-duty nurse. "Quick—go get Doctor Hippo. And call every on-duty nurse who's free!"
 
 Guo Fu had the symptomatic but less serious patients sit on benches along the wall while she attended to the critical patient on the examination table.
 
 The patient's work clothes were soiled with vomit, and his trousers showed traces of watery stool, giving off a foul odor.
 
-"Quick—help him undress!" Guo Fu wiped her hands with alcohol while ordering the third-cohort nurse. The female orderly who had brought the patient, terrified of being implicated if things went wrong, quickly said, "I'll do it."
+"Quick—help him undress!" Guo Fu wiped her hands with alcohol while ordering the third-cohort nurse. The female orderly who had brought the patient, terrified of being implicated if things went wrong, quickly volunteered. "I'll do it."
 
 "Fine—scissors are in drawer five." As she spoke, Guo Fu opened the lunch box the orderly had brought. She poured the mushroom fragments onto an enamel tray and picked through them with tweezers. The Health Department had printed a lithographed *Field Guide to Common Poisonous Animals and Plants of Hainan Island*, complete with line drawings and detailed descriptions of form and color—since Lingao's printing industry couldn't yet do large-scale color photo printing—and it was both a required training text and a reference book at all medical facilities. Guo Fu had studied this book intensively, but the cooked and chopped mushrooms had lost their original form and color. She could only tentatively conclude they were probably boletus.
 
@@ -34,15 +34,15 @@ The patient's work clothes were soiled with vomit, and his trousers showed trace
 
 "They said there was originally a whole lunch box full," the female orderly said. "The others didn't eat much. This man worked the middle shift and then three extra hours, missing night snack time. When he got back to the dormitory and saw cooked mushrooms, he ate a lot of what was left—maybe half."
 
-"When did you discover him?" Guo Fu asked.
+"When did you discover him?"
 
-"Just now," the female orderly was terrified. "I went to the squad dormitory for a hygiene inspection, and they carried him out, saying he'd fainted—I really didn't know they were secretly cooking mushrooms in the dormitory!" She began to cry. "This is going to ruin me!"
+"Just now." The female orderly was terrified. "I went to the squad dormitory for a hygiene inspection, and they carried him out, saying he'd fainted—I really didn't know they were secretly cooking mushrooms in the dormitory!" She began to cry. "This is going to ruin me!"
 
-"Stop crying!" Guo Fu quickly cut her off. "How long has he been unconscious?"
+"Stop crying!" Guo Fu cut her off. "How long has he been unconscious?"
 
 "About an hour now."
 
-Guo Fu calculated in her head. The middle shift ended at midnight. This man had probably eaten the mushrooms around 3 a.m. Now the 7 o'clock whistle had just sounded. According to the medical texts, boletus had an incubation period of 10 minutes to 2 hours. Given that his symptoms hadn't appeared until around 6 a.m., the incubation period had been about 3 hours—which suggested it wasn't boletus after all... But the book also mentioned that in rare cases, incubation could last up to 6 hours. This left her uncertain.
+Guo Fu calculated in her head. The middle shift ended at midnight. This man had probably eaten the mushrooms around three in the morning. Now the seven o'clock whistle had just sounded. According to the medical texts, boletus had an incubation period of ten minutes to two hours. Given that his symptoms hadn't appeared until around six, the incubation period had been about three hours—which suggested it wasn't boletus after all. But the book also mentioned that in rare cases, incubation could last up to six hours. This left her uncertain.
 
 "Do you have a fresh sample?" she asked, not expecting much.
 
@@ -54,7 +54,7 @@ She lifted the patient's eyelid and shone a penlight into his eye. His eyeball m
 
 "Jiang Dashan."
 
-Guo Fu leaned close to the patient's ear and spoke directly: "Jiang Dashan, can you hear me? Jiang Dashan!"
+Guo Fu leaned close to the patient's ear and spoke directly. "Jiang Dashan, can you hear me? Jiang Dashan!"
 
 His pupils slowly shifted toward her, and he gave a faint nod.
 
@@ -62,13 +62,13 @@ His pupils slowly shifted toward her, and he gave a faint nod.
 
 "Jiang... Da... shan..."
 
-His responsiveness was proof that his nervous system hadn't been damaged—this appeared to be gastrointestinal-type mushroom poisoning, the mildest form. However, some mushroom poisonings that presented with gastrointestinal symptoms could be accompanied by organ damage. But such cases typically had incubation periods of over 10 hours, and both vomiting and diarrhea were less severe. She believed her diagnosis was correct.
+His responsiveness was proof that his nervous system hadn't been damaged—this appeared to be gastrointestinal-type mushroom poisoning, the mildest form. However, some mushroom poisonings that presented with gastrointestinal symptoms could be accompanied by organ damage. But such cases typically had incubation periods of over ten hours, and both vomiting and diarrhea were less severe. She believed her diagnosis was correct.
 
 She gave instructions to the on-duty nurse, Shi Jiemei:
 
 "Prepare a tube, saline solution, and suction," Guo Fu ordered. Then she added, "For those by the wall—give them emetics!"
 
-The stomach took about 4 to 6 hours to empty; protein-rich foods like mushrooms stayed longer. Gastric lavage should still be effective. As for the others, inducing vomiting was probably too late—but might still help somewhat. Their symptoms weren't severe anyway; with the addition of laxatives, they should be fine.
+The stomach took about four to six hours to empty; protein-rich foods like mushrooms stayed longer. Gastric lavage should still be effective. As for the others, inducing vomiting was probably too late—but might still help somewhat. Their symptoms weren't severe anyway; with the addition of laxatives, they should be fine.
 
 "Right away!" Shi Jiemei moved quickly to fetch the medications and instruments. She was the standout of the third cohort—as evidenced by the fact that she'd been given Doctor Shi's surname. Shi Jiemei was not only diligent and quick to learn, but her physique and appearance scored 175 points on the *General Affairs Office Female Servant Comprehensive Evaluation Standard (1630 Edition)*—Grade A level.
 
@@ -78,19 +78,19 @@ Magnesium sulfate heptahydrate was a chemical compound used medically as a decon
 
 "Got it—and intravenous fluids to correct dehydration and electrolyte imbalance—" Shi Jiemei's deliberately raised voice came from the other end of the corridor.
 
-Guo Fu nodded resignedly: "Right, fluids too." Though she and Shi Jiemei were about the same age, Guo Fu's years of hardship had made her far more mature.
+Guo Fu nodded resignedly. "Right, fluids too." Though she and Shi Jiemei were about the same age, Guo Fu's years of hardship had made her far more mature.
 
 With the instruments ready, Guo Fu pried open the patient's mouth, inserted a gag, and skillfully threaded a tube down his throat into his stomach. A nurse handed her a glass jar filled with saline solution. She poured part of the saline into the funnel at the top of the tube.
 
 After pouring half, she waited for the solution to flow into the stomach, then took a suction tube and squeezed the extracted liquid into a basin, continuing to flush out mushroom residue. On the third suction, she found grayish food fragments. She repeated the process, gradually washing out the food residue, and sensed the patient was out of danger.
 
-"0.5ml atropine, subcutaneous injection every 6 hours! IV of 5% glucose solution and normal saline!"
+"0.5ml atropine, subcutaneous injection every six hours! IV of 5% glucose solution and normal saline!"
 
 The atropine injection was to relieve abdominal pain and diarrhea. Shi Jiemei administered the atropine, then quickly inserted an IV needle to deliver saline and glucose—preventing dehydration and correcting electrolyte balance. Meanwhile, Guo Fu monitored the patient's heart rate, pulse, and breath sounds.
 
 Once she felt the patient had regained some strength, Guo Fu helped him sit up.
 
-"100 grams activated charcoal, mixed with water for oral administration."
+"One hundred grams activated charcoal, mixed with water for oral administration."
 
 Jiang Dashan then drank a cup of activated charcoal. He didn't want to drink the strange black liquid and coughed some up, but was forced to swallow it anyway. The charcoal not only prevented toxins from entering the body but also absorbed some already present in the system.
 
@@ -104,7 +104,7 @@ With everything on track, Guo Fu sat down to write up the medical records. The f
 
 "He should be fine now." Guo Fu continued writing with her dip pen. "But I'll need to file a report on this..."
 
-The female orderly's voice was almost pleading: "Please put in a good word for me with Doctor Hippo... I don't want to be sent back to Lingao for a study session."
+The female orderly's voice was almost pleading. "Please put in a good word for me with Doctor Hippo... I don't want to be sent back to Lingao for a study session."
 
 "No one died, so it's not a major negligent-death incident," Guo Fu reassured her. "And they secretly cooked and ate mushrooms on their own—they bear responsibility too. Your share of the blame is minimal."
 

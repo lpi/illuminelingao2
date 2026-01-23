@@ -1,93 +1,97 @@
 # Chapter 1076 - Defending Laizhou
 
-In order to issue his first commercial loan, Leng Ningyun put a lot of thought into it—he conducted a comprehensive credit investigation on this merchant, including his past business status, credit situation, and his assets.
+To issue his first commercial loan, Leng Ningyun had invested considerable effort. He conducted a comprehensive credit investigation on the merchant—his past business status, credit history, and assets.
 
-In 17th-century Beijing, there were no specialized private investigation agencies, and the government's control over private information was far inferior to that of later generations. Therefore, this information was all dug up by Wu Kaidi and his men.
+In seventeenth-century Beijing, no specialized private investigation agencies existed, and the government's control over personal information fell far short of later generations. All such intelligence had to be unearthed by Wu Kaidi and his men.
 
-*It seems I need to expand the number of investigators under my command,* Leng Ningyun thought. *In the 21st century, a bank can hire an investigation company; in the 17th century, I have to run an investigation company myself.*
+*I need to expand my investigative capacity*, Leng Ningyun reflected. *In the twenty-first century, a bank can hire an investigation company. In the seventeenth century, I have to run one myself.*
 
-The investigation company didn't necessarily have to be subordinate to Delong, he thought. It could be managed entirely according to the concept of "tertiary industry." If any problems occurred, he could immediately distance himself.
+The investigation company need not be subordinate to Delong, he reasoned. It could operate entirely according to the concept of a "tertiary industry." If problems arose, he could immediately distance himself.
 
-Speaking of which, he also needed a security team—currently, the bank's security business was responsible by the Qipwei Capital Head Office; they dispatched four nursing home guards to sit in the shop and keep watch at night. Leng Ningyun always felt uneasy: *Is this number of people too few? moreover, the weapons carried by the escorts are also very simple; in my eyes, they simply have no deterrent force.*
+While on the subject—he also needed a security team. Currently, the bank's security fell under the Qipwei Capital Head Office; they had dispatched four nursing home guards to sit in the shop and keep watch at night. Leng Ningyun remained uneasy. *Is this number too few? Moreover, the weapons the escorts carry are quite simple—in my eyes, they have virtually no deterrent value.*
 
-He returned to his study amidst his random thoughts. Looking at the cash flow charts and various diagrams on the table—all drawn by himself personally—Delong's business was very quiet, so he had plenty of time to engage in professional business in this area.
+He returned to his study amid these scattered thoughts. On the table lay cash flow charts and various diagrams—all drawn by his own hand. Delong's business was quiet enough that he had ample time for professional work in this area.
 
-The loans didn't look very good on the report—the loans in the last two months were mainly micro-loans. Leng Ningyun sighed. Compared to the Shanxi merchants who had enormous power in the capital, his own activities were not yet up to par, and were ten thousand eight thousand *li* away from his own vision.
+The loan figures looked rather poor on the report—recent months had seen mainly micro-loans. Leng Ningyun sighed. Compared to the Shanxi merchants who wielded enormous power in the Capital, his own activities fell far short, ten thousand eight thousand *li* from his vision.
 
-In the cause of the Delong Beijing Branch, Leng Ningyun had his own complete set of concepts. In his original design, soliciting savings and commercial loans were just the first step. Delong's work in Beijing was not only to compete with Shanxi people for loans and deposits but also to get involved in the budding insurance industry in the future, including the mutual funds, joint-stock systems, etc., that he had once envisioned in Lingao—although they were not very practical. But in terms of loans, especially official loans, there must be a breakthrough! Leng Ningyun had even considered engaging in the national debt business of the Great Ming government.
+For Delong's Beijing Branch, Leng Ningyun had developed a complete conceptual framework. In his original design, soliciting savings and commercial loans were merely the first steps. Delong's work in Beijing would not only compete with the Shanxi merchants for loans and deposits but would also eventually enter the nascent insurance industry—including the mutual funds and joint-stock systems he had once envisioned in Lingao, however impractical. But in terms of lending, especially official loans, a breakthrough was essential! Leng Ningyun had even contemplated entering the national debt business of the Great Ming government.
 
-His plan received strong support from the Senators in the finance and economic system, but in front of the Industrial Party headed by Director Ma, these were all "crooked ways and wicked paths." In the theoretical journal *Morning Star* (*Qimingxing*) edited and issued by the Propaganda Department, he had once read an article titled "Be Vigilant Against Virtual Economy Bubbles" written by a certain cadre Senator, calling for vigilance against engaging in "virtual economy" in the financial and economic fields to destroy the "large economic environment." This article criticized various financial businesses, except for insurance, one by one—although Leng Ningyun considered most of the content to be "nonsense taken for granted by a layman after reading a few books," this article represented a strong anti-financial trend of thought within the Senate.
+His plan had received strong support from Senators in the finance and economic system, but to the Industrial Party led by Director Ma, these were nothing more than "crooked ways and wicked paths." In *Morning Star*—the theoretical journal edited and published by the Propaganda Department—he had once read an article titled "Be Vigilant Against Virtual Economy Bubbles" written by some cadre Senator. It called for vigilance against engaging in "virtual economy" in financial and economic fields, lest it destroy the "large economic environment." The article criticized various financial businesses one by one—all except insurance. Though Leng Ningyun considered most of the content "layman's nonsense taken for granted after reading a few books," it represented a powerful anti-financial current of thought within the Senate.
 
-In comparison, the voice of his own system was still too weak. The Senators controlling the finance and economic system were generally relatively low-key, with very little enthusiasm for the development of financial products and businesses, mainly acting as "accountants."
+By comparison, the voice of his own system remained too weak. Senators controlling finance and economics were generally low-key, showing little enthusiasm for developing financial products and businesses, mainly serving as "accountants."
 
-His work in Beijing, on the one hand, had to have actual economic benefits and results; on the other hand, it was also to increase the prestige of himself and other Senators in the financial circles.
+His work in Beijing served two purposes: first, to achieve actual economic benefits and results; second, to increase the prestige of himself and other financially-oriented Senators.
 
-Wu Kaidi ran around outside for a day and returned to the bank in the evening to report to him.
+---
 
-He ran to more than a dozen government offices (*yamen*) and sat in tea houses frequented by *yamen* clerks and officials' long-term followers. The general news he got was that the news of Kong Youde capturing Dengzhou had already appeared in the Capital Gazette (*Dibao*). The court was questioning Shandong Governor Yu Dacheng about the whereabouts of Sun Yuanhua and other Dengzhou and Laizhou officials, demanding him to report back quickly.
+Wu Kaidi ran around the city all day and returned to the bank that evening to report.
 
-"...Yu Dacheng hasn't replied yet—it is said that the Emperor is very furious about this, repeatedly calling Yu Dacheng 'incompetent'..." Wu Kaidi spoke vividly, as if he had seen the Chongzhen Emperor say this with his own eyes, reminding Leng Ningyun of taxi drivers in Beijing in another spacetime.
+He had visited more than a dozen government *yamen* and lingered in tea houses frequented by *yamen* clerks and officials' long-term followers. The general news: word of Kong Youde's capture of Dengzhou had already appeared in the *Dibao*. The Court was questioning Shandong Governor Yu Dacheng about the whereabouts of Sun Yuanhua and other Dengzhou-Laizhou officials, demanding an immediate response.
 
-"What do the officials of various factions in the court say?"
+"...Yu Dacheng hasn't replied yet. They say the Emperor is furious about this—repeatedly calling Yu Dacheng 'incompetent'..." Wu Kaidi spoke vividly, as though he had personally witnessed the Chongzhen Emperor saying this—reminding Leng Ningyun of taxi drivers in Beijing from another era.
 
-"Master Xiong of the Ministry of War is still the same as before, strongly advocating for appeasement," Wu Kaidi said. "Although Grand Secretary Xu and Grand Secretary Zhou didn't say much, everyone feels they are also of the appeasement faction—Sun Yuanhua is, after all, Grand Secretary Xu's man."
+"What are the officials of various factions saying?"
 
-Generally speaking, although Dengzhou had already fallen, the current court opinion was still mainly "appeasement."
+"Minister Xiong of the Ministry of War remains unchanged—still strongly advocating appeasement," Wu Kaidi said. "Though Grand Secretary Xu and Grand Secretary Zhou haven't said much, everyone senses they favor appeasement as well. Sun Yuanhua is, after all, Grand Secretary Xu's man."
 
-"Who are the ones advocating suppression?" Leng Ningyun asked.
+In general, though Dengzhou had already fallen, Court opinion still leaned toward "appeasement."
 
-"The most radical advocate is Li Jizhong, a Director in the Bureau of Operations of the Ministry of War. He once opposed Master Xiong's appeasement theory in the ministry meeting, wanting Master Xiong to transfer elite troops from Liaodong to suppress. I heard they parted on bad terms. Master Li Jizhong is afraid he will soon leave his post."
+"Who advocates suppression?" Leng Ningyun asked.
 
-Then he listed some names, and Leng Ningyun made a few notes—this was a memo for himself; for specific details, Wu Kaidi would write a detailed report for him.
+"The most radical is Li Jizhong, a Director in the Bureau of Operations at the Ministry of War. He once opposed Minister Xiong's appeasement theory during a ministry meeting, demanding that elite troops be transferred from Liaodong for suppression. I heard they parted on bad terms. Director Li Jizhong will likely leave his post soon."
 
-"What are the comments on Sun Yuanhua in the court?"
+He listed additional names, and Leng Ningyun noted a few—personal reminders. Wu Kaidi would write a detailed report covering specifics.
 
-"Anyway, no one says good words, but Governor Sun's life or death is uncertain now. Even if they want to impeach him, there is no target. If he really died for the country in Dengzhou, wouldn't impeaching him be giving others a handle against themselves?"
+"What are people saying about Sun Yuanhua at Court?"
 
-Leng Ningyun thought, *it looks like once the news that Sun Yuanhua has arrived in Laizhou reaches the capital, he will face fierce artillery fire.*
+"No one has good words, but Governor Sun's fate remains uncertain. Even those who wish to impeach him have no target. If he truly died for the country in Dengzhou, wouldn't impeaching him just hand ammunition to their opponents?"
 
-He looked at the Capital Gazette brought by Wu Kaidi—he had received specialized training in ancient Chinese on how to read the Capital Gazette. However, although the writing style of the memorials was not considered elegant, it was not ancient vernacular either, and it was very strenuous for him to read.
+Leng Ningyun thought: *Once news reaches the Capital that Sun Yuanhua has arrived in Laizhou, he'll face fierce artillery fire.*
 
-"Call the advisor (*Shigong*) over in a while."
+He examined the *Dibao* Wu Kaidi had brought. He had received specialized training in ancient Chinese for reading the Capital Gazette. Still, though the memorials' writing style was not exactly elegant, neither was it ancient vernacular—reading it proved a struggle.
 
-Leng Ningyun employed several advisors to help handle documents. Especially for the content in the Capital Gazette, he often relied on the advisors' explanations. These advisors were not naturalized citizens, so they only handled affairs and did not participate in secret matters.
+"Summon the advisor later."
 
-Impeachment would not only come from his own political opponents; various forces dissatisfied with Xu Guangqi, Zhou Yanru, Xiong Mingyu, and even the Liaodong clique would use this incident as ammunition to attack their opponents. The situation Sun Yuanhua had to face was probably very bad.
+Leng Ningyun employed several advisors to help handle documents. For content in the *Dibao* especially, he often relied on their explanations. These advisors were not naturalized citizens, so they dealt only with affairs and never participated in secret matters.
 
-To protect him from harm, it looked extremely difficult. Leng Ningyun felt troubled unknowingly—*this task is too difficult!*
+Impeachment would come not only from Sun Yuanhua's direct political opponents. The various factions dissatisfied with Xu Guangqi, Zhou Yanru, Xiong Mingyu, and even the Liaodong clique would use this incident as ammunition to attack their rivals. The situation Sun Yuanhua faced looked exceedingly grim.
 
-However, to show his ability, he had to get things done properly. Who couldn't do easy things?
+Protecting him from harm appeared extraordinarily difficult. Leng Ningyun felt troubled unknowingly. *This task is too hard!*
 
-After thinking for a moment, he felt he still had to work on the eunuchs. *I wonder what the eunuchs' intention is now?* Wu Kaidi said: He specially went to the residences of Old Eunuch Yang, Junior Eunuch Yang, and several other eunuchs he often visited and had dealings with, chatting with the little eunuchs and servants he was familiar with to test the views of the "Inner Ministers" in the palace.
+Yet to prove his worth, he had to handle things properly. Anyone could manage easy tasks.
 
-Overall, Sun Yuanhua had no bad reputation among the eunuchs—generally speaking, he was quite smooth in his official dealings and conduct, and he was not a member of the Donglin Party, perfunctory to the eunuchs quite well. Although there was no great friendship to speak of, at least there were no signs of enmity.
+After reflection, he concluded he still had to work through the eunuchs. *What is the eunuchs' current inclination?* Wu Kaidi reported that he had specially visited the residences of Old Eunuch Yang, Junior Eunuch Yang, and several other eunuchs with whom he regularly dealt, chatting with familiar little eunuchs and servants to test the "Inner Ministers'" views.
 
-In this case, it would be much easier to maneuver. Leng Ningyun thought, *just as later generations said, things that can be settled with money are not difficult things.*
+Overall, Sun Yuanhua had no bad reputation among the eunuchs—he was generally smooth in his official dealings and conduct, and he was not a member of the Donglin Party, handling the eunuchs reasonably well. Though no great friendship existed, at least there were no signs of enmity.
 
-After considering again and again, Leng Ningyun decided to continue collecting information for these few days, while he telegraphed "Center" that he prepared to use Eunuch Yang's channel to try to ask Wang Dehua and others for help. For this purpose, some special "Australian goods" in stock needed to be used as gifts for bribery. He requested "Center" to approve.
+In that case, maneuvering would be much easier. *As they say*, Leng Ningyun thought, *things that can be settled with money are not difficult things.*
 
-While Leng Ningyun was racking his brains in Beijing considering how to start aiding Sun Yuanhua, Sun Yuanhua had already settled many things in Laizhou.
+After further consideration, Leng Ningyun decided to continue gathering intelligence for a few days while telegraphing "Center" that he planned to use Eunuch Yang's channel to seek help from Wang Dehua and others. This would require using some special "Australian goods" in stock as gifts for bribery. He requested Center's approval.
 
-First was straightening out Laizhou's defense—Laizhou Prefect Zhu Wannian was decisive and capable. In the original historical trajectory, Zhu Wannian contributed greatly to the defense battle of Laizhou. Finally, he was seduced and captured by the rebels, eventually dying in Dengzhou. Now that Sun Yuanhua was out of trouble, Zhu Wannian had a pillar of support and immediately strengthened Laizhou's defense under his instructions. Magistrate Hong of Ye County was also a quite capable local official. Laizhou's defense immediately improved greatly.
+---
 
-The most critical person was Shandong Regional Inspector (Censor) Wang Daochun—this person held a "suppression" attitude from the beginning. Sun Yuanhua visited him immediately after escaping, indicating that he had suddenly repented and was determined to "painfully suppress."
+While Leng Ningyun racked his brains in Beijing considering how to assist Sun Yuanhua, Sun Yuanhua had already settled many matters in Laizhou.
 
-In this way, Wang Daochun, who originally criticized Sun Yuanhua's "appeasement" policy greatly during the Dengzhou-Laizhou Incident and was also a Censor, became Sun's ally—at least before the situation calmed down, he would no longer impeach Sun Yuanhua who was presiding over the counter-insurgency work.
+First came organizing Laizhou's defense. Laizhou Prefect Zhu Wannian was decisive and capable. In the original historical trajectory, Zhu Wannian had contributed greatly to Laizhou's defense. In the end, he was lured into a trap and captured by the rebels, eventually dying in Dengzhou. Now that Sun Yuanhua had escaped, Zhu Wannian had his pillar of support. Under Sun's direction, he immediately strengthened Laizhou's defenses. Magistrate Hong of Ye County was also quite capable. Laizhou's defensive posture improved dramatically.
 
-The Engine Forward Command estimated that as long as Sun Yuanhua arrived in Laizhou and put on a posture of "painful suppression," his originally passive situation would improve greatly. Especially a group of officials who hated the rebels deeply would change their stance towards him more or less.
+The most critical figure was Shandong Regional Inspector Wang Daochun. This man had held a "suppression" stance from the beginning. Sun Yuanhua visited him immediately after his escape, declaring that he had suddenly repented and was now determined upon "painful suppression."
 
-Sun Yuanhua's second step was to quickly visit the local gentry: The gentry were not only wealthy but also had great appeal locally—some gentry were themselves leaders of village militia (*Tuanlian*), belonging to local power factions with grain, pay, and soldiers. In ancient society, obtaining the support of local gentry was crucial for defending a city.
+Thus Wang Daochun—who had bitterly criticized Sun Yuanhua's "appeasement" policy throughout the Dengzhou-Laizhou Incident and was himself a Censor—became Sun's ally. At least until the situation stabilized, he would cease impeaching the Sun Yuanhua now presiding over counter-insurgency operations.
 
-Although Laizhou was not a wealthy place, the head county, Ye County, also had some big rural officials: Jia Yuxiang, the former Vice Censor-in-Chief of the Left, and Zhang Xin, a *Jinshi* of the fifth year of Tianqi, were both locals.
+The Engine Forward Command estimated that once Sun Yuanhua reached Laizhou and assumed the posture of "painful suppression," his previously passive situation would improve substantially. Especially officials who harbored deep hatred for the rebels would shift their attitudes toward him to some degree.
 
-Sun Yuanhua visited them one by one and received their support. Especially Zhang Xin, whose family had abundant assets, immediately expressed willingness to donate a huge sum to recruit village braves and reward soldiers.
+Sun Yuanhua's second step was rapid visits to local gentry. The gentry were not only wealthy but commanded significant local influence—some were themselves leaders of village militia, local power brokers with grain, pay, and soldiers. In ancient society, securing the support of local gentry was crucial to defending any city.
 
-Then he summoned the students of the Prefecture School and County School, asking them to work together with one heart to prepare for defending the city.
+Though Laizhou was not wealthy, Ye County—the head county—possessed some notable rural officials: Jia Yuxiang, the former Vice Censor-in-Chief of the Left, and Zhang Xin, a *Jinshi* of Tianqi's fifth year, were both locals.
 
-However, there were not many defenders in the city, only three thousand men. Some were even drilling troops of the local Guard (*Wei*). Fortunately, Laizhou Guard also had some Tartar troops (*Daguan Bing*): descendants of Semu military personnel from the Yuan Dynasty; the combat effectiveness of Tartar troops had always been relatively strong in the Ming Dynasty.
+Sun Yuanhua visited them individually and received their support. Zhang Xin especially, whose family possessed abundant assets, immediately expressed willingness to donate a substantial sum to recruit village braves and reward soldiers.
 
-But Sun Yuanhua knew very well that this little military strength was difficult to withstand the rebel attack. He understood too well the troops he had personally built, equipped, and trained. No army in the Great Ming was as good at using firearms as they were—not to mention that Dengzhou City was full of firearms and gunpowder—that was his painstaking effort for many years.
+Next, Sun summoned the students of the Prefecture School and County School, calling on them to work together in preparing for the city's defense.
 
-Except for transferring elite border troops from Liaodong, the various armies distributed in Zhili and Shandong were simply not the opponents of the rebels. Not to mention field battles, even defending the city might not be successful.
+The city's garrison, however, was limited—only three thousand men, some of whom were merely drilling troops of the local Guard. Fortunately, Laizhou Guard also contained some Tartar troops—*Daguan Bing*—descendants of Semu military personnel from the Yuan Dynasty. Tartar troop combat effectiveness had traditionally been relatively strong in the Ming Dynasty.
+
+But Sun Yuanhua knew too well that this military strength could scarcely withstand a rebel assault. He understood intimately the troops he had personally built, equipped, and trained. No army in Great Ming was as proficient with firearms—not to mention that Dengzhou City was filled to bursting with firearms and gunpowder, the fruit of years of painstaking effort.
+
+Except for elite border troops transferred from Liaodong, the various armies distributed across Zhili and Shandong were simply no match for the rebels. Forget field battles—even defending a city might fail.
 
 (End of Chapter)

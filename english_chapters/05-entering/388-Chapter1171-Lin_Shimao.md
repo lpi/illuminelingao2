@@ -1,65 +1,65 @@
 # Chapter 1171 - Lin Shimao
 
-Of course, the focus of their reconnaissance was Lin Shimao's gambling den and residence. Neither was in a prosperous district. To get a clear picture of Lin Shimao's behavioral patterns, Chen Tianxiong had already sent someone to quietly investigate his routine.
+Naturally, the reconnaissance focused on Lin Shimao's gambling den and residence. Neither lay in a prosperous district. To map his daily habits with precision, Chen Tianxiong had already dispatched agents to quietly observe his routines.
 
-Lin Shimao rested at home during the day and didn't go to the gambling den until after the lamps were lit in the evening. The distance between the two locations was about a ten-minute walk. But he never walked—he always took a sedan chair. Lin Shimao was a man who got things done and carried weight in the county, but running a gambling den and loan-sharking for years had ruined countless families. Naturally, there was no shortage of people seeking revenge on him. And there were even more "heroes" who wanted to take his gambling den by killing him and making a name for themselves. Lin Shimao couldn't afford not to be careful. Not only did he travel by sedan chair, but he was also flanked by seven or eight burly bodyguards at all times.
+Lin Shimao slept through the days and didn't emerge until the evening lamps were lit, making his way to the gambling den. The walk between his home and his establishment took roughly ten minutes—but he never walked. He always traveled by sedan chair. Lin Shimao was a man of consequence in the county, someone who got things done and commanded respect. Yet years of running gambling operations and loan-sharking had left a trail of ruined families in his wake. Naturally, this bred no shortage of vengeful enemies. And beyond them lurked countless would-be "heroes" eager to make their names by killing him and seizing his gambling den for themselves. Lin Shimao couldn't afford to be careless. His sedan chair was flanked day and night by seven or eight burly bodyguards.
 
-Qian Shuixie felt that ambushing him on the road wouldn't work—too much commotion, and with their small numbers, they couldn't control the escape routes. If the city gates closed, they'd have to fight their way out, which would inevitably cause major civilian casualties and their own losses. Capturing Lin Shimao was just a low-cost side operation; Anping was the big fish. Mass bloodshed in Jinjiang would be putting the cart before the horse.
+Qian Shuixie quickly dismissed the idea of ambushing him en route. Too much commotion, and with their limited numbers, they couldn't secure the escape routes. If the city gates closed, they'd have to fight their way out—which would inevitably mean heavy civilian casualties and losses of their own. Capturing Lin Shimao was merely a low-cost side operation; Anping was the real prize. Mass bloodshed in Jinjiang would be putting the cart before the horse.
 
-In the special recon team's urban operations, city walls and gates had always been a troublesome problem—creating considerable difficulty for both infiltration and extraction.
+In the special recon team's urban operations, city walls and gates had always posed a thorny problem—complicating both infiltration and extraction.
 
-"We'll have to snatch him from his bed," Qian Shuixie said. "Go directly into the residence or gambling den and drag him out."
+"We'll have to snatch him from his bed," Qian Shuixie concluded. "Go directly into his residence or gambling den and drag him out."
 
-"Best to grab him at the residence," Xu Ke said. "Too many people at the gambling den; hard to make a move there."
+"The residence is our best option," Xu Ke replied. "Too many people at the gambling den—it would be nearly impossible to make a clean move there."
 
-But that meant acting during the day. The advantage of daytime action was that after success, they could quickly leave the city; the disadvantage was that daytime approach and entry were hard to conceal and easy to detect.
+But that meant executing the operation during the day. Daytime offered the advantage of quick extraction from the city after success; the disadvantage was that approaching and entering the target would be difficult to conceal.
 
-After much deliberation, they finally decided to act at night. Once successful, they would go directly over the city wall and get him to the temple. As long as they got out of the city, transportation would be easy.
+After lengthy deliberation, they settled on a nighttime strike. Once successful, they would scale the city wall directly and spirit him to the temple. As long as they cleared the city itself, transportation would be straightforward.
 
-"I've had people scout the gambling den's layout—quite similar to the one in Leizhou," Chen Tianxiong said, producing a floor plan. "The first section is the public gambling hall, open to all. The second section is for those with some status—you need an introduction to enter; strangers can't get in..." He pointed on the map. "Our people couldn't get into the third section. I estimate it's for the accounting office and such. Lin Shimao is very likely in there, but we don't have enough information about the third section."
+"I've had people scout the gambling den's layout," Chen Tianxiong said, unfurling a floor plan. "It's quite similar to the one in Leizhou. The first section is the public gambling hall—open to all. The second section is reserved for those with some standing; you need an introduction to enter, and strangers are turned away..." He tapped the diagram. "Our people couldn't penetrate the third section. My estimate is it houses the accounting office and related operations. Lin Shimao almost certainly spends most of his time there, but we lack detailed intelligence on that area."
 
-"Does he come out at night?"
+"Does he ever come out at night?"
 
-"He does—about once an hour to make rounds and play a few hands. But lately he's been coming out less, and when he does, he always has several bodyguards."
+"He does—roughly once an hour to make his rounds and play a few hands. But lately he's been venturing out less frequently, and when he does, he's always surrounded by bodyguards."
 
-"Looks like someone warned him," Xu Ke said.
+"Someone must have tipped him off," Xu Ke observed.
 
-The courtyard walls were very high, and the back door used thick wooden planks reinforced with iron sheeting. Under normal circumstances, it would be barred with door bolts and bracing poles—without explosives, there was no way to break through. Because gambling dens often had large amounts of cash flowing in and out, all "black money" that couldn't be reported to the authorities, they took theft prevention very seriously.
+The courtyard walls stood imposingly high, and the back door was constructed from thick wooden planks reinforced with iron sheeting. Under normal circumstances, it would be secured with door bolts and bracing poles—impenetrable without explosives. Because gambling dens dealt constantly in large quantities of cash—all "black money" that couldn't be reported to the authorities—they took theft prevention extremely seriously.
 
-After some discussion, they decided to tunnel directly from outside the back courtyard into the third section. Chinese-style buildings all followed "building codes"—the better the house, the more rigorous the construction. Though they hadn't personally surveyed the third section's structure, they estimated it would be consistent with similar courtyards. As for Lin Shimao's location, he would most likely be in the east or west wing rooms of the third section—when the gambling den was operating, he would almost certainly be in the accounting office watching the money flow, unlikely to be in the main hall.
+After further discussion, they devised their plan: they would tunnel directly from outside the back courtyard into the third section. Chinese-style buildings all followed established construction codes—the finer the house, the more rigorously built. Though they hadn't personally surveyed the third section's layout, they estimated its structure would conform to similar courtyards elsewhere. As for Lin Shimao's precise location, he would most likely be found in the east or west wing rooms of the third section—during operating hours, he would almost certainly be in the accounting office watching over the money, not lounging in the main hall.
 
-As dusk fell, the sea breeze gradually strengthened, and the originally hot streets slowly cooled. With the night watch drum announcing first watch, pedestrians on the streets gradually thinned.
+As dusk descended, the sea breeze gradually strengthened, and the day's oppressive heat slowly bled from the streets. When the night watch drum sounded the first watch, pedestrians began to thin.
 
-Darkness deepened, and soon the streets were deserted. Just after the first beat of the third watch, clusters of shadowy figures quietly climbed over the inn's back wall and made their way swiftly through the back alleys, circling past the county yamen and slipping into the residential district south of County Front Street. Threading through back streets and alleys, they stopped in a small lane behind the gambling den.
+Darkness deepened. Soon the streets lay deserted. Shortly after the first beat of the third watch, clusters of shadowy figures scaled the inn's back wall and threaded swiftly through the back alleys, circling past the county yamen before slipping into the residential district south of County Front Street. Navigating a maze of narrow passages, they finally stopped in a cramped lane behind the gambling den.
 
-This was a narrow back alley, pitch black, permeated by the nauseating stench of urine mixed with garbage. Everything was silent; only when they stopped to listen could they faintly hear laughter through the courtyard walls.
+The alley was pitch black and narrow, permeated by the nauseating stench of urine and rotting garbage. Silence reigned; only when they paused to listen could they make out faint laughter drifting through the courtyard walls.
 
-Xu Ke learned from Chen Tianxiong that this poor alley had few residents—only some very poor commoners lived here. They had no interest in getting involved in anything.
+Xu Ke had learned from Chen Tianxiong that this impoverished alley had few inhabitants—only the poorest commoners lived here, people with no interest in involving themselves in others' affairs.
 
-He stood listening for a moment, confirming that the gambling den's back courtyard wall was right here. Chen Tianxiong's map was extremely accurate; even without a guide, he could have led the team to the precise location using his night-vision goggles.
+He stood listening for a long moment, confirming that the gambling den's back courtyard wall was directly before them. Chen Tianxiong's map was remarkably accurate; even without a guide, Xu Ke could have led the team to the precise location using his night-vision goggles.
 
-"The back door is over there," Qian Shuixie whispered.
+"The back door is just there," Qian Shuixie whispered.
 
-"That's the door he mentioned?"
+"That's the one he mentioned?"
 
-"That's right. I've verified it—all the surrounding features match what he described."
+"That's right. I've verified it—all the surrounding features match his description exactly."
 
 Xu Ke checked his watch.
 
-"Let's go." It was already past midnight. The night was very still, with only the sound of the wind and occasional distant dog barking.
+"Let's move." It was already past midnight. The night was profoundly still, broken only by the murmur of the wind and the occasional distant bark of a dog.
 
-Qian Shuixie made a hand signal: "Move!"
+Qian Shuixie made a hand signal: *Move.*
 
-Several special recon team members approached the wall and found a spot to start tunneling.
+Several special recon team members approached the wall and found a suitable spot to begin tunneling.
 
-This technique had been taught by a gang of thieves the Police Bureau had caught in Lingao: unless the foundation was stone blocks, even a wall of ground-fitted bricks joined with glutinous rice mortar could have a hole dug through it.
+This technique had been taught by a gang of thieves the Police Bureau had apprehended in Lingao: unless the foundation consisted of stone blocks, even a wall of ground-fitted bricks joined with glutinous rice mortar could be breached with patience and skill.
 
-The special recon team took great interest in this technique. While climbing walls was certainly fast, many wealthy households had guards who kept especially careful watch over rooftops and wall-tops. If they happened to encounter guards on their rounds, stealth could easily turn into a frontal assault. To quickly and quietly eliminate targets, the special recon team lacked silencers for automatic weapons. Crossbow bolts were too slow; you could only get off one shot in an emergency.
+The special recon team had taken keen interest in this method. While scaling walls was certainly faster, many wealthy households posted guards who maintained especially vigilant watch over rooftops and wall-tops. If they happened to encounter guards during their rounds, stealth could easily deteriorate into a frontal assault. To quickly and quietly eliminate targets, the team lacked silencers for their automatic weapons. Crossbow bolts were too slow—you could only loose one shot in an emergency.
 
-After several practice sessions and document research, Xue Ziliang and Bei Wei developed a specialized set of wall-breaching tools. All made of high-quality carbon steel, they were not only hard and durable but also more efficient than what the thieves had used.
+After several practice sessions and archival research, Xue Ziliang and Bei Wei had developed a specialized set of wall-breaching tools. Crafted from high-quality carbon steel, the implements were not only hard and durable but far more efficient than anything the thieves had used.
 
-Two team members took the wall-breaching tools and approached the wall. Using scraping knives, they lightly scored the lime mortar between the bricks, carefully scratching and scraping along the mortar joints. They had to apply force without making noise. When they'd worked the mortar deep enough around one brick to see gaps, one team member gripped a hooked pry bar with both hands, inserted the pig's-hoof-shaped tip into the excavated mortar joint, and gave a gentle upward pry. The brick came loose. Another team member carefully pulled the brick out, handed it off, then gently placed it on the ground as if it were fragile porcelain.
+Two team members approached the wall with their tools. Using scraping knives, they carefully scored the lime mortar between the bricks, scratching and scraping along the joints with controlled force—applying pressure without creating noise. When they had worked deep enough around one brick to see gaps forming, a team member gripped a hooked pry bar with both hands, inserted its pig's-hoof-shaped tip into the excavated mortar joint, and gave a gentle upward pry. The brick came loose. Another team member carefully extracted it, received it, then lowered it to the ground as gently as if it were fragile porcelain.
 
-Qian Shuixie halted the excavation. He donned infrared night-vision goggles and carefully peered through the hole left by the removed brick, scanning the courtyard to ensure no hostiles were present at the breach location.
+Qian Shuixie signaled for the excavation to halt. He donned infrared night-vision goggles and peered carefully through the gap left by the removed brick, scanning the courtyard beyond to confirm no hostiles were present near the breach point.
 
 (End of Chapter)

@@ -1,85 +1,85 @@
 # Chapter 821 - The Whereabouts of the Female Temp
 
-CLANG. The door to Room 39 opened. There weren't many people here to begin with; only seven or eight lived in a room meant for forty. The sound of the door opening and closing was particularly loud. At the sound, everyone in Room 39 looked up.
+The door to Room 39 swung open with a metallic clang that echoed far louder than it should have. In a barracks meant for forty, only seven or eight women currently resided, and the sudden noise drew every eye toward the entrance.
 
-Room 39 was a barracks in the Quarantine Camp. It was unique: the entire Quarantine Camp was surrounded by barbed wire, bamboo fences, and trenches, but Room 39 was further isolated by a separate bamboo fence inside. Room 39 and the adjacent Room 40 were "Special Barracks," specifically for quarantining outsiders on the "Special List"—the inmates were a motley crew: suspicious characters suspected of being spies, monks and Taoists who had crossed the sea, people kidnapped from the mainland... They shared a collective title: "Key Quarantine Personnel Pending Review." After their 40-day quarantine, they would be transferred directly to specialized departments. Most went to the Political Security Bureau; others to the Religious Affairs Office, Police Headquarters, or External Intelligence Bureau. Detention locations would also shift to the Lingao County Prison or the PSB's "Study Class."
+Room 39 occupied a peculiar position within the Quarantine Camp. The camp itself was already enclosed by barbed wire, bamboo fencing, and defensive trenches, but this barracks—along with its neighbor, Room 40—sat behind an additional bamboo barrier. These were the "Special Barracks," reserved for quarantining outsiders on the "Special List." The inmates formed a motley collection: suspicious characters flagged as potential spies, monks and Taoist priests who had crossed the sea, individuals kidnapped from the mainland. They shared a single bureaucratic designation: "Key Quarantine Personnel Pending Review." After completing their forty-day isolation, they would be transferred to specialized departments—the Political Security Bureau for most, though some went to the Religious Affairs Office, Police Headquarters, or External Intelligence Bureau. Their detention would then shift to either Lingao County Prison or the PSB's "Study Class."
 
-Room 39 was the female barracks, with far fewer people than the male barracks in Room 40 next door. The seven or eight women, of varying ages and appearances, all looked toward the door.
+Room 39 served as the female barracks and held far fewer occupants than Room 40 next door. The seven or eight women, varying in age and appearance, all turned to look at the doorway.
 
-"Li Yongxun, come out." The person at the door was a middle-aged woman.
+"Li Yongxun," called a middle-aged woman from the threshold. "Come out."
 
-"Where is this?" Li Yongxun walked to the door. The sunlight outside was dazzling. She stumbled a few steps before steadying herself. She had been knocked unconscious in Macau and woke up on a ship. No matter how she shouted or cried in the cabin, no one answered, only a young girl brought her meals twice a day.
+Li Yongxun rose and walked toward the door. The sunlight beyond struck her like a physical force, dazzling and disorienting. She stumbled several steps before finding her footing. The last thing she remembered clearly was Macau—a blow to the head, then darkness. She had awakened in a ship's cabin. No matter how she shouted or wept, no one answered. Only a young girl appeared twice daily to bring her meals.
 
-Li Yongxun guess she had been captured by the Aussies. Amidst her fear, to clarify her situation quickly, she used her ultimate weapon: hunger strike.
+Li Yongxun had guessed she'd been captured by the Aussies. Terrified yet desperate for answers, she deployed what she considered her ultimate weapon: a hunger strike.
 
-She didn't touch the dry rations and water delivered in the morning.
+She refused to touch the dry rations and water delivered that morning.
 
-"Tell your big boss to come see me and explain clearly! Or this lady won't eat a thing!" Li Yongxun said righteously, tossing the tray with two hard, pale biscuits and a cup of water out.
+"Tell your big boss to come see me and explain himself!" she declared with all the righteousness she could muster, shoving the tray—two hard, pale biscuits and a cup of water—out through the bars. "Otherwise, this lady won't eat a single bite!"
 
-The girl who brought food picked it up wordlessly and left. Li Yongxun waited eagerly, but not a single person came for the entire day.
+The girl who brought the food retrieved it without a word and departed. Li Yongxun waited eagerly, but the entire day passed without a single visitor.
 
-She had overestimated her resolve. Previously, she had only skipped meals, but snacks were everywhere. Skipping meals for a few days didn't mean hunger. So refusing meals was a piece of cake for Li Yongxun.
+She had vastly overestimated her own resolve. In the past, "skipping meals" had never meant true hunger—there were always snacks within reach, servants ready to slip her something when no one was looking. Refusing food had seemed simple in theory.
 
-But the ship had no snacks, nor wet nurses or maids to sneak her food. Li Yongxun couldn't last a day. In the evening, the girl brought dinner.
+But the ship offered no snacks, no wet nurses, no maids to smuggle treats to her. Li Yongxun couldn't last a full day. When the girl returned with dinner, her willpower crumbled.
 
-"I won't eat!" Li Yongxun summoned her last courage and pride to shout. "Take it away! No, leave the water!" Hunger was one thing, but thirst was unbearable.
+"I won't eat!" She summoned the last dregs of her courage and pride. "Take it away!" A pause. "No—leave the water!" Hunger was one thing, but thirst was unbearable.
 
-The girl obediently left the water, took the food tray, and turned to leave.
+The girl obediently left the water, took the food tray, and turned to go.
 
-"Wait!" Li Yongxun stopped her. "Tell the Aussies! I'm not a commoner! My father is a Nanjing Brocade Clad Guard—" She thought her father was just a General Banner; without the Brocade Clad Guard title, he'd be smaller than a sesame seed. It probably wasn't scary enough, so she changed it: "...Company Commander [Baihu]!"
+"Wait!" Li Yongxun called after her. "Tell the Aussies—I'm no commoner! My father is a Nanjing Brocade Clad Guard—" She paused. A General Banner didn't sound impressive enough. Without a grander title, her father was smaller than a sesame seed. She revised: "—Company Commander!"
 
-Clearly, "My dad is a Brocade Clad Guard Company Commander" didn't work. Li Yongxun was dizzy with hunger. When breakfast arrived the next day, her hunger strike was canceled.
+Clearly, "My father is a Brocade Clad Guard Company Commander" carried no weight here. By the following morning, Li Yongxun was so dizzy with hunger that breakfast arrived to find her hunger strike thoroughly canceled.
 
-"Where are you taking me?" Li Yongxun asked pitifully while gnawing on hard Grassland No. 5 rations.
+"Where are you taking me?" she asked pitifully, gnawing on the hard Grassland No. 5 rations.
 
-"You'll know when we get there." The girl said just that one sentence.
+"You'll know when we get there," the girl said. It was the only sentence she offered.
 
-"Stop asking. You'll know what you should know." The female guard responded to her questions with the same words—Li Yongxun shuddered. The other's expression wasn't severe, even showing a trace of sympathy for a young girl, but the tone was cold.
+The female guard who answered her subsequent questions proved equally unhelpful: "Stop asking. You'll know what you should know." Li Yongxun shuddered. The woman's expression wasn't severe—there was even a trace of sympathy for a young girl—but her tone held an icy finality.
 
-Li Yongxun sighed helplessly. She knew this was Lingao—seeing those strange machines and the big iron ship upon disembarking confirmed she was in Aussie hands.
+Li Yongxun sighed. She knew she was in Lingao. The strange machines visible from the dock, the massive iron ship in the harbor—everything confirmed she was in Aussie hands.
 
-But why capture her? Clearly, the person in the sedan chair was Censor Gao. It seemed her deductions were all correct! Li Yongxun was excited and proud. she forgot she went to Macau out of curiosity; finding clues about Censor Gao was accidental—now it all became her brilliant deduction.
+But *why* had they captured her? It had to be the person in the sedan chair—Censor Gao. Her deductions had been correct! A surge of excitement and pride swept through her. She conveniently forgot that her journey to Macau had been driven by mere curiosity, that stumbling upon traces of Censor Gao had been pure accident. In her revised memory, it all became evidence of her brilliant investigative instincts.
 
-However, her pride didn't last long. She was sent to the Quarantine Camp. After suffering the "humiliation" of a physical exam and collective shower/disinfection, she was locked in this large room filled with bunk beds, living a dull life of two seafood porridge meals a day. No one questioned her. No matter what she asked, the women guarding the place never uttered a useful word. The other women in Room 39 knew nothing—like her, they were sent here immediately upon landing.
+Her pride didn't last. She was delivered to the Quarantine Camp, subjected to the "humiliation" of a physical examination and collective shower-disinfection, then locked in this large room filled with bunk beds. Two meals of seafood porridge a day. No one questioned her. No matter what she asked, the female guards never uttered a useful word. The other women in Room 39 knew nothing—like her, they had been deposited here the moment they landed.
 
-Outside the barracks stood three Short-haired Thieves wearing neat front-buttoned short jackets, leather belts at the waist, and a strap across the chest. Their shoulders had blue cloth strips with strange patterns. Small blue patches were on their collars. Leading them was the girl who brought her food on the ship. She wore the same clothes as the male thieves, but with a dark blue pleated skirt—Li Yongxun stared wide-eyed: the skirt didn't cover the instep but ended at the knees, revealing white cotton socks wrapping her calves tightly.
+Outside the barracks stood three Aussies in neat front-button jackets, leather belts cinched at the waist, straps crossing their chests. Blue cloth strips with strange patterns adorned their shoulders, and small blue patches marked their collars. At their head was the same girl who had brought her food on the ship—but now she wore the same uniform as the men, with the addition of a dark blue pleated skirt. Li Yongxun's eyes widened: the skirt didn't reach the instep but ended at the knees, revealing white cotton socks wrapped tightly around her calves.
 
-"Shameless," Li Yongxun muttered. Even so, she felt a hint of envy. The woman before her clearly held an official position among the thieves, much better than her, a fake using someone else's badge to bluff.
+"Shameless," Li Yongxun muttered under her breath. Even so, she felt a pang of envy. This woman clearly held an official position among the Aussies—a far more legitimate status than Li Yongxun's own, built on borrowed credentials and bluster.
 
-"Key Quarantine Personnel Pending Review, one Li Yongxun!" The female guard handed a paper folder to Ke Yun. Ke Yun opened it, checked the bamboo tag around her neck.
+"Key Quarantine Personnel Pending Review: one Li Yongxun!" The female guard handed a paper folder to Ke Yun. Ke Yun opened it, checked the bamboo tag around Li Yongxun's neck.
 
-"Identity confirmed!" Ke Yun said, signing the transfer form. "Take her away!"
+"Identity confirmed!" Ke Yun announced, signing the transfer form. "Take her away."
 
-"Where are you taking me?" Li Yongxun asked loudly. No one answered. A thief pulled out a black hood and put it over her head. Darkness and suffocation instantly injected immense fear into her heart. She felt someone push her, and she was marched away.
+"Where are you taking me?" Li Yongxun demanded. No one answered. One of the Aussies produced a black hood and pulled it over her head. Darkness and suffocation descended instantly, flooding her with terror. She felt hands push her forward, forcing her to march blind.
 
-Huge fear enveloped her. Growing up around the Ming's violent institutions, Li Yongxun knew the fate of those falling into their hands—guilty or not, royal or noble, without high-level intervention, even a god would lose a layer of skin. For female prisoners, it was even more terrifying: repeated humiliation and rape. She had interrogated female prisoners herself—she knew the horror. Thinking of the terrible things about to befall her, a strong urge to urinate rose uncontrollably from her lower abdomen.
+Fear engulfed her completely. Growing up in the shadow of the Ming's violent institutions, Li Yongxun knew exactly what happened to those who fell into their hands. Guilty or innocent, noble or common—without intervention from on high, even a god would be flayed. For female prisoners, the horrors multiplied: humiliation and violation without end. She had interrogated female prisoners herself; she knew precisely what awaited them. The thought of such treatment sent a powerful urge to urinate rising from her lower abdomen.
 
-Originally she thought the Aussies wouldn't dare touch her, but what she saw in Lingao made it clear—Lingao was "like an enemy state," not Ming territory at all. Her fake Brocade Clad Guard identity probably wouldn't work—not only wouldn't work, she might be treated as a spy, "tortured," or killed outright.
+She had assumed the Aussies wouldn't dare touch her. But what she'd seen in Lingao shattered that illusion. This was "enemy territory"—nothing like Ming soil. Her fraudulent Brocade Clad Guard credentials probably wouldn't help at all. Worse, they might mark her as a spy, leading to "enhanced interrogation" or outright execution.
 
-Li Yongxun was put on a two-wheeled Dongfeng carriage. After a ten-minute ride, she was taken into a building belonging to the Political Security Bureau. Here she was briefly interrogated. Name, age, family background, etc. Her relationship with Lin Ming was also questioned. Li Yongxun told everything. Including how she found traces of Censor Gao in Macau. She dared not hide anything. Although the room was clean with only a table and chairs, a torture chamber might be next door. A wise woman doesn't fight the odds.
+Li Yongxun was loaded onto a two-wheeled Dongfeng carriage. After a ten-minute ride, she was led into a building belonging to the Political Security Bureau. There she underwent a brief interrogation: name, age, family background. Her relationship with Lin Ming. She told them everything, including how she had discovered traces of Censor Gao in Macau. She dared not hold anything back. The room was clean enough—just a table and chairs—but who knew what lay behind the next door? A wise woman didn't fight impossible odds.
 
-After the interrogation, Zhou Dongtian, in charge of questioning, ordered Li Yongxun detained in the PSB Study Class first. Then he transferred the file to the External Intelligence Bureau—they caught her, so Jiang Shan and Li Yan should decide how to handle her.
+After the interrogation, Zhou Dongtian, who had conducted the questioning, ordered Li Yongxun detained in the PSB Study Class. He then transferred her file to the External Intelligence Bureau. They had captured her, so Jiang Shan and Li Yan should decide her fate.
 
-"Not much juice," Zhou Dongtian said. "An ordinary girl. Found Censor Gao purely by accident."
+"Not much juice here," Zhou Dongtian remarked. "An ordinary girl. She stumbled onto Censor Gao by pure accident."
 
-"She's not Brocade Clad Guard?" Li Yan asked.
+"She's not actually Brocade Clad Guard?" Li Yan asked.
 
-Zhou Dongtian smiled: "Let's call her a temporary worker. After all, her cousin-in-law got her someone else's badge to bluff with. Use of non-staff temps by yamen has happened throughout history."
+Zhou Dongtian smiled. "Let's call her a temporary worker. Her cousin-in-law got someone else's badge for her to bluff with. The yamen's use of unofficial temps has been common throughout history."
 
 "The Brocade Clad Guards haven't targeted us?"
 
-"Maybe they have," Zhou Dongtian said. "But my personal feeling is that at least local Guards aren't efficient. According to Li Yongxun: the Trial Company Commander investigating Censor Gao's disappearance followed to Macau purely by chance."
+"Maybe they have," Zhou Dongtian said. "But my personal feeling is that the local Guards aren't exactly efficient. According to Li Yongxun, the Trial Company Commander investigating Censor Gao's disappearance only followed the trail to Macau by chance."
 
-"You believe her?" Li Yan wasn't reassured. "Not show her some NIGHT24 or spider videos?" Showing SM videos to interrogatees was an effective method for the Transmigration Group's dictatorship organs. The imagination of the 21st-century sex/entertainment industry was infinite.
+"You believe her?" Li Yan remained uneasy. "Shouldn't we show her some NIGHT24 or spider videos?" Screening SM content for interrogation subjects had proven an effective technique for the Transmigration Group's organs of state security. The 21st-century adult entertainment industry's imagination knew no bounds.
 
-"Unnecessary," Zhou Dongtian said indifferently. "If she can deceive me with body language, she's the spy master of this timeline."
+"Unnecessary," Zhou Dongtian said indifferently. "If she can deceive me through body language alone, she's the greatest spymaster this timeline has ever seen."
 
-"Fine." Li Yan picked up Li Yongxun's file. "What do we do with her?"
+"Fair enough." Li Yan picked up Li Yongxun's file. "What do we do with her?"
 
-"If she's ugly, snap her neck." Zhou Dongtian said. "Or send her to Fu Youdi as labor. But I see you guys seem reluctant." He smiled mysteriously.
+"If she were ugly, I'd say snap her neck." Zhou Dongtian shrugged. "Or ship her off to Fu Youdi as labor. But it seems your people are reluctant to let her go." He smiled mysteriously.
 
-"Nothing of the sort," Li Yan quickly denied. "She's still a dangerous element."
+"Nothing of the sort," Li Yan said quickly. "She's still a dangerous element."
 
-"Dangerous? Definitely not." Zhou Dongtian shook his head. "Just an ordinary girl who loves showing off and has too much curiosity—like 21st-century girls. But here, she has no choice—some things aren't for playing."
+"Dangerous? Hardly." Zhou Dongtian shook his head. "She's just an ordinary girl who loves showing off and has too much curiosity—rather like a 21st-century teenager. But here, she doesn't get to choose. Some things aren't games to be played."
 
 (End of Chapter)

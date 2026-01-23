@@ -1,99 +1,97 @@
 # Chapter 1042: Interrogating Prisoners
 
-The Haenyeo (sea women) saw that these people before them were extraordinary in appearance, probably high-ranking officials of the "bald-haired pirates." Although they had little knowledge, they understood that under authority, only submission could minimize suffering and save their lives. They all knelt on the ground with submissive expressions.
+The Haenyeo took in the extraordinary appearance of the men before them—surely high-ranking officials among these "bald-haired pirates." Though unlettered in matters of the wider world, they understood well enough that before such authority, only submission could minimize suffering and preserve their lives. They prostrated themselves with expressions of complete deference.
 
-The two sides exchanged a few words. The Korean of the 21st century and the Jeju dialect of the 17th century were obviously very different. Feng Zongze and Nangong Wudi's Korean proficiency was only at an elementary level, making communication somewhat difficult. Gesturing while speaking, fortunately, Korean, like Japanese, is a linguistic island with strong isolation, and changes over hundreds of years were not significant. After a round of body language, expressions, and "Smida," Feng Zongze finally managed to communicate smoothly with the Haenyeo.
+The exchange that followed proved awkward. Twenty-first-century Korean and seventeenth-century Jeju dialect diverged considerably, and both Feng Zongze and Nangong Wudi possessed only elementary proficiency. Gesturing wildly between phrases, they struggled to make themselves understood. Fortunately, Korean—like Japanese—existed as something of a linguistic island, relatively isolated and resistant to dramatic change over centuries. After considerable effort involving body language, facial expressions, and liberal use of "smida," Feng Zongze finally established workable communication.
 
-From the Haenyeo, they learned that these sea women indeed came from a nearby fishing village. There were few men in the fishing village; most were women. Because men often encountered storms and died at sea when fishing, over time, Haenyeo villages dominated by women were formed. Women mainly made a living as Haenyeo, harvesting various seafood to make dried goods, then selling them to merchants.
+From the Haenyeo, they learned these sea women had indeed come from a nearby fishing village—a community populated almost entirely by women. The men had mostly perished at sea over the years, victims of storms that claimed their fishing vessels. Over generations, these losses had transformed the settlement into a Haenyeo village where women dominated. The women sustained themselves primarily through diving, harvesting various seafood to process into dried goods for sale to merchants.
 
-Life was naturally extremely arduous. The money from selling dried abalone, sea cucumber, and other seafood, exchanged for a little grain plus the fish catch, was barely enough to survive. Unlike what the Senators imagined, Jeju Island was not self-sufficient in grain and relied on imports from the Korean Peninsula. Although the Haenyeo couldn't talk much about the big picture, the older Haenyeo all said that the population had been decreasing in the last ten years or so—many people had moved to the peninsula.
+Life was brutally hard. The meager income from selling dried abalone, sea cucumber, and other products, exchanged for small quantities of grain and supplemented by their catch, barely kept starvation at bay. Contrary to the Senators' assumptions, Jeju Island was not self-sufficient in grain and depended on imports from the Korean Peninsula. Though the Haenyeo couldn't speak to larger matters, the older women all agreed that the population had been declining for the past decade or more, with many islanders migrating to the mainland.
 
-In the past few years, Jeju Island had suffered continuous natural disasters. The court's grain relief was both meager and slow, and many people died of starvation or fled. Many nearby villages were abandoned.
+In recent years, the island had suffered continuous natural disasters. Court relief arrived both meager and late, and many had starved to death or fled. Numerous nearby villages now stood abandoned.
 
-As for the specific situation on the island, the Haenyeo didn't know much—they rarely went out. Merchants buying seafood and selling grain came to the village every month. Some people in the village had been to Jeju City. Because Jeongui County was close, quite a few people had been there.
+As for conditions elsewhere on the island, the Haenyeo knew little—they rarely ventured far from home. Merchants came to the village monthly to buy seafood and sell grain. Some villagers had visited Jeju City. Since Jeongui County lay close by, quite a few had been there.
 
-Feng Zongze sat up straight and asked: "What is the population of Jeongui County? How many soldiers? How large is the city?"
+Feng Zongze sat up straighter. "What is the population of Jeongui County? How many soldiers are stationed there? How large is the city?"
 
-"My Lord, we slave maids are ignorant and lowly common women. We don't understand clearly what the Lords are asking. If we answer poorly, please forgive us..." The Haenyeo who answered was about twenty-five or twenty-six years old, looking relatively clever. Whenever Feng Zongze asked, she answered. She lowered her head and said respectfully, "This slave maid does not know the population of Jeongui County, only that there are few households inside the city, and two villages outside the city. The total is just two or three thousand people."
+"My Lord, we are but ignorant and lowly women," replied the Haenyeo who answered—a relatively clever-looking woman of twenty-five or twenty-six who had served as informal spokesperson throughout. She bowed her head respectfully. "We slave-maids cannot understand clearly what the Lords ask. If our answers displease, we beg forgiveness. This slave-maid does not know Jeongui County's population—only that households within the city walls are few, with two villages outside. The total comes to perhaps two or three thousand souls."
 
-As for soldiers, there were about two hundred. The Haenyeo had no concept of dimensions regarding the city's size and couldn't explain clearly. However, she said there was a large government granary in the city storing a lot of grain.
+The garrison, she estimated, numbered around two hundred soldiers. When asked about the city's dimensions, she had no concept of measurements and could not explain clearly. She did mention, however, that a large government granary within the city stored considerable quantities of grain.
 
-This was important news. Feng Zongze and Nangong Wudi's eyes lit up—grain was the top priority. Especially hearing about Jeju Island's...
+This was valuable intelligence. Feng Zongze and Nangong Wudi exchanged eager glances—grain was their paramount concern. Especially given what they'd heard about Jeju Island's precarious food situation...
 
-"I heard there are many cattle and horses here; where are they?"
+"I've heard there are many cattle and horses here. Where are they kept?"
 
-"The cattle and horses are all in the mountains over by Hallasan, all over the mountains and plains. Just not many here—" the Haenyeo answered. The reason there weren't many was the lack of sufficient water sources by the seaside. Cattle and horses needed large amounts of drinking water, and this area only had springs.
+"The cattle and horses are all in the mountains near Hallasan," the Haenyeo answered. "They roam across the slopes and plains there. We have few animals in this area—" The reason, she explained, was insufficient water. The seaside lacked adequate sources for livestock, which required substantial drinking water. Only springs existed here.
 
-Feng Zongze nodded with satisfaction and asked again: "What is your name?"
+Feng Zongze nodded with satisfaction. "What is your name?"
 
-The Haenyeo hesitated and said: "Reporting to my Lord: This lowly maid is of the Pan clan."
+The Haenyeo hesitated. "Reporting to my Lord: this lowly maid is of the Pan clan."
 
-This wasn't really a name—but even until the 1930s in China, many women in remote rural areas were just "Clan X" for their whole lives. Haenyeo were commoners (baekjeong/lowborn), only slightly better than public and private slaves (nobi). Not having a name was normal.
+This was not truly a name—but even in 1930s China, many women in remote rural areas spent their entire lives known only as "Clan So-and-So." Haenyeo occupied commoner status, only marginally above public and private slaves. Having no given name was perfectly normal.
 
-"Are you an Upper Army (*Sang-gun*)?" he suddenly asked.
+"Are you an *Sang-gun*?" he asked suddenly, using the Korean term for a senior-ranked diver.
 
-The Haenyeo widened her eyes at him, then hurriedly lowered her head again:
+The Haenyeo's eyes widened momentarily before she hurriedly lowered her head again. "This lowly maid is young—only a *Jung-gun*."
 
-"This lowly maid is young, only a Middle Army (*Jung-gun*)."
+The ranks of *Sang-gun* and *Jung-gun* existed within the Haenyeo community's internal hierarchy, a progression from "Child *Sang-gun*" through *Ha-gun*, *Jung-gun*, and *Sang-gun*, finally reaching the elite status of *Dae Sang-gun*. These titles circulated exclusively among Jeju Island's sea women; even Joseon Dynasty officials and scholar-bureaucrats might be unfamiliar with them. That a foreign pirate should know such terminology surprised the woman considerably.
 
-The so-called Upper Army and Middle Army were ranks within the Haenyeo community of Jeju Island. Starting from "Child Upper Army," passing through Lower Army, Middle Army, Upper Army, finally reaching Great Upper Army.
+Nangong Wudi and Xue Ziliang posed additional questions about local conditions. The Haenyeo could answer some and not others; clearly, further interrogation would yield little additional value.
 
-But these titles only circulated among Jeju Island's Haenyeo; even the officials and scholar-bureaucrats of the Joseon Dynasty might not know them. That a foreign pirate actually knew surprised the Haenyeo quite a bit.
+Feng Zongze instructed the guards to take them away. "Give each one a relief biscuit and a bowl of hot soup. Let them retrieve their clothes and fishing tools."
 
-Nangong Wudi and Xue Ziliang asked some more about the local situation. The Haenyeo knew some things and didn't know others; obviously, there was little value in further questioning.
+"What, we're keeping them?" Nangong Wudi's interest in the Haenyeo had waned considerably. Though their figures were acceptable and two were quite young, their faces held little appeal for him.
 
-Feng Zongze instructed to take them down: "Give each person a relief biscuit and a bowl of hot soup. Let them retrieve their clothes and fishing tools."
+"Keep them temporarily. We'll decide what to do with them after interrogating the soldiers." Feng Zongze harbored no romantic notions about the Haenyeo—his interest was purely administrative. He intended to employ them in civil affairs work. According to Du Wen's article "How to Apply Class Theory in Civil Affairs Work," the oppressed class were natural rebels and potential collaborators. Haenyeo endured low status and harsh lives, possessing both the desire and motivation for revolutionary change.
 
-"What, still keeping them?" Nangong Wudi's enthusiasm for the Haenyeo had dropped considerably—although the Haenyeo's figures were not bad, and two were quite young, their looks didn't appeal to him much.
+Next came the soldiers. According to the Special Reconnaissance Detachment's report, the beacon tower had housed only five garrison troops. When the detachment appeared without warning, the soldiers hadn't even attempted resistance—they had simply tried to flee. Their will to fight appeared absolutely nonexistent.
 
-"Keep them temporarily; we'll decide what to do with them together after interrogating the soldiers," Feng Zongze said. He didn't have any romantic thoughts about the Haenyeo but intended to use them for civil affairs work. According to the article "How to Use Class Theory in Civil Affairs Work" written by Du Wen: the oppressed class are natural rebels plus collaborators. Haenyeo had low status and lived hard lives, possessing the desire and motivation to turn over a new leaf.
+One look at these captives confirmed that assessment. The soldiers were emaciated, clearly underfed for extended periods. Their battle jackets were tattered and faded. They possessed no armor, wore only bamboo hats, and carried weapons of shocking crudity. The Senators had examined Ming army equipment captured during the Battle of Chengmai and various miscellaneous arms discarded by pirates. But these Joseon soldiers' weapons and equipment failed to match even large pirate bands. There were no firearms of the kind already common in Ming armies. The shafts of their spears were absurdly short—at most 1.7 meters—useless for anything beyond ceremonial display. Their swords were equally crude. Only the bows and arrows showed any quality of workmanship.
 
-Next, the soldiers were interrogated. According to the Special Reconnaissance Detachment's report, there were only five garrison soldiers on the beacon tower. When the Special Reconnaissance Detachment appeared suddenly, they didn't even attempt to resist, only trying to flee. It seemed they had absolutely no will to fight.
+The Joseon Dynasty under the Yi family styled itself "Little China." In its disdain for military matters, it not only looked to the Ming Dynasty as a model but exceeded it—for the Ming at least maintained small numbers of elite household troops as the core of their fighting forces.
 
-Looking at the soldiers' appearance, one knew their will to fight wouldn't be high. The soldiers looked emaciated, obviously having been underfed for a long time. The battle jackets they wore were tattered and faded. They had no armor, wearing only bamboo hats, and their weapons were extremely crude. The Senators had seen Ming army weapons captured in the Battle of Chengmai and various miscellaneous equipment discarded by pirates. But the standard of weapons and equipment of the Joseon army before them couldn't even compare to large groups of pirates. There were no firearms already common in the Ming army; the shafts of the long spears equipped were extremely short, at most 1.70 meters. Apart from serving as ceremonial guards, they were basically useless. The swords were also crude. Their bows and arrows were slightly better, looking well-made.
+Studying these soldiers and their weapons, Nangong Wudi thought: *If I were Kinoshita Tokichiro, I'd have invaded Joseon too—what difference is there between this army and a field of scarecrows?*
 
-The Joseon Dynasty under the rule of the Yi family was known as "Little China." In its disregard for the military, it not only looked up to the Ming Dynasty but went even further—the Ming Dynasty at least had a small number of elite household troops (*jiading*) as the core of the army.
+The soldiers quickly confessed everything they knew. As garrison troops, they had been transferred frequently across the island. Moreover, their commander had served here for more than twenty years, having been stationed at nearly every defense post. He knew far more than the Haenyeo.
 
-Nangong Wudi looked at these soldiers and weapons and thought: if I were Kinoshita Tokichiro (Toyotomi Hideyoshi), I'd come to hit Joseon too—what difference is there between this army and scarecrows?
+From their testimony, Nangong Wudi learned the island's total military strength: three Divisions of roughly five hundred men each, for a regular army of fifteen hundred—lower than the two thousand they had originally estimated.
 
-The soldiers quickly confessed everything they knew. As soldiers, they were frequently transferred around the island. Moreover, the head of the beacon soldiers had been a soldier here for more than twenty years and had stayed in almost all defense posts across the island. He knew much more than the Haenyeo.
+The Moksa had repeatedly petitioned the court to expand the Jeju garrison to five Divisions, forming a full battalion. However, with constant natural and man-made disasters plaguing the realm, the court was overwhelmed and possessed neither the will nor the resources to strengthen Jeju Island's defenses. Fortunately, since the Tokugawa Seclusion, the scourge of Japanese pirates had diminished considerably, making the situation barely manageable.
 
-From the soldiers' mouths, Nangong Wudi learned that there were a total of three Divisions (*Sa*) of soldiers on the island, each Division having five hundred men. That is to say, the regular army of the whole island was one thousand five hundred men, lower than the figure of two thousand they originally grasped.
+Because Jeju Island's primary threat came from the sea, these three Divisions were dispersed across the coastline. Jeju City garrisoned five hundred men; Daejeong and Jeongui counties each housed more than two hundred. Additionally, nine garrison posts called *Po*—ports similar to the Ming Dynasty's Wei-Suo system—defended strategic positions. Each *Po* maintained thirty to fifty soldiers, positioned at bays providing access to the island and arranged along the coastline in a pattern that fully embodied coastal defense doctrine. Eighteen beacon towers, each staffed by five soldiers, completed the network.
 
-The Moksa (Magistrate) of the island had been requesting the court to expand the garrison in Jeju to five Divisions to make up a full battalion. However, with constant natural and man-made disasters in recent years, the court was overwhelmed and had neither the heart nor the power to strengthen Jeju Island's defense. Fortunately, since the Tokugawa Seclusion, the scourge of Japanese pirates was much less than before, so they barely managed.
+The Joseon army did possess artillery. Various garrisons and cities maintained small quantities, though nothing comparable to the Ming army's Red Barbarian Cannons.
 
-Because the enemy threat to Jeju Island came mainly from the sea, these three Divisions of soldiers were deployed dispersedly across the island. Jeju had five hundred men, and Daejeong and Jeongui counties each had more than two hundred. In addition, there were nine garrison points—"Po" (ports), similar to the Ming Dynasty's Wei-Suo. Each Po had thirty to fifty garrison soldiers. These garrison points were set up at the bays entering and leaving Jeju Island, lined up along the coastline, fully reflecting the coastal defense thinking of guarding ports. Additionally, there were eighteen beacon towers, each with five beacon soldiers.
+Viewed this way, the largest concentration of heavy troops amounted to merely five hundred men in Jeju City. A single infantry company could annihilate them with ease.
 
-The Joseon army was equipped with artillery; various garrisons and cities had small amounts of artillery, but no heavy equipment like the Ming army's Red Barbarian Cannons.
+As for naval forces, the Joseon Dynasty maintained essentially no warships on the island—only a handful of small boats for coastal patrol.
 
-In this view, the largest heavy troop group was merely the five hundred men in Jeju. One infantry company could easily annihilate them.
+"Name every official on this island!" Feng Zongze commanded. "One by one!"
 
-As for the navy, the Joseon Dynasty basically had no navy on the island. Only a small number of small boats patrolled along the coast.
+"Yes. The Jeju Observer is Lord Yi Jin-gyeong. The Judge is Lord Yi Dae-ha. The Daejeong Magistrate is Lord Yi Gu. The Jeongui Magistrate is Lord Choi In-geon."
 
-"Who are the officials on the island? Confess them one by one!" Feng Zongze shouted.
+The Jeju Observer served as the Joseon Dynasty's highest-ranking official on the island—a third-rank civil position. The Judge held the highest military authority.
 
-"Yes. The Jeju Observer (Governor) is Lord Yi Jin-gyeong, the Judge is Lord Yi Dae-ha, the Daejeong Magistrate is Lord Yi Gu, and the Jeongui Magistrate is Lord Choi In-geon."
+"How many official slaves are on this island, and where are they located?"
 
-The Jeju Observer was the highest official of the Joseon Dynasty on the island, a rank-3 civil official, while the Judge was the highest military official on the island.
+Official slaves interested the Senators most keenly—they were ideal candidates for collaboration. At minimum, even if these slaves lacked revolutionary consciousness, they represented the most readily available labor force.
 
-"How many official slaves (*gwan-nobi*) are on the island, and where are they?"
+"The government offices of Jeju, Daejeong, and Jeongui all maintain official slaves. This lowly one does not know the total number, but there must be tens of thousands. Many starved or fled during the famine some years ago..."
 
-Official slaves were what the Senators were most interested in—they were excellent candidates for collaborators. Taking a step back, even if the official slaves didn't have high awareness, they were the most convenient labor force to use.
+The Forward Command found the soldiers' confessions thoroughly satisfactory, having obtained substantial detailed intelligence.
 
-"The government offices of the three cities of Jeju, Daejeong, and Jeongui all have official slaves. This lowly one doesn't know the total number, but there must be tens of thousands. In the famine a few years ago, many starved to death or fled..."
+After ordering the prisoners removed, the Forward Command held a brief meeting and concluded that delay invited complication. Troops must be dispatched immediately to seize the three cities, confiscating all stored grain. The various garrisons must be disarmed. Simultaneously, they would secure the island's principal ports.
 
-The Forward Command was quite satisfied with the soldiers' confession, having grasped a lot of detailed intelligence.
+Nangong Wudi proposed a combined-arms special task force mixing infantry and artillery. The infantry would march overland along the island's official roads while artillery and supplies would move by the large motorized boats and rowboats accompanying the fleet, maneuvering along the coastline. Of Jeju's three counties, only Jeongui lay inland; both Jeju and Daejeong fronted the sea, making naval supply support highly convenient.
 
-After ordering the prisoners taken down, the Forward Command held a brief meeting and decided that delay would be trouble. Troops must be dispatched immediately to control the three cities of Jeju, seizing all grain stored in each city. Disarm the various garrison points. At the same time, control the main ports entering and leaving Jeju Island.
+For prudence's sake, they decided to capture Jeongui County first—being closest to the Seongsan base—gaining firsthand understanding of the Joseon army's combat effectiveness and fortification systems before determining their next moves.
 
-Nangong Wudi proposed sending a special task force mixed with infantry and artillery. The infantry would march on foot along the official roads on the island, while artillery and supplies would use the large motorized boats and rowboats brought by the fleet to maneuver along the coastline. Among the three counties of Jeju, except for Jeongui County, both Jeju and Daejeong were by the sea. Ships could be used very conveniently for supply support.
+Jeongui County corresponded to South Korea's Seongeup Folk Village in the original timeline. When the South Korean government developed tourism, the old county seat had been restored and reconstructed as a heritage site. Though not directly on the coast, it lay quite close to Seongsan, connected by a passable road. Both Xue Ziliang and Nangong Wudi had visited this folk village in their previous lives. However, it had been built in later generations as a reconstruction; despite claims of restoration and historical research, no one could guarantee how closely it resembled the original.
 
-Out of caution, it was decided to first capture Jeongui County, which was closest to the Seongsan base, to get an intuitive understanding of the combat effectiveness and city defense system of the Joseon army, and then launch the next step of operations depending on the situation.
+---
 
-Jeongui County is the Seongeup Folk Village of South Korea in the old timeline. When South Korea developed tourism, the old site of the county was restored and built into a folk village. Although not by the sea, it is actually very close to Seongsan. There is also a passable road. Both Xue Ziliang and Nangong Wudi had been to this folk village. However, the folk village was built in later generations after all; although there was restoration and so-called historical research, no one could guarantee how big the difference was from reality.
+*Author's Note: Materials on Joseon-era Jeju Island provided by SB forum member Beiyu.*
 
-(Joseon historical materials on Jeju Island provided by SB netizen Beiyu.)
-
-(Haenyeo ranks come from the novel "Dae Jang Geum".)
+*Haenyeo ranking system derived from the novel "Jewel in the Palace" (Dae Jang Geum).*
 
 **(End of Chapter)**

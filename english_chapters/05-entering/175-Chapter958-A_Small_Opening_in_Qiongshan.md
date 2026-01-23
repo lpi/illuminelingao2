@@ -6,7 +6,7 @@ He had no expectation of quickly amassing large quantities of Qiongshan's "old l
 
 The best way to create market dependence was to have farmers switch to cash crops. Cash crops had another major advantage: they required higher agricultural technology and offered better returns, making them a good choice for farmers eager for quick results. Chang Shide planned to promote sugarcane cultivation among the Tiandihui's contracted farmers.
 
-"The situation looks quite good." Liu Xiang was very interested in this Tiandihui campaign, finding that the Agricultural Committee's actual implementation was considerably gentler than the directives—not turning into a mass-movement-style "collectivization," but rather a subtle, "nurturing rain" approach. Very much to his taste. "I think you can raise your target—push to reach five percent." Liu Xiang said this while looking at the latest progress chart in the Tiandihui office.
+"The situation looks quite good." Liu Xiang was very interested in this Tiandihui campaign, finding that the Agricultural Committee's actual implementation was considerably gentler than the directives—not turning into a mass-movement-style "collectivization," but rather a subtle, "nurturing rain" approach. Very much to his taste. "I think you can raise your target—push to reach five percent."
 
 "Even if every farmer in Qiongshan were willing to sign up, I still wouldn't want to accept them all." Chang Shide studied the progress chart. "Great Leaps Forward lead to mistakes."
 

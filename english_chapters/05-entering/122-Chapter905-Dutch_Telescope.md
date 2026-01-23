@@ -1,6 +1,6 @@
 # Chapter 905 – Dutch Telescope
 
-Zhang Dai's family possessed an extensive library. Combined with such a family environment, he himself was broadly learned—well-versed in the classics, histories, philosophers, and literary collections; knowledgeable in astronomy and geography. Though he'd never achieved official success through the examinations, he was devoted to writing. Throughout his life, his brush never rested. He left behind many works, the most famous being *Dream Memories of Tao'an* and *Night Ferry*, which all of these transmigrators had read.
+Zhang Dai's family possessed an extensive library. Combined with such an environment, he himself was broadly learned—well-versed in the classics, histories, philosophers, and literary collections; knowledgeable in astronomy and geography. Though he'd never achieved official success through the examinations, he was devoted to writing. Throughout his life, his brush never rested. He left behind many works, the most famous being *Dream Memories of Tao'an* and *Night Ferry*, which all the transmigrators had read.
 
 Beyond his vast learning, he was also a hedonistic wastrel who excelled at the art of enjoyment. In his own writing, he described himself thus: "In my youth I was a spendthrift young dandy, passionately fond of luxury. I loved fine studios, beautiful maidservants, handsome pages, fresh clothes, delicious food, fine horses, brilliant lanterns, fireworks, theatrical troupes, wind and string ensembles, antiques, flowers and birds—and I was a glutton for tea, obsessed with tangerines, a bookworm and poetry demon." He embodied both the prodigal extravagance of a wealthy young man and the indulgent, nihilistic hedonism of late-Ming literati.
 
@@ -8,7 +8,7 @@ Such a figure held little value in the eyes of the Senate. But to the Foreign In
 
 Zhang Dai was not merely a prolific writer, widely learned, and skilled at pleasure—he was also a member of the Restoration Society, which wielded powerful influence over late-Ming politics. Though he wasn't a politically ambitious man, he'd participated in many Restoration Society activities and was close to several of its key figures. Of course, Zhao Yingong thought, such a personality would be welcomed everywhere.
 
-Jiangnan was the Restoration Society's home base; their local power was formidable. The Society not only controlled the "public discourse" of Jiangnan literati but also to some extent influenced the policies of local officials. Many local officials were themselves Restoration Society or Donglin members. If Zhao Yingong wanted to operate in Jiangnan, securing the Society's support—or at least its tacit acceptance—was critical.
+Jiangnan was the Restoration Society's home base; their local power was formidable. The Society not only controlled the "public discourse" of Jiangnan literati but also, to some extent, influenced the policies of local officials. Many local officials were themselves Restoration Society or Donglin members. If Zhao Yingong wanted to operate in Jiangnan, securing the Society's support—or at least its tacit acceptance—was critical.
 
 Zhang Dai was "a wastrel with deep cultural attainments." Clearly, Lingao's "clever contraptions" could more quickly win him over. Zhao Yingong's eager gaze immediately fixed on the tower-ship ahead.
 
@@ -20,13 +20,13 @@ Zhao Yingong nodded. "Follow them. We'll watch the dragon boat races too."
 
 In most places, dragon boat races were held on the fifth day of the fifth month—the Duanwu Festival. But on Hangzhou's West Lake, races had been held twice yearly since the Song dynasty. Besides the Duanwu race, another was held on the eighth day of the second month, supposedly in honor of Wu Zixu—or, according to some, for the birthday of Zhang the True Lord of Cishan.
 
-The second dragon boat race on the West Lake began on the first of the fifth month and continued through the tenth. Townsfolk and country folk alike—farmers, artisans, merchants—anyone whose family wasn't going hungry would come to see the spectacle.
+The second dragon boat race on West Lake began on the first of the fifth month and continued through the tenth. Townsfolk and country folk alike—farmers, artisans, merchants—anyone whose family wasn't going hungry would come to see the spectacle.
 
 Hearing the guest's orders, the boatmen hastened to pole and row toward Huxin Pavilion, where the dragon boats were gathering.
 
 The lake around Huxin Pavilion was already crowded with vessels of all sizes. Besides the various pleasure boats, there were also "big viewing boats" for ordinary spectators. The boats were so close their bows and sterns nearly touched—a bustling scene. Even the transmigrators, who'd seen their share of spectacles, were moved by such flourishing splendor.
 
-If one looked only at this scene, where were the signs of a dynasty on the brink of collapse? It seemed like an unprecedented golden age!
+Looking only at this scene, where were the signs of a dynasty on the brink of collapse? It seemed like an unprecedented golden age!
 
 Zhao Yingong was still lost in thought when suddenly a dripping wet head broke the water's surface, one hand raised aloft, holding a long, golden object. In the sunlight, it reflected a brilliant flash.
 
@@ -42,7 +42,7 @@ Cai Shi hurried to the bow and exchanged a few words, then came running back, pa
 
 Zhao Yingong cut him off mid-sentence: "Give it to him. Get it here!"
 
-Cai Shi hurried to comply. Moments later, he brought back the "brass tube." Zhao Yingong snatched it, extended and retracted it once, then raised it to his eye: no mistake. This was a single-tube telescope.
+Cai Shi hurried to comply. Moments later, he brought back the "brass tube." Zhao Yingong snatched it, extended and retracted it once, then raised it to his eye. No mistake. This was a single-tube telescope.
 
 Finely wrought brass double-section barrel; hand-ground glass lenses—all evidence that this was a Dutch-made telescope, recently invented in this timeline. Even in Europe, these were quite rare. The Foreign Intelligence Bureau knew Tang Yunwen had one; a few officials and wealthy families in Guangdong had them too. Besides Ming military officers, most people treated them as exotic Western toys.
 
@@ -52,11 +52,11 @@ Xu Ke took it and looked it over. "Magnification isn't high. Two-power at most."
 
 "It's a Galilean telescope," said Zhou Dongtian. "A simple little thing, structurally speaking."
 
-Galilean telescopes were the earliest type of telescope—simple in principle, easy to manufacture. But their magnification was extremely limited, and they suffered from distortion and other problems. Eventually they were relegated to children's telescopes and opera glasses.
+Galilean telescopes were the earliest type—simple in principle, easy to manufacture. But their magnification was extremely limited, and they suffered from distortion and other problems. Eventually they were relegated to children's telescopes and opera glasses.
 
 But in this timeline, they were still vital military assets. Who could possibly own such a rare Western import? And why would they throw it into the lake?
 
-Such rare Western goods couldn't simply be measured in monetary terms. During his "internship" in Guangzhou, Zhao Yingong had seen Dutch telescopes imported from Europe, priced at thirty or forty taels of silver. At the time, telescopes were considered mere "toys." Market demand was tiny. Because demand was low, unlike glassware, Western cloth, spices, or ivory—which arrived frequently—only ten or twenty might be imported in a year or two. Extremely hard to come by. An owner would never casually throw one into West Lake for amusement.
+Such rare Western goods couldn't simply be measured in monetary terms. During his "internship" in Guangzhou, Zhao Yingong had seen Dutch telescopes imported from Europe, priced at thirty or forty taels of silver. At the time, telescopes were considered mere "toys"—market demand was tiny. Because demand was low, unlike glassware, Western cloth, spices, or ivory—which arrived frequently—only ten or twenty might be imported in a year or two. Extremely hard to come by. An owner would never casually throw one into West Lake for amusement.
 
 Zhou Dongtian examined it carefully. "Seems like it's been in the lake for a while. Not freshly dropped."
 

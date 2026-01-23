@@ -16,17 +16,17 @@ Father Rodrigues expertly lifted his bowl, used the lid to push aside the tea le
 
 "Come, please enjoy."
 
-Brother Cecilio crossed himself: "I'd like a glass of cold water."
+Brother Cecilio crossed himself. "I'd like a glass of cold water."
 
 John Dermott curiously examined the tea leaves in his bowl. He cautiously sipped, frowned, then seemed to savor something.
 
 "On such a summer day, a cup of hot tea will make your body and mind feel refreshed." Rodrigues had developed quite an addiction to tea drinking and gently guided his colleagues.
 
-Father Jin Lige frowned. In his view, this priest seemed too enthusiastic about physical pleasures. A missionary should be content with the simplest water and bread—a little red wine would be the greatest blessing. Yet now he was indulging in strange foreign drinks.
+Father Jin Lige frowned. In his view, this priest seemed far too enthusiastic about physical pleasures. A missionary should be content with the simplest water and bread—a little red wine would be the greatest blessing. Yet here he was, indulging in strange foreign drinks.
 
-Father Jin Lige opposed all manner of strange foreign beverages—whether Spanish chocolate, Arabian coffee, or Chinese tea. To him, they were all temptations of the devil.
+Father Jin Lige opposed all manner of exotic foreign beverages—whether Spanish chocolate, Arabian coffee, or Chinese tea. To him, they were all temptations of the devil.
 
-Lunch—or rather this late-afternoon meal—was sumptuous for this group that had been enjoying the Quarantine Camp's special cuisine. Weiss found it almost unbearable to say lengthy grace before warm whole-wheat bread.
+Lunch—or rather this late-afternoon meal—was sumptuous for a group that had been enjoying the Quarantine Camp's special cuisine. Weiss found it nearly unbearable to endure lengthy grace before warm whole-wheat bread.
 
 The chowder stew made with sea clams, shrimp, various fish, and kelp was delicious—reminding him of the "Provençal bouillabaisse" he had eaten in France. Large fish fillets were fried to perfection, served with fresh tomato sauce, leaving the diners exclaiming with delight. Since it wasn't Lent, a large platter of sausages was also served, fried in some unknown oil, arriving fragrant.
 
@@ -36,7 +36,7 @@ The drink on the table was some kind of fruit wine, very sweet. With ice added, 
 
 Everyone was satisfied with the lunch, including Sirik. As a slave, he couldn't dine with his masters, but outside the private room, he had devoured four or five "fish fillet burgers" and followed his master to the monastery with a contented smile.
 
-Prior Wu and Father Bai of the Lingao Monastery personally came to welcome them at the church entrance. Behind them stood the local brothers. The piety showing on their dark faces delighted Jin Lige.
+Prior Wu and Father Bai of the Lingao Monastery personally came to welcome them at the church entrance. Behind them stood local brothers. The piety showing on their dark faces delighted Jin Lige.
 
 The Australian church's hospitality made Father Jin Lige, already frightened enough in the Quarantine Camp, feel overwhelmed. Upon entering the church, he could only marvel and exclaim. From glass covers supported by cast-iron brackets on the walls, bright flames illuminated the modest interior with brilliant radiance. Even the Florence Cathedral during Corpus Christi, lit with all its candles, could hardly be so bright.
 
@@ -50,13 +50,15 @@ Father Jin Lige couldn't help praising the Lord's miracle once again. The sacred
 
 This sudden request surprised everyone. But the Jesuit priests were excited. Nothing could bring more joy than a fallen person returning to the Church's embrace.
 
-Bai Duoluo reluctantly entered a confessional reserved for Wu Shimang. As a conscientious young priest, he was very unwilling to simultaneously play the role of informer. He knew this sealed confessional contained a microphone. The recording tapes were collected daily by specialists and sent to the Political Security monitoring room.
+Bai Duoluo reluctantly entered a confessional reserved for Wu Shimang. As a conscientious young priest, he was quite unwilling to simultaneously play the role of informer. He knew this sealed confessional contained a microphone. The recording tapes were collected daily by specialists and sent to the Political Security monitoring room.
 
 A cough, then a loud sound of nose-blowing. Bai Duoluo knew that strange man had sat down across from him.
 
 "My child, what do you have to tell the Lord..."
 
 "I need to see your Council Leader," the white man across suddenly said in halting Cantonese, interspersed with English words. "Your situation is not good. The Guangdong pirate chief Liu is preparing to join forces with the Dutch fleet of the East Indies to destroy your fleet, then attack the harbor and sack Lingao."
+
+---
 
 If Lingao's purgatory was the Quarantine Camp cell, then Father Jin Lige would certainly believe the Lingao Monastery was heaven. As for where Lingao's hell was, the Father didn't even want to think about it. But he had also heard that the Australians had established a prison in Lingao called the "Labor Reform Camp." Those fortunate enough to return from there had lost all interest in the priests' ethereal preaching about hell.
 

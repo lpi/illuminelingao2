@@ -1,62 +1,64 @@
 # Chapter 661 - Oceanic Care
 
-Medals were awarded on site. In addition to First, Second, and Third-Class Military Merit Medals for combat personnel, fifteen militia members received Second and Third-Class Merit Medals for their participation in battle.
+The medals were distributed on the spot. Beyond the First, Second, and Third-Class Military Merit decorations awarded to combat personnel, fifteen militiamen received recognition for their battlefield contributions with Second and Third-Class Merit Medals.
 
-All participants in the combat and logistics support—both military and civilian—received the First Counter-Encirclement Victory Commemorative Medal. Those who had fought at Chengmai or served in logistics there also received the "Chengmai Campaign Victory Commemorative Medal."
+Every soldier and support worker who had participated in either combat or logistics—military and civilian alike—received the First Counter-Encirclement Victory Commemorative Medal. Those who had fought at Chengmai or served in its logistics train also received the specially struck "Chengmai Campaign Victory Commemorative Medal."
 
-After the medal ceremony, the entire army conducted a march-past in battalion formations. To the strains of the *Grenadier's March*, the five battalions and militia marched past the earthen reviewing stand. Everyone cheered three times.
+After the ceremony, the army conducted a formal march-past in battalion formations. To the stirring strains of the *Grenadier's March*, five battalions and the assembled militia paraded before the earthen reviewing stand. The assembled mass erupted in three resounding cheers.
 
-Following the military review, He Ming led all members of the delegation into the officers' small mess hall. This was where senior officers dined. The tables were covered with tablecloths, decorated with fresh flowers, and fitted with Venetian blinds over the windows. Large ice buckets stood in each corner and in the center of the room, exhaling wisps of cool white vapor. The moment one stepped inside, a sense of comfort descended.
+Following the review, He Ming led the entire delegation into the officers' small mess hall—the dining room reserved for senior staff. White tablecloths dressed the tables, fresh flowers served as centerpieces, and Venetian blinds softened the light through the windows. Large ice buckets stood in each corner and at the center of the room, exhaling wisps of cool vapor. The moment one stepped inside, comfort descended like a blessing.
 
-Orderlies had prepared hot towels and cold tea.
+Orderlies had laid out hot towels and chilled tea.
 
-"Not bad here." Wen Desi dropped into a seat, mopping sweat from his brow. Inspecting the troops might look majestic, but standing at attention in the sun in full dress, walking back and forth, maintaining the most dignified posture—it was no light task. Wen Desi recalled watching videos of Red Square parades, where Soviet leaders in their seventies and eighties would stand for hours in the freezing wind.
+"Not bad at all." Wen Desi dropped into a seat and mopped the sweat from his brow. Inspecting troops might look majestic, but standing at attention under the blazing sun in full dress uniform, walking back and forth while maintaining the most dignified posture—it was no light burden. He recalled watching footage of Red Square parades, where Soviet leaders in their seventies and eighties would stand for hours in the freezing wind. At least he wasn't contending with Moscow winters.
 
-"This is the senior officers' mess—also our conference room." He Ming avoided using the term "transmigrator officers" in the barracks. He thought it unwise, with native officers growing more numerous, to constantly remind them of that distinction.
+"This is the senior officers' mess—it doubles as our conference room," He Ming explained, carefully avoiding the term "transmigrator officers" within the barracks. With native officers growing more numerous, he thought it unwise to constantly emphasize that distinction.
 
-Soon the orderlies brought lunch—served in individual portions as in all transmigrator mess halls. Each person received a wooden tray with rice, vegetables, and soup.
+Soon the orderlies brought lunch, served in individual portions as in all transmigrator mess halls. Each person received a wooden tray bearing rice, vegetables, and soup.
 
-The rice was brown rice. The dishes included vegetables, tempura prawns, stir-fried razor clams, seaweed and tofu soup, and finally, several fried meatballs. The aroma was tantalizing.
+The rice was unpolished brown grain. The dishes included fresh greens, tempura prawns, stir-fried razor clams, seaweed and tofu soup, and finally, several golden fried meatballs. The aroma was tantalizing.
 
-In the center of the table sat rectangular wooden platters filled with crushed ice, topped with rows of assorted sashimi.
+At the center of the table sat rectangular wooden platters filled with crushed ice, topped with neat rows of assorted sashimi.
 
-"Everything's from the sea," Zhan Wuya sighed. "I keep feeling we're drifting toward Japanese food culture." He took four or five slices of sashimi.
+"Everything's from the sea," Zhan Wuya sighed, reaching for four or five slices of the raw fish. "I keep feeling we're drifting toward Japanese food culture."
 
-The fishing industry in Ma'ao was quite developed. The Agricultural Committee had established a second fishery procurement and processing plant here, using local salt to process seafood. Recently, a large coal-gas cold storage facility had been built specifically to store fresh seafood, ensuring abundant supply.
+The fishing industry around Ma'ao had developed considerably. The Agricultural Committee had established a second fishery procurement and processing plant here, using local salt for preservation. Recently, a large coal-gas cold storage facility had been constructed specifically to store fresh catches, ensuring abundant supply.
 
-There were also platters heaped with subtropical fruits—mainly jackfruit, followed by pineapples, bananas, and mangoes.
+Other platters overflowed with subtropical fruits—jackfruit predominated, followed by pineapples, bananas, and mangoes.
 
-The beverages were coconut juice and kvass; no alcohol was served—except for kvass and the beer they hadn't yet begun producing.
+The beverages were coconut juice and kvass. No alcohol was served—excepting kvass itself and the beer they had yet to begin producing.
 
-"Meatballs today!" Seeing the fragrant fried balls, someone excitedly sprinkled pepper-salt and began eating, exclaiming appreciation between bites.
+"Meatballs today!" Someone exclaimed with delight upon seeing the fragrant fried spheres, immediately sprinkling pepper-salt and tucking in with appreciative sounds between bites.
 
-"Sausages, meatballs—things like that, you'd best not know what they're made of." Wen Desi murmured, eating one. The spices were strong, with a hint of beef flavor.
+"Sausages, meatballs—things like that, you'd best not investigate too closely," Wen Desi murmured, eating one himself. The spices were strong, with a hint of beef flavor.
 
-No doubt these were made from cattle and horses recovered from the battlefield. Though he hadn't been on the front lines, he had seen the spoils inventory. It clearly listed the number of dead oxen and horses captured—obviously repurposed to improve meals.
+These were undoubtedly made from cattle and horses recovered from the battlefield. Though he hadn't been on the front lines, he had reviewed the spoils inventory. It clearly listed the number of dead oxen and horses captured—now obviously repurposed to improve the troops' meals.
 
-"What's the afternoon program?" Wang Luobin asked between bites.
+"What's on the afternoon program?" Wang Luobin asked between bites.
 
-Wen Desi said: "Distributing comfort packages—we don't need to do that ourselves. The packages are already at the warehouse; officers will hand them out by headcount. We need to visit the hospital for a morale visit."
+"Distributing comfort packages—we don't need to handle that ourselves," Wen Desi replied. "The packages are already at the warehouse; officers will distribute them by headcount. We need to visit the hospital for a morale tour."
 
 "How many wounded?"
 
-He Ping, representing the Health Department, said: "Very few of our own wounded require hospitalization—fewer than thirty. But there are nearly four hundred seriously wounded among the prisoners. The hospital is almost full."
+He Ping, representing the Health Department, answered: "Very few of our own wounded require hospitalization—fewer than thirty. But there are nearly four hundred seriously wounded among the prisoners. The hospital is nearly at capacity."
 
-"Give the prisoners some comfort items too—simpler stuff, of course. A dried fish each for their evening snack should do—you have dried fish here, right?"
+"Give the prisoners some comfort items too—simpler things, of course. One dried fish each for their evening snack should suffice—you have dried fish here, correct?"
 
-"Yes, plenty," Dongmen Chuiyu said.
+"Plenty," Dongmen Chuiyu confirmed.
 
-"We'll borrow four hundred dried fish first." Wen Desi thought a moment. "Have Pan Pan prepare the DV. Shoot plenty of footage this afternoon."
+"Good. We'll borrow four hundred dried fish for now." Wen Desi thought for a moment. "Have Pan Pan prepare the DV camera. We'll want extensive footage this afternoon."
+
+---
 
 That afternoon, the hospital visit took place. Afterward, the *Lingao Times (Public Edition)* published an article titled *Oceanic Care*:
 
-"After the grand parade celebrating our great regime's victory, the delegation dined simply in the Ma'ao base mess hall.
+"Following the grand parade celebrating our great regime's victory, the delegation dined simply in the Ma'ao base mess hall.
 
-"All the ingredients were produced by the hands of the Fubogun cadres and soldiers here at Ma'ao. Comrades Wen Desi, Ma Qianzhu, Wang Luobin, Zhan Wuya, and other leaders savored the modest meal while praising the delicious food produced by the Fubogun in compliance with the Yuan Laoyuan's brilliant directive to 'launch production campaigns and lighten the people's burden.'
+"All ingredients were produced by the hands of Fubogun cadres and soldiers stationed here at Ma'ao. Comrades Wen Desi, Ma Qianzhu, Wang Luobin, Zhan Wuya, and other leaders savored the modest meal while praising the delicious food produced by the Fubogun in compliance with the Yuan Laoyuan's brilliant directive to 'launch production campaigns and lighten the people's burden.'
 
 "During the meal, Chairman Wen asked with concern about the condition of the Fubogun wounded.
 
-"'They are all stable,' General He replied. 'The wounded have received excellent care and are recovering.'
+"'They are all stable,' General He replied. 'The wounded have received excellent care and are recovering well.'
 
 "Chairman Wen requested to visit the wounded that afternoon and distribute comfort items imbued with the deep affection of the Yuan Laoyuan and the people. General He said: 'You have already worked hard inspecting the troops this morning. Let other comrades handle the afternoon.'
 
@@ -110,7 +112,7 @@ That afternoon, the hospital visit took place. Afterward, the *Lingao Times (Pub
 
 "When they reached the rest room, Comrade Ma Qianzhu suddenly asked: why were comfort items not being distributed in those other buildings?
 
-"'The patients there are enemy prisoners who came to invade us,' the hospital director said.
+"'The patients there are enemy prisoners who came to invade us,' the hospital director replied.
 
 "'In that case, they too should receive some comfort items.'
 
@@ -126,29 +128,31 @@ That afternoon, the hospital visit took place. Afterward, the *Lingao Times (Pub
 
 "..."
 
+---
+
 In reality, the visit to the prisoner ward lasted only about fifteen minutes, with a simple speech. That speech did move many hearts and fill them with gratitude—but not because of the evening snack of dried fish.
 
-The core of Ma Qianzhu's speech was the question of their future. He promised that once all the wounded recovered, the Aoosong regime would employ them, giving each a job so they could support their families.
+The core of Ma Qianzhu's message concerned their future. He promised that once all the wounded recovered, the Aoosong regime would employ them, giving each man a job so he could support his family.
 
-Days earlier, Ma Qianzhu had learned from He Ping's report that about one-third of the hospitalized imperial soldiers would be left with varying degrees of disability. Prisoners without disabilities would be sent straight to labor gangs after recovery. But in ancient times, the disabled could rarely survive. Most men who enlisted came from impoverished families with no other options; returning home as cripples meant death.
+Days earlier, Ma Qianzhu had learned from He Ping's report that approximately one-third of the hospitalized imperial soldiers would be left with varying degrees of disability. Prisoners without disabilities would be sent straight to labor gangs after recovery. But in this era, the disabled rarely survived. Most men who enlisted came from impoverished families with no other options; returning home as cripples meant a slow death.
 
-This was the angle he used to move the prisoners' hearts—to let them fully experience the difference between the old society and the new. This group of wounded prisoners later became some of the most committed supporters of the new order.
+This was the angle he used to move the prisoners' hearts—to let them fully experience the difference between the old society and the new. This group of wounded prisoners would later become some of the most committed supporters of the new order.
 
-After the visit, Ma Qianzhu asked the hospital's acting director: "What's the mortality rate?" He was very interested in the hospital's treatment efficiency.
+After the visit, Ma Qianzhu asked the hospital's acting director: "What's the mortality rate?" He was keenly interested in the facility's treatment efficiency.
 
-"Very low. Almost everyone who receives timely treatment survives. The two great treasures—antibiotics and tetanus serum—have saved many lives." said Ning Jinghai, who had returned to Ma'ao with the medical corps. "But the tetanus serum's effectiveness varies. Some batches work well, others poorly. On average, about 70%."
+"Very low. Almost everyone who receives timely treatment survives," replied Ning Jinghai, who had returned to Ma'ao with the medical corps. "The two great treasures—antibiotics and tetanus serum—have saved countless lives. But the tetanus serum's effectiveness varies by batch. Some work well, others poorly. Overall, roughly seventy percent effectiveness."
 
 "Two-thirds effective—that's quite good."
 
-"Yes, we can only look at it that way." Ning Jinghai was not entirely comfortable with such rough standards. "We're just short of transmigrator doctors and nurses. Conditions here are relatively poor."
+"Yes, we can only look at it that way." Ning Jinghai wasn't entirely comfortable with such imprecise standards. "We're simply short of transmigrator doctors and nurses. Conditions here remain relatively poor."
 
-"Poor conditions can be improved." Ma Qianzhu reached into his pocket, pulled out a cigarette, lit it, and took a drag. "Conditions are poor, nobody wants to come. How about you become the director of the Ma'ao Hospital?"
+"Poor conditions can be improved." Ma Qianzhu reached into his pocket, pulled out a cigarette, lit it, and took a drag. "Conditions are poor, so nobody wants to come. What if you became director of the Ma'ao Hospital?"
 
-"Me?" Ning Jinghai hesitated. He was indeed trained as a doctor and had practiced clinically for years, but his later work was unrelated to medicine. Whether in treatment or health administration, he was quite rusty.
+"Me?" Ning Jinghai hesitated. He was indeed trained as a physician and had practiced clinically for years, but his later work had been entirely unrelated to medicine. Whether in treatment or health administration, he had grown quite rusty.
 
 "Yes—aren't you a PhD?"
 
-"I have a PhD in computational biology. The connection to medicine is, well, tenuous at best."
+"In computational biology. The connection to clinical medicine is tenuous at best."
 
 "That doesn't matter."
 
@@ -158,31 +162,33 @@ After the visit, Ma Qianzhu asked the hospital's acting director: "What's the mo
 
 "I understand. I'll register when I return to Lingao."
 
-After leaving the hospital, the delegation members held discussions with the transmigrator army officers at the Ma'ao base. The talks were confidential, covering every aspect of the campaign—mainly after-action reviews.
+---
 
-An impeachment attempt by some transmigrators had collapsed in its preparatory stages for failing to secure two-thirds of the full membership's support. But a thirty-five-point inquiry submitted by a faction in the Yuan Laoyuan required detailed responses from the Executive Committee and the armed forces.
+After leaving the hospital, the delegation members held confidential discussions with the transmigrator army officers at the Ma'ao base. The talks covered every aspect of the campaign—primarily after-action reviews.
 
-Wen Desi handed the document to He Ming: "Frankly, many questions are not easy to answer. Give them serious thought."
+An impeachment attempt by some transmigrators had collapsed in its preparatory stages for failing to secure two-thirds of the full membership's support. But a thirty-five-point inquiry submitted by a faction in the Yuan Laoyuan still required detailed responses from the Executive Committee and the armed forces.
 
-"We'll simply tell the truth," He Ming said, scanning a few pages. "I think I should be the one attending the inquiry hearings—Chen Haiyang at most. Better not to summon other transmigrator officers, lest someone use the occasion to stir trouble."
+Wen Desi handed the document to He Ming: "Frankly, many questions won't be easy to answer. Give them serious thought."
 
-"Of course, of course," Ma Qianzhu nodded. "The Executive Committee has also been criticized, but I fully understand. This is what democracy means."
+"We'll simply tell the truth," He Ming said, scanning a few pages. "I should be the one attending the inquiry hearings—Chen Haiyang at most. Better not to summon other transmigrator officers, lest someone use the occasion to stir trouble."
 
-Wen Desi waved his hand: "Let's make it a habit to review every campaign. The PDCA cycle—Plan, Do, Check, Act. We're doing exactly that now: discussing issues found and how to improve. As for the Yuan Laoyuan hearings, just go through the motions."
+"Of course, of course," Ma Qianzhu nodded. "The Executive Committee has also faced criticism, but I fully understand. This is what democracy means."
 
-That day, a series of reviews addressed problems identified during the counter-encirclement campaign—including weapon quality, soldier training, tactical deployment, logistics equipment, and the combat system.
+Wen Desi waved his hand: "Let's make it standard practice to review every campaign. The PDCA cycle—Plan, Do, Check, Act. That's exactly what we're doing now: discussing issues identified and how to improve. As for the Yuan Laoyuan hearings—we'll go through the motions."
+
+That day, a series of reviews addressed problems identified during the counter-encirclement campaign—encompassing weapon quality, soldier training, tactical deployment, logistics equipment, and the overall combat system.
 
 "Quality control of the self-manufactured Minié rifles is poor; the sights are inaccurate."
 
-"Barrel and mechanism lifespan is insufficient. Rated barrel life is 200 rounds, but after 100 actual rounds, rifling erosion is severe. If we hadn't brought many spare rifles, we'd have been fighting with bayonets."
+"Barrel and mechanism lifespan is insufficient. Rated barrel life is two hundred rounds, but after a hundred actual rounds, rifling erosion becomes severe. If we hadn't brought many spare rifles, we'd have been fighting with bayonets."
 
-Zhan Wuya took notes: "Machining capacity is fine; materials are still substandard."
+Zhan Wuya took careful notes: "Machining capacity is adequate; materials remain substandard."
 
-"Black-powder grenades lack power."
+"Black-powder grenades lack sufficient power."
 
-"We're considering switching to fixed-cartridge rifles with new propellant."
+"We're considering switching to fixed-cartridge rifles with the new propellant."
 
-"All soldiers should switch to steel helmets. Rattan helmets offer inadequate protection—wearing them is pointless."
+"All soldiers should receive steel helmets. Rattan helmets offer inadequate protection—wearing them is pointless."
 
 "Military boots are of poor quality. Cloth-soled shoes wear out quickly; straw sandals cause serious foot injuries. Fortunately, there were no long marches."
 
@@ -194,12 +200,14 @@ Zhan Wuya took notes: "Machining capacity is fine; materials are still substanda
 
 The compiled materials filled a thick volume. Ma Qianzhu ordered it sent to Lingao immediately as reference material for the next Executive Committee plenary session.
 
-That afternoon, all combatants—soldiers, militia, and laborers—received comfort packages. The packages were practical: bolts of cloth and silk, tobacco and liquor. All participants also received varying bonuses. Fubogun officers and soldiers each received three months' extra pay. Militia and laborers received the equivalent of one month's pay for a Fubogun private first class. Those awarded merit medals received additional bonuses.
+That afternoon, all combatants—soldiers, militia, and laborers—received their comfort packages. The contents were practical: bolts of cloth and silk, tobacco, and liquor. All participants also received bonuses of varying size. Fubogun officers and soldiers each received three months' extra pay. Militia and laborers received the equivalent of one month's pay for a Fubogun private first class. Those who had earned merit medals received additional bonuses.
 
-That evening, sumptuous feasts were laid out in mess halls and on the parade grounds. Each man's wooden tray held two meat dishes: a piece of meat, two fish cutlets, and scrambled eggs. Both meat and vegetable dishes were exquisitely prepared—cooked by chefs brought from the Commercial Hall restaurant and cooperative restaurants. Barrels of kvass filled the tables. Anyone not on duty could drink freely—as much as they wanted.
+That evening, sumptuous feasts were laid out in the mess halls and across the parade grounds. Each man's wooden tray held two meat dishes: a piece of pork, two fish cutlets, and scrambled eggs. Both meat and vegetable dishes had been prepared with care—cooked by professional chefs brought from the Commercial Hall restaurant and cooperative eateries. Barrels of kvass filled every table. Anyone not on duty could drink freely, as much as they pleased.
 
-Officers, soldiers, militia, and laborers sat around the tables, grinning and feasting. Delegation members scattered through the camp, visiting every table to propose toasts.
+Officers, soldiers, militia, and laborers gathered around the tables, grinning and feasting. Delegation members scattered through the camp, visiting every table to propose toasts.
 
-Even though they were drinking only kvass, drinking their fill still produced a pleasant buzz. The entire Ma'ao base was immersed in an ocean of joy.
+Even though they were drinking only kvass, drinking their fill still produced a pleasant, convivial buzz. The entire Ma'ao base was immersed in an ocean of joy.
+
+---
 
 *Author's Note: The "Oceanic Care" newspaper prose in this chapter is adapted from a famous internet post. Whether it was a genuine translation or the author's original creation, I do not know. Either way, my thanks to the original author.*

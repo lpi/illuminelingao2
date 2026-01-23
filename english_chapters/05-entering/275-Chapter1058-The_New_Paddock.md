@@ -2,7 +2,7 @@
 
 Nick personally went to the horse paddock outside the city to survey the terrain and consider how to design the new facility.
 
-The paddock he was designing would primarily be used to house the working horses currently under the Jeju Military Control Commission's control. As for the public and private horse ranches elsewhere, he could not intervene for the time being—not because he did not want to, but because he simply could not.
+The paddock he was designing would primarily house the working horses currently under the Jeju Military Control Commission's control. As for the public and private horse ranches elsewhere, he could not intervene for the time being—not because he did not want to, but because he simply could not.
 
 He currently had neither the personnel nor the fodder to effectively manage tens of thousands of horses. In the end, he would still have to rely on the old hands and old methods.
 
@@ -26,7 +26,7 @@ Although Nick knew nothing about construction, he knew how to build horse paddoc
 
 According to standards, paddock sites should ideally be on dry, flat or gently sloped ground facing away from prevailing winds and toward the sun, with a substantial water source nearby. The current Jeju paddock site met all these criteria, so he decided to keep the location and ordered the Volunteer Corps to first level the foundation.
 
-The paddock floor was relatively simple and did not require stone or cement hardening—this would be both labor-intensive and material-intensive, and harmful to horse health. Such materials were both too hard and lacking in insulation. Floors were therefore typically compacted clay, which provided warmth, protected hooves, and was easy to repair.
+The paddock floor was relatively simple and did not require stone or cement hardening—this would be both labor-intensive and material-intensive, and harmful to horse health. Such materials were too hard and lacked insulation. Floors were therefore typically compacted clay, which provided warmth, protected hooves, and was easy to repair.
 
 Horse shelters came in fully enclosed and semi-enclosed varieties. As in Lingao, Nick chose the semi-enclosed type.
 
@@ -38,13 +38,13 @@ Horses were animals that preferred cool conditions and disliked heat. Nick belie
 
 Nick designed the shelters as multi-row, single-slope structures. This shelter style was the simplest, using minimal building materials while housing many horses. It was easy to manage and offered reasonable insulation. The sloped roof used the surrounding walls as load-bearing structures, with rafters resting directly on the walls and eliminating the need for beams and columns. This was especially suitable for Nick, who lacked both thick-trunked timber and enough qualified carpenters.
 
-The walls were built from the volcanic stone found everywhere on the island, bonded with a mixture of clay and sand. Constructing walls from irregular stone blocks required skill, but since nearly all local buildings used this method, many official slaves in the Volunteer Corps were experienced at the work.
+The walls were built from volcanic stone found everywhere on the island, bonded with a mixture of clay and sand. Constructing walls from irregular stone blocks required skill, but since nearly all local buildings used this method, many official slaves in the Volunteer Corps were experienced at the work.
 
 Most shelter interiors had no individual stalls, using an open-plan layout. Only a few shelters had stalls, specially prepared for pregnant and nursing mares.
 
 The shelters contained purpose-built feed troughs—all shipped from Lingao. Nick was concerned that the old troughs might harbor bacteria and parasites, so he had them all discarded and chopped up for firewood. Additionally, special hay racks were installed. These were made of wooden poles, positioned horizontally above the feed troughs, at roughly the height a standing horse could reach by slightly raising its head.
 
-The hay racks were specifically intended because local horses were mostly fed dried grass in winter. If hay were simply piled on the stable floor, horses could ingest manure and parasite eggs—highly unsanitary.
+The hay racks were specifically necessary because local horses were mostly fed dried grass in winter. If hay were simply piled on the stable floor, horses could ingest manure and parasite eggs—highly unsanitary.
 
 This small improvement was actually a critical step in improving horse health.
 

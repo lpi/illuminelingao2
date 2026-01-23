@@ -1,91 +1,95 @@
 # Chapter 1043: Scholar-Officials and Official Slaves
 
-An archery competition was underway at the archery field of the Jeju Government Office. The Jeju Magistrate, Lord Yi, had high interest in the competition and personally summoned the main officials on the island to participate.
+An archery competition was underway at the Jeju Government Office's practice field. The Jeju Magistrate, Lord Yi Jin-gyeong, had taken personal interest in the affair and summoned the island's principal officials to participate.
 
-The ruling class of the Joseon Dynasty had a strong interest in archery; from the King down to the *Yangban* nobles, all took it as a pastime. Archery competitions were frequently held in the palace and government offices, with rewards given to the winners. Under such an atmosphere, even the archery skills of civil officials were quite impressive.
+The Joseon Dynasty's ruling class harbored deep enthusiasm for archery. From the King himself down through the *Yangban* nobility, all regarded it as a refined pastime. Archery competitions were regularly held at the palace and government offices, with prizes awarded to victors. Under such patronage, even civil officials developed impressive skill with the bow.
 
-An arrow left the string, flying swiftly against the wind with a whizzing sound. The sharp arrow pierced a spot a finger's width away from the bullseye, quivered for a moment, and then stood still.
+An arrow left the string, slicing through the wind with a sharp whistle. The shaft drove into the target a finger's width from the bullseye, quivered momentarily, then stood still.
 
-The archer was none other than Jeju Magistrate Yi Jin-gyeong. Seeing this scene, his face immediately darkened. Without waiting to hide his disappointed expression, he hurriedly looked at the soldiers and his subordinates arrayed beside the drill ground. They all put on respectful expressions, but they couldn't conceal the surprise on their faces.
+The archer was Lord Yi Jin-gyeong himself. His face darkened immediately. Before he could mask his disappointment, he glanced toward the soldiers and subordinates arrayed beside the drill ground. They had composed their features into expressions of respect, but failed to conceal their surprise.
 
-Although Yi Jin-gyeong was a civil official, his archery skills were not inferior to the Judge, Yi Dae-ha; the two could be said to be equally matched in archery.
+Though a civil official by appointment, Yi Jin-gyeong's archery rivaled that of Judge Yi Dae-ha; the two were considered evenly matched in skill.
 
-Today was a day with gentle breezes and bright sunshine, and the wind was much lighter, exactly the conditions for archers to display their maximum skill. Unexpectedly, Lord Yi's first arrow missed the bullseye.
+Today's weather was ideal—gentle breezes, bright sunshine, winds much lighter than usual—precisely the conditions for archers to demonstrate their maximum ability. That Lord Yi's first arrow should miss the bullseye was entirely unexpected.
 
-The surrounding atmosphere was a bit stagnant, and everyone looked somewhat uneasy. After all, this Observer (Governor) had always prided himself on his archery skills; needless to say, such a scene would put him in a foul mood.
+The atmosphere grew stagnant. Everyone appeared uneasy. After all, this Observer had always prided himself on his archery; such a scene would surely foul his mood.
 
-When the superior is in a bad mood, the subordinates' days naturally won't be easy. Everyone's gaze fell on Yi Dae-ha, who was to shoot next.
+When a superior was displeased, subordinates would suffer. Every gaze drifted toward Yi Dae-ha, who was next to shoot.
 
-If this Judge Yi could also miss a bit—whether truly missing or intentionally—it would at least lighten the atmosphere. But this was hard to say.
+If this Judge Yi could also miss by some margin—whether genuinely or strategically—the tension might ease. But that was far from certain.
 
-Yi Dae-ha was the Jeju Judge—the highest military official on the entire island, and practically the second-in-command of Jeju. Many times, specific affairs were handled by this Judge—thus the relationship between the Judge and the Magistrate was quite subtle. Because of its *Yangban* noble relations, the Joseon Dynasty didn't have a strong tradition of valuing civil over military. What's more, the Judge's immediate superior, the Jeolla Province Military Commander Shin Gyeong-yu, was a major supporter who had backed the King to overthrow the previous Gwanghaegun eight years ago. With such a powerful new noble of the current dynasty backing him, Judge Yi might not necessarily be willing to play along.
+Yi Dae-ha served as Jeju's Judge, the highest military official on the entire island and effectively its second-in-command. He personally handled much of the actual administrative work, making the relationship between Judge and Magistrate rather delicate. Moreover, due to the *Yangban* nobility's influence, the Joseon Dynasty lacked the strong tradition of valuing civil over military authority found elsewhere. More significantly, the Judge's direct superior—Jeolla Province Military Commander Shin Gyeong-yu—had been a prominent supporter of the current King's coup to overthrow Gwanghaegun just eight years prior. With such a powerful figure of the new regime backing him, Judge Yi might not feel inclined to play along.
 
-Yi Dae-ha was in full martial attire, with a calfskin quiver inserted at his waist containing thirteen eagle-feather arrows, and holding a vermilion-lacquered, rattan-bound bow in his hand. As soon as he appeared, he attracted everyone's attention.
+Yi Dae-ha appeared in full martial regalia: a calfskin quiver at his waist held thirteen eagle-feather arrows, and he gripped a vermilion-lacquered, rattan-bound bow. His presence immediately commanded attention.
 
-He took a deep breath and drew the bow calmly. When the bowstring was fully drawn, he stood motionless, as steady as a mountain. Everyone stared at him unblinkingly.
+He drew a deep breath and calmly raised his bow. When the string reached full draw, he stood motionless, steady as a mountain. Every eye fixed upon him.
 
-However, his arrow also missed. Yi Dae-ha shook his head slightly. A wave of unease swept across everyone's hearts. Suddenly, a soldier ran over hurriedly to report: The beacon fire at the beacon tower was lit—there was a large-scale invasion by Wokou (Japanese pirates)!
+His arrow also missed the mark.
 
-Everyone was shocked. After the Tokugawa Seclusion, Wokou harassment of Jeju had dropped significantly. Since 1605, when Joseon and the Tokugawa Shogunate re-established diplomatic relations, this area of Jeju had maintained peace for almost thirty years. Although small groups of Wokou landed and harassed every year, there had never been a large-scale invasion.
+Yi Dae-ha shook his head slightly. A wave of unease passed through the assembled officials. Then, suddenly, a soldier came running to report urgent news: the beacon towers had been lit—a large-scale *Wokou* invasion was underway.
 
-The message from the beacon tower was extremely simple; it could only be seen that a large group of Wokou had invaded the main island from the direction of Seongsan. As for the specific situation, they had to wait for local soldiers and subordinate officials to report.
+Shock rippled through the crowd. Since the Tokugawa Seclusion, *Wokou* harassment of Jeju had declined dramatically. Since 1605, when Joseon and the Tokugawa Shogunate re-established diplomatic relations, the island had enjoyed nearly three decades of peace. Though small bands of pirates still occasionally landed and raided, there had been no major invasion.
 
-"Wokou broke in?"
+The beacon signal was maddeningly vague—it indicated only that a substantial *Wokou* force had struck the main island from the direction of Seongsan. Specific details would have to await reports from local soldiers and subordinate officials.
 
-The Judge was shocked. Although caught off guard, he had response plans: Yi Dae-ha immediately ordered to light the beacons, blow the horns, and summon garrison soldiers from all towns.
+"*Wokou* have breached our shores?"
 
-Since the Goryeo Dynasty, the Jeju Island region had been constantly invaded by Wokou. Killing, arson, and robbery were commonplace. To resist Wokou invasions, in the 19th year of King Sejong, defense facilities such as three cities, nine garrisons, ten naval battle stations, twenty-five beacon towers, and thirty-eight smoke towers were established. Han Seung-sun, the Pacification Commissioner at the time, established the beacon fire system, forming a complete alert and protection system. Beacon fires were constructed along the coastline, and also deployed on mountain peaks. In case of emergency, they could notify Jeju City and other towns and defense posts in time.
+Despite his shock, the Judge had contingency plans ready. Yi Dae-ha immediately ordered the beacons lit across the island, horns blown, and garrison soldiers summoned from all townships.
 
-According to the combat plan, once Wokou landed, beacon fires would be lit everywhere, and garrisons and city stations would transmit information to each other by blowing horns and lighting beacon fires. The garrison soldiers would guard the stockades tightly and control the ports to prevent Wokou from using the island's ports for reinforcement. The garrison troops of each city would dispatch their main forces according to the Wokou landing area, coordinating with warship from the naval battle stations to attack the Wokou from both land and water and annihilate them.
+Since the Goryeo Dynasty, the Jeju region had suffered constant *Wokou* incursions—killing, arson, and robbery were commonplace. To resist these invasions, extensive defensive infrastructure had been established during King Sejong's reign: three cities, nine garrisons, ten naval battle stations, twenty-five beacon towers, and thirty-eight smoke towers. Pacification Commissioner Han Seung-sun had instituted the beacon fire system, creating a comprehensive alert and defense network. Beacon stations lined the coastline and occupied mountain peaks, enabling rapid notification to Jeju City and all other towns and defense posts in emergencies.
 
-The problem was that this seemingly good plan relied on an army maintaining basic combat effectiveness. At the same time, the number of landing Wokou could not be too large. Because the total number of troops on the island was only one thousand five hundred, deducting necessary defense troops everywhere, the number that could be dispatched from Jeju Island at one time was only three or four hundred, which was okay for dealing with dozens or a hundred Wokou, but would be powerless against more.
+According to standing orders, when *Wokou* landed, beacon fires would blaze across the island. Garrisons and city stations would relay information through horn signals and beacon fires. Garrison soldiers would hold their stockades and control the ports, preventing the pirates from using island harbors for reinforcement. The main forces from each city would then deploy based on the *Wokou* landing zone, coordinating with warships from nearby naval stations to attack from both land and sea, annihilating the invaders.
 
-Of course, they could also rely on "Righteous Armies" formed by island villagers—equivalent to the local militia of the Ming Dynasty. Compared to the regular army, the Righteous Army fighting to protect the country and home had quite impressive combat effectiveness. During the Three Ports Wokou Disturbance, the "Righteous Army" on Jeju Island played a significant role and put up fierce resistance against the Wokou. But in recent decades, Jeju Island had frequently suffered disasters, and the main island lacked sufficient grain, causing a large outflow of population to the peninsula. Jeju Island's population had been in a state of constant decline. Naturally, usable "Righteous Armies" became fewer.
+The problem was that this seemingly sound plan depended on an army capable of basic combat effectiveness—and required that the landing force not be too large. With only fifteen hundred troops on the island, subtracting essential defensive garrisons left perhaps three or four hundred men available for deployment at any given time. That was adequate for repelling a few dozen or even a hundred pirates, but would prove woefully inadequate against greater numbers.
 
-Hearing that Wokou landed near Seongsan, Jeongui Magistrate Choi In-geon's face instantly turned pale—this was his jurisdiction. As an official guarding the land, he was duty-bound to be responsible for resisting the Wokou.
+They could, of course, call upon the "Righteous Army"—volunteer militia formed by islanders, equivalent to the Ming Dynasty's local defense forces. Compared to the regular army, these Righteous Armies, fighting to protect home and country, often demonstrated impressive combat effectiveness. During the Three Ports *Wokou* Disturbance, Jeju Island's Righteous Army had played a significant role, mounting fierce resistance against the raiders. But recent decades had brought frequent disasters and chronic food shortages, causing a massive population exodus to the peninsula. The pool of available Righteous Army recruits had dwindled accordingly.
 
-"Please, Your Excellency, dispatch hundreds of elite soldiers; this humble official will return to the county immediately to resist the Wokou!"
+Learning that *Wokou* had landed near Seongsan, Jeongui Magistrate Choi In-geon went pale—this was his jurisdiction. As the official charged with defending that territory, he bore inescapable responsibility for repelling the invaders.
 
-Although afraid, the responsibility of guarding the land could not be escaped. Choi In-geon plucked up his courage and said.
+"Your Excellency, please dispatch several hundred elite soldiers. This humble official will return to the county immediately to resist the *Wokou*!"
 
-Rather than being forced back to the county, it was better to be proactive and bring more troops back for reinforcement. Whether victory could be achieved was unknown, but at least he could ensure his own safety. This kind of Wokou was nothing more than looting; naturally, they would retreat after looting their fill.
+Though frightened, the duty to defend one's post could not be evaded. Choi In-geon summoned his courage.
 
-"The Wokou situation is unclear. Rashly dispatching troops, I fear it will be difficult to win. The army on this island is only somewhat usable in the Jeju Division. If something goes wrong, the soldiers and civilians on the island will be doomed eternally," Yi Dae-ha said.
+Better to be proactive and bring reinforcements back with him than be forced to return empty-handed. Whether victory could be achieved remained uncertain, but at least he could ensure his personal safety. These *Wokou* were surely just raiders—they would withdraw once they'd plundered their fill.
 
-Although these words sounded dignified, the inner meaning was that he did not intend to send troops for reinforcement. Lord Yi had his own calculations: the Wokou would retreat sooner or later. Even if the county seat fell temporarily, recovering it after the Wokou retreated was inevitable, but losing soldiers and generals would be the Judge's responsibility.
+"The enemy situation remains unclear," Yi Dae-ha replied. "Rashly deploying troops could invite disaster. The only remotely capable soldiers on this island belong to the Jeju Division. If something goes wrong, every soldier and civilian on the island will face eternal doom."
 
-As the Judge, he knew better than anyone the state of the three Divisions of troops on the island. The only usable ones were a very small number of Special Patrols (*Byeol-cho*) and Tooth Soldiers (*A-byeong* / personal guards), at most one or two hundred men. They might not necessarily be a match for the Wokou.
+Though his words sounded dignified, the underlying meaning was clear: he had no intention of dispatching reinforcements. The Judge had made his calculations—the *Wokou* would retreat eventually. Even if a county seat fell temporarily, recovery after their withdrawal was inevitable. But losing soldiers and officers would be the Judge's responsibility.
 
-Just as Choi In-geon was thinking of a reason to refute Yi Dae-ha, Yi Jin-gyeong spoke. As befitting a rank-3 civil official, he indeed had the ability to "remain calm in chaos," his expression quite composed. Coughing once, he stroked his beard and said slowly:
+As the highest military official, he knew better than anyone the true state of the island's three Divisions. The only troops worth anything were a small number of Special Patrols and Tooth Soldiers—personal guards—perhaps one or two hundred men in total. They might not even prove a match for the *Wokou*.
 
-"Even if the Wokou force is large, we must remain calm, calm."
+Just as Choi In-geon was formulating a rebuttal, Magistrate Yi Jin-gyeong spoke. As befitting a rank-three civil official, he possessed the ability to "remain calm amidst chaos"—his expression remained composed. He cleared his throat, stroked his beard, and spoke slowly:
 
-He said "calm" twice. As expected, the officials stopped whispering and turned their eyes to him, looking to see what good strategy the Magistrate had to retreat the enemy.
+"Even if the *Wokou* force is large, we must remain calm. Calm."
 
-However, Yi Jin-gyeong had no "clever plan in a silk bag." Apart from instructing Yi Dae-ha to "devise a strategy to retreat the enemy immediately" and ordering Choi In-geon to "return to the county quickly to oversee the defense," there was no new content. Everyone could only boom their assent.
+He repeated the word twice. As expected, the officials ceased their murmuring and turned their attention to him, hoping to hear what brilliant strategy the Magistrate might unveil.
 
-In a tense atmosphere, the two Magistrates, Choi In-geon and Yi Gu, under the protection of retinue and guards, rode fast horses back to their respective county seats. Horns immediately blew in Jeju City, summoning garrisons outside the city, closing city gates, and entering a state of pre-battle readiness.
+But Yi Jin-gyeong had no "clever plan in a silk bag." Beyond instructing Yi Dae-ha to "devise a strategy to repel the enemy immediately" and ordering Choi In-geon to "return quickly to oversee the defense of your county," he offered nothing substantive. The assembled officials could only boom their acknowledgment.
 
-Yi Dae-ha returned to his office and immediately sent Special Patrols to reconnoiter the enemy situation. Then he hand-wrote a letter to his immediate superior: Jeolla Province Military Commander Shin Gyeong-yu, informing him that a large group of Wokou had landed and that he was deploying to prepare to retreat the enemy, etc.
+In an atmosphere of escalating tension, the two magistrates—Choi In-geon and Yi Gu—set out under guard escort, riding fast horses back to their respective county seats. Horns immediately blared throughout Jeju City, summoning garrisons from outside the walls, closing the city gates, and implementing pre-battle readiness protocols.
 
-This letter was not a formal request for help, but a private letter. Whether to declare an emergency and request reinforcements depended on the report after the Special Patrols returned from reconnaissance.
+Yi Dae-ha returned to his office and immediately dispatched Special Patrols to reconnoiter the enemy situation. Then he penned a personal letter to his direct superior, Jeolla Province Military Commander Shin Gyeong-yu, informing him that a large *Wokou* force had landed and that defensive preparations were underway.
 
-He called a servant and instructed him to immediately select a capable servant to deliver the letter. Then he ordered:
+This was not a formal request for aid—merely a private communication. Whether to declare an emergency and request reinforcements would depend on the reconnaissance report.
 
-"Please ask Middle Army (*Jung-gun*) Park to come."
+He summoned a servant and instructed him to select a capable man to deliver the letter. Then he issued another order:
 
-The archery competition ended hastily, and the entourages surrounding the officials dispersed in a hubbub. Only a few minor clerks of the Jeju Government Office were left directing dozens of official slaves to clean up the mess.
+"Ask Middle Army Park to attend me."
 
-An awning was set up by the archery field, originally prepared for the banquet after the archery. The tables were already set, displaying cups, saucers, bowls, chopsticks, and four kinds of fruits and four kinds of dried fruits to accompany wine. The official courtesans (*Gisaeng*), prepared for banquet entertainment, were heavily made up and dressed in magnificent clothes, looking bewilderedly at the suddenly empty field, unsure if they should leave immediately or wait for further orders.
+---
 
-Seventeen-year-old official slave Park Deok-hwan glanced at the official courtesans in the awning and swallowed a mouthful of saliva. He began to clean up the objects scattered on the archery field when his back was suddenly punched heavily. Turning around, it was exactly his brother, Park Deok-maeng.
+The archery competition had ended abruptly, and the entourages surrounding the officials dispersed in disarray. Only a handful of minor clerks from the Jeju Government Office remained, directing dozens of official slaves in the cleanup.
 
-"Big Brother, what are you still working here for? Go get the delicious food quickly!" Park Deok-maeng still had traces of soybean paste at the corner of his mouth. "If you go late, you won't get anything!"
+An awning had been erected beside the archery field for the post-competition banquet. The tables stood fully set with cups, saucers, bowls, and chopsticks, displaying arrangements of four fruits and four dried delicacies to accompany wine. The official courtesans prepared for entertainment wore elaborate makeup and magnificent garments, now gazing bewildered at the suddenly empty field, uncertain whether to depart or await further orders.
 
-Hearing his brother say this, Park Deok-hwan immediately dropped the miscellaneous items in his hands and followed his brother towards the temporary kitchen. Official slaves ate barley and buckwheat all year round, with only inferior soybean paste and seaweed to go with the rice. They couldn't even eat slightly higher-grade radish kimchi.
+Seventeen-year-old official slave Park Deok-hwan glanced at the courtesans beneath the awning and swallowed hard. He bent to gather objects scattered across the archery field when a fist struck his back. He spun around to find his brother, Park Deok-maeng.
 
-In the temporarily built kitchen, official slaves and minor clerks were pushing and shoving for food. This food, carefully cooked by the government office's official slaves, naturally had no one to enjoy it—benefiting the minor clerks and official slaves who usually only had salted vegetables and soybean paste to fill their bellies. their loyalty and patriotism were not as strong as the scholar-officials'; as long as the knife wasn't on their heads, their appetites remained good.
+"Big Brother—what are you still working here for? Get the food, quick!" Park Deok-maeng still had traces of soybean paste at the corner of his mouth. "If you're too slow, there won't be any left!"
 
-The official slaves couldn't get the best roast meat and fish soup, but ordinary food like fish sauce, fish porridge, and kimchi was quite plentiful. The two Park brothers quickly got two big bowls of fish porridge, poured a lot of soybean paste and crab paste on top messily, and hid aside to eat voraciously.
+Park Deok-hwan immediately dropped the items in his hands and followed his brother toward the temporary kitchen. Official slaves ate barley and buckwheat year-round, accompanied only by inferior soybean paste and seaweed. They couldn't even obtain such luxuries as radish kimchi.
+
+At the makeshift kitchen, official slaves and minor clerks jostled for food. This feast, lovingly prepared by the government office's slaves, now had no officials to consume it—a windfall for the minor functionaries and bondservants who usually subsisted on little more than salted vegetables and soybean paste. Their loyalty and patriotism burned less fiercely than the scholar-officials'; so long as no blade pressed their throats, their appetites remained healthy.
+
+The official slaves couldn't claim the choicest roasted meats or fish soups, but humbler fare—fish sauce, fish porridge, and kimchi—remained plentiful. The Park brothers quickly secured two heaping bowls of fish porridge, heaped with soybean paste and crab sauce in messy piles, then retreated to a quiet corner to devour their prizes.
 
 **(End of Chapter)**

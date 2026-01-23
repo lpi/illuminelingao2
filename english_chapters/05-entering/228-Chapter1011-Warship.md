@@ -1,87 +1,87 @@
 # Chapter 1011 Warship
 
-Although different reactionary academic authorities raised various unforgivable shortcomings of muzzle-loading rifled cannons—especially those "fatal" problems of muzzle-loaders: slow firing rate, large footprint, and many other deficiencies—the Planning Bureau believed that at the current stage, these shortcomings wouldn't create "life-or-death" dangers for the Navy in combat.
+Though various reactionary academic authorities had raised countless objections to muzzle-loading rifled cannons—particularly the "fatal" flaws inherent to all muzzle-loaders, such as slow firing rates and oversized footprints—the Planning Bureau remained unconvinced. At this stage of development, such shortcomings posed no existential threat to the Navy in combat.
 
-The Armstrong breech-loading cannons with screw-thread breeches that the Ordnance Department could currently produce in small quantities and equip to coastal artillery weren't ideal in actual use. The breech-locking was particularly difficult; hammers had to be used in actual operation to reach the tightened state. Besides being able to load from the breech, whether in loading speed, cannon range, or accuracy, they didn't obviously surpass Dahlgren rifled cannons, but production complexity was much greater.
+The Armstrong breech-loading cannons with screw-thread breeches that the Ordnance Department currently produced in limited quantities for coastal artillery had proven disappointing in practice. The breech-locking mechanism was especially troublesome, requiring hammers to achieve a proper seal. Apart from the convenience of loading from the breech, they offered no obvious advantages over Dahlgren rifled cannons in loading speed, range, or accuracy—yet demanded far greater manufacturing complexity.
 
-As for mature, reliable interrupted-screw breeches, that would inevitably touch upon rubber and asbestos that the Industrial Department had always felt powerless about—used to manufacture gas-sealing plugs.
+As for truly mature, reliable interrupted-screw breeches, those would inevitably require rubber and asbestos for manufacturing gas-sealing plugs—materials the Industrial Department had long struggled to produce.
 
-Although some proposed new plans: a breech mechanism using horizontal wedge breeches plus metal gas rings, not requiring rubber and producible with current industrial capacity. However, Dahlgren cannons again won on process simplicity and material simplicity. Although the Planning Bureau ultimately approved experimental manufacture of two cannons using horizontal wedge breeches plus metal gas rings, they obviously weren't preparing to mass-produce them soon.
+Some had proposed alternatives: a breech mechanism using horizontal wedge breeches with metal gas rings, which required no rubber and lay within current industrial capacity. Yet once again, the Dahlgren cannon prevailed on grounds of process simplicity and material availability. The Planning Bureau ultimately approved experimental manufacture of two cannons using the horizontal wedge design, but clearly had no intention of mass-producing them anytime soon.
 
-Planning Bureau representative Sun Xiao explained the reasons for choosing Dahlgren rifled cannons at a General Staff Equipment Department meeting: "Since the Navy using sailing warships with smoothbore cannons never complained about slow cannon loading, we believe using rifled cannons with range and accuracy far superior to smoothbores on hybrid-powered warships won't be a serious problem."
+At a General Staff Equipment Department meeting, Planning Bureau representative Sun Xiao explained the rationale for choosing Dahlgren rifled cannons: "Since the Navy, using sailing warships armed with smoothbores, never complained about slow cannon loading, we believe that equipping hybrid-powered warships with rifled cannons—whose range and accuracy far exceed smoothbores—will pose no serious problem."
 
-Behind the Planning Bureau's stinginess lay the steel industry's capacity bottleneck. Although the Maniao Steel Complex's blast furnaces and open-hearth furnaces had started production, the production situation wasn't satisfactory. The shortage of qualified workers and administrative personnel seriously affected further capacity expansion.
+Behind the Planning Bureau's frugality lay the steel industry's capacity bottleneck. Though the Manzao Steel Complex's blast furnaces and open-hearth furnaces had begun production, output remained unsatisfactory. The shortage of qualified workers and administrative personnel severely constrained further expansion.
 
-Lin Shenhe stopped his bike outside the work shed and parked it. He saw on specialized racks in an open area a row of newly produced Dahlgren cannon barrels. Although cast iron barrels, the barrel surfaces were regular and smooth. Lin Shenhe stopped his bicycle, touched the barrel and muzzle, then used the bike lamp's light to observe the rifling inside the barrel. The Machinery and Metallurgy departments' craftsmanship was getting better and better.
+Lin Shenhe parked his bicycle outside the work shed and dismounted. In an open area nearby, specialized racks displayed a row of newly produced Dahlgren cannon barrels. Though cast from iron, their surfaces were regular and smooth. He touched the barrel and muzzle, then used his bicycle lamp to peer inside, examining the rifling. The craftsmanship from the Machinery and Metallurgy departments grew more impressive by the day.
 
-The Maniao Industrial Complex could now produce very good quality pig iron ingots. Using reverberatory furnaces to refine molten iron, they could manufacture excellent quality molten iron for casting cannons—before Lingao had its own blast furnaces, the imported pig iron used for casting cannons was refined through reverberatory furnaces.
+The Manzao Industrial Complex could now produce excellent quality pig iron. Using reverberatory furnaces to refine molten iron, they manufactured superior cannon-casting material—before Lingao had its own blast furnaces, imported pig iron for cannon casting had undergone the same reverberatory furnace refinement.
 
-Farther away were piles of gun carriages, rails, and metal fittings for installation, faintly gleaming with metallic luster under dim lighting.
+Further off, piles of gun carriages, rails, and metal fittings awaited installation, their metallic surfaces gleaming faintly under dim lighting.
 
-When he walked into the work shed, it was smoky inside. Blueprints were spread on tables. Several people were discussing around the blueprints.
+Inside the work shed, smoke hung in the air. Blueprints lay spread across tables where several people huddled in discussion.
 
 Lin Shenhe greeted Zhou Ke and the others.
 
-"Muzzle-loaders really are inconvenient to load." Although Zhou Ke wasn't any naval talent and didn't know much about weapons, anyone who walked around the deck and looked at the cannon and deck blueprints would understand muzzle-loaders' problems.
+"Muzzle-loaders really are inconvenient to load," Zhou Ke remarked. Though no naval expert with little weapons knowledge, anyone who walked the deck and studied the cannon and layout drawings would quickly grasp the problem.
 
-Muzzle-loading cannons after firing had to retract the muzzle back onto the deck before sailors could reload. Therefore, each barbette's size had to exceed barrel and carriage length; a gun position's diameter was at least over 5 meters—footprint much larger than breech-loaders.
+After firing, muzzle-loading cannons had to be retracted onto the deck before sailors could reload. Each barbette therefore required dimensions exceeding the combined length of barrel and carriage—a gun position's diameter measured at least five meters, a footprint far larger than breech-loaders demanded.
 
-"No problem. No matter how many issues muzzle-loaders have, they're still rifled. Besides, cannon modification is easy." Lin Shenhe said. "Right now if Dahlgren cannons work and are adequate, that's enough."
+"No problem," Lin Shenhe replied. "Whatever issues muzzle-loaders have, they're still rifled. Besides, cannon modification is straightforward. If Dahlgren cannons work and prove adequate for now, that's enough."
 
-"I can understand the Planning Bureau constantly demanding savings, but they should still consider going all the way. We can't always be doing technical upgrades..."
+"I understand the Planning Bureau's constant demands for savings, but they should still consider going all the way. We can't always be doing technical upgrades..."
 
-Lin Shenhe chuckled softly: "Going all the way? Let me put it this way—if everyone hadn't been calling so loudly for explosive shells, rifled cannons, and cartridge rifles, the Planning Bureau would probably be preparing to conquer the world with 12-pounder smoothbores and Minié rifles."
+Lin Shenhe chuckled softly. "Going all the way? Let me put it this way—if everyone hadn't been clamoring so loudly for explosive shells, rifled cannons, and cartridge rifles, the Planning Bureau would probably be preparing to conquer the world with twelve-pounder smoothbores and Minié rifles."
 
 "So frugal..."
 
-"I can understand Wu De's thinking," Lin Shenhe said. "Everyone just wants satisfaction, not caring how to get it or what happens after—he's now conducting revolution through thrift."
+"I understand Wu De's thinking," Lin Shenhe said. "Everyone just wants satisfaction without caring how to achieve it or what happens afterward—he's conducting revolution through thrift."
 
-"Hmm, didn't expect you to have such a big-picture view." Zhou Ke said.
+"Didn't expect you to have such a big-picture view," Zhou Ke observed.
 
-"Not at all—where would I have a big-picture view? Just casually sharing thoughts."
+"Not at all—where would I have such perspective? Just sharing thoughts casually."
 
-Zhou Ke said: "Let's walk around the ship. Inspect the situation on-site." He picked up the telephone and cranked it twice: "Turn on the lights at the naval pier."
+"Let's tour the ship," Zhou Ke suggested. "Inspect the situation on-site." He picked up the telephone and cranked it twice: "Turn on the lights at the naval pier."
 
-A few minutes later, all electric lights on the naval pier came on, brightly illuminated. Although light intensity still wasn't enough to illuminate every angle of the ship, at least one could roughly see objects' outlines without stumbling.
+Minutes later, every electric light on the naval pier blazed to life. Though the intensity still wasn't sufficient to illuminate every angle of the ship, one could at least discern objects' outlines without stumbling.
 
-Under the lights, the hull surface showed irregular dark black—the result of unskilled painters applying tar paint. The hull was made from lychee wood imported from Guangdong, Vietnam, and other places—very sturdy. From the exterior, one couldn't tell the internal ribs and keel were iron—all covered by hull planking.
+Under the lights, the hull surface showed irregular patches of dark black—the handiwork of inexperienced painters applying tar paint. The hull was constructed from lychee wood imported from Guangdong, Vietnam, and elsewhere—extremely sturdy. From the exterior, nothing betrayed that the internal ribs and keel were iron. All lay hidden beneath the hull planking.
 
-On deck, three masts stood tall. The 1630-class's three composite masts were shorter than its prototype's—the Navy couldn't train that many sailors skilled at climbing masts and handling sails on masts. So its rigging was simplified as much as possible, using steam auxiliary machinery to handle halyards.
+On deck, three masts rose tall against the night sky. The 1630-class's three composite masts stood shorter than its prototype's—the Navy simply couldn't train enough sailors skilled at climbing rigging and handling sails aloft. So the rigging had been simplified wherever possible, with steam auxiliary machinery replacing manual work on the halyards.
 
-Rigging was fully installed. White canvas was furled; jute halyards crisscrossed, each looking dark. Lin Shenhe inadvertently tried to touch one.
+The rigging stood fully installed. White canvas lay furled; jute halyards crisscrossed the masts, each rope darkened with tar. Lin Shenhe inadvertently reached out to touch one.
 
-"Don't touch—they're covered in tar!" Zhou Ke quickly warned him.
+"Don't touch—they're covered in tar!" Zhou Ke warned quickly.
 
-Lin Shenhe started and quickly withdrew his hand. The deck was also coated with tar of the same color. Even so, beautiful patterns were visible under the lights.
+Lin Shenhe started and withdrew his hand. The deck beneath his feet was coated with the same dark substance. Even so, beautiful wood patterns remained visible under the lights.
 
-"Made from imported Southeast Asian teak." Zhou Ke said. "Quite luxurious."
+"Made from imported Southeast Asian teak," Zhou Ke said. "Quite luxurious."
 
-Lin Shenhe was unfazed—warship decks using teak was unremarkable in the past. Battleships and aircraft carriers of the 20th century still used this precious wood for decking.
+Lin Shenhe remained unfazed—warship decks built from teak were nothing remarkable. Battleships and aircraft carriers of the twentieth century still used this precious wood for their decking.
 
-The 1630-class had an island layout. The single smokestack was set in the island's center; the black smokestack was painted with yellow marker bands—the ship's only bright-colored markings.
+The 1630-class featured an island layout. The single smokestack rose from the island's center; black-painted with yellow marker bands, it bore the ship's only bright-colored markings.
 
-Gun bases for the barbettes had already been installed at the positions designated for cannons, just waiting for rails, gun carriages, and barrels to be installed first thing the next morning.
+Gun bases for the barbettes already occupied their designated positions, awaiting the rails, gun carriages, and barrels that would be installed first thing the following morning.
 
-Since the 1630-class was a sail-steam hybrid-powered warship, the three masts severely limited cannon firing arcs. The foremast and mainmast were right in front of the main guns' muzzles, preventing the two main guns from firing directly forward or aft—due to hull structure and center of gravity considerations, both main gun barbette positions were set on deck relatively near the ship's center. Therefore, 0-degree fire at bow and stern was provided by secondary guns on both beams. The only way for the 1630-class to deliver maximum firepower remained broadside salvos.
+Since the 1630-class was a sail-steam hybrid, the three masts severely limited cannon firing arcs. The foremast and mainmast stood directly before the main guns' muzzles, preventing both main guns from firing directly forward or aft. Due to hull structure and center-of-gravity considerations, both main gun barbettes were positioned relatively near the ship's center. Zero-degree fire at bow and stern therefore fell to secondary guns mounted on both beams. The only way for the 1630-class to deliver maximum firepower remained the traditional broadside salvo.
 
-Lin Shenhe knew the cannon positions like the back of his hand: he had been a participant when discussing cannon layout. There had been heated arguments about the 854 and 901's cannon layouts. The finally decided 854 Modification scheme still referenced the layout of that model's blueprint, with slight modifications.
+Lin Shenhe knew the cannon positions like the back of his hand—he had participated in discussions about cannon layout. There had been heated arguments about the 854 and 901's configurations. The final 854 Modification scheme still referenced the layout from that model's original blueprint, with slight modifications.
 
-The ship's cannon layout was: one barbette each installed on the bow and stern deck centerlines, each mounting one 130mm caliber Dahlgren rifled cannon. On the bow, amidship, and stern sections, gun casemates were set on port and starboard, mounting 1 75mm caliber Dahlgren rifled cannon each—6 secondary guns total. Auxiliary weapons were 4 typewriters, set on the deck on both sides. Cannons used circular rail rotation, slide recoil, and manual traverse and elevation mechanisms.
+The ship's armament consisted of one barbette each on the bow and stern deck centerlines, each mounting a 130mm caliber Dahlgren rifled cannon. Gun casemates were set amidships on port and starboard, mounting one 75mm caliber Dahlgren rifled cannon each—six secondary guns total. For auxiliary weapons, four typewriters were positioned on deck along both sides. All cannons used circular rail rotation, slide recoil, and manual traverse and elevation mechanisms.
 
-According to black powder destructive power tests conducted by the Navy and Ordnance Department at the range, to effectively destroy contemporary galleon oak hulls while maintaining certain shore bombardment capability, shell charge should be around 2 kilograms of high-density pressed black powder. Combined with filling coefficient, fired explosive shells weighing 25-35 kilograms corresponded to calibers above 120mm, so they ultimately selected 130mm rifled cannons.
+According to black powder destructive power tests conducted by the Navy and Ordnance Department at the range, effectively destroying contemporary galleon oak hulls while maintaining shore bombardment capability required shell charges of approximately two kilograms of high-density pressed black powder. Combined with filling coefficients, fired explosive shells weighing 25-35 kilograms corresponded to calibers above 120mm—hence the ultimate selection of 130mm rifled cannons.
 
-The barbettes themselves weren't designed with armor; only steel shields were used—on the entire 1630-class, only the magazine had a thin layer of steel plate protection. As for the boiler room, protection was provided by coal bunkers on both sides.
+The barbettes themselves lacked armor protection; only steel shields defended them. On the entire 1630-class, only the magazine received a thin layer of steel plate protection. The boiler room relied on coal bunkers flanking both sides for defense.
 
-Normally, barbettes used foldable canvas awnings to shade from sun and rain, removed during combat.
+Normally, barbettes used foldable canvas awnings to shade against sun and rain, removed during combat.
 
-"The 1630-class is still a bit small. Otherwise we could use fully enclosed turrets and install mechanized loading equipment." Zhou Ke said somewhat regretfully.
+"The 1630-class is still a bit small," Zhou Ke said with some regret. "Otherwise we could use fully enclosed turrets and install mechanized loading equipment."
 
-Lin Shenhe felt the same—the ship's small tonnage actually limited naval cannon size. With Lingao's current industrial capacity, manufacturing 200mm+ muzzle-loading rifled cannons wasn't difficult. Additionally, since 130mm cannon shells were the limit for manual loading, larger cannons required mechanically assisted loading systems—which also needed sufficient ship space.
+Lin Shenhe shared the sentiment—the ship's modest tonnage actually limited naval cannon size. With Lingao's current industrial capacity, manufacturing 200mm-plus muzzle-loading rifled cannons presented no difficulty. However, since 130mm cannon shells represented the limit for manual loading, larger cannons required mechanically assisted loading systems—which also demanded sufficient ship space.
 
-He walked into the bridge. Most equipment inside was already installed. However, some advanced navigation equipment was still "under development"; only installation positions were reserved. The marine chronometer was still one brought from the old dimension. He noticed the 1630-class's bridge also had a dedicated fire control director tower. Climbing up, he found it empty inside—besides tables and chairs, there was no fire control equipment.
+He walked into the bridge. Most equipment had already been installed, though some advanced navigation equipment remained "under development," with only installation positions reserved. The marine chronometer was still one brought from the old dimension. He noticed the 1630-class's bridge also had a dedicated fire control director tower. Climbing up, he found it empty inside—nothing but tables and chairs, no fire control equipment.
 
-Zhou Ke explained: The original plan was to install artillery observation mirrors, rangefinders, calibrators, and mechanical ballistic computers.
+Zhou Ke explained: The original plan called for artillery observation mirrors, rangefinders, calibrators, and mechanical ballistic computers.
 
-"What—" Lin Shenhe was so surprised his mouth nearly couldn't close. He had thought they were just preparing some "fire control equipment" like telescopes and rangefinders. He hadn't expected "advanced equipment" like ballistic computers too—truly advancing by leaps and bounds.
+"What—" Lin Shenhe's mouth nearly fell open in surprise. He had assumed they were simply preparing "fire control equipment" like telescopes and rangefinders. He hadn't expected "advanced equipment" like ballistic computers—truly advancing by leaps and bounds.
 
 (End of Chapter)

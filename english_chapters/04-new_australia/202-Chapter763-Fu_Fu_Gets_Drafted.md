@@ -1,12 +1,12 @@
 # Chapter 763 – Fu Fu Gets Drafted into the Investigation
 
-Wan Lihui was by now accustomed to finding a houseful of people whenever he visited the Fu Bu'er household. As village head, Fu Bu'er's home doubled as a de-facto village office. Villagers came on business, to chat, even to air grievances. The foot traffic was almost constant. Although the village had a reasonably imposing official Village Affairs office, the common folk still preferred to traipse straight to the village head's house.
+Wan Lihui was by now accustomed to finding a houseful of people whenever he visited the Fu Bu'er household. As village head, Fu Bu'er's home doubled as a de-facto village office. Villagers came on business, to chat, even to air grievances—the foot traffic was almost constant. Although the village had a reasonably imposing official Village Affairs office, the common folk still preferred to traipse straight to the village head's house.
 
-What surprised him was standing among the crowd in the parlor: a Fubo Army soldier, rising to salute. *Is the military on leave?*
+What surprised him today was a Fubo Army soldier standing among the crowd in the parlor, rising to salute. *Is the military on leave?*
 
-"This is Fu Fu. He's serving in the Fubo Army," Fu Bu'er hastened to explain. Fu Fu's sudden reappearance had given him a fright. Had the lad deserted? That could implicate him terribly! He recalled having recently done some work deterring desertion, and here was an elder present—his heart fluttered with alarm.
+"This is Fu Fu. He's serving in the Fubo Army," Fu Bu'er hastened to explain. Fu Fu's sudden reappearance had given him quite a fright. Had the lad deserted? That could implicate him terribly! He recalled having recently done some work to deter desertion, and here was an elder present—his heart fluttered with alarm.
 
-But looking again at Fu Fu: neat uniform, radiant face, carrying bundles big and small—hardly the look of a stray dog on the run. Fu Bu'er relaxed slightly.
+But looking again at Fu Fu—neat uniform, radiant face, carrying bundles big and small—this was hardly the look of a stray dog on the run. Fu Bu'er relaxed somewhat.
 
 "Fu Fu," Wan Lihui said casually. "Is he your son?"
 
@@ -14,7 +14,7 @@ But looking again at Fu Fu: neat uniform, radiant face, carrying bundles big and
 
 Wan Lihui nodded, then suddenly recalled that Fu Fu was the very bond-servant on whose behalf Fu Bu'er had once begged him to collect military pay. He had been rebuffed for his trouble and dressed down by Wei Aiwen. At the memory, his expression soured.
 
-Seeing an elder present, the onlookers tactfully dispersed.
+Sensing an elder's displeasure, the onlookers tactfully dispersed.
 
 Fu Fu quickly snapped to attention, assuming a pose of "awaiting orders."
 
@@ -22,13 +22,13 @@ Fu Fu quickly snapped to attention, assuming a pose of "awaiting orders."
 
 "Reporting, sir—not yet—"
 
-"Go! Now!" Wan Lihui pulled rank. His gaze flicked to Fu Yijin, whose cheeks were flushed and who was gazing somewhat dreamily at Fu Fu. His annoyance deepened. Since drawing an A-class maidservant in the lottery, his interest in Fu Yijin had cooled, but he had always regarded the Fu family's eldest daughter as a blossom he could pluck whenever he pleased. To suddenly find her smitten with some native soldier was disagreeable.
+"Go! Now!" Wan Lihui pulled rank. His gaze flicked to Fu Yijin, whose cheeks were flushed as she gazed somewhat dreamily at Fu Fu. His annoyance deepened. Since drawing an A-class maidservant in the lottery, his interest in Fu Yijin had cooled, but he had always regarded the Fu family's eldest daughter as a blossom he could pluck whenever he pleased. To suddenly find her smitten with some native soldier was disagreeable.
 
 "Yes, sir!" Fu Fu hurried out. Basking in the crowd's adulation, he had forgotten to report to the resident police. Regulations required soldiers on home leave to report immediately upon arrival and receive a stamp; otherwise, their leave could not be properly closed when they returned.
 
-The resident police officer's dwelling stood at the boundary between East Village and West Village—placed there so both communities could reach it easily. Funded by the Civil Affairs Committee, it was a two-story building: residence and dormitory upstairs; office and temporary lockup downstairs. Under Ran Yao's policing plan, every village with more than a thousand inhabitants was assigned two resident officers. One would put down permanent roots; the other was rotated through as a newly trained officer.
+The resident police officer's dwelling stood at the boundary between East Village and West Village—placed there so both communities could reach it easily. Funded by the Civil Affairs Committee, it was a two-story building: residence and dormitory upstairs; office and temporary lockup downstairs. Under Ran Yao's policing plan, every village with more than a thousand inhabitants was assigned two resident officers. One would put down permanent roots; the other rotated through as a newly trained officer.
 
-Besides maintaining local order, the resident police directly adjudicated minor cases. Because enforcement required at least two officers, Ran Yao had ultimately mandated a minimum of two per standard village of a thousand or more. They were also responsible for gathering local intelligence, managing household registration, and overseeing transient population.
+Besides maintaining local order, the resident police directly adjudicated minor cases. Because enforcement required at least two officers, Ran Yao had ultimately mandated a minimum of two per standard village of a thousand or more. They were also responsible for gathering local intelligence, managing household registration, and overseeing the transient population.
 
 A soldier on home leave naturally fell under "transient population" management. Fu Fu hurried to what locals called the "Police Tower"—so named for its two stories.
 
@@ -36,11 +36,9 @@ Pushing through the door, he was surprised to find another elder inside—quite 
 
 Fu Fu saluted carefully, then presented his leave papers to the officer. Because he planned to stay more than three days, he had to register for a temporary residence permit.
 
-"What's the rush? Can't you see I'm speaking with the Councilor—"
+"What's the rush? Can't you see I'm speaking with the Councilor—" The black-uniformed officer, cap shoved back on his head, wiped sweat from his brow as he rebuked him.
 
-The black-uniformed officer, cap shoved back on his head, wiped sweat from his brow as he rebuked him.
-
-"Process him first; our business will take a while longer," the elder said, good-natured. Fu Fu couldn't help glancing at him—an elder in his early thirties, not as tall as some but equally robust, with one of those unremarkable faces that left little impression.
+"Process him first; our business will take a while longer," the elder said good-naturedly. Fu Fu couldn't help glancing at him—an elder in his early thirties, not as tall as some but equally robust, with one of those unremarkable faces that left little impression.
 
 Then Fu Fu noticed: the man wore a naval uniform with all branch and rank insignia removed, and he carried no saber. What was a Navy transmigrator officer doing all the way out in Meiyang Village?
 
@@ -66,13 +64,13 @@ The resident officer chimed in: "He's from the Fu Bu'er household…"
 
 "Yes, sir!"
 
-"I'm Xu Ke, from the Tribunal." Xu Ke's status on the Tribunal was technically "on loan"; he held no formal title. At Ma Jia's request he had been temporarily seconded to try the destruction-of-military-marriage case as presiding judge.
+"I'm Xu Ke, from the Tribunal." Xu Ke's status on the Tribunal was technically "on loan"; he held no formal title. At Ma Jia's request, he had been temporarily seconded to try the destruction-of-military-marriage case as presiding judge.
 
 Because this case marked the new legal system's first real entry into native life, it demanded careful handling—ideally striking a balance between legal authority and outcomes the natives could foresee. In the future, they could consider replacing the *Great Ming Code* with Lingao's own native-affairs law. Ma Jia had convened a full plenary of the Law Society. They debated legal theory, trial format, the applicable legal tradition, and sentencing criteria clause by clause, determined to give this case "historical significance."
 
-The new law had to embody the will of the ruling class—that is, the House of Elders. And the House's ultimate goal was to transform society; in other words, the purpose of the trial was not simple punishment but "reforming customs."
+The new law had to embody the will of the ruling class—that is, the House of Elders. And the House's ultimate goal was to transform society. In other words, the purpose of the trial was not simple punishment but "reforming customs."
 
-First, the consensus was that, on the question of jurisdiction, it was best to proceed through ordinary court channels rather than rashly convening a military tribunal. That would avoid both social backlash and political pitfalls; moreover, without a code of procedure, a military-court approach would lack credibility and legal foundation.
+First, the consensus was that on the question of jurisdiction, it was best to proceed through ordinary court channels rather than rashly convening a military tribunal. That would avoid both social backlash and political pitfalls; moreover, without a code of procedure, a military-court approach would lack credibility and legal foundation.
 
 The conference crystallized three principles:
 
@@ -110,7 +108,7 @@ Xu Ke nodded. "Speak normally—no need for 'reporting.'"
 
 "They had some. All died." Fu Fu said.
 
-"You see—a soldier who's been away for years knows more than you do!" Xu Ke turned a reproachful look on the resident officer. "How long have you been here? What exactly have you been doing?!"
+"You see—a soldier who's been away for years knows more than you do!" Xu Ke turned a reproachful look on the resident officer. "How long have you been here? What exactly have you been doing?"
 
 "Yes, yes, sir, I—I'm not from this village…" The officer was sweating profusely now. "I've only been here three months…"
 

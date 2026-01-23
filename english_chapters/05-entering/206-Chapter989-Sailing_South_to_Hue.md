@@ -1,14 +1,14 @@
 # Chapter 989 - Sailing South to Hue
 
-"Once Operation Engine officially starts, I can go to Japan." Ping Qiusheng thought this way. Regretfully abandoning his Japan trading delegation plan, he concentrated all his energy on preparing for the Southeast Asia expedition.
+"Once Operation Engine officially starts, I can go to Japan," Ping Qiusheng thought. Regretfully abandoning his Japan trading delegation plan, he concentrated all his energy on preparing for the Southeast Asia expedition.
 
-The main objectives of Ping Qiusheng's planned Southeast Asia expedition were the Indochinese Peninsula regions—present-day Vietnam, Cambodia, and Thailand, not involving current Malaysia, the Philippines, and Indonesia. This was because the Planning Commission's main purpose in supporting this expedition was to obtain grain. Additionally, the Spanish and Dutch had relatively strong colonial forces in the latter regions, and their territories intertwined. The Senate currently didn't intend to get entangled in such chaos.
+The main objectives of Ping Qiusheng's planned expedition were the Indochinese Peninsula regions—present-day Vietnam, Cambodia, and Thailand, not involving current Malaysia, the Philippines, and Indonesia. This was because the Planning Commission's main purpose in supporting this expedition was to obtain grain. Additionally, the Spanish and Dutch had relatively strong colonial forces in the latter regions, and their territories intertwined. The Senate currently didn't intend to get entangled in such chaos.
 
-For ships heading to Southeast Asia, Ping Qiusheng had originally hoped to get one of the 901s as his flagship—a warship belching black smoke majestically entering barbarian territory, mounting several cannons along the coastline to force their submission and tribute payments—how colonial that would be!
+For ships heading to Southeast Asia, Ping Qiusheng had originally hoped to get one of the 901s as his flagship—a warship belching black smoke majestically entering barbarian territory, mounting several cannons along the coastline to force their submission and tribute payments. How colonial that would be!
 
 But the imminent Operation Engine shattered his ambitions. Not only couldn't he get any of the 901s, but he basically couldn't obtain any of the larger, better sailing warships either.
 
-He could only select vessels from the Southeast Asia Company's fleet—in the end, what fell to him were two *guang chuan*. Each had 200 tons displacement, the common cargo/fishing dual-purpose vessels along the coast in this era. Their condition was the best of any two in the Southeast Asia Company's fleet. After inspection, Ping Qiusheng felt they could roughly meet the needs of the Southeast Asia expedition.
+He could only select vessels from the Southeast Asia Company's fleet—in the end, what fell to him were two *guang chuan*. Each had 200 tons displacement, the common cargo and fishing dual-purpose vessels along the coast in this era. Their condition was the best of any two in the Southeast Asia Company's fleet. After inspection, Ping Qiusheng felt they could roughly meet the needs of the expedition.
 
 The commander of these two ships heading to Southeast Asia was precisely a former pirate leader named He Congfu.
 
@@ -24,7 +24,7 @@ He Congfu had previously been to Siam and was relatively familiar with this voya
 
 But such a route was perfectly suited for the Southeast Asia trading delegation: their main purpose was to survey coastal conditions and conduct trade. A coastal route was exactly what they wanted.
 
-He Congfu wore the senior sailor's uniform—actually the Senate Navy officer's uniform, except all the insignia were for the merchant fleet. The sleeve insignia was embroidered with the mark of "Southeast Asia Company Licensed by Senate Decree." On his chest hung the newly issued binoculars, looking quite impressive.
+He Congfu wore the senior sailor's uniform—actually the Senate Navy officer's uniform, except all the insignia were for the merchant fleet. The sleeve insignia was embroidered with the mark of "Southeast Asia Company Licensed by Senate Decree." On his chest hung newly issued binoculars, making him look quite impressive.
 
 Flying from the masts were the Senate's Morning Star flag and the Southeast Asia Company's company flag: a miniature Morning Star flag in the upper left corner, with the remainder consisting of nine alternating red and white stripes. Informally called the "Nine-Dash Flag."
 
@@ -34,7 +34,7 @@ Quark had never figured out what the newly appeared Southeast Asia Company's "Ni
 
 The East India Company's red and white stripes were the colors of the St. George's Flag. What meaning could the Australians have in using such a color scheme? Quark developed a strong interest in this. But neither He Fanghui nor Ping Qiusheng could explain the reason.
 
-The actual reason was: when Dr. Zhong originally designed the flag for the Southeast Asia Company, he had directly copied the layout and concept of the British East India Company's flag.
+The actual reason was simple: when Dr. Zhong originally designed the flag for the Southeast Asia Company, he had directly copied the layout and concept of the British East India Company's flag.
 
 In Dr. Zhong Lishi's view, the British East India Company was a very successful enterprise. Though it was still weak in this timeline, ultimately the British had achieved far more than the Dutch. Copying such an enterprise's flag was very "auspicious."
 
@@ -48,17 +48,19 @@ The generous profits allowed Quark to quickly raise sufficient capital. Now Quar
 
 During his days staying in Sanya, he had learned that the Australian trading delegation was heading south to Siam. If they were going to Siam, they would definitely pass through Cochinchina. As long as he followed the Australian fleet safely past Vietnam's coastline, he wouldn't have much to worry about afterward. With this thought, he immediately conveyed his idea to He Fanghui, expressing willingness to serve as the Australian fleet's pilot and local guide. The Australians gladly agreed. So Quark immediately turned over command of his fleet to Captain Higgins while he himself boarded the Southeast Asia Company's large ship—the flagship where Ping Qiusheng was located.
 
+---
+
 The fleet set sail south with the monsoon winds and quickly reached the waters off Hue. At this time, the Later Lê dynasty of Vietnam had already been split into Northern and Southern courts by the powerful ministers Zheng and Nguyen.
 
-In 1620, the powerful minister Nguyễn Phúc Nguyên, entrenched in the south, formally refused to remit taxes to the court in Hanoi, and then rejected edicts demanding the Nguyen submit to the court's authority. In 1623, Trịnh Tùng died, and his son Trịnh Tráng succeeded him. Trịnh Tráng again formally demanded the Nguyen's submission, and Nguyễn Phúc Nguyên again refused. Open war between the Trinh and Nguyen finally broke out in 1627.
+In 1620, the powerful minister Nguyễn Phúc Nguyên, entrenched in the south, formally refused to remit taxes to the court in Hanoi, and subsequently rejected edicts demanding the Nguyen submit to the court's authority. In 1623, Trịnh Tùng died, and his son Trịnh Tráng succeeded him. Trịnh Tráng again formally demanded the Nguyen's submission, and Nguyễn Phúc Nguyên again refused. Open war between the Trinh and Nguyen finally broke out in 1627.
 
 After four consecutive months of fighting without a decisive outcome, the entire Later Lê Vietnam was divided into northern and southern halves. The Trinh controlled most of the north while the Nguyen held most of the south. The boundary between them lay on the Gianh River in Quảng Bình Province—this border was very close to the 17th parallel that would later divide North and South Vietnam.
 
 Compared to the Trinh ruling much more densely populated territory, the Nguyen also had some advantages. First, they were in a defensive position. Second, the Nguyen benefited from contact with Europeans, especially the Portuguese, enabling them to purchase more advanced European military equipment and employ European military experts in city defense. Third, geography favored them: large-scale organized armies were only suited for plains, which were exceedingly rare in Vietnam—in Vietnam, mountains practically squeezed into the sea.
 
-The southern Nguyen's main stronghold was at Hue. After first repelling the Trinh offensive, the Nguyen built two main lines of fortifications, running across the narrow strip of land between mountains and sea. The walls stood near Đồng Hới, north of Hue. Said to be European-style fortress complexes built under the guidance of Portuguese military engineers, combined with cannons and arquebuses to form a solid defensive system, they made it very difficult for the Trinh's great army to break through.
+The southern Nguyen's main stronghold was at Hue. After first repelling the Trinh offensive, the Nguyen built two main lines of fortifications running across the narrow strip of land between mountains and sea. The walls stood near Đồng Hới, north of Hue. Said to be European-style fortress complexes built under the guidance of Portuguese military engineers, combined with cannons and arquebuses to form a solid defensive system, they made it very difficult for the Trinh's great army to break through.
 
-To break through these walls, the Trinh had committed 100,000 soldiers, 500 war elephants, and 500 warships. The initial attack on the Nguyen wall defenses failed to succeed, and subsequent repeated offensives had continued for years. Even now, fighting continued before this "Great Wall." Countless Vietnamese peasants had been reduced to cannon fodder in this protracted war, dying by the thousands.
+To breach these walls, the Trinh had committed 100,000 soldiers, 500 war elephants, and 500 warships. The initial attack on the Nguyen wall defenses failed to succeed, and subsequent repeated offensives had continued for years. Even now, fighting continued before this "Great Wall." Countless Vietnamese peasants had been reduced to cannon fodder in this protracted war, dying by the thousands.
 
 For the Senate, this war had also brought extremely negative effects—the trading post established in Hai Duong had gradually lost its advantage in purchasing cheap grain. Rice and grain had been diverted to military use; peasants had been conscripted as soldiers, often never to return; fields lay fallow; and markets had become depressed.
 

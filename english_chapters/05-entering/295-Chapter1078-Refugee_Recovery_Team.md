@@ -1,79 +1,81 @@
 # Chapter 1078 - Refugee Recovery Team
 
-"I have already sent scout cavalry to search in the direction of Huang County," Zhu Mingxia said. "After the rebels captured Huang County yesterday, they are carrying out organized looting, burning, and killing within the county seat. Most of the villages and stockades near the city walls have been broken. It is estimated that a first wave of refugees has formed now. If we go out to recover them now, we will at most encounter scattered small groups of rebel roving cavalry, not the main force."
+"I've already sent scout cavalry to search toward Huang County," Zhu Mingxia said. "After capturing the city yesterday, the rebels are conducting organized looting, burning, and killing in the county seat. Most villages and stockades near the walls have been broken. A first wave of refugees has likely already formed. If we move out now to recover them, we'll encounter at most scattered small groups of roving rebel cavalry—not the main force."
 
-Lu Wenyuan was already not quite at ease: "But the large refugee group is very slow; I'm afraid they can't walk two or three kilometers an hour. The line is meant to be long too..."
+Lu Wenyuan remained uneasy. "But a large refugee group moves very slowly—perhaps two or three kilometers an hour. And the column will stretch long..."
 
-"It doesn't matter. As long as I maintain the order of the army, the recovery team will act as a whole. Once we encounter a large group of enemies, I will immediately close up the formation to resist. The Huang County seat is not far from here; you can come to reinforce at any time."
+"It doesn't matter. As long as I maintain military order, the recovery team can act as a cohesive whole. Should we encounter a large enemy force, I'll immediately close formation to resist. Huang County seat isn't far from here—you can reinforce at any time."
 
-Zhu Mingxia and Lu Wenyuan agreed on the contact method, then he jogged all the way to the drill ground, where the recovery team had already assembled according to his order.
+Zhu Mingxia and Lu Wenyuan agreed on communication protocols. Then he jogged all the way to the drill ground, where the recovery team had already assembled according to his orders.
 
-The recovery team was more like an armed caravan than an army. Zhu Mingxia had done a lot of work to carry out large-scale armed refugee recovery work in Shandong. Especially on how to cover the slow-moving and numerous refugees, he came up with several different plans and tried different troop organizations and equipment. Finally, a system was formed.
+The recovery team resembled an armed caravan more than a military unit. Zhu Mingxia had invested considerable effort in planning large-scale armed refugee recovery operations in Shandong—especially regarding how to protect slow-moving, numerous refugees. He had developed several different plans, experimented with various troop organizations and equipment configurations. Eventually, a system emerged.
 
-This system roughly borrowed the concept of the wagon train used by Eastern European armies in the 16th and 17th centuries. Starting from the Hussite Wars, Eastern European armies universally used wagon forts. Initially, wagons transporting baggage were just used as mobile fortified bastions. They only used wagons as protective shelters during defense and camping, and later gradually developed into wagon forts capable of moving while fighting. The armies of the Cossacks, Poland, and Russia became increasingly skilled in using this tactic in the process of fighting the Tatars. When attacked, the large wagon convoy used firearms and long spears on the wagons on the two wings of the army to counter high-mobility Tatar light cavalry, covering the movement of foot infantry, non-combatants, and baggage.
+This system drew roughly from the wagon-train concept employed by Eastern European armies in the sixteenth and seventeenth centuries. Since the Hussite Wars, Eastern European forces had universally adopted wagon forts. Initially, baggage wagons served simply as mobile fortified bastions—defensive shelters during encampment. Over time, these evolved into wagon forts capable of fighting while moving. The armies of the Cossacks, Poland, and Russia grew increasingly skilled in this tactic through their conflicts with the Tatars. When attacked, the large wagon convoy deployed firearms and long spears from vehicles on the army's flanks to counter high-mobility Tatar light cavalry, covering the movement of foot infantry, non-combatants, and baggage.
 
-This system was not usable everywhere; it could only be used effectively in the flat terrain of Central and Eastern Europe. Although the area of Huang County belonged to hilly terrain, there was a lot of flat land along the coast, and there were not many rivers, so using wagon forts could indeed play a certain role.
+The system was not universally applicable—it worked effectively only on the flat terrain of Central and Eastern Europe. Though Huang County's territory consisted of hilly ground, considerable flat land stretched along the coast, and rivers were few. Wagon forts could indeed prove useful here.
 
-However, Zhu Mingxia didn't have many big wagons—even if he did, he couldn't find enough oxen to pull them. So his wagon fort was composed of Purple Lightning handcarts, which was somewhat similar in purpose to the wagon fort created by Sun Yuanhua. However, Sun Yuanhua's wagon fort relied on an immature firearm system. Whether his light artillery or bird guns (*niaochong*), they all had the problems of slow loading, short range, and low accuracy—of course, the same problems existed in Europe, but the tragic firearm usage habits of the Great Ming army: firing as soon as they saw the enemy charge, then taking to their heels to flee—meant that the astonishing number of firearms possessed by Great Ming never effectively played their due role.
+Zhu Mingxia, however, lacked a proper supply of large wagons—and even if he possessed them, he could not find enough oxen to pull them. So his wagon fort was composed of Purple Lightning handcarts, somewhat similar in purpose to the wagon fort Sun Yuanhua had created. But Sun Yuanhua's version had relied on an immature firearms system. Whether his light artillery or bird guns, all suffered from slow loading, short range, and poor accuracy. Of course, Europe faced the same problems, but the tragic firearms habits of the Great Ming army—firing as soon as enemy charges began, then fleeing—meant that the astonishing quantity of firearms Great Ming possessed never effectively fulfilled their potential.
 
-Zhu Mingxia didn't have this problem. Not only did he have enough excellent firearms—much better than the British Brown Bess that beat the Eight Banners elite troops to the ground in 1840—but his army had also undergone strict training.
+Zhu Mingxia had no such problem. Not only did he command sufficient excellent firearms—far superior to the British Brown Bess that had devastated the Eight Banners elite in 1840—but his army had undergone rigorous training.
 
-Finally, he had a secret weapon: several "typewriters" removed from naval warships were temporarily installed on Gale-style two-wheeled handcarts. Once this thing opened fire, even if hundreds of Manchu Bayara charged together, they could be suppressed.
+Finally, he possessed a secret weapon: several "typewriters" removed from naval warships had been temporarily mounted on Gale-style two-wheeled handcarts. Once this weapon opened fire, even hundreds of Manchu Bayara charging together could be suppressed.
 
-The recovery team consisted of three main parts: the Guard Team, responsible for armed protection, composed of army soldiers from the Northbound Detachment; the Civil Affairs Team, all of whom could speak the local dialect—most of whom were refugees recently recovered. The work of civil affairs personnel was to comfort the refugees and maintain order in the refugee ranks continuously. Finally, the Transport Team. They carried some transport vehicles and livestock to transport the old, young, women, and children among the refugees to speed up the march of the entire team. Zhu Mingxia's instruction to them was not to load anything, mainly to load people: especially children and women.
+The recovery team comprised three main components. First, the Guard Team, responsible for armed protection, composed of Northbound Detachment army soldiers. Second, the Civil Affairs Team—all local-dialect speakers, most of them recently recovered refugees. Civil affairs personnel worked continuously to comfort refugees and maintain order within refugee ranks. Third, the Transport Team. They brought vehicles and livestock to transport the old, young, women, and children, accelerating the entire group's march. Zhu Mingxia's instruction to them was clear: load nothing—prioritize loading people, especially children and women.
 
-The Transport Team and the Civil Affairs Team were mainly composed of Qimu Island Village Braves. Everyone carried a standard machete, and some also had standard spears, capable of close combat when necessary. Although Lu Wenyuan felt that long spears were a bit in the way, Zhu Mingxia believed that long spears were very useful—firstly, long spears in formation could effectively deal with cavalry; secondly, long spears could serve as walking sticks, very useful when walking in the snow, and could be used to assemble stretchers when necessary.
+The Transport Team and Civil Affairs Team consisted primarily of Qimu Island Village Braves. Everyone carried a standard machete; some also bore standard spears, capable of close combat when necessary. Though Lu Wenyuan felt long spears were rather cumbersome, Zhu Mingxia believed them highly useful. First, spears in formation could effectively counter cavalry. Second, they served as walking sticks—invaluable when traversing snow—and could be assembled into stretchers when needed.
 
-In addition to soldiers, each recovery team member had to carry three portions of rations and drinking water to replenish refugees at any time—of course, bulk portable rations were transported by the vehicles and livestock of the Transport Team. To facilitate refugees eating while on the move, the rations carried by the recovery team were biscuits from the relief rations: this kind of biscuit was similar to a rice cracker, baked from a mixture of rice flour, sweet potato flour, salt, and sugar. The texture was crisp and loose. It was easy to digest and did not require drinking a lot of water when eaten—it was difficult to replenish safe drinking water for them in time during the march of a large group of refugees.
+Beyond weapons, each recovery team member carried three portions of rations and drinking water to replenish refugees on the march. Bulk portable rations, of course, traveled on the Transport Team's vehicles and livestock. To facilitate eating while walking, the rations consisted of biscuits from the relief supplies—similar to rice crackers, baked from a mixture of rice flour, sweet potato flour, salt, and sugar. The texture was crisp and loose, easy to digest, requiring little water when eaten. Providing safe drinking water to a large mass of refugees during march was extremely difficult.
 
-The recovery team had a radio station—carried by a Lingao-made military four-wheeled light carriage, keeping in touch with the base at all times. Due to its value, a cavalry squad was specially equipped to protect its safety.
+The recovery team carried a radio station, transported on a Lingao-made military four-wheeled light carriage, maintaining constant contact with the base. Given its value, a cavalry squad was specially assigned to protect it.
 
-Zhu Mingxia scrutinized the recovery team assembled on the drill ground—everyone was dressed neatly with complete cold-proof clothing. Although most refugees couldn't get enough clothing and relied entirely on fires to barely survive the winter, anyone selected into the Village Brave Team was issued cotton padded jackets, cotton trousers, cotton hats, and gloves.
+Zhu Mingxia scrutinized the recovery team assembled on the drill ground. Everyone was dressed neatly in complete cold-weather clothing. Though most refugees could not obtain adequate garments and survived barely through fires, anyone selected into the Village Brave Team received cotton padded jackets, cotton trousers, cotton hats, and gloves.
 
-He randomly checked some people's equipment to see if their puttees were tied securely. Soldiers of the Northbound Detachment had warm military boots to wear, but the village braves could only be satisfied with reed catkin straw sandals.
+He randomly inspected equipment, checking that puttees were securely tied. Northbound Detachment soldiers wore warm military boots, but village braves had to make do with reed catkin straw sandals.
 
-But this was considered not bad—how many refugees walked hundreds of *li* barefoot in the cold wind to reach Qimu Island?
+Even so, this was considered fortunate. How many refugees had walked hundreds of *li* barefoot through bitter cold to reach Qimu Island?
 
-The clothing condition was what he paid most attention to, especially the Northbound Detachment. Although Northerners were drawn from the whole army to enrich the Northbound Detachment, Southerners were still the majority. After entering winter, personnel loss due to frostbite was significant.
+Clothing conditions were his primary concern, especially for the Northbound Detachment. Though Northerners had been drawn from across the army to reinforce the unit, Southerners still predominated. Since winter's onset, frostbite had caused significant personnel losses.
 
-"Have the troops eaten breakfast?" Zhu Mingxia asked Huang Xiong who followed closely to inspect the troops—he served as a company commander in the Northbound Detachment. Because he was also from the Dengzhou military, the Guard Team selected his company as the backbone, and he served as the captain.
+"Have the troops eaten breakfast?" Zhu Mingxia asked Huang Xiong, who followed closely during the inspection. Huang Xiong served as a company commander in the Northbound Detachment. Because he too came from the former Dengzhou military, his company had been selected as the Guard Team's backbone, and he served as its captain.
 
-"Report to Head, we have eaten." Huang Xiong, wearing a gray military greatcoat, raised his hand in salute and said.
+"Report to Head—we have eaten!" Huang Xiong raised a hand in salute, wearing his gray military greatcoat.
 
-"How is the soldiers' condition?"
+"How is the men's condition?"
 
-"Report to Head: Very high!"
+"Report to Head—very high!"
 
 "Can we set off immediately?"
 
-"Report to Head: Anytime, anywhere!"
+"Report to Head—anytime, anywhere!"
 
-"Very good." Zhu Mingxia said a sentence. The soldiers had thoroughly lightened their load. Except for weapons, ammunition, and cold-proof clothing on their bodies, they only carried one day's ration and water. The military flag was left in the camp. According to instructions, they also did not carry identification documents or any papers. Zhu Mingxia had issued an order that all soldiers killed in battle and their weapons and gear must be recovered, and abandoning or burying them on the spot was not allowed.
+"Very good." The soldiers had thoroughly lightened their loads. Except for weapons, ammunition, and cold-weather clothing, they carried only one day's rations and water. The military flag remained in camp. Per instructions, they also carried no identification documents or papers. Zhu Mingxia had issued orders that all soldiers killed in action, together with their weapons and equipment, must be recovered—abandoning or burying them on the spot was forbidden.
 
-He checked for a while and didn't pick out any major problems. Just as he was inspecting, scout cavalry returning from outside brought new news: A group of about two or three thousand refugees was coming towards Qimu Island. There was no large rebel activity nearby.
+He continued inspecting for a while without finding any major problems. Just then, scout cavalry returning from outside brought fresh intelligence: a group of two to three thousand refugees was moving toward Qimu Island. No large rebel activity had been detected nearby.
 
-" The rebel main force is active around Huang County. A part is transporting looted materials and grain to Dengzhou," the scout reported. "They abducted a large number of women and young adults to go to Dengzhou. Making the young adults transport materials."
+"The rebel main force is operating around Huang County. Part of them are transporting looted materials and grain to Dengzhou," the scout reported. "They've abducted large numbers of women and young adults to go to Dengzhou—making the young adults carry materials."
 
-"Are there small groups of rebels active nearby?"
+"Are there small rebel groups active nearby?"
 
-"Report: No. Small groups of rebels are mostly active in several towns around Huang County. No one is coming to the seaside."
+"Report: No. Small groups are mostly active around several towns near Huang County. No one is coming toward the coast."
 
-"Your mission was completed very well. Go rest first." Zhu Mingxia ordered.
+"Your mission was completed very well. Go rest first," Zhu Mingxia ordered.
 
-"Troops prepare to set off!" Zhu Mingxia looked at his watch. "Set off in fifteen minutes!"
+"Troops—prepare to set off! Departure in fifteen minutes!"
 
-At 08:00, the armed recovery team consisting of more than four hundred people moved out of the Willow Palisade. The troops advanced in column. The cavalry company sent out three times the search cavalry ahead. In addition to being responsible for warning of enemies, they also had the task of discovering refugee groups in time—if it was a small group of refugees, the cavalry would lead them directly to the main force.
+---
 
-From Qimu Island to the Huang County seat, the straight-line distance was only over twenty kilometers. If people were well-fed and in good health, walking the whole distance on foot would take seven or eight hours. But considering the state of the refugees, it would take at least two days. Zhu Mingxia decided to risk advancing to a place about ten kilometers from the Huang County seat. At the same time, to facilitate reception, he planned to find a village at the midpoint of the entire journey as a temporary camp, leaving some personnel and grain as a place for reception and for refugees to stay overnight. With the current temperature, many refugees would die if they spent a night in the wild. He wanted to minimize the death rate of refugees as much as possible.
+At 08:00, the armed recovery team—more than four hundred strong—moved out through the Willow Palisade. The troops advanced in column formation. The cavalry company deployed three times the usual number of search riders ahead. Beyond providing early warning of enemies, they were also tasked with discovering refugee groups in time. If they encountered small groups of refugees, the cavalry would lead them directly to the main force.
 
-At the same time, this camp could also take in scattered refugees on the road, without having to take them on a long march.
+From Qimu Island to Huang County seat, the straight-line distance was just over twenty kilometers. Well-fed people in good health could walk it in seven or eight hours. But considering the refugees' condition, the journey would require at least two days. Zhu Mingxia decided to risk advancing to within approximately ten kilometers of the Huang County seat. To facilitate reception, he planned to establish a village at the journey's midpoint as a temporary camp. Personnel and grain would be left there as a reception point where refugees could rest overnight. At current temperatures, a night in the open would kill many refugees. He wanted to minimize the death rate as much as possible.
 
-The troops marched on the land covered with ice and snow. Although the weather was clear, the severe freezing still brought great difficulties to the march. Especially the fully loaded handcarts, which had to be pulled by several village braves with ropes in front of each cart. Zhu Mingxia ordered the organization recovery team to follow at the very end of the column—he felt the Northbound Detachment wasn't a big problem, but it was hard to say whether large-scale straggling would occur in the newly established Advance Column.
+This camp would also receive scattered refugees along the road without requiring them to undertake a long march.
 
-The land of Huang County outside Qimu Island was bleak. Walking for more than ten *li*, not a sound of chickens or dogs was heard. The villages passed were dilapidated, without a single living person. Dead bodies could be seen from time to time on the road and in the wild, mostly dead from freezing and starvation.
+The troops moved across ice- and snow-covered land. Though the weather was clear, the severe cold created major difficulties. The heavily loaded handcarts required several village braves pulling ropes to advance each one. Zhu Mingxia ordered the organization recovery team to follow at the very rear of the column. He felt the Northbound Detachment posed no problem, but large-scale straggling in the newly formed Advance Column remained a real concern.
 
-Zhu Mingxia did not ride a horse but walked in the middle of the team. He carried an SKS-D equipped with a 30-round magazine. Compared to many Senators who disliked semi-automatics, he had feelings for this weapon.
+The land of Huang County outside Qimu Island stretched bleak and lifeless. After more than ten *li*, not a sound of chicken or dog could be heard. The villages they passed were dilapidated, completely devoid of living souls. Dead bodies appeared from time to time on roads and in open fields—mostly frozen or starved to death.
 
-The cold wind blowing on his face felt stinging, but Zhu Mingxia didn't feel cold at all. He stopped from time to time to check the map and compass, ensuring that the march route did not deviate from the route he chose.
+Zhu Mingxia did not ride but walked in the middle of the column. He carried an SKS-D equipped with a 30-round magazine. Unlike many Senators who disdained semi-automatics, he felt genuine affection for this weapon.
+
+The cold wind stung his face, but Zhu Mingxia did not feel cold at all. He stopped periodically to check map and compass, ensuring their route did not deviate from the path he had chosen.
 
 (End of Chapter)

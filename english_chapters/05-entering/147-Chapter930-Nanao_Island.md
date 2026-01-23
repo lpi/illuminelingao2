@@ -20,6 +20,8 @@ During this consolidation operation, the Navy had dispatched two 8154-class crui
 
 But Liu Xiang made no move—there wasn't even a single instance of direct contact with the Navy. Combined with intelligence that his main force wasn't in the Shanwei-Chaozhou area, this seemed to confirm the Intelligence Bureau's assessment.
 
+---
+
 "Fifty push-ups, everyone! Get moving!" A burly man in camouflage with an almost square torso bellowed. He wore a Lingao-made boonie hat; his thick neck made him look even more powerfully built. A dozen or so soldiers, also in camouflage with bowl-cut hair, were rapidly doing push-ups on the pitching deck.
 
 "Move it! You're all moving like women!" The man roaring at the soldiers like a cannibal was Qian Shuixie, squad leader of the Special Reconnaissance Command's Sanya Detachment. The Sanya Detachment had been the first to conduct marine training and had the best results, so it had been selected to participate in Operation Engine. A portion of the detachment was first sent to join the *Haitian*'s northern reconnaissance mission.
@@ -70,7 +72,7 @@ Judging from their response, the Ming garrison was clearly highly vigilant towar
 
 "Not yet," Li Ziping said. "It looks like the Ming garrison has no intention of fighting us—they're just guarding against any designs we might have."
 
-"If we could capture Nan'ao Island, it would make an excellent transit base," Li Ziping said.
+"If we could capture Nan'ao Island, it would make an excellent transit base," Li Ziping observed.
 
 Liu Zheng was also quite interested in the game of soldiering. Early in the voyage he'd been seasick—he'd never been on such a small ship. Now that he'd adapted, he stayed on deck, enthusiastically observing the environment around Nan'ao Island, occasionally guiding the naturalized student surveyors in their work.
 
@@ -78,4 +80,4 @@ Liu Zheng was also quite interested in the game of soldiering. Early in the voya
 
 Besides serving as a transit station, the island alone had twenty to thirty thousand military and civilian residents—a population density much higher than Hainan Island's. It would be an excellent source of labor and military recruits. The local Hakka people were renowned for their hard work and endurance; historically, the Hakka water-braves of the Chaozhou-Shantou area were famous for their fierce fighting. As long as regional barriers could be effectively broken down, they'd be valuable human resources under Senate rule.
 
-"If only we could develop human resources in a rolling fashion," Li Ziping thought. If they had enough troops, they could directly occupy Nan'ao Island and destroy Chen Ting's forces. Then they could recruit enough soldiers from the island's population to roll on to the next island for development. In times of chaos, this was a method commonly used by warlords and petty kings: completely destroy towns and villages, forcing everyone to follow them. Before long, they'd snowball into a massive army through conscription.
+*If only we could develop human resources in a rolling fashion*, Li Ziping thought. If they had enough troops, they could directly occupy Nan'ao Island and destroy Chen Ting's forces. Then they could recruit enough soldiers from the island's population to roll on to the next island for development. In times of chaos, this was a method commonly used by warlords and petty kings: completely destroy towns and villages, forcing everyone to follow them. Before long, they'd snowball into a massive army through conscription.

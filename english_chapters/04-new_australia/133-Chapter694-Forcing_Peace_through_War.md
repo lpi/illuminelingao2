@@ -1,81 +1,83 @@
 # Chapter 694 - Forcing Peace through War
 
-Finally, at the end of the letter, he wrote that if peace talks were agreed to, a mission would be dispatched from Lingao in a few days. As for the negotiation venue, it could be set in Macao. If Guangdong had a response, they could also entrust the Jesuits in Macao to forward the letter.
+Finally, at the letter's conclusion, Lü Yizhong wrote that if peace talks were agreed to, a mission would depart from Lingao within days. As for the negotiation venue, it could be set in Macao. Should Guangdong wish to respond, the Jesuits there could serve as intermediaries.
 
-"In this humble official's opinion, currently our only option is to negotiate pacification." Li Xijue said cautiously.
+"In this humble official's opinion, negotiation and pacification are currently our only option," Li Xijue said cautiously.
 
-Unable to suppress, the only choice was to pay indemnity. Wang Zunde's heart was shrouded in pain. He knew very well that the task of managing this pacification would likely not fall to him. Moreover, the Emperor might not necessarily permit him to offer pacification.
+Unable to suppress the revolt, the only choice was to pay an indemnity. Wang Zunde's heart was shrouded in pain. He knew full well that the task of managing this pacification would likely not fall to him. Moreover, the Emperor might not permit a peace offering.
 
-Neither able to suppress nor pacify. He couldn't even speak of any viable countermeasures. This feeling of powerlessness enveloped him, keeping him silent for a long time. He only started when Li Xijue quietly reminded him that he should submit a memorial to the Emperor.
+Neither able to suppress nor pacify—he could not even speak of viable countermeasures. This feeling of powerlessness enveloped him, and he remained silent for a long time. He started only when Li Xijue quietly reminded him that a memorial to the Emperor was required.
 
-Such a massive defeat could not be concealed no matter what. Once others submitted their memorials, he would lose the initiative even more. Li Xijue could only remind his patron that this matter should be handled sooner rather than later; delay was impermissible.
+Such a massive defeat could not be concealed, no matter what. Once others submitted their memorials, he would lose the initiative entirely. Li Xijue could only advise his patron that this matter demanded immediate action; delay was impermissible.
 
-Wang Zunde nodded. Although he couldn't think of how to write this memorial, what Li Xijue said was entirely correct.
+Wang Zunde nodded. Though he could not fathom how to write such a memorial, Li Xijue's counsel was entirely correct.
 
-A sense of mental exhaustion clouded his mind. He simply nodded and said: "as you say, sir." saying this, he waved his hand weakly for Li Xijue to leave.
+A sense of mental exhaustion clouded his mind. He simply nodded and said, "As you say, sir," then waved weakly for Li Xijue to leave.
 
-"Secretary Lü's letter—"
+"About Secretary Lü's letter—"
 
-"Discuss it another day."
+"We shall discuss it another day."
 
-After coming out, Li Xijue gathered the other staff members for a discussion. Everyone agreed to draft the memorial first and submit it to the court as soon as possible, to at least leave themselves a way out. Immediately, a staff member specializing in drafting memorials was arranged to work overnight. Meanwhile, people were sent to Guangzhou city to discuss aftermath arrangements with Governor Li Fengjie and others.
+After departing, Li Xijue gathered the other staff members for consultation. All agreed the memorial must be drafted first and submitted to the court as soon as possible—to leave themselves at least some room to maneuver. A staff member who specialized in drafting memorials was assigned immediately to work through the night. Meanwhile, messengers were dispatched to Guangzhou city to discuss aftermath arrangements with Governor Li Fengjie and others.
 
-As for peace negotiations, Li Xijue didn't have the audacity to make decisions on his own, and Lü Yizhong's letter couldn't be leaked. He only secretly sent someone to Macao to see if the Australians would go there for further discussions.
+As for peace negotiations, Li Xijue lacked the authority to make such decisions independently, and Lü Yizhong's letter could not be leaked. He merely sent someone secretly to Macao to see if the Australians would meet there for further discussions.
 
-The most difficult issue was He Rubin's remnant forces currently trapped in Haikou: several thousand troops surrounded in the Haikou and Qiongshan area, with no food inside and no reinforcements outside, their communication completely cut off. Under the siege of the bald bandit army, it probably wouldn't be long before the entire army was annihilated.
+The most pressing issue was He Rubin's remnant forces, currently trapped in Haikou: several thousand troops encircled in the Haikou and Qiongshan area, with no provisions inside and no reinforcements coming—their communications completely severed. Under siege by the bald bandit army, it was likely only a matter of time before the entire force was annihilated.
 
-The number of commissioned military officers killed in Chengmai was already shocking. If He Rubin were also killed or captured, it would shake the court and the public even more than the government army's great defeat at Chengmai—comparable to the defeat and death of Lu Qin in the sixth year of the Tianqi reign. That would truly shake Guangdong and Guangxi.
+The number of commissioned officers killed at Chengmai was already shocking. If He Rubin were also killed or captured, the impact would shake court and public even more than the army's catastrophic defeat—comparable to the defeat and death of Lu Qin in the sixth year of the Tianqi reign. That would truly convulse all of Guangdong and Guangxi.
 
-Li Xijue pondered during the staff meeting: "If only we could safely withdraw Commander He and the others."
+Li Xijue pondered during the staff meeting: "If only we could safely extract Commander He and the others."
 
-"With the strait blockaded and our naval forces at a disadvantage, how can they cross?" A staff member shook his head repeatedly.
+"With the strait blockaded and our navy outmatched, how can they possibly cross?" A staff member shook his head repeatedly.
 
-The bald bandit navy had demonstrated their superiority in small-scale skirmishes blockading the Qiongzhou Strait; the Guangdong navy was powerless to contend with them.
+The bald bandit navy had demonstrated its superiority in small-scale engagements while blockading the Qiongzhou Strait; the Guangdong navy was powerless to contend with them.
 
-"We must first send spies to sneak into Qiongzhou and make contact with Commander He. After all, we need news on how many troops remain and the state of their morale and supplies."
+"We must first send spies to infiltrate Qiongzhou and establish contact with Commander He. At minimum, we need intelligence on troop numbers, morale, and supply status."
 
-"What good does knowing do? If we don't quickly pacify the bald bandits, I fear Commander He's troops..."
+"What good does that knowledge do? Unless we quickly pacify the bald bandits, I fear Commander He's forces..."
 
-"Should we report to the Governor-General and have him quickly summon Regional Commander Chen to Zhaoqing for consultation, to see if more troops can be gathered to rescue Commander He?"
+"Should we report to the Governor-General and have him summon Regional Commander Chen to Zhaoqing for consultation? Perhaps more troops can be gathered for a rescue operation?"
 
-Chen Ting was the Guangdong Vice Regional Commander, stationed in Nan'ao. Although nominally a "Vice Regional Commander," he was not actually under He Rubin's command. He was a high-ranking military officer independently guarding a region.
+Chen Ting was the Guangdong Vice Regional Commander, stationed at Nan'ao. Though nominally a "Vice Regional Commander," he was not actually subordinate to He Rubin—he was a high-ranking military officer independently guarding his own region.
 
-"He has so few troops, what use would they be?" Li Xijue held no hope for any military solution to the stalemate—since twenty thousand government troops failed to take Lingao and suffered a devastating defeat, a mere few thousand would be even less effective.
+"He has so few troops. What use would they be?" Li Xijue held no hope for any military solution. Since twenty thousand government soldiers had failed to take Lingao and suffered devastating defeat, a mere few thousand would fare no better.
 
-Silence filled the heated pavilion. The staff and adjutants of the Governor-General's yamen looked at each other. After thinking it over, besides "pacification," there was really no other plan to implement.
+Silence filled the heated pavilion. The staff and adjutants of the Governor-General's yamen exchanged glances. After exhaustive deliberation, they could devise no plan beyond "pacification."
 
-In the operations room of the Navy Command Building at Bopu, standing before a wall hung with a huge chart of Guangdong and Hainan, Chief of Naval Operations Chen Haiyang was convening a staff meeting.
+---
 
-Participating in the meeting were the Navy's staff team and several transmigrator officers. Two non-naval officer transmigrators also attended as non-voting delegates; one was Naval Advisor Wen Desi. As an authority on Age of Sail navies and shipbuilding, his voice carried great weight. The other was Xu Ke, who worked at the Intelligence Bureau. This person's current title was Naval Intelligence Staff Officer, specifically responsible for collecting and organizing naval military intelligence. However, according to Xu Ke, he was a "do-anything handyman" at the External Intelligence Bureau.
+In the operations room of the Navy Command Building at Bopu, Chief of Naval Operations Chen Haiyang convened a staff meeting before a wall-mounted chart of Guangdong and Hainan.
 
-This unprofessional naval staff team highlighted the Navy's predicament of professionalization. Transmigrators who had served in the navy were fewer than those in the army to begin with, and there were absolutely none who had been staff officers. This meant most staff work fell on the shoulders of the two highest naval authority heads: the People's Commissar of the Navy and the Chief of Naval Operations, both of whom came from regular naval officer backgrounds. As for Li Di, the naval officer who couldn't go to sea, he had been acting as Fortress Commander and Harbor Master. Now Chen Haiyang simply appointed him Chief of Staff to learn staff business.
+Attending were the Navy's staff team and several transmigrator officers. Two non-naval transmigrators also sat in as observers. One was Naval Advisor Wen Desi—as an authority on Age of Sail navies and shipbuilding, his opinions carried substantial weight. The other was Xu Ke from the Intelligence Bureau, currently holding the title of Naval Intelligence Staff Officer, specifically responsible for collecting and organizing naval military intelligence. According to Xu Ke himself, however, he was merely a "do-anything handyman" at the External Intelligence Bureau.
 
-Of course, Li Di's academic performance in staff business wasn't great and was still at a beginner's failing level—an amateur naval officer who knew little about basic naval operations had too many lessons to make up to become a professional staff officer.
+This somewhat unprofessional staff team highlighted the Navy's struggles with professionalization. Transmigrators with naval service were even scarcer than those with army experience, and absolutely none had served as staff officers. This meant most staff work fell upon the shoulders of the two highest naval authorities: the People's Commissar of the Navy and the Chief of Naval Operations, both of whom came from regular naval officer backgrounds. As for Li Di—the naval officer who could no longer go to sea—he had been serving as Fortress Commander and Harbor Master. Now Chen Haiyang had simply appointed him Chief of Staff to learn the trade.
 
-The Navy had already undertaken the mission of blockading the Qiongzhou Strait. Strictly speaking, this couldn't be counted as blockading the strait, because the Navy actually only blockaded government-controlled ports in Qiongshan County like Shenying Harbor, to prevent the government remnants from receiving reinforcements from the mainland. Other ships entering or leaving the strait were ignored.
+Li Di's academic performance in staff work, it must be said, remained at the beginner's failing level—an amateur naval officer with little understanding of basic naval operations had far too many lessons to make up before becoming a professional staff officer.
 
-Any vessels entering or leaving these ports were seized and escorted to Manyan for processing. All cargo ships attempting to ship goods in or out of Qiongshan ports were confiscated. If it was confirmed to be a civilian ship commandeered by the government, the owner was allowed to redeem the vessel at a low price.
+The Navy had already undertaken the mission of blockading the Qiongzhou Strait. Strictly speaking, this was not a true blockade of the strait—the Navy actually only sealed off government-controlled ports in Qiongshan County, such as Shenying Harbor, to prevent the government remnants from receiving reinforcements. Other vessels transiting the strait were ignored.
 
-This blockade was devastating to the material circulation of Qiongshan. True, the Fubogun didn't blockade ports in Wenchang and other places still in government hands, but ports in other prefectures and counties were of no help to Qiongshan's own transport—in Hainan's prefectures and counties, bulk cargo transport relied almost entirely on coastal shipping. Given the terrible state of the post roads, long-distance land transport of goods was virtually impossible.
+Any ship entering or leaving these ports was seized and escorted to Manyan for processing. All cargo vessels attempting to move goods through Qiongshan ports were confiscated. If confirmed to be a civilian ship commandeered by the government, owners could redeem their vessels at a reduced price.
 
-Seeing that the blockading bald bandit warships were mostly small and medium-sized vessels and not numerous, Tang Yunwen attempted several times to break the blockade at sea. The result was a crushing defeat every time—the Navy's ships were incomparable to the Ming navy's medieval level in both equipment and training standards. Finally, the naval ships completely retreated into the Baisha Naval Camp and ceased sorting out.
+This blockade proved devastating to Qiongshan's material circulation. True, the Fubogun did not blockade ports in Wenchang and other areas still under government control, but those ports were of no help to Qiongshan—bulk cargo transport across Hainan's prefectures and counties relied almost entirely on coastal shipping. Given the miserable state of the post roads, long-distance overland transport was virtually impossible.
 
-In this way, Qiongshan was effectively under siege. Although Qiongshan itself didn't lack stored grain, and the summer grain harvest would soon come to market, this despair of losing contact with the outside world caused the morale of the government troops trapped in Qiongshan to plummet further.
+Observing that the blockading bald bandit warships were mostly small and medium-sized vessels—and not numerous—Tang Yunwen had attempted several times to break the blockade at sea. Each effort ended in crushing defeat. The Navy's ships were incomparable to the Ming navy's medieval-level forces in both equipment and training. Finally, the naval vessels retreated entirely into Baisha Naval Camp and ceased all sorties.
 
-The preliminary objective of the maritime blockade had been achieved. The Executive Committee believed the state of war could not continue like this and must be ended as soon as possible—the war's impact on the economy was too great, especially the stagnation of foreign trade. Originally, large amounts of materials, manpower, and money could be obtained from the Guangzhou Station direction every month. Now, apart from a small amount of population and materials still arriving from Foshan, Leizhou, and other places, this channel was basically cut off.
+Thus, Qiongshan found itself effectively under siege. Though the city itself did not lack stored grain, and the summer harvest would soon come to market, the despair of complete isolation from the outside world sent morale among the trapped government troops plummeting further.
 
-The loss was not only the transport channels but also the commercial network. Before the situation became clear, commercial partners on the mainland were too terrified to continue distributing "Australian goods." As a result, exporting goods to Lingao also became a business with potentially high risks, becoming expensive.
+The maritime blockade had achieved its preliminary objective. But the Executive Committee believed the state of war could not continue indefinitely and must be concluded as swiftly as possible—the economic impact was too severe. Foreign trade had stagnated. Previously, substantial quantities of materials, labor, and capital flowed in monthly from the Guangzhou Station network. Now, apart from small amounts of population and materials still arriving from Foshan, Leizhou, and other locations, this channel was essentially cut off.
 
-Originally, the Executive Committee planned to wait for Xiong Wencan to come for pacification, and for both sides to hold peace talks. However, it seemed it would still be a stage before Old Xiong could come to serve as Governor-General of Guangdong and Guangxi—according to historical progression, he wouldn't arrive to take up the post of Governor-General of Guangdong and Guangxi and Governor of Guangdong until the fifth year of the Chongzhen reign. The transmigrators couldn't wait. They decided to launch "peace work" as soon as possible to end the state of war between the two sides—at the very least, to restore the circulation of goods.
+The losses extended beyond transport to the commercial network itself. Until the situation clarified, mainland trading partners were too terrified to continue distributing "Australian goods." As a result, exporting goods to Lingao had also become a potentially high-risk enterprise—and therefore expensive.
 
-Although many transmigrators doubted how Wang Zunde or Li Fengjie planned to deceive their superiors to cover up this great rout and then sue for peace, the Executive Committee believed that was their business and unrelated to the Yuan Laoyuan—provided they had the willingness to sue for peace.
+Originally, the Executive Committee had planned to wait for Xiong Wencan to arrive and initiate pacification, with both sides then holding peace talks. However, it appeared Old Xiong's appointment remained some way off—according to historical progression, he would not assume the post of Governor-General of Guangdong and Guangxi until the fifth year of the Chongzhen reign. The transmigrators could not afford to wait. They resolved to launch "peace work" as soon as possible to end the state of war between both sides—or at minimum, restore the circulation of goods.
 
-The Executive Committee had held a secret meeting regarding the development of the post-war situation. They invited about thirty transmigrators to discuss and predict how the situation would develop. The transmigrators believed the possibility of Guangdong officialdom fighting again was extremely small, but they had to guard against the other side potentially adopting the routine of "neither fighting nor making peace, neither surrendering nor leaving."
+Though many transmigrators doubted how Wang Zunde or Li Fengjie planned to deceive their superiors to conceal this catastrophic rout while simultaneously suing for peace, the Executive Committee considered that their business—unrelated to the Yuan Laoyuan—provided they possessed the willingness to negotiate.
 
-"During the Opium War, after realizing military means couldn't fight the British at all, Qing local officials dared not sue for peace privately, nor were they willing to throw their lives away in battle. So they adopted such turtle tactics," Yu Eishui warned at the meeting. "If the Guangdong government adopts such methods, the threat to us would largely be the greatest."
+The Executive Committee had held a secret meeting regarding post-war developments. Approximately thirty transmigrators gathered to discuss and predict how the situation might evolve. The consensus held that Guangdong officialdom launching another attack was extremely unlikely—but they needed to guard against the other side potentially adopting a stance of "neither fighting nor making peace, neither surrendering nor leaving."
 
-In this way, the transmigrator group would have no other method but to follow the British example of constantly expanding the scale of war until forcing the Emperor himself to make a decision to sue for peace. However, the transmigrator group's war potential and war machine could not be mentioned in the same breath as the British in 1840. The last straw that broke Daoguang's resistance—bringing troops to the walls of Nanjing and cutting off grain transport—required long-range projection capabilities that the Navy could not achieve.
+"During the Opium War, after realizing military force could not contend with the British at all, Qing local officials dared not sue for peace privately, nor were they willing to throw away their lives in battle," Yu Eishui warned at the meeting. "So they adopted such turtle tactics. If the Guangdong government employs similar methods, the threat to us would be considerable."
 
-"Additionally, we must consider that Qiongzhou itself is too remote and not a critical place on the Ming map. Its fall for five or six years isn't particularly critical to the Ming regime, which is already putting out fires on all sides. They can completely afford to leave it be for now. For us, this means falling into a long-term state of war—even without armed conflict."
+Under such circumstances, the transmigrator group would have no option but to follow the British example: continuously expanding the scale of war until forcing the Emperor himself to decide on peace. However, the transmigrator group's war potential and war machine could not be mentioned in the same breath as Britain in 1840. The final straw that broke Daoguang's resistance—bringing troops to Nanjing's walls and severing the grain transport—required long-range power projection capabilities the Navy simply did not possess.
 
-Therefore, the keynote of the meeting was to take advantage of the chaos in Guangdong officialdom to quickly spread the flames of war to the foot of Guangzhou, the richest city in South China, forcing Guangdong officialdom to sue for peace before an even worse situation occurred—since Qiongzhou Prefecture was just a borderland, invading the Pearl River Delta directly should be able to shock the officials everywhere in Guangdong. At the very least, Li Fengjie would definitely be unable to sit still. As long as he couldn't sit still, he would have to sue for peace.
+"Additionally, we must consider that Qiongzhou itself is too remote—not a critical location on the Ming map. Its loss for five or six years would not be particularly devastating to a Ming regime already putting out fires on all sides. They can afford to leave it alone for now. For us, this means being trapped in a prolonged state of war—even without active armed conflict."
+
+Therefore, the meeting's keynote was to exploit the chaos in Guangdong officialdom and spread the flames of war directly to the foot of Guangzhou, the richest city in South China, forcing the officials to sue for peace before the situation deteriorated further. Since Qiongzhou Prefecture was merely a borderland, invading the Pearl River Delta should sufficiently shock officials throughout Guangdong. At minimum, Li Fengjie would be unable to sit still. And once he could not sit still, he would have no choice but to negotiate.

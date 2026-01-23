@@ -1,125 +1,139 @@
 # Chapter 571 - The Daoist Arrives
 
-Subsequently, Xi Yazhou announced the implementation of "Decimation"—collective punishment for the labor teams that had participated in the riot. No one except the Elders knew what this meant, but soon the term struck terror into hearts. The three labor squadrons that had participated in the riot were all driven to the center and formed into ranks. Then counting from one to ten, every tenth person was pulled out and hanged.
+Xi Yazhou announced the implementation of "Decimation"—collective punishment for the labor teams that had participated in the riot. None save the Elders knew what this ancient term meant, but they would learn soon enough. Terror would teach them.
 
-To the sound of military drums and the battalion's military law officer impassively counting "One, two, three, four...," one person after another was dragged from the ranks and hauled to the gallows to be fitted with a noose. Some of those dragged out to be hanged were stupefied; some struggled desperately; some glared with blood-red eyes wanting to shout, only to have a soldier's rope already around their neck, silencing them. The military drums beat neither fast nor slow, only becoming a rapid rain of beats the instant someone's neck was fitted with a noose about to be raised. And when his life faded, the drums would suddenly pound a few heavy beats, then fall silent for a moment before resuming their unhurried rhythm. The watching laborers were scared out of their wits; some simply collapsed on the spot.
+The three labor squadrons implicated in the uprising were herded to the center of the compound and formed into ranks. Then the counting began: one to ten, one to ten, one to ten. Every tenth man was dragged from the line and hanged.
 
-When the drums finally stopped, twenty-seven more had been hanged. It was then announced that the bodies on the gallows were not to be cut down but left to rot, to be pecked by birds and gnawed by insects until they became bare bones to be cast into the sea.
+Military drums beat their unhurried cadence as the battalion's law officer counted aloud with mechanical indifference. "One, two, three, four..." One after another, condemned men were hauled toward the gallows. Some went slack with shock, their minds unable to process their fate. Others thrashed and fought, screaming protests that dissolved into gurgles as ropes cinched tight around their throats. A few stood rigid with bloodshot eyes, curses dying on their lips as the noose silenced them forever.
 
-Those laborers not executed were all formed into a "Punishment Squad," assigned exclusively to the most grueling, exhausting, and dangerous work. Their ultimate fate would be determined by the Political Security General Administration.
+The drums maintained their deliberate tempo until the moment a rope went taut and a body rose—then they erupted into a thunderous roll. When the condemned man's struggles finally ceased, the drums crashed three heavy beats and fell silent. A heartbeat later, the measured rhythm resumed, and the counting continued.
 
-For the native staff who had died in the disturbance, the Sanya Military Committee lavished praise. Their ashes were solemnly collected and interred, and telegrams were sent to Lingao requesting survivor benefits.
+The watching laborers watched in paralyzed horror. Some collapsed where they stood.
 
-Killing could only temporarily control the situation. To ensure productivity, antimalarial drugs had to be distributed for prevention to the recovered and still-healthy workers. Hippo personally returned to Lingao and presented the Health Department with a request for more compound antimalarial tablets. Shi Nioren didn't dare make this decision on his own—antimalarial drugs were controlled substances. Finally, Planning Council Director Wu De agreed that the Health Department could use stockpiled medications as needed.
+When the drums finally stopped, twenty-seven fresh corpses swung from the gallows. An announcement followed: the bodies would not be cut down. They would hang until they rotted, until birds stripped the flesh and insects picked the bones clean. Only then would the remains be cast into the sea.
 
-"Even if we exhaust all our drug reserves, we must first stabilize Sanya," Wu De said. "If Sanya fails, the coal-iron complex can't be built—then what's the point of talking about developing Taiwan and Southeast Asia?"
+The survivors of this culling were formed into a "Punishment Squad" and assigned exclusively to the most backbreaking, exhausting, and dangerous labor. Their ultimate fate would be determined by the Political Security General Administration.
 
-"Also nutrition," Hippo said. "The laborers' diet is still too poor—too many carbohydrates, not enough protein. They can't handle heavy manual labor, and it affects their resistance."
+For the native staff who had perished in the disturbance, the Sanya Military Committee arranged full honors. Their ashes were solemnly collected and interred. Telegrams went to Lingao requesting survivor benefits for their families.
 
-Without good nutrition among the laborers, this kind of mass die-off was inevitable.
+---
 
-"I'll allocate you five tons of dried fish and a thousand jars of fish sauce," Wu De said. "Oh, and do you want sugar? It's the best way to replenish energy."
+Killing could suppress the situation, but only temporarily. To sustain productivity, antimalarial drugs had to be distributed—both to the recovered and to those still healthy, as a preventative measure. Hippo personally returned to Lingao and presented a requisition to the Health Department for additional compound antimalarial tablets. Director Shi Nioren didn't dare authorize such a request on his own authority—antimalarial drugs were controlled substances. The matter was escalated to Planning Council Director Wu De, who approved the Health Department's use of stockpiled medications as needed.
 
-"Certainly," Hippo was quite satisfied. "I'll take brown sugar."
+"Even if we exhaust every last pill in our reserves, we must stabilize Sanya first," Wu De said. "If Sanya fails, the coal-iron complex cannot be built—and then what's the point of discussing Taiwan or Southeast Asia?"
 
-"Nobody's sitting month here—why brown sugar? We have white sugar and rock sugar."
+"Nutrition is also critical," Hippo added. "The laborers' diet remains woefully inadequate—too many carbohydrates, not enough protein. They can't sustain heavy manual labor, and their immune systems suffer for it."
 
-"Ha ha, you believe in that traditional Chinese medicine nonsense too," Hippo expressed disdain. "Brown sugar is just crude sugar with a few more nutrients. What does it have to do with postpartum recovery? Keep the white sugar and such for selling."
+Without proper nutrition, this kind of mass die-off was inevitable.
 
-"Fine, five tons for you as well."
+"I'll allocate five tons of dried fish and a thousand jars of fish sauce," Wu De said. "What about sugar? Nothing replenishes energy faster."
 
-"Thank you very much." Hippo thanked him and returned to the Health Department to request more medical personnel.
+"Absolutely," Hippo said, satisfied. "I'll take brown sugar."
 
-"Nurses are really difficult," sighed Zhang Ziyi, director of the Nursing Division and chief nursing officer, frowning. "You've already been given twenty nurses. If you want more, I can only give you some third-term students—and not too many, just a few."
+"Nobody's sitting month here—why brown sugar? We have white sugar and rock sugar available."
 
-Her reluctance to release personnel had reasons: the Health Department was currently strengthening medical capabilities everywhere, particularly the number of junior medical practitioners. The "barefoot doctors" hastily trained from among the Elders showed far less learning enthusiasm and effectiveness than the nursing classes; most had slipped away and dropped out by the time they reached the stage of memorizing medical texts and terminology. Disappointed, Director Shi decided to focus training efforts on native nurses. After screening, about half of the first-term nursing class would transfer to medical practitioner training. The remainder would undergo advanced nursing training.
+Hippo snorted. "You believe that traditional Chinese medicine nonsense too? Brown sugar is just crude sugar with marginally more nutrients. It has nothing to do with postpartum recovery. Save the refined sugars for export."
 
-Adding to the nursing shortage was a recent report from Ai Beibei. The report noted: with life secretaries about to arrive in large numbers, a pregnancy and childbirth boom would certainly follow. She recommended starting now to train obstetrics medical practitioners, midwives, and pediatric medical personnel.
+"Fine. Five tons of brown sugar as well."
 
-Such matters concerning Elder offspring were not to be treated lightly. Director Shi immediately approved, so even the promising students from the second term had to begin new training.
+"Much appreciated." Hippo thanked him and proceeded to the Health Department to request additional medical personnel.
 
-As a result, the remaining second-term students became the backbone. Third-term students had just completed basic training and weren't very capable; fourth-term students even less so.
+---
 
-"Third-term students are fine," Hippo explained the situation in Sanya. "There are many sick people, and nursing staff is insufficient. Besides, you don't have to formally assign them to Sanya Clinic—you could call it an internship."
+"Nurses are nearly impossible to spare," sighed Zhang Ziyi, director of the Nursing Division and chief nursing officer. "You've already been allocated twenty. If you need more, I can only offer some third-term students—and not many."
 
-"That's not the same thing," Zhang Ziyi was unconvinced. "How about I give you a batch of fourth-term students to take along for internship?"
+Her reluctance was well-founded. The Health Department was currently expanding medical capabilities across all fronts, particularly the training of junior practitioners. The "barefoot doctors" hastily trained from among the Elders had proven disappointing—most lacked enthusiasm and aptitude, dropping out once the curriculum advanced to memorizing medical texts and technical terminology. Director Shi had abandoned that approach and shifted focus to training native nurses instead. After rigorous screening, roughly half of the first-term nursing class would transition to medical practitioner training. The remainder would undergo advanced nursing education.
 
-"I don't know nursing specialty." Hippo shook his head repeatedly.
+Compounding the shortage was a recent report from Ai Beibei. With life secretaries about to arrive in large numbers, a baby boom was certain to follow. She recommended beginning immediately to train obstetrics practitioners, midwives, and pediatric personnel.
 
-"You have several first and second-term nurses there. The old can mentor the new."
+Matters concerning Elder offspring were not treated lightly. Director Shi approved at once, which meant even the most promising second-term students had to be diverted to this new training track.
 
-As for doctors, not a single one could be spared—not even Zhang Ziyi's husband, veterinarian Yang Baogui. Hippo was about to take his leave in disappointment when Zhang Ziyi stopped him:
+The result: second-term students became the backbone of available nursing staff. Third-term students had barely completed basic training and lacked competence. Fourth-term students were even less prepared.
 
-"There's someone, rather strange. But he is a genuine doctor from the Chinese medicine department..."
+"Third-term students will suffice," Hippo said, explaining the situation in Sanya. "We have many sick patients and insufficient nursing staff. Besides, you needn't formally assign them to Sanya Clinic—call it an internship."
 
-"Who?" Hippo thought this person was obviously not Liu San.
+"That's not the same thing," Zhang Ziyi remained unconvinced. "How about I send you a batch of fourth-term students for internship instead?"
 
-"The Religious Affairs Office just transferred his personnel file. They want us to arrange something—oh, and he explicitly stated he's willing to serve in the harshest locations. Just right for you." Zhang Ziyi said. "Talk to He Ping for the specifics."
+"I know nothing about nursing specialities." Hippo shook his head firmly.
 
-He Ping was the Health Department's office director, specifically handling various miscellaneous matters for the department and its subordinate units. Occasionally he'd go to the pharmaceutical factory as a guest equipment maintenance engineer—he didn't mind the latter since the factory director was his wife, Zhao Yanmei.
+"You have several first and second-term nurses there already. The experienced ones can mentor the newcomers."
 
-He Ping usually kept a low profile—not particularly capable but absolutely obedient to leadership, and he never gossiped outside. He had good personal relationships.
+As for doctors, not a single one could be spared—not even Zhang Ziyi's husband, the veterinarian Yang Baogui. Hippo was preparing to leave in disappointment when Zhang Ziyi stopped him.
 
-"This person was transferred from the Religious Affairs Office." He Ping pulled out the file. "Named Zhang Yingchen. Looking at his resume, he's genuinely trained as a doctor at a Chinese medicine hospital."
+"There is someone—rather unconventional. But he is a genuine doctor with Chinese medicine training..."
 
-"How come I never knew about such a talent?" Hippo was surprised: doctors—especially those trained in modern medicine—were the scarcest talent in the transmigrator collective.
+"Who?" Hippo was certain she wasn't referring to Liu San.
 
-"After landing, he's been hanging around the Religious Affairs Office doing religious research. Not very interested in his professional work. Unknown how skilled he is, but he definitely has a medical practitioner's license." He Ping said. "This is what Director He of Religious Affairs said."
+"The Religious Affairs Office just transferred his personnel file. They want us to arrange a placement. He explicitly stated he's willing to serve in the harshest locations—perfect for your needs." She paused. "Speak with He Ping for the details."
 
-"Damn, he's not some Christian missionary, is he?" Hippo had no interest in foreign religion. "But fine—right about now we could use some spiritual opium."
+---
 
-"He doesn't seem like a missionary," He Ping didn't know how to describe him. "Kind of mystical, talking about *qi* and the Dao all day..."
+He Ping served as the Health Department's office director, handling various administrative matters for the department and its subordinate units. Occasionally he moonlighted at the pharmaceutical factory as a guest equipment maintenance engineer—an arrangement he didn't mind, since the factory director was his wife, Zhao Yanmei.
 
-"He's not some qigong master, is he?" Hippo became wary. He handed He Ping the list in his hand—a requisition for supplementary drugs, consumables, and equipment. It had already been signed by the Planning Council and Shi Nioren.
+He Ping kept a low profile. Not particularly brilliant, but absolutely obedient to leadership and never one to gossip. He maintained good relationships throughout the department.
 
-"The rest is manageable, but we don't have this much refined salt. Iodine tincture is also short of your requirement." He Ping shook his head.
+"This person transferred from the Religious Affairs Office," He Ping said, producing a file. "Named Zhang Yingchen. According to his résumé, he received genuine training as a doctor at a Chinese medicine hospital."
 
-Hippo found this hard to believe. Refined salt and iodine tincture were the most common consumables in the Health Department—disinfectants that required no paperwork to use.
+"How have I never heard of such a talent?" Hippo was surprised. Doctors—especially those with modern medical training—were the scarcest resource in the transmigrator collective.
 
-"We're short on these too?"
+"Since landing, he's been attached to the Religious Affairs Office conducting religious research. Apparently uninterested in practicing his profession. His skill level is unknown, but he definitely holds a medical practitioner's license." He Ping added, "That's according to Director He of Religious Affairs."
 
-"There was an incident at the Ma Niao salt works," He Ping said. "Before Director Wang was transferred, he set them up with a steam salt works with four steam boilers. A few days ago, for some reason, they exploded one after another. The chemical and food factories have high salt demand right now, so suddenly there's a shortage."
+"Damn. He's not some Christian missionary, is he?" Hippo had no interest in foreign religion. But he reconsidered. "Actually, fine—we could use some spiritual opium right about now."
 
-"And iodine tincture?"
+"He doesn't seem like a missionary," He Ping said, uncertain how to characterize the man. "Rather mystical. Talks about *qi* and the Dao constantly."
 
-"Well," He Ping coughed awkwardly, "you know our iodine mainly comes from extracting kelp and other seaweed. But recently eating seaweed has become trendy—the seaweed supply can't keep up."
+"He's not some qigong master, is he?" Hippo asked warily. He handed He Ping his requisition list—supplementary drugs, consumables, and equipment, already signed by the Planning Council and Director Shi.
 
-This fad had started suddenly just a few days ago: word spread that eating kelp and seaweed promoted longevity and made one immune to all poisons. First the rumor swept through natives; the previously worthless dried and fresh kelp in the market was snapped up immediately. Eventually even Elders got caught up in it, though the claims morphed into eating seaweed for whitening skin, sun protection, and enhanced sexual performance. All seaweed dishes in the cafeterias suddenly couldn't meet demand—not only was kelp bean paste soup served three meals a day, but the food factory rushed to produce dried seaweed snacks.
+"Most of this is manageable, but we don't have this much refined salt. Iodine tincture is also short of your requirement." He Ping shook his head.
 
-Meanwhile, in the Religious Affairs Office's director's office, He Ying was reviewing a meeting minutes document.
+Hippo found this hard to believe. Refined salt and iodine tincture were the most common consumables in the Health Department—basic disinfectants that required no special authorization.
 
-This was from an internal religious affairs symposium held after the new year. He Ying had conducted a social survey of religion in Lingao during the latter half of the previous year, gathering much firsthand material.
+"We're short on those as well?"
 
-At this symposium, the Religious Affairs Office's Zhang Yingchen had presented a paper: "Survey Report on Religious Conditions in Lingao." He then proposed the concept of creating a "New Daoism."
+"There was an incident at the Ma Niao salt works," He Ping explained. "Before Director Wang was transferred, he had them equipped with a steam-powered salt operation—four boilers. A few days ago, they exploded one after another for reasons unknown. The chemical and food factories have heavy salt demands right now, so suddenly there's a shortage."
 
-Zhang Yingchen was nearly thirty, formerly a doctor at a Chinese medicine hospital, with special interest in the religious field. He dabbled in Buddhism, Daoism, Christianity, Islam, Judaism—he was something of a semi-professional religious studies researcher. He was particularly interested in Daoist studies and had researched it in considerable depth.
+"And the iodine tincture?"
 
-His proposal had sparked fierce debate at the Religious Affairs symposium. Wu Shimang, Bai Duolu and others opposed it. The Lingao Church wasn't eager to see the pie divided. Especially Dean Wu—though he still couldn't even recite the Rosary—had been scheming to launch a comprehensive faith-spreading "crusade" across all of Lingao, uprooting all existing beliefs.
+He Ping coughed awkwardly. "Well. You know our iodine primarily comes from kelp and seaweed extraction. But lately, eating seaweed has become tremendously fashionable. Supply can't keep pace with demand."
 
-Wu Shimang's opposition wasn't based on faith—he simply didn't want a competitor taking a share. A new religion would first squeeze the Religious Affairs Office's resources, then create difficulties for proselytizing. In his remarks, he enumerated the many complications that competing for believers would cause.
+The fad had erupted just days ago. Rumors spread that consuming kelp and seaweed promoted longevity and rendered one immune to all poisons. The claim swept through the native population first; previously worthless dried and fresh kelp vanished from the markets overnight. Eventually even Elders succumbed, though among them the purported benefits mutated into skin whitening, sun protection, and enhanced sexual performance. Every seaweed dish in the cafeterias was suddenly in desperate demand—kelp and bean paste soup appeared at all three daily meals, and the food factory rushed to produce dried seaweed snacks.
 
-But Zhang Yingchen's proposal won He Ying's support. He had sponsored and presided over the countywide religious survey largely to see what form of religion could better meet the needs of natives in this timeline. He Ying was very clear about the Executive Committee's thinking: introducing Catholicism to Lingao—however enthusiastically the Jesuits embraced it—would essentially just provide a skin for a future new religion. The new body would evolve behind that skin, eventually becoming an entirely new religious form under complete transmigrator control.
+---
 
-Everyone in the Religious Affairs Office clearly understood this ultimate goal, but Dean Wu's recent activities had drawn He Ying's intense attention. Wu Shimang had been tirelessly strengthening the church organization, accumulating church property, vigorously promoting changes in customs, training missionaries... Clearly, Old Wu was preparing to establish a state religion.
+Meanwhile, in the Religious Affairs Office, Director He Ying sat reviewing meeting minutes.
 
-He agonized over how to respond. In the short term, Wu Shimang's approach significantly benefited the entire transmigrator collective, but on the other hand, this progress would inevitably create a Roman Curia-style ecclesiastical organization. He Ying was well aware: the Yuan Elder Council wouldn't welcome a powerful church. What they needed was a tool—an absolute tool. Even Director Wen, who cared most about Religious Affairs construction, had repeatedly mentioned in his directives: pay attention to the "degree" of church building.
+The document recorded an internal religious affairs symposium held after the new year. He Ying had spent much of the previous year conducting a social survey of religion in Lingao, gathering substantial firsthand material.
 
-Zhang Yingchen's idea gave him an insight: monopoly was dangerous; only competition would create a virtuous cycle.
+At this symposium, Zhang Yingchen of the Religious Affairs Office had presented a paper titled "Survey Report on Religious Conditions in Lingao." He then proposed the creation of a "New Daoism."
 
-After the meeting, He Ying submitted a report to the Executive Committee, conveying Zhang Yingchen's specific ideas. This involved ideology—not something he could decide unilaterally.
+Zhang Yingchen was approaching thirty—formerly a doctor at a Chinese medicine hospital, with a particular fascination for religion. He had dabbled in Buddhism, Daoism, Christianity, Islam, and Judaism, achieving something approaching semi-professional expertise in religious studies. His deepest interest lay in Daoism, which he had researched extensively.
 
-The response was written by Director Wen. The first line was: "Under a single Radiant God domain, any religious form can be discussed."
+His proposal had ignited fierce debate. Wu Shimang, Bai Duolu, and others opposed it vigorously. The Lingao Church had no desire to see the pie divided. Dean Wu especially—though he still couldn't recite the Rosary from memory—had been scheming to launch a comprehensive "crusade" of faith across all Lingao, uprooting every existing belief.
 
-He Ying was somewhat puzzled—where did "Radiant God" suddenly come from? Was Director Wen planning to create some church himself? Reading further, another line: "The Dao Saints, such as Laozi and Zhuangzi's lineage, are all Great Archangels under the Great Archangel Commander of the Radiant God. The same applies to Christ, son of the Palestinian carpenter."
+Wu Shimang's opposition wasn't rooted in genuine religious conviction. He simply didn't want competition eating into his share. In his remarks, he enumerated the countless complications that competing for believers would create.
 
-"I see!" He Ying understood Director Wen's meaning. He summoned Zhang Yingchen for a formal discussion on this matter.
+But Zhang Yingchen's proposal won He Ying's support. He had sponsored the countywide religious survey precisely to determine what form of religion could best serve the natives of this era. He Ying understood the Executive Committee's thinking perfectly: introducing Catholicism to Lingao—however enthusiastically the Jesuits embraced the project—was essentially just grafting skin onto a future new religion. Behind that borrowed exterior, a new organism would evolve, eventually becoming an entirely new religious form under complete transmigrator control.
 
-"Director He, you'd better come to my office. I have many things to show you that aren't convenient to bring over," Zhang Yingchen said on the phone.
+Everyone in the Religious Affairs Office understood this ultimate objective. But Dean Wu's recent activities had drawn He Ying's growing concern. Wu Shimang had been tirelessly strengthening the church organization, accumulating ecclesiastical property, promoting changes in customs, training missionaries... Clearly, Old Wu was building toward a state religion.
 
-So He Ying went to his office. Zhang Yingchen's office was in the courtyard. Compared to the scale of the Lingao Church, the Religious Affairs Office was a very small department. Of course, they couldn't conveniently work in the Lingao Seminary—currently they shared a courtyard with the Li-Miao Affairs Office. The latter was almost empty most of the time; the courtyard was very quiet, with lush flowers and trees in the garden beds, very classical in Chinese style. Being in the courtyard, you could hardly sense the bustle outside.
+He Ying agonized over how to respond. In the short term, Wu Shimang's approach generated significant benefits for the transmigrator collective. But this same progress would inevitably produce a Roman Curia-style ecclesiastical organization. And He Ying knew well: the Yuan Elder Council would never welcome a powerful church. What they needed was a tool—an absolute tool. Even Director Wen, who cared most deeply about Religious Affairs development, had repeatedly emphasized in his directives: pay attention to the "degree" of church building.
 
-Zhang Yingchen's office was elegantly decorated, full of traditional charm. The furniture, calligraphy, paintings, and ornaments were all purchased with his own money from the cooperative—not the modernist furniture issued by the Planning Committee. 
+Zhang Yingchen's idea offered an insight: monopoly was dangerous. Only competition could create a virtuous cycle.
 
-Zhang Yingchen was sitting in a red sandalwood bamboo-joint chair wearing headphones, writing rapidly. Beside him was a portable CD player. The red sandalwood desk displayed the Four Treasures of the Study, as well as locally made dipping pens with iron nibs. A three-tiered rosewood shelf was lined with books—Ming Dynasty texts he'd personally paid to have the Guangzhou Station purchase. Most were on Daoism.
+After the meeting, He Ying submitted a report to the Executive Committee conveying Zhang Yingchen's specific proposals. This involved ideology—not something he could decide unilaterally.
 
-(End of Chapter)
+The response came written in Director Wen's hand. The opening line read: "Under a single Radiant God domain, any religious form can be discussed."
+
+He Ying was puzzled—where had "Radiant God" suddenly come from? Was Director Wen planning to create some church of his own? Reading further, he found another line: "The Dao Saints—the lineage of Laozi and Zhuangzi—are all Great Archangels under the Great Archangel Commander of the Radiant God. The same applies to Christ, son of the Palestinian carpenter."
+
+"I see!" He Ying grasped Director Wen's meaning. He summoned Zhang Yingchen for a formal discussion.
+
+"Director He, you should come to my office instead," Zhang Yingchen said on the phone. "I have many things to show you that wouldn't be convenient to transport."
+
+So He Ying went to him. Zhang Yingchen's office occupied a courtyard—befitting the Religious Affairs Office's modest scale compared to the Lingao Church. They couldn't very well work in the Seminary, so they shared this courtyard with the Li-Miao Affairs Office. The latter stood empty most of the time; the compound was serene, its garden beds lush with flowers and trees in classical Chinese style. Within its walls, one could hardly sense the bustle of the outside world.
+
+Zhang Yingchen's office was elegantly appointed, suffused with traditional charm. The furniture, calligraphy, paintings, and ornaments had all been purchased with his own money from the cooperative—not the modernist furnishings issued by the Planning Committee.
+
+When He Ying entered, Zhang Yingchen sat in a red sandalwood bamboo-joint chair wearing headphones, writing rapidly. Beside him lay a portable CD player. The red sandalwood desk displayed the Four Treasures of the Study alongside locally manufactured dipping pens with iron nibs. A three-tiered rosewood shelf held rows of books—Ming Dynasty texts he had personally commissioned the Guangzhou Station to acquire. Most concerned Daoism.
+
+*(End of Chapter)*

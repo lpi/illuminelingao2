@@ -1,99 +1,101 @@
 # Chapter 1071 - Tacit Understanding
 
-Lu Yang said: "For those who really have no way to live, Master Lu has some properties in Fujian and Zhejiang; they can be sent there to work as tenant farmers and reclaim wasteland."
+"For those truly without options," Lu Yang said, "Master Lu maintains properties in Fujian and Zhejiang. They could be sent there—to work as tenant farmers, reclaim wasteland."
 
-Sun Yuanhua didn't quite believe it—he was from Jiading, and Zhejiang was close by. Although northern Zhejiang was fertile land, it had long been fully cultivated with fields connecting to the wild; there was no place left to reclaim. Southern Zhejiang was all mountainous with many people and little land; the common people there even had to leave their homes to work as laborers, merchants, or tenant farmers elsewhere to survive. As for Fujian, although he hadn't been there, he knew it was a province of many mountains and little land, producing not enough grain to feed its own population, with a large number of people flowing out every year.
+Sun Yuanhua received this with skepticism. He hailed from Jiading, after all, and knew the Zhejiang landscape intimately. Northern Zhejiang was fertile country, yes, but its fields had long since been cultivated to the horizon—every tillable acre claimed generations ago. Southern Zhejiang offered only mountains, its valleys choked with people competing for scarce land. The common folk there had to seek their fortunes elsewhere: as laborers, merchants, or tenant farmers in foreign provinces. As for Fujian, though he had never visited, he knew its reputation well enough—a province of peaks and precipices that could not produce enough grain to feed its own population, hemorrhaging emigrants every year.
 
-Naturally, Master Lu's collection of refugees had another destination—one only had to look at the trestle bridge extending into the bay to know. Besides the large number of ships docking, what was the use of building such a long trestle bridge? It was clearly for transporting people by ship.
+No, Master Lu's collection of refugees surely had another destination entirely. One needed only to observe the trestle bridge extending into the bay to understand. Beyond the necessity of berthing so many large vessels, what purpose could such an immense structure serve? It was clearly designed for moving people by ship.
 
-Thinking of ships, Sun Yuanhua's gaze stopped on the ships by the trestle bridge—his eyelids twitched.
+The thought of ships drew Sun Yuanhua's gaze toward the vessels moored at the pier. His eyelids twitched involuntarily.
 
-This place was not close to the pier, but the weather was clear today, and against the blue background, the ships moored by the trestle bridge could be seen very clearly.
+The distance was considerable, but the weather had blessed them with crystalline clarity. Against the pale blue sky, the ships stood out in sharp relief.
 
-Beside the trestle bridge, in addition to some small fishing boats common locally, there were more than a dozen large ships of over two hundred *liao*! Sun Yuanhua was deeply aware of the importance of the navy in cross-sea support and maneuvering for operations in Liaodong. When he was the Governor of Dengzhou and Laizhou, he strove to manage the navy. To expand the scale of the fleet, in addition to trying to build them himself, he also sent people specifically to Joseon to purchase large naval warships.
+Alongside the trestle bridge, amid the scattering of small fishing boats common to these waters, rode more than a dozen massive vessels—each displacing over two hundred *liao*! Sun Yuanhua had long understood the critical importance of naval power for operations in Liaodong. Cross-sea support and maritime maneuvering were essential to any serious campaign. During his tenure as Governor of Dengzhou and Laizhou, he had labored tirelessly to expand and strengthen his fleet, even dispatching agents to Joseon to purchase large warships.
 
-He didn't expect such a massive fleet to be gathered right under his nose! He suppressed his surprise and excitement, rubbed his eyes, and looked carefully at the ships at the pier.
+Yet here, gathered practically beneath his nose, was a fleet of such scale as to make his efforts seem modest by comparison.
 
-Although he couldn't see the details clearly, the ships appeared to be in excellent condition. The sails and rigging were almost new, and flags were flying at the stern—blue and white bilingual flags. There were also protrusions covered with tarpaulins on the deck, which looked like cannons by their shape.
+He suppressed his astonishment and excitement, rubbed his eyes, and studied the vessels more carefully.
 
-"Are these ships all Manor Lord Lu's ships?" Sun Yuanhua asked, pretending to be casual.
+Though the distance blurred the finer details, their excellent condition was apparent. The sails and rigging looked nearly new. Flags snapped crisply at stern—blue and white bilingual banners. On the decks, tarpaulin-covered protrusions suggested the unmistakable shapes of artillery.
 
-"Exactly," Lu Yang said. "They are all under Manor Lord Lu's jurisdiction. Would Sir like to go and have a look?"
+"These ships belong to Manor Lord Lu?" Sun Yuanhua asked, affecting a casual tone.
 
-Lu Wenyuan did not intend to hide his true identity—after all, deep cooperation was to follow. Furthermore, if he didn't show a little muscle, the other party might not trust him.
+"Indeed," Lu Yang replied. "They all fall under Manor Lord Lu's jurisdiction. Would Sir care to inspect them more closely?"
 
-"Very good," Sun Yuanhua nodded.
+Lu Wenyuan had no intention of concealing his true identity—not when deeper cooperation was imminent. Besides, if he failed to display some muscle, the other party might never trust him sufficiently.
 
-Guided by Lu Yang, Sun Yuanhua immediately went to the trestle bridge. There were a total of 9 naval vessels docked at the Qimu Island pier: one Type 901 gunboat and eight special service boats. Because the appearance of the Type 901 gunboat was very different from ordinary ships, the *Daishuang* was moored in the middle of two rows of special service boats. Not only the cannons on the deck but also the smokestack were camouflaged with tarpaulins and fishing nets.
+"Very well," Sun Yuanhua nodded.
 
-Sun Yuanhua immediately boarded a special service boat—this was a *Guang* ship (Cantonese junk) type not commonly seen locally. From the coast of Jiangsu and Zhejiang all the way to Liaodong, because there were many shallow shoals along the coast, the mainstream ship type was the flat-bottomed *Sha* ship (Sand boat). Among the warships of the Dengzhou and Laizhou Navy, there were also many of the *Sha* ship type. However, this kind of ship had a shallow draft and slow speed; as a warship, it only enjoyed an advantage because its opponent was the Later Jin, which had almost no navy.
+Under Lu Yang's guidance, they proceeded to the trestle bridge. Nine naval vessels were docked at Qimu Island's pier: one Type 901 gunboat and eight special service boats. Because the Type 901's appearance diverged so dramatically from conventional ship designs, the *Daishuang* had been positioned in the center, flanked by twin rows of the special service boats. Her deck cannons and smokestack alike were camouflaged beneath tarpaulins and fishing nets.
 
-He looked with interest at the modified poop deck, masts, and rigging. He was particularly impressed by the deck that was shiny enough to reflect a person. This was an impossible thing in his impression.
+Sun Yuanhua immediately boarded one of the special service boats. Its *Guang* ship design—the Cantonese junk style—was uncommon in these waters. Along the coast from Jiangsu and Zhejiang to Liaodong, shallow shoals dominated the littoral, making flat-bottomed *Sha* ships the dominant vessel type. The Dengzhou and Laizhou Navy included many such craft. But these sand boats were slow, with shallow drafts—as warships, they enjoyed an advantage only because their primary adversary, the Later Jin, fielded almost no navy at all.
 
-Boarding the poop deck, Sun Yuanhua developed a strong interest in the steering wheel helming the ship—at this time, sailing ships, both Chinese and foreign, used a tiller to steer. This convenient and sensitive device, the steering wheel, immediately caught his attention.
+He examined the modified poop deck, masts, and rigging with keen interest. What particularly impressed him was the deck itself, polished to such brilliance that it could reflect a man's image. Such a thing seemed beyond possibility in his experience.
 
-He tried turning the wheel, found it quite light and agile, and clicked his tongue in wonder.
+Ascending to the poop deck, Sun Yuanhua developed an intense fascination with the steering wheel that controlled the ship's rudder. In this era, sailing vessels—whether Chinese or foreign—relied on tillers for navigation. This convenient and responsive device immediately captured his attention.
 
-Then, at his request, Lu Yang ordered men to uncover the tarpaulins on the cannons, revealing the 24-pounder smoothbore cannon and the 68-pounder carronade mounted on the open gun deck.
+He tried turning the wheel, found it remarkably light and agile, and clicked his tongue in wonder.
 
-Sun Yuanhua was an "artillery expert." Although his knowledge came mostly from Western missionaries who couldn't be called professionals, he had access to a large number of Western firearm books and real objects, and had long-term contact and cooperation with Portuguese soldiers, so his ability to identify artillery was unmatched in the Imperial Court.
+Then, at his request, Lu Yang ordered the tarpaulins removed from the cannons. The 24-pounder smoothbore cannon and the 68-pounder carronade mounted on the open gun deck were revealed in their full glory.
 
-He saw at a glance that the cannons before him were larger than the Hongyipao (Red Barbarian Cannons) bought from Macau, which the Imperial Court regarded as "Heavy Weapons of the State." Not to mention those few thick and short heavy cannons, even the muzzle of the seemingly smaller long cannon was much larger than a Hongyipao.
+Sun Yuanhua considered himself an artillery expert. Though his knowledge derived mainly from Western missionaries who could hardly be called professionals, he had access to an extensive library of Western firearm treatises and practical examples, and had maintained long-term contact and cooperation with Portuguese soldiers. His ability to identify and evaluate artillery was unmatched in the Imperial Court.
 
-"Does this cannon fire a 24-jin shot?" Sun Yuanhua asked. At that time, Chinese translations of Western artillery works did not convert Chinese and Western weights and measures; pounds became *jin* (catties) directly, and length units became construction *chi*. Although Sun Yuanhua was an expert, he ultimately couldn't read Portuguese or Italian, so he made the mistake along with everyone else.
+He recognized at a glance that the cannons before him dwarfed the Hongyipao—the Red Barbarian Cannons purchased from Macau—which the Imperial Court revered as "Heavy Weapons of the State." Even setting aside those massive short-barreled heavy guns, the muzzle of what appeared to be the smaller long cannon was substantially larger than any Hongyipao.
 
-Lu Yang naturally knew this. Although his unit of measurement was wrong, just looking at it and knowing the approximate caliber of the artillery counted as very professional.
+"Does this cannon fire a 24-jin shot?" Sun Yuanhua asked. At the time, Chinese translations of Western artillery works did not convert weights and measures; pounds became *jin* directly, and length units became construction *chi*. Though Sun Yuanhua was an expert, he ultimately could not read Portuguese or Italian, and so perpetuated the universal error.
 
-"It is indeed a 24-jin shot."
+Lu Yang understood this well. Despite the incorrect unit of measurement, the man's ability to estimate the cannon's approximate caliber merely by inspection marked him as remarkably professional.
 
-"What about that big cannon over there? I wonder how many jin is the shot?"
+"A 24-jin shot, precisely."
 
-"That is a 68-jin shot."
+"And that large cannon there? How many jin is its shot?"
 
-"68 jin?!" Sun Yuanhua was quite shocked. In his perception, a Hongyipao firing a 12-pound shot was already a "giant cannon." Yet the cannons on this ship fired 24-jin shots as a standard, and there were even 68-jin shots!
+"That one fires a 68-jin shot."
 
-"Since it fires a 24-jin shot, presumably it must be filled with a lot of gunpowder," Sun Yuanhua raised a second question. "I see this cannon body is very thin, and it is not cast of copper. I wonder if it can avoid exploding?"
+"Sixty-eight jin?!" Sun Yuanhua could not contain his shock. In his understanding, a Hongyipao firing a 12-pound shot was already a "giant cannon." Yet on this ship, 24-jin shots were standard, and 68-jin shots existed as well!
 
-The Ming Dynasty introduced Western artillery, but did not fully introduce standardized artillery training and usage. Consequently, there were many problems ranging from gunpowder charge quantity and firing frequency control to forced cooling of the barrel. Coupled with various material and process problems when copying the cannons, barrel explosion accidents occurred frequently.
+"Since it fires a 24-jin shot," Sun Yuanhua pursued, "presumably the powder charge must be substantial." He studied the cannon's body. "I notice the barrel appears quite thin and is not cast in copper. Is there no danger of explosion?"
 
-In order to ensure the safety of firing cannons, the only way when casting cannons was to increase the thickness of the barrel. The result was that the cast cannons were very heavy. This trend developed to the end, where during the Opium War, cannons weighing several thousand jin appeared, firing shots equivalent to only European 12-pound, or even 9-pound or 6-pound shots.
+The Ming Dynasty had introduced Western artillery but had failed to adopt standardized training and usage protocols. Problems abounded—from powder charge quantities and firing frequency to forced cooling of barrels. Coupled with various material and manufacturing defects in domestically copied cannons, barrel explosions occurred with alarming regularity.
 
-In contrast, Lingao's smoothbore cannons were all manufactured using integral casting, heat treatment, hammer forging, and then drilling. The raw materials and processing methods used were hundreds of years ahead, creating cannons far superior in quality to traditional cast artillery.
+To ensure safe operation, the only recourse when casting cannons was to increase barrel thickness. The result was extraordinarily heavy pieces. This trend reached its absurd conclusion during the Opium Wars, when cannons weighing several thousand *jin* emerged—firing shots equivalent to European 12-pounders, or even mere 9- or 6-pounders.
 
-"It doesn't matter," Lu Yang smiled slightly. "Not to mention 68-jin shots, even cannons with shots of over a hundred jin would be fine."
+Lingao's smoothbore cannons, by contrast, were manufactured using integral casting, heat treatment, hammer forging, and precision drilling. The raw materials and processing methods employed were centuries ahead of their time, producing artillery far superior to traditionally cast pieces.
 
-"Shots of over a hundred jin!" Sun Yuanhua repeated in astonishment—in his view, a 68-jin shot was terrifying enough, let alone over a hundred jin!
+"It matters not," Lu Yang smiled faintly. "Sixty-eight-jin shots pose no problem. We could manage shots exceeding a hundred jin."
 
-He incredulously sized up the artillery before him again. The smooth muzzle and the shining cannon body gave him a strong visual impact. The impression the entire cannon gave him was actually—"exquisite."
+"Shots exceeding a hundred jin!" Sun Yuanhua repeated in astonishment. A 68-jin shot was already terrifying enough—and here they spoke of surpassing even that!
 
-His gaze fell on the carriage beneath the cannon body. It was not the Western-style four-wheeled wooden carriage he had authorized personally, but mounted on an exquisite iron gun carriage with many iron rods, wheels, and some copper and iron parts he couldn't understand. Some looked familiar—similar to the objects in the *Diagrams and Explanations of the Wonderful Machines of the Far West*, but not completely similar.
+He studied the artillery before him with fresh incredulity. The smooth muzzle, the gleaming cannon body—the visual impact was overwhelming. The impression the entire piece conveyed was, surprisingly, one of *elegance*.
 
-*I wonder what use this pile of objects under the cannon body has?*
+His gaze descended to the carriage beneath the cannon. It was not the Western-style four-wheeled wooden mount he had personally authorized, but rather an exquisite iron gun carriage bristling with iron rods, wheels, and various brass and iron components whose purposes eluded him. Some seemed vaguely familiar—reminiscent of diagrams in *Illustrations and Explanations of the Wonderful Machines of the Far West*—but not quite identical.
 
-As if to answer his doubts, Lu Yang opened the cannon travel lock and gently pushed the cannon.
+*What function could this collection of objects beneath the cannon serve?*
 
-The heavy cannon body actually began to turn, and under the push of a young man who didn't look very strong. It could be seen that he hadn't used his full strength either.
+As if answering his unspoken question, Lu Yang released the travel lock and gave the cannon a gentle push.
 
-Sun Yuanhua had been in Liaodong and had experienced actual combat. Of course, he knew how significant such easy movement of the muzzle direction was for actual combat. And this problem was something neither the Portuguese/Franks nor the missionaries had a solution for!
+The massive piece began to rotate under the hand of this young man who appeared rather unimposing. It was clear he had not even exerted his full strength.
 
-Then Lu Yang rapidly turned the handwheel, and the cannon body gradually rose. Sun Yuanhua was dumbfounded—the Portuguese adjusted the elevation of the muzzle by using a hammer to beat a wedge-shaped piece of wood. Not only was the adjustment speed slow, but slightly uneven force would cause it to go too far.
+Sun Yuanhua had served in Liaodong and witnessed actual combat. He understood immediately what such effortless directional adjustment meant in battle. Neither the Portuguese nor the missionaries had ever offered a solution to this problem!
 
-Everyone said the West had wonderful machines that China did not possess. However, the various "wonderful machines" on this ship far exceeded the West.
+Then Lu Yang rapidly turned a handwheel, and the cannon's barrel gradually elevated. Sun Yuanhua watched, dumbfounded. The Portuguese adjusted muzzle elevation by hammering wooden wedges—a slow process where the slightest irregularity in force could send the angle too far.
 
-By now, his originally vague guess had become a conclusion. Master Lu was a "Short-haired Thief" (Kun Thief)!
+Everyone spoke of the wonderful machines the West possessed that China lacked. But the marvels aboard this ship far exceeded anything Western.
 
-Except for the Short-haired Thieves, who in the world could create such exquisite and wonderful machinery? Things that happened in Guangdong had more or less reached Sun Yuanhua's ears—especially since his correspondence with the Jesuits in Macau was quite frequent, and he employed Portuguese people in the army, so the news he grasped about the Senate was much more detailed than ordinary officials in the Court. He knew about the new and strange things like the "Big Iron Ship," "Iron Fast Ship," "Big Cannons," and "Fast Guns" of the Short-haired Thieves.
+By now, his vague suspicions had crystallized into certainty. Master Lu was a "Short-haired Thief"—a Kun Thief!
 
-Although the ship before him was a *Guang* ship, these cannons were out-and-out Australian goods! Master Lu and the young man before him were both Australians, and this stockade on Qimu Island was also a genuine "Den of Short-haired Thieves"!
+Who else in the world could create such exquisite and wondrous machinery? Tales of events in Guangdong had reached Sun Yuanhua's ears in some form—especially given his frequent correspondence with the Jesuits in Macau and his employment of Portuguese soldiers. His intelligence regarding the Senate was far more detailed than what ordinary Court officials possessed. He had heard of the Short-haired Thieves' strange innovations: the "Big Iron Ship," the "Iron Fast Ship," the "Big Cannons," the "Fast Guns."
 
-They built a stockade here and painstakingly took in refugees; it went without saying that they must be transporting them to Hainan Island. Hainan Island was located on the southern frontier and was sparsely populated. The Portuguese said that the Short-haired Thieves had been trying to attract immigrants from the mainland. The Short-haired Thieves on Qimu Island must have the same purpose!
+Though the vessel before him was a *Guang* ship, these cannons were unmistakably Australian goods! Master Lu and this young man were both Australians; this stockade on Qimu Island was a genuine "Den of Short-haired Thieves"!
 
-Sun Yuanhua's feeling about the "Short-haired Thieves" was simply: The other party was nothing more than a group of businessmen hoping to do business and make money. As long as the Great Ming did not hinder their making money, they would not harm the Great Ming. They were much better than the Tartars who were ferocious and evil and capable only of robbery and killing.
+They had built their fortress here and labored painstakingly to take in refugees—obviously to transport them to Hainan Island. That southern frontier island was sparsely populated. The Portuguese had reported that the Short-haired Thieves worked constantly to attract immigrants from the mainland. The Short-haired Thieves on Qimu Island surely shared the same objective!
 
-Usually, whether from the Portuguese or people coming from Guangdong, the impression of the Australians mentioned was not bad: saying they were skilled in industry and good at commerce, trustworthy in business, and honest and reliable. Not to mention that the Church side praised the "Australians" as if angels had descended.
+Sun Yuanhua's assessment of the "Short-haired Thieves" was simple: they were merely a group of merchants hoping to trade and profit. So long as Great Ming did not obstruct their commerce, they would not harm the empire. They were infinitely preferable to the Tartars—those ferocious, evil creatures capable only of robbery and slaughter.
 
-Although he understood in his heart, Sun Yuanhua was not in a hurry to point it out. Sometimes it was better to pretend to be confused. Moreover, he didn't see any malice from them towards him.
+From every source—the Portuguese, travelers from Guangdong—the impression of the Australians was favorable: skilled in industry, adept at commerce, trustworthy in business, honest and reliable. The Church, in particular, praised the "Australians" as though angels had descended to earth.
 
-These people took immense pains to rescue him from the rebel army; they must have a plan. He might as well watch and wait to see what exactly they wanted to do. In any case, he, Sun Yuanhua, already had nothing left.
+Though he understood the truth, Sun Yuanhua felt no urgency to expose it. Sometimes playing the fool was wiser. Moreover, he detected no malice toward him from these people.
+
+They had undertaken immense trouble to rescue him from the rebel army. Clearly, they harbored some design. He would watch and wait to discover what exactly they intended. In any case, he, Sun Yuanhua, had nothing left to lose.
 
 (End of Chapter)

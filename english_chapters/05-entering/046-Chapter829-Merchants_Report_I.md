@@ -1,73 +1,77 @@
-# Chapter 829: Merchant's Report (I)
+# Chapter 829 - Merchant's Report (I)
 
-"We are the Fubo Army Coast Guard!" The voice drifted over intermittently in the sea breeze. "You have entered our Maritime Security Zone. Please stop your ship immediately for inspection! State your heading, otherwise we will take all necessary actions—"
+"We are the Fubo Army Coast Guard!" The voice drifted across intermittently on the sea breeze. "You have entered our Maritime Security Zone! Stop your vessel immediately for inspection! State your destination—otherwise we will take all necessary actions—"
 
-Van der Lanthroon called a Chinese sailor and asked him to listen to what the other party was saying. The sailor initially indicated he couldn't understand the shouting, and only when the other party started shouting in Cantonese did he understand, relaying the message word for word to the Merchant.
+Van der Lanthroon summoned a Chinese sailor and asked him to translate the shouting. The man initially indicated he couldn't understand the words, but when the other party switched to Cantonese, comprehension dawned. He relayed the message word for word to the Merchant.
 
-Van der Lanthroon frowned. Stop for inspection? The Australians seemed very rampant in these waters. Acting like the overlords of this sea area. He couldn't help but think of the English always trying to seek the status of overlord in the English Channel. This made the Merchant very unhappy.
+Van der Lanthroon's expression darkened. *Stop for inspection?* The Australians seemed remarkably presumptuous in these waters—acting as though they were lords of the sea. It reminded him of the English and their endless attempts to assert dominance over the English Channel. The comparison irritated him.
 
-"Ignore them, sail straight into the strait!" he ordered the Captain.
+"Ignore them. Sail straight into the strait!" he ordered the Captain.
 
-"Mr. Van der Lanthroon! Their ship is faster than ours, and agile..."
+"Mr. Van der Lanthroon! Their ship is faster than ours, and far more agile..."
 
-The opponent had cannons on deck. With their speed and agility, avoiding the big ship's fire, using the low profile of the small ship to hide in the blind spots of the cannon fire, and then boarding would not be difficult. Pirates in the Mediterranean often sailed such small boats yet could clear large merchant ships several times their size. Even galleons equipped with more than 30 cannons could hardly escape such a fate. Not to mention their clumsy "yacht." The 8 naval guns on the ship were okay for scaring native pirates, but against such an enemy, they might not be a match.
+The opposing vessel had cannons on deck. With their speed and maneuverability, they could easily dodge the *Magdeburg's* clumsy fire, exploit the blind spots created by their low profile, and board at will. Pirates in the Mediterranean routinely sailed such small craft yet managed to capture large merchant vessels many times their size. Even galleons mounting more than thirty cannons had fallen to such tactics. For their ponderous "yacht," the odds would be even worse. The eight naval guns aboard were adequate for intimidating native pirates, but against an enemy like this, they might not avail at all.
 
-Van der Lanthroon considered for a moment and ordered: "Let this Chinese man shout back! We are a trade mission from the Dutch East India Company going to Lingao. If they are truly the Australians of Lingao, ask them to pilot us to Lingao. Once in Lingao, we are willing to accept all inspections!"
+Van der Lanthroon weighed his options briefly. "Have the Chinese man shout back: We are a trade mission from the Dutch East India Company, bound for Lingao. If they are truly the Australians of Lingao, we request that they pilot us to port. Once in Lingao, we will accept all proper inspections!"
 
-The sailor shouted and yelled this message, fussing back and forth for over ten minutes. The other party seemed to understand their meaning, and Van der Lanthroon saw the bow of the sloop veer away outwards. After a while, a burst of thick smoke and fire suddenly rose from the small boat. Van der Lanthroon, Gonzalez, and the others were all stunned. While they were surprised, they saw a rocket soaring straight into the clouds, bursting open under the sky, spraying out a cloud of blue smoke.
+The sailor shouted this message back and forth, the exchange dragging on for more than ten minutes amid much confusion. Eventually, the other party seemed to grasp their meaning. Van der Lanthroon watched the bow of the sloop veer outward—and then a burst of thick smoke and fire erupted from the small vessel. He and Gonzalez stood stunned as a rocket soared straight into the clouds, bursting open beneath the sky and spraying out a cloud of blue smoke.
 
-"What does this mean?" Van der Lanthroon was greatly shocked.
+"What does that signify?" Van der Lanthroon exclaimed.
 
-"Summoning accomplices." Gonzalez was a veteran and immediately understood the meaning of the sudden rocket flare. "There must be several more of their ships in this area! Prepare for battle!" He shouted nervously, drawing his saber.
+"They're summoning reinforcements." Gonzalez was a veteran; he immediately understood the meaning of the sudden flare. "There must be several more of their ships in the area! Prepare for battle!" He drew his saber, his voice sharp with tension.
 
-The ship was instantly in turmoil. Sailors and soldiers rushed to their positions, ready to open fire at any time.
+The ship dissolved into controlled chaos. Sailors and soldiers rushed to their positions, ready to open fire at any moment.
 
-Time passed minute by minute. Half an hour later, two more identical sloops appeared on the horizon. Three Type II single-masted patrol boats approached the *Magdeburg* in formation.
+Time crawled by. Half an hour later, two more identical sloops appeared on the horizon. Three Type II single-masted patrol boats approached the *Magdeburg* in formation.
 
-Gonzalez held his saber in one hand and a pistol in the other. His expression was tense: one could see the opponent was well-prepared. Just looking at the proficiency with which they maintained formation, they must have practiced such maritime coordination countless times. If these three ships launched a pincer attack, the capture of the *Magdeburg* would be a matter of moments! Gonzalez noticed that the enemy had 4 cannons on deck, and additionally, a nameless square box on the poop deck—probably also a type of firearm. In terms of cannon numbers alone, the *Magdeburg* was already at a disadvantage.
+Gonzalez gripped his saber in one hand and a pistol in the other. His expression was grim. The opposing force was clearly well-prepared—the skill with which they maintained formation spoke of countless hours drilling such maneuvers. If these three vessels launched a coordinated attack, the capture of the *Magdeburg* would be a matter of minutes. Gonzalez noted that the enemy mounted four cannons on each deck, along with a strange square box fixed to the poop deck—probably some other type of weapon. In raw cannon numbers alone, the *Magdeburg* was already outmatched.
 
-The three sloops formed a triangle, loosely distributed around the *Magdeburg*. The cannons on their decks were stripped of covers. Clearly, once fire was opened, the slow and weakly armed *Magdeburg* would be battered to death by the opponent's cannon fire without even waiting for boarding.
+The three sloops arranged themselves in a loose triangle around the *Magdeburg*, their deck guns stripped of covers. Clearly, if firing commenced, the sluggish, lightly armed *Magdeburg* would be pounded to splinters by the enemy's crossfire long before any boarding could be attempted.
 
-Leibtrini was so scared his face turned pale, and he dove back into the poop cabin. Even an old soldier like Gonzalez knew that the current situation was completely controlled by the opponent.
+Leibtrini's face went pale with terror, and he retreated hastily into the poop cabin. Even an old soldier like Gonzalez recognized that the situation had slipped entirely into the enemy's control.
 
-"The opponent requests us to follow them forward. They will escort us to Lingao." The Captain watched the new signal flags hoisted by the opponent. "What shall we do?" he asked for instructions.
+"The enemy is requesting that we follow them forward. They will escort us to Lingao." The Captain watched new signal flags rise on the opposing vessels. "What are your orders?"
 
-The Merchant's lips were tight. The opponent's dominance on the sea made him very unhappy. But he knew this was not the time to fight for the Dutch right of freedom of navigation, just as the Company would not fight for religious freedom in Japan.
+The Merchant's lips pressed into a thin line. The enemy's dominance of these waters galled him deeply. But he knew this was not the moment to fight for Dutch freedom of navigation—just as the Company would not fight for religious freedom in Japan.
 
-He ordered: "Hoist the signal: We comply."
+"Hoist the signal: We comply."
 
-Thus, the *Magdeburg*, under the "escort" of three patrol boats, entered the Qiongzhou Strait.
+Thus the *Magdeburg*, under the "escort" of three patrol boats, entered the Qiongzhou Strait.
 
-**Report from Junior Merchant Van der Lanthroon of the Dutch East India Company ship *Magdeburg* to Governor-General De Carpentier of Batavia.**
+---
 
-Respected Excellency:
+**Report from Junior Merchant Van der Lanthroon of the Dutch East India Company ship *Magdeburg* to Governor-General De Carpentier of Batavia**
 
-I followed the orders of Your Excellency and our Masters to command the yacht *Magdeburg* to Lingao on the coast of Guangdong, China. To establish trade relations with the maritime group occupying the area, calling themselves Australians.
+*Respected Excellency:*
 
-God bless, our voyage was very smooth. On Monday, February 3rd, at the entrance of a narrow strait, we encountered the Australian naval warships. These were small warships, very similar in appearance to the coastal Bermuda sloops we often see in the English Channel. But they were more beautiful and faster than those ships. Every ship was mounted with cannons. The sailors were well-trained.
+Pursuant to the orders of Your Excellency and our Masters, I commanded the yacht *Magdeburg* to Lingao on the coast of Guangdong, China, to establish trade relations with the maritime power occupying that territory—those who call themselves Australians.
 
-The commander commanding these three warships ordered us to stop for inspection. I immediately refused this. Under the prestige of the Prince and the Company, the commander did not insist on his request but asked us to sail with his fleet to Lingao. Because the Qiongzhou Strait belongs to the Australian dominion—they call it the "Maritime Security Zone"—ships without permission cannot sail within this strait. Ships entering the strait for the first time must be escorted to Lingao to explain their purpose.
+God be praised, our voyage was very smooth. On Monday, February 3rd, at the entrance of a narrow strait, we encountered Australian naval warships. These were small vessels, very similar in appearance to the coastal Bermuda sloops we often see in the English Channel—though more beautiful and faster than those ships. Each mounted cannons, and their sailors were clearly well-trained.
 
-Under the escort of three warships, our ship arrived at Bopu Port in Lingao in the afternoon of the same day. Bopu Port is a beautiful new town. It is said to have 1,000 households. And stationed there are 2 companies of infantry and some artillery. The port is built very neatly.
+The commander of these three warships ordered us to stop for inspection. I refused this demand immediately. Under the prestige of the Prince and the Company, the commander did not press his demand, but instead requested that we sail with his flotilla to Lingao. The Qiongzhou Strait, he explained, falls within Australian dominion—they term it the "Maritime Security Zone." Ships lacking prior authorization may not sail freely within the strait. Vessels entering for the first time must be escorted to Lingao to explain their purpose.
 
-Particularly worth mentioning is a huge stone pier in the bay, the scale of which is unimaginable. The stone pier is built with lime and stone. Its top is paved very neatly, with a width that can accommodate 10 cavalrymen riding abreast. The foundation extending into the sea is even wider. The sailors and soldiers on our ship were amazed by this. Some said that this pier was not entirely man-made but built upon naturally piled stones. Even so, this engineering feat can be called a miracle.
+Under the escort of three warships, our ship arrived at Bopu Port in Lingao on the afternoon of that same day. Bopu Port is a handsome new township, said to contain 1,000 households. Two companies of infantry and some artillery are garrisoned there. The port is constructed with notable precision.
 
-On top of the entire stone pier stand at least ten cranes. Some are wooden, and some are built entirely of steel. Their sturdiness and magnificence left a deep impression on me. But the most peculiar thing is that very few of these cranes use human or animal power; most cranes use a complete set of complex machinery to drive them. The machines themselves run on some kind of fire machine we cannot understand—because we saw craftsmen continuously throwing coal into the furnace.
+Particularly worthy of mention is an enormous stone pier extending into the bay—its scale nearly defies imagination. Built of lime and stone, its surface is paved with exceptional smoothness, wide enough to accommodate ten cavalrymen riding abreast. The foundation extending into the water is wider still. The sailors and soldiers of our ship marveled at the sight. Some speculated that this pier was not entirely man-made but had been built upon naturally piled stones. Even allowing for that, the engineering feat deserves to be called miraculous.
 
-Besides the stone pier, there are multiple wharfs along the port. Every wharf has such cranes, and chimneys emitting black and white smoke can be seen everywhere. Many ships are anchored in the bay, mostly junks, but also some European-style ships. Opposite the stone pier, we saw the rumored Great Iron Ship. Its size is indeed quite astonishing. The largest ships in Europe, whether English or ours, are not so huge. Regrettably, we could not observe this ship closely—because that is a restricted area; even local people in Lingao cannot go near that ship without written permission from the Australians. The Australians call it the "Holy Ship"—its meaning is unclear.
+Atop the entire stone pier stand at least ten cranes. Some are wooden; others are built entirely of steel. Their sturdiness and magnificence left a deep impression upon me. But what struck me as most peculiar was that very few of these cranes employ human or animal power. Most are driven by a complex array of machinery. The machines themselves appear to run on some manner of fire-engine we cannot fathom—for we observed craftsmen continuously feeding coal into furnaces.
 
-All houses in the port are built of stone or brick, well-pointed, and the streets are flat and wide. Before we dropped anchor, we saw groups of soldiers on the wharf, all equipped with muskets. From the outside, they look more like a European army than an Asian one. One of the leading officers and his three companions came from what the Australians call the "Bopu Port Director." The Port Director did not appear due to illness, but he assigned customs officials to host us and give us as much care as possible.
+Beyond the stone pier, multiple wharves line the port. Every wharf possesses similar cranes, and chimneys belching black and white smoke are visible everywhere. Many vessels lie at anchor in the bay—mostly junks, though some European-style ships are also present. Opposite the stone pier, we beheld the rumored Great Iron Ship. Its size is truly astonishing. The largest ships of Europe—whether English or our own—do not approach such dimensions. Regrettably, we could not observe this vessel at close quarters: it lies within a restricted area. Even local residents of Lingao cannot approach without written permission from the Australians. They call it the "Holy Ship"—the precise meaning of this designation is unclear.
 
-When the *Magdeburg* entered the port, we fired a three-gun salute to pay respect to the city, and the other side immediately fired a salute in return. Under the guidance of the warships, we dropped anchor at the quarantine anchorage. At this time, a customs official immediately boarded the ship. He had explicit orders: require us to be quarantined on the ship for 20 days. During this period, no personnel may land. During this period, the ship must also undergo their treatment.
+All houses in the port are constructed of stone or brick, well-pointed, and the streets are flat and wide. Before we dropped anchor, we observed groups of soldiers assembled on the wharf, all equipped with muskets. In outward appearance, they resembled a European army more than an Asian one. One of the leading officers, accompanied by three subordinates, represented what the Australians call the "Bopu Port Directorate." The Director himself did not appear, being indisposed by illness, but he assigned customs officials to host us and extend every possible consideration.
 
-The customs official asked about our purpose for coming here, the number of people on board, and the types of cargo. I truthfully reported our mission. The other party showed great interest. However, he stated that before this, we must undergo isolation quarantine.
+When the *Magdeburg* entered the port, we fired a three-gun salute as a mark of respect to the city; the shore immediately returned a salute of equal measure. Under the guidance of the warships, we dropped anchor at the quarantine anchorage. A customs official immediately boarded the ship. He bore explicit instructions: all personnel must remain quarantined aboard for twenty days. During this period, no one may set foot on land. During this period, the ship itself must also undergo their prescribed treatment.
 
-Subsequently, they dispatched a small squad to board the *Magdeburg*. I think their attire and actions are worth mentioning in the report.
+The customs official inquired about our purpose, the number of personnel aboard, and the nature of our cargo. I reported our mission truthfully. The other party showed considerable interest. However, he stated that before any further proceedings, we must complete quarantine isolation.
 
-All personnel of the squad wore a kind of robe-like jumpsuit in the color of unbleached cloth, covering the whole body under the robe. They wore hoods like monks, with holes only for the eyes. But the robe did not hang down to the legs; it had trouser legs. The trouser legs were bound into a kind of yellow high boots that seemed to be made of leather. The boots were made very clumsily and widely, looking very ill-fitting.
+Subsequently, they dispatched a small work party to board the *Magdeburg*. I believe their attire and procedures merit detailed description in this report.
 
-Sleeves, trouser legs, all openings were tightly bound with cloth strips. Even the eyes were covered with glasses made of glass. They all emitted a peculiar strange smell, very irritating to the nose. It reminded me of those cities where plagues had occurred—this made me very worried. I asked repeatedly if there was a plague in this city. They assured me that this was just a preventive measure.
+Every member of the party wore a kind of robe-like garment in the color of unbleached cloth, covering their entire bodies. Upon their heads they wore hoods similar to those of monks, with openings only for the eyes. Yet unlike monastic robes, the garments included trouser legs, which were bound tightly into a kind of tall yellow boots that appeared to be made of leather. These boots were fashioned very clumsily and loosely, looking quite ill-fitting.
 
-*Note: Our Masters: Employees of the East India Company refer to the Company this way.*
+Sleeves and trouser legs—all openings—were tightly bound with cloth strips. Even the eye openings were covered with glass lenses. They all emitted a peculiar, acrid odor that was most irritating to the nose. It reminded me of cities where plague had struck—which made me very uneasy. I asked repeatedly whether pestilence afflicted this port. They assured me these were merely precautionary measures.
+
+---
+
+*Note: "Our Masters" is the term by which employees of the East India Company customarily refer to the Company.*
 
 (End of Chapter)

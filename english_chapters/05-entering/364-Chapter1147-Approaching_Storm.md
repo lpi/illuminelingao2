@@ -1,97 +1,103 @@
 # Chapter 1147 - Approaching Storm
 
-Weather in the Taiwan Strait was always unpredictable.
+Weather in the Taiwan Strait was forever capricious.
 
-In the weather station of Kaohsiung Port, the barometer reading was dropping continuously. The meteorologist looked at the curve on the recording paper with a grim expression.
+At the Kaohsiung Port weather station, the barometer needle crept steadily downward. The meteorologist studied the curve traced on the recording paper, his expression grim.
 
-"Typhoon is coming," he muttered.
+"Typhoon's coming," he muttered.
 
-Wei Bachi received the warning very quickly. He immediately ordered the activation of the emergency plan.
+Wei Bachi received the warning within minutes. He ordered immediate activation of the emergency plan.
 
-"Notify all construction sites to stop work immediately and secure equipment!"
-"Ships in port must reinforce moorings or go to safe anchorage to shelter!"
-"Refugee camps must reinforce housing; evacuate people from low-lying areas!"
+"Notify all construction sites to halt work and secure equipment!"
 
-Orders were transmitted rapidly via telephone and runners. The entire Kaohsiung City began to operate like a precision machine.
+"Ships in port must reinforce moorings or proceed to protected anchorage!"
 
-At the Customs Clock Tower, Zhong Lishi was also directing workers to secure the clock tower.
+"All refugee camps must shore up housing and evacuate residents from low-lying areas!"
 
-"Take down the scaffolding! Fast! The wind is coming!" Zhong Lishi shouted.
+Orders radiated outward via telephone and runners. The entire city of Kaohsiung began moving like a precision machine.
 
-Westerly and Cleadia also helped nervously. They had never experienced a typhoon, but seeing everyone's nervous expressions, they knew something big was happening.
+At the Customs Clock Tower, Zhong Lishi was already directing workers to batten down the structure.
 
-"Go back to your room! Don't come out!" Zhong Lishi ordered the two children. "Close the window shutters tight!"
+"Take down the scaffolding! Quickly now! The wind is coming!" Zhong Lishi shouted.
 
-"Yes, Dr. Zhong!" Westerly pulled his sister and ran towards the dormitory.
+Westerly and Cleadia pitched in, their movements anxious. They had never experienced a typhoon, but reading the tension on every face, they understood something formidable was approaching.
 
-Dark clouds rolled in, covering the sky. The wind began to howl, kicking up dust and sand. The sea in the distance turned a terrifying dark gray, waves crashing violently against the breakwater.
+"Get back to your room and don't come out!" Zhong Lishi ordered. "Close the shutters tight!"
 
-Huygens stood by the window of the trading house, looking worriedly at the changing weather outside.
-
-"Is this the 'typhoon' of the East?" he asked.
-
-"Yes, Mr. Huygens," a servant replied. "Please step away from the window. The wind will be very strong later."
-
-Soon, huge raindrops began to fall, hitting the roof with a crackling sound. The wind grew stronger, whistling like ghosts wailing.
-
-In the refugee camp, people were huddled in the reinforced longhouses, trembling. The roar of the wind outside made them fear the roof might be lifted at any moment.
-
-Wei Bachi sat in the command center at City Hall, listening to reports from various sectors.
-
-"Section A of the breakwater is damaged by waves!"
-"Roof of Warehouse No. 3 has been blown off!"
-"Water accumulation in the refugee camp command center!"
-
-"Don't panic! Handle according to the plan!" Wei Bachi commanded calmly. "Safety of personnel first!"
+"Yes, Dr. Zhong!" Westerly grabbed his sister's hand and they ran toward the dormitory.
 
 ---
 
-The power of nature was awe-inspiring. Even the "Australian" infrastructure appearing indestructible seemed fragile in the face of a typhoon.
+Dark clouds rolled in, devouring the sky. The wind began to howl, kicking sand and dust into spiraling columns. On the distant horizon, the sea had turned a menacing gray, waves hurling themselves against the breakwater with thunderous fury.
 
-But Wei Bachi wasn't worried. He knew typhoons were tests Kaohsiung had to face. As long as the core personnel and equipment were safe, losses could be rebuilt.
+Huygens stood by the trading house window, watching the changing sky with evident unease.
 
-The storm raged all night.
+"Is this the 'typhoon' of the East?" he asked.
 
-By dawn the next day, the wind and rain gradually subsided. The sun emerged from the clouds again, shining on the mess left behind.
+"Yes, Mr. Huygens," a servant replied. "Please step away from the window. The wind will grow much stronger soon."
 
-Wei Bachi walked out of City Hall to inspect the disaster situation.
+Before long, enormous raindrops began to fall, hammering the roof with a cacophony of snare-drum cracks. The wind intensified, shrieking like the wails of tormented spirits.
 
-Trees on the roadside were uprooted or snapped. Billboards and bamboo sheds were blown to pieces. Many roofs in the residential area had holes.
+In the refugee camps, people huddled in reinforced longhouses, trembling. The roar outside was so ferocious they feared the roofs might tear away at any moment.
 
-But the main buildings remained intact. The City Hall, Customs House, and trading house stood tall.
+Wei Bachi sat in the command center at City Hall, receiving a torrent of reports from every sector.
 
-"Report losses immediately!" Wei Bachi ordered.
+"Section A of the breakwater is taking wave damage!"
 
-Zhong Lishi also came out of the Customs House. He first checked the clock tower—fortunately, apart from some scaffolding being blown down, the main structure and the clock itself were undamaged.
+"The roof of Warehouse No. 3 has been blown off!"
 
-"Thank God," he breathed a sigh of relief.
+"Flooding in the refugee camp command center!"
 
-Then he thought of the two Dutch children. He hurried to their room.
+"Stay calm! Handle it according to plan!" Wei Bachi commanded with steady authority. "Personnel safety takes priority!"
 
-Westerly and Cleadia were huddled in a corner of the room, looking pale. The terrifying sound of the storm last night had kept them awake all night.
+---
 
-"Are you okay?" Zhong Lishi asked with concern.
+The power of nature inspired awe. Even Australian infrastructure, which seemed so indomitable, appeared fragile before the typhoon's onslaught.
 
-"We... we're fine," Westerly said, voice trembling. "Just... never seen such a terrifying storm."
+But Wei Bachi wasn't worried. He understood that typhoons were trials Kaohsiung would have to face again and again. So long as core personnel and equipment remained safe, any losses could be rebuilt.
 
-"It's over now." Zhong Lishi patted his shoulder. "You are safe."
+The storm raged throughout the night.
 
-Cleadia looked at the mess outside the window. "Is the city... destroyed?"
+By dawn the following day, wind and rain began to slacken. The sun emerged from behind tattered clouds, casting light upon a landscape of debris.
 
-"No, just some skin trauma," Zhong Lishi smiled confidently. "We will repair it very quickly."
+Wei Bachi strode out of City Hall to survey the damage.
 
-Indeed, recovery work began immediately. Under Wei Bachi's organization, soldiers, workers, and refugees were all mobilized to clear debris, repair houses, and drain water.
+Roadside trees had been uprooted or snapped like twigs. Billboards and bamboo sheds lay shattered. Many rooftops in the residential quarter gaped with holes.
 
-Steam cranes roared again, lifting fallen trees and beams.
+Yet the main structures stood firm. City Hall, the Customs House, and the trading house remained unscathed.
 
-Huygens witnessed this efficient disaster relief scene. He was shocked again. In Europe, such a disaster would leave a city paralyzed for weeks or even months. But here, everything was returning to order rapidly.
+"Report all losses immediately!" Wei Bachi commanded.
 
-"Their organization capability is terrifying," Huygens wrote in his diary.
+Zhong Lishi also emerged from the Customs House. His first destination was the clock tower—fortunately, aside from some collapsed scaffolding, the main structure and the clock itself were undamaged.
 
-In Anping, Li Siya also experienced this typhoon. The Zheng family's fleet suffered some losses in the storm, keeping Zheng Zhilong busy with damage control, temporarily ignoring her proposals.
+"Thank heaven," he breathed in relief.
 
-Li Siya looked at the calm sea after the storm, calculating her next move. The typhoon bought the Australians time but also exposed some weaknesses.
+Then his thoughts turned to the two Dutch children. He hurried to their room.
 
-She decided to go to Kaohsiung personally to see the post-disaster situation. Maybe in the chaos, she could find opportunities to infiltrate.
+Westerly and Cleadia were huddled in a corner, their faces pale. The terrifying cacophony of the storm had kept them awake through the night.
+
+"Are you all right?" Zhong Lishi asked, concern etched on his face.
+
+"We... we're fine," Westerly managed, voice still trembling. "It's just... we've never seen such a terrifying storm."
+
+"It's passed now." Zhong Lishi laid a reassuring hand on the boy's shoulder. "You're safe."
+
+Cleadia gazed at the wreckage beyond the window. "Is the city... destroyed?"
+
+"No—just some surface damage." Zhong Lishi smiled confidently. "We'll have it repaired in no time."
+
+And indeed, recovery operations commenced immediately. Under Wei Bachi's direction, soldiers, workers, and refugees were all mobilized—clearing debris, patching roofs, draining floodwaters.
+
+Steam cranes roared back to life, hoisting fallen trees and shattered beams.
+
+Huygens witnessed this efficient disaster response with something approaching disbelief. In Europe, a calamity of this magnitude would have paralyzed a city for weeks, even months. Yet here, order was returning at astonishing speed.
+
+"Their organizational capacity is terrifying," Huygens wrote in his diary that evening.
+
+In Anping, Li Siya had also weathered the typhoon. The Zheng family fleet suffered losses in the storm, and Zheng Zhilong was too busy managing the damage to spare thought for her proposals.
+
+Li Siya gazed out at the calm sea left in the storm's wake, calculating her next move. The typhoon had bought the Australians time—but it had also exposed certain vulnerabilities.
+
+She resolved to travel to Kaohsiung in person and observe the post-disaster situation. Perhaps, amid the chaos, she would find an opportunity to infiltrate.
 
 (End of Chapter)

@@ -6,13 +6,13 @@ Wei Aiwen hung up the phone and addressed the man seated across from him. "You h
 
 "So what do you intend to do? Send the adulterous couple to swing together?"
 
-"The Law Society will need to hold a meeting to discuss it. In the broad sense, this falls under *destruction of a military marriage*," said Ma Jia. "In the narrow sense, it's adultery. According to the *Six Codes*…"
+"The Law Society will need to hold a meeting to discuss it. In the broad sense, this falls under *destruction of a military marriage*," Ma Jia said. "In the narrow sense, it's adultery. According to the *Six Codes*..."
 
 "The saleswoman is indeed the sailor's wife, even though they never registered." Wei Aiwen paused, realizing this was beside the point. "Of course, we've never promulgated a *Marriage Law*. Call it de-facto status. Since they are de-facto spouses, the law should protect them—so this is clearly destruction of a military marriage."
 
-"First, for local natives and naturalized citizens, matrimonial issues are still governed by customary law or the *Great Ming Code*. Under our judicial system, however, the two are in a de-facto marriage, and a military marriage at that—that much is certain. Second, strictly speaking, the bastard's offense doesn't technically qualify as destruction of a military marriage. Article 259 of the *Criminal Law of the People's Republic of China* states: 'Whoever knowingly cohabits with or marries the spouse of an active-duty serviceman…' These two obviously did not cohabit or marry—they merely committed adultery. And there is no offense of 'adultery' in PRC law. The Republic of China did have one, though…"
+"First, for local natives and naturalized citizens, matrimonial issues are still governed by customary law or the *Great Ming Code*. Under our judicial system, however, the two are in a de-facto marriage, and a military marriage at that—that much is certain. Second, strictly speaking, the bastard's offense doesn't technically qualify as destruction of a military marriage. Article 259 of the *Criminal Law of the People's Republic of China* states: 'Whoever knowingly cohabits with or marries the spouse of an active-duty serviceman...' These two obviously did not cohabit or marry—they merely committed adultery. And there is no offense of 'adultery' in PRC law. The Republic of China did have one, though..."
 
-"Spare me your legal citations," Wei Aiwen coughed. He wore a crisp East German People's Army summer uniform, but with Lingao collar tabs and rank insignia, and a replica Waffen-SS belt. The effect was neat and efficient. His every gesture deliberately imitated a certain Teutonic decisiveness. "What does the Law Society plan to do with this case?"
+"Spare me your legal citations," Wei Aiwen coughed. He wore a crisp East German People's Army summer uniform, but with Lingao collar tabs and rank insignia, and a replica Waffen-SS belt. The effect was neat and efficient; his every gesture deliberately imitated a certain Teutonic decisiveness. "What does the Law Society plan to do with this case?"
 
 "That depends on whether the Executive Committee or the House of Elders is aiming to 'win hearts and minds' or to 'reform customs.'" Ma Jia blew a smoke ring, unhurried.
 
@@ -36,9 +36,9 @@ Wei Aiwen shook his head vigorously. "That would mean acquittal and release? Abs
 
 "We offer advisory opinions only. If you want a concrete view on behalf of the Law Society, most of us believe the law should not be overly harsh, yet enforcement must be rigorous. As they say, if the sentence calls for exterminating your whole family, we exterminate it; if it calls for acquittal, we acquit."
 
-Wei Aiwen nodded. "Get your people on this immediately. The Political Office's position is that the verdict must take full account of the sailors' sentiments…"
+Wei Aiwen nodded. "Get your people on this immediately. The Political Office's position is that the verdict must take full account of the sailors' sentiments..."
 
-"Understood. Your opinion will certainly be an important reference." Ma Jia picked up his issued knockoff BOSS briefcase. "To be frank, the new *Marriage Law* is right here in my bag. This is probably a good opportunity to announce it formally." A look of anticipation crossed his face. "Back in the day, the CCP's very first law was the *Marriage Law*. Truly visionary…"
+"Understood. Your opinion will certainly be an important reference." Ma Jia picked up his issued knockoff BOSS briefcase. "To be frank, the new *Marriage Law* is right here in my bag. This is probably a good opportunity to announce it formally." A look of anticipation crossed his face. "Back in the day, the CCP's very first law was the *Marriage Law*. Truly visionary..."
 
 Wei Aiwen didn't see why promulgating the *Marriage Law* first proved anyone visionary, but he gathered from the remark that Ma Jia's sympathies lay with the "reform customs" faction.
 
@@ -56,7 +56,7 @@ Wei Aiwen wrote the order and stamped it with the General Staff Political Office
 
 Ma Jia took the document back to the Tribunal office and summoned An Xi.
 
-"Xiao An, go to the Lingao County Yamen prison. Interrogate both suspects." He briefed him: "Focus on causes and consequences—especially how they got involved…"
+"Xiao An, go to the Lingao County Yamen prison. Interrogate both suspects." He briefed him: "Focus on causes and consequences—especially how they got involved..."
 
 An Xi looked puzzled. "That's simple enough. But the police investigation already confirmed the adultery. Do we really need more questions?"
 
@@ -66,7 +66,7 @@ An Xi's face went alternately red and white. Ever since climbing to the position
 
 "I was careless," An Xi said, flustered. "I'll go at once."
 
-"Wait." Ma Jia puffed leisurely on his cigar. "Xiao An, the facts of this case are straightforward and the trial itself shouldn't be difficult. But it's the inaugural case under our new *Marriage Law*. I'm assigning it to you—make sure you fire the opening shot well."
+"Wait." Ma Jia puffed leisurely on his cigar. "Xiao An, the facts of this case are straightforward, and the trial itself shouldn't be difficult. But it's the inaugural case under our new *Marriage Law*. I'm assigning it to you—make sure you fire the opening shot well."
 
 "Understood, understood." An Xi assented repeatedly and hurried out.
 
@@ -74,7 +74,7 @@ Ma Jia smiled faintly and picked up his PHS handset. This time he called Ji Xin.
 
 Ji Xin currently taught at Fangcaodi National School, but he remained active in the Law Society and did occasional work at the Tribunal. After returning from the Pearl River campaign, Ji Xin had formally registered a "Native Rights Protection Association" with the General Office, recruiting several transmigrators as members. At every House of Elders session he spoke on native-rights issues—though almost no one cared to listen.
 
-"…I'd like you to serve as defense counsel on this case." Ma Jia explained the details over the phone.
+"...I'd like you to serve as defense counsel on this case." Ma Jia explained the details over the phone.
 
 Ji Xin was silent for a moment. "The case itself isn't complicated. But is the Navy really set on executions?"
 
@@ -94,7 +94,7 @@ Ma Jia considered; Ji Xin had a point. "What's your suggestion?"
 
 "Let me recommend someone. How about Xu Ke?"
 
-"He's not on the Tribunal roster…"
+"He's not on the Tribunal roster..."
 
 Xu Ke was also a Law Society member, but he belonged to the Navy and worked in the Foreign Intelligence Bureau. Suddenly making him a judge struck Ma Jia as hard to justify.
 

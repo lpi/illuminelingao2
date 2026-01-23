@@ -1,10 +1,10 @@
 # Chapter 656 - Ramifications of the Prisoners
 
-Some proposed sending the prisoners to Sanya as miners, but many worried that with only a single battalion stationed there, a mutiny by these veteran soldiers could be difficult to contain. Moreover, the recent suppression of worker unrest had yet to fully settle, and stability remained a concern—adding more volatile elements was inadvisable.
+Some proposed sending the prisoners to Sanya as miners, but many worried that with only a single battalion stationed there, a mutiny by these veteran soldiers could prove difficult to contain. Moreover, the recent suppression of worker unrest had yet to fully settle, and stability remained a concern—adding more volatile elements would be inadvisable.
 
 A resolution was quickly reached: no prisoners would be absorbed into the military or sent to Sanya. Instead, all would be retained in Lingao as laborers. After several years of reform, each man would be assigned an appropriate future based on his individual circumstances.
 
-"If any prisoners are locals, I propose releasing them on the spot," Wu Nanhai said. "Since they have families and relatives here, holding them would do considerable harm to public sentiment. Let those who wish to leave go free, and give them a little travel money. That way, they can spread word of our power—and our benevolence."
+"If any prisoners are locals, I propose releasing them on the spot," Wu Nanhai said. "Since they have families and relatives here, holding them would cause considerable harm to public sentiment. Let those who wish to leave go free, and give them a little travel money. That way, they can spread word of our power—and our benevolence."
 
 "There seem to be local garrison soldiers and militia among the prisoners," Wu De noted.
 
@@ -16,9 +16,9 @@ He had first studied the existing labor allocation system in depth, concluding t
 
 However, Yang Yun had no intention of overhauling the entire system. After all, Wu De had built it, and he himself was new. Rashly revising a superior's policies would be unwise. Yang Yun had little faith in parliamentary democracy or individual rights; he was the sort who followed the center and leadership loyally so long as there was meat on the table.
 
-"With over ten thousand laborers about to arrive, I propose certain modifications to how we handle this workforce." He avoided words like "reform" or "improvement," using neutral terms instead. "Our current sixty-day quarantine policy is excellent for sanitary safety, but the tradeoff is inefficient use of labor."
+"With over ten thousand laborers about to arrive, I propose certain modifications to how we handle this workforce." He avoided loaded words like "reform" or "improvement," using neutral terms instead. "Our current sixty-day quarantine policy is excellent for sanitary safety, but the tradeoff is inefficient use of labor."
 
-Current policy had laborers and immigrants undergoing simple language and literacy lessons during quarantine, performing light handicrafts.
+Current policy had laborers and immigrants undergoing simple language and literacy lessons during quarantine while performing light handicrafts.
 
 "There's no need to confine these ten thousand for quarantine. Their nutrition and physical condition should be far better than the average refugees we take in. They have plenty of strength, and they know how to kill and burn. Make them do handicrafts and they'll neither want to nor do it well—pent-up energy will only cause trouble."
 
@@ -132,7 +132,7 @@ A murmur arose in the crowded meeting room: Wu Nanhai was known for his low prof
 
 Under the current system, the Navy managed the fisheries. Fishing vessels were also naval auxiliary craft—some dedicated solely to fishing operations. Besides the Navy's direct catches, there was also the "fishing tax" levied at the fishing grounds near Bopu: every private fishing boat had to surrender one-fifth of its catch.
 
-Whether from the Navy's haul or from fishermen's catch taxes, everything went to the seafood processing plant under the Agriculture Department. The total was quite substantial.
+Whether from the Navy's haul or from fishermen's catch taxes, everything went to the seafood processing plant under the Agriculture Department's purview. The total was quite substantial.
 
 Ye Yuming now joined in: "Our Tiandihui has established a fisheries association to improve fishermen's equipment and techniques. But the Navy's direct control of fishing grounds and boats is very detrimental to broader fisheries development and improvement. I fully support Comrade Wu—the Navy should no longer manage fisheries."
 

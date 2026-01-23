@@ -2,7 +2,7 @@
 
 The Qiongshan County Grain Levy Bureau was established in the northwest corner of the Qiongzhou Prefecture yamen within the county seat. This had originally been the Qiongzhou Tax Collection Office. Though Cheng Dong couldn't organize a complete tax bureau staff for every county, the structure, systems, and regulations for the tax bureau had long been established. Qiongshan County simply had to follow suit.
 
-The original main hall had been converted into a tax collection lobby. The newly constructed wooden counters had been installed. Part of the tile roof had been opened up to install skylights, and long windows had been cut into the walls to provide sufficient lighting. This served a dual purpose: adequate illumination to save candles and lamp oil, and—according to psychologist Jiang Qiuyan's theory—brightness enhanced people's sense of shame; dark environments made it easier to commit misdeeds with a clear conscience.
+The original main hall had been converted into a tax collection lobby. Newly constructed wooden counters had been installed. Part of the tile roof had been opened up to install skylights, and long windows had been cut into the walls to provide sufficient lighting. This served a dual purpose: adequate illumination to save candles and lamp oil, and—according to psychologist Jiang Qiuyan's theory—brightness enhanced people's sense of shame; dark environments made it easier to commit misdeeds with a clear conscience.
 
 File cabinets and drawers had been installed along the walls, and several clerks were busy pasting labels. Tax collection was organized by administrative district, using the "du" as the basic unit, with plans to switch to town-based units in the future.
 

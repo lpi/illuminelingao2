@@ -2,7 +2,7 @@
 
 The Revenue Clerk reported that the bow-materials shop was owned by a man named Huang Yunyu. The shop dealt mainly in horn, sinew, and other bow-making materials, and also produced a small quantity of trade bows. Because its business required frequent dealings with major local ranchers and hunters, they needed connections with local powers.
 
-Investigating along this thread, several suspicious individuals were quickly identified, and their relationships and activities were mapped out. The result was startling: multiple lines converged on one person—Kim Man-il, the island's wealthiest landowner.
+Investigating along this thread, several suspicious individuals were quickly identified, and their relationships mapped out. The result was startling: multiple lines converged on one person—Kim Man-il, the island's wealthiest landowner.
 
 This local tycoon's eagerness was deeply suspicious.
 
@@ -12,9 +12,9 @@ He then brought the gathered materials to Feng Zongze.
 
 Feng Zongze leafed through them. When he saw Pak Deokhwan's name appearing repeatedly, his eyelids twitched violently. He slammed the table: "Pak Deokhwan! Damn him!"
 
-He wasn't unaware that Pak Deokhwan had financial issues, but he'd refrained from investigating closely, thinking it would show people that working for them had its rewards. He'd assumed that given his great favor, Pak Deokhwan would know when to stop. He hadn't expected Pak Deokhwan to be so bold—even getting involved in a "counter-revolutionary uprising."
+He wasn't unaware that Pak Deokhwan had financial issues, but he'd refrained from investigating closely, thinking it would demonstrate that working for them had its rewards. He'd assumed that given his great favor, Pak Deokhwan would know when to stop. He hadn't expected him to be so bold—even getting involved in a "counter-revolutionary uprising."
 
-Thinking of the trust he'd placed in Pak Deokhwan, Feng Zongze felt quite betrayed. His face darkened; he said nothing, pondering whether to arrest Pak Deokhwan immediately. Liu Fuqing cautiously remained silent. After a long pause, Feng Zongze finally asked what the Political Security Bureau planned to do next.
+Thinking of the trust he'd placed in Pak Deokhwan, Feng Zongze felt quite betrayed. His face darkened as he pondered whether to arrest him immediately. Liu Fuqing cautiously remained silent. After a long pause, Feng Zongze finally asked what the Political Security Bureau planned to do next.
 
 "We've already arranged surveillance personnel to monitor the following individuals." He reported the specific surveillance measures in detail. "If there's any unusual activity, I'll report to you immediately."
 
@@ -38,7 +38,7 @@ The other two counties also received notice to raise their alert levels. Feng Zo
 
 ---
 
-Today was Sunday—ever since "Great Song" had arrived on the island, they'd begun implementing a calendar system completely different from the Ming's, including a seven-day weekly work schedule. Of course, neither naturalized citizens nor local Labor Service teams actually got Sundays off. But on this day, less critical departments and construction sites typically ended work two hours early. Markets were also organized in the city to sell various "Australian goods" shipped from Hong Kong—mainly daily necessities, cotton cloth, and silk. Mountain folk and herders would also come to sell various local products.
+Today was Sunday—ever since "Great Song" had arrived on the island, they'd begun implementing a calendar system completely different from the Ming's, including a seven-day weekly work schedule. Of course, neither naturalized citizens nor local Labor Service teams actually got Sundays off. But on this day, less critical departments and construction sites typically ended work two hours early. Markets were also organized in the city to sell various "Australian goods" shipped from Hong Kong—mainly daily necessities, cotton cloth, and silk. Mountain folk and herders would come to sell various local products as well.
 
 Organizing markets and stimulating commerce was a consistent approach in Committee local administration. It wasn't just about obtaining local goods and increasing the population's economic dependence; it also served to gather intelligence.
 
@@ -48,7 +48,9 @@ This restaurant and several nearby sundry shops had been established on Feng Zon
 
 Small peddlers carrying heavy bundles on back-frames arrived from all directions, bringing coarse grains, vegetables, seafood, fruits, and various local products. They set out their wares on spread-out wrapping cloths and competed in hawking their goods. Jang Seong-seol carried a Guangdong-made bamboo basket, wandering here and there, asking prices at stalls like a housewife shopping.
 
-Jang Seong-seol was now Pak Deokhwan's servant girl—actually a chess piece placed at his side by Cho Myeong-gwi's faction. As for the business about Lord Kim's illegitimate daughter being married off, that was pure fabrication. But until Pak Deokhwan lost his usefulness, they needed someone at his side to monitor and control him at all times.
+Jang Seong-seol was now Pak Deokhwan's servant girl—actually a chess piece placed at his side by Cho Myeong-gwi's faction. Ostensibly to cultivate him, covertly to monitor him. Beyond that, there was a second purpose: to turn him when the time came.
+
+The business about Lord Kim's illegitimate daughter being married off was pure fabrication. But until Pak Deokhwan lost his usefulness, they needed someone at his side to monitor and control him at all times.
 
 Since Cho Myeong-gwi had gone to the mountains to meet with Kim Dae-hae, word had quickly returned. The instruction was for Cho and his people in the city to make their move: first poison the wells, then commit arson. But no killing—unless it could be disguised as "sudden death" or an accident—because they needed to create the impression of "divine punishment." For this purpose, Kim Dae-hae would send several men into the city.
 

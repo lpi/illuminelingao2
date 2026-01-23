@@ -1,38 +1,38 @@
 # Chapter 713 - Battle of Dajiao and Shajiao
 
-Considering the Ming military's limited naval combat capability, large-scale naval battles were unlikely. More likely were shore bombardment and close-range support missions—and all Ming guns at the batteries exceeded carronade range. Therefore, only two squadrons were equipped with carronades. To avoid excessive casualties, Chen Haiyang ordered the squadrons equipped with 24-pounder long guns to commence firing first.
+Given the Ming military's limited naval combat capability, large-scale engagements at sea seemed unlikely. Shore bombardment and close-range fire support were the more probable scenarios—and all Ming guns at the batteries outranged the carronades. Therefore, only two squadrons carried carronade armament. To minimize casualties, Chen Haiyang ordered the squadrons equipped with twenty-four-pounder long guns to open fire first.
 
 "Should we deploy the mortar boats?" someone suggested.
 
-For this Pearl River campaign, the fleet had also brought specialized mortar boats—fire-support vessels purpose-built by the shipyard for the upcoming mainland offensive.
+For this Pearl River campaign, the fleet had brought specialized mortar boats—fire-support vessels purpose-built by the shipyard for the upcoming mainland offensive.
 
-The mortar boat was a small, single-masted vessel specially reinforced for shore bombardment. Its key feature was shallow draft, allowing it to sail into shoal waters for shelling. The hull resembled half a hazelnut shell, with sides built much higher than ordinary sampans to prevent capsizing under violent rocking. Along the bottom, parallel to the keel, ran a wooden leeboard as long as the hull to counter the lateral rocking caused by cannon recoil. In the center were one or two reinforced gun mounts for installing 10-inch or 15-inch mortars.
+The mortar boat was a small, single-masted craft reinforced specifically for shore bombardment. Its key feature was an exceptionally shallow draft, allowing it to venture into shoal waters for shelling. The hull resembled half a hazelnut shell, with sides built considerably higher than ordinary sampans to prevent capsizing under the violent rocking of each discharge. Along the bottom, parallel to the keel, ran a wooden leeboard as long as the hull itself—counteracting the lateral motion caused by cannon recoil. At the center sat one or two reinforced gun mounts for installing ten-inch or fifteen-inch mortars.
 
-Such mortar boats had participated in the assaults on the Bogue and Zhoushan forts during the First Opium War, demonstrating excellent effects against shore targets.
+Such vessels had participated in the assaults on the Bogue and Zhoushan forts during the First Opium War, demonstrating excellent effectiveness against shore positions.
 
-Lingao's mortar boats used iron-ribbed wooden-hull construction to simplify production and strengthen the structure. They had also been improved: besides mounting mortars or large-caliber howitzers, they could also launch Hale rockets after installing launch racks—multiple uses from a single vessel. The Ordnance Works had cast 20 mortars of 280mm caliber, installed on 10 mortar boats.
+Lingao's mortar boats employed iron-ribbed wooden-hull construction to simplify production while strengthening the structure. They had also been improved upon: besides mounting mortars or large-caliber howitzers, the boats could launch Hale rockets once fitted with launch racks—multiple uses from a single platform. The Ordnance Works had cast twenty mortars of 280mm caliber, installed across ten mortar boats.
 
-"Not yet." Chen Haiyang shook his head. Mortar boat ammunition capacity was limited, and resupply at sea was time-consuming and laborious. He needed to save the mortar boats for the main Yaniangxie Battery.
+"Not yet." Chen Haiyang shook his head. Mortar boat ammunition capacity was limited, and resupply at sea proved both time-consuming and laborious. He needed to save them for the main Yaniangxie Battery.
 
-Shi Fourteen's 5th Special-Service Boat Squadron advanced first. From the stern castle, Shi Fourteen issued orders. The entire squadron in column formation closed on Shajiao.
+Shi Fourteen's 5th Special-Service Boat Squadron advanced first. From the stern castle, Shi Fourteen issued his orders. The entire squadron formed a column and closed on Shajiao.
 
-In terms of range, the special-service boats' guns had no advantage. For good accuracy, they needed to close to about 400 meters. But in firepower and accuracy, the difference was incomparable.
+In terms of range, the special-service boats' guns held no particular advantage—they needed to close to roughly four hundred meters for acceptable accuracy. But in firepower and precision, the difference was incomparable.
 
-Each gun captain in the 5th Squadron raised their measuring instruments, gauging distance, wind direction, wind speed, and ship speed. They rapidly calculated aiming data on slide rules.
+Each gun captain in the 5th Squadron raised their measuring instruments, gauging distance, wind direction, wind speed, and ship motion. They rapidly calculated aiming data on slide rules.
 
 "All squadron, load explosive shells!" Shi Fourteen commanded. "Prepare to fire!"
 
-The battery garrison soldiers probably hadn't expected the enemy ships to close on the battery rather than quickly passing through the channel. According to their original assumptions, the distance between Dajiao and Shajiao was too great—the two batteries couldn't form effective crossing fire. When faced with direct attack, the thinly-manned battery immediately fell into confusion. Firing rhythm became erratic. The old guns already had slow loading and cooling times; poorly-trained gunners became flustered under pressure. Their fire grew increasingly ragged.
+The battery garrison soldiers had not expected the enemy ships to close on their position rather than simply racing through the channel. According to their original assumptions, the distance between Dajiao and Shajiao was too great—the two batteries could not form effective crossfire. When faced with a direct attack, the thinly manned battery immediately fell into confusion. Firing rhythm became erratic. The old guns already suffered from slow loading and cooling times; poorly trained gunners grew flustered under pressure, and their fire turned increasingly ragged.
 
-Shi Fourteen noted the varying sizes of splashing waterspouts and the chaotic trajectories of cannonball smoke. He realized the battery had very few Red Barbarian cannons capable of threatening the ships—most were probably large Foulangji guns or similar.
+Shi Fourteen noted the varying sizes of the waterspouts splashing around him and the chaotic trajectories traced by cannonball smoke. He realized the battery possessed very few Red Barbarian cannons capable of actually threatening the ships—most were probably large Foulangji guns or similar relics.
 
-White smoke shrouded Dajiao Battery. Cannonballs fell far from the special-service boats, raising waterspouts large and small—never mind aiming problems, the enemy was opening fire at targets not even in range yet. This was typical of how armed forces in this timeline used firearms. Though the spectacle looked impressive, many guns soon fell silent as barrels overheated. Only scattered guns continued firing, posing no threat whatsoever.
+White smoke shrouded Dajiao Battery. Cannonballs splashed down far from the special-service boats, raising waterspouts of varying height—never mind the aiming problems, the enemy was opening fire on targets not even within its range. This was typical of how armed forces in this era employed firearms: though the spectacle looked impressive, many guns soon fell silent as barrels overheated. Only scattered pieces continued firing, posing no threat whatsoever.
 
-"Helm twenty degrees right, all ships follow me!" Shi Fourteen saw his flagship was now less than 600 meters from the battery—at this range, the 24-pounder long guns had sufficient power and accuracy to bombard the fortification.
+"Helm twenty degrees right—all ships follow me!" Shi Fourteen saw that his flagship had closed to less than six hundred meters from the battery. At this range, the twenty-four-pounder long guns possessed sufficient power and accuracy to bombard the fortification effectively.
 
-A cannonball splashed down not far from the starboard side. The 5th Squadron followed the flagship's turn, all swinging right to present their port broadsides to the battery.
+A cannonball splashed down not far off the starboard quarter. The 5th Squadron followed the flagship's turn, all swinging right to present their port broadsides to the battery.
 
-"Port broadside, fire!" Shi Fourteen roared.
+"Port broadside—fire!" Shi Fourteen roared.
 
 *Lint Special 51* erupted in a tremendous roar. The simultaneous discharge of four port guns plus the bow and stern chasers made the entire hull shudder. Everyone aboard felt the ship heel sharply to starboard from the recoil. Planks and masts creaked and groaned. An acrid smell immediately permeated the deck.
 
@@ -42,37 +42,41 @@ Six explosive shells, trailing fire and smoke, landed on the beach before the ba
 
 ---
 
-The three special-service boats following the squadron flagship rapidly corrected distance. The second and third salvos struck Dajiao Battery in succession. Through the smoke, the dark flashes of explosions were faintly visible. After the entire 5th Squadron completed its bombardment, Dajiao Battery had fallen completely silent. When all three squadrons finished firing, the 5th Squadron's turn was just completing. Now heading south, it presented its unfired starboard broadside to Dajiao Battery for a second bombardment run.
+The three special-service boats following in the squadron flagship's wake rapidly corrected for distance. The second and third salvos struck Dajiao Battery in succession. Through the drifting smoke, the dark flashes of explosions were faintly visible. By the time the entire 5th Squadron completed its bombardment, Dajiao Battery had fallen completely silent. When all three squadrons finished their runs, the 5th Squadron's turn brought it back around—now heading south, it presented its unfired starboard broadside to Dajiao Battery for a second bombardment pass.
 
-Dajiao Battery had been hastily constructed. Its open-style earthwork couldn't withstand 24-pounder explosive shells. It was quickly silenced by continuous bombardment. The entire battery was engulfed in smoke and flames, completely combat-ineffective.
+Dajiao Battery had been hastily constructed. Its open-style earthwork could not withstand twenty-four-pounder explosive shells. Continuous bombardment quickly silenced it. The entire position vanished within smoke and flames, rendered completely combat-ineffective.
 
-Several sampans carried marines onto Dajiao Battery. The sandbag emplacement had half-collapsed. Guns lay scattered. The ground was strewn with bodies of soldiers killed by artillery fire. Most defenders had fled.
+Several sampans carried marines onto Dajiao Battery. The sandbag emplacement had half-collapsed. Guns lay scattered in the wreckage. The ground was strewn with the bodies of soldiers killed by artillery fire. Most defenders had fled.
 
-Next, the special-service boat squadrons bombarded Shajiao Battery. Shajiao's terrain was more favorable, but in the rush, troops had only built a single sandbag battery at the foot of Shajiao Hill. Under fire, it too quickly lost combat effectiveness. Marines swiftly landed at Shajiao, capturing all guns and taking 11 soldiers who hadn't escaped in time. Naval losses were extremely light: in two hours of combat, only 4 special-service boats were hit and 7 men wounded—no other casualties. The hit vessels had only taken small projectiles. The most serious damage was *Lint Special 75*, whose side hull was pierced by a 9-pounder ball—but navigation remained unaffected.
+Next, the special-service boat squadrons turned their attention to Shajiao Battery. Shajiao's terrain was more favorable, but in their haste, the troops had built only a single sandbag battery at the foot of Shajiao Hill. Under concentrated fire, it too quickly lost combat effectiveness. Marines swiftly landed at Shajiao, capturing all guns and taking eleven soldiers who had not managed to escape.
 
-Marines landing at both batteries dismantled all guns and loaded them onto sampans. Several captured pirate ships in the fleet were specifically designated as prize transports.
+Naval losses were extremely light. In two hours of combat, only four special-service boats had been hit and seven men wounded—no other casualties. The vessels struck had taken only small projectiles. The most serious damage was to *Lint Special 75*, whose side hull had been pierced by a nine-pounder ball—but her navigation remained unaffected.
 
-After eliminating the two batteries, Chen Haiyang directed the fleet to continue closing on the Bogue's main defensive position—Yaniangxie Mountain. He decided not to push directly through the eastern channel—both banks would subject them to crossing fire. Direct passage would mean many ships hit and unnecessary casualties.
+Marines landing at both batteries dismantled all captured guns and loaded them onto sampans. Several pirate vessels seized earlier in the campaign had been specifically designated as prize transports.
 
-From reconnaissance intelligence, Chen Haiyang knew the western channel had no defenses whatsoever. He decided to lead the fleet into the western channel to attack. Dahu Mountain Battery's guns posed no threat to his fleet. The Ming planned to use Dahu Mountain Battery to block enemy ships that had already broken through the eastern and western channels from continuing upriver. But Chen Haiyang's objective was to first seize the Bogue.
+After eliminating both batteries, Chen Haiyang directed the fleet to continue closing on the Bogue's main defensive position—Yaniangxie Mountain. He decided against pushing directly through the eastern channel, where both banks would subject his ships to crossfire. Direct passage would mean many vessels hit and unnecessary casualties.
 
-One special-service boat squadron entered the eastern channel first. Since Upper Hengdang Island's eastern battery was still incomplete and unmanned, Xu Tingfa had stationed 300 soldiers and some light artillery at the construction site to cover the island. Seeing crop-heads entering the eastern channel, the island garrison's commander hurriedly lit beacon fires to alert the Bogue Garrison.
+From reconnaissance intelligence, Chen Haiyang knew the western channel remained entirely undefended. He decided to lead the fleet through the western channel instead. Dahu Mountain Battery's guns posed no real threat. The Ming had planned to use that position to block enemy ships that had already broken through from continuing upriver—but Chen Haiyang's objective was to first seize the Bogue itself.
 
-At this moment, Xu Tingfa was at the field headquarters atop Wu Mountain. He watched helplessly as the distant Dajiao and Shajiao batteries fell three to four kilometers away. From the start, he hadn't committed many troops or guns to those two positions. In his and his colleagues' conception, the crop-heads would sail directly through the channel and thrust at the Upper Hengdang line to break through the river blockade. They hadn't expected them to systematically eliminate the two batteries first.
+One special-service boat squadron entered the eastern channel as a feint. Since Upper Hengdang Island's eastern battery remained incomplete and unmanned, Xu Tingfa had stationed three hundred soldiers with light artillery at the construction site to cover the island. When the crop-heads appeared in the eastern channel, the island garrison's commander hurriedly lit beacon fires to alert the Bogue Garrison.
 
-Now he watched the enemy take the eastern channel route—left open because the battery hadn't been completed. Xu Tingfa felt extremely anxious. Once through the eastern channel, only Dahu Mountain Battery could intercept enemy ships—and Dahu Mountain Battery was clearly undergunned. As a contingency plan, he ordered Chen Qian to immediately take the Bogue Garrison's naval ships to the western channel to engage the enemy.
+At this moment, Xu Tingfa was at the field headquarters atop Wu Mountain. He watched helplessly as the distant Dajiao and Shajiao batteries fell, three to four kilometers away. From the start, he had not committed many troops or guns to those positions. In his and his colleagues' conception, the crop-heads would sail directly through the channel and thrust at the Upper Hengdang line to break the river blockade. They had not expected their enemies to systematically eliminate both batteries first.
 
-The 13th Special-Service Boat Squadron under Li Guangfa entered the western channel. In column formation, it immediately came under fire from light artillery on the shore. But the small-caliber guns couldn't reach the ships. Li Guangfa ordered return fire. Several explosive shell salvos quickly silenced the guns behind the earthen walls. Then the special-service boats closed on the shore and used "typewriters" to sweep the troops massing on the embankment. A rain of lead bullets left the survivors strewn with corpses and routed into chaos. Resistance on Upper Hengdang Island's western shore was quickly crushed.
+Now he watched them take the eastern channel route—left open because the new battery had not been completed. Xu Tingfa felt a knot of anxiety tightening in his chest. Once the enemy passed through the eastern channel, only Dahu Mountain Battery could intercept their ships—and Dahu Mountain Battery was clearly undergunned. As a contingency, he ordered Chen Qian to immediately take the Bogue Garrison's naval ships to the western channel and engage the enemy.
 
-Chen Qian's ten twin-masted navy ships didn't charge directly into the western channel but formed a line south of Dahu Mountain. Ostensibly, they would deliver a devastating blow to any crop-head vessels emerging from the western channel. In reality, Chen Qian knew the enemy had superior ships and guns. Not daring to fight in the western channel, he planned to engage under the covering fire of Dahu Mountain Battery. But Li Guangfa wasn't eager to engage—Chen Haiyang's mission for him was to control the western channel and cover the marine landing on Upper Hengdang Island.
+The 13th Special-Service Boat Squadron under Li Guangfa entered the western channel. In column formation, it immediately came under fire from light artillery on the shore. But the small-caliber guns could not reach the ships. Li Guangfa ordered return fire. Several salvos of explosive shells quickly silenced the guns behind the earthen walls. Then the special-service boats closed on the shore and employed their "typewriters" to sweep the troops massing on the embankment. A rain of lead bullets left the survivors strewn among corpses; the rest routed into chaos. Resistance on Upper Hengdang Island's western shore collapsed within minutes.
 
-Upper Hengdang Island was the "key" to the Bogue defense system's gate. The defending side only needed to control this island to effectively block both the eastern and western channels. Therefore, Chen Haiyang's Bogue attack plan focused on capturing this island.
+Chen Qian's ten twin-masted navy ships did not charge directly into the western channel but formed a battle line south of Dahu Mountain. Ostensibly, they stood ready to deliver a devastating blow to any crop-head vessel emerging from the channel. In truth, Chen Qian knew the enemy possessed superior ships and guns. Not daring to fight within the channel's confines, he planned to engage under the covering fire of Dahu Mountain Battery instead.
 
-Since Upper Hengdang Island's western side had no battery—its defenses were weak—Chen Haiyang had the opportunity to directly seize the island. As the 13th Squadron's signal that they controlled the western channel went up, the landing craft belched thick black smoke. Loaded with marines and sailor landing troops, they headed for the western channel.
+But Li Guangfa had no eagerness to oblige. Chen Haiyang's mission for him was to control the western channel and cover the marine landing on Upper Hengdang Island—nothing more.
+
+Upper Hengdang Island was the key to the Bogue defense system's gate. The defending side needed only to hold this island to effectively block both eastern and western channels. Therefore, Chen Haiyang's Bogue attack plan centered on capturing it.
+
+Since Upper Hengdang Island's western shore lacked any battery—its defenses were weak—Chen Haiyang had the opportunity to seize the island directly. The moment the 13th Squadron's signal confirmed control of the western channel, the landing craft belched thick black smoke. Loaded with marines and sailor landing troops, they headed for the western approach.
 
 ---
 
-*Note: The Bogue's general geography: Dajiao and Shajiao are on the east and west sides at the river mouth. After ships pass through, proceeding upriver 3-4 kilometers brings them to the Lower Bogue waters. The Bogue's main section is Yaniangxie Island on the east side of the Pearl River, with Wu Mountain atop it. The Bogue defense system centers on Yaniangxie Island.*
+*Note: The Bogue's general geography—Dajiao and Shajiao lie on the east and west sides of the river mouth. After ships pass through, proceeding upriver 3-4 kilometers brings them to the Lower Bogue waters. The Bogue's main section is Yaniangxie Island on the east side of the Pearl River, with Wu Mountain atop it. The Bogue defense system centers on Yaniangxie Island.*
 
 *West of Yaniangxie Island is the Pearl River's main channel. Within the main channel opposite Wu Mountain are two small islands: Lower Hengdang and Upper Hengdang. The main channel is thus divided by these two islands into eastern and western channels.*
 

@@ -1,85 +1,87 @@
 # Chapter 1100 - Going to Taicang
 
-Gao Xuan drank the porridge and ate two *Youzhagui* (fried dough sticks), then looked reluctantly at the one belonging to Master Huang next to him. Master Huang always ate only one, saving the other to eat as a snack with tea in the afternoon.
+Gao Xuan drank the porridge and consumed two *youzhagui*, then cast a longing glance at the fried dough stick belonging to Master Huang beside him. Master Huang invariably ate only one, saving the second to enjoy with tea in the afternoon.
 
-Gao Xuan was young and had a good appetite after all; just one stick felt insufficient to sustain him, so he had to take a few more dried radishes and wrap them in paper, preparing to have them with tea in the afternoon.
+Gao Xuan was young and possessed a healthy appetite after all. A single stick felt insufficient to sustain him, so he wrapped several more dried radishes in paper, preparing to have them with his afternoon tea.
 
-The servants waited on them until they finished eating and collected the utensils. Everyone then got busy—some reviewing drafts, others writing. Gao Xuan was recruited as a creative writer, and his job was specifically to write novels for the *Classic of Mountains and Seas Pictorial*—and there was a specific topic: Zhao Yingong assigned him to write about strange phenomena. In the classification of the old spacetime, it would be fantasy novels.
+The servants waited until everyone finished eating and collected the utensils. Then the staff got down to work—some reviewing drafts, others writing. Gao Xuan had been recruited as a creative writer, and his job was specifically to write novels for the *Classic of Mountains and Seas Pictorial*. He had been assigned a particular topic: Zhao Yingong wanted him to write about strange phenomena. In the classification system of the old timeline, this would be fantasy fiction.
 
-Gao Xuan had never written a novel, but the Editorial Department had a library collecting various storytelling books since the Tang Dynasty. Most were bought by Zhao Yingong's people from bookstores in Nanjing and other places, and there were also some rare ones shipped from the Lingao printing house.
+Gao Xuan had never written a novel before, but the Editorial Department maintained a library collecting various storytelling texts dating back to the Tang Dynasty. Most had been purchased by Zhao Yingong's people from bookstores in Nanjing and elsewhere; some rarer volumes had been shipped from Lingao's printing house.
 
-What interested Gao Xuan most were a few locked bookcases. These bookcases held "Australian Rare Editions" not seen outside. These books were not allowed to be borrowed and could only be read in the reference room; copying required a special application.
+What most captivated Gao Xuan were several locked bookcases. These cabinets housed "Australian Rare Editions" unavailable anywhere else. These books could not be borrowed—they could only be read in the reference room, and copying required a special application.
 
-Among them, the one that attracted Gao Xuan the most was a sword immortal novel written by someone called "Master of the Huanzhu," which he simply couldn't put down—so much so that Gao Xuan would rush to the library to "study" every lunch break. The bookcase also contained many notebook novels specifically writing about ghosts and foxes. Among these, his favorites were the works of two "Australian Great Confucians," Ji Xiaolan and Pu Songling. Not only that, Gao Xuan often drew nutrients from their works. In fact, many of the so-called fantasy novels Gao Xuan wrote now were rewritten and expanded from these short stories.
+Among these treasures, the work that most enchanted Gao Xuan was a sword immortal novel by someone called "Master of the Huanzhu," which he simply could not put down. So consuming was his fascination that Gao Xuan rushed to the library to "study" during every lunch break. The bookcases also contained many notebook novels specifically featuring ghosts and foxes. His favorites among these were the works of two "Australian Great Confucians," Ji Xiaolan and Pu Songling. Not only that, but Gao Xuan frequently drew nourishment from their writings. In truth, many of the so-called fantasy novels he now produced were expansions and retellings of these short stories.
 
-Generally speaking, *Strange Stories from a Chinese Studio* (*Liaozhai Zhiyi*), *Notes from the Hut of Close Scrutiny* (*Yuewei Caotang Biji*), and *What the Master Would Not Discuss* (*Zi Bu Yu*) served as themes, while *Legend of the Swordsmen of Shu Mountains* and *Nineteen Swordsmen of Qingcheng* served as writing material and textbooks.
+Generally speaking, *Strange Stories from a Chinese Studio*, *Notes from the Hut of Close Scrutiny*, and *What the Master Would Not Discuss* served as thematic sources, while *Legend of the Swordsmen of Shu Mountains* and *Nineteen Swordsmen of Qingcheng* served as writing material and stylistic textbooks.
 
-Gao Xuan spread out the square-grid manuscript paper dedicated to the publishing house and began to write his draft. His task was three thousand words a day, sixty thousand words a month: the magazine's demand was huge, and the texts he wrote could not only be published in the *Classic of Mountains and Seas Pictorial* but also used to print pamphlets. The Tianshui Society irregularly published a 16-kai pamphlet called *Story Session* (*Gushi Hui*), exclusively publishing various street news and ghost stories, entirely in vernacular Chinese and vulgar characters, which was very popular among citizens.
+Gao Xuan spread out the square-grid manuscript paper specially provided by the publishing house and began drafting. His quota was three thousand words daily, sixty thousand words monthly. The magazine's appetite was enormous, and the texts he produced could not only appear in the *Classic of Mountains and Seas Pictorial* but also be printed as pamphlets. The Tianshui Society irregularly published a 16-kai pamphlet called *Story Session*, dedicated exclusively to various street news and ghost stories, rendered entirely in vernacular Chinese and vulgar characters. It enjoyed tremendous popularity among the citizenry.
 
-"Mr. Gao, tomorrow is the deadline for this issue. The Editor-in-Chief asks if your manuscript for 'Three Battles of Zombies in the Back Garden' can be ready by noon?" A child specifically responsible for running errands and passing messages for the editors came over to ask him—Zhao Yingong installed speaking tubes made of thick bamboo between floors to convey simple messages. But within the department, it relied on human messengers.
+"Mr. Gao, tomorrow is the deadline for this issue. The Editor-in-Chief asks whether your manuscript for 'Three Battles of Zombies in the Back Garden' can be ready by noon?" A child responsible for running errands and relaying messages for the editors came to inquire. Zhao Yingong had installed speaking tubes made of thick bamboo between floors to convey simple messages, but within the department, communication relied on human messengers.
 
-"Tell the Editor-in-Chief that I'll give him the first episode before noon. I think this project can be made into a serial."
+"Tell the Editor-in-Chief I'll have the first episode ready before noon. I think this project could work as a serial."
 
-Gao Xuan sent the child away and continued his Zombie War. Just as he wrote about the zombies rushing into the garden, the Green Bean Hero obtained the Repeater Grass, capable of firing four flying swords at a time, beating the zombies into flowing water and falling flowers. Suddenly, there was a loud roar outside, like a cannon shot, and a Red-eyed Giant Monster came from outside the wall...
+Gao Xuan sent the child away and resumed his Zombie War. Just as he wrote about zombies rushing into the garden and the Green Bean Hero obtaining the Repeater Grass—capable of firing four flying swords at once—and beating the zombies into a flowing rout, a thunderous roar suddenly erupted outside, like a cannon shot. A Red-eyed Giant Monster came from beyond the wall...
 
-He sighed as he wrote—although he didn't hate writing this, and earned a considerable income from it, finding himself feeding himself and his family with words for the first time, he ultimately felt that what he was doing was low-class and "insulting to gentility."
+He sighed as he wrote. Though he did not hate this work, and earned a considerable income from it—finding himself feeding both himself and his family with words for the first time—he still felt what he was doing was low-class and "insulting to gentility."
 
-In comparison, he envied the "Editors" in the "Current Affairs Department" (*Shiwen Bu*) next door. As the name suggested, the old gentlemen in the Current Affairs Department were all masters of the Eight-legged Essay. Not only were their Eight-legged Essays written like clusters of flowers, but their trial examination poems also rhymed perfectly. Although these old gentlemen had "observed the field" several times and remained *Xiucai*, their writing and commentary on current affairs essays were brilliant. Therefore, Zhao Yingong hired them specifically to compile collections of current affairs essays, collecting all kinds of papers from the child examination, provincial examination, metropolitan examination, to palace examination for them to compile and critique.
+By comparison, he envied the "Editors" in the neighboring "Current Affairs Department." As the name suggested, the old gentlemen staffing that department were all masters of the Eight-legged Essay. Their compositions were brilliant flowers; their examination poems rhymed to perfection. Though these old gentlemen had "observed the field" multiple times and remained *Xiucai*, their writing and commentary on current affairs essays were superlative. Thus Zhao Yingong had hired them specifically to compile collections of examination essays, gathering papers from the entire examination sequence—child examination, provincial examination, metropolitan examination, and palace examination—for them to organize and critique.
 
-Zhao Yingong gave a guiding speech to this group of old gentlemen. At that time, there were many famous masters compiling collections of current affairs essays. Although this group was brilliant, they couldn't compare with the appeal of those compiled by *Jinshi* and *Juren*. Therefore, Zhao Yingong suggested everyone take a unique approach: not just simply compiling and commenting on the winning papers, but also selecting some that didn't pass and analyzing why they didn't pass. Then, pick out some papers that everyone thought were good and should have passed but didn't, and publish a separate collection of comments. Every time there was an examination in the prefectural school, after the exam, *Tianshui Weekly* would also publish a special issue of current affairs essay commentary: containing analysis of exam questions, the life of the chief examiner, background environment analysis, etc.
+Zhao Yingong had delivered a guiding speech to this cohort of old gentlemen. At present, many famous masters compiled such essay collections. Though this group was talented, they could not match the appeal of compilations by *Jinshi* or *Juren*. Therefore, Zhao Yingong suggested taking a unique approach: rather than simply compiling and commenting on winning papers, they would also select failed submissions and analyze why they had not passed. Then they would identify papers that everyone agreed were excellent and should have passed but did not, publishing a separate commentary collection for these. Whenever the prefectural school held an examination, *Tianshui Weekly* would also publish a special issue of current affairs essay commentary—containing analysis of examination topics, biographies of the chief examiner, background environment analysis, and so forth.
 
-These old gentlemen usually made a living from this, but their fame was limited, and their income was not high. Now that someone provided a special place, with good food and drink for them to do this, their sense of self-existence increased greatly, and they were full of enthusiasm. Every day, they could be heard reciting those current affairs essays with "Zhi Hu Zhe Ye."
+These old gentlemen had always made their living this way, but their reputations were limited and their incomes modest. Now that someone provided a dedicated venue, complete with good food and drink, for them to pursue this work, their sense of self-importance had grown enormously. They threw themselves into their tasks with enthusiasm. Every day, one could hear them reciting those current affairs essays with their "Zhi Hu Zhe Ye" flourishes.
 
-Roughly, it was like the College Entrance Examination exercise sets or Civil Service Examination preparation materials of another spacetime.
+Roughly speaking, it was like the College Entrance Examination exercise sets or Civil Service Examination preparation materials of another timeline.
 
-However, no matter how insulting to gentility it was, strictly speaking, it didn't fall to the miserable level of ghostwriting letters for others. As for what he wrote in the Tianshui Society, he could simply avoid talking about it.
+Still, however insulting to gentility his own work might be, it did not quite sink to the miserable level of ghostwriting letters for hire. As for what he produced at the Tianshui Society, he could simply avoid discussing it.
 
-While the entire Tianshui Society was busy starting the day's work, Zhao Yingong had already boarded a boat to Taicang. Although the main figures of the Fushe were in Jiangnan and often gathered in Hangzhou, it was now the first lunar month. Except for Zhang Dai, Fang Yizhi, who had the best relationship with Wanbi Bookstore, had returned to his hometown in Tongcheng, and Sun Chun was in his home in Nanxun. Fortunately, he learned from Zhang Dai that Zhang Pu had returned from Beijing during the New Year and was at his home in Taicang.
+While the entire Tianshui Society busied itself commencing the day's labors, Zhao Yingong had already boarded a boat bound for Taicang. Though the Fushe's principal figures were scattered across Jiangnan and often gathered in Hangzhou, it was currently the first lunar month. Except for Zhang Dai, those with the closest ties to Wanbi Bookstore—Fang Yizhi—had returned to his hometown in Tongcheng, while Sun Chun was at his home in Nanxun. Fortunately, Zhao Yingong had learned from Zhang Dai that Zhang Pu had returned from Beijing for the New Year and was currently at his home in Taicang.
 
-Zhao Yingong hurriedly struck while the iron was hot and asked Zhang Dai to introduce him to Zhang Pu.
+Zhao Yingong hurried to strike while the iron was hot and asked Zhang Dai to introduce him to Zhang Pu.
 
-Zhang Dai was originally a lazy person, even less willing to move during the first lunar month. But usually frequenting the Wanbi Bookstore for leisure and gatherings, he felt he couldn't refuse, so he called his own boat and went to Taicang with Zhao Yingong.
+Zhang Dai was by nature an indolent man, even less inclined to bestir himself during the New Year period. However, having frequently enjoyed the leisure and gatherings at Wanbi Bookstore, he felt he could not refuse. So he summoned his own boat and accompanied Zhao Yingong to Taicang.
 
-Zhang Dai's boat was extremely exquisite: he was a person who valued enjoyment extremely, and even every grass and tree around him was carefully selected. Not only were the furnishings on the boat particular and the food exquisite, but even the serving maids and young servants were good-looking and understanding. However, Zhao Yingong had things on his mind, so how could he pay attention to these?
+Zhang Dai's vessel was exquisitely appointed. He was a person who valued enjoyment in the extreme—even every blade of grass and tree around him was carefully selected. The boat's furnishings were particular, the food refined, and even the serving maids and young servants were attractive and perceptive. Zhao Yingong, however, had matters weighing on his mind; how could he pay attention to such things?
 
-Seeing his solemn face and heavy heart along the way, Zhang Dai ordered a banquet to be set up on shore halfway through the mooring to drink and dispel his sorrow.
+Observing his solemn expression and heavy heart throughout the journey, Zhang Dai ordered a banquet prepared on shore at a halfway mooring point to drink and dispel his companion's gloom.
 
-He was an extremely clever person. Although he usually witnessed Zhao Yingong's various "Australian-style" enjoyments in Wanbi Bookstore—which were truly incomparable even to imperial relatives—deep down, this Master Zhao, who vaguely claimed to be a descendant of the Zhao Song dynasty, was an extremely frugal person, probably not born into a wealthy family.
+Zhang Dai was an exceedingly perceptive man. Though he had witnessed Zhao Yingong's various "Australian-style" luxuries at Wanbi Bookstore—incomparable even to those of imperial relatives—he sensed that deep down, this Master Zhao, who vaguely claimed descent from the Zhao Song dynasty, was an extremely frugal person, probably not born into a wealthy family.
 
-"Brother Yingong, this matter cannot be rushed," Zhang Dai probably knew the purpose of his trip was to help Sun Huodong, and comforted him, "Tianru (Zhang Pu) has always respected Grand Secretary Xu, and Sun Huodong is Grand Secretary Zhou's man. Presumably, he will definitely help."
+"Brother Yingong, this matter cannot be rushed," Zhang Dai said. He likely understood that the purpose of this journey was to help Sun Huodong, and offered comfort accordingly. "Tianru has always respected Grand Secretary Xu, and Sun Huodong is Grand Secretary Zhou's man. Presumably, he will certainly lend assistance."
 
-Zhao Yingong smiled forcedly and nodded—the possibility of Zhang Pu helping was indeed very high, but did he really have the ability to sway public opinion? Even if he did, could swaying public opinion change the current court deliberations? These were all unknowns. He sighed immediately: "I am just doing my humanly best."
+Zhao Yingong forced a smile and nodded. The probability of Zhang Pu helping was indeed quite high—but did he truly possess the ability to sway public opinion? Even if he did, could swaying public opinion actually alter the court's current deliberations? These remained unknowns. He sighed immediately: "I am merely doing what is humanly possible."
 
-"Exactly, as long as one does their humanly best, the mandate of heaven cannot be violated," Zhang Dai laughed. "Sun Huodong's future has its own mandate of heaven. We are just ordinary mortals, how can we peek into the secrets of creation? Let's drink first!"
+"Precisely. As long as one does what is humanly possible, the mandate of heaven cannot be violated," Zhang Dai laughed. "Sun Huodong's future lies in heaven's hands. We are merely ordinary mortals—how can we peer into creation's secrets? Come, let us drink first!"
 
-Zhao Yingong recalled his words and felt his mood change greatly. Instead of being anxious about whether the task could be completed, it was better to relax. He was just a transmigrator, not God. Even with cheats, he might not be invincible. Thinking of this, the lead weight that had been pressing on his heart, making him uninterested in doing anything, was lifted, and he felt relaxed. Looking at the winter scenery of Jiangnan slowly retreating outside the window, his interest in wine also arose abruptly.
+Zhao Yingong reflected on these words and felt his mood shift markedly. Rather than agonizing over whether the mission could be accomplished, it was better to relax. He was only a transmigrator, not God. Even with cheats, he might not prove invincible. With this thought, the lead weight that had pressed upon his heart—leaving him disinterested in everything—was lifted. He felt light. Watching the winter scenery of Jiangnan slowly recede beyond the window, his interest in wine suddenly kindled.
 
-"Good, let's drink," his mood relaxed, and his tone became brisk. "I wonder what good wine there is?"
+"Good, let's drink," he said, his tone brightening. "What fine wines have you prepared?"
 
 "Naturally, there is Lanling wine..."
 
-"That's not good," Zhao Yingong laughed. "I brought wine."
+"That won't do," Zhao Yingong laughed. "I brought wine."
 
-"Good, good," Zhang Dai was also very fond of wine—grape wine (wine) already existed in the Ming Dynasty, but it was an imported product enjoyed by a few. Even Zhang Dai rarely got it.
+"Excellent, excellent." Zhang Dai was also a great lover of wine. Grape wine already existed in the Ming Dynasty, but it was an imported luxury enjoyed by few. Even Zhang Dai rarely encountered it.
 
-At that moment, Zhao Yingong instructed Feng Hua to bring out the wine he brought on the boat.
+Zhao Yingong instructed Feng Hua to bring out the wine he had brought aboard.
 
-The wine was in a glass bottle, the crimson liquid flowing with light and color inside. Zhang Dai had drunk it at Wanbi Bookstore and knew this was the highest grade "Australian Wine," which was actually brewed by Xue Ziliang and Wu Nanhai at the farm when they had nothing to do.
+The wine rested in a glass bottle, the crimson liquid shimmering with light and color. Zhang Dai had tasted it at Wanbi Bookstore and knew this was the highest-grade "Australian Wine"—actually brewed by Xue Ziliang and Wu Nanhai at the farm as a pastime project.
 
-Lingao couldn't grow wine grapes, so they used table grapes. The taste was sweet and sour, more suitable for the taste of people at that time.
+Lingao could not grow wine grapes, so they used table grapes instead. The resulting flavor was sweet and tart, more suited to contemporary palates.
 
-Seeing the wine brought out, the maid immediately took out a set of "Australian Crystal Glasses" to pour wine for them. This set of glasses was specially bought by Zhang Dai from Zizhenzhai in Guangzhou through someone.
+Seeing the wine produced, a maid immediately brought out a set of "Australian Crystal Glasses" for pouring. This set had been specially purchased by Zhang Dai from Zizhenzhai in Guangzhou through an intermediary.
 
-"I wonder what there is to go with the wine?" Zhao Yingong asked.
+"What accompaniments have you prepared for the wine?" Zhao Yingong inquired.
 
-The maid serving at the side hurried replied: "There is duck."
+The maid attending them hastened to reply: "There is duck."
 
-Saying this, she set up cups and chopsticks, first serving small dishes for wine. Then warm dishes were served: a small porcelain jar with clear-stewed duck soup inside. The duck meat was fresh, tender, and smooth, and the soup was fragrant and mellow. A plate of lees-steamed whitefish; no wine lees were visible, but the fragrance of lees assailed the nose. There were a few slices of young ginger on the fish, and it tasted incredibly fresh and tender. It was done very brilliantly. The enjoyment of an aristocratic family was indeed extraordinary.
+She set out cups and chopsticks, first serving small dishes to accompany the wine. Then warm dishes followed: a small porcelain jar containing clear-stewed duck soup. The meat was fresh, tender, and smooth; the broth fragrant and mellow. A plate of lees-steamed whitefish arrived next—no wine lees were visible, yet the aroma of fermented grains filled the air. A few slices of young ginger adorned the fish, and it tasted impossibly fresh and tender. The preparation was masterful. The pleasures of an aristocratic household were indeed extraordinary.
 
-The two drank and talked, discussing mostly matters within the Fushe. Zhang Dai didn't like discussing court politics and state affairs, but he was quite interested in discussing the personnel within the society. Zhao Yingong intended to collect more information on the Fushe, so he didn't interrupt him.
+The two drank and conversed, mostly discussing matters within the Fushe. Zhang Dai had no taste for court politics or affairs of state, but he found personnel discussions within the society quite engaging. Zhao Yingong, intending to collect more intelligence on the Fushe, did not interrupt him.
 
-From Zhang Dai's mouth, he learned many details about the establishment and holding of meetings of the Fushe, as well as the political aspirations, personalities, and relationships of the main figures in the Fushe. This was extremely useful material for his future work in the court.
+From Zhang Dai's lips, he learned many details about the Fushe's establishment and the conduct of its meetings, as well as the political aspirations, personalities, and relationships of its principal figures. This was extremely valuable material for future court operations.
 
-Zhang Dai drank a few cups and was already slightly tipsy: farm wine had a lot of white sugar added as an auxiliary for fermentation because it was brewed from table grapes, so it went down easily but the alcohol content was not low.
+A few cups in, Zhang Dai grew slightly tipsy. The farm wine, brewed from table grapes, required the addition of generous white sugar as a fermentation aid; it went down easily but possessed deceptively high alcohol content.
 
-When asked about Zhao Yingong's future plans, Zhang Dai advised him to try to falsely claim a native place in Jiangnan to participate in the provincial examination.
+When asked about Zhao Yingong's future plans, Zhang Dai advised him to try falsely claiming native status in Jiangnan in order to participate in the provincial examination.
+
+(End of Chapter)

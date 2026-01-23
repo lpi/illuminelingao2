@@ -1,175 +1,183 @@
-# Chapter 641 Encounter Battle
+# Chapter 641 — Encounter Battle
 
-The post road began to gradually turn from the seaside towards the interior, and they walked for a long time. He Rubin saw the sun was already slanting west, estimating it was around the beginning of *Shen* hour (3 PM). He looked around; far and near were undulating hills and mountains. Not far from the post road was a small hill, lush with grass and trees. He pulled the reins, riding his horse up a small hillside beside the post road. His personal guards and generals hurriedly followed.
+The post road curved gradually inland from the coast, and they had been marching for hours. He Rubin gauged the sun's westward slant—roughly the beginning of *shen* hour, around three in the afternoon. Rolling hills and low mountains stretched in every direction; not far from the road rose a small hill, lush with grass and trees. He drew on his reins and guided his horse up a slight rise beside the post road, his personal guards and officers scrambling to follow.
 
-He rode a Mongolian steed, very spirited and handsome. The saddle, bridle, and stirrups were all made of brass, polished shining bright by personal guards before departure, dazzling in the sunlight. Holding the reins in his left hand and a whip in his right, watching the endless stream of men, horses, and banners advancing beside him, a feeling of smug satisfaction filled his chest.
+He sat astride a Mongolian steed, spirited and handsome. The saddle, bridle, and stirrups were all of polished brass, buffed to a shine by his guards before departure and now dazzling in the afternoon light. Reins in his left hand and whip in his right, he surveyed the endless stream of men, horses, and banners advancing below him, and a surge of smug satisfaction swelled in his chest.
 
-"Lieutenant Colonel Tang!" He called out.
+"Lieutenant Colonel Tang!" he called out.
 
 "This humble general is here!"
 
-"How far is this place from Chengmai?"
+"How far to Chengmai?"
 
-"Reporting to Commander-in-Chief, there are still thirty *li*." Tang Yunwen clasped his hands on horseback. "This place is named Shishan."
+"Reporting to the Commander-in-Chief—thirty *li* remain." Tang Yunwen clasped his hands on horseback. "This place is called Shishan."
 
-He Rubin glanced at this small hill, about a hundred *zhang* from the post road. It was a good place to control the post road. If the Hair Bandits ambushed men and horses here, he would inevitably have to undergo a hard battle to pass. However, scouts had just explored it, and there were no ambush troops here.
+He Rubin studied the small hill, perhaps a hundred *zhang* from the road. It would make an excellent position from which to control the post road. Had the Hair Bandits laid an ambush here, his army would have faced a hard fight before passing. But the scouts had already swept the area—there were no enemy troops in wait.
 
-"The Hair Bandits do not understand war." He Rubin commented. "If a camp were set up here with men guarding it, our army would have to capture this hill first before continuing the advance."
+"The Hair Bandits do not understand warfare," He Rubin remarked. "Had they established a camp here with men to guard it, we would have been forced to take this hill before advancing further."
 
-"What Your Excellency says is extremely true." Chang Qingyun's face was covered in dust, and his buttocks were rubbed sore, but he still followed closely behind He Rubin's headquarters, not staying in the Old Camp column. He hoped to say a few words at such times to show his knowledge and attitude of "diligence and loyalty."
+"What Your Excellency says is most astute." Chang Qingyun's face was caked with dust, and his buttocks were rubbed raw, but he had insisted on following close behind He Rubin's headquarters rather than riding with the Old Camp column. He hoped that speaking up at moments like these would demonstrate both his tactical knowledge and his attitude of diligence and loyalty.
 
-"The terrain here is critical. Set up a Supply Depot here!" He Rubin ordered.
+"The terrain here is critical. Establish a Supply Depot at this location!" He Rubin ordered.
 
-The strategy decided for the suppression campaign was a long siege, so the food supply for more than twenty thousand men was a very critical matter. The most convenient sea transport was unable to ship grain due to the Hair Bandits' "strong ships and fast cannons," and land transport was always quite troublesome regardless of distance, especially given the terrible condition of Hainan's post roads. Relying on conscripted laborers to carry loads on shoulders and push carts for hundreds of *li* to supply grain was very difficult. Therefore, the Ming army adopted the model of setting up Supply Depots segment by segment for layered transport.
+The campaign strategy called for a prolonged siege, so provisioning more than twenty thousand men was a matter of paramount importance. Sea transport, the most convenient option, was closed to them—the Hair Bandits' "strong ships and swift cannons" ruled those waters. Land transport over Hainan's abysmal post roads was notoriously difficult, whether over short distances or long. Relying on conscripted laborers to haul grain on their shoulders and push carts for hundreds of *li* was a recipe for disaster. Thus, the Ming army had adopted a layered system of Supply Depots, each one transshipping provisions to the next along the route.
 
-Shishan had certain terrain advantages and the distance was moderate; it was one of the best locations to establish a transit Supply Depot.
+Shishan possessed both defensible terrain and appropriate distance; it was an ideal location for a transit depot. He Rubin immediately ordered a Chiliarch to take five hundred soldiers and establish a camp here, garrisoning it as a grain transfer station. He also planned to set up a second depot inside Chengmai's county seat once the siege was lifted. Establishing a depot every forty or fifty *li*, each with its own garrison, would not only keep provisions flowing to the army but also secure his rear.
 
-Immediately, he ordered a Chiliarch to lead five hundred soldiers to set up a camp and establish a Supply Depot here, responsible for transshipping grain. He also planned to set up a second transit Supply Depot inside Chengmai County seat after lifting the siege of Chengmai. This way, establishing a Supply Depot every forty or fifty *li* with garrisoned soldiers would not only continuously transport provisions to the army but also ensure the safety of his rear route.
+The grand army encamped at Shishan that evening. With Hair Bandit troops still outside Chengmai's walls, He Rubin decided to rest here for one night, allowing the soldiers to recharge before tomorrow's arrival. Better this than to march hungry and exhausted soldiers into battle against a fresh and waiting enemy; even a minor defeat beneath the city walls would devastate morale.
 
-The grand army subsequently camped at Shishan. With Hair Bandit troops outside Chengmai County seat, He Rubin decided to rest here for one night to let the soldiers recharge their energy before reaching Chengmai tomorrow. This was to avoid a hungry and exhausted army being unable to withstand the fresh and waiting Hair Bandits; suffering a small defeat under the city walls would be very bad for morale.
+"Tomorrow afternoon, our army will arrive before Chengmai," He Rubin told his gathered generals and private secretaries at the evening meeting. "According to the city's urgent dispatches, the Hair Bandits have constructed earthworks and established a camp outside the walls. With perhaps two thousand men and artillery, their defenses must be substantial. But our army must take them in one vigorous effort—we cannot afford a setback!"
 
-"Tomorrow afternoon, our army will arrive under Chengmai City." He Rubin said to the generals and private secretaries at the evening meeting. "According to the Chengmai urgency report, the Hair Bandits have already built earthworks and set up a camp under the city. With about two thousand men and cannons, their defense must be solid. Our army must take it in one vigorous effort, allowing no setbacks!"
+"Yes!" the generals answered in thunderous unison.
 
-"Yes!" The generals answered loudly in unison.
+Zhao Ruyi spoke up: "Local officials are notorious for concealing failures and embellishing successes. Whenever rebels or bandits appear, they invariably exaggerate their numbers ten or even several dozen times. Even if there are more than two thousand men in their camp, the majority are most likely coerced commoners. My soldiers will break them in a single drum beat."
 
-Zhao Ruyi said: "Local officials conceal faults and decorate merits. Whenever there are rebels or bandits, they always exaggerate ten or several dozen times. Even if there are more than two thousand men in their camp, they are mostly likely coerced commoners. My soldiers will surely take it in one drum beat."
+"What Your Excellency says is most true. However, caution remains the best policy." He Rubin turned to the Central Army Garrison Commander. "General Ye, bring me the latest urgent dispatch from Chengmai."
 
-"What Your Excellency says is extremely true. However, caution is still the best policy." He Rubin asked the Central Army Garrison Commander Ye Zhengfang, "General Ye, bring the latest urgency report from Chengmai."
+Ye Zhengfang shook his head. "Reporting to Your Excellency—Chengmai's dispatches have not arrived for three or four days. I fear the Hair Bandits have completely encircled the city and severed all traffic."
 
-Ye Zhengfang said: "Reporting to Your Excellency, Chengmai's urgency reports haven't arrived for three or four days. I fear the Hair Bandits have already besieged the whole city and cut off traffic."
+"In that case, we must exercise even greater caution!" He Rubin felt an unease he could not quite name settling in his gut. "Send more scouts tomorrow!"
 
-"In that case, we must be even more cautious!" He Rubin felt a vague uneasiness in his heart. "Send more scouts tomorrow!"
+---
 
-The sun shone overhead, scorching hot.
+The sun blazed overhead, scorching and relentless.
 
-Extra-numerary Squad Leader Zhong Xiao didn't know how many times he had taken the sun-baked helmet off his head. He stopped his horse in the shade of a tree by the small road, and the few cavalrymen behind him followed.
+Extra-numerary Squad Leader Zhong Xiao had lost count of how many times he had removed his sun-baked helmet. He halted his horse in the shade of a tree beside a narrow road, and the few cavalrymen behind him followed suit.
 
-"Squad Leader! Why aren't we moving?" A brother under his command asked.
+"Squad Leader! Why are we stopping?" one of his men asked.
 
-"Move my ass, it's so hot. This ghostly place! Rest a while first!" Zhong Xiao cursed. His armor was not only hot but also deadly heavy under the sun, and the leather bindings constantly emitted a disgusting stench. He was ordered to lead a few brothers to act as scouts, investigating enemy situations at any time.
+"Move my ass—it's too damn hot. This ghostly place!" Zhong Xiao cursed. His armor was not only roasting him alive but was also crushingly heavy under the sun, and the leather bindings reeked with a disgusting stench. He had been ordered to lead a few men to act as scouts, investigating any signs of the enemy.
 
-He only felt better after taking off his helmet. He couldn't help sighing. Fighting wars was truly a tormented matter; not to mention the fear, just this marching claimed half his little life.
+Only after removing his helmet did he feel any relief. He sighed heavily. Fighting wars was truly a tormented existence—fear aside, the marching alone claimed half his life.
 
-"Squad Leader, let this small one hold this helmet." A personal soldier surnamed Xu beside him said fawningly.
+"Squad Leader, allow this small one to hold that helmet." A soldier surnamed Xu beside him spoke up obsequiously.
 
-"Good, take it." Zhong Xiao threw the helmet into his hands. "Daddy needs to relax! This ghostly place, can't even find anyone to ask for a mouthful of water."
+"Good, take it." Zhong Xiao tossed the helmet into his outstretched hands. "Daddy needs to relax! This ghostly place—can't even find someone to beg a mouthful of water from."
 
-The water they brought had been drunk completely just now. For a while, they couldn't see any place to replenish fresh water.
+The water they had brought was long since consumed. There was no sign of any place to replenish it.
 
-"There's water here." Soldier Xu hurriedly handed over a bamboo tube. "Before heading out today, this small one brought a few extra. You are our backbone; nothing can go wrong with you."
+"There's water here." Soldier Xu hurriedly produced a bamboo tube. "This small one brought extras before heading out today. You are our backbone—nothing can go wrong with you."
 
-"Good lad, really capable!" Zhong Xiao praised. The other soldiers secretly cursed him for being shameless—this person always wore a smiling face, respectfully serving the Squad Leader as comfortably as a master, fishing for quite a few benefits for himself.
+"Good lad, truly capable!" Zhong Xiao praised him. The other soldiers inwardly cursed Xu as shameless—always wearing that smiling face, serving the Squad Leader as attentively as if he were a master, fishing for more than his share of benefits.
 
-Zhong Xiao's small squad of cavalry separated from the main unit, left the post road, and set out south to patrol and investigate any signs of enemy activity.
+Zhong Xiao's small squad of cavalry had separated from the main force, left the post road, and set out south to patrol for any signs of enemy activity.
 
-They walked more than ten *li* in one breath. Along the way, except for occasionally seeing a few commoners working in the fields, they didn't see a single person. He wanted to catch a few commoners to question, but as soon as the commoners saw helmeted and armored government soldiers, they immediately fled crawling and rolling. Horses were hard to chase in paddy fields, making him angry enough to curse their mothers.
+They had traveled more than ten *li* in one stretch. Along the way, they had occasionally seen a few peasants toiling in the fields, but not a single other soul. Zhong Xiao wanted to seize a peasant for questioning, but the moment the farmers spotted helmeted and armored government soldiers, they fled, scrambling and crawling away. Horses were impossible to chase through the paddies, which made him angry enough to curse their mothers.
 
-Since he couldn't catch commoners to question, he had to lead his brothers to ride slowly forward. Accustomed to the densely populated Guangdong, arriving in Hainan he felt it was unusually desolate here. Everywhere was uncultivated wasteland, villages along the way were scarce, and when encountering a few villages, the commoners inside had long fled clean with their valuables.
+Since he could not catch anyone to interrogate, he had to lead his men onward at a slow pace. Accustomed to the dense population of Guangdong, arriving in Hainan felt like entering a wasteland. Uncultivated land stretched everywhere. Villages along the way were few and far between, and when they encountered one, the inhabitants had long since fled with their valuables.
 
-"Where is there any trace of Hair Bandits!" Zhong Xiao cursed. "They are probably eating, drinking, and having fun at Bopu, sleeping with little wenches right now!"
+"Where are these Hair Bandits hiding?!" Zhong Xiao cursed. "They're probably eating, drinking, and making merry at Bopu right now, sleeping with little wenches!"
 
-"Squad Leader speaks truly!" The personal soldier surnamed Xu echoed. "How dare the Hair Bandits come out to fight; they only dare to fire firearms from afar."
+"Squad Leader speaks truly!" Soldier Xu echoed. "How would Hair Bandits dare come out to fight? They can only fire their guns from afar."
 
-"Go, let's go look by the woods on that hill over there!" Zhong Xiao's spirit lifted a lot after drinking water.
+"Come on—let's go look at that wooded hill over there!" His spirits lifted after drinking, Zhong Xiao pointed toward a small rise in the distance.
 
-"Southeast, 4 o'clock direction, 500 meters. Five enemy cavalry! Moving northwest!" A designated marksman observing from a big tree reported in a low voice.
+---
 
-Chen Sigen had originally fallen asleep a bit—hearing the report, he slowly turned his body and moved to the observation position. He lay in ambush in a foxhole on this small hill with three scouts observing the surrounding movement since last night.
+"Southeast, four o'clock direction, five hundred meters. Five enemy cavalry, moving northwest!" A designated marksman observing from a large tree reported in a low voice.
 
-The order given to him was to eliminate all government army units of fewer than ten people appearing within their patrol range. Suspicious persons, even if not in government army attire, could also be captured or killed.
+Chen Sigen had nearly drifted to sleep. Hearing the report, he slowly shifted to the observation position. He had been lying in ambush in a foxhole on this small hill with three scouts since the previous night, monitoring the surrounding area.
 
-Due to a lack of mobility, the Special Reconnaissance Team's screening patrol could only rely on two legs. Although Special Reconnaissance Team members had several times the physical strength and endurance of ordinary people, intercepting small groups of scout cavalry in a wide area was still quite strenuous.
+His orders were simple: eliminate all government army units of fewer than ten men appearing within their patrol range. Suspicious persons, even those not in government army attire, could also be captured or killed.
 
-Bei Wei decided to adopt a sector responsibility system, dividing the screening area into sectors. Every four men formed a small team, with every 2 teams responsible for a small sector. The 2 teams took turns conducting ambush stakeouts and armed patrols. Each small team used walkie-talkies to maintain contact with each other, reporting situations at any time. If encountering enemies far beyond SKS rifle range or large numbers of government troops, they would only report their movements, leaving them to be dealt with by the specialized Mobile Team—composed of motorcycles and agricultural vehicles mounted with machine guns.
+Due to their lack of mobility, the Special Reconnaissance Team's screening patrols had to rely on two legs. Although the team's members possessed several times the endurance of ordinary men, intercepting small groups of scout cavalry across a wide area was still exhausting work.
 
-Chen Sigen led his men to choose a commanding height here and set up an observation post. One soldier observed the surroundings with binoculars from the branches at the top of a big tree.
+Bei Wei had adopted a sector responsibility system, dividing the screening area into zones. Every four men formed a small team, with every two teams responsible for one zone. The teams alternated between ambush stakeouts and armed patrols. Each team used walkie-talkies to maintain contact, reporting developments in real time. If they encountered enemies beyond SKS rifle range or large groups of government troops, their role was limited to observation—they would report movements and leave the actual engagement to the specialized Mobile Team, composed of motorcycles and agricultural vehicles mounted with machine guns.
 
-He took out his binoculars and observed according to the sentry's indication: 500 meters away, indeed five Ming cavalrymen were walking over listlessly. Their armor, helmets hanging on saddles, and waist sabers all explained their identity.
+Chen Sigen and his men had chosen this commanding height for their observation post. One soldier watched the surroundings with binoculars from a perch in the high branches of a large tree.
 
-"Don't rush, they are walking towards us. Open fire at 100 meters." Chen Sigen ordered. "Notify Team 1! Tell them to pay attention."
+He took out his own binoculars and observed according to the sentry's indication: five hundred meters away, five Ming cavalrymen were indeed walking toward them, listless and unsuspecting. Their armor, helmets dangling from saddles, and waist sabers confirmed their identity.
 
-Seeing the five enemy riders walk to less than 100 meters away, Chen Sigen made a "prepare to fire" hand signal. Then he pulled the SKS in his hand to his eyes, carefully aiming at the leading rider who looked like an officer.
+"Don't rush—they're walking toward us. Open fire at one hundred meters," Chen Sigen ordered. "Notify Team 1. Tell them to stay alert."
 
-Just as Zhong Xiao looked into the distance again, a crisp gunshot rang in his ears.
+He watched the five riders approach until they were less than one hundred meters away, then made a "prepare to fire" hand signal. He raised his SKS to his eye, carefully aiming at the leading rider—the one who looked like an officer.
 
-A bullet flew past his ear. Zhong Xiao was greatly shocked: *There actally are Hair Bandits ambushing here!* He dared not think more, hurriedly turning his horse's head prepared to flee for his life.
+---
 
-At this time, several more gunshots rang out. Two cavalrymen beside him fell off their horses. Soldier Xu, who was chattering just now, was already lying on the ground with half the back of his head peeled open, blood and brains flowing all over the ground. Zhong Xiao was so scared he almost fell off his horse.
+Just as Zhong Xiao lifted his gaze to scan the distance, a crisp gunshot cracked in his ears.
 
-"Go quickly!" His body crouched low, hugging the horse's neck, and whipped the horse's rump.
+A bullet whipped past his head. Zhong Xiao's heart nearly stopped: *Hair Bandits ambushing here!* He didn't dare think further—he yanked his horse's head around, preparing to flee for his life.
 
-"Bastard!" Chen Sigen cursed, quickly adjusted half a mil, and pulled the trigger again.
+More gunshots rang out in quick succession. Two cavalrymen beside him tumbled from their saddles. Soldier Xu, who had been chattering just moments before, now lay on the ground with the back of his skull blown open, blood and brains oozing into the mud. Zhong Xiao was so terrified he nearly fell from his horse himself.
 
-This bullet accurately hit Zhong Xiao's shoulder blade. The impact threw his body violently forward; the bullet drilled out from his mouth, and the huge impact tore off half his lower jaw. The corpse fell from the horse into the mud.
+"Go! Now!" He crouched low, hugging his horse's neck, and lashed its rump with his whip.
 
-The other two cavalrymen turned their horses to flee in panic. The bullets quickly caught up with them, and both were hit and fell from their horses one after another.
+"Bastard!" Chen Sigen cursed. He quickly adjusted his aim half a mil and pulled the trigger again.
 
-"What a pity!" Chen Sigen looked at the two riderless warhorses fleeing into the distance and couldn't help cursing. *These were all Mongolian horses, rare locally!*
+This bullet struck Zhong Xiao's shoulder blade with precision. The impact hurled his body violently forward; the round drilled through and exited from his mouth, the force tearing away half his lower jaw. The corpse tumbled from the horse into the mud.
 
-"Quick, drag the horses back, and drag the bodies into the ditch!" He then ordered, "Report, destroyed five Ming scout cavalry in Zone B12."
+The other two cavalrymen wheeled their horses to flee in panic. The bullets quickly caught up with them, and both were struck and fell from their mounts in quick succession.
 
-The Special Reconnaissance Team's screening of Ming scouts made the government army quickly lose all news. He Rubin sent out several batches of scouts successively, but none returned. Having walked more than ten *li* like this without a single scout returning, he felt something was wrong and ordered the whole army to stop advancing.
+"What a pity!" Chen Sigen watched the two riderless warhorses fleeing into the distance and cursed under his breath. *Those were Mongolian horses—rare around here!*
 
-"How far is it from Chengmai County seat?"
+"Quick—drag the horses back, and drag the bodies into the ditch!" He then keyed his radio. "Report: destroyed five Ming scout cavalry in Zone B12."
 
-The answer obtained was twelve *li*. He Rubin felt hesitant. From his experience, the sudden disappearance of his scouts indicated that the enemy's reconnaissance cavalry was also actively operating, trying their best to prevent him from obtaining the other side's movements.
+---
 
-It seemed the enemy didn't intend to be obediently besieged by him in Lingao but prepared to fight a big battle with him under Chengmai County seat.
+The Special Reconnaissance Team's ruthless elimination of Ming scouts quickly blinded the government army. He Rubin dispatched several batches of scouts in succession, yet not a single one returned. After marching more than ten *li* without receiving any report, he sensed something was deeply wrong and ordered the entire army to halt.
 
-"These Hair Bandits are not easy to deal with." He felt worried for the first time. *Didn't the Hair Bandits have no cavalry? It's impossible to eliminate all the scouts he sent out just relying on infantry, without letting a single one return.*
+"How far to Chengmai County seat?"
 
-The generals were all waiting for his order. In another hour and a half, the sky would turn dark. Twenty thousand troops and baggage were still on the road. If they couldn't reach Chengmai before dark, they could only camp on the spot—time didn't allow him to hesitate.
+The answer: twelve *li*. He Rubin hesitated. From his experience, the sudden and total disappearance of scouts indicated that the enemy's reconnaissance forces were also actively operating—and trying their utmost to prevent him from learning anything of their movements.
 
-"General Tong!" He ordered, "You immediately send three hundred cavalry to Chengmai, and send another five hundred infantry to follow at a run. Set up camp outside Chengmai County seat before dark to receive the grand army!"
+It seemed the enemy did not intend to be obediently besieged at Lingao. They were preparing to meet him in a decisive battle outside Chengmai.
 
-Seeing the Commander-in-Chief's grave expression, Tong Yizhen knew the military situation was dangerous at this moment. He immediately dispatched Chiliarch He Zhanran to lead three hundred cavalry galloping towards Chengmai County seat. Just in case, he didn't send five hundred infantry but personally led his house guards and one thousand infantry to follow closely behind.
+"These Hair Bandits are not so easy to deal with." For the first time, genuine worry crept into his thoughts. *Didn't the Hair Bandits lack cavalry? It should be impossible to eliminate all the scouts I've sent on foot alone—without letting a single man return.*
 
-The Special Reconnaissance Team members of Ye Mengyan's squad shielding the post road saw over three hundred cavalry suddenly coming down the road. Knowing that their dispersed small squads of four could not resist, they yielded the main road to let the cavalry pass.
+The generals were waiting for his order. In another hour and a half, the sky would begin to darken. Twenty thousand troops and their baggage remained strung out along the road. If they could not reach Chengmai before nightfall, they would have to camp on the spot—time did not allow him to hesitate.
 
-"Enemy main force is coming. Three or four hundred cavalry!" Ye Mengyan shouted into the walkie-talkie. "There is a lot of dust behind; more troops are coming."
+"General Tong!" he ordered. "Immediately dispatch three hundred cavalry toward Chengmai, followed by five hundred infantry at a run. Establish camp outside Chengmai's county seat before dark to receive the main army!"
 
-"Don't entangle with them. The whole squad withdraw from the screening zone while using harassing fire. Let the enemy through to the county seat!"
+Seeing the Commander-in-Chief's grave expression, Tong Yizhen understood the peril of the moment. He immediately dispatched Chiliarch He Zhanran with three hundred cavalry, galloping toward Chengmai. For added security, he did not send five hundred infantry as instructed—instead, he personally led his household guards and one thousand infantry to follow close behind.
+
+The Special Reconnaissance Team members of Ye Mengyan's squad, shielding the post road, saw over three hundred cavalry suddenly thundering down the road. Knowing that their dispersed small teams could not resist such a force, they yielded the main road and let the cavalry pass.
+
+"Enemy main force incoming—three or four hundred cavalry!" Ye Mengyan shouted into the walkie-talkie. "Heavy dust behind them. More troops are following."
+
+"Don't engage directly. Withdraw from the screening zone while employing harassing fire. Let the enemy pass through to the county seat!"
 
 "Understood!"
 
-Ye Mengyan raised his SKS rifle and pulled the trigger at the cavalry galloping on the road. Then the members beside him opened fire one after another.
+Ye Mengyan raised his SKS rifle and squeezed the trigger at the cavalry galloping past on the road. The rest of his team opened fire alongside him.
 
-Amidst shrinking gunshots, cavalrymen constantly fell from their horses. This sudden shooting greatly shocked He Zhanran because he saw no sign of anyone firing bird guns at all. But from the gunshots, he knew the opponent's number was small, at most thirty or forty people, inevitably to harass and delay his troops' advance. He gave a loud shout, "Charge with me!" Disregarding men constantly falling from horses, he headed straight for Chengmai County seat.
+Amid the stuttering gunshots, cavalrymen fell from their horses in quick succession. The sudden shooting greatly alarmed He Zhanran—he saw no sign of anyone firing bird guns, no telltale puffs of smoke. But from the reports alone, he knew the enemy numbered no more than thirty or forty, clearly attempting to harass and delay his advance. He bellowed "Charge with me!" and drove straight toward Chengmai, disregarding the men tumbling from saddles around him.
 
-A burst of crossfire from Ye Mengyan's three or four squads on both sides of the road caused He Zhanran to leave more than twenty bodies on the post road. Ye Mengyan originally wanted to ambush again, but the Ming infantry behind had already rushed over covering the mountains and plains. Hearing gunshots ahead, Tong Yizhen judged the enemy had deployed, ordered the infantry to spread out into formation, and personally led dozens of mounted house guards to charge in front.
+The crossfire from Ye Mengyan's three or four squads, positioned on both sides of the road, cost He Zhanran more than twenty bodies along the post road. Ye Mengyan had originally wanted to set another ambush, but Ming infantry were already swarming up behind, covering the hills and fields. Hearing gunshots ahead, Tong Yizhen judged that the enemy had deployed; he immediately ordered his infantry to spread into formation and personally led several dozen mounted household guards to charge at the front.
 
-Ye Mengyan originally thought the enemy was just so-so, simply vulnerable under SKS rifles. Now seeing Ming infantry swarming all over the ground, banners waving, swords and spears like a forest, his heart beat wildly. *Mother! This is too spectacular!* He thought, *Even with a machine gun right now, I probably couldn't hold them—too many people!*
+Ye Mengyan had initially believed the enemy was nothing special—simply vulnerable under SKS fire. But now, seeing Ming infantry swarming across the landscape in every direction, banners waving, swords and spears bristling like a forest, his heart hammered against his ribs. *Mother! This is too spectacular!* He thought, *Even with a machine gun right now, I probably couldn't hold them—there are too many!*
 
-"Quick! Retreat!" He immediately ordered the whole detachment to retreat individually. Raising his SKS-D rifle without aiming, he emptied a 20-round magazine into the subsequent swarming Ming army, then hurriedly went down into the ditch to flee.
+"Quick! Retreat!" He immediately ordered his entire detachment to fall back individually. Raising his SKS-D rifle without bothering to aim, he emptied a 20-round magazine into the oncoming Ming troops, then scrambled down into the ditch to flee.
 
-The Special Reconnaissance Team's retreat route passed through previously surveyed terrain, utilizing topography to avoid enemy pursuers as much as possible. Since the weapons used by the Special Reconnaissance Team all fired smokeless ammunition, and all members were equipped with camouflage uniforms, it was very difficult for the Ming army to identify their positions in the wild.
+The Special Reconnaissance Team's withdrawal route followed pre-surveyed terrain, utilizing the topography to evade enemy pursuers wherever possible. Because their weapons fired smokeless ammunition and all team members wore camouflage, the Ming troops found it nearly impossible to identify their positions in the open field.
 
-Tong Yizhen's men and horses lost a dozen people in the last blocking fire by Ye Mengyan's squad, including one of his personal officers killed. The enemy's invisible shooting made him very fearful. But with men and horses constantly swarming from behind, he had to brace himself and lead his troops to pounce on the county seat.
+Tong Yizhen's force lost a dozen men in the final blocking fire from Ye Mengyan's squad, including one of his personal officers. The enemy's invisible shooting made him acutely fearful. But with more men pouring in from behind, he had no choice but to steel himself and lead his troops toward the county seat.
 
-Hearing gunshots and killing shouts ahead, He Rubin knew the vanguard had engaged the enemy. He hurriedly ordered Guerrilla General Li Guang, commanding the Governor's Standard Camp, to quickly take the Standard Camp to reinforce. He personally led his house guards and the Regional Commander's Standard to support from behind.
+Hearing the gunshots and battle cries ahead, He Rubin knew the vanguard had engaged the enemy. He quickly ordered Guerrilla General Li Guang, commanding the Governor's Standard Camp, to rush forward with the entire Standard Camp to reinforce. He personally led his household guards and the Regional Commander's Standard in support behind them.
 
-"Tell General Yan to suppress the rear troops to march slowly; absolutely do not let them fall into chaos first!"
+"Tell General Yan to suppress the rear troops—they must march slowly. Under no circumstances allow them to fall into disorder before they're even engaged!"
 
-The rear column not only had a large amount of baggage but also village militia and local garrison troops. These troops were very unreliable; slightly shaken, they would scramble to flee. So he gave special instructions. After transmitting the order, he personally led his house guards to follow closely behind Li Guang's troops.
+The rear column contained not only a large quantity of baggage but also village militia and local garrison troops. These elements were notoriously unreliable—a slight shock would send them scrambling to flee. He saw fit to give explicit instructions. After transmitting his orders, he personally followed close behind Li Guang's troops, his household guards arrayed around him.
 
-He Zhanran's cavalry was the first to arrive outside the South Gate of Chengmai, occupying the empty camp abandoned by You Laohu. The Light Infantry previously executing blockade shooting outside various city gates had already withdrawn from their positions, retreating towards the Grand Camp northwest of the city.
+He Zhanran's cavalry was the first to arrive outside Chengmai's South Gate, immediately occupying the empty camp that You Laohu had abandoned. The Light Infantry who had previously been executing blockade fire outside the city's various gates had already withdrawn from their positions, retreating northwest toward the Grand Camp.
 
-Seeing more than three hundred infantry retreating, having walked less than two or three *li*, He Zhanran quickly led his cavalry to charge over.
+Seeing more than three hundred infantry retreating and having traveled less than two or three *li*, He Zhanran quickly led his cavalry in pursuit.
 
-The 1st Light Infantry Company of the 1st Infantry Battalion commanded by Yang Zeng was the earliest to withdraw from the position, but the 5th Light Infantry Company was delayed by more than ten minutes receiving the order. Yang Zeng, acting as blockade commander under the city, waited a while longer halfway to receive the 5th Battalion's Light Infantry. As a result, they were bitten by the Ming cavalry arriving at flying speed.
+The 1st Light Infantry Company of the 1st Infantry Battalion, commanded by Yang Zeng, had been the earliest to withdraw from its position. But the 5th Light Infantry Company had been delayed by more than ten minutes in receiving the order. Yang Zeng, acting as blockade commander under the city, waited partway back to receive the 5th Company's infantry. As a result, they found themselves caught by Ming cavalry arriving at breakneck speed.
 
-Seeing the cavalry already rolling in, Yang Zeng immediately drew his command saber, shouting the order: "Fix bayonets! Hollow Square Formation!"
+Seeing the cavalry already rolling in, Yang Zeng immediately drew his command saber and roared the order: "Fix bayonets! Hollow Square Formation!"
 
-Military drums beat rapidly.
+Military drums beat in rapid succession.
 
-The 1st Light Infantry Company, originally retreating, immediately turned around to stand in front. The 5th Light Infantry Company split into two, deploying half the soldiers on the left and right respectively. The 3rd Light Infantry Company stood back-to-back with them.
+The 1st Light Infantry Company, which had been retreating, immediately turned around to form the front of the square. The 5th Light Infantry Company split in two, deploying half its soldiers on the left and right flanks respectively. The 3rd Light Infantry Company stood back-to-back with the front, forming the rear.
 
-Yang Zeng found there were not enough infantry on the left and right wings. Fearing the flank firepower was too weak and would be breached by the enemy, he immediately ordered the front and rear companies to each allocate a platoon to shift to the two wings respectively.
+Yang Zeng saw that the left and right wings were undermanned. Fearing that the flanks' firepower was too weak and would be breached by the enemy, he immediately ordered the front and rear companies to detach one platoon each to reinforce the wings.
 
-Because numbers were few, the square was simply formed with a depth of three ranks on each side. The first rank knelt on one knee in front, bayoneted rifles pointing diagonally upward. The rear two ranks held rifles level, ready to fire at any time.
+With their numbers limited, the square was formed only three ranks deep on each side. The first rank knelt in front, bayoneted rifles angled upward. The rear two ranks held rifles level, ready to fire at any moment.
 
-This series of maneuvers took less than three minutes. The enemy instantly charged in front of the square. The full-speed impact force of the cavalry made the soldiers, who had undergone countless infantry-cavalry counter-training sessions, also begin to waver.
+This entire series of maneuvers took less than three minutes. The enemy was already charging. The full-speed momentum of cavalry at the gallop made even these soldiers—veterans of countless infantry-versus-cavalry counter-training drills—begin to waver.
 
-At this critical moment, Yang Zeng shouted: "Sights to Zero!" His command saber slashed down, "Fire!"
+At this supreme moment, Yang Zeng shouted: "Sights to zero!" His command saber slashed downward. "Fire!"
 
-(End of Chapter)
+---
+
+*(End of Chapter)*

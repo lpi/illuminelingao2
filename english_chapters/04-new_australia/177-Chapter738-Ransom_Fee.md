@@ -1,163 +1,247 @@
 # Chapter 738 - Ransom Fee
 
-Although Li Fengjie felt it feasible, the thought of incurring such a massive debt made him shake his head repeatedly: "Borrowing means repaying, plus interest—it's a huge sum!"
+Although Li Fengjie found the borrowing scheme feasible, the thought of incurring such a massive debt made him shake his head repeatedly.
 
-"In a few days, the Autumn Tax collection begins. A little floating surcharge per *mu* will smooth it out," He Chengzong said. "If the Bandits don't leave, the Autumn Tax will also face big trouble..."
+"Borrowing means repaying—plus interest. It's an enormous sum!"
 
-This last sentence moved Li Fengjie. Everything in local government revolved around tax, the Court's primary concern. If the Bandits stayed on Henan Island, sending men to collect grain and silver daily, how could the November Autumn Tax be collected? He Chengzong was right; collecting the Autumn Grain would cover the 300,000 tael hole.
+"The Autumn Tax collection begins in a few days," He Chengzong replied calmly. "A modest floating surcharge per *mu* will smooth it out. And if the Bandits don't leave, the Autumn Tax itself will face serious difficulties..."
 
-However, 300,000 taels was no small figure. Thinking of shouldering this debt for no reason, Li Fengjie's mood was unpleasant.
+This final sentence moved Li Fengjie.
 
-Why did such a thankless task fall on him! These Australians had too big an appetite! Thinking this, he decided to haggle with them, at least chopping off eighty or a hundred thousand.
+Everything in local governance revolved around taxation—the Court's primary concern. If the Australians remained encamped on Henan Island, sending men daily to collect grain and silver from the surrounding countryside, how could the November Autumn Tax be collected? He Chengzong was correct: the Autumn Grain receipts would ultimately cover the 300,000-tael shortfall.
 
-He gave no commitment to He Chengzong's suggestion, dismissing him for now.
+Yet 300,000 taels was no trivial figure. The thought of shouldering this debt for no good reason left Li Fengjie thoroughly displeased.
 
-He Chengzong felt baffled. The next day, Gao Ju visited to ask for the Governor's final decision so he could send Manager Yan across the river to interview at night.
+Why did such a thankless task fall to him? These Australians had an enormous appetite!
 
-"His Excellency is noncommittal," He Chengzong said. "Neither said yes nor no."
+Thinking this way, he resolved to haggle with them—at least cut the demand by eighty or a hundred thousand.
 
-"Presumably His Excellency needs to deliberate." Gao Ju laughed. Not saying "yes" actually meant "no." Most likely the Governor still harbored thoughts of bargaining. He sneered secretly: this is called refusing a toast to drink a forfeit.
+He gave no commitment to He Chengzong's suggestion, dismissing him for the time being.
 
-Indeed, in the following days, Li Fengjie prepared for war in Guangzhou, conscripting militia and positioning cannons, putting on a "fight to the death" posture that confused everyone. He Chengzong thought his employer truly intended to "live and die with the city," and worried greatly, admonishing him several times, only to be blocked by Li Fengjie's lukewarm responses.
+---
 
-Gao Ju knew the Governor was posturing for the Bandits outside, hoping to intimate them into loosening the ransom fee.
+He Chengzong felt baffled by the Governor's ambivalence.
 
-Sure enough, a day later, Li Fengjie asked Gao Ju to go to Lotus Vihara to continue talks.
+The next day, Gao Ju arrived to inquire about the Governor's final decision, hoping to send Manager Yan across the river that same night.
 
-"Your Excellency, if there isn't an explanation regarding the Ransom Fee, I fear going again will yield no results."
+"His Excellency remains noncommittal," He Chengzong reported. "He said neither yes nor no."
 
-"You are a merchant; do you buy at whatever price others ask?" Li Fengjie was dissatisfied with Gao Ju's attitude.
+"Presumably His Excellency needs further deliberation." Gao Ju laughed quietly.
 
-"Your Excellency," Gao Ju said respectfully, "It depends on the goods. If it's a rare commodity to hoard, of course I buy at the asking price."
+Not saying "yes" effectively meant "no." Most likely the Governor still harbored fantasies of bargaining. He sneered to himself: *This is called refusing a toast only to drink a forfeit.*
 
-"Fine, fine. Go tell the Bandits: 300,000 silver is too much; the city can't produce it. Ask them to reduce it."
+Indeed, in the days that followed, Li Fengjie launched conspicuous war preparations in Guangzhou—conscripting militia, positioning cannons, adopting an ostentatious "fight to the death" posture that confused everyone observing.
 
-"How much does Your Excellency think is appropriate..."
+He Chengzong, believing his employer genuinely intended to "live and die with the city," grew deeply worried and admonished him several times. Li Fengjie blocked every objection with lukewarm, evasive responses.
 
-"This... depends on your ability, doesn't it?" Li Fengjie sneered.
+Gao Ju understood immediately: the Governor was posturing for the Australians' benefit, hoping to intimidate them into reducing the ransom fee.
 
-"Yes, yes, this lowly one will do his utmost."
+---
 
-This attitude naturally caused dissatisfaction among the Task Force high command. Originally, some Senators demanded large-scale rocket attacks on Guangzhou to severely dampen the prestige of Guangdong bureaucrats. But a group including Wen Desi strongly opposed—not out of "protecting cultural relics," but because Guangzhou, like all Chinese cities then, was brick-and-wood. Indiscriminate Hale Rocket bombardment would inevitably cause massive fires, potentially burning the whole city.
+Sure enough, a day later Li Fengjie asked Gao Ju to return to the Lotus Vihara to continue talks.
 
-Guangzhou was one of China's wealthiest cities. A city-wide fire would burn untold wealth and kill useful human resources. Many wealthy merchants would go bankrupt. Transmigrators wouldn't be able to use the city for years after the war.
+"Your Excellency, if there isn't some explanation regarding the Ransom Fee, I fear going again will yield no results."
 
-Now, Li Fengjie's attitude brought the bombardment idea back to the surface. Several Senators demanded a "force demonstration."
+"You're a merchant." Li Fengjie's tone carried irritation. "Do you buy at whatever price others demand?"
 
-Wen Desi probably felt it necessary to demonstrate military power too—"seeing is believing," lest bureaucrats hiding in the city lacked a visceral impression of Transmigrator force. He approved the plan to shell the South City. To avoid massive life and property loss, targets were primarily South City defensive facilities and the relay station, reception hall, and piers near the main South Gate.
+"Your Excellency," Gao Ju replied with careful respect, "it depends on the goods. If it's a rare commodity worth hoarding, naturally I pay the asking price."
 
-On the night of November 7th, the Fubo Army fired over 200 Hale rockets from pre-set positions and Bombardment Boats, completely destroying many defensive facilities, the relay station, and reception hall near the main South Gate. Defending soldiers and militia fell into chaos. Bombardment Boats also concentrated fire on the majestic three-story tower over the main South Gate. Under concentrated bombardment of nearly 40 Hale rockets, the brick-and-wood tower soon erupted in raging flames, burning all night.
+"Fine, fine. Go tell the Bandits: 300,000 is too much. The city cannot produce such a sum. Ask them to reduce it."
 
-Per Chen Haiyang's order, several rockets were fired into the administrative district deep in the city to demonstrate range.
+"How much does Your Excellency consider appropriate?"
 
-Li Fengjie spent a nightmare night. When dense rockets began pounding the South City, setting fire to the reception hall and relay station, and finally the gate tower, he thought the Bandits were storming the city. He rushed toward the South Gate with staff. Before arriving, fleeing soldiers and militia blocked the road. Faces blackened by smoke, panicked, pushing and crawling through streets, ignoring officers. When the crowd cleared, he dared not go further—those terrifying Australian fire meteors fell from the sky continuously; getting hit meant death.
+"That... depends on your ability, doesn't it?" Li Fengjie sneered.
 
-"Go, back to the Yamen!" Li Fengjie ordered. Guards and servants hustled him back to the Governor's Yamen, summoning 200 troops for reserve. Li Fengjie climbed the corner tower, gazing at the South Gate direction—flames raged, reddening half the sky, a terrifying sight. A thought flashed: if Bandits broke the city now, he would commit suicide in the Yamen immediately.
+"Yes, yes. This lowly one will do his utmost."
 
-Just then, a dozen rockets streaked across the night sky like continuous meteors, flying straight into the city's deep areas, landing in streets and offices with booming explosions and fire.
+---
 
-Gongs sounded everywhere; militia and water-brigades rushed to fight fires. Fortunately, few rockets landed there, and fires were extinguished quickly without major damage. But such shooting caused greater panic.
+This attitude naturally caused dissatisfaction among the Task Force's high command.
 
-Li Fengjie couldn't stay inside or outside. Death falling from the sky brought unprecedented terror—previously, hiding behind thick walls meant safety from any slaughter outside. Now, high thick walls couldn't protect his life like before.
+Some Senators had already demanded large-scale rocket attacks on Guangzhou to severely dampen the prestige of the Guangdong bureaucrats. But a faction including Wen Desi strongly opposed—not from any concern for "protecting cultural relics," but because Guangzhou, like all Chinese cities of the era, was constructed of brick and wood.
 
-Fortunately, the Bandits showed no sign of assaulting. Over an hour later, the rocket attack stopped. Only then did fleeing officials and soldiers dare return to the South Gate to fight the fire.
+Indiscriminate Hale Rocket bombardment would inevitably cause massive fires, potentially consuming the entire city.
 
-The day after this attack, Gao Ju exited the city and agreed to all Wen Desi's demands.
+Guangzhou was one of China's wealthiest urban centers. A city-wide conflagration would destroy incalculable wealth and kill human resources the Transmigrators could otherwise utilize. Many merchants would be bankrupted. Guangzhou would be unusable for years after the war.
 
-As for raising silver, Li Fengjie had no choice but to adopt He Chengzong's "borrowing" plan—survive the immediate crisis first.
+Now, Li Fengjie's attitude brought the bombardment idea forcefully back to the surface. Several Senators demanded a "force demonstration."
 
-The next day, He Chengzong visited Gao Ju's mansion, explaining the method. Gao Ju was a leading figure among foreign merchants; his attitude influenced many.
+Wen Desi probably felt a demonstration of military power was indeed necessary. "Seeing is believing"—otherwise, bureaucrats hiding behind city walls might lack any visceral impression of Transmigrator capabilities.
 
-Gao Ju remained noncommittal. He lifted his eyelids slightly, surprised He Chengzong thought of this. Gao Ju had already prepared a method derived from "borrowing" for Li Fengjie. However, Gao Ju's loan had a charter: how to borrow, repay, interest rate—all calculated in his mind. He didn't say it yesterday to avoid suspicion—merchants considered government credit poor; if the loan defaulted, peers would curse him for "sucking up to superiors," ruining his reputation.
+He approved a plan to shell the South City. To avoid massive loss of life and property, targets would be limited to South City defensive installations and the relay station, reception hall, and piers near the main South Gate.
 
-Gao Ju had been calculating how to suggest this to Li Fengjie. Now that he came knocking, it couldn't be better.
+---
 
-"This is 300,000 taels." Gao Ju tapped the tea table with his fan. "No one has ever lent such a huge sum."
+On the night of November 7th, the Fubo Army fired over two hundred Hale rockets from pre-set positions and Bombardment Boats.
 
-"Of course, so we ask Elder Gao to exert effort, using reason to unite the merchants. If every household shares some, it's easy."
+The barrage completely destroyed numerous defensive facilities, the relay station, and the reception hall near the main South Gate. Defending soldiers and militia fell into chaos.
 
-Gao Ju smiled slightly. He Chengzong's thinking was still government "apportionment" and "donation." Actually, if the profit was high enough, any amount could be borrowed. Mr. He hadn't grasped this principle. He deliberately postured: "This matter is likely difficult."
+Bombardment Boats concentrated their fire on the majestic three-story tower above the main South Gate. Under the impact of nearly forty Hale rockets, the brick-and-wood structure soon erupted in raging flames that burned throughout the night.
 
-"I know it's difficult. But is there another way to raise 300,000 taels?" He Chengzong smiled bitterly. "Bandit ships circle the Provincial River daily, clearly intending to strike Guangzhou if unpaid. This is also for the city's common people."
+Per Chen Haiyang's orders, several rockets were fired into the administrative district deep in the city—purely to demonstrate range.
 
-Gao Ju nodded: "I understand." He added: "Loans must be repaid. There must be a charter: how to borrow, how to repay; what interest, what term? State it first to see if it works?"
+---
 
-"Borrow 400,000—besides ransom, we must compensate Australian enterprise losses, at least twenty or thirty thousand. Bandits looted heavily; comforting the locale costs money—finally, the Capital and Palace need bribes to avoid trouble." He Chengzong sighed. "A victory means rewarding troops and cheap aftermath costs. A defeat means endless expenses."
+Li Fengjie spent a nightmare of a night.
 
-From the fall of Humen, 60,000 taels had been spent from the Provincial Treasury and county quotas alone. But money spent included not just treasury allocation, but "Assisting Rations" from merchants, conscripted labor and materials, militia bounties...
+When the dense rockets began pounding the South City—setting fire to the reception hall and relay station, and finally the gate tower itself—he believed the Australians were storming the city. He rushed toward the South Gate with his staff.
 
-How much silver this "Defense of Guangzhou" consumed was a muddled account. And finally, this 300,000 "Ransom Fee"!
+Before he could arrive, fleeing soldiers and militiamen blocked the road. Their faces were blackened by smoke, their expressions panicked. They pushed and crawled through the streets, ignoring every order their officers bellowed.
 
-Though He Chengzong didn't know the saying "Victory is always cheaper," he fully realized failure meant spending more money. It solidified his potential future stance as a "Pro-Peace Party" or "Surrender Party."
+When the crowd finally thinned, Li Fengjie dared not advance further. Those terrifying Australian fire-meteors fell continuously from the sky; getting struck meant death.
 
-Gao Ju thought: of the extra 100,000 in the 400,000, surely there were various uses, but a large part was definitely "padding"—benefits for officials to divide. Before borrowing started, the graft account was ready. He felt disdain.
+"Return to the Yamen!" he ordered.
 
-However, as long as it was profitable and repayment ensured, he didn't care how officials invented names to get money—if they were all clear as water, Gao Ju couldn't do business.
+Guards and servants hustled him back to the Governor's Yamen, where they summoned two hundred troops as reserve. Li Fengjie climbed the corner tower and gazed toward the South Gate—flames raged there, reddening half the sky. A terrifying sight.
 
-"40,000... 50,000... let's not discuss amount first. Just ask: what interest, how long, how to pay interest and principal? Without a clear statement, I cannot persuade others."
+A thought flashed through his mind: *If the Bandits breach the city now, I will take my own life in this Yamen immediately.*
 
-He Chengzong had thought about this: "Annual interest 1.3%. Term one year. Principal and interest paid at maturity."
+Just then, a dozen rockets streaked across the night sky like continuous meteors, flying straight into the city's innermost districts and landing in streets and government offices with booming explosions and bursts of fire.
 
-Gao Ju spoke slowly: "Mr. He! This charter, Gao cannot sell."
+Gongs sounded everywhere as militia and water brigades rushed to fight the blazes. Fortunately, few rockets had landed in those areas; the fires were extinguished quickly without major damage.
 
-He Chengzong cursed "profit-minded villain" silently, but needing him, asked patiently: "In Elder Gao's view?"
+But such shooting caused far greater panic than the destruction warranted.
 
-"I have no 'view'," Gao Ju said. "Borrowing isn't tax collection where you say what goes. Borrowing implies mutual willingness." He coughed. A beautiful maid knelt to present an enamel spittoon.
+---
 
-Gao Ju spat, took a colored Australian small towel from another maid to wipe his mouth, and drank hot tea.
+Li Fengjie found he could stay comfortable neither inside the walls nor outside them.
 
-"...Annual interest 1.3%? If 300,000 taels were available at that rate, Gao himself would want to borrow it."
+Death falling from the sky brought unprecedented terror. Previously, hiding behind thick walls meant safety from any slaughter beyond. Now, those high thick walls could no longer protect his life as before.
 
-He Chengzong knew Gao found it low. Alert, he asked carefully: "What rate does Elder Gao think suitable?"
+Fortunately, the Australians showed no sign of actually storming the gates. After more than an hour, the rocket attack ceased. Only then did fleeing officials and soldiers dare return to the South Gate to fight the remaining fires.
 
-"To be honest," Gao Ju said, "Inter-bank lending, even in off-seasons, is 2% to 2.4% annually. Now, given the Governor's face, 1.8% is the minimum."
+---
 
-Gao Ju stated his demands: One-year term. First six months interest only; second six months repaying principal monthly in six installments. Cleared in 12th month.
+The day after this attack, Gao Ju departed the city and agreed to all of Wen Desi's demands.
 
-Nominally borrowing for a year, but principal repayment started from month seven. The actual interest was much higher than maturity payment.
+As for raising the silver, Li Fengjie had no choice but to adopt He Chengzong's "borrowing" plan. He would survive the immediate crisis first.
 
-However, this suited the government fiscal state. He Chengzong knew producing 470,000 taels at once was impossible for Guangdong. Piecemeal was easier.
+The next day, He Chengzong visited Gao Ju's mansion to explain the method. As a leading figure among the foreign merchants, Gao Ju's attitude would influence many others.
 
-"This works." He Chengzong nodded. "But it needs the Governor's approval."
+Gao Ju remained noncommittal. He raised an eyebrow slightly, surprised that He Chengzong had conceived this approach himself.
 
-"Naturally." Gao Ju nodded, asking, "Repaid with what?"
+In fact, Gao Ju had already prepared a method derived from "borrowing" for Li Fengjie—one with a detailed charter specifying how to borrow, how to repay, and what interest rate to charge. All of it was calculated in his mind.
 
-"From the Autumn Tax, of course. A few cents floating surcharge per *mu* covers it. If Elder Gao tells merchants this, would they distrust the whole province's land tax as guarantee?"
+He hadn't mentioned it the previous day to avoid suspicion. Merchants considered government credit poor; if such a loan defaulted, his peers would curse him for "sucking up to superiors," ruining his reputation.
 
-Gao Ju sighed: "Brother He! You have a scholar's view. Borrowing requires first a written receipt, second a collateral guarantee. With just your words, who puts up money?"
+He had been calculating how to suggest this to Li Fengjie in a way that didn't compromise himself. Now that He Chengzong had come knocking with the same idea, the situation couldn't be better.
 
-He Chengzong was baffled. Wasn't the Governor's word enough? In Guangdong, few words carried such weight.
+---
 
-"Isn't the Governor's Yamen's credibility enough?"
+"This is 300,000 taels we're discussing." Gao Ju tapped the tea table with his fan. "No one has ever lent such an enormous sum to the government."
 
-"Sure, but the proof?" Gao Ju saw he didn't get it and spoke plainly. "Governor Li benefits the people and works hard; what if he's busy and forgets? Are we lenders to hang ourselves?"
+"Of course. That's precisely why we ask Elder Gao to exert his efforts—using reason to unite the merchants. If every household contributes a share, the sum becomes manageable."
 
-He Chengzong had no answer. Officials defaulting wasn't unheard of.
+Gao Ju smiled slightly.
 
-"...Even with a receipt, there must be collateral." Gao Ju laughed. "One day Governor Li gets promoted, money unpaid, and a new official comes saying 'I didn't borrow it, I don't care.' We'd hang ourselves again."
+He Chengzong's thinking still revolved around government "apportionment" and "donation." But in truth, if the profit was attractive enough, any amount could be borrowed. Mr. He hadn't quite grasped this principle.
 
-He Chengzong knew Gao spoke truth, but collateral... He was troubled. Yamen issuing receipts was unheard of; if one leaked to a Censor, Li Fengjie was done for.
+He deliberately postured: "This matter is likely to prove difficult."
 
-Gao Ju knew receipts probably wouldn't happen, but he had another plan.
+"I know it's difficult. But is there another way to raise 300,000 taels?" He Chengzong smiled bitterly. "Bandit ships circle the Provincial River daily. They clearly intend to strike Guangzhou if unpaid. This is also for the city's common people."
 
-"A Yamen receipt is the best guarantee, of course. But having a collateral object is enough."
+Gao Ju nodded. "I understand." Then he added: "Loans must be repaid. There must be a charter—how to borrow, how to repay, what interest, what term. State it clearly first, and we'll see if it works."
 
-Gao Ju proposed Salt Licenses as collateral. Collateralize Salt Licenses equivalent to total principal and interest, plus some salt weight for transport/sales costs. Salt Licenses were the government's most credit-worthy securities; merchants would accept them.
+"Borrow 400,000," He Chengzong said. "Beyond the ransom, we must compensate Australian enterprise losses—at least twenty or thirty thousand. The Bandits looted heavily, so comforting the affected localities costs money. Finally, the Capital and Palace need bribes to prevent trouble from arising there."
 
-"Salt Licenses are usable immediately and resellable. What if unscrupulous merchants sell them early?"
+He sighed. "A victory means rewarding troops and cheap cleanup costs. A defeat means endless expenses."
 
-"Not hard. Stamp the licenses: valid only after Month X Day Y—the final repayment date," Gao Ju said. "When repaying, let people bring licenses to exchange for silver."
+From the fall of Humen, the Provincial Treasury and county quotas alone had already spent 60,000 taels. But actual expenditures included not just treasury allocations but also "Assisting Rations" from merchants, conscripted labor and materials, militia bounties...
 
-"Excellent method." He Chengzong was convinced. Gao Ju indeed had tricks. The two negotiated secretly for hours, finally reaching an agreement.
+How much silver this "Defense of Guangzhou" had consumed remained a muddled account. And now, this 300,000-tael "Ransom Fee"!
 
-No draft or written record was made, but mutual assurances guaranteed no reneging. The agreed method:
+Though He Chengzong didn't know the saying "Victory is always cheaper," he fully appreciated that failure meant spending far more money. This realization solidified his stance as a potential future member of the "Pro-Peace Party"—or as critics would call it, the "Surrender Party."
 
-1.  Total loan: 400,000 Kuping Taels; Gao Ju leads merchant subscription.
-2.  Annual interest 1.8%. First 6 months interest only, last 6 months monthly principal repayment. Cleared in one year.
-3.  Loan secured by equivalent Salt Licenses from Governor's Yamen. Plus 3% premium. Licenses stamped with date limit. Returned monthly to Yamen upon repayment.
+---
 
-He Chengzong reported the three articles to Li Fengjie. Hearing of using Salt Licenses, Li Fengjie thought Gao Ju had clever ideas and agreed to all.
+Gao Ju did some mental arithmetic.
 
-Raising silver took time. Fearing more rocket attacks, Li Fengjie ordered 100,000 taels temporarily drawn from the provincial treasury, escorted by specialists to the Australian camp at night. Yan Little-Hat accompanied them, asking Wen and Chen for three days' grace to raise the rest.
+Of the extra 100,000 in the 400,000 total, surely some would go toward various legitimate uses—but a substantial portion was clearly "padding," benefits for officials to divide among themselves. The graft account was ready before the borrowing even began.
+
+He felt a certain disdain.
+
+However, as long as the arrangement proved profitable and repayment was assured, he didn't care how officials invented pretexts to siphon money. If they were all "clear as water," Gao Ju wouldn't be able to do business with them at all.
+
+"400,000... 500,000... let's set aside the amount for now. Just answer me this: what interest? What term? How will interest and principal be paid? Without clear answers, I cannot persuade others."
+
+He Chengzong had considered this carefully. "Annual interest 1.3 percent. Term one year. Principal and interest paid at maturity."
+
+Gao Ju spoke slowly, deliberately: "Mr. He—this charter, Gao cannot sell."
+
+He Chengzong silently cursed the "profit-minded villain," but needing his cooperation, he asked patiently: "In Elder Gao's view, then?"
+
+"I have no particular 'view,'" Gao Ju replied. "Borrowing isn't tax collection, where you simply dictate terms. Borrowing implies mutual willingness."
+
+He coughed. A beautiful maid knelt to present an enamel spittoon.
+
+Gao Ju spat, accepted a colorful Australian hand towel from another maid to wipe his mouth, then sipped hot tea.
+
+"...Annual interest 1.3 percent? If 300,000 taels were available at that rate, Gao himself would want to borrow it."
+
+He Chengzong understood the rate was too low. On guard, he asked carefully: "What rate does Elder Gao consider suitable?"
+
+"To be frank," Gao Ju said, "inter-bank lending, even in the off-season, runs 2 to 2.4 percent annually. Given the Governor's face, 1.8 percent is the minimum."
+
+Gao Ju stated his demands: a one-year term. For the first six months, interest only; during the second six months, principal repayed monthly in six installments. Cleared completely by the twelfth month.
+
+Nominally borrowing for a year, but with principal repayment beginning in the seventh month, the effective interest was considerably higher than maturity payment.
+
+However, this structure suited the government's fiscal condition. He Chengzong understood that producing 470,000 taels in a single payment was impossible for Guangdong. Piecemeal was far more manageable.
+
+"This could work." He Chengzong nodded. "But it requires the Governor's approval."
+
+"Naturally." Gao Ju nodded, then asked: "Repaid with what?"
+
+"From the Autumn Tax, of course. A few cents' floating surcharge per *mu* will cover it. If Elder Gao explains this to the merchants, would they distrust the entire province's land tax as security?"
+
+Gao Ju sighed theatrically. "Brother He! That's a scholar's perspective. Borrowing requires first a written receipt, second a collateral guarantee. With just your words, who puts up money?"
+
+He Chengzong was baffled. Wasn't the Governor's word enough? In all Guangdong, few words carried comparable weight.
+
+"Isn't the Governor's Yamen's credibility sufficient?"
+
+"Certainly—but where's the proof?" Gao Ju saw he didn't understand and spoke more plainly. "Governor Li benefits the people and works tirelessly. But what if he's busy and forgets? Are we lenders supposed to hang ourselves?"
+
+He Chengzong had no response. Officials defaulting on obligations wasn't unheard of.
+
+"Even with a receipt, there must be collateral." Gao Ju chuckled. "One day Governor Li gets promoted, the money remains unpaid, and a new official arrives saying, 'I didn't borrow it—I don't care.' At that point, we might as well hang ourselves again."
+
+---
+
+He Chengzong knew Gao Ju spoke truth, but collateral...
+
+The notion troubled him. Having the Yamen issue receipts was virtually unprecedented; if one leaked to a Censor, Li Fengjie would be finished.
+
+Gao Ju suspected that formal receipts probably wouldn't happen. But he had prepared another approach.
+
+"A Yamen receipt would be the best guarantee, naturally. But having a collateral object is sufficient."
+
+Gao Ju proposed Salt Licenses as collateral.
+
+Collateralize Salt Licenses equivalent to total principal and interest, plus some additional salt weight to cover transport and sales costs. Salt Licenses were the government's most creditworthy securities; merchants would accept them readily.
+
+"Salt Licenses are immediately usable and resellable," He Chengzong objected. "What if unscrupulous merchants cash them early?"
+
+"Not difficult. Stamp each license: valid only after Month X, Day Y—the final repayment date." Gao Ju waved his hand. "When repaying, let people bring the licenses to exchange for silver."
+
+"Excellent method." He Chengzong was convinced. Gao Ju indeed possessed clever tricks.
+
+The two negotiated secretly for hours, finally reaching agreement.
+
+No draft or written record was made, but mutual assurances guaranteed neither party would renege. The agreed terms:
+
+1. Total loan: 400,000 Kuping Taels; Gao Ju would lead merchant subscription.
+2. Annual interest 1.8 percent. First six months interest only; final six months monthly principal repayment. Cleared within one year.
+3. Loan secured by equivalent Salt Licenses from the Governor's Yamen, plus 3 percent premium. Licenses stamped with validity date. Returned monthly to Yamen upon repayment.
+
+---
+
+He Chengzong reported the three articles to Li Fengjie.
+
+Hearing about using Salt Licenses, Li Fengjie acknowledged that Gao Ju possessed clever ideas and agreed to everything.
+
+Raising the silver required time. Fearing additional rocket attacks, Li Fengjie ordered 100,000 taels temporarily drawn from the Provincial Treasury and escorted by specialists to the Australian camp that night.
+
+Yan Little-Hat accompanied them, asking Wen and Chen for three days' grace to raise the remainder.
 
 *(End of Chapter)*

@@ -1,96 +1,96 @@
 # Chapter 911 – Manga Books
 
-Zhao Yingong smiled. "This is merely a secret plaything from Australia. Even among the Australians, it's quite rare. I had to spend considerable money and call in favors just to obtain one or two copies. I've kept them hidden away for a year or two now and have seen nothing uncanny about them—they're just ordinary picture albums."
+Zhao Yingong smiled with the easy confidence of a man sharing a secret. "What you hold is merely a private indulgence from Australia. Even among the Australians themselves, such things are exceedingly rare. It cost me considerable silver and no small number of favors to obtain just these few copies. I've kept them hidden away for a year or two now. I assure you—there's nothing uncanny about them. They're simply picture albums, nothing more."
 
-Only then did the group relax. Appetite and desire are part of human nature. Once the fear subsided, only the allure remained. The two magazines passed from hand to hand; everyone found them hard to put down. Zhang Dai repeatedly considered asking the host to part with them—money was no object for him—but given Master Zhao's opulent lifestyle, he probably wouldn't care about a few taels.
+Only then did the tension drain from the group. Fear gave way to fascination, appetite and desire reasserting their natural dominion. The two magazines circulated from hand to hand, and none could easily relinquish them. Zhang Dai turned the pages with growing covetousness, half-considering whether to offer his host a price—money was no obstacle for a man of his means—but given Master Zhao's evident opulence, a few taels of silver would hardly tempt him.
 
-After fondling them for a while, he reluctantly set the magazines down. Sun Chun kept pressing for details on how such lifelike images could be transferred onto paper. Zhao Yingong smiled:
+At last, with visible reluctance, Zhang Dai set the magazines down. Sun Chun, meanwhile, kept pressing for explanations—how could images so lifelike be transferred onto paper? Zhao Yingong smiled:
 
-"That, I don't know either. But the Australians once told me that the *Elementary Optics* Master Zongzi bought contains an explanation of the method—though described quite crudely."
+"That, I couldn't say. But the Australians once mentioned that the method is described in *Elementary Optics*—the book Master Zongzi purchased. Though I'm told the explanation is rather crude."
 
-"If this is a secret Australian technique, how could they write it plainly in a book?" said Zhang Dai. Then something occurred to him. "May I ask, Brother Zhao—do you have any telescopes here?"
+"If this is truly an Australian secret technique, why would they print it plainly in a book?" Zhang Dai frowned, then brightened with a sudden thought. "Tell me, Brother Zhao—do you have any telescopes here?"
 
-"Telescopes?" Zhao Yingong was momentarily taken aback. Telescopes hadn't been developed in Lingao yet—the Planning Commission warehouse already had large stockpiles of them: all types and purposes. Nearly every transmigrator had one—domestic, Russian, East German, German—you name it.
+"Telescopes?" Zhao Yingong hesitated. Telescope production hadn't yet begun in Lingao—the Planning Commission warehouse already held large stockpiles of them brought from the old timeline: all types and purposes, domestic and imported. Nearly every transmigrator owned one.
 
-Because of the existing inventory, the Science and Technology Department hadn't put telescope production on the agenda. It wasn't until the first Ship Preparation Plan was formally launched—when the Navy submitted its optical equipment requirements—that the Science and Technology Department added simple telescope manufacturing to the research schedule.
+Because of this existing inventory, the Science and Technology Department hadn't prioritized telescope manufacturing. Only when the first Ship Preparation Plan was formally launched—and the Navy submitted its optical equipment requirements—did the Department add simple telescope production to the research schedule.
 
-"The Australians aren't selling those. But I've heard Australian telescopes are quite excellent. I just haven't had the chance to see one."
+"The Australians aren't selling those. I've heard their telescopes are quite excellent, but I haven't had the opportunity to see one myself."
 
-"I see." Zhang Dai couldn't help but sigh. "A few days ago, Brother Mizhi lost his telescope on West Lake. I've seen how distraught he's been; I've been hoping to buy him a new one..."
+"A pity." Zhang Dai sighed. "A few days ago, Brother Mizhi lost his telescope on West Lake. I've seen how distraught he's been. I was hoping to find him a replacement."
 
-"Wait—" Zhao Yingong interrupted. "This Brother Mizhi—could it be Fang Yizhi, Master Fang?"
+Zhao Yingong interrupted: "Wait—this Brother Mizhi—could it be Fang Yizhi? Master Fang?"
 
 "Indeed!" said Zhang Dai. "You know him?"
 
-"Could his sobriquet be 'Foolish One of Longmian'?"
+"Is his sobriquet 'Foolish One of Longmian'?"
 
-"Indeed."
+"The very same."
 
-Zhao Yingong burst out laughing. "So that's what happened! How remarkable."
+Zhao Yingong burst out laughing. "How remarkable—so *that's* what happened."
 
-He then recounted how, while boating on West Lake, he'd seen a dragon boat swimmer retrieve a telescope from the lake bottom. After finishing the story, he sent a servant to fetch the telescope.
+He recounted how, while boating on West Lake, he'd seen a dragon boat swimmer retrieve a telescope from the lake bottom. When he finished, he dispatched a servant to fetch the instrument.
 
-Zhang Dai took one look and recognized it: the very Dutch telescope Fang Yizhi had always treasured—cleaned spotless and undamaged. Overjoyed, he made several deep bows. Zhao Yingong hastened to return the courtesy.
+Zhang Dai recognized it instantly: the Dutch telescope Fang Yizhi had always treasured, now cleaned spotless and undamaged. Overjoyed, he made several deep bows, which Zhao Yingong hastened to return.
 
-"Truly, the affairs of the world are beyond prediction," Zhang Dai said with a laugh. "Brother Zhao, you've chosen an auspicious name for your bookshop." He immediately declared that he would bring Fang Yizhi here soon.
+"Truly, the affairs of this world are beyond prediction," Zhang Dai said, laughing. "Brother Zhao, you've chosen an auspicious name for your bookshop." He declared on the spot that he would bring Fang Yizhi here soon.
 
-"He's a man who loves writing and scholarship, with an intense interest in the study of natural principles. I see that the curios here far surpass anything those Western monks have. Brother Mizhi will certainly be delighted."
+"He's a man who loves writing and scholarship, with an intense interest in the study of natural principles. These curios far surpass anything those Western monks possess. Brother Mizhi will be delighted beyond words."
 
-"Actually, the science of the telescope is also discussed in *Elementary Optics*. If one is interested, one could even make a telescope oneself."
+"As it happens, the science of the telescope is also discussed in *Elementary Optics*. Someone sufficiently interested could even construct one himself."
 
-Sun Chun chimed in from the side: "Is that so? When Mizhi sees both of these, he'll probably go mad with joy."
+Sun Chun chimed in: "Is that so? When Mizhi sees both of these treasures, he'll probably go mad with joy."
 
 "I've long admired Brother Mizhi's reputation. If he comes, I'll be so eager to receive him I'll practically stumble over my own shoes."
 
-This little interlude instantly strengthened the bond between them. Zhang Dai then asked if he could see a few more magazines.
+This fortuitous interlude strengthened the bond between them considerably. Zhang Dai then asked if he might see a few more magazines.
 
-"I have very few of these secret picture albums. But I do have some other Australian picture books that, while not quite so lifelike, are still worth a look."
+"I have very few of these secret picture albums. But I do have other Australian picture books that, while not quite so lifelike, are still worth examining."
 
-"Oh? We'd be grateful to impose." The group's interest was immediately piqued.
+"Oh? We'd be grateful for the imposition." The group's interest was immediately rekindled.
 
-Zhao Yingong smiled slightly. Of course, he couldn't sell these modern color-printed magazines. Apart from a few H-magazines purchased from someone's luggage to help open up the Guangzhou market years ago, the Grand Library's physical magazines consisted only of those salvaged from Lando's sunken ship. Never mind that magazines weren't productive capacity—such color printing was utterly beyond Lingao's current technical capability. They were a finite, irreplaceable resource, classified as Grade 2 controlled materials on the Planning Commission's manifests.
+Zhao Yingong smiled. Of course, he couldn't sell these modern color-printed magazines. Apart from a few H-magazines purchased from someone's luggage years ago to help crack open the Guangzhou market, the Grand Library's physical magazine collection consisted only of those salvaged from Lando's sunken ship. Never mind that magazines served no productive purpose—such color printing was utterly beyond Lingao's current technical capability. These were a finite, irreplaceable resource, classified as Grade 2 controlled materials on the Planning Commission's manifests.
 
-So Zhou Dongtian had long since developed products that could be reproduced with this timeline's technology. Zhao Yingong summoned his personal servant Jiying with a few instructions. Before long, Jiying brought out several book cases and arranged them on the long table by the window.
+Zhou Dongtian had therefore long since developed products that could be reproduced with this timeline's technology. Zhao Yingong summoned his personal servant Jiying with quiet instructions. Before long, Jiying appeared bearing several book cases, which he arranged upon the long table by the window.
 
-Zhao Yingong smiled. "Gentlemen, please take a look."
+"Gentlemen," Zhao Yingong smiled. "Please, take a look."
 
-Zhang Dai and the others could barely contain their curiosity. They gathered around. The book cases were made of fine wood, left in natural color, with simple designs painted on the lids, and titles inscribed: *Prison Flower*, *Rihwa-Lo*, *Spring-Longing Woman*, and *Broad Records of Jests*.
+Zhang Dai and the others gathered around, barely containing their curiosity. The book cases were crafted from fine wood left in its natural color, with simple designs painted on the lids and titles inscribed: *Prison Flower*, *Rihwa-Lo*, *Spring-Longing Woman*, and *Broad Records of Jests*.
 
-From the cases themselves and the strange titles, nothing seemed unusual. With a cryptic smile at the corner of his lips, Zhao Yingong opened one case. The books inside opened to the left. The covers were simple. Zhang Dai picked one up and leafed through a few pages, then laughed. "What marvelous books! Vivid and alluring!"
+From the cases themselves and the strange titles, nothing seemed remarkable. With a cryptic smile playing at the corner of his lips, Zhao Yingong opened one case. The books inside opened to the left, their covers simple. Zhang Dai picked one up, leafed through a few pages, and laughed. "What marvelous books! Vivid and alluring!"
 
-Sun Chun was very curious and picked one up too. At first glance, it wasn't the vibrantly colored pages that seemed like living people; instead, it was black line drawings on white.
+Sun Chun's curiosity was piqued; he selected one for himself. At first glance, these weren't the vibrantly colored images that seemed like living people—instead, black line drawings on white.
 
-What was depicted were handsome men and beautiful women, exquisitely rendered. On closer inspection, he realized these were scenes of male-on-male passion, exquisitely drawn—even the masters Zhang Hou and Dao Mu would be put to shame.
+What was depicted were handsome men and beautiful women, exquisitely rendered. Upon closer inspection, he realized these were scenes of intimate passion between men, drawn with such artistry that even the masters Zhang Hou and Dao Mu would be put to shame.
 
-Fondness for catamites was widespread among late-Ming literati; though Sun Chun didn't share the inclination, he wasn't offended. He merely felt the artistry was superb: the figures' movements, faces, and even the... acts themselves were rendered in minute detail, even the expressions were remarkably lifelike—far more accomplished than the usual *shunga* albums and "fire-prevention diagrams."
+Fondness for catamites was widespread among late-Ming literati; though Sun Chun didn't share the inclination, he took no offense. He merely marveled at the superb artistry: the figures' movements, their faces, even the acts themselves rendered in minute detail, expressions remarkably lifelike—far more accomplished than the usual *shunga* albums and "fire-prevention diagrams."
 
-After leafing through a few pages, he realized this was no mere collection of erotic plates but a complete story, even though the characters and settings were entirely unfamiliar. He laughed. "Even in matters of Longyang, the Australians are peerless!"
+After leafing through several pages, he realized this was no mere collection of erotic plates but a complete story, though the characters and settings were entirely unfamiliar. He laughed. "Even in matters of Longyang, the Australians are peerless!"
 
-Zhang Dai set down *Prison Flower*. He prided himself on being widely experienced, but he hadn't expected these hand-drawn line-art albums from Australia to have such powerful expressiveness—they practically made his blood race. Though some artistic techniques and character designs took getting used to, the quality was undeniable. Setting aside the exquisite, vivid figures and movements, the story itself was engaging.
+Zhang Dai set down *Prison Flower*. He prided himself on being widely experienced, but these hand-drawn line-art albums from Australia possessed an expressive power he hadn't anticipated—they practically made his blood race. Though certain artistic techniques and character designs took getting used to, the quality was undeniable. Setting aside the exquisite, vivid figures and movements, the story itself was genuinely engaging.
 
-The next one, *Spring-Longing Woman*, was a more conventional album of male-female pleasure. At a glance, the art style differed slightly from *Prison Flower* and *Rihwa-Lo*, but the richness of the plot, the beauty of the illustrations, and the variety of scenarios were no less impressive.
+The next volume, *Spring-Longing Woman*, was a more conventional album of male-female pleasure. At a glance, the art style differed slightly from *Prison Flower* and *Rihwa-Lo*, but the richness of plot, the beauty of illustration, and the variety of scenarios were no less impressive.
 
-"Truly extraordinary!" said Sun Chun. Wen Huai, who usually styled himself a moralist, saw that the first few sets were all erotic albums. He picked up *Broad Records of Jests*—surely *that* wouldn't be erotic.
+"Truly extraordinary!" said Sun Chun. Wen Huai, who styled himself a moralist, observed that the first few sets were all erotic albums and turned instead to *Broad Records of Jests*—surely *that* would be different.
 
-It wasn't erotic, but it was still a similar picture book. The figures were comically absurd. Wen Huai had never seen such a *Broad Records of Jests* before. After a few pages, he couldn't help bursting into laughter. "The truly remarkable book is right here!"
+It wasn't erotic, but it was still a picture book in similar style, its figures comically absurd. Wen Huai had never seen such a *Broad Records of Jests*. After a few pages, he couldn't help bursting into laughter. "The truly remarkable book is right here!"
 
-The group exchanged books for a while longer. In the end, all the sets were sold—at no small price, of course. Zhao Yingong's true purpose wasn't simply to sell books; it was to cultivate these scholars. He then had exquisitely prepared pastries and candies shipped from Lingao brought out. Everyone left in high spirits.
+The group continued exchanging volumes. In the end, all the sets were sold—at no small price, of course. But Zhao Yingong's true purpose wasn't merely to sell books; it was to cultivate these scholars. He then had exquisitely prepared pastries and candies shipped from Lingao brought out. Everyone departed in high spirits.
 
-After seeing off Zhang Dai and Sun Chun's party, Zhao Yingong remained elated. He hadn't just connected with Zhang Dai—he'd also roped in Fang Yizhi in one stroke. The Restoration Society, a group with enormous influence across half of Jiangnan, had now opened a small door for him. This would be of great benefit to his future work.
+After seeing off Zhang Dai and Sun Chun's party, Zhao Yingong remained elated. He hadn't merely connected with Zhang Dai—he'd roped in Fang Yizhi in one stroke. The Restoration Society, a group wielding enormous influence across half of Jiangnan, had opened a small door for him. This would prove of great benefit to his future work.
 
-Returning to the printing workshop in the back, he found Zhou Dongtian teaching apprentices the essentials of lithographic printing. These apprentices had been recently recruited from Nanjing; they had some background in drawing and woodblock carving, making them relatively easy to train. Zhou Dongtian wasn't worried about them learning the techniques and then jumping ship—so long as he controlled the coatings and inks used in lithographic printing, knowing the principles and techniques alone was useless.
+Returning to the printing workshop in the back, he found Zhou Dongtian instructing apprentices in the essentials of lithographic printing. These apprentices had been recently recruited from Nanjing; their backgrounds in drawing and woodblock carving made them relatively easy to train. Zhou Dongtian wasn't concerned about them learning the techniques and then jumping ship—so long as he controlled the coatings and inks used in lithographic printing, knowing the principles and techniques alone was useless.
 
-The several books Zhao Yingong had just sold had been printed by Zhou Dongtian and his team using lithography. As for the source materials: apart from *Longyang Cave* and *Prison Flower*, which the Daoist had provided, the rest came from the Grand Library's electronic archives.
+The books Zhao Yingong had just sold had been printed by Zhou Dongtian and his team using lithography. As for the source materials: apart from *Longyang Cave* and *Prison Flower*, which the Daoist had provided, the rest came from the Grand Library's electronic archives.
 
-Lithographic printing had proven more difficult than expected, mainly in producing the base coatings, inks, and etching agents. It had taken a long time to find suitable formulations and substitutes.
+Lithographic printing had proven more difficult than anticipated, mainly in producing base coatings, inks, and etching agents. It had taken considerable time to find suitable formulations and substitutes.
 
 There had been debates at the Grand Library over which manga to print. The Library's collection of H-manga was vast and varied, including many with extremely intense content. Because the seventeenth century was an era without the concept of human rights, most of those manga were ultimately rejected. Only the relatively wholesome, mildly erotic ones with normal H-content were selected.
 
-The chosen manga source materials had been edited by transmigrators from the Grand Library to ensure there was no inappropriate content—the story settings were entirely fictional. Modern-style works could pass as Australian tales. Zhou Dongtian had originally planned to pirate Cai Zhizhong's entire series. But someone pointed out that manga touching on Confucian matters shouldn't be printed for now—works involving the *Analerta* and other Confucian classics might attract trouble from pedantic moralists. With Yin Gong operating abroad, less trouble was better than more; best not to sell them at all.
+The chosen source materials had been edited by transmigrators from the Grand Library to ensure there was no inappropriate content—the story settings were entirely fictional. Modern-style works could pass as Australian tales. Zhou Dongtian had originally planned to pirate Cai Zhizhong's entire series, but someone pointed out that manga touching on Confucian matters shouldn't be printed yet—works involving the *Analects* and other Confucian classics might attract trouble from pedantic moralists. With Yin Gong operating abroad, less trouble was better than more; best not to sell them at all.
 
-What Zhou Dongtian was now teaching his apprentices to draw was another Cai Zhizhong manga: *Zen Speaks*. He knew that once he left, the printing quality would likely decline, so he wanted to produce as many books as possible for Old Zhao while he was still here. He'd even considered whether to convert the manga to woodblock printing—after all, lithography had very limited print runs.
+What Zhou Dongtian was now teaching his apprentices to draw was another Cai Zhizhong manga: *Zen Speaks*. He knew that once he left, printing quality would likely decline, so he wanted to produce as many books as possible for Old Zhao while he was still here. He'd even considered whether to convert the manga to woodblock printing—after all, lithography had very limited print runs.
 
-"Are you sure there's no problem with the *Condor Heroes* trilogy you sold to Zhang Dai?" Zhou Dongtian asked with a laugh when he saw him enter.
+"Are you sure there's no problem with the *Condor Heroes* trilogy you sold to Zhang Dai?" Zhou Dongtian asked with a laugh when Zhao Yingong entered.
 
 "The Grand Library's Truth Office reviewed it. Zhu Yuanzhang was changed to Chen Youliang, Chen Youliang to Fang Guozhen, and Chang Yuchun to Zhang Dingbian. That shouldn't run afoul of any taboos, surely?"
 

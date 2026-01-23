@@ -2,118 +2,118 @@
 
 "Is it him?"
 
-"It's him." The laborer said quietly.
+"It's him," the laborer whispered.
 
-"Carry this body to the village and dump it on the threshing floor." He ordered. "Let everyone see what happens to traitors!"
+"Carry this body to the village and dump it on the threshing floor." The order came swift and cold. "Let everyone see what happens to traitors."
 
-Under the anxious eyes of the villagers, the Fubogun marched into the village, then began demolishing the liaison's house. In less than fifteen minutes, the entire structure was leveled. Everything torn down was hauled outside the village and burned. Only the massive bamboo beam was kept.
+Under the anxious gaze of the gathered villagers, the Fubogun marched into the settlement and set about demolishing the liaison's house. In less than fifteen minutes, the entire structure lay in ruins. What could burn was hauled outside the village and put to the torch. Only the massive bamboo beam was spared.
 
-Soldiers drove up a cow, dragging an iron plow behind it, and deeply turned the soil on the now-bare foundation. Then a sack of sea salt was scattered into the furrows and buried.
+Soldiers drove up a cow dragging an iron plow and turned the bare foundation deep into the earth. A sack of sea salt was scattered into the fresh furrows and buried. Finally, the salvaged beam was erected upon that salted ground, and from it hung the body of the liaison who had betrayed the work team.
 
-Finally, the bamboo beam was erected on the foundation, and the body of the liaison who had betrayed the work team was hung upon it.
+"Leave it there until only bones remain," Lin Shenhe commanded.
 
-"Don't take it down until it becomes bones!" Lin Shenhe ordered.
+A new work team arrived from Danzhou with Lin Shenhe serving as interim leader. Liu Yixiao and Yu Zhiqian soon followed, bringing the work team with them. For the moment, Danzhou's power center had shifted to this desolate hamlet.
 
-A new work team was dispatched from Danzhou. Lin Shenhe acted as interim team leader. Then Liu Yixiao and Yu Zhiqian also arrived at Zhaopu Village with the work team. For the moment, Danzhou's power center shifted to this desolate little hamlet.
+"Is it wise for you to come here as well?" Liu Yixiao asked with evident concern.
 
-Liu Yixiao expressed concern: "Is it appropriate for you to come here too?"
+"Danzhou isn't without transmigrators in my absence," Yu Zhiqian replied. "I need to survey the battlefield myself. Besides, when an incident of this magnitude occurs and leadership fails to visit the front line—what will the Yuan Laoyuan think?"
 
-"It's not as if there are no transmigrators left in Danzhou city." Yu Zhiqian said. "I need to survey the battlefield. Besides, with such a major incident, if leadership doesn't personally visit the front line, what will the Yuan Laoyuan think?"
+The entire village underwent a thorough cleansing. The new work team abandoned all talk of developing mountain land or cultivating cash crops. Even the previous efforts to recruit soldiers and laborers had ceased.
 
-The entire village then underwent a major cleansing. The new work team no longer discussed developing mountain land or cultivating cash crops. They weren't even conducting the previous recruitment work for soldiers and laborers.
+Both Lin Shenhe and Liu Yixiao suspected that others in the village had connections to the bandits. Liu Yixiao was also convinced the villagers couldn't possibly be ignorant of which gang had attacked.
 
-Both Lin Shenhe and Liu Yixiao suspected there were other people in the village connected to the bandits. Additionally, Liu Yixiao believed the villagers couldn't possibly know nothing about which bandit gang had attacked.
+These questions demanded answers. Without rooting out the source of danger, peaceful construction would remain impossible.
 
-These questions had to be thoroughly clarified. Without digging out the roots of danger, peaceful construction was impossible.
+Under the soldiers' supervision, the village men constructed a bamboo palisade around the settlement, dug a defensive trench, and erected a watchtower. Anyone leaving for the fields now required approval from work-team personnel. Every permanent resident was entered into a new household-registration system.
 
-Under soldiers' supervision, the men of the village built a bamboo palisade around the settlement, dug a trench, and erected a watchtower inside. Villagers leaving for field work required approval from work-team personnel stationed in the village. Permanent residents were registered in a new household-registration system.
+Work-team members wearing blue collar tabs began conducting individual interviews with the villagers—one by one, back-to-back. From the elderly to children as young as eight, everyone was questioned. Everyone had to pass.
 
-Several work-team members wearing blue collar tabs began conducting individual "back-to-back" interviews with villagers. From eighty-year-olds to eight-year-olds, everyone was interviewed; everyone had to pass.
+The investigation turned each villager's history inside out. Eventually, someone revealed that Chen Lianjian had connections to bandits.
 
-This investigation turned every villager's history inside out. Eventually someone revealed that the villager Chen Lianjian had connections to bandits.
+Chen Lianjian had ridden with bandits for years before returning to farm after an injury left one leg useless. He had a wife and several daughters. Without able-bodied male laborers, the family barely scraped by.
 
-This person had been a bandit for many years, only returning to farm after being injured and losing use of one leg. He had a wife and several daughters. With no able-bodied male laborers, the family barely scraped by.
+He admitted he had been a bandit—but not with the gang that had come.
 
-Chen Lianjian said he had indeed been a bandit, but not with the gang that came.
+"They're Hu Lanyan's men! Nothing to do with me—I never invited them!" Chen Lianjian protested again and again. "Hu Lanyan's bunch came over from Lingao!"
 
-"They're Hu Lanyan's men! Nothing to do with me—I absolutely didn't invite them!" Chen Lianjian protested his innocence repeatedly. "Hu Lanyan's bunch came over from Lingao!"
+He knew little about Hu Lanyan's gang—only that they had arrived from Lingao the previous year with many men and had swiftly become the largest bandit force in the region.
 
-Chen Lianjian didn't know much about Hu Lanyan's gang—only that they had come from Lingao the previous year, had many men, and immediately became the largest bandit gang in the area upon arriving in Danzhou.
+Lin Shenhe slammed the table. "Tell me everything you know about local bandit activity. Confess honestly!"
 
-Lin Shenhe slapped the table: "Tell me everything you know about local bandit activity—confess honestly!"
+Chen Lianjian was illiterate and had been nothing more than a lowly foot soldier. He knew little of real value. But he still revealed information about aliases, gang sizes, methods, and jargon. Lin Shenhe recognized immediately that this man could prove useful. In the hands of professional investigators, even more could be extracted.
 
-Chen Lianjian was illiterate and had been only a lowly bandit. He didn't know much of value. But he still revealed information about local bandit aliases, gang numbers, methods, and jargon. Lin Shenhe realized this man could be very useful. If handed to professional investigators, even more "material" could be extracted.
+"Guards—lock him up separately," Lin Shenhe instructed. "Watch him carefully."
 
-"Guards, lock him up separately." Lin Shenhe instructed. "Watch him carefully!"
+"Yes, sir!" The guard turned to leave.
 
-"Yes!" The guard was about to leave. Lin Shenhe stopped him. "Also arrest his wife and daughters—lock them up separately!"
+"Wait." Lin Shenhe stopped him. "Also arrest his wife and daughters. Lock them up separately."
 
-"This humble one is already a cripple! I can never work that trade again—I wouldn't dare have such thoughts! Please investigate, Your Honor!" Chen Lianjian pleaded desperately. He feared the Australians might use him and his family as "chickens" to scare the monkeys, treating them like the liaison.
+"This humble one is already a cripple! I can never work that trade again—I wouldn't dare even think of it! Please investigate, Your Honor!" Chen Lianjian pleaded desperately, terrified the Australians might make an example of him and his family—just as they had with the liaison.
 
-"Should we kill a few to establish authority?" Lin Shenhe asked Liu Yixiao. "We could execute Chen Lianjian for his bandit history."
+"Should we kill a few to establish authority?" Lin Shenhe asked Liu Yixiao. "We could execute Chen Lianjian based on his bandit history."
 
-Liu Yixiao shook his head: "That's not appropriate. Chen Lianjian wasn't involved in the attack on the work team. Most villagers are neither principals nor accomplices—at most they failed to act heroically. Killing under those circumstances would be unjustified."
+Liu Yixiao shook his head. "That wouldn't be appropriate. Chen Lianjian wasn't involved in the attack on the work team. Most of these villagers are neither perpetrators nor accomplices—at worst, they failed to act heroically. Executing them under such circumstances would be unjustifiable."
 
-"It's really a shame not to kill a few people." Yu Zhiqian was greatly disappointed. "This won't deter the locals!"
+"What a shame not to kill a few," Yu Zhiqian said, deeply disappointed. "This won't deter the locals."
 
-"The people have long lived in hardship; inevitably their thinking has become numb and obtuse—they only know self-preservation." Fang Jinghan, who was directing the political investigation and social survey, said. "This is typical submissive-populace thinking—any master will do, as long as there's a way to survive. They're so poor they have nothing to lose anyway."
+"These people have lived in hardship for so long that their thinking has grown numb and obtuse—they know only self-preservation," Fang Jinghan observed. He was directing the political investigation and social survey. "This is classic submissive-populace mentality: any master will do, so long as survival is possible. They're so poor they have nothing left to lose."
 
-"I still think we should execute a batch." Yu Zhiqian was unwilling to let the villagers off so easily. "Without killing, we can't establish authority in Danzhou! It severely affects Danzhou's public security!"
+"I still think we should execute a batch," Yu Zhiqian pressed. "Without bloodshed, we cannot establish authority in Danzhou. It's crippling public security."
 
-Liu Yixiao firmly opposed: "Slaughtering innocents is meaningless! These villagers are detestable, but there's no justified reason for execution. Indiscriminate killing only reveals our inner weakness."
+"Slaughtering innocents is meaningless." Liu Yixiao's opposition was firm. "These villagers are contemptible, but there's no justifiable grounds for execution. Indiscriminate killing only betrays our own weakness."
 
-Though Liu Yixiao firmly opposed massacring the village or killing people, he had no clear idea how to handle the matter.
+Yet for all his conviction, Liu Yixiao had no clear alternative.
 
-His report on the Zhaopu Village incident to Lingao caused an uproar in the Yuan Laoyuan. The news from Liu Muzhou was very bad. Transmigrators were extremely dissatisfied with his work. He might well be removed from his position as Danzhou Work Team leader.
+His report on the Zhaopu Village incident sent shockwaves through the Yuan Laoyuan. The word from Liu Muzhou was grim: the transmigrators were furious with his leadership. He might well be stripped of his position as Danzhou Work Team leader.
 
-Once that position was lost, his hope of becoming the first Danzhou County Magistrate would be completely dashed. Moreover, this political stain would be very difficult to wash away. He was both dejected and anxious. He could only try to score points in the follow-up handling.
+If that happened, his hopes of becoming Danzhou's first County Magistrate would be finished. Worse, this political stain would prove nearly impossible to wash away. Dejection and anxiety gnawed at him in equal measure. All he could do was try to salvage points through the follow-up.
 
-If his handling of the local villagers was too lenient, it would inevitably provoke greater displeasure in the Yuan Laoyuan. According to Liu Muzhou's communication, some transmigrators were even demanding the village be massacred.
+Too lenient a response would only deepen the Yuan Laoyuan's displeasure. According to Liu Muzhou, some transmigrators were already demanding the entire village be massacred.
 
-But excessive cruelty would also alienate some transmigrators. How to balance severity and leniency had him in a difficult position.
+But excessive cruelty would alienate others. The balance between severity and leniency had become an impossible needle to thread.
 
-After much deliberation, Fang Jinghan proposed a "collective punishment" plan.
+After considerable deliberation, Fang Jinghan proposed a plan he called "collective punishment."
 
-The plan was to confiscate all property of Zhaopu Village residents as punishment for the work team's destruction.
+The proposal was to confiscate all property belonging to Zhaopu Village residents as restitution for the destruction of the work team.
 
-"That's nothing—what property do they have?"
+"That's nothing—what property do they even have?"
 
-"The land here, though little, is property."
+"The land here, meager as it is, constitutes property."
 
-"Fine. What do we do with this land?" Danzhou likewise had no shortage of land—only people.
+"Fine. What do we do with the land?" Danzhou had no shortage of land—only people.
 
-"The focus isn't the land—stripping them of land strips them of resources to survive here." Fang Jinghan said. "All the village's labor becomes population directly at our disposal. If you like, you can call them 'state slaves.'"
+"The land isn't the point," Fang Jinghan explained. "Stripping them of it strips them of any means to survive here. All the village's laborers become population directly at our disposal. If you like, call them 'state slaves.'"
 
-"Like how all immigrants are contract slaves..."
+"Like how all immigrants become contract slaves..."
 
-"Exactly. We relocate the entire village to better conditions through village consolidation, turning villagers into our directly controlled population. Make it Danzhou's first commune!"
+"Exactly. We relocate the entire village to better conditions through consolidation—turning them into directly controlled population. This becomes Danzhou's first commune."
 
-"Thirty-odd households is a commune? Too few people."
+"Thirty-odd households? That's too few for a commune."
 
-"We implement village consolidation—gradually relocate and merge these small villages. This facilitates population management and control while promoting development."
+"We implement village consolidation—gradually relocating and merging these scattered settlements. It facilitates population management while promoting development."
 
-After population relocation, the area could be completely abandoned—it had little development value anyway. When mountain resources needed developing in the future, new migrants could be moved in.
+After the relocation, the original site could be abandoned entirely—it held little development value anyway. When the time came to exploit the mountain resources, new migrants could be moved in.
 
-As for the relocated villagers, Fang Jinghan suggested immediate utilization. First, all eligible males aged eighteen to twenty-five would be drafted as soldiers.
+As for the relocated villagers, Fang Jinghan recommended immediate utilization. All eligible males between eighteen and twenty-five would be drafted.
 
-"The military is a great melting pot." Fang Jinghan said. "Into the military's melting pot they go, where Wei Aiwen feeds them some gruel, they march in formation for three years and develop discipline. When they come out, they'll be qualified 'new people.' For adults, only such coercion works."
+"The military is a great melting pot," he said. "Throw them in, let Wei Aiwen feed them gruel, make them march in formation for three years. They'll develop discipline. When they come out, they'll be qualified 'new people.' For adults, only such coercion works."
 
-Children under eighteen would all be sent to Lingao for compulsory education. Younger ones would attend national school; older ones would go to apprenticeship training. The remaining people would serve as laborers. No manpower would be wasted.
+Children under eighteen would all be sent to Lingao for compulsory education—younger ones to national school, older ones to apprenticeship training. The remaining population would serve as laborers. No manpower would be wasted.
 
-"Follow this approach." Liu Yixiao nodded, approving the plan. "Road construction currently needs labor. After this group is moved to the new location, start with three months of road work."
+"We'll proceed with this approach." Liu Yixiao nodded his approval. "Road construction needs labor. Once this group is resettled, start them with three months of roadwork."
 
-"Better to build the commune first." Yu Zhiqian hastily added. "I've seen that Zhonghe Post's garrison city has a good foundation—plenty of empty buildings, completely adequate to house immigrants. Make Zhonghe Post the site of Danzhou's first commune."
+"Better to establish the commune first," Yu Zhiqian interjected. "Zhonghe Post's garrison city has a solid foundation—plenty of empty buildings, more than adequate for housing immigrants. Make Zhonghe Post the site of Danzhou's first commune."
 
-The following week, more work-team members and a second infantry company arrived from Danzhou. The village was tightly surrounded by soldiers. Then the work team entered in batches, ordering each household to pack up and prepare for relocation.
+The following week, additional work-team members and a second infantry company arrived from Danzhou. Soldiers encircled the village in a tight cordon. The work team then entered in batches, ordering each household to pack up and prepare for relocation.
 
-The villagers were very poor. Their only real property was a few ragged clothes, farm tools, and the most basic necessities. The best-off families had cattle.
+The villagers possessed almost nothing. Their sole property consisted of ragged clothes, crude farm tools, and the barest necessities. The wealthiest families had cattle.
 
-"Except for clothes, valuables, and livestock, don't bring anything!" Native work-team members shouted repeatedly through megaphones. "The new village will have everything. Food and drink will be provided on the road!"
+"Except for clothes, valuables, and livestock—bring nothing!" Native work-team members bellowed through megaphones. "The new village will have everything you need. Food and drink will be provided on the road!"
 
-By transmigrator standards, the villagers had nothing the transmigrators would consider property except themselves and their livestock. Local farm tools were so inferior they might as well be melted down for scrap. Even the most precious iron pots seemed to the transmigrators like a waste of iron. Not to mention the hygiene concerns with their utensils. After comprehensive consideration, everyone agreed that a full supply system would be simpler.
+By transmigrator standards, the villagers owned nothing worth calling property beyond themselves and their livestock. The local farm tools were so wretched they were better melted for scrap. Even the most treasured iron pots struck the transmigrators as a waste of metal, to say nothing of the hygiene concerns with their utensils. After due consideration, everyone agreed that a full supply system would be simpler.
 
-Items left in the village would be inspected; usable materials—iron goods, metal objects, cotton and hemp textiles—would be disinfected and recovered. Items without value would all be destroyed on site. Houses included would all be demolished, completely cutting off any thought of immigrants returning.
+What remained in the village would be inspected. Usable materials—iron goods, metal objects, cotton and hemp textiles—would be disinfected and recovered. Everything else would be destroyed on site. The houses, too, would be demolished entirely, severing any thought of return.
 
-The only thing left in the village was the severely rotting corpse hanging from the bamboo pole. Flies buzzed around it.
+Only one thing would be left standing: the bamboo pole with its badly rotting corpse. Flies swarmed thick around it.
 
-As the people shouldered their belongings and set off, demolition work was already beginning in the village. The rumbling collapse of houses and rising dust brought expressions of grief and bewilderment to the immigrants' faces.
+As the villagers shouldered their meager belongings and set off, the demolition was already underway behind them. The rumble of collapsing houses and the rising clouds of dust drew expressions of grief and bewilderment across the faces of the departing.

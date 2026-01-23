@@ -1,8 +1,8 @@
 # Chapter 578 - Sights of Bopu
 
-He was quite interested in mathematics. As a youth in Macau, he'd read many European and Arabic works and had considerable expertise in geometry and algebra. But outsiders assumed his mathematical enthusiasm was for business accounting—some ignorant people even mocked him, saying Master Li loved money like his life and was afraid his accountants would cheat him, so he learned arithmetic to perfection himself.
+Li Luoyou was quite interested in mathematics. As a youth in Macau, he'd read many European and Arabic works and had developed considerable expertise in geometry and algebra. But outsiders assumed his mathematical enthusiasm was for business accounting—some ignorant people even mocked him, saying Master Li loved money like his life and was afraid his accountants would cheat him, so he learned arithmetic to perfection himself.
 
-Li Luoyou had occasionally heard such remarks. Though not worth arguing about, he secretly smiled bitterly: the vast majority of his countrymen's concept of mathematics still remained at the most elementary arithmetic application level. Li Luoyou had widely read works by mathematical masters both Chinese and foreign and had corresponded with contemporary mathematicians, but this subject existed only as an amusement within a very small circle. Many considered it useless "clever trickery"; those more complimentary called it "dragon-slaying technique"—speaking of applications, only astronomy and calendrical calculation had use for it. Who needed it in daily life?
+Li Luoyou had occasionally heard such remarks. Though not worth arguing about, he secretly smiled bitterly: the vast majority of his countrymen's concept of mathematics still remained at the most elementary level of practical arithmetic. Li Luoyou had widely read works by mathematical masters both Chinese and foreign and had corresponded with contemporary mathematicians, but this subject existed only as amusement within a very small circle. Many considered it useless "clever trickery"; those more complimentary called it "dragon-slaying technique"—impressive but impractical. In terms of applications, only astronomy and calendrical calculation had use for it. Who needed it in daily life?
 
 With Li Luoyou's attainments in algebra and geometry, he could be considered one of the few mathematical talents in this timeline's Ming. But this talent had almost no practical use. In his daily life, he could only use solving geometry and algebra problems as recreation. He couldn't help feeling his talents were wasted.
 
@@ -16,7 +16,11 @@ He had vertigo; after calculating for a while, he felt somewhat dizzy. He stood 
 
 "Yes," Saoye said respectfully. "Master is right to scold. This servant was watching the salt boats."
 
-Li Luoyou looked and saw a fleet of vessels sailing on the ship's port side. These were all small to medium-sized vessels—double-masted Fujian ships, Guangdong ships, rice boats, tow-wind boats, and such. The hull types varied, but each ship's bow was painted with white characters: "Lin Yun," followed by Arabic numerals! Li Luoyou was startled. He recognized Arabic numerals and sometimes used them when keeping his private accounts. But his case was exceptional; seeing them painted directly on ship hulls was a first.
+---
+
+Li Luoyou looked and saw a fleet of vessels sailing on the ship's port side. These were all small to medium-sized vessels—double-masted Fujian ships, Guangdong ships, rice boats, tow-wind boats, and such. The hull types varied, but each ship's bow was painted with white characters: "Lin Yun," followed by Arabic numerals!
+
+Li Luoyou was startled. He recognized Arabic numerals and sometimes used them when keeping his private accounts. But his case was exceptional; seeing them painted directly on ship hulls was a first.
 
 "Are these Lingao ships?"
 
@@ -26,23 +30,25 @@ At this explanation, Li Luoyou had a vague recollection: there was indeed an off
 
 "Where is all this salt being transported?"
 
-"To Bopu, of course." The captain said.
+"To Bopu, of course," the captain said.
 
 The Australians were smuggling salt! Li Luoyou thought. He watched the salt fleet—about ten vessels sailing in formation, each riding deep in the water, apparently carrying substantial quantities of sea salt. Such brazen salt smuggling—these people were bold indeed!
 
-The fleet maintained orderly formation, sailing single-file one after another. The sailors wore the same blue jackets as those on the patrol boat; some carried long muskets on their backs, standing guard on both sides of the gunwales. Li Luoyou counted silently—each ship had at least four men with muskets. Several ships had strange devices mounted on their deckhouses—a round European goblet-style base supporting a long black box, with two sailors behind it holding it in place. He didn't know its purpose. Li Luoyou guessed it might be some kind of Australian cannon—given their reputation for formidable firearms, having weapons unknown to either Ming or European wasn't surprising.
+The fleet maintained orderly formation, sailing single-file one after another. The sailors wore the same blue jackets as those on the patrol boat; some carried long muskets on their backs, standing guard on both sides of the gunwales. Li Luoyou counted silently—each ship had at least four armed men. Several ships had strange devices mounted on their deckhouses—a round European goblet-style base supporting a long black box, with two sailors behind it holding it in place. He didn't know its purpose. Li Luoyou guessed it might be some kind of Australian cannon—given their reputation for formidable firearms, having weapons unknown to either Ming or European wasn't surprising.
 
-With such a show of force, no wonder the authorities could only play deaf and dumb. Li Luoyou thought. Salt-smuggling enforcement traditionally caught the small and let the big go. Those caught and punished were only small peddlers with a few catties or tens of catties; catching one with several *shi* was already considered a major case. The truly big smugglers moving tens or hundreds were untouchable—not only because salt smugglers were fierce and willing to fight to the death, but also because such trade often involved gentry backing.
+With such a show of force, no wonder the authorities could only play deaf and dumb. Salt-smuggling enforcement traditionally caught the small and let the big go. Those caught and punished were only small peddlers with a few catties or tens of catties; catching one with several *shi* was already considered a major case. The truly big smugglers moving tens or hundreds were untouchable—not only because salt smugglers were fierce and willing to fight to the death, but also because such trade often involved gentry backing.
 
 With the Australians so brazen, who were the gentry behind them? Gao Ju could be counted as one of their patrons. And Master Gao was connected to Eunuch Yang in the capital...
 
-But even Eunuch Yang probably wouldn't dare support their antics to this extent. The Australians were clearly not so simple. The salt fleet gradually fell behind. Li Luoyou gazed at Ma Niao Port; the salt fields along the coast glittered brilliantly in the sunlight. Among the salt fields stood windmills, their great vanes slowly rotating in the wind. These massive water-lifting windmills had become a signature feature of the Ma Niao coast.
+But even Eunuch Yang probably wouldn't dare support their antics to this extent. The Australians were clearly not so simple.
 
-"Very like the Netherlands' scenery." Quark commented.
+The salt fleet gradually fell behind. Li Luoyou gazed at Ma Niao Port; the salt fields along the coast glittered brilliantly in the sunlight. Among the salt fields stood windmills, their great vanes slowly rotating in the wind. These massive water-lifting windmills had become a signature feature of the Ma Niao coast.
+
+"Very like the Netherlands' scenery," Quark commented.
 
 "What are these windmills for?" Li Luoyou asked.
 
-"I think they should be for lifting water." Quark said. "Otherwise I can't imagine what use they'd have."
+"I think they should be for lifting water," Quark said. "Otherwise I can't imagine what use they'd have."
 
 "If it's for lifting water, why raise seawater?" Li Luoyou observed. "Why not just dig a channel to bring seawater into the salt pans?"
 
@@ -54,7 +60,9 @@ Li Luoyou's concept of salt-making came entirely from books. He knew roughly tha
 
 Quark naturally didn't understand either. There was much more he didn't understand—for instance, inland, billowing black smoke rose into the clear sky. Was something on fire somewhere?
 
-"It's like that every day." The captain seemed to perceive the passengers' puzzlement. "This kind of black smoke is everywhere in Lingao. It all comes from brick chimneys taller than trees. I don't know what they're burning furnaces for every day."
+"It's like that every day," the captain said, perceiving the passengers' puzzlement. "This kind of black smoke is everywhere in Lingao. It all comes from brick chimneys taller than trees. I don't know what they're burning furnaces for every day."
+
+---
 
 The ship soon reached Bopu Harbor, docking at Linggao Point pier. The natural stone breakwater had been improved, with over a dozen wooden jetties extending into the bay, serving as Bopu's passenger and cargo docks. Small to medium vessels could dock directly at the jetties to disembark passengers and load or unload cargo.
 
@@ -82,11 +90,13 @@ Quark was still asking if it was really iron, if anyone had gone aboard to see. 
 
 Quark, however, was unconcerned, eagerly looking around. On the embankment, two parallel black iron rails were laid. Flatbed carts were pushed along them by human power, their iron wheels making rumbling sounds on the rails. The carts seemed able to carry very heavy loads. Quark watched as two or three people pushed fully loaded flatcars rapidly along; some were box-type, piled with black coal.
 
-"What a good idea." Quark thought this method could move heavy cargo with little effort. If horses were used for traction, efficiency would be even better. But China seemed severely short of horses—using human power was understandable.
+"What a good idea," Quark thought. This method could move heavy cargo with little effort. If horses were used for traction, efficiency would be even better. But China seemed severely short of horses—using human power was understandable.
 
 Li Luoyou's gaze, however, was drawn to a series of tall towers on the embankment. The towers varied in height, but even the shortest was at least two *zhang* tall. All were built on stone circular platforms using iron bars and sturdy timber. From the tops of the towers, long arms extended obliquely into the air, with black ropes hanging from the arm tips.
 
 Such towers were everywhere around Bopu Harbor. Across the bay, at what was said to be the shipyard, they were especially concentrated.
+
+---
 
 "Attention! Attention!" Someone on the embankment was blowing a whistle and shouting. "Berth 15 beginning loading!"
 
@@ -98,13 +108,13 @@ If anything was pulling the cars, it should be the first car, which carried a bl
 
 Beside this strange contraption sat a driver, his face blackened with soot, his clothes stained so nothing of their original color could be seen. Around his neck hung a white towel gone gray. This man gripped iron levers, constantly pushing and pulling, occasionally shouting something to people on the embankment.
 
-"I've heard Australian ships can sail without sails or oars—these carts must be the same." Li Luoyou said quietly.
+"I've heard Australian ships can sail without sails or oars—these carts must be the same," Li Luoyou said quietly.
 
 Quark Qiong watched for a while, his face showing an expression of horror: "The Devil!"
 
 The flatcars stopped. At the sound of whistles, several people in blue cloth jackets jumped down from the rear flatcars. Li Luoyou noticed everyone here wore these short blue jackets—some with belts at the waist, some without. The common feature was that they all wore some kind of woven headgear, probably rattan helmets. Li Luoyou couldn't understand the purpose of these helmets. Had the Australians learned from the Southern Barbarians in *Romance of the Three Kingdoms* and started training rattan-armored troops?
 
-These men climbed into a circular cage beneath one of the towers. They ran rapidly inside the cage, making it rotate. The long arm on the tower rose with it. Then the others pushed with all their might, swinging the tower toward the flatcars. One person continuously blew a whistle and waved two small flags, one red and one green. Li Luoyou watched for a while and understood—this was directing the men on the rotating drum which way to turn. Under his direction, the arm slowly extended over the first flatcar and lowered a huge iron hook. The men on the flatcar hooked it onto some rope netting on the car and quickly jumped off. At the sound of whistles, the men in the cage began running again, and the frame's head began to rise.
+These men climbed into a circular cage beneath one of the towers. They ran rapidly inside the cage, making it rotate. The long arm on the tower rose with it. Then the others pushed with all their might, swinging the tower toward the flatcars. One person continuously blew a whistle and waved two small flags, one red and one green. Li Luoyou watched for a while and understood—this was directing the men on the rotating drum which way to turn. Under his direction, the arm slowly extended over the first flatcar and lowered a huge iron hook. The men on the flatcar hooked it onto some rope netting on the car and quickly jumped off. At the sound of whistles, the men in the cage began running again, and the crane's head began to rise.
 
 What had seemed like a pile of rope netting was actually a net bag filled with many hemp and straw sacks.
 
@@ -114,4 +124,4 @@ The arm began moving toward the ship. On deck, another person was blowing a whis
 
 Next, the crane lifted cargo from another flatcar. This time it wasn't a net bag but a wooden pallet, neatly stacked with crates, the crates securely wrapped in netting.
 
-(End of Chapter)
+*(End of Chapter)*

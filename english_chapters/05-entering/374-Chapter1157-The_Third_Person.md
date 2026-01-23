@@ -8,11 +8,11 @@ Xu Ke pressed Li Shun for more details about the mysterious woman.
 
 "Maybe. I thought she might be from Luzon or one of those islands down south. She didn't speak much, but when she did, her Chinese had a strange accent."
 
-This matched the profile of "the Dart" that the External Intelligence Bureau had provided. Xu Ke felt they were getting closer to the truth.
+This matched the profile of "the Dart" that the External Intelligence Bureau had provided. They were getting closer to the truth.
 
 "Where did she stay? How can we find her?"
 
-Li Shun shook his head helplessly. "I don't know. I was specifically told not to track her movements. Lin Shimao made it very clear—she was not to be interfered with. Whatever she was doing, it was separate from my work."
+Li Shun shook his head helplessly. "I don't know. I was specifically told not to track her movements. Lin Shimao made it very clear—she was not to be interfered with. Whatever she was doing was separate from my work."
 
 "But she was on the same ship as Senkyu Sho. She must have been his backup—or his handler."
 
@@ -22,9 +22,9 @@ Li Shun shook his head helplessly. "I don't know. I was specifically told not to
 
 Li Shun nodded miserably. "That's how these things work. No loose ends."
 
-Xu Ke leaned back in his chair, processing this information. They had a clearer picture now: Zheng Zhilong—through his subordinate Lin Shimao—had orchestrated the assassination. Senkyu Sho was the trigger man, but there was a backup assassin—this mysterious woman—tasked with ensuring he either succeeded or was silenced.
+Xu Ke leaned back in his chair, processing. They had a clearer picture now: Zheng Zhilong—through his subordinate Lin Shimao—had orchestrated the assassination. Senkyu Sho was the trigger man, but there was a backup assassin—this mysterious woman—tasked with ensuring he either succeeded or was silenced.
 
-The sophistication of the operation was impressive and troubling. This wasn't a simple revenge killing or political provocation. This was a carefully planned conspiracy designed to frame the Senate and damage relations with the Dutch.
+The sophistication of the operation was both impressive and troubling. This wasn't a simple revenge killing or political provocation. This was a carefully planned conspiracy designed to frame the Senate and damage relations with the Dutch.
 
 "Who is Lin Shimao's superior?" Xu Ke asked. "Does he report directly to Zheng Zhilong?"
 
@@ -34,7 +34,7 @@ Zheng Zhifeng. That name would go in the report.
 
 After several more hours of interrogation, Li Shun had given up everything he knew—which wasn't much more. He was a small fish, useful for establishing local networks but kept deliberately ignorant of the larger operation.
 
-Xu Ke had him placed in a secure cell. He would be valuable as a witness when they eventually confronted Zheng Zhilong with evidence of his conspiracy.
+Xu Ke had him placed in a secure cell. He would prove valuable as a witness when they eventually confronted Zheng Zhilong with evidence of his conspiracy.
 
 Now the question was: where was the woman?
 
@@ -42,13 +42,13 @@ Xu Ke organized a search of the harbor area. If she was still in Kaohsiung, she 
 
 It was possible she had already fled—slipped out on a departing ship before the lockdown was fully in place. Or she might have died in some hidden corner, having completed her mission and then disposed of herself to prevent capture. Professional assassins sometimes did that.
 
-But Xu Ke had a feeling she was still out there somewhere.
+But Xu Ke had a feeling she was still out there.
 
 On the fourth day after the murder, they found her.
 
-A patrol boat had spotted a small sampan drifting near the harbor mouth, apparently abandoned. When they boarded it, they found a woman's body inside.
+A patrol boat had spotted a small sampan drifting near the harbor mouth, apparently abandoned. When they boarded it, they discovered a woman's body inside.
 
-She was exactly as Li Shun had described: short, dark-skinned, with rough hands that spoke of hard work. She was dead—had been dead for at least two days, judging by the state of decomposition.
+She was exactly as Li Shun had described: short, dark-skinned, with rough hands that spoke of hard work. She was dead—had been for at least two days, judging by the state of decomposition.
 
 The cause of death was immediately apparent: she had cut her own throat with a small knife that still lay beside her. Suicide.
 

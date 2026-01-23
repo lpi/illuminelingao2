@@ -1,8 +1,8 @@
 # Chapter 805 - Guo Fu
 
-Among all the nurses and trainee doctors at the Sanya Health Station, Guo Fu was Hippo's primary protégé. This was partly because Hippo had ulterior motives, but she also stood head and shoulders above all the naturalized medical personnel in Sanya—both in terms of professional skill and her credentials as a first-cohort nursing graduate.
+Among all the nurses and trainee doctors at the Sanya Health Station, Guo Fu was Hippo's primary protégé. This was partly because Hippo had ulterior motives, but she also stood head and shoulders above all the naturalized medical personnel in Sanya—both in professional skill and in her credentials as a first-cohort nursing graduate.
 
-Hippo frequently brought her along to assist in outpatient consultations and had her serve as his surgical assistant... Such frequent interaction built rapport and intimacy. Their relationship developed quickly, and Guo Fu's respect and admiration for Doctor Hippo grew with each passing day.
+Hippo frequently brought her along to assist in outpatient consultations and had her serve as his surgical assistant. Such frequent interaction built rapport and intimacy. Their relationship developed quickly, and Guo Fu's respect and admiration for Doctor Hippo grew with each passing day.
 
 Sanya had its own basic operating room, capable of performing simple surgical procedures—appendectomies and the like posed no problem. More complex surgeries could also be done, but the facility lacked certain essential examination and surgical support equipment, and Guo Fu was not a qualified anesthesiologist. Yet the surgical caseload was heavy—the population base and working conditions guaranteed that. Under this intense practical training, Guo Fu's skills improved rapidly. Her memory was excellent; she memorized medical texts far more easily than Hippo, who as a medical student had once suffered terribly under that burden.
 
@@ -12,7 +12,7 @@ Guo Fu had never known that becoming a doctor meant facing so many books—and e
 
 "I don't understand it..."
 
-Hippo said, "That's why I'm telling you to memorize it. Once you've got it memorized, I'll teach you."
+"That's why I'm telling you to memorize it. Once you've got it in your head, I'll teach you."
 
 Guo Fu nodded. She was filled with reverence for this Elder doctor's medical skills. "I'll memorize it."
 
@@ -20,7 +20,7 @@ Guo Fu nodded. She was filled with reverence for this Elder doctor's medical ski
 
 "Yes, Teacher." Guo Fu's cheeks grew warm—Teacher Hippo's threat somehow carried a sweet sensation.
 
-That morning, Guo Fu woke early—naturalized citizens all had this habit. Even though she'd been on duty until midnight the night before, she was still up at 6 a.m. sharp. Medical staff in Sanya worked three shifts: morning, afternoon, and night. Night shifts had minimal staffing; most people worked the 7:00–17:00 morning shift or the 17:00–24:00 evening shift.
+That morning, Guo Fu woke early—naturalized citizens all shared this habit. Even though she'd been on duty until midnight the night before, she was still up at six o'clock sharp. Medical staff in Sanya worked three shifts: morning, afternoon, and night. Night shifts had minimal staffing; most people worked the 7:00–17:00 morning shift or the 17:00–24:00 evening shift.
 
 Hippo's working hours were entirely self-determined—in practice, he was essentially on call around the clock. Consequently, Guo Fu's hours were long too. She not only saw patients and assisted with surgeries alongside Hippo, but also made rounds in the inpatient ward and taught nursing fundamentals to the junior staff. Every waking moment was devoted to work.
 
@@ -34,17 +34,17 @@ There was a full-length dressing mirror mounted on the changing room wall, large
 
 This was a gift Hippo had given her a few days ago—ostensibly as a reward for her teaching nursing to the medics. But Guo Fu's maiden heart knew that wasn't the real reason. Just as when she failed to recite a section, Teacher Hippo would gently tap her head with the book.
 
-"I know, Teacher," Guo Fu said, staring at the innocent-looking girl in the mirror, stroking her own cheek as though speaking to herself—or perhaps conversing with her reflection. "But is this really all right?"
+"I know, Teacher," Guo Fu murmured, staring at the innocent-looking girl in the mirror, stroking her own cheek as though speaking to herself—or perhaps conversing with her reflection. "But is this really all right?"
 
 She gazed dreamily at her reflection: bobbed hair at ear level, a sleeveless short chemise in the Australian style exposing her delicate collarbones—she couldn't help but touch them lightly. A flush crept across her face.
 
-To be loved by Teacher Hippo, whom she had always revered and admired—that was happiness. And yet, as a pure and innocent maiden, Guo Fu struggled to resist Hippo's masculine charm—like a lamb trembling under the wolf's kiss. What would her respected Teacher Hippo do to her? Even Guo Fu's earlobes flushed red.
+To be loved by Teacher Hippo, whom she had always revered and admired—that was happiness. And yet, as a pure and innocent maiden, Guo Fu struggled to resist Hippo's masculine charm—like a lamb trembling under the wolf's kiss. What would her respected Teacher Hippo do to her? Even her earlobes flushed red.
 
-The steam whistle jolted her from her dreamy gaze at the mirror. She touched her hot face and quickly took down the mirror, as if to hide something, then hurriedly dressed.
+The steam whistle jolted her from her reverie. She touched her hot face and quickly took down the mirror, as if to hide something, then hurriedly dressed.
 
-The Health Department's nurse uniform was a standard short-sleeved blue fitted dress, with a cape-style shawl for winter. The style was simple and elegant; paired with the iconic nurse's cap, it was the Elders' favorite fantasy outfit.
+The Health Department's nurse uniform was a standard short-sleeved blue fitted dress with a cape-style shawl for winter. The style was simple and elegant; paired with the iconic nurse's cap, it was the Elders' favorite fantasy outfit.
 
-Guo Fu's cap bore a single horizontal stripe, marking her as a "Head Nurse." This was the ranking system the Health Department had established for nurses: one horizontal stripe for Head Nurse, two for Section Head Nurse, three for Nursing Department Director. Diagonal stripes on the cap indicated technical rank: one for Staff Nurse, two for Senior Nurse, three for Deputy Chief Nurse, and four for Chief Nurse.
+Guo Fu's cap bore a single horizontal stripe, marking her as a Head Nurse. This was the ranking system the Health Department had established for nurses: one horizontal stripe for Head Nurse, two for Section Head Nurse, three for Nursing Department Director. Diagonal stripes on the cap indicated technical rank: one for Staff Nurse, two for Senior Nurse, three for Deputy Chief Nurse, and four for Chief Nurse.
 
 This was no time for idle daydreaming, Guo Fu told herself. Morning rounds were coming up, then class. She didn't know what new material Teacher Hippo would teach today. After a short break, it would be time for outpatient training...
 
@@ -72,7 +72,7 @@ Guo Fu reviewed the shift log, then rechecked the patrol records at each bedside
 
 While she was busy with this, the bell in the inpatient duty room suddenly began to ring—the signal for an emergency at outpatient, urgently summoning a doctor.
 
-She immediately set down her clipboard: "I'll go check."
+She immediately set down her clipboard. "I'll go check."
 
 An early-morning emergency was rare. Few departments in Sanya worked night shifts, so work injuries at dawn were uncommon. She encountered two sturdy male orderlies in the corridor, running toward her with a stretcher. From their jogging pace, the patient clearly needed urgent medical attention. Behind the stretcher trailed seven or eight workers, half-running to keep up; several of them looked unwell, as if they too might need treatment.
 

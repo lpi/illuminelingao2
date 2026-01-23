@@ -1,89 +1,89 @@
 # Chapter 899 - Students Go into Battle
 
-He Ming had already notified the Organization Department, Executive Committee, and Senate Standing Committee that Fu Sansi would be promoted to Inspector General of Training during the routine personnel adjustment at the end of the year. Responsible for Fubo Army recruit training, military education, and organization/training of militia reserves.
+He Ming had already notified the Organization Department, Executive Committee, and Senate Standing Committee that Fu Sansi would be promoted to Inspector General of Training during the routine personnel adjustment at year's end. He would be responsible for Fubo Army recruit training, military education, and the organization and training of militia reserves.
 
-"Everyone sit," Hu Qingbai asked everyone to sit at the conference table. "Little Yuan, Ah De and Fu Sansi came here to discuss something with us."
+"Everyone, take a seat," Hu Qingbai invited them to the conference table. "Little Yuan, Ah De and Fu Sansi came here to discuss something with us."
 
-"Just give orders if there's anything; we'll definitely fully support." Yuan Ziguang said, glancing at Hu Qingbai. Wu De and the military arriving suddenly—what exactly was the matter? Could it be expanding enrollment for the military class?
+"Just give the orders if there's anything we can do—we'll fully support," Yuan Ziguang said, glancing at Hu Qingbai. Wu De and the military arriving suddenly—what exactly was this about? Could it be expanding enrollment for the military class?
 
-There were some special "Directed Training Classes" in Fangcaodi, such as Military Class, Police/Admin Class, Medical Class, Industrial Class, etc. These classes belonged to "Directed Training." Students were selected and sent by the directed training departments themselves; tuition and living expenses were paid by the "entrusting" units. However, students didn't learn specific professional knowledge within the National School, only cultural courses. Except for slight bias in curriculum setup according to professional characteristics, they were no different from other classes.
+Fangcaodi housed several special "Directed Training Classes": Military Class, Police/Admin Class, Medical Class, Industrial Class, and others. These belonged to "Directed Training"—their students were selected and sent by the directing departments themselves, with tuition and living expenses paid by the "entrusting" units. However, students didn't learn specialized professional knowledge within the National School itself, only cultural courses. Except for slight curricular emphasis according to professional characteristics, they were no different from other classes.
 
-Specific professional learning was arranged by each department organizing personnel themselves. Some continued to borrow space in Fangcaodi to teach; others had specialized teaching venues. For example, Army/Navy teaching units were in barracks at Bopu and Ma'niao; Political Security General Bureau at Bairen; Foreign Intelligence Bureau in the county seat, etc.
+Specific professional learning was arranged by each department internally. Some continued borrowing space at Fangcaodi for instruction; others had specialized venues. For instance, Army and Navy teaching units were located in barracks at Bopu and Ma'niao; Political Security General Bureau at Bairen; Foreign Intelligence Bureau in the county seat.
 
-"I came with Fu Sansi today to utilize the human resources here," Wu De said. "Presumably you know about the Operation Engine we're about to launch."
+"I came with Fu Sansi today to utilize the human resources here," Wu De said. "Presumably you already know about the Operation Engine we're about to launch."
 
-Hu Qingbai and Yuan Ziguang both nodded. "Operation Engine" had been communicated in the Senate. Everyone also offered many suggestions. Yuan Ziguang roughly understood; the Elder presiding over this operation must have set his eyes on Fangcaodi students' human resources.
+Hu Qingbai and Yuan Ziguang both nodded. Operation Engine had been communicated through the Senate. Everyone had offered suggestions. Yuan Ziguang roughly understood: the Elder presiding over this operation had set his sights on Fangcaodi students as a resource.
 
-Fangcaodi students, as an organized and educated group, participated in many major projects, from measuring fields to going to the countryside for propaganda work, to assisting in handling various administrative affairs. They were an important arm the Senate commanded freely.
+Fangcaodi students, as an organized and educated group, had participated in many major projects—from land surveying to rural propaganda campaigns to assisting in various administrative affairs. They were an important arm the Senate commanded with confidence.
 
-Wu De said: "The specific purpose is to use Fangcaodi students—receiving two hundred thousand refugees is an arduous task. Exceeding all projects we've operated before. It requires many administrative clerks to assist work."
+"The specific purpose," Wu De continued, "is to utilize Fangcaodi students. Receiving two hundred thousand refugees is an enormous undertaking, exceeding all projects we've operated before. It requires many administrative clerks to assist the work."
 
-Hu Qingbai said: "No problem, our students have done similar things before—at quarantine camps, we send people to assist work every month. After the Second Counter-Encirclement, students also went in large numbers to clean up battlefields, register captives and spoils. They should have experience."
+"No problem," Hu Qingbai said. "Our students have done similar work before—we send people to assist at quarantine camps every month. After the Second Counter-Encirclement, students went in large numbers to help clean up battlefields, register captives and spoils. They should have experience."
 
-Wu De smiled: "The reason I brought Old Fu is to see the level of your students' discipline and military quality. Looking now, your students' military/political qualities are top-notch, fully capable of meeting needs."
+Wu De smiled. "The reason I brought Old Fu was to assess your students' discipline and military quality. Looking at them now, their military and political qualities are top-notch—fully capable of meeting our needs."
 
-The Operation Engine project team prepared to draft students in batches to Taiwan and Jeju Island to engage in refugee registration and management services. Also prepared to staff some in temporary camps in Shandong.
+The Operation Engine project team planned to draft students in batches to Taiwan and Jeju Island for refugee registration and management services. Some would also be deployed to temporary camps in Shandong.
 
-"You know, this time isn't just about fighting; the workload of civil affairs is huge. Relying solely on the army won't work; naturalized cadres aren't enough either. So I had to turn my attention to you guys."
+"You understand, this operation isn't just about fighting—the civil affairs workload is massive. The army alone can't handle it; naturalized cadres aren't sufficient either. So I had to turn my attention to you."
 
-Hu Qingbai and Yuan Ziguang exchanged glances. Clearly, this wasn't temporarily sending a dozen students to help administrative organs for a few days or sending some students weekly to quarantine camps for literacy teaching. Instead, it was large-scale dispatching.
+Hu Qingbai and Yuan Ziguang exchanged glances. Clearly, this wasn't a matter of temporarily lending a dozen students to help administrative organs for a few days, or sending some students weekly to quarantine camps for literacy instruction. This was large-scale deployment.
 
-Fangcaodi students going on business trips to other places happened in the past, but at most they went to Qiongshan and Sanya. Now they had to serve off-island, running all the way to Jeju Island and Taiwan!
+Fangcaodi students had made business trips before, but at most they had gone to Qiongshan or Sanya. Now they would serve off-island, traveling all the way to Jeju Island and Taiwan!
 
-Hu Qingbai asked cautiously: "How many people are planned?"
+Hu Qingbai asked cautiously: "How many people are you planning on?"
 
 "About two hundred."
 
-Yuan Ziguang was shocked, blurting out: "I'm afraid that won't work."
+Yuan Ziguang was shocked and blurted out: "I'm afraid that won't work."
 
-Currently, total students in the National School numbered over three thousand. Most were children under fourteen or fifteen, and mostly Junior Primary students enrolled only in the last year. Senior Primary students totaled only three hundred. Now Wu De opened his mouth asking for two hundred; it was tantamount to taking away the entire Senior Primary section.
+Currently, total enrollment at the National School exceeded three thousand. Most were children under fourteen or fifteen, predominantly Junior Primary students enrolled only in the past year. Senior Primary students totaled only three hundred. Now Wu De opened his mouth asking for two hundred—tantamount to taking away the entire Senior Primary section.
 
-Hu Qingbai also said: "This is really too many. You know, it wasn't easy collecting these Senior Primary students; we were preparing to train our first batch of middle school students from them. You dragging them away like this will delay their studies for at least a year. Although not fighting directly, floating on the sea, maybe encountering storms or shipwrecks, or getting unacclimatized... dying a batch would be too pitiful. These students aren't screws; you put a steel bar in and output flows continuously. Even one death is a huge loss."
+Hu Qingbai also objected: "This is really too many. You know, collecting these Senior Primary students wasn't easy. We were preparing to train our first batch of middle school students from them. Pulling them away like this will delay their studies by at least a year. And though they won't be fighting directly, they'll be at sea—possibly encountering storms or shipwrecks, or falling ill from the change in climate. If we lose a batch of them, it would be too pitiful. These students aren't screws—you can't just insert steel bars and have output flow continuously. Even losing one is a tremendous loss."
 
-Yuan Ziguang nodded repeatedly: "It's not that we want to hold back. Taiwan inherently has malaria problems. Students are young, bodies not fully developed, resistance poor. In case of disease outbreak, I'm afraid they'll die in batches. These aren't refugees recruited to repair roads and mines for a corn bun; they are future elites we taught hand in hand."
+Yuan Ziguang nodded emphatically. "It's not that we want to hold back. Taiwan inherently has malaria problems. Students are young, bodies not fully developed, resistance low. In case of disease outbreak, I'm afraid they'll die in droves. These aren't refugees recruited to repair roads and work mines for a corn bun—these are future elites we've taught by hand."
 
-Wu De listened with a smile still on his face, but his expression was somewhat rigid. The backlash from the education department was within his expectation. But this time they had to draft Fangcaodi students. Lingao's administrative system severely lacked basic cadres. If not for Southern Qiongzhou counties being small counties with scarce population needing few administrative personnel, Prefect Liu couldn't even set up basic administrative structures in various counties.
+Wu De listened with a smile still on his face, though his expression had grown somewhat rigid. Resistance from the education department was within his expectations. But this time, drafting Fangcaodi students was unavoidable. Lingao's administrative system suffered from a severe shortage of basic cadres. Had the Southern Qiongzhou counties not been small with sparse populations requiring few administrators, Prefect Liu couldn't even have established basic structures across the various counties.
 
-"I don't intend to take all your Senior Primary students." Wu De said, "Junior Primary ones are fine too. As long as they can read and write, and do simple calculations. As for age, strictly sixteen and above."
+"I don't intend to take all your Senior Primary students," Wu De said. "Junior Primary students are fine too—as long as they can read, write, and perform simple calculations. As for age, strictly sixteen and above."
 
-Student sources were mostly recruited vagrants, so Junior and Senior Primary students weren't necessarily ordered by age. Junior Primary had older kids of fifteen or sixteen; Senior Primary also had children under ten.
+Since most students had been recruited from vagrant populations, Junior and Senior Primary enrollment wasn't necessarily ordered by age. Junior Primary had older students of fifteen or sixteen; Senior Primary also had children under ten.
 
-Wu De's plan was to rotate dispatched students on three-month terms. This wouldn't delay studies too much.
+Wu De's plan called for rotating dispatched students on three-month terms. This wouldn't excessively delay their studies.
 
-"All students participating in Operation Engine will have it recorded in their files as reference for future salary increase, grade adjustment, and evaluation. Besides, this is social practice activity—most will be cadres in the future; exercising practical skills now is better than just reading books and becoming a bunch of bookworms." Wu De continued, "This is also the Executive Committee's opinion."
+"All students participating in Operation Engine will have it recorded in their files as reference for future salary increases, grade adjustments, and evaluations. Besides, this is social practice," Wu De continued. "Most will become cadres in the future—exercising practical skills now is better than just reading books and becoming a bunch of bookworms." He paused. "This is also the Executive Committee's position."
 
-Yuan Ziguang said: "Salary increase and grade adjustment are small matters. Education is a plan for a hundred years, especially right now naturalized citizens with systematic modern education are fewer than pandas. Losing one student today is losing a precious seed that will grow into a towering tree sheltering a region in the future. The Executive Committee must think thrice..."
+Yuan Ziguang said: "Salary increases and grade adjustments are minor matters. Education is a hundred-year plan. Right now, naturalized citizens with systematic modern education are rarer than pandas. Losing one student today means losing a precious seed that would grow into a towering tree sheltering an entire region in the future. The Executive Committee must think thrice..."
 
-Although he came from a math teacher background, having been immersed in school atmosphere for long, his lyrical expression immediately appeared distinct.
+Though he came from a math-teacher background, long immersion in academic atmosphere had evidently sharpened his rhetoric.
 
-Wu De's expression became increasingly unnatural. At this moment Fu Sansi interjected: "How can the Executive Committee think thrice? I don't even know where the Executive Committee's main gate opens."
+Wu De's expression grew increasingly awkward. At this point, Fu Sansi interjected: "How can the Executive Committee think thrice? I don't even know where the Executive Committee's main gate opens."
 
-This remark slightly eased the somewhat awkward atmosphere in the office. Hu Qingbai knew this matter was hard to reverse. Being a leader for long, he knew when to stick to his guns and when to steer with the wind. He immediately said slowly:
+This remark slightly eased the stiffening atmosphere in the office. Hu Qingbai knew this matter was difficult to reverse. Having led for so long, he understood when to hold his ground and when to bend with the wind. He spoke slowly:
 
-"We understand the Executive Committee's difficulties. Operation Engine is a major event concerning the state foundation; logically our education department should give full support."
+"We understand the Executive Committee's difficulties. Operation Engine is a major event concerning the state's foundation—logically, our education department should give full support."
 
-The Education People's Commissar stated his position; naturally Yuan Ziguang couldn't argue further, but he still continuously made "humph humph" sounds to express disapproval. Hu Qingbai knew he had to give Yuan Ziguang an explanation for this: the emotions of backbone subordinates still had to be cared for.
+With the Education People's Commissar stating his position, Yuan Ziguang naturally couldn't argue further—though he continued making "hmph" sounds to express disapproval. Hu Qingbai knew he had to give Yuan Ziguang an explanation for this: backbone subordinates' emotions still had to be considered.
 
-"Students, I can draft. But who to draft and who not to draft is decided by our education department itself. Neither Planning Commission nor military can name names. Except for commissioned students."
+"I can draft students. But who to draft and who not to draft will be decided by our education department. Neither the Planning Commission nor the military can name specific names. Except for commissioned students."
 
-Wu De nodded: "This is no problem."
+Wu De nodded. "That's no problem."
 
-"Secondly, our students cannot go to combat zones. We must ensure they work in safe locations. If possible, minimize their travel frequency and time."
+"Second, our students cannot be sent to combat zones. We must ensure they work in safe locations. If possible, minimize their travel frequency and time."
 
-"Thirdly, camp schools must be established in every camp area, setting aside certain time for students to self-study and teach. Elders participating in Operation Engine must set aside time to lecture courses according to syllabus. Guaranteeing learning is not interrupted."
+"Third, camp schools must be established in every camp area, with certain hours set aside for students to self-study and teach. Elders participating in Operation Engine must allocate time to deliver courses according to syllabus, guaranteeing that learning isn't interrupted."
 
-Wu De agreed to everything, and promised to give dispatched students certain preferential treatment in supplies and living environment.
+Wu De agreed to everything and promised dispatched students would receive preferential treatment in supplies and living conditions.
 
-Hu Qingbai said: "As long as these conditions can be met, there's no need for three-month rotation. After all, travel time is long. As long as the camp surrounding environment is relatively safe and hygiene conditions relatively good, six-month rotation is fine. Of course those with poor health must be sent back anytime."
+Hu Qingbai said: "As long as these conditions are met, three-month rotations aren't necessary. Travel time is lengthy, after all. As long as the surrounding environment is relatively safe and hygiene conditions relatively good, six-month rotations are acceptable. Of course, anyone with poor health must be sent back immediately."
 
-Although Yuan Ziguang disapproved of large-scale dispatching in his heart, this was after all a direct directive from the Executive Committee, and Hu Qingbai had fought for pretty good conditions, so it wasn't convenient to oppose further. He had to express tacit consent.
+Though Yuan Ziguang still disapproved of large-scale deployment, this was ultimately a direct directive from the Executive Committee, and Hu Qingbai had secured fairly good terms—expressing further opposition would serve no purpose. He tacitly consented.
 
-Sending off Wu De and Fu Sansi, Hu Qingbai considered that besides dispatched students, Fangcaodi should dispatch at least one Elder teacher as team leader to supervise student learning at all times.
+After seeing off Wu De and Fu Sansi, Hu Qingbai pondered that besides the dispatched students, Fangcaodi should send at least one Elder teacher as team leader to supervise student learning at all times.
 
-"You know, although Wu De promised us to run camp schools, other Elders might not be interested in teaching kids. Even if they are interested, I'm not reassured..."
+"You know, though Wu De promised us camp schools, other Elders might not be interested in teaching children. Even if they are interested, I'm not entirely reassured..."
 
-Yuan Ziguang knew this "not reassured" had two meanings: first fear that Elders' teaching level wasn't high; second fear that someone might extend "evil palms" toward students. There were quite a few Elders with aspirations to "push down." Limited by student age and gender ratio, the National School couldn't dispatch only boys.
+Yuan Ziguang understood this "not reassured" carried two meanings: first, concern that Elders' teaching ability wasn't up to standard; second, fear that someone might extend "evil palms" toward students. There were quite a few Elders with aspirations to "push down." Given limited student ages and gender ratios, the National School couldn't dispatch only boys.
 
-Looking at Hu Qingbai's meaning, it seemed he wanted Yuan to volunteer as this camp teacher. Yuan Ziguang was quite fearful of this—he was afraid of taking ships, let alone small-tonnage sailing ships! Secondly, whether desolate Jeju Island or Taiwan Island, living conditions were really too harsh. At least Fangcaodi Elder dorms had flush toilets and hot showers.
+Looking at Hu Qingbai's meaning, it seemed he wanted Yuan Ziguang to volunteer as this camp teacher. Yuan Ziguang dreaded the prospect. First, he feared sea travel, especially on small-tonnage sailing ships. Second, whether desolate Jeju Island or Taiwan Island, living conditions were far too harsh. At least Fangcaodi's Elder dormitories had flush toilets and hot showers.
 
-"I think Jiang Youzhong and Xiao Zhaochuan are quite suitable..." Yuan Ziguang bluntly "recommended worthy talents" directly. These were all permanent Elder teachers at Fangcaodi.
+"I think Jiang Youzhong and Xiao Zhaochuan would be quite suitable..." Yuan Ziguang bluntly "recommended worthy talents." These were all permanent Elder teachers at Fangcaodi.

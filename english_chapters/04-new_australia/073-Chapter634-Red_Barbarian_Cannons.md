@@ -1,170 +1,171 @@
 # Chapter 634 - Red Barbarian Cannons
 
-Everyone was still talking when suddenly a personal guard reported that the cannon consecration ceremony was ready. To deal with the Hair Thieves' fierce firearms, Foshan had newly sent ten freshly cast "Red Barbarian Cannons" (Hongyi Cannons). He Rubin had ordered someone to choose an auspicious day to personally consecrate and test-fire the cannons.
+The discussion was still underway when a personal guard suddenly reported that the cannon consecration ceremony was ready to proceed. To counter the Hair Thieves' formidable firearms, Foshan had recently delivered ten freshly cast "Red Barbarian Cannons" (*Hongyi Cannons*). He Rubin had ordered an auspicious day chosen for him to personally consecrate and test-fire the weapons.
 
-Today happened to be an auspicious day. He Rubin led his staff to the drill ground. His main generals were all present, and Lu Yizhong had also come, looking around. Ten glistening bronze cannons were mounted on newly made, sturdy elm carriages with two wheels and two legs, appearing very robust. An altar table was set up in front of the cannons, with a red paper spirit tablet inscribed "Spirit Position of the Great General Cannon." Before the tablet were offerings of three livestock, clear wine, incense burners, candlesticks, and other items.
+Today was that auspicious day. He Rubin led his staff to the drill ground. All his principal generals were present, and Lu Yizhong had also attended, looking about with obvious interest. Ten glistening bronze cannons were mounted on newly constructed, sturdy elm carriages with two wheels and two stabilizing legs, presenting a robust appearance. An altar table stood before the cannons, upon which rested a red paper spirit tablet inscribed "Spirit Position of the Great General Cannon." Before the tablet were arranged offerings of three livestock, clear wine, incense burners, candlesticks, and other ritual implements.
 
-He Rubin, accompanied by Li Modao, the commander of the Firearms Battalion with the rank of Defender, washed his hands and burned incense, bowing devoutly three times to the Cannon God. He also recited a prayer drafted beforehand by his staff, then poured a full cup of wine onto the ground. Ten gunners first knelt and bowed to the Commander-in-Chief and others, then walked to the cannons, knelt and kowtowed three times again, before proceeding to maneuver the cannons.
+He Rubin, accompanied by Li Modao, the commander of the Firearms Battalion holding the rank of Defender, washed his hands and burned incense, then bowed devoutly three times to the Cannon God. He also recited a prayer drafted beforehand by his staff, then poured a full cup of wine onto the ground. Ten gunners first knelt and bowed to the Commander-in-Chief and the assembled officers, then moved to the cannons, knelt once more, and kowtowed three more times before proceeding to man their weapons.
 
-Next was the cannon demonstration—the so-called "Auspicious Cannon Firing." Newly cast cannons were routinely test-fired, a common practice in weapon manufacturing. However, once cannons came into use, traditional weapons like siege engines and trebuchets used in China immediately paled in comparison. Cannons inevitably acquired a mystical color, leading to various rituals. Since the Yuan Dynasty, cannons had titles and sacrificial rites.
+Next came the cannon demonstration—the so-called "Auspicious Cannon Firing." Test-firing newly cast cannons was standard practice in weapon manufacturing. However, once cannons entered military service, traditional Chinese siege weapons like battering rams and trebuchets immediately paled in comparison. Cannons inevitably acquired a mystical aura, leading to the development of various rituals. Since the Yuan Dynasty, cannons had been given titles and received sacrificial offerings.
 
-He Rubin placed great importance on the cannon consecration. On one hand, he believed it helped boost morale; on the other, he wanted to know the power of these provincially manufactured Red Barbarian Cannons. He was among the early adopters of Red Barbarian Cannons; when they were first introduced during the Tianqi era, he had watched test firings, learned Western gunnery, and even obtained a book on firearms.
+He Rubin attached great importance to the cannon consecration ceremony. On one hand, he believed it would boost morale; on the other, he wanted to assess the power of these provincially manufactured Red Barbarian Cannons for himself. He was among the early adopters of Red Barbarian Cannons; when they were first introduced during the Tianqi era, he had observed test firings, studied Western gunnery, and even obtained a book on firearms.
 
-At that time, the technology for imitating Red Barbarian Cannons was quite mature. The cannons produced in Li Luoyou's foundry used cannons borrowed from Macau as models, and he had a German missionary, Johann Adam Schall von Bell, hidden in his home for constant guidance. After returning from Lingao, Li Luoyou built some improvised equipment based on what he saw and heard at the Lingao Gun Foundry and guidance from Europeans around him, applying the technique of boring the barrel smooth with a boring cutter. Therefore, the Red Barbarian Cannons he cast were visibly superior to those from other foundries.
+By this time, the technology for manufacturing Red Barbarian Cannons had matured considerably. The cannons produced at Li Luoyou's foundry used guns borrowed from Macau as models, and he kept a German Jesuit missionary, Johann Adam Schall von Bell, concealed in his household for constant guidance. After returning from Lingao, Li Luoyou had constructed some improvised equipment based on what he had observed at the Lingao Gun Foundry, supplemented by instruction from the Europeans around him. He had applied the technique of boring barrels smooth with a rotating cutter. Consequently, the Red Barbarian Cannons cast at his foundry were visibly superior to those produced elsewhere.
 
-"These cannons are well cast," he praised. He had already seen that this batch consisted of lighter Red Barbarian Cannons. "Who cast these?"
+"These cannons are well made," He Rubin praised. He could already see that this batch consisted of lighter-weight Red Barbarian Cannons. "Who cast them?"
 
-"Answring Your Excellency: They were cast by the Li family foundry in Foshan," Li Modao reported. "Their foundry is different from others; their cannons are specifically excellent."
+"Answering Your Excellency: They were cast by the Li family foundry in Foshan," Li Modao reported. "Their foundry differs from others—their cannons are particularly excellent."
 
-He Rubin thought for a moment and asked: "Is that Li Luoyou?"
+He Rubin thought for a moment and asked: "Would that be Li Luoyou?"
 
-"Exactly. I heard he was very eager in casting cannons, specifically asking the Governor to issue a letter to borrow cannons from the Franks for imitation."
+"Exactly. I understand he was most eager in this cannon-casting endeavor, specifically requesting that the Governor issue a letter to borrow cannons from the Franks for use as models."
 
-"No wonder his cannons are well made; Manager Li is half a foreign barbarian," He Rubin laughed. "I heard he served as an altar boy for Frankish foreign monks in Macau when young, and was very intimate with them. His sentiment with Franks is indeed different!"
+"No wonder his cannons are so well made—Manager Li is practically half a foreign barbarian," He Rubin laughed. "I heard he served as an altar boy for Frankish foreign monks in Macau when he was young and developed quite intimate relations with them. His sympathies with Franks are indeed different!"
 
-Everyone laughed heartily. Everyone knew He Rubin strongly disliked foreign religions and naturally detested people who were Christians and had deep ties with the Macau church.
+Everyone laughed heartily. It was well known that He Rubin strongly disliked foreign religions and naturally harbored distaste for people who were Christians or maintained deep ties with the Macau church.
 
-"Please instruct, Commander," Li Modao clasped his hands. "Shall we fire the cannons immediately?" Receiving He Rubin's consent, Li Modao waved the command flag in his hand:
+"Please give the order, Commander," Li Modao said, clasping his hands. "Shall we fire the cannons immediately?" Upon receiving He Rubin's consent, Li Modao waved the command flag in his hand:
 
-"By the Commander's order, test fire immediately!"
+"By the Commander's order—test fire immediately!"
 
-With a command, ten gunners immediately ran over and pushed out one of the cannons. Red Barbarian Cannons were very heavy; even this light artillery firing 5-catty balls weighed 1,500 catties. To bear the weight and ensure durability, the carriages were made of particularly thick and heavy materials, with many iron nails and hoops on the wheels. The whole artillery piece was very cumbersome, and ten gunners struggled to move it.
+At his command, ten gunners rushed forward and pushed out one of the cannons. Red Barbarian Cannons were extremely heavy; even this field artillery piece, designed to fire 5-*catty* balls, weighed 1,500 *catties*. To bear the weight and ensure durability, the carriages were made of particularly thick and heavy materials, with many iron nails and hoops reinforcing the wheels. The whole artillery piece was cumbersome in the extreme, and the ten gunners strained to move it.
 
-The gunners pushed the cannon into position. One of them first used a gunner's quadrant to measure the angle. Red Barbarian Cannons were actually culverins/cannons, generally fired at lower angles for maximum range.
+The gunners pushed the cannon into position. One of them first used a gunner's quadrant to measure the elevation angle. Red Barbarian Cannons were essentially culverins and were generally fired at lower angles for maximum range.
 
-The gunner reported loudly: "Quadrant height six fen!" Then another gunner used a hammer to strike the wooden wedge inserted between the barrel and the carriage, gradually raising the barrel.
+The gunner reported loudly: "Quadrant height six *fen*!" Then another gunner used a hammer to strike the wooden wedge inserted between the barrel and the carriage, gradually raising the muzzle.
 
-Quadrant height of six fen roughly corresponded to a 45-degree angle, the elevation for maximum range of a smoothbore cannon.
+A quadrant height of six *fen* corresponded roughly to a 45-degree angle—the elevation for maximum range from a smoothbore cannon.
 
-"Barrel height six fen, the shot can reach one thousand and fifty-three paces," He Rubin told the staff and generals. "If seven fen, the shot falls shorter." He had compiled *Western Fire Attack Divine Devices* himself and knew this stuff backward.
+"At a barrel elevation of six *fen*, the shot can reach one thousand and fifty-three paces," He Rubin explained to the staff and generals. "If the elevation is seven *fen*, the shot falls shorter." He had personally compiled *Western Fire Attack Divine Devices* and knew this material by heart.
 
-Li Modao said respectfully: "Your Excellency's insight is extremely correct."
+Li Modao replied respectfully: "Your Excellency's insight is most accurate."
 
-Once the barrel was elevated to position, the gunner shouted again: "Use two catties six taels of powder!"
+Once the barrel was elevated into position, the gunner shouted again: "Use two *catties* six *taels* of powder!"
 
-Two other gunners quickly brought a porcelain jar from a pit. This jar was specifically for holding gunpowder, glazed inside and out, with a constricted neck for tying and a rattan or bamboo casing for carrying. The gunner opened the sealing clay, removed the porcelain saucer sealing the mouth, measured gunpowder scoop by scoop with a wooden ladle, and poured it into the barrel. One gunner used a long rammer to push the powder to the bottom of the bore, inserted a fuse made of paper and powder into the vent near the breech, continued loading powder, rammed it tight, inserted a wooden wad, and finally loaded the iron ball.
+Two other gunners quickly retrieved a porcelain jar from a pit. This jar was specifically designed for storing gunpowder—glazed inside and out, with a constricted neck for tying and a rattan or bamboo casing for carrying. The gunner broke the sealing clay, removed the porcelain saucer covering the mouth, measured out gunpowder scoop by scoop with a wooden ladle, and poured it into the barrel. One gunner used a long rammer to push the powder to the bottom of the bore, then inserted a fuse made of paper and powder into the vent near the breech. They continued loading powder and rammed it tight, inserted a wooden wad, and finally loaded the iron ball.
 
-Li Modao asked everyone to retreat ten zhang away. Other officers and soldiers also retreated to a distance, prepared for accidents. Li Modao only retreated one zhang, waved the small flag in his hand, and said:
+Li Modao instructed everyone to retreat ten *zhang* away. Other officers and soldiers also withdrew to a safe distance, prepared for accidents. Li Modao himself retreated only one *zhang*. He waved the small flag in his hand and said:
 
 "Fire!"
 
-A gunner lit the fuse with a torch. The gunners immediately retreated to Li Modao's side, looking tense, all watching the fuse hissing and sparking as it shortened rapidly.
+A gunner touched the fuse with a burning torch. The gunners immediately retreated to Li Modao's side, their faces tense, all watching as the fuse hissed and sparked, shortening rapidly.
 
-Although cannons were powerful, cannon casting lacked process management at the time. Materials varied in quality, and quality couldn't be guaranteed; inexperienced gunners learned from translated Western gunnery books that ignored unit conversions... This caused many cannons to explode on the first firing, often killing or wounding many.
+Although cannons were powerful, cannon casting at this time lacked proper process management. Material quality varied widely, and consistency could not be guaranteed. Inexperienced gunners learned from translated Western gunnery manuals that ignored unit conversions... All this caused many cannons to explode on their first firing, often killing or wounding numerous personnel.
 
-The fuse burned into the vent with hissing sparks. Suddenly, red light flashed at the vent, followed by fire spraying from the muzzle and a loud bang. Everyone felt the ground shake, and thick smoke instantly covered the front of the cannon. When the cannon fired, staff and officers instinctively hunched over, and gunners squatted down sharply.
+The fuse burned into the vent with hissing sparks. Suddenly, red light flashed at the vent, followed by fire erupting from the muzzle and a thunderous boom. Everyone felt the ground shake, and thick smoke instantly enveloped the front of the cannon. When the piece fired, the staff and officers instinctively hunched over, and the gunners squatted down sharply.
 
-Li Modao bent his waist; seeing the red light, he quickly opened his mouth. After the bang, he ran to the cannon rapidly, inspected it, touched it with his hand, felt relieved, and hurried back to report:
+Li Modao bent at the waist; upon seeing the red flash, he quickly opened his mouth wide. After the detonation, he sprinted to the cannon, inspected it carefully, touched it with his hand, and felt relieved. He hurried back to report:
+
 "Your Excellency! The cannon is intact."
 
-He Rubin, staff, and officers approached. They inspected the barrel and carriage; solid as before. Very satisfied. After a while, a personal guard rode back fast from a mound two li away to report: The cannonball flew over the mound and broke a tree behind it.
+He Rubin and his staff and officers approached. They examined the barrel and carriage; both remained solid as before. All were highly satisfied. After a while, a personal guard galloped back from a mound two *li* distant to report: the cannonball had sailed over the mound and shattered a tree behind it.
 
-"The Hair Thieves claim fierce firearms; how do they compare to this cannon?" He Rubin laughed.
+"The Hair Thieves claim to possess fearsome firearms—how do they compare to this cannon?" He Rubin laughed.
 
-"However fierce Hair Thief cannons are, they are but this," Chang Qingyun said.
+"However fearsome Hair Thief cannons may be, they are merely this," Chang Qingyun declared.
 
-"Hehe, this is only a small cannon with a 5-catty ball. If it were a big cannon firing a 15-catty ball, one shot could devastate three or four li. The Hair Thieves' firearms, however sharp, are at most like this." He Rubin was confident. "Defender Li, how many big cannons does the Firearms Battalion have now?"
+"Hehe, this is only a small cannon firing a 5-*catty* ball. If it were a large cannon firing a 15-*catty* ball, one shot could devastate three or four *li*. The Hair Thieves' firearms, however formidable, amount to no more than this." He Rubin was confident. "Defender Li, how many large cannons does the Firearms Battalion currently possess?"
 
-"Reporting to Your Excellency: Including these ten Red Barbarian Cannons, new and old cannons total one hundred sixty-four pieces."
+"Reporting to Your Excellency: including these ten Red Barbarian Cannons, new and old cannons total one hundred sixty-four pieces."
 
-"Crouching Tiger cannons and the like don't count. Excluding these small guns, how many?"
+"Excluding Crouching Tiger cannons and the like—excluding these small guns, how many?"
 
-"Reporting to Your Excellency: Thirty-eight pieces."
+"Reporting to Your Excellency: thirty-eight pieces."
 
-"Good!" He Rubin was quite satisfied. "Here are actual samples of newly cast Western cannonballs sent by the Ministry of Works. Test fire them one by one. If useful, order the foundry to rush production immediately."
+"Good!" He Rubin was quite satisfied. "Here are sample specimens of newly cast Western cannonballs sent by the Ministry of Works. Test-fire them one by one. If any prove useful, order the foundry to rush production immediately."
 
 "Yes, Your Excellency."
 
-This batch of new-style cannonballs was cast under Johann Adam Schall von Bell's supervision, distributed to Liaodong, the Capital Region, Shandong, Fujian, Guangdong, and other places equipping Red Barbarian Cannons for testing.
+This batch of new-style cannonballs had been cast under Johann Adam Schall von Bell's supervision and distributed to Liaodong, the Capital Region, Shandong, Fujian, Guangdong, and other places equipped with Red Barbarian Cannons for field testing.
 
-These cannonballs had various names: Dragon Roar Shot, Chain Shot, Drill Shot, Chisel Shot, etc. Numerous and strange-looking. Li Modao loaded and tested them one by one, but everyone couldn't see any specific function for the strange balls sent, and ranges were much shorter. Only the huge whistling sound of the Dragon Roar Shot made everyone think it had certain deterrent effects.
+These cannonballs bore various names: Dragon Roar Shot, Chain Shot, Drill Shot, Chisel Shot, and others. They were numerous and strange-looking. Li Modao loaded and tested them one by one, but no one could discern any specific function for these unusual projectiles, and their ranges were much shorter. Only the enormous whistling sound produced by the Dragon Roar Shot impressed everyone as having some deterrent value.
 
-As for the chain shot that split into two connected by a chain after firing; bar shot with a fixed iron bar between two hemispheres; expanding shot with four hemispheres connected by chains to a central iron knob—they looked powerful, but ranges were much closer. Staff officers felt it better to fire solid balls and grapeshot directly.
+As for the chain shot—which split into two hemispheres connected by a chain after firing—and the bar shot—with a fixed iron bar between two hemispheres—and the expanding shot—four hemispheres connected by chains to a central iron knob—they looked impressive but achieved much shorter ranges. The staff officers concluded it would be more effective to simply fire solid balls and grapeshot.
 
 "Defender Li, what do you think of these cannonballs?" He Rubin asked.
 
-"Your Excellency, the Dragon Roar Shot sounds like a dragon roar, useful for deterring enemy courage. But it is not the orthodox way. As for the others..." Li Modao felt these weird-shaped balls were useless. "This humble officer thinks they can be used, but they waste labor and material, and don't shoot far."
+"Your Excellency, the Dragon Roar Shot sounds like a dragon's roar and may serve to break enemy morale. But it is not the orthodox method. As for the others..." Li Modao found these oddly shaped projectiles useless. "This humble officer believes they can be used, but they waste labor and material and do not shoot far."
 
-"Foreign monks just know how to fiddle with weird gadgets to cheat people." He Rubin laughed. "We won't use this mess."
+"Those foreign monks only know how to tinker with strange gadgets to impress people." He Rubin laughed. "We shall not use this assortment."
 
-He Rubin then inspected the Firearms Battalion. This battalion was specially set up to deal with Hair Thieves, gathering many cannons and building many new carriages. Seeing the Firearms Battalion's orderly ranks, excellent armor and weapons, and soldiers busy drilling or maintaining equipment without idlers, He Rubin felt very satisfied.
+He Rubin then inspected the Firearms Battalion itself. This battalion had been specially established to deal with the Hair Thieves, gathering many cannons and constructing many new carriages. Seeing the Firearms Battalion's orderly ranks, excellent armor and weapons, and soldiers busily drilling or maintaining equipment with no idlers in sight, He Rubin felt very satisfied.
 
 "Defender Li!"
 
-"Your Excellency!" Li Modao hurriedly stepped up.
+"Your Excellency!" Li Modao hurried forward.
 
-"You lead troops well!"
+"You lead your troops well!"
 
-"All thanks to Your Excellency's tiger prestige!"
+"All thanks to Your Excellency's commanding presence!"
 
-"Mm." He Rubin nodded. "I hear you are skilled with firearms. Hair Thieves have a name for sharp firearms; what do you think?"
+"Mm." He Rubin nodded. "I hear you are skilled with firearms. The Hair Thieves have earned a reputation for formidable weapons—what do you think?"
 
-"Reporting to Your Excellency," Li Modao said cautiously. "This humble officer has never seen Hair Thief firearms, only heard they have giant cannons reaching over ten li. In this humble officer's opinion, such rumors are mostly exaggerated."
+"Reporting to Your Excellency," Li Modao said cautiously, "this humble officer has never seen Hair Thief firearms. I have only heard they possess giant cannons capable of shooting over ten *li*. In this humble officer's opinion, such rumors are mostly exaggerated."
 
 "How so?"
 
-"This humble officer has been in the army sixteen years. Started as a three-barreled gunner, handled countless firearms large and small. Ranges of firearms are mostly exaggerated. From what I've seen using cannons over the years, the medium Frankish breech-loader shoots no more than two hundred paces; the Crouching Tiger cannon, no more than thirty or forty paces. Yet books claim they reach several li, tens of li. Even Red Barbarian Cannons, though distinguished as 1,000, 2,000, or 5,000 catties, actually shoot furthest no more than three li. Giant cannons don't necessarily shoot far."
+"This humble officer has served in the army for sixteen years. I began as a three-barreled gunner and have handled countless firearms, large and small. The ranges of firearms are almost always overstated. From what I have observed using cannons over the years, the medium Frankish breech-loader shoots no more than two hundred paces; the Crouching Tiger cannon, no more than thirty or forty. Yet books claim they reach several *li*, even tens of *li*. Even Red Barbarian Cannons, though classified as 1,000, 2,000, or 5,000 *catties*, actually shoot at maximum no more than three *li*. Giant cannons do not necessarily shoot far."
 
-He Rubin appreciated these words, thinking only someone with combat experience could say them. He sized up this thirty-something officer. Square face, tall and sturdy build, powerful. Clearly a talent good at battlefield slaughter.
+He Rubin appreciated these words, thinking that only someone with actual combat experience could speak so practically. He sized up this thirty-something officer: square face, tall and sturdy build, powerful physique. Clearly a man suited for battlefield combat.
 
-"Ever slaughtered in battle?"
+"Have you seen action?"
 
-"Reporting to Your Excellency, this humble officer once followed Garrison Commander Zhou of the Zhejiang Battalion in the Sarhu Campaign. After the East Route Army was defeated, I led brothers to defend a high ridge to the death, resisting enemies with firearms until dusk when barbarian soldiers slacked off, then broke out in one go." Li Modao was proud of this history.
+"Reporting to Your Excellency, this humble officer once followed Garrison Commander Zhou of the Zhejiang Battalion in the Sarhu Campaign. After the Eastern Route Army was defeated, I led my brothers to defend a high ridge, resisting the enemy with firearms until dusk, when the barbarian soldiers slackened their assault. Then I broke out in a single charge." Li Modao spoke of this history with evident pride.
 
-"Liaodong's solid defense relies greatly on firearms." He Rubin asked, "Now Hair Thief firearms are not inferior to mine. If enemy and us share peril, how should firearms be deployed?"
+"Liaodong's solid defense relies greatly on firearms." He Rubin asked, "Now that the Hair Thieves possess firearms no inferior to ours, if both sides face comparable danger, how should firearms be deployed?"
 
-Li Modao's face flushed with excitement; the Commander-in-Chief consulting him on strategy was a huge face-saving matter. He had thought about this many times, so he steadied himself and said:
+Li Modao's face flushed with excitement; the Commander-in-Chief consulting him on strategy was an enormous honor. He had pondered this question many times, so he steadied himself and replied:
 
-"In this humble officer's shallow view, though Hair Thieves have tens of thousands of men, they are either Fujian/Guangdong traitors or coerced commoners—a mob. They definitely dare not fight field battles with our army. Their plan is nothing more than imitating the Red Hairs' old trick in Penghu: building strong stockades and mounting heavy cannons to defend a corner. After our troops surround them for long, since enemy and our cannon ranges differ little, our troops can dig trenches advancing to half a li or one li before enemy stockade walls. Trenches must be wide and deep enough for cannon carriages. Our cannons move forward from trench bottoms, approach stockade gates and walls to fire. My cannons can reach the enemy; their cannons cannot harm me."
+"In this humble officer's limited view, although the Hair Thieves may number tens of thousands, their forces consist of either Fujian and Guangdong traitors or coerced commoners—a mere rabble. They definitely will not dare engage our army in open field battle. Their strategy is undoubtedly to imitate the Red Hairs' old tactics at Penghu: constructing strong stockades and mounting heavy cannons to defend a corner. After our troops surround them over time, and since the range of enemy cannons differs little from ours, our forces can dig trenches advancing to within half a *li* or one *li* of the enemy stockade walls. The trenches must be wide and deep enough to accommodate cannon carriages. Our cannons can advance forward along the trench bottoms, approaching the stockade gates and walls to fire. My cannons can reach the enemy; their cannons cannot harm me."
 
-"What if Hair Thieves sortie to capture cannons?"
+"What if the Hair Thieves sortie to capture our cannons?"
 
-"At each cannon position, deploy two squads of infantry equipped with Crouching Tiger cannons and three-barreled guns. Ready to fight anytime. My troops have deep trenches for cover; enemy cannons can't reach. If strength fails, fresh reinforcements can be sent anytime."
+"At each cannon position, deploy two squads of infantry equipped with Crouching Tiger cannons and three-barreled guns, ready to fight at any moment. Our troops have deep trenches for cover; enemy cannons cannot reach us. If our strength should falter, fresh reinforcements can be committed at any time."
 
-He glanced at He Rubin and added quickly: "This humble officer shows off before an expert; just a humble opinion."
+He glanced at He Rubin and quickly added: "This humble officer presumes to lecture before an expert; this is merely a humble opinion."
 
-He Rubin had never heard of such tactics: digging ditches on flat ground and having cannon carriages walk in ditch bottoms. He originally wanted to dismiss it as "absurd"! But thinking again, this method might not be useless. If Hair Thieves refused to retreat, it could be tried.
+He Rubin had never heard of such tactics: digging ditches on flat ground and having cannon carriages move along the trench bottoms. His first impulse was to dismiss it as "absurd!" But upon reflection, this method might have some merit. If the Hair Thieves refused to retreat, it could be worth attempting.
 
-But he said neither good nor bad. Expressionless, he left amidst the crowd's surrounding.
+Yet he said neither good nor bad. Expressionless, he departed amid his retinue.
 
-Li Modao respectfully saw the Commander off cautiously. Feeling uneasy: didn't know if his speech pleased or displeased the Commander, or if it suited his taste. Commander He's favor was key to his career—he spent sixteen years climbing to a Defender rank and recently became a battalion commander; he cared about his future greatly.
+Li Modao respectfully saw the Commander off with great care. He felt uneasy, uncertain whether his speech had pleased or displeased the Commander, or whether it had suited his tastes. Commander He's favor was crucial to his career—he had spent sixteen years climbing to the rank of Defender and had only recently become a battalion commander. He cared deeply about his future prospects.
 
-"Master! Was the Commander satisfied with the Firearms Battalion?" Several trusted Thousand and Hundred Household officers crowded over after He Rubin left.
+"Master! Was the Commander satisfied with the Firearms Battalion?" Several trusted Thousand Household and Hundred Household officers crowded around after He Rubin's departure.
 
-"How the hell should I know?" Li Modao said impatiently. "Just lead the brothers well! Looks like our Firearms Battalion will see big action in this expedition against Hair Thieves."
+"How the hell should I know?" Li Modao replied impatiently. "Just lead the brothers well! It looks like our Firearms Battalion will see major action in this expedition against the Hair Thieves."
 
-After subordinates dispersed, Li Modao glanced at the strange cannonballs awaiting collection by soldiers. He walked over, squatted, and looked carefully at the balls cast under the foreign monk's supervision. Although the new balls performed poorly when fired, Li Modao vaguely felt these balls each had their own uses, only he didn't know them.
+After his subordinates dispersed, Li Modao glanced at the strange cannonballs awaiting collection by soldiers. He walked over, squatted down, and studied the projectiles cast under the foreign monk's supervision. Although the new ammunition had performed poorly in the test, Li Modao sensed vaguely that each type must have its own purpose—he simply didn't know what those purposes were.
 
-"If I had someone around who knew Western gunnery, I could ask and understand," Li Modao thought.
+*If only I had someone around who understood Western gunnery, I could ask and learn,* Li Modao thought.
 
-Speaking of Western gunnery, Commander He was naturally the number one in the Liangguang army, but Li was just a small Defender; how dare he casually ask the Commander-in-Chief.
+Speaking of Western gunnery, Commander He was certainly the foremost authority in the Liangguang army, but Li was merely a minor Defender. How could he presume to question the Commander-in-Chief casually?
 
-"Once the barrel is scrubbed clean, prepare to harness horses and return to camp." He ordered soldiers to clean the barrel and pack up.
+"Once the barrel is scrubbed clean, prepare to harness horses and return to camp," he ordered. Soldiers set about cleaning the barrel and packing up.
 
-Soldiers brought newly purchased Sichuan horses to harness the cannon. Sichuan horses were small and weak. Not only were these carriages made very clumsily, but lacking limbers, the draft horses had to pull forward while bearing weight on their backs. Efficiency of animal power was very poor; seven or eight horses were needed to barely pull it. Li Modao knew local Mongolian horses were rare, and Jiangnan and Guangdong didn't raise mules, so he had to make do with Sichuan horses.
+Soldiers brought newly purchased Sichuan horses to harness the cannon. Sichuan horses were small and weak. Not only were the carriages made very clumsily, but lacking limbers, the draft horses had to pull forward while simultaneously bearing weight on their backs. The efficiency of animal power was extremely poor; seven or eight horses could barely move the piece. Li Modao knew that Mongolian horses were rare in the south, and Jiangnan and Guangdong did not raise mules, so he had to make do with Sichuan horses.
 
-"This horse has too little strength, not even as good as a mule," a squad leader beside him said.
+"These horses have too little strength—not even as good as mules," a squad leader beside him observed.
 
-"This is the small Sichuan horse of the south, smaller than a Shandong donkey," Li Modao said. "Pulling a cart, it can't match a donkey. Carrying goods on mountain paths is okay; pulling carts or cannons won't do."
+"These are the small Sichuan horses of the south, smaller than a Shandong donkey," Li Modao said. "For pulling carts, they can't even match a donkey. They're passable for carrying loads on mountain paths, but for pulling carts or cannons, they're inadequate."
 
-"This humble officer sees many oxen here; why not use oxen?"
+"This humble officer sees many oxen here. Why not use oxen?"
 
-"Oxen become frightened easily." He shook his head. "And they're too slow. Once guns fire on the battlefield, won't oxen be startled and ruin things immediately?"
+"Oxen frighten easily." He shook his head. "And they're too slow. Once the guns start firing on the battlefield, won't the oxen panic and ruin everything immediately?"
 
-However, oxen had endurance and greater strength than these Sichuan horses barely dragging cannons. But the battalion had over thirty cannons exceeding a thousand catties; four oxen per cannon meant over a hundred oxen, plus corresponding handlers. He didn't know if Commander He was willing to pay this extra expense.
+Yet oxen did possess endurance and greater strength than these Sichuan horses that could barely drag the cannons. The battalion had over thirty cannons exceeding a thousand *catties*; at four oxen per cannon, that meant over a hundred oxen, plus corresponding handlers. He didn't know whether Commander He would be willing to fund this additional expense.
 
-Returning to camp and settling the cannons, Li Modao went to the gunpowder workshop under Yaniangxie Mountain. About five or six li from the camp battery, a large patch of sheds served as a Gunpowder manufactory. Materials for making gunpowder—sulfur, charcoal, and saltpeter—were shipped here day and night from everywhere. Occasionally other things arrived too: dried human feces, toxic herbs like aconite, and lime, tung oil, etc.
+Returning to camp and settling the cannons, Li Modao proceeded to the gunpowder workshop on the slopes below Yaniangxie Mountain. About five or six *li* from the camp battery, a sprawling collection of sheds served as a gunpowder manufactory. Materials for making gunpowder—sulfur, charcoal, and saltpeter—were shipped here day and night from throughout the province. Occasionally other materials arrived as well: dried human feces, toxic herbs like aconite, lime, tung oil, and the like.
 
-As commander of the Firearms Battalion, Li Modao paid most attention to gunpowder supply. Although the government army didn't lack gunpowder, quality tried greatly. Bad powder only puffed black smoke, sometimes cannonballs fell out right after leaving the muzzle. Sometimes it was too strong and burst the barrel, often causing heavy casualties among gunners.
+As commander of the Firearms Battalion, Li Modao's greatest concern was gunpowder supply. Although the government army did not lack for gunpowder, its quality varied enormously. Poor powder only puffed black smoke; sometimes cannonballs simply fell out of the muzzle. Other times the mixture was too potent and burst the barrel, often causing heavy casualties among the gunners.
 
-For this expedition, He Rubin commissioned him to handle gunpowder and shot manufacturing concurrently. Leading the Firearms Battalion, gunpowder and shot were matters of life and death, so he couldn't take it lightly.
+For this expedition, He Rubin had commissioned him to oversee gunpowder and projectile manufacturing concurrently. For the commander of the Firearms Battalion, gunpowder and ammunition were matters of life and death; he could not afford to take them lightly.
 
-Many large iron pots were set up in the sheds, boiling something and emitting foul smells. Li Modao knew this was purifying saltpeter and sulfur.
+Many large iron cauldrons had been set up in the sheds, boiling something that emitted foul odors. Li Modao recognized this as the process of purifying saltpeter and sulfur.
 
-Not far away, three large stone grinding pans pulled by Sichuan horses crushed charcoal; many laborers were pounding ashes "thump, thump," and others were sifting ashes for fine black powder. Others mixed sulfur, saltpeter, and other things into charcoal powder according to prescribed ratios to make gunpowder.
+Not far away, three large stone grinding mills pulled by Sichuan horses crushed charcoal. Many laborers were pounding ash with rhythmic *thump-thump* sounds, while others sifted the ash to produce fine black powder. Still others mixed sulfur, saltpeter, and other substances into the charcoal powder according to prescribed ratios to make gunpowder.
 
-The made gunpowder was put into stone troughs, where craftsmen constantly pounded it with thick wooden pestles. Old craftsmen sat aside, occasionally rubbing the powder with hands and adding clear water. Gunpowder had to be pounded as fine as possible; Li Modao remembered books prescribing over five thousand pounds. He didn't know how craftsmen counted.
+The prepared gunpowder was transferred to stone troughs, where craftsmen continuously pounded it with thick wooden pestles. Elderly master craftsmen sat nearby, occasionally rubbing the powder between their fingers and adding clear water. The gunpowder had to be pounded as fine as possible; Li Modao recalled that the manuals prescribed over five thousand strokes. He had no idea how the craftsmen kept count.
 
-Other craftsmen sprayed slightly sticky water soaked from wheat onto spread-out gunpowder, then used bamboo sieves to shake out granular gunpowder of various sizes.
+Other workers sprayed slightly viscous water—soaked from wheat—onto spread-out gunpowder, then used bamboo sieves to shake out granular powder of various sizes.
 
 (End of Chapter)

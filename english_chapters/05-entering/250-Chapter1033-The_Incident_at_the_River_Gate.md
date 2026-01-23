@@ -1,91 +1,95 @@
 # Chapter 1033: The Incident at the River Gate
 
-His nearly one thousand men took off their marked vests, furled their war flags, and dispersed among several villages by the canal. As soon as the soldiers entered a village, they took control of it, allowing entry but no exit. Every night, squad leaders and company commanders led teams out in batches to pillage. Kong Youde did not allow them to go out sporadically, fearing they would be counterattacked and captured alive by local militia. Only after scouts were sent out daily to spy and identify wealthy households did they go out at night with blackened faces.
+His nearly one thousand men shed their marked vests, furled their war flags, and dispersed among several villages along the canal. The moment soldiers entered a village, they seized complete control—permitting entry but forbidding exit. Each night, squad leaders and company commanders led teams out in batches to pillage. Kong Youde forbade sporadic excursions, fearing his isolated men might be counterattacked and captured by local militia. Only after scouts were dispatched daily to spy out and identify wealthy households did the raiding parties venture forth at night, their faces blackened with soot.
 
-He didn't stay long in any place, inevitably moving every two or three days. Since his subordinates were all cavalry, their route choices were very free. Sometimes he would suddenly move the whole army dozens of *li* away from the canal, then turn back in another direction, making it impossible for people to figure out his movement patterns and camping locations.
+He never lingered anywhere too long, moving every two or three days without fail. Since his subordinates rode exclusively on horseback, their route choices were unrestricted. Sometimes he would suddenly shift the entire army dozens of *li* away from the canal, then double back from an entirely different direction, rendering his movement patterns and encampment locations impossible to predict.
 
-Part of the looted wealth was handed over to the "supply depot," and part was distributed to the officers and soldiers according to rank. Within a few days in Dongguang, everyone's bags were full; the soldiers ate their fill and had some silver in their hands, so their courage grew. Some began to ignore Kong Youde's orders and went out in groups of three or five to rob and rape.
+Part of the plundered wealth was surrendered to the "supply depot," the remainder distributed to officers and soldiers according to rank. Within days of arriving in Dongguang, everyone's bags bulged with valuables. The soldiers ate well and had silver jingling in their pockets, and their courage swelled proportionally. Some began ignoring Kong Youde's orders, venturing out in groups of three or five to rob and rape at will.
 
-We can't stay here any longer, Kong Youde thought. If we stay too long, the soldiers will slack off, and besides, secrecy can't be maintained—it's impossible for there to be such large-scale "horse bandits" in Hebei. Staying longer would be impossible to cover up; the local officials are just pretending not to know, not truly ignorant.
+*We can't stay here any longer,* Kong Youde thought. *If we linger too long, the soldiers will grow slack. Besides, secrecy cannot be maintained—it's impossible for "horse bandits" of this scale to operate in Hebei unnoticed. The local officials are merely pretending ignorance, not truly unaware.*
 
-If he really let his officers and soldiers continue making trouble, sooner or later the local officials wouldn't be able to cover it up. When trouble really broke out, let alone himself, even Sun Yuanhua might not have the ability to handle it.
+If he permitted his officers and soldiers to continue making trouble, sooner or later the local officials would be unable to maintain cover. When real trouble erupted, let alone himself—even Sun Yuanhua might lack the influence to resolve it.
 
-Now they should almost immediately return to the main road and continue towards Shanhai Pass.
+The time had come. They needed to return immediately to the main road and continue toward Shanhai Pass.
 
-The night before, Kong Youde ordered the central army to invite all officers above the rank of squad leader to his quarters to announce the specific itinerary for the next step.
+The night before, Kong Youde had ordered the central army to summon all officers of squad-leader rank and above to his quarters, where he would announce the specific itinerary for the next phase.
 
-Unexpectedly, in the meeting, his order for the whole army to reinforce Shanhai Pass via the main road met with opposition from many subordinates: during these ten or so days of looting, the officers had made quite a fortune. This was extremely stimulating for the lower and middle-ranking officers who had long been stuck in Dengzhou with no extra income besides embezzled military pay.
+What he encountered was not obedience but opposition.
 
-They had suffered enough from the Shandong soldiers and Southern soldiers in Dengzhou and were already full of complaints. Now, having just gotten some benefits, they were to go to Liaodong again—many were unwilling to give up the chance to "continue getting rich," and even less willing to go to Liaodong to "die."
+During these ten-odd days of looting, the officers had earned handsomely. This proved intoxicating for lower and middle-ranking officers who had long been stranded in Dengzhou with no income beyond embezzled military pay. They had suffered enough from the Shandong and Southern soldiers in Dengzhou, accumulating a bellyful of grievances. Now, having just tasted real profit, they were being ordered to Liaodong again. Many were unwilling to abandon their chance to "continue getting rich"—and even less willing to march to Liaodong to "die."
 
-Kong Youde was very isolated in the meeting. Apart from a few of his confidants, most officers expressed unwillingness to go to Liaodong. Li Jiucheng, who had arrived not long ago, not only didn't help persuade them but frequently moved privately among the soldiers and lower-ranking officers, inciting them to "return to Dengzhou."
+Kong Youde found himself isolated in that meeting. Apart from a handful of confidants, most officers expressed reluctance to proceed to Liaodong. Li Jiucheng, who had arrived not long before, not only failed to help persuade them but had been working privately among the soldiers and lower-ranking officers, inciting them to "return to Dengzhou."
 
-This caught Kong Youde off guard—he had originally hoped Li Jiucheng would help suppress the troops, but he hadn't expected him to undermine him secretly!
+This caught Kong Youde completely off guard. He had hoped Li Jiucheng would help suppress the troops—he had never anticipated being undermined from within.
 
-Because the generals reacted strongly, Kong Youde dared not order departure immediately. He had to stay another day locally—in a small village by the canal—preparing to convince everyone again at night.
+Due to the generals' strong opposition, Kong Youde dared not order immediate departure. He was forced to remain another day locally—in a small village by the canal—preparing to make another attempt at persuasion that night.
 
-This day, Kong Youde had just finished washing up and was thinking of having a good talk with Li Jiucheng and the others. Suddenly someone reported: a group of suspicious cavalry was active more than ten *li* away from here.
+The following day, Kong Youde had just finished washing up and was contemplating how to approach Li Jiucheng and the others when a subordinate rushed in with a report: a group of suspicious cavalry was active more than ten *li* away.
 
-Because the work he was doing couldn't see the light of day, he sent out 24 patrolling cavalry scouts day and night, capable of detecting abnormal movements about 20 *li* away. Recent news indicated that unidentified reconnaissance cavalry were tailing his men. His scouts tried several times to capture them, but the other side tried their best to avoid conflict and could always spot his cavalry's movements first and evade. The appearance of these scouts was also one of the factors making him anxious to leave this place.
+Because his current activities could not bear scrutiny, he maintained twenty-four patrolling cavalry scouts around the clock, capable of detecting abnormal movements within roughly twenty *li*. Recent reports had indicated that unidentified reconnaissance cavalry were tailing his forces. His scouts had attempted several times to intercept them, but the opposing riders consistently spotted his cavalry's movements first and evaded conflict. The appearance of these scouts was among the factors contributing to his anxiety about remaining in the area.
 
-"How many people?"
+"How many?"
 
-"Just over twenty, all in plain clothes. With swords." The scout hesitated, "But they're riding good horses!"
+"Just over twenty, all in civilian clothes. Armed with swords." The scout hesitated. "But they're riding excellent horses!"
 
-"Are they martial artist types?"
+"Martial artist types?"
 
-"Doesn't look like it. The formation is strict and lines are orderly."
+"Doesn't look like it. The formation is strict, lines orderly."
 
-"You go rest first." Kong Youde was secretly worried. After dismissing the scout, he ordered people to notify the generals at various campsites to come to his place for a meeting at night, preparing to try convincing everyone one more time.
+"Go rest first." Kong Youde's unease deepened. After dismissing the scout, he ordered messengers to notify commanders at the various encampments to gather at his location that night, preparing for one final attempt at persuasion.
 
-Chen Sigen, leading his squad, had now arrived at a place less than twenty *li* from Kong's unit. Upon hearing the news that Kong's scouts had discovered his tracks, he ordered the whole squad to turn back and quickly break away from the scout's detection range.
+---
 
-In a small grove, he posted sentries and then sent out reconnaissance cavalry to confirm the specific location and situation of several candidate targets.
+Chen Sigen and his squad had now arrived within twenty *li* of Kong's forces. Upon receiving word that Kong's scouts had detected their presence, he ordered an immediate turnabout, rapidly withdrawing beyond the scouts' detection range.
 
-More than twenty young team members were wearing cotton jackets and raw sheepskin coats commonly worn by local peddlers and farmers. Although the outdoor temperature was already down to zero degrees, they were all in high spirits.
+In a small grove, he posted sentries and dispatched reconnaissance cavalry to confirm the specific location and circumstances of several candidate targets.
 
-"How is it, didn't freeze your balls off, did you?" Chen Sigen cracked a joke, and the team members all grinned, white mist spraying from their mouths and noses.
+More than twenty young operatives wore the cotton jackets and raw sheepskin coats favored by local peddlers and farmers. Though the outdoor temperature had already dropped below freezing, they remained in high spirits.
 
-"Alright, we rest here for a while, and move out to do the job tonight!" Chen Sigen said, picking up a branch and drawing a simple diagram on the ground. "Our attack target tonight is a sluice gate by the South Canal. It's about twenty-five *li* from Dongguang County City."
+"How is it—didn't freeze your balls off, did you?" Chen Sigen cracked a joke, and the squad members all grinned, white vapor streaming from their mouths and noses.
 
-He used branches and stones to mark, quickly explaining the topographic orientation. This location was carefully selected from over a dozen backup locations reported by the scouts. This attack location first had to be a place where boats on the canal moored overnight, usually a relatively prosperous riverside market or village. This was to ensure there were enough witnesses. Secondly, the location had to be not far from the village where Kong Youde's subordinates were staying overnight.
+"Alright, we rest here briefly, then move out tonight!" Chen Sigen announced, picking up a branch and scratching a simple diagram into the frozen earth. "Our target tonight is a sluice gate on the South Canal, roughly twenty-five *li* from Dongguang County City."
 
-Although Kong Youde was careful to hide his tracks along the way, Chen Sigen knew from the scout reports that the local people already knew a group of soldiers was looting locally, only the people didn't know their origin yet—the county magistrate had already mobilized the local militia, and villages fortified their defenses.
+Using branches and stones for markers, he swiftly explained the topographic orientation. This location had been carefully selected from over a dozen backup sites reported by scouts. The attack site needed first to be a place where canal boats moored overnight—typically a relatively prosperous riverside market or village. This ensured sufficient witnesses. Second, the location had to be reasonably close to the village where Kong Youde's subordinates were camping.
 
-However, this sluice gate had no defensive measures. Although it wasn't a tax collection station with stationed tax officials, it was still a small branch agency under the Water Transport Office.
+Although Kong Youde had taken care to conceal his movements, Chen Sigen knew from scout reports that the local populace was already aware that soldiers were looting in the area—they simply didn't know the soldiers' origin. The county magistrate had mobilized local militia, and villages had fortified their defenses.
 
-The South Canal was in the north. To maintain the canal's water volume and cross watersheds, many sluice gates were built along the way to regulate the water volume.
+This particular sluice gate, however, had no defensive measures. Though it wasn't a tax collection station with stationed officials, it remained a small branch agency under the Water Transport Office.
 
-These sluice gates were guarded and maintained by lock-keepers who opened the gates daily to release water and boats, so it was also an official institution—ordinary bandits and mutinous soldiers wouldn't dare strike here easily; after all, this was territory covered by officialdom.
+The South Canal lay to the north. To maintain the canal's water levels across varying terrain, many sluice gates had been constructed along its length to regulate flow.
 
-Taking out this place would implicate not just Dongguang County, but the entire Water Transport Office. The severity was far greater than slaughtering a few villages. At that point, Kong Youde, who was nearby, would have no choice but to rebel.
+These gates were guarded and maintained by lock-keepers who opened and closed them daily to manage water levels and boat passage. It was still an official institution—ordinary bandits and mutinous soldiers wouldn't dare strike here lightly. After all, this was territory under governmental authority.
 
-Originally, Chen Sigen considered whether to blow up the sluice gate—he brought some C4 explosives. Blowing up the gate would obviously help intensify the chaos of the whole event, but Zhu Mingxia and Lu Wenyuan thought this was too far beyond Kong Youde's capabilities. Moreover, the motive would be hard to explain. Therefore, the attack was limited to economically valuable targets near the sluice gate.
+Striking this place would implicate not merely Dongguang County but the entire Water Transport Office. The severity far exceeded massacring a few villages. At that point, Kong Youde—encamped nearby—would have no choice but to rebel.
 
-The most valuable targets were the residences of several local lock-keepers: living off the water on the canal, the opening and closing of the gate concerned the time and convenience of boatmen's navigation. Since the officials managing the gate had power, they naturally sought rent, so every one of them was filthy rich. Chen Sigen prepared to start with them.
+Originally, Chen Sigen had considered whether to blow up the sluice gate itself—he carried some C4 explosives. Destroying the gate would obviously amplify the chaos. However, Zhu Mingxia and Lu Wenyuan judged this would far exceed Kong Youde's apparent capabilities. Moreover, the motive would be impossible to explain. Therefore, the attack would be limited to economically valuable targets near the sluice gate.
 
-"The target, is everyone clear? First, the residences of several lock-keepers, second, the grain boats at the dock." He pointed out directions on the makeshift sand table. "You must remember, we are soldiers. Although we are doing dirty work underneath the table, we aren't bandits. In the operation, no killing innocents indiscriminately, no raping women, no arson at will, all loot goes to the public!"
+The most valuable targets were the residences of several local lock-keepers. Living off the canal's commerce, with authority over when gates opened and how conveniently boats could navigate, the officials managing the gates naturally extracted rent. Every one of them was filthy rich. Chen Sigen intended to start with them.
 
-"Understood!" The team members answered crisply.
+"Is everyone clear on the targets? First, the residences of the lock-keepers. Second, the grain boats at the dock." He indicated directions on the makeshift sand table. "Remember: we are soldiers. Though we're doing dirty work beneath the table, we are not bandits. During the operation—no indiscriminate killing of innocents, no raping women, no arbitrary arson. All loot goes to the common pool!"
 
-Night fell. Kong Youde and his generals were in a meeting discussing the next move: most generals still insisted on returning to Dengzhou. Kong Youde failed to persuade everyone all along, and gradually the meeting tended to get out of control. Several generals even revealed an intention of "must do it," looking like they would fight Kong Youde right there if he didn't agree. Li Jiucheng constantly appeared as a mediator in the middle but was actually forcing him to make a decision.
+"Understood!" The squad members answered crisply.
 
-Just when everyone was arguing until their mouths were dry and the atmosphere was becoming tense, suddenly a personal guard came to report: there was black smoke and firelight by the canal bank seven or eight *li* away, and faint sounds of killing could be heard. The soldiers and horses in the camp were becoming unsettled.
+---
 
-"What?" Kong Youde was startled and got up to look out the window—sure enough, there was firelight in the distance, reddening the horizon. He turned his head sharply to scan the generals: all his subordinate generals were present, so it shouldn't be his men.
+Night descended. Kong Youde and his generals were meeting to debate their next move. Most still insisted on returning to Dengzhou. Kong Youde's efforts at persuasion had failed repeatedly, and the gathering was sliding toward chaos. Several generals had even revealed an intention of "we must do it," appearing ready to fight Kong if he refused to comply. Li Jiucheng constantly surfaced as mediator, but his true purpose was forcing a decision.
 
-However, only those above the rank of squad leader were present; it was hard to say if any team leaders or small bosses had taken men out privately to cause trouble.
+Just as arguments grew heated and the atmosphere turned dangerous, a personal guard rushed in: black smoke and firelight could be seen seven or eight *li* away along the canal bank, and faint sounds of killing drifted on the wind. The soldiers and horses in camp were growing restless.
 
-The generals also found it baffling and looked at each other.
+"What?" Kong Youde shot to his feet and strode to the window. Sure enough—firelight reddened the distant horizon. He turned sharply, scanning the assembled generals. All his subordinate commanders were present here, so it shouldn't be his own men.
 
-Kong Youde immediately ordered scouts to go see. In less time than it takes to eat a meal, the scouts galloped back, bringing terrible news: more than a hundred cavalrymen were burning, killing, and looting over by the sluice gate.
+Yet only those of squad-leader rank and above were present. Whether some team leaders or petty officers had taken men out privately to cause trouble remained uncertain.
 
-"Whose troops are they?" Kong Youde was extremely anxious. The sluice gate was official ground; making trouble there was a big deal. He turned his head and glared fiercely at Li Jiucheng, guessing in his heart that nine out of ten this was done under Li Jiucheng's instructions—this was forcing him to have to do it with them!
+The generals exchanged baffled glances.
 
-"Ruitu!" Li Jiucheng saw his unkind gaze and knew what he was thinking, afraid of causing a misunderstanding—after all, this troop was brought up by Kong Youde single-handedly; if they really fell out, he wouldn't benefit either. He immediately declared: "Everyone just wants to go back to Dengzhou, not go to Liaodong to die in vain, absolutely no other intentions! And definitely didn't do anything to let you down! We didn't do this! If I, Old Li, dare to speak half a word of lie, may heaven strike me with five thunderbolts immediately!"
+Kong Youde immediately dispatched scouts to investigate. In less time than it takes to eat a meal, they galloped back bearing terrible news: more than a hundred cavalrymen were burning, killing, and looting at the sluice gate.
 
-"Reporting to the Assistant Regional Commander, we couldn't tell whose troops they were," said the scout. He only vaguely saw that they were all riding excellent Mongolian warhorses, wearing robes and sheepskin coats on the outside, but... it looked like they were wearing military vests underneath.
+"Whose troops?" Kong Youde demanded, his anxiety peaking. The sluice gate was official territory—causing trouble there was no small matter. He turned and fixed Li Jiucheng with a fierce glare, inwardly convinced that nine times out of ten, Li Jiucheng had orchestrated this—a stratagem to force his hand in rebellion.
 
-Most importantly, the weapons of this group of cavalry were very uniform, unlike the disorganized weapons of ordinary bandits, so they were definitely officers and soldiers from some battalion.
+"Ruitu!" Li Jiucheng saw his hostile stare and understood the accusation forming in his mind. Fearing a disastrous misunderstanding—after all, these troops had been raised by Kong Youde personally, and a genuine falling-out would benefit neither party—he immediately declared: "Everyone simply wants to return to Dengzhou, not march to Liaodong to die in vain! We harbor no other intentions! We absolutely did not do this! If I, Old Li, dare speak half a word of falsehood, may heaven strike me with five thunderbolts on the spot!"
+
+"Reporting to the Assistant Regional Commander," the scout said, "we couldn't identify whose troops they were." He had only glimpsed that they rode excellent Mongolian warhorses, wore rough robes and sheepskin coats on the outside, but... appeared to be wearing military vests beneath.
+
+Most significantly, this cavalry's weapons were remarkably uniform—nothing like the disorganized armaments of ordinary bandits. They were definitely soldiers from some battalion.
 
 **(End of Chapter)**

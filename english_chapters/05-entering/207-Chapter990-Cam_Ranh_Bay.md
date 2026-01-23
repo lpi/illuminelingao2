@@ -2,15 +2,15 @@
 
 Even from the ships, one could see the series of fortresses the Nguyen had built along the coastline. Particularly at strategic sea-land junctions and locations suitable for ship anchorage, Nguyen-built fortresses were everywhere. Many were European-style, and though they showed obvious "knockoff" characteristics in both scale and materials, there was no denying that the Nguyen's "Westernization" in military thought and technology was far more aggressive than the Great Ming's.
 
-In this Vietnamese North-South war, not only did European colonizers active in Southeast Asia participate, but Chinese pirates were also involved, providing naval power for both Nguyen and Trinh in their fighting—quite enjoying themselves. Both sides lavished various "official positions," "noble titles," and "imperial mandates" on the pirates without stint—after all, what it cost was just a piece of paper plus a wooden official seal, along with an ill-fitting official's robe. This was enough to attract countless people and ships to fight for their side—why not? As for compensation, it was freedom to plunder the enemy side's territory.
+In this Vietnamese North-South war, not only did European colonizers active in Southeast Asia participate, but Chinese pirates were also involved, providing naval power for both Nguyen and Trinh in their fighting—quite enjoying themselves. Both sides lavished various "official positions," "noble titles," and "imperial mandates" on the pirates without stint. After all, what it cost was just a piece of paper plus a wooden official seal, along with an ill-fitting official's robe. This was enough to attract countless people and ships to fight for their side—why not? As for compensation, it was freedom to plunder the enemy side's territory.
 
-Ping Qiusheng suddenly remembered something: "Runner! Order Wang You to report to the sterncastle immediately!"
+Ping Qiusheng suddenly remembered something. "Runner! Order Wang You to report to the sterncastle immediately!"
 
 Wang You, who had come over during the Pearl River Estuary Campaign, had originally been studying logistics at the Joint Logistics Training Class at Ma'ao Base. He had previously been the old camp steward for the pirate group, responsible for logistics—a professional match. This time going to Southeast Asia, when selecting naturalized citizens familiar with the Southeast Asian environment from throughout the military system, Wang You had been temporarily borrowed.
 
-"You went there with Zheng Bao before." Ping Qiusheng asked Wang You abruptly.
+"You went there with Zheng Bao before," Ping Qiusheng asked him abruptly.
 
-"Yes!" Wang You's attention stance wasn't quite standard—though he had mingled among pirates, he was essentially a clerk-type assistant, and being older, the results of his "standardization" training were far inferior to his peers. The naval uniform on him had a certain air of those Meiji Restoration-era Japanese samurai just starting to wear Western clothes.
+"Yes!" Wang You's attention stance wasn't quite standard. Though he had mingled among pirates, he was essentially a clerk-type assistant, and being older, the results of his "standardization" training were far inferior to his peers. The naval uniform on him had a certain air of those Meiji Restoration-era Japanese samurai just starting to wear Western clothes.
 
 Wang You looked at the familiar coastline and roughly described the "combat" operations he had conducted with Zheng Bao's fleet in this area—so-called combat meant burning, killing, and plundering. At first, this was quite good business. The Nguyen had no defenses along this coastline, and the fleet easily captured many ships and plundered large quantities of goods. Except for the portion handed over to the Trinh, the rest all belonged to the fleet.
 
@@ -28,7 +28,7 @@ As for Chinese pirates fighting for the Nguyen, there were far fewer—relativel
 
 Of course, quite a few in this gold-digging also met untimely deaths. Wang You knew several former stewards under Zhu Cailao who had fallen in battle here. So when the ship reached this point, he couldn't help feeling a sense of the fox mourning the hare's death.
 
-Quark frequently passed through this area and had heard quite a bit about the war. He pointed to several buildings deep on the coastline: "There are the Annamese granaries. I hear there are many more further inland, with the largest at Hue's east gate. God be praised, these savages have been slaughtering each other for years, with Portuguese participating too. They've stockpiled a lot of grain, but I estimate at this rate of killing, soon no one will be left to eat it."
+Quark frequently passed through this area and had heard quite a bit about the war. He pointed to several buildings deep on the coastline. "There are the Annamese granaries. I hear there are many more further inland, with the largest at Hue's east gate. God be praised, these savages have been slaughtering each other for years, with Portuguese participating too. They've stockpiled a lot of grain, but I estimate at this rate of killing, soon no one will be left to eat it."
 
 "Are the firearms they use provided by the Portuguese?" Ping Qiusheng asked. He saw large numbers of artillery batteries and gun emplacements, all presumably equipped with cannons. The total numbers were quite staggering.
 
@@ -41,6 +41,8 @@ Ping Qiusheng looked at the distant buildings, thinking these grains should belo
 Ping Qiusheng noticed that a natural reef offshore separated the harbor. The mooring conditions inside were quite good. At this point, people on shore seemed to have also noticed the fleet's arrival and lit warning smoke, but no ships came out to investigate. Obviously the other side didn't actually have a standing navy ready to put to sea at any time. They just relied on coastal defense systems to prevent landing and harassment.
 
 A bit further south was Da Nang, and the Han River estuary was already visible. This was the dividing line of Han cultural influence on the Indochinese Peninsula. In this timeline, Vietnam hadn't yet pushed its territory southward to the sea. In the Vietnamese court's view, everything south of the Han River was uncivilized territory—land for them to "civilize" and "conquer."
+
+---
 
 After two days of sailing, the fleet arrived in the waters off Nha Trang. Ping Qiusheng ordered the fleet to anchor here and dispatched small teams to land for fresh water, firewood, and food gathering. The landing party caused some small alarm among the local inhabitants.
 

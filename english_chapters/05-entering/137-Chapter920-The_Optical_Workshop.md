@@ -1,20 +1,20 @@
 # Chapter 920 – The Optical Workshop
 
-As he thought this, two young men in work clothes emerged from a corner and came to greet Lin Hanlong's group. Lin Hanlong waved them to wait a moment. Then he turned and entered his office—a corner of the workshop partitioned off with hollow bricks, with kapok soundproofing boards on the inner walls. He sometimes needed to stay overnight in the workshop and do engineering calculations, requiring a relatively quiet environment.
+As he thought this, two young men in work clothes emerged from a corner and came to greet Lin Hanlong's group. He waved them to wait a moment, then turned and entered his office—a corner of the workshop partitioned off with hollow bricks, with kapok soundproofing boards on the inner walls. He sometimes needed to stay overnight in the workshop and do engineering calculations, requiring a relatively quiet environment.
 
-The office held just a few tables, some cabinets, and a row of shelves, all piled with document papers, oddly-shaped glass blocks, and machine parts. A small door led to his single-person dormitory. As a transmigrator, this was one of the few privileges he enjoyed.
+The office contained just a few tables, some cabinets, and a row of shelves, all piled with document papers, oddly-shaped glass blocks, and machine parts. A small door led to his single-person dormitory. As a transmigrator, this was one of the few privileges he enjoyed.
 
-Lin Hanlong walked to his desk and opened the cabinet. Inside was a small dehumidifier safe, secured with a small Sailing Brand padlock. Lin Hanlong took a ring of keys from his belt and picked one to open the lock—humidity was high in the Lingao summer, and moisture control was essential. From inside, he took out his treasures: a cowhide tool belt hung with tools and measuring instruments from the old timeline—a Fluke multimeter, fully functional; a high-powered flashlight whose original lithium battery was nearly dead (he wondered if Zhong Lishi could make a substitute). From his laptop bag, he took out a calculator—a TI graphing calculator he'd bought at great expense before the transmigration, very powerful. He clipped everything to the appropriate spots on his belt. Finally, he stuffed the entire laptop bag into the dehumidifier safe and locked it again.
+Lin Hanlong walked to his desk and opened the cabinet. Inside was a small dehumidifier safe, secured with a small Sailing Brand padlock. Lin Hanlong took a ring of keys from his belt and selected one to open the lock—humidity was high in the Lingao summer, and moisture control was essential. From inside, he retrieved his treasures: a cowhide tool belt hung with tools and measuring instruments from the old timeline—a Fluke multimeter, fully functional; a high-powered flashlight whose original lithium battery was nearly dead (he wondered if Zhong Lishi could make a substitute). From his laptop bag, he took out a calculator—a TI graphing calculator he'd bought at great expense before the transmigration, quite powerful. He clipped everything to the appropriate spots on his belt. Finally, he stuffed the entire laptop bag into the dehumidifier safe and locked it again.
 
-"Chief Lin! Here's today's data." One of the young men in work clothes saw him emerge and hastened to hand over a thick notebook. The two were students; per the academic schedule, they had to spend several hours each week doing labor at various factories.
+"Chief Lin! Here's today's data." One of the young men in work clothes saw him emerge and hastened to hand over a thick notebook. Both were students; per the academic schedule, they had to spend several hours each week doing labor at various factories.
 
 Lin Hanlong took it and skimmed through. "Come on, let's check the furnace."
 
-The furnace was the newly built optical workpiece annealing furnace—a square black box clad in fire bricks. A door on the upper side could be opened to slide the workpiece out on rails. Below was a firebox; a gas bag outside the workshop fed in coal gas, with adjustable dampers and air vents. On top of the annealing furnace were several crude pointer-type gauges without glass covers; the scales under the needles were hand-drawn.
+The furnace was the newly built optical workpiece annealing furnace—a square black box clad in fire bricks. A door on the upper side could be opened to slide the workpiece out on rails. Below was a firebox; a gas bag outside the workshop fed in coal gas, with adjustable dampers and air vents. On top of the annealing furnace sat several crude pointer-type gauges without glass covers; the scales under the needles were hand-drawn.
 
-All glassmaking generally involved annealing. Lin Hanlong sometimes wondered why protagonists in novels who made glass never got injured by glass shards. Under normal circumstances, rapidly cooled cast glass had enormous internal mechanical stress. Thick glass blanks were liable to shatter during processing. That's why glass factories had annealing kilns to anneal finished products: reheat blanks to near-melting temperature, then let them cool slowly. The right temperature and cooling rate were specific to each factory's process. When Xiao Bailang set up the glass factory, he'd built an annealing kiln and consulted process manuals from the Grand Library, but conditions here differed from the old timeline—you couldn't copy procedures exactly. The actual temperatures and times had been worked out bit by bit through trial and error by the glass factory's transmigrators and workers.
+All glassmaking generally involved annealing. Lin Hanlong sometimes wondered why protagonists in novels who made glass never got injured by glass shards. Under normal circumstances, rapidly cooled cast glass had enormous internal mechanical stress. Thick glass blanks were liable to shatter during processing. That's why glass factories had annealing kilns: reheat blanks to near-melting temperature, then let them cool slowly. The right temperature and cooling rate were specific to each factory's process. When Xiao Bailang set up the glass factory, he'd built an annealing kiln and consulted process manuals from the Grand Library, but conditions here differed from the old timeline—you couldn't copy procedures exactly. The actual temperatures and times had been worked out bit by bit through trial and error by the glass factory's transmigrators and workers.
 
-Now Lin Hanlong and his team had to figure out the correct temperature-control data for optical glass products through similar experimentation. The two students from school were human temperature controllers, doing their best to keep furnace temperature on the predetermined cooling curve.
+Now Lin Hanlong and his team had to figure out the correct temperature-control data for optical glass products through similar experimentation. The two students from school served as human temperature controllers, doing their best to keep furnace temperature on the predetermined cooling curve.
 
 As they neared the annealing furnace, the heat hit them. Lin Hanlong was used to it. The workshop's ventilation was decent, but with outdoor temperatures around thirty degrees, there was no better cooling method than forced mechanical ventilation.
 
@@ -26,7 +26,7 @@ Lin Hanlong pointed at several numbers. "What do you make of these?"
 
 The apprentice thought for a moment. "The thermometer was swapped, but the reading was still low—that means it's the furnace itself."
 
-Lin Hanlong grunted, took out his multimeter, and connected a thermocouple probe. He inserted the probe into the measurement port on top of the furnace. He turned the display to show the apprentice.
+Lin Hanlong grunted, took out his multimeter, and connected a thermocouple probe. He inserted the probe into the measurement port on top of the furnace and turned the display to show the apprentice.
 
 "Both match."
 
@@ -36,13 +36,13 @@ He turned to the two young men. "You can put out the fire now. Let it cool natur
 
 Lin Hanlong then walked over to a spherical grinding machine. Since he'd made the first hand-powered grinder, the Machinery Factory had produced four more specialized grinders. This one before him was the newest. The design was basically the same, but the biggest change was switching the drive to shaft-and-belt, and replacing many of the perishable wooden parts with metal ones. There were also additional adjustment devices for various parameters. At the moment, this grinder had been completely disassembled, its innards strewn across the floor. Lin Hanlong squatted down and examined a watermelon-sized bevel gear. Several teeth had been stripped.
 
-"Junjie, go to the Science and Technology Department office and call Chief Sun Li. Tell him I'd like him to come over."
+"Junjie, go to the Science and Technology Department office and ask Chief Sun Li to come over."
 
-This new equipment had been in service less than a week before breaking down. Yesterday, Lin Hanlong had disassembled the grinder himself to see if he could fix it on the spot—and discovered the fault was beyond him.
+This new equipment had been in service less than a week before breaking down. Yesterday, Lin Hanlong had disassembled the grinder himself to see if he could repair it on the spot—and discovered the fault was beyond him.
 
 The apprentice acknowledged and left. Lin Hanlong stood and walked toward another corner of the workshop.
 
-A thin, middle-aged man hurried over, bowing and nodding. "Sir—ah, Chief, Chief, good day." This half-trained native middle-aged worker would normally have pounced the moment Lin Hanlong entered the workshop and trailed him everywhere. After repeated scoldings from Lin Hanlong, he'd finally learned to stay at his post. Now he pointed proudly to several large glass bottles.
+A thin, middle-aged man hurried over, bowing and nodding. "Sir—ah, Chief, Chief, good day." This half-trained native middle-aged worker would normally have pounced the moment Lin Hanlong entered the workshop and trailed him everywhere. After repeated scoldings from Lin Hanlong, he'd finally learned to stay at his post. Now he pointed proudly at several large glass bottles.
 
 "Chief, look—as you instructed, we've crushed more of this stone powder, all sieved and graded."
 
@@ -84,11 +84,11 @@ The group chatted a while longer, then dispersed. For the others, it was almost 
 
 At five o'clock, "light music" played over loudspeakers across Lingao. Workers everywhere knew this was the call for night-shift workers. When the music played a second time, shift supervisors would take roll at workshop entrances, then hand over from day shift. Optical workshop workers trickled in, burping, picking their teeth, joking among themselves. Food stalls all over had dinner early for night-shift workers so they could eat their fill before work.
 
-Before the second music cue, everyone had arrived. Lin Hanlong stood to one side, hands behind his back, watching his workshop supervisor line up the workers for roll call. Lin Hanlong thought they'd lined up as neatly as soldiers—the working class really was naturally disciplined. Unfortunately, though most were young, except for a few robust specimens, most showed the effects of long-term malnutrition—thin and weak, probably not much use on a battlefield. He shook his head.
+Before the second music cue, everyone had arrived. Lin Hanlong stood to one side, hands behind his back, watching his workshop supervisor line up the workers for roll call. He thought they'd lined up as neatly as soldiers—the working class really was naturally disciplined. Unfortunately, though most were young, except for a few robust specimens, most showed the effects of long-term malnutrition—thin and weak, probably not much use on a battlefield. He shook his head.
 
 "Chief Lin! Optical Workshop night shift reporting: thirty-seven expected, thirty-seven present. Awaiting instructions!"
 
-Lin Hanlong cleared his throat and stepped forward. "Comrades! I have one thing to say today. As you all know, yesterday Grinder Number Four had a problem. Fragments flew out. I want to emphasize: first, our machinery's safety measures worked well. The fragments were stopped by the safety net; no one was hurt. Second, our safety awareness is still inadequate. We haven't mastered the safety protocols. When the grinder broke, people gathered to watch—but no one went to pull the emergency stop lever. That won't do! To put it harshly, that's courting death!"
+Lin Hanlong cleared his throat and stepped forward. "Comrades! I have one thing to say today. As you all know, yesterday Grinder Number Four had a problem. Fragments flew out. I want to emphasize: first, our machinery's safety measures worked well. The fragments were stopped by the safety net; no one was hurt. Second, our safety awareness is still inadequate. We haven't fully mastered the safety protocols. When the grinder broke, people gathered to watch—but no one went to pull the emergency stop lever. That won't do! To put it harshly, that's courting death!"
 
 Seeing no reaction from the workers, Lin Hanlong sighed inwardly and let his voice turn stern.
 
@@ -106,7 +106,7 @@ Per the work order, this grinder was doing rough grinding tonight, so a faster s
 
 Before long, all the other equipment in the workshop also roared to life one by one. The optical workshop's night shift had officially begun.
 
-Lin Hanlong made another circuit of the workshop, checking for abnormal conditions or sounds. Only then did he return to his office doorway, where he saw Wu Nanhai sitting on a wooden-slat bench in the workshop rest area.
+Lin Hanlong made another circuit of the workshop, checking for abnormal conditions or sounds. Only then did he return to his office doorway, where he found Wu Nanhai sitting on a wooden-slat bench in the workshop rest area.
 
 "Huh? Old Wu, why didn't you say something? Just sitting here?"
 

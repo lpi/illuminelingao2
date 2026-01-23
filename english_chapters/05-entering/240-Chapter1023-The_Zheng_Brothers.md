@@ -1,77 +1,79 @@
 # Chapter 1023 The Zheng Brothers
 
-"But the Dutch probably don't like them coming to Taiwan." Lin Yishao said.
+"But the Dutch probably won't welcome them in Taiwan," Lin Yishao said.
 
-"Hmm." Zheng Zhilong didn't respond. Lin Yishao's reasoning made sense. Regardless of what position the Australians held in the Dutch's hearts, Taiwan as a place right beside their bed was absolutely not somewhere they'd allow others to sleep soundly. Given the treaty, the Dutch might not immediately turn hostile.
+"Mm." Zheng Zhilong offered no further response. Lin Yishao's reasoning was sound. Regardless of what position the Australians held in Dutch hearts, Taiwan—lying right beside their beds—was absolutely not a place they would permit others to sleep. Given the treaty between them, the Dutch might not turn hostile immediately.
 
-"No doubt the Dutch will again try to use someone else's knife to kill." Lin Yishao added.
+"No doubt the Dutch will again try to use someone else's knife for the killing," Lin Yishao added.
 
-The Zheng family hadn't yet adopted official airs. The situation of subordinates being so terrified they dared not speak extra words didn't exist here. Lin Yishao quite naturally expressed his own views. But such an attitude would be great disrespect in official circles.
+The Zheng family had not yet adopted the rigid airs of officialdom. Subordinates were not so terrified they dared not speak their minds. Lin Yishao offered his views quite naturally—though such candor would constitute grave disrespect in official circles.
 
-Zheng Zhilong didn't pursue his words: "You've worked hard this time. Go collect fifty taels and rest well for a few days!"
+Zheng Zhilong did not pursue the matter. "You've worked hard this time. Collect fifty taels and rest well for a few days."
 
-After Lin Yishao left, Zheng Zhilong pondered in his inner study for quite a while. The Australians landing in Taiwan clearly meant inserting themselves into Fujian waters—it absolutely couldn't be taken lightly.
+After Lin Yishao departed, Zheng Zhilong sat pondering in his study for quite some time. The Australians landing in Taiwan clearly meant inserting themselves into Fujian waters. This could not be taken lightly.
 
-He called out in Portuguese, and the Black servant appeared at the door again.
+He called out in Portuguese, and the Black servant reappeared at the doorway.
 
-"Go invite Second Master, Third Master, and Fourth Master."
+"Invite the Second, Third, and Fourth Masters."
 
-The so-called Second, Third, and Fourth Masters were precisely his three blood brothers, also the Zheng family's capable generals: Zheng Zhihu, Zheng Zhifeng (Zheng Hongkui), and Zheng Zhibao.
+The so-called Second, Third, and Fourth Masters were his three blood brothers—also the Zheng family's most capable generals: Zheng Zhihu, Zheng Zhifeng (Zheng Hongkui), and Zheng Zhibao.
 
-The Zheng family brothers, including cousins, numbered quite a few, but these three brothers were Zheng Zhilong's confidants, occupying crucial positions in the family.
+Including cousins, the Zheng brothers numbered quite a few, but these three were Zheng Zhilong's inner circle, occupying crucial positions within the family enterprise.
 
-The Zheng brothers' meeting didn't last long: Immediately using force against the Australians was obviously not feasible—this would only drive the Australians and Liu Xiang together.
+The brothers' meeting did not last long. Immediate military action against the Australians was clearly not feasible—such a move would only drive them into Liu Xiang's arms.
 
-"We shouldn't add another opponent now." Zheng Zhilong said. The just-passed year 1630 was a turning point for the entire Zheng clan. In 1629, Li Kuiqi had even briefly captured Zhongyousuo, causing him to lose face. He had to request Dutch support at quite high terms. Only last year—February of the third year of Chongzhen—did he completely defeat Li Kuiqi, then also defeat Zhong Bin. Now, his only remaining enemy was Old Liu Xiang.
+"We should not add another opponent at this time," Zheng Zhilong declared. The recently passed year of 1630 had marked a turning point for the entire Zheng clan. In 1629, Li Kuiqi had even briefly captured Zhongyousuo, dealing Zheng Zhilong a humiliating blow. He had been forced to request Dutch support at considerable cost. Only in February of Chongzhen's third year had he completely crushed Li Kuiqi and subsequently defeated Zhong Bin. Now his sole remaining enemy was Old Liu Xiang.
 
-He was extremely resentful of the Dutch—not only because the Dutch played tricks and flip-flopped with balance-of-power games in the Taiwan Strait. When he was fighting Li Kuiqi and Zhong Bin, the Dutch bet on both sides and played both ends—that was secondary. What he bore most grudge about was that the Dutch governor stationed in Taiwan, Pieter Nuyts, had lured him onto a ship under the pretense of negotiations, kidnapped him, extorted several hundred taels of gold, and forced him to sign a trade agreement before releasing him. Not to mention the Dutch's "glorious history" of disregarding their former cooperative relationship with him and joining with officials to try to annihilate him.
+He bore deep resentment toward the Dutch—and not merely because they had played their balance-of-power games in the Taiwan Strait, betting on multiple sides during his wars with Li Kuiqi and Zhong Bin. That was secondary. What truly festered was that the Dutch governor in Taiwan, Pieter Nuyts, had lured him aboard a ship under the pretense of negotiations, kidnapped him, extorted several hundred taels of gold, and forced him to sign a trade agreement before releasing him. Not to mention the Dutch's "glorious history" of abandoning their former cooperative relationship to join with officials in attempting to annihilate him.
 
-"I heard Liu Xiang fought with the criminals before, and there's some bad blood between them. But that doesn't mean they won't join hands. We've allied with Li Kuiqi and Old Liu Xiang before too." Zheng Zhihu expressed his opinion. "I think now that they've arrived in Taiwan, Old Liu Xiang and the Dutch probably can't sit still either."
+"I've heard Liu Xiang clashed with the Criminals before, and there's bad blood between them," Zheng Zhihu offered. "But that doesn't preclude them joining hands. We've allied with Li Kuiqi and Old Liu Xiang ourselves in the past." He paused. "Now that they've arrived in Taiwan, Old Liu Xiang and the Dutch probably can't sit still either."
 
-"The Dutch should be the most restless." Zheng Zhifeng said. "Just watch—in not many days, the Dutch will come offering us benefits, inciting us to attack the Australians."
+"The Dutch should be the most restless," Zheng Zhifeng added. "Mark my words—within a few days, the Dutch will come bearing gifts, trying to incite us to attack the Australians."
 
-Zheng Zhibao stroked his beard: "We shouldn't be their hired thugs. Let the Dutch do it themselves."
+Zheng Zhibao stroked his beard. "We shouldn't serve as their hired thugs. Let the Dutch handle it themselves."
 
-"I think we need to provoke the Dutch until they have no choice but to act." Zheng Zhifeng said.
+"I think we need to provoke the Dutch until they have no choice but to act," Zheng Zhifeng said.
 
-"Haha, exactly." The three brothers laughed together. Only eldest brother Zheng Zhilong merely smiled faintly. Not showing emotions on one's face was the secret to being a leader and official—even in front of family members.
+"Ha! Exactly." The three brothers laughed together. Only eldest brother Zheng Zhilong smiled faintly. Revealing nothing on one's face was the secret to leadership and officialdom—even among family.
 
-"The Dutch are even shrewder merchants than us," Zheng Zhilong said. "To make them act, we have to give them some ammunition."
+"The Dutch are shrewder merchants than we are," Zheng Zhilong said. "To make them act, we'll need to give them some ammunition."
 
 "Elder brother, what clever plan do you have?"
 
-"No clever plan, but I have an idea," Zheng Zhilong said. "Let's not rush first. Have Guo Huaiyi watch the criminals more closely—see what they're doing, what they want to do, then decide. Anyway, there are plenty of people more anxious than us..."
+"No clever plan. But I have an idea." Zheng Zhilong's tone was measured. "Let's not rush. Have Guo Huaiyi observe the Criminals more closely—see what they're doing, what they intend to do. Then we'll decide. After all, plenty of people are more anxious than we are..."
 
-Zheng Zhilong had suffered enough from the Dutch before, so he was extremely wary of them. The Australians' sudden appearance was an even greater threat to the Dutch. He might as well use the Australians to check the Dutch.
+Zheng Zhilong had suffered enough at Dutch hands to be extremely wary of them. The Australians' sudden appearance represented an even greater threat to the Dutch than to himself. He might as well use the Australians to check Dutch ambitions.
 
-"Zhibao, go to Kinmen Island tomorrow and see that Traudenius." Zheng Zhilong said. "Sound out the Dutch's attitude—he has frequent contact with Taiwan and should have much information. See what their view is on the Australians."
+"Zhibao, go to Kinmen Island tomorrow and see that Traudenius," Zheng Zhilong instructed. "Sound out the Dutch's attitude—he maintains frequent contact with Taiwan and should have valuable information. See what their view is on the Australians."
 
-Traudenius was a senior merchant from Taiwan. Hans Putmans had stationed him in Zhangzhou Bay specifically to liaise with Zheng Zhilong and other Chinese merchants entering and leaving Anping.
+Traudenius was a senior merchant from Taiwan. Hans Putmans had stationed him in Zhangzhou Bay specifically to liaise with Zheng Zhilong and other Chinese merchants entering and exiting Anping.
 
 "I'll go find him tomorrow, eldest brother."
 
-Hans Putmans gazed out the trading post window at the ships anchored in the harbor. Several junks had just returned from Zhangzhou Bay. Besides bringing various trade goods, they had also brought tens of thousands of red bricks, much stone, and timber.
+---
 
-The reason for bringing so much building material was to expand Fort Zeelandia and a series of defensive works around Taiwan. Although when Putmans took office, Taiwan's trade was in serious deficit, he still worked on spending money to build defenses—this wasn't without reason.
+Hans Putmans gazed from the trading post window at the ships anchored in the harbor. Several junks had just returned from Zhangzhou Bay, bringing not only various trade goods but also tens of thousands of red bricks, quantities of stone, and timber.
 
-When Hans Putmans took office in 1629, all of Taiwan was in unprecedented crisis. On one hand, Taiwan's trade couldn't be called profitable. Trade with Japan was interrupted due to the Hamada Yahyoe Incident that erupted because of his predecessor Nuyts's mishandling. Trade with China also hadn't developed well. The Dutch couldn't open direct trade with China and were troubled by the struggles between various coastal sea lords—almost coming to a standstill. On the other hand, the Spanish were restless. The Spanish had not only built fortresses at Keelung and Tamsui, but had once dispatched a fleet from the Philippines attempting to drive out the Dutch in one fell swoop. If a storm hadn't scattered the fleet, the fall of Taiwan, which had no defensive capability, was certain.
+The building materials served to expand Fort Zeelandia and its surrounding defensive works. Though Taiwan's trade ran a serious deficit when Putmans assumed his post, he still invested in fortifications—and not without reason.
 
-Finally, there were raids from local natives. Several aboriginal villages around Taiwan had tense relations with the Dutch. The Dutch and the Chinese working for them were constantly attacked by Mattau and Bakloan villages. These included meaningless headhunting killings and conflicts of interest. His predecessor Nuyts had made great "contributions" to intensifying relations with local natives. The Dutch's safe zone was limited to just a few miles around Taiwan. Just eight days before Putmans took office, over fifty Dutch soldiers sent to suppress Chinese pirates were ambushed by local Mattau villagers and completely wiped out.
+When Hans Putmans took office in 1629, all of Taiwan faced unprecedented crisis. On one hand, trade could hardly be called profitable. Commerce with Japan had been interrupted by the Hamada Yahyoe Incident, sparked by his predecessor Nuyts's mishandling. Trade with China had also developed poorly. The Dutch could not establish direct trade channels with the Middle Kingdom and were plagued by struggles among various coastal sea lords—commerce had nearly ground to a halt. On the other hand, the Spanish were restless. They had not only built fortresses at Keelung and Tamsui but had once dispatched a fleet from the Philippines attempting to drive out the Dutch in a single blow. Had a storm not scattered that fleet, the fall of Taiwan—which possessed no defensive capability—would have been certain.
 
-Similar but smaller-casualty incidents occurred constantly locally. The natives were equally hostile to both Dutch and Chinese immigrants. Chinese hunting and farming often suffered native attacks.
+Finally, there were raids from local natives. Several aboriginal villages in Taiwan's vicinity maintained tense relations with the Dutch. Both the Dutch and the Chinese laboring for them suffered constant attacks from Mattau and Bakloan villages. These included ritualistic headhunting killings as well as conflicts of interest. His predecessor Nuyts had made considerable "contributions" toward intensifying relations with the natives. Dutch safe territory was limited to mere miles around the trading post. Just eight days before Putmans assumed the governorship, over fifty Dutch soldiers sent to suppress Chinese pirates had been ambushed by Mattau villagers and completely wiped out.
 
-Suppressing pirates, pacifying natives, finding ways to expand trade—these were the three major problems facing this fifth Dutch East India Company Governor of Formosa.
+Similar incidents, though with fewer casualties, occurred constantly. The natives displayed equal hostility toward Dutch and Chinese immigrants alike. Chinese hunting and farming frequently suffered native attacks.
 
-Hans Putmans was of military background and very capable. He came to the East Indies as a junior merchant in 1624, was promoted to merchant in 1626, and earned great merit during the siege by local kings at Batavia. In less than 5 years, he had qualified as a member of the East Indies Council.
+Suppressing pirates, pacifying natives, finding ways to expand trade—these were the three great problems confronting this fifth Dutch East India Company Governor of Formosa.
 
-Perhaps because of his military background, Hans Putmans had a resolute, bold personality and was keen on using force. Upon taking office, he immediately began suppressing small groups of Chinese pirates operating locally, while continuously retaliating with force against hostile local natives. At the same time, he requested the East Indies Council send him 1,300 soldiers and necessary weapons to drive out the Spanish occupying northern Formosa and bring their fortresses under Company jurisdiction—this request was naturally refused. The Company's military forces in the East Indies region had never exceeded 8,000. Even if the Spanish could be temporarily driven out, ruling such a large area would inevitably place enormous burden on the Company. After all, Taiwan's trade was still in deficit to this day. At the beginning of Putmans's tenure, Taiwan's trading post once went four months without completing a single maritime trade. Beset internally and externally, the Company almost abandoned the place—ultimately only its value as a trade window facing China kept it barely afloat.
+Hans Putmans came from a military background and possessed considerable ability. He had arrived in the East Indies as a junior merchant in 1624, earned promotion to merchant in 1626, and distinguished himself greatly during the siege of Batavia by local kings. In less than five years, he had qualified as a member of the East Indies Council.
 
-Since the Company signed the trade agreement with the Australians, Taiwan's status had dropped severely. Hans Putmans learned from correspondence that the Company had obtained large quantities of Chinese goods from Australian-controlled Lingao and Hong Kong, and remarkably could use goods rather than silver to pay.
+Perhaps because of his military background, Putmans possessed a resolute, bold personality and a taste for using force. Upon assuming office, he immediately began suppressing small groups of Chinese pirates operating locally while conducting continuous retaliatory operations against hostile natives. Simultaneously, he requested the East Indies Council send him 1,300 soldiers and the necessary weapons to drive out the Spanish occupying northern Formosa and bring their fortresses under Company jurisdiction. This request was naturally refused. The Company's military forces in the East Indies region never exceeded eight thousand, and even if the Spanish could be temporarily expelled, ruling such a large area would place enormous burden on the Company. After all, Taiwan's trade remained in deficit to this day. At the beginning of Putmans's tenure, the Taiwan trading post once went four months without completing a single maritime transaction. Beset internally and externally, the Company nearly abandoned the place—ultimately only its value as a trade window facing China kept it barely afloat.
 
-Putmans was well aware: If not for Lingao and Hong Kong's positions being too far south to handle Japan trade, plus the Company's relationship with Zheng Zhilong, the Company would likely abandon Taiwan.
+Since the Company had signed the trade agreement with the Australians, Taiwan's status had dropped precipitously. Hans Putmans learned from correspondence that the Company was now obtaining large quantities of Chinese goods from Australian-controlled Lingao and Hong Kong—and remarkably, they could pay with goods rather than silver.
 
-As Taiwan's governor, the ambitious Putmans naturally didn't want the Taiwan trading post to close down on his watch. He had always dreamed of opening direct trade channels with China. But so far he hadn't succeeded—Zheng Zhilong's attitude was elusive. The Great Ming court and officials were also unfathomable: They didn't respond to any of the Company's proposals or negotiation requests, using various means to obstruct trade. Whether requests, bribes, or threats, nothing yielded results. Chinese merchants either didn't want to enter Taiwan trade and sailed directly to Manila, or readily agreed to purchase goods on commission but absconded with the Company's advance deposits.
+Putmans understood clearly: Were it not for Lingao and Hong Kong's positions being too far south to handle the Japan trade, and were it not for the Company's relationship with Zheng Zhilong, they would likely have abandoned Taiwan entirely.
 
-Hans Putmans had reached a conclusion: To trade with the Chinese, force had to be used. Use force to conquer some port on China's coast, establish a base, then through constant plundering of maritime trade, force China's officials to agree to mutual trade. He had already specifically written a report on this plan, submitting it to Batavia's Council for discussion.
+As Taiwan's governor, the ambitious Putmans naturally did not wish to see the trading post closed during his tenure. He had long dreamed of opening direct trade channels with China. But so far he had not succeeded—Zheng Zhilong's attitude remained elusive. The Great Ming court and its officials were equally unfathomable: They responded to none of the Company's proposals or negotiation requests, using various means to obstruct trade. Whether entreaties, bribes, or threats—nothing yielded results. Chinese merchants either declined to enter Taiwan trade and sailed directly to Manila, or they readily agreed to purchase goods on commission only to abscond with the Company's advance deposits.
+
+Hans Putmans had reached a conclusion: To trade with the Chinese, force must be employed. Use force to conquer some port on the Chinese coast, establish a base, then through constant plundering of maritime trade, compel China's officials to accept mutual commerce. He had already drafted a detailed report on this plan and submitted it to Batavia's Council for discussion.
 
 (End of Chapter)

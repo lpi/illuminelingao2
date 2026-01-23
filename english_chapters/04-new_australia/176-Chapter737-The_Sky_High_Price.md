@@ -1,143 +1,215 @@
-# Chapter 737 - Sky-High Price
+# Chapter 737 - The Sky-High Price
 
-The peacemakers in the city finally reached a consensus after some bargaining. Once decided, Gao Ju ordered Manager Yan to be summoned.
+The would-be peacemakers in the city finally reached consensus after considerable bargaining. Once decided, Gao Ju ordered Manager Yan to be summoned.
 
-This Manager Yan, nicknamed "Yan Little-Hat" because he always wore a Six-Direction Unity Cap, also bore a nickname reflecting how others viewed his conduct—naturally not in a positive light.
+This Manager Yan bore the nickname "Yan Little-Hat" because he invariably wore a Six-Direction Unity Cap. The epithet also carried a veiled comment on his character—not a flattering one.
 
-Yan Little-Hat was one of Gao Ju's confidants. Previously tasked with gathering intelligence on Wen Desi and his group, often using various excuses to get close to them, he was considered an old acquaintance of the Australians, familiar with their situation and quite clever. If Shopkeeper Wen and the others had been in the fleet back then, Yan Little-Hat himself would be the best proof.
+Yan Little-Hat was one of Gao Ju's most trusted confidants. Previously tasked with gathering intelligence on Wen Desi and his group, he had often used various pretexts to cultivate their acquaintance. He was considered an old friend of the Australians, familiar with their affairs and quite clever.
 
-Furthermore, Yan Little-Hat had long been removed from the household register; theoretically, he was no longer a servant of the Gao family. If anything went wrong, clearing the connection would be relatively simple.
+If Shopkeeper Wen and the others had indeed been in the fleet back then, Yan Little-Hat himself would serve as living proof.
 
-He rewarded Yan Little-Hat with ten taels of silver, ordering him to be lowered down the city wall after dark to go to the Australian camp.
+Furthermore, Yan had long been removed from the household register; theoretically, he was no longer a Gao family servant. If anything went wrong, severing the connection would be relatively straightforward.
 
-Yan Little-Hat was somewhat fearful. Crossing a war zone into an enemy camp was something he'd only seen in books. Going rashly like this might get his head chopped off directly.
+Gao Ju rewarded him with ten taels of silver and ordered him to be lowered over the city wall after dark to proceed to the Australian camp.
 
-"No need to worry. The Bandits are Australians, subordinates of Shopkeeper Wen. They all know you. Why would they harm you?"
+Yan Little-Hat felt considerable apprehension. Crossing a war zone to enter an enemy camp was the sort of thing he'd only encountered in old romerta. Rushing in rashly like this might simply get his head lopped off.
 
-"It's Master Wen?" Yan Little-Hat was surprised. "They have such powerful firearms?" News of the Bandits conquering everything along the Pearl River had spread throughout Guangzhou.
+"No need to worry," Gao Ju assured him. "The Bandits are Australians—subordinates of Shopkeeper Wen. They all know you. Why would they harm you?"
 
-"Those who can create Australian wonders, can they not build a few cannons?" Gao Ju snorted. "Go boldly; I won't treat you unfairly. When you see them, say this..."
+"It's Master Wen?" Yan Little-Hat couldn't hide his surprise. "They have such powerful firearms?" News of the Australians conquering everything along the Pearl River had spread throughout Guangzhou.
 
-He explained the details for the next contact meeting.
+"Those who can create Australian wonders—do you suppose they cannot build a few cannons?" Gao Ju snorted. "Go boldly. I won't treat you unfairly. When you see them, say this..."
 
-"If they are unwilling, bring back their message. Tell me everything exactly. No written paper allowed, understand?"
+He explained the details for arranging the first contact meeting.
 
-"Yes, Master!" Yan Little-Hat said. "But Master, what if Shopkeeper Wen isn't in the army—I heard he's actually some Australian Prime Minister—how do I prove myself?"
+"If they're unwilling, bring back their message. Tell me everything exactly as they said it. No written paper allowed—understand?"
 
-"Rest assured, the Australians are probably waiting eagerly for you right now," Gao Ju said confidently. "They will ask you many things; just answer truthfully—don't lie, don't fabricate. Say what you know, say you don't know if you don't. They will naturally believe you."
+"Yes, Master!" Yan said. "But Master, what if Shopkeeper Wen isn't actually with the army—I've heard he's some sort of Australian Prime Minister now—how do I prove my identity?"
 
-"Yes, the lowly one understands." Yan Little-Hat felt Master Gao's confidence was unreliable, but he agreed—he was half a desperado, knowing successful completion meant huge benefits for his future, far beyond tens of taels.
+"Rest assured, the Australians are probably waiting eagerly for you right now," Gao Ju said with quiet confidence. "They will ask you many questions. Simply answer truthfully—don't lie, don't fabricate. Say what you know; say you don't know what you don't. They will believe you."
 
-Near the third watch, supervised personally by a guerrilla general of the Governor's Green Standard Army guarding the south city, several soldiers lowered Yan Little-Hat down the wall. Outside was pitch black, but the opposite bank of the Pearl River on Henan Island was brightly lit—the Australian camp. Led by a guide waiting below, Yan Little-Hat stumbled to the riverbank, where a fishing boat was prepared.
+"Yes, the lowly one understands." Yan Little-Hat thought his master's confidence seemed somewhat unfounded, but he agreed regardless. He was half a desperado, after all. He understood that successful completion of this mission meant enormous benefits for his future—far beyond a mere ten taels.
 
-Shortly after the fishing boat rowed out, passing mid-river, it was intercepted by a patrolling Small Fa boat. Two Australian sailors holding machetes and carrying short rifles leaped over. They were short and capable, wearing identical blue-and-white short jackets and round wide-brimmed straw hats—strange but neat attire. The fishermen kowtowed in fear, motionless. Yan Little-Hat emboldened himself to state his purpose.
+---
 
-"Board our boat. We'll take you." The leading Australian sailor said, allowing him to transfer. "Bringing anything?"
+Near the third watch, supervised personally by a guerrilla general of the Governor's Green Standard Army guarding the south city, several soldiers lowered Yan Little-Hat over the wall.
 
-Yan Xiaomao quickly pulled out a tael of silver: "For the vice-lords to buy a bowl of wine."
+Outside was pitch darkness, but the opposite bank of the Pearl River on Henan Island blazed with light—the Australian camp.
 
-"Keep the silver; we don't use it." The leader waved his hand expressionlessly. "You, sit there! Don't move." He pointed to a row of seats at the stern.
+Led by a guide who waited below, Yan Little-Hat stumbled to the riverbank, where a fishing boat had been prepared.
 
-"Yes, yes." Yan Little-Hat sat quickly on the fixed wooden bench. Not accepting silver—truly rare. The Australians must be rich, feeding soldiers with silver. A glass lamp hung at the stern, illuminating everything brightly. The boat looked small, seating at most a dozen people. It felt made of wood. In the center was a black object topped with an iron chimney like a stove—a wave of heat confirmed his guess.
+Shortly after the boat rowed out past mid-river, it was intercepted by a patrolling Small Fa boat. Two Australian sailors holding machetes and carrying short rifles leaped aboard. They were short and capable, wearing identical blue-and-white short jackets and round wide-brimmed straw hats—strange but remarkably neat attire.
 
-"Set sail!" The sailor called, sitting opposite Yan Little-Hat. The chimney suddenly spewed thick smoke mixed with sparks. Yan Little-Hat felt his body lurch forward, then jerk back as the small boat emitted a *putt-putt* sound and moved forward.
+The fishermen kowtowed in terror, afraid to move. Yan Little-Hat summoned his courage and stated his purpose.
 
-Rumors of Bandits having fire-driven boats without sails or oars had long circulated in Guangzhou. Yan Little-Hat hadn't expected to be the first to enjoy a "fire-wheel boat" ride. Amidst anxiety lay curiosity; ignoring the night, he looked around. The sailors seemed accustomed to his curiosity and didn't stop him.
+"Board our boat. We'll take you." The leading sailor was businesslike. "Are you carrying anything?"
 
-Yan Little-Hat was taken to the headquarters area at a restaurant, subjected to a full body search, stripped of all objects, and brought before Wen Desi.
+Yan quickly produced a tael of silver. "For the vice-lords to buy a bowl of wine."
 
-Yan Little-Hat recognized Wen Desi immediately. He knelt and kowtowed respectfully, fearing doubt would cost him his mission and life.
+"Keep the silver. We don't use it." The leader waved his hand without expression. "You—sit there. Don't move." He pointed to a row of seats at the stern.
 
-Wen Desi remembered him, though not his name. Yan Little-Hat reported clearly. Asked about Gao Ju's age, business, wife, and staff, Yan answered without error. Someone brought Gao Ju's comprehensive dossier from the Intelligence Bureau, finding Yan Little-Hat's file and photo to confirm his identity as Gao Ju's manager. He was then taken to another tent under guard, where specialized personnel discussed details with him—Yan Little-Hat's rank was low; his visit was merely to arrange negotiation preparations, not requiring Wen Desi's personal attention.
+"Yes, yes." Yan sat quickly on the fixed wooden bench.
 
-Yan Little-Hat presented Gao Ju's suggestion: negotiation location at a nunnery on Henan Island.
+*Not accepting silver*—truly rare. The Australians must be wealthy, paying their soldiers generously.
 
-It was agreed: the two sides would meet the next night at the Lotus Vihara on Henan Island. It was close to the city and convenient.
+A glass lamp hung at the stern, illuminating everything brightly. The boat looked small, seating perhaps a dozen people at most. It appeared to be made of wood. In the center sat a black object topped with an iron chimney like a stove—a wave of heat confirmed his guess.
 
-"What? Gao Ju chose a nunnery for negotiations. Does he have bad intentions?" Chen Haiyang was uneasy.
+"Set sail!" the sailor called.
 
-"You don't know the tone here; it's not a real nunnery." Wen Desi, a Guangzhou native, knew much of Guangzhou's historical romantic and decadent pastimes. "This is a service industry establishment hanging a Buddhist sign. The nuns inside are women who kept their hair."
+He sat down opposite Yan Little-Hat. The chimney suddenly spewed thick smoke mixed with sparks. Yan felt his body lurch forward, then jerk backward as the small boat emitted a rhythmic *putt-putt-putt* sound and began moving.
 
-"You mean?" Chen Haiyang didn't know Guangzhou history had such style.
+---
 
-"Correct," Wen Desi nodded. "This business was very prosperous in old Guangzhou. A rich man like Gao Ju probably dabbled in such things, maybe he's a patron. That's why he wants to meet there."
+Rumors of bandit boats driven by fire—boats without sails or oars—had long circulated in Guangzhou. Yan Little-Hat hadn't expected to become the first local to enjoy a "fire-wheel boat" ride.
 
-"Negotiating in a brothel, truly wonderful."
+His anxiety gave way to curiosity. Ignoring the darkness, he looked around, examining everything. The sailors seemed accustomed to such curiosity and didn't stop him.
 
-"But it's safe. The enjoyments inside should be top-notch," Wen Desi said. "Just maybe not to our taste."
+Yan was brought to the headquarters area at a commandeered restaurant and subjected to a thorough body search. Stripped of all objects, he was escorted before Wen Desi.
 
-Chen Haiyang summoned the fleet's Political Security Commissioner, ordering him to deploy security at Lotus Vihara early next morning.
+He recognized Wen Desi immediately. He knelt and kowtowed respectfully, fearing that doubt might cost him his mission—and his life.
 
-The next night, Gao Ju arrived as promised. Secret negotiations began in the Vihara.
+Wen Desi remembered him, though not by name.
 
-Gao Ju had communicated with Li Fengjie beforehand. The government's primary condition was the Australian fleet withdrawing from the Provincial River, preferably from the Pearl River Estuary. Other details were negotiable, but this had to be done quickly. The longer the fleet stayed at Bai'etan, the harder for Li Fengjie to explain.
+Yan Little-Hat reported clearly. He was questioned about Gao Ju's age, business, household, and staff; he answered without error. Someone fetched Gao Ju's comprehensive dossier from the Intelligence Bureau, locating Yan Little-Hat's file and photograph to confirm his identity as Gao Ju's manager.
 
-Overall, Li Fengjie and others believed the Australians launched the attack in anger over Wang Zunde "unauthorized border provocation" and Tian Da closing the Purple Enterprise. Thus, the conditions he allowed Gao Ju to promise were merely: Purple Enterprise could reopen immediately, all seized properties and equipment returned; goods confiscated and sold would be compensated with 10,000 taels; Australians could trade freely in and out of Guangzhou under a local agent's name, with the government promising not to arrest or ban them.
+He was then taken to another tent under guard, where specialized personnel discussed details with him.
 
-These three terms were formulated by Li Fengjie and his advisors. They believed overseas merchants only sought the right to trade with the Ming; granting this would satisfy the Australians—a privilege previously enjoyed only by the Portuguese.
+Yan Little-Hat's rank was too low to require Wen Desi's personal attention. His visit was merely to arrange negotiation preparations, nothing more.
 
-As for returning houses and small silver compensation, it was merely to show Guangdong's "sincerity."
+Yan presented Gao Ju's suggestion: the negotiation location should be at a nunnery on Henan Island.
 
-Wen Desi naturally wasn't satisfied with such conditions. Nor would the Senate be. A significant portion of the Senate conceptualized signing a Ming version of the "Treaty of Nanjing"—cession of territory, indemnity, five-port commerce.
+It was agreed. The two sides would meet the following night at the Lotus Vihara on Henan Island. It was close to the city and convenient for both parties.
 
-However, in the Executive Committee meeting, everyone agreed this was unlikely, especially in the Ming's specific historical context. Neither Li Fengjie nor Wang Zunde had the guts to do such a thing. Forcing an unequal treaty would only result in a breakup and an awkward "no war, no peace" situation.
+---
 
-After repeated deliberations, the Senate set minimum negotiation requirements: First, immediate end to hostilities and restoration of normal trade—Lingao was a regime highly dependent on foreign trade. This was the Pearl River campaign's primary goal. Second, confirmation that Hong Kong Island and surrounding outlying islands belonged to the Transmigrators; government troops could not pose military threats to that area or ships sailing there.
+"What? Gao Ju chose a *nunnery* for negotiations?" Chen Haiyang was uneasy. "Does he have bad intentions?"
 
-As for the latter, it didn't need a written signature, just a tacit agreement. Such a territorial cession treaty—even Chongzhen himself probably wouldn't dare agree.
+"You don't know the local flavor here—it's not a real nunnery." Wen Desi, a Guangzhou native, was well-versed in the city's historical amusements. "This is a service establishment flying a Buddhist sign. The 'nuns' inside are women who've kept their hair."
 
-Wen Desi presented these terms one by one. Clearly, there was no objection to the first. But ceding Hong Kong and surrounding islands greatly exceeded Gao Ju's tolerance—the Portuguese spent immense effort to get Macau and still worried about expulsion. The Australians opened their mouths demanding Hong Kong and dozens of surrounding islands. Lantau Island alone was bigger than Hong Kong Island!
+"You mean...?" Chen Haiyang hadn't realized Guangzhou history contained such diversions.
 
-The Ming didn't care much about coastal islands, generally letting them sink or swim. Including Li Fengjie, most Guangdong officials didn't care how many islands the province had or their conditions. But ceding land violated a supreme Ming taboo.
+"Precisely." Wen Desi nodded. "This business was extremely prosperous in old Guangzhou. A wealthy man like Gao Ju probably dabbled in such things—maybe he's even a patron. That's why he wants to meet there."
 
-Gao Ju dared not agree. He pondered for a long time: "Shopkeeper Wen! Actually, whatever goods, money, or servants you want now is easy. But this ceding of land, the Governor will absolutely never agree to."
+"Negotiating in a brothel. Truly wonderful."
 
-"This, you can discuss slowly. We aren't in a hurry." Wen Desi smiled, examining the meditation room hosting them—clean, elegant, with exquisite snacks on the table. "This place is so comfortable. We've squatted in that small place Lingao for two or three years; shouldn't we relax properly here for a few months?"
+"But it's secure. And the comforts inside should be top-notch." Wen Desi smiled. "Perhaps not to our particular tastes, though."
 
-"Yes, yes, naturally." Gao Ju realized terms wouldn't be easy. He said he had to ask Li Fengjie, but hoped the Australians would withdraw from the Provincial River quickly before asking, to avoid prolonged martial law in Guangzhou which made it hard for Commission Li to explain.
+Chen Haiyang summoned the fleet's Political Security Commissioner and ordered security deployed at Lotus Vihara early the next morning.
 
-"Withdrawing from the Provincial River is acceptable. But we came all this way; withdrawing on just a word from Elder Gao makes it impossible for us to answer to the Senate."
+---
 
-Gao Ju knew other conditions were coming. Regardless, Li Fengjie made Australian withdrawal the top priority.
+The following night, Gao Ju arrived as promised, and secret negotiations commenced in the Vihara.
 
-Wen Desi's condition: Guangzhou pays 300,000 taels immediately as a Ransom Fee; disband remaining water-braves; destroyed forts along the way must not be rebuilt.
+Gao Ju had communicated beforehand with Li Fengjie. The government's primary condition was that the Australian fleet withdraw from the Provincial River—preferably from the Pearl River Estuary entirely. Other details were negotiable, but the withdrawal had to happen quickly. The longer the fleet remained at Bai'etan, the harder Li Fengjie would find it to explain.
 
-Once paid, the Task Force would withdraw immediately. Detailed negotiations could continue in Macau.
+Li Fengjie and his advisors believed the Australians had launched their attack in anger over Wang Zunde's "unauthorized border provocation" and Tian Da's closure of the Purple Enterprise. Accordingly, the terms Li Fengjie authorized Gao Ju to offer were modest: the Purple Enterprise could reopen immediately, all seized properties and equipment returned; goods confiscated and sold would be compensated with 10,000 taels; and Australians could trade freely in and out of Guangzhou under a local agent's name, with the government promising not to arrest or ban them.
 
-"Three hundred thousand taels?!" Li Fengjie almost screamed—this was a lion opening its mouth wide. He thought granting trade permission was immense grace enough to soothe everything. Unexpectedly, they demanded 300,000 taels ransom—the entire Provincial Treasury held only 370,000 taels. Even if he could pay, he couldn't find a pretext to expense such a huge sum.
+These three terms, formulated by Li Fengjie and his staff, reflected their belief that overseas merchants sought only the right to trade with the Ming. Granting this should satisfy the Australians—a privilege previously enjoyed only by the Portuguese.
 
-Li Fengjie slapped the table, indignant: "They don't know the height of heaven and depth of earth! Allowing trade is already immense grace! Insatiable! Ignore them, see what they can do! I don't believe their few dozen ships and thousand men can breach Guangzhou with a few cannons!"
+As for returning houses and providing small silver compensation, these were merely tokens to demonstrate Guangdong's "sincerity."
 
-Gao Ju remained silent; he also felt the conditions were harsh. But if Governor Wang hadn't insisted on "Exterminating Bandits," the Australians would still be trading peacefully. If Li Fengjie had been decisive in negotiating months ago instead of stalling, sending envoys to Lingao then, it wouldn't have come to enemies under the city walls forcing a treaty.
+---
 
-The government definitely couldn't produce 300,000 taels. Gao Ju thought even if forced, it would fall on the wealthy merchants—for this Bandit affair, the Gao family had been extorted of no less than 20,000 taels from "Assisting Rations" to "River Defense Aid." Opening a 300,000 hole meant paying thousands more.
+Wen Desi was naturally unsatisfied with such conditions. Nor would the Senate be.
 
-Li Fengjie sat silent with closed eyes for a long time, then opened them: "The Bandits really say they'll withdraw upon payment?"
+A significant faction within the Senate had envisioned signing something like a Ming version of the Treaty of Nanjing—territory ceded, indemnity paid, five ports opened for commerce.
 
-"Exactly." Gao Ju recounted Wen Desi's conditions in detail. "After withdrawing from the Provincial River, other terms can be discussed slowly in Macau."
+However, in the Executive Committee's meetings, everyone had agreed this was unrealistic, especially given the Ming's particular historical context. Neither Li Fengjie nor Wang Zunde possessed the audacity to sign such a document. Forcing an unequal treaty would only produce a breakdown and an awkward state of "neither war nor peace."
 
-Li Fengjie kept a wooden face, pondering again: "Do Australians keep their word?"
+After extensive deliberation, the Senate had established minimum negotiation requirements:
 
-"Australians founded their nation on commerce; trust is their root."
+First, immediate end to hostilities and restoration of normal trade. Lingao's economy was highly dependent on foreign commerce. This was the Pearl River campaign's primary objective.
 
-"But ancients say, no merchant is not treacherous," Li Fengjie muttered, seemingly forgetting the tall official before him was a "merchant."
+Second, confirmation that Hong Kong Island and the surrounding outlying islands belonged to the Transmigrators, with government troops forbidden from posing military threats to that area or to ships sailing there.
 
-Gao Ju sneered inwardly. Li Fengjie was at his wit's end, yet still postured as calm and confident. Officials indeed cultivated thick skins.
+As for the second point, it needn't appear in a written, signed agreement—a tacit understanding would suffice. A formal territorial cession treaty was something even Chongzhen himself probably wouldn't dare sign.
 
-There were ways, but with Gao Ju's status, giving Li Fengjie ideas was bad—it might endanger his own interests. Considering repeatedly, he decided to say nothing and leave.
+---
 
-Li Fengjie naturally couldn't think of a brilliant plan. The number 300,000 weighed on his heart. Pay, he couldn't; don't pay, these greedy Australians wouldn't withdraw—they extorted endless food and wealth from the countryside and could stay as long as they liked.
+Wen Desi presented these terms one by one.
 
-He summoned trusted advisors to discuss countermeasures. Some said the Bandits were bluffing and wouldn't attack; some said delay response to see reaction; some suggested Gao Ju bargain down the price; others suggested the old rule—make big families pay.
+There was no objection to the first. But ceding Hong Kong and the surrounding islands far exceeded Gao Ju's mandate.
 
-He Chengzong remained silent: 300,000 taels was nothing in Guangzhou past. Gathering big merchants and explaining the crisis would raise it easily. But now it was different. Within a year, big families had been squeezed several times. Forcing them again was hard—these weren't small merchants with thin capital; most had high backing in provincial or capital officials. Provoking them was unwise.
+The Portuguese had expended tremendous effort to secure Macau—and still worried constantly about expulsion. Yet here the Australians opened their mouths demanding Hong Kong and dozens of surrounding islands. Lantau Island alone was larger than Hong Kong Island!
 
-After a while, he spoke: "Current plan, asking big households is hard. Only borrowing!"
+The Ming didn't particularly care about coastal islands, generally allowing them to exist in benign neglect. Li Fengjie and most Guangdong officials probably had no idea how many islands the province contained, let alone their conditions.
+
+But ceding territory violated a supreme Ming taboo.
+
+Gao Ju dared not agree. After pondering for a long moment, he said carefully: "Shopkeeper Wen—whatever goods, money, or servants you want is easily arranged. But this cession of land... the Governor will absolutely never consent."
+
+"This point you can discuss at leisure. We aren't in a hurry." Wen Desi smiled, surveying the meditation room hosting them—clean, elegant, with exquisite snacks arranged on the table. "This place is quite comfortable. We've been cooped up in that small corner Lingao for two or three years. Shouldn't we relax properly here for a few months?"
+
+"Yes, yes, naturally." Gao Ju realized the terms wouldn't come easily. He said he needed to consult Li Fengjie, but expressed hope that the Australians might withdraw from the Provincial River quickly before further consultations, to avoid prolonged martial law in Guangzhou, which made it difficult for the Governor to explain matters to the Court.
+
+"Withdrawing from the Provincial River is acceptable. But we've come all this way—withdrawing on just a word from Elder Gao makes it impossible for us to answer to the Senate."
+
+Gao Ju understood that additional conditions were coming. Regardless, Li Fengjie had made Australian withdrawal his top priority.
+
+---
+
+Wen Desi's condition: Guangzhou would pay 300,000 taels immediately as a Ransom Fee; the remaining water-braves would be disbanded; and destroyed forts along the route could not be rebuilt.
+
+Once paid, the Task Force would withdraw immediately. Detailed negotiations could continue later, in Macau.
+
+---
+
+"Three hundred thousand taels?!"
+
+Li Fengjie nearly screamed when he heard the figure.
+
+This was a lion opening its jaws impossibly wide. He had believed that granting trade permission represented immense grace—sufficient to soothe all grievances. He never expected them to demand 300,000 taels in ransom.
+
+The entire Provincial Treasury held only 370,000 taels. Even if he could theoretically pay, he couldn't possibly find a pretext to expense such a massive sum.
+
+He slapped the table, indignant: "They don't know the height of heaven or the depth of earth! Allowing trade is already immense grace! Insatiable! Ignore them—see what they can do! I don't believe their few dozen ships and thousand men can breach Guangzhou with a few cannons!"
+
+Gao Ju remained silent. He also found the terms harsh.
+
+But if Governor Wang hadn't insisted on "Exterminating Bandits," the Australians would still be trading peacefully. If Li Fengjie had acted decisively months ago—dispatching envoys to Lingao rather than stalling—this situation would never have escalated to enemy warships anchored before the city walls.
+
+The government definitely couldn't produce 300,000 taels outright. Gao Ju suspected that even if forced, the burden would fall on wealthy merchants. Throughout this entire "Bandit affair," the Gao family had already been squeezed for no less than 20,000 taels, from "Assisting Rations" to "River Defense Aid." A 300,000-tael hole meant paying thousands more.
+
+---
+
+Li Fengjie sat in silence with closed eyes for a long time. Then he opened them.
+
+"The Bandits really say they'll withdraw upon payment?"
+
+"Precisely." Gao Ju recounted Wen Desi's conditions in detail. "After withdrawing from the Provincial River, other terms can be discussed gradually in Macau."
+
+Li Fengjie maintained a wooden expression, pondering again. "Do Australians keep their word?"
+
+"Australians founded their nation on commerce. Trust is their foundation."
+
+"But the ancients say no merchant is without treachery," Li Fengjie muttered, apparently forgetting that the tall gentleman before him was himself a "merchant."
+
+Gao Ju sneered inwardly. Li Fengjie was utterly out of options, yet still postured as calm and confident. Officials certainly cultivated thick skins.
+
+There were solutions, but given Gao Ju's position, offering ideas to Li Fengjie would be unwise—it might endanger his own interests. After weighing matters repeatedly, he decided to say nothing and take his leave.
+
+---
+
+Li Fengjie naturally couldn't conjure a brilliant plan.
+
+The number 300,000 weighed on his heart. He couldn't pay—but if he didn't, these greedy Australians wouldn't withdraw. They were extorting endless food and wealth from the countryside and could stay as long as they pleased.
+
+He summoned his trusted advisors to discuss countermeasures.
+
+Some said the Bandits were merely bluffing and wouldn't actually attack. Some suggested delaying a response to observe their reaction. Others recommended having Gao Ju bargain down the price. Still others proposed the traditional solution: make the wealthy families pay.
+
+He Chengzong remained silent.
+
+Three hundred thousand taels was nothing in Guangzhou's heyday. Simply gathering the major merchants and explaining the crisis would raise it easily.
+
+But circumstances had changed. Within a single year, the wealthy households had been squeezed repeatedly. Forcing them again would prove difficult. These weren't small merchants with thin capital; most had powerful backing among provincial or capital officials. Provoking them was unwise.
+
+After a considerable pause, He Chengzong spoke: "The current plan—asking big households outright—is difficult. The only path is borrowing."
 
 "Borrow?"
 
-"Yes." He Chengzong nodded. "The city can raise not just 300,000 but 3 million. Summon the big households, explain the stakes, then ask each to lend to the government, with government guarantee and appropriate interest—this benefits both public and private; they will agree."
+"Yes." He Chengzong nodded. "This city could raise not merely 300,000 but 3 million if approached correctly. Summon the major households and explain what's at stake. Then ask each to lend to the government, with government guarantee and appropriate interest. This benefits both public and private—they will agree."
 
-Governor's Yamen borrowing money—the guarantee was solid. And it contained an implied warning against "refusing a toast only to drink a forfeit." Big households would understand.
+The Governor's Yamen borrowing money represented a solid guarantee. And the request contained an implicit warning against "refusing a toast only to drink a forfeit." The wealthy households would understand.
 
 *(End of Chapter)*

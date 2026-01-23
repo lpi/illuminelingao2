@@ -1,91 +1,91 @@
 # Chapter 1003 The Shopkeeper and the Artist
 
-By Shan Daoqian's standards, Lingao's train could only be considered an urban rail transit system. It had expanded from the original factory rail car line used to transport goods—used to transport products, raw materials, and workers. This rail network had developed to change from gas locomotive heads to Meteor-type steam locomotive heads, with routes expanding from small railways running within factory zones to the entire county: the operating line ran from Wenlan Bridge Station outside the county seat, along the Wenlan River all the way to Bopu, then extended from Bopu toward Maniao—connecting Lingao's main industrial and port areas.
+By Shan Daoqian's standards, Lingao's train qualified as little more than urban rail transit. It had evolved from the original factory rail car line designed for transporting goods—raw materials, finished products, and workers—between facilities. Over time, the network had expanded from gas-powered locomotive heads to the Meteor-type steam engines, and its routes had grown beyond small railways within factory zones to cover the entire county. The operating line now ran from Wenlan Bridge Station outside the county seat, following the Wenlan River all the way to Bopu, then extending onward toward Maniao—connecting Lingao's principal industrial and port areas into a single integrated system.
 
-Van de Lantron and Trini sat in first class—because of coal smoke and steam, the first-class car was coupled at the very end. First class was slightly better than the cars in front. The front cars were flatbed open carriages for both passengers and cargo. When used as passenger cars, railings were installed around all four sides. Passengers sat on the floor; when it was too crowded, people simply stood packed together. Because it was completely open-air, there was no ventilation problem.
+Van de Lantron and Trini sat in first class. Due to the coal smoke and steam, the first-class car was coupled at the rear, where conditions were marginally superior to those in the forward carriages. Those cars were flatbed open carriages designed interchangeably for passengers and cargo. When serving as passenger cars, railings were installed around all four sides, and riders simply sat on the floor; when overcrowded, they stood packed together. The complete absence of enclosure eliminated any ventilation concerns.
 
-Only occasionally—such as during major ceremonies or celebrations—would a few rows of wooden benches be temporarily installed on the flatbed cars.
+Only on special occasions—major ceremonies or celebrations—were rows of wooden benches temporarily installed on the flatbed cars.
 
-The flatbed cars naturally had no canopies. When it rained or temperatures were too high, temporary canvas awnings were installed. When the train ran, coal smoke and steam pervaded, enough to suffocate passengers in the first two cars. The rails were standard gauge but lightly forged wrought iron rails; sleepers were also makeshift. The entire rail transit system's equipment was shockingly crude.
+Naturally, the flatbed cars had no canopies. During rain or extreme heat, temporary canvas awnings were erected. When the train moved, coal smoke and steam pervaded everything, sufficient to choke passengers in the first two cars behind the locomotive. The rails were standard gauge but made of lightly forged wrought iron; the sleepers were equally improvised. The entire rail transit system's equipment was startlingly crude by any reasonable standard.
 
-But such crude motorized transport was also revolutionary for Lingao's industry: the small train enabled large numbers of workers to move quickly from one place to another. Workers could commute in minimal time—Lingao's factory zones were growing larger, and worker residential areas had to be built farther from the factory zones.
+Yet even this crude motorized transport represented a revolution for Lingao's industry. The small train enabled large numbers of workers to traverse considerable distances in minimal time—a necessity as Lingao's factory zones expanded ever outward and worker residential areas were pushed farther from the production centers.
 
-The first-class car the two Europeans were in was exclusively for Senators and natives and naturalized citizens willing to pay high prices. Although the car chassis was the same as flatbed cars, a body was added. Not only were there glass-inlaid windows, but also shutters—under the blazing sun, it was both ventilated and spared one from sun exposure. The carriage also had seats.
+The first-class car occupied by the two Europeans was reserved exclusively for Senators and for natives and naturalized citizens willing to pay premium fares. Though the carriage chassis was identical to the flatbed cars, a proper body had been added. Glass-inlaid windows were complemented by shutters—under the blazing sun, passengers enjoyed both ventilation and shade. The carriage even featured actual seats.
 
-Van de Lantron looked around the empty carriage with interest—he and Trini were the only two passengers in first class this trip.
+Van de Lantron surveyed the empty carriage with evident interest—he and Trini were the only first-class passengers this trip.
 
-"This is so-called first class?" Van de Lantron saw the carriage's furnishings and decorations were very simple, though practical. Even to this Dutchman, the Australians' "first class" was far too unworthy of the name.
+"This is what constitutes first class?" Van de Lantron examined the furnishings and decorations, which were simple but practical. Even to this Dutchman, the Australians' "first class" fell woefully short of the name.
 
-Trini said: "Yes, Australians are simple by nature. Secondly, their so-called first class is compared to the cars in front."
+"Yes, the Australians are simple by nature," Trini replied. "Moreover, their definition of first class is relative to the cars in front."
 
-"Oh?" Van de Lantron leaned his head out the window with interest to look. Every car in front was packed with passengers and cargo. Passengers who simply couldn't squeeze on either hung on the railings or climbed onto the cargo piles on the flatbed cars, perched high above.
+"Indeed?" Van de Lantron leaned his head out the window with renewed interest. Every forward car was crammed with passengers and cargo. Those who couldn't squeeze inside either clung to the railings or perched high atop the cargo piles, looking down at the world below.
 
-"Truly a rare spectacle." Van de Lantron laughed. "But I'm quite skeptical—loaded with so many people and goods, what exactly powers this train you speak of to pull it? And can run as fast as a horse? In your report you said it's a machine of fire and water power. Can it really be so marvelous?"
+"Quite a spectacle," Van de Lantron laughed. "But I remain skeptical. Loaded with so many people and goods, what exactly powers this train you speak of? And it can truly match the speed of a horse? In your reports, you described it as a machine of fire and water power. Can it really be so marvelous?"
 
-"Precisely so." Trini said. "In my humble opinion, the Australians have mastered many of God's secrets still unknown to us..."
+"Precisely so," Trini affirmed. "In my considered opinion, the Australians have mastered many of God's secrets still unknown to us..."
 
-Van de Lantron was a Protestant who sneered at Catholic faith. He snorted: "I'd say the devil's secrets—just like that learned countryman of yours, Da Vinci."
+Van de Lantron, a Protestant who sneered at Catholic faith, gave a derisive snort. "The devil's secrets, I'd say—much like that learned countryman of yours, Da Vinci."
 
-Trini didn't speak. He felt there was nothing worth discussing with this Netherlander shopkeeper on this issue. Protestants weren't more devoted to science than Catholics—sometimes the opposite. The "Father of blood circulation" was burned by Calvinists in Switzerland. Trini knew he'd better say little about scientific matters—even though Holland was among Europe's most tolerant places on religious issues, the East India Company in Batavia wasn't tolerant at all.
+Trini held his tongue. He saw nothing worth debating with this Netherlander shopkeeper on such matters. Protestants weren't more devoted to science than Catholics—sometimes quite the opposite. The "Father of blood circulation" had been burned by Calvinists in Switzerland. Trini knew he'd best say little about scientific matters—though Holland was among Europe's most tolerant places on religious questions, the East India Company in Batavia demonstrated no such tolerance.
 
-He had originally wanted to share his observations about the "train" with Van de Lantron, but seeing this man was obviously unlearned, he dropped the idea. At that moment the carriage suddenly shook, steel creaked, and the carriage slowly began rolling on the tracks.
+He had originally intended to share his observations about the train with Van de Lantron, but seeing the man's evident lack of scientific education, he abandoned the idea. At that moment the carriage shuddered, steel groaned, and the carriage began rolling slowly along the tracks.
 
-Twenty-some minutes later, the Dutchman and Italian got off at the "Trading Post" station. A two-wheeled Dongfeng horse carriage waited at the station—this was a public carriage sent by the Colonial Trade Department.
+Some twenty minutes later, the Dutchman and Italian disembarked at "Trading Post" station. A two-wheeled Dongfeng horse carriage awaited them—a public vehicle dispatched by the Colonial Trade Department.
 
-"Trading Post" was a project jointly applied for by the Colonial Trade Department and the Office Administration. During this year's typhoon rains, Lingao also suffered disaster. Although no one was displaced, quite a bit of land was flooded—including much that the Agricultural Committee had planned to cultivate. The "Trading Post" was one of the flooded areas, except it had never been cultivated at all.
+The "Trading Post" was a project jointly proposed by the Colonial Trade Department and the Office Administration. During this year's typhoon season, Lingao had also suffered flood damage. Though no one was displaced, considerable land had been inundated—including much that the Agricultural Committee had planned to cultivate. The Trading Post's designated area was among the flooded zones, except that it had never been cultivated at all.
 
-The reason for flooding was that this area was a lowland behind coastal sand dunes. Land at the coastal margin slid toward the sea year after year; tides then deposited sand back to form beaches; wind blew sand inland to form natural sand dunes several meters high and dozens of meters wide; behind the dunes was subsiding land. The Agricultural Committee had done some leveling for nothing, then discovered that treating the salinity and alkalinity here far exceeded current productivity. Then it was soaked again by heavy rain, so investment in this land was written off as tuition. Finally, the Agricultural Committee decided to abandon agricultural development of this site and hand it over to the Forestry Department for transformation.
+The flooding resulted from the area's topography: a lowland behind coastal sand dunes. Land at the coastal margin slid seaward year after year; tides returned to deposit sand into beaches; wind blew that sand inland to form natural dunes several meters high and dozens of meters wide; behind these dunes lay subsiding terrain. The Agricultural Committee had invested considerable effort in leveling the land, only to discover that treating the salinity and alkalinity far exceeded current capabilities. The heavy rains that followed turned this discovery into a complete loss, and the Agricultural Committee finally resolved to abandon agricultural development of the site entirely, transferring it to the Forestry Department for transformation.
 
-The Forestry Department decided to transform the entire coastal lowland into a mangrove zone to stabilize sand and resist wind, reducing wave erosion of the coastline. Slightly more inland would be converted to coconut palm plantations.
+The Forestry Department planned to convert the entire coastal lowland into a mangrove zone to stabilize sand and resist wind, thereby reducing wave erosion of the coastline. The slightly more inland areas would become coconut palm plantations.
 
-East of this lowland was a range of low hills, beyond which was Maniao. With the opening of the Bopu-Maniao railway, the Executive Committee Office Administration and Colonial Department decided to convert this land into a future state guesthouse and embassy district. First was inviting the East India Company to move in, and using the money the East India Company paid to dam a nearby mountain stream into a small reservoir for supplying water nearby—if generators could be mass-produced later, they could even do some small hydropower.
+East of this lowland rose a range of low hills, beyond which lay Maniao. With the opening of the Bopu-Maniao railway, the Executive Committee's Office Administration and Colonial Department had decided to convert this land into a future state guesthouse and embassy district. The first step was inviting the East India Company to establish operations here. The money the Dutch paid would be used to dam a nearby mountain stream into a small reservoir for supplying water to the district—and if generators could eventually be mass-produced, they might even develop small-scale hydropower.
 
-The carriage carried them along the road, quickly arriving at the trading post area. This was still desolate—besides the leveled land, there were only a few lonely wooden structures, some still under construction.
+The carriage carried them along the road, arriving quickly at the trading post area. The landscape remained desolate—beyond the leveled land stood only a few lonely wooden structures, some still under construction.
 
-The Dutch East India Company trading post was being built—more precisely, the foundation was being dug. Trini had designed a quite sturdy and beautiful two-story brick hall. However, Lingao Construction Company said the construction period would be two years. So the current trading post consisted of two simple, attractive wooden houses, prefabricated units designed by Zhang Xingpei. It took just one week to fully assemble and decorate, leaving Trini dumbfounded.
+The Dutch East India Company trading post was taking shape—or more precisely, its foundation was being excavated. Trini had designed an impressively sturdy and attractive two-story brick hall. However, Lingao Construction Company had estimated the construction period at two years. So the current trading post consisted of two simple yet appealing wooden houses, prefabricated units designed by Zhang Xingpei. They had taken just one week to assemble and decorate completely—a feat that left Trini dumbfounded.
 
-The two wooden houses served one for office and one for residence. The Prince's flag and company flag flew from the roof. Trini welcomed him into the parlor. The parlor had already been newly decorated with furniture and handicrafts purchased from Batavia and Guangzhou. Oil portraits of the Prince of Orange and company directors hung on the walls, looking quite imposing.
+The two wooden structures served distinct purposes: one for offices, one for residence. The Prince's flag and company flag flew from the roof. Trini welcomed his guest into the parlor. The room had been newly furnished with furniture and handicrafts procured from Batavia and Guangzhou. Oil portraits of the Prince of Orange and company directors adorned the walls, lending the space an imposing air.
 
-Although an Italian lived in the house, it still maintained the Dutch passion for cleanliness: clean and tidy. One of Trini's Dutch servants washed the entire house every day. Trini suspected this servant was nine times out of ten sent by the company to secretly monitor him.
+Though an Italian inhabited the dwelling, it maintained the Dutch passion for cleanliness: spotless and well-ordered. One of Trini's Dutch servants scrubbed the entire house daily. Trini suspected this servant had been sent by the company—nine chances out of ten—to secretly monitor him.
 
-Both sides sat down. The servant brought local refreshing beverages. The two sat on Lingao-produced rattan sofas. Van de Lantron had a bellyful of questions; on his own turf, he immediately began asking. Trini was obviously also prepared for this.
+Both men seated themselves. The servant brought local refreshing beverages. They sat on Lingao-produced rattan sofas. Van de Lantron had arrived with a head full of questions; on home ground, he launched immediately into his inquiries. Trini was evidently prepared.
 
-"Mr. Trini, please tell me clearly, how is the Australians' military strength?"
+"Mr. Trini, please speak plainly: How would you assess the Australians' military strength?"
 
-"Extremely great." Trini said clearly. "Their potential is incalculable—terrifying."
+"Formidable beyond measure," Trini answered without hesitation. "Their potential is incalculable—terrifying."
 
-"Oh? What gave you such an impression?"
+"What gave you such an impression?"
 
-"You just rode their train."
+"You just rode on their train."
 
-"Yes, the Australians' train—very special."
+"Yes, the Australian train—quite distinctive."
 
-"You must see the train's military applications."
+"You must consider the train's military applications."
 
-"The train is indeed powerful, but it's merely a transport vehicle. Even the best carriage can't fight."
+"The train is certainly impressive, but it's merely a transport vehicle. Even the finest carriage cannot fight."
 
-"You seem to have forgotten what our masters rely on to dominate the seas—ships."
+"You seem to have forgotten what our masters rely upon to dominate the seas—ships."
 
-"That's different. Trains can't enter the sea. Besides, this train must run on tracks. I don't see how much military value it has."
+"That's different. Trains cannot venture onto the ocean. Furthermore, this train must run on tracks. I fail to see significant military value."
 
-"The train you just rode—now it can run 5 leagues per hour. I've also seen it run 10 leagues. Now the Australians have used tracks to connect their most core ruling area—Lingao-Bairen-Bopu-Maniao—into one..."
+"The train you just rode currently runs at five leagues per hour. I've also witnessed it achieve ten. The Australians have now established tracks connecting their core ruling territory—Lingao, Bairen, Bopu, Maniao—into a single network..."
 
-"Just to transport goods and craftsmen and farmers."
+"Merely to transport goods and craftsmen and farmers."
 
-"They can use trains to send troops from one place to another within a few hours. And they also have trains specifically for combat, equipped with cannons and an evil weapon they call 'typewriter.' Even a thousand well-disciplined Swedish infantry couldn't stand for a quarter hour before an armored train. Actually, a hundred Australian soldiers plus a few cannons could tear a thousand of Europe's best infantry to shreds."
+"They can use trains to dispatch troops from one location to another within mere hours. And they also possess trains specifically designed for combat, equipped with cannons and an infernal weapon they call 'typewriter.' A thousand disciplined Swedish infantry couldn't withstand an armored train for a quarter hour. In truth, a hundred Australian soldiers with a few cannons could tear a thousand of Europe's finest infantry to shreds."
 
-"You exaggerate too much."
+"You exaggerate excessively."
 
-"I swear to God, my words are absolutely true."
+"I swear to God, my words are absolute truth."
 
-"Alright." Van de Lantron nodded. "I'll include your exact words in the report." He didn't want to continue dwelling on this issue now. "Now, the company wants to know: are the Australians preparing any activities targeting the company?"
+"Very well." Van de Lantron nodded. "I shall include your exact words in my report." He had no wish to dwell further on this matter for now. "The company desires to know: Are the Australians preparing any operations targeting its interests?"
 
-"As far as I know: no." Trini hesitated slightly, an expression Van de Lantron quickly caught.
+"As far as I'm aware—no." Trini hesitated slightly, an expression Van de Lantron caught immediately.
 
-"Speak plainly, Mr. Trini," Van de Lantron lowered his voice. "You know, a few months ago, an Australian ship went to Formosa..."
+"Speak plainly, Mr. Trini." Van de Lantron lowered his voice. "You're aware that several months ago, an Australian ship visited Formosa..."
 
-"Went to Tayouan harbor?"
+"It entered Tayouan harbor?"
 
-"No, they didn't enter the port but continued south along the coastline, reaching a wild coast. And landed there. According to various information we indirectly obtained from natives, it must have been the Australians."
+"No. It bypassed the port and continued south along the coastline, reaching an uninhabited stretch of coast. There it made landfall. According to information we obtained indirectly from the natives, it must have been the Australians."
 
 (End of Chapter)

@@ -1,79 +1,81 @@
 # Chapter 711 - Entering the Pearl River
 
-The "Yong'an Ju" teahouse was bustling with patrons as usual. Guangzhou's teahouses were different from those in Jiangnan or the capital. Not only were the dim sum selections refined, but the teahouses also featured high, airy spaces—most were two or three stories tall. The ground floor was as high as a typical two-story building. Mid-Autumn Festival was approaching, and every teahouse had hung a mooncake signboard in its main hall—seven and a half *chi* tall and four and a half *chi* wide. These signboards were quite impressive: intricately carved with classical figures, flowers, birds, insects, and fish. The workmanship was exquisite, and many even had gold leaf applied. They looked splendid and magnificent.
+The Yong'an Ju teahouse hummed with its customary bustle—though Guangzhou's teahouses bore little resemblance to their counterparts in Jiangnan or the capital. Here, the dim sum was more refined, the spaces grander and airier. Most establishments rose two or three stories, with ground floors soaring to the height of an ordinary two-story building. With the Mid-Autumn Festival approaching, every teahouse displayed an impressive mooncake signboard in its main hall: seven and a half *chi* tall by four and a half *chi* wide, intricately carved with classical figures, flowers, birds, insects, and fish. The craftsmanship was exquisite, many pieces adorned with gold leaf that gleamed magnificently in the lamplight.
 
-Teahouses had always been places where people of various trades gathered to discuss business. Though the main hall invariably displayed a red paper notice stating "No Discussion of State Affairs," many such "state affairs" were not only discussed here—some were even decided in such places.
+Teahouses had always served as neutral ground where men of various trades gathered to conduct business. Though every main hall displayed the obligatory red paper notice proclaiming "No Discussion of State Affairs," state affairs were not merely discussed here—decisions were made. Fates were sealed.
 
-According to custom, people of different status and occupation didn't sit together for tea. Within the teahouses, separate "halls" formed distinct worlds. One hall called "Tingquan"—"Listening to the Spring"—was frequented by men in servants' blue robes and small caps. Though they were servants, they weren't the sort who endured beatings and abuse. No one in Guangzhou dared look down on them: they were all trusted attendants, doormen, and close servants of various high officials and nobles—everyone wielding considerable influence, with words that could reach their masters' ears directly. Matters that couldn't be resolved through proper channels at the yamens could often be smoothly handled here—with the right person approached and the right silver offered.
+By unspoken custom, patrons of different status and occupation kept to their own kind. Within each establishment, separate halls formed distinct worlds. One such hall, called Tingquan—"Listening to the Spring"—drew men in servants' blue robes and small caps. These were no ordinary servants, the kind who endured beatings and abuse. No one in Guangzhou dared look down upon them, for they were the trusted attendants, gatekeepers, and personal retainers of high officials and nobles alike. Each wielded considerable influence; each possessed his master's ear. Matters that proved intractable through the yamens' proper channels could often be resolved here with surprising smoothness—provided one approached the right man with the right amount of silver.
 
-It was morning now, the teahouse's busiest time. Not only was the ground-floor hall completely full, but the second and third floors were more than half-occupied. Every hall entrance was noisy with the clamor of voices, peddlers hawking their wares, and singers performing—all mixing together in apparent chaos yet vibrant energy.
+Morning was the teahouse's busiest hour. The ground floor was packed to bursting, the upper stories more than half-filled. Every hall entrance rang with competing voices: hawkers crying their wares, singers performing, patrons calling for service—a cacophony that somehow cohered into vibrant, pulsing energy.
 
-Amid the bustling, noisy atmosphere, a young man sat drinking tea at a table. Several small bamboo steamer baskets sat before him, containing the teahouse's most seasonally appropriate dim sum. The young man didn't look around conspicuously, yet his eyes occasionally flicked toward the main entrance.
+Amid the bustle sat a young man alone at his table, drinking tea. Before him rested several small bamboo steamers containing the season's appropriate dim sum. He did not look around conspicuously, yet his eyes occasionally flicked toward the main entrance.
 
-Before long, a short middle-aged man entered through the hall door. His eyes swept the room and immediately spotted the solitary young man. He walked over and sat down heavily. A waiter hurried over to pour water and brew tea.
+Before long, a short, middle-aged man entered through the hall door. His gaze swept the room and immediately found the solitary figure. He crossed the floor and dropped heavily into the opposite seat. A waiter hurried over to pour water and brew tea.
 
-"Drink tea." The young man reached for the teapot to pour for him.
+"Drink." The young man reached for the teapot.
 
-"No need for formality!" The newcomer had an air of self-importance. "Did you bring the money?"
+"No need for ceremony." The newcomer carried himself with unmistakable self-importance. "Did you bring the money?"
 
-"Of course. A Delong promissory note, redeemable on sight, accepted province-wide." The young man lowered his voice as he drew a paper note from his sleeve. Intricate patterns, color printing, crisp paper—unmistakably a Delong note. Such notes were impossible to counterfeit.
+"Naturally." The young man's voice dropped as he drew a paper note from his sleeve. Intricate patterns, crisp paper, vivid color printing—unmistakably a Delong promissory note, redeemable on sight throughout the province. Such notes were impossible to counterfeit.
 
-The middle-aged man examined it. Clearly a Delong note for fifty taels, redeemable on sight throughout the province. A smile appeared at the corner of his mouth:
+The middle-aged man examined it closely. Fifty taels, payable on demand anywhere in Guangdong. A satisfied smile tugged at the corner of his mouth.
 
-"Good, brother—you're a straightforward man!" He slid a small bundle from beneath the table. "What you asked for is all inside."
+"Good—you're a straightforward man." He slid a small bundle from beneath the table. "Everything you asked for is inside."
 
-The young man nodded, opened a corner of the bundle, and examined it carefully. Inside were several small folding memo books, each with tiny paper labels attached. The young man studied the contents closely and nodded only when he was certain everything was authentic.
+The young man nodded, opened a corner of the package, and examined its contents with care. Inside lay several small folding memo books, each bearing tiny paper labels. He studied them methodically, and only when satisfied of their authenticity did he give his approval.
 
-"Don't worry, it's all genuine." The middle-aged man ate a shrimp dumpling and smiled. "These things aren't exactly rare treasures, but they're stored in His Lordship's private study. Ordinary people can't get in—every step costs money..."
+"Don't worry—it's all genuine." The middle-aged man popped a shrimp dumpling into his mouth and smiled. "These items aren't exactly rare treasures, but they're stored in His Lordship's private study. Ordinary people can't get within ten paces of it—every step along the way costs money..."
 
-The middle-aged man took the note and stuffed it into his boot. He rambled on about how difficult this job had been—evidently trying to demonstrate that the bundle was quite reasonably priced.
+He pocketed the note, tucking it securely into his boot, then launched into a lengthy account of the difficulties he had overcome—a transparent effort to demonstrate that the bundle had been quite reasonably priced.
 
-"Consider this the beginning of our friendship. If there are future matters, I hope I can trouble you again." The young man nodded as he spoke.
+"Consider this the beginning of our acquaintance," the young man said. "If future matters arise, I hope I may trouble you again."
 
-"Of course, of course." The middle-aged man drank his tea hastily and left.
+"Of course, of course." The middle-aged man drained his tea and departed.
 
-The bundle contained copies of Gao Shunqin's memorials from the past month, plus draft copies of his correspondence with people in the capital. For a high provincial official, these were extremely confidential materials, typically stored securely in one's private study, never entrusted to advisors for safekeeping. But as the saying goes, "You can guard against daytime thieves, but never against household thieves." Given enough money, even his concubines and servants could be bribed to secretly copy them out.
+The bundle contained copies of Gao Shunqin's memorials from the past month, along with drafts of his correspondence with figures in the capital. For a high provincial official, these constituted extremely confidential materials—the sort typically secured in one's private study, never entrusted to advisors for safekeeping. But as the saying went: "You can guard against thieves by day, but never against the thieves in your own house." Given enough silver, even concubines and servants could be persuaded to secretly copy such documents.
 
-The bundle of copies quickly passed through a courier station to Lin Baoguang. After carefully reviewing them and eliminating irrelevant portions, he swiftly reached a conclusion. Gao Shunqin's longtime campaign to expel the Portuguese from Macau had finally been formally set in motion.
+The bundle soon passed through a courier station and into Lin Baoguang's hands. After careful review and the elimination of irrelevant portions, he swiftly reached his conclusion: Gao Shunqin's long campaign to expel the Portuguese from Macau had finally been set in motion.
 
-What interested Lin Baoguang most wasn't the memorials themselves. For a matter to gain approval and become an imperial edict, a single memorial alone wouldn't suffice. Extensive preparation was needed beforehand—communicating with Grand Secretaries, various ministry officials, and securing political support. Some involved persuasion on policy grounds; others concerned exchanges of interest. In the late Ming, there were also factional struggles to consider.
+What interested Lin Baoguang most was not the memorials themselves. For any proposal to gain imperial approval and become an edict, a single memorial would never suffice. Extensive groundwork was required beforehand—cultivating Grand Secretaries, various ministry officials, and securing political support. Some negotiations turned on matters of policy; others on exchanges of interest. And in the late Ming, factional struggles always demanded consideration.
 
-By comparison, private correspondence—exchanging opinions and commissioning actions—held great reference value. By reading such letters, one could roughly assess how a particular matter was progressing.
+By comparison, private correspondence—where opinions were exchanged and favors requested—held far greater reference value. By reading such letters, one could gauge precisely how far a particular matter had progressed.
 
 ---
 
-Based on these letters, Gao Shunqin had largely completed all preparatory work. Once this memorial was submitted, approval was highly likely. First, ancients had little understanding of maritime trade's true significance. Second, the Portuguese and their partners were hardly gentle souls—trade was often accompanied by naked robbery, killing, and arson.
+Based on these letters, Gao Shunqin had largely completed his groundwork. Once the memorial was submitted, approval seemed highly likely. The ancients possessed little understanding of maritime trade's true significance, and the Portuguese and their partners were hardly gentle souls—their commerce was often accompanied by naked robbery, murder, and arson.
 
-Taking everything into account, the Chongzhen Emperor issuing an edict next year prohibiting Portuguese trade would probably occur as in historical record.
+Taking everything into account, the Chongzhen Emperor would likely issue an edict next year prohibiting Portuguese trade, just as historical records indicated.
 
-The question was: why was Li Fengjie showing such unusual anxiety about this matter? Portuguese trading rights had no intersection with his interests whatsoever. He was so concerned about the Portuguese that if news of this were confirmed by them, his request would be refused.
+The puzzle was this: why was Li Fengjie displaying such unusual anxiety over the matter? Portuguese trading rights had no intersection whatsoever with his interests. His concern for the Portuguese ran so deep that if they learned of it and confirmed the news, his request would certainly be refused.
 
-Lin Baoguang couldn't figure out what could make Li Fengjie so invested in the Portuguese attitude. In the old timeline—at least during the Ming dynasty—the Portuguese could be considered "obedient" to Guangdong's local officials. Even the minor Xiangshan County Deputy had once marched boldly into Macau, dragged Portuguese members of the Macau Senate into court, and had them publicly caned.
+Lin Baoguang could not fathom what made Li Fengjie so invested in the Portuguese attitude. In the original timeline—at least during the Ming dynasty—the Portuguese could be considered obedient to Guangdong's local officials. Even a minor Deputy of Xiangshan County had once marched boldly into Macau, dragged members of the Portuguese Senate before his court, and had them publicly caned.
 
-Fresh intelligence soon arrived: Li Fengjie's envoy to Macau wasn't one of his own advisors but an old acquaintance of the transmigrators—Li Luoyou.
+Fresh intelligence soon arrived: Li Fengjie's envoy to Macau was not one of his own advisors, but rather an old acquaintance of the transmigrators—Li Luoyou.
 
-Li Luoyou had lived in Macau since childhood, studied under the Jesuits, and had very close ties with the Portuguese. He also had close connections with officialdom. When Wang Zunde wanted to cast cannons in Guangdong using Portuguese cannons as models, Li Luoyou had handled everything personally. That Li Fengjie would now send him to liaise with the Portuguese was entirely expected.
+Li Luoyou had lived in Macau since childhood, studied under the Jesuits, and maintained extremely close ties with the Portuguese. He also preserved strong connections with officialdom. When Wang Zunde had sought to cast cannons in Guangdong using Portuguese pieces as models, Li Luoyou had handled everything personally. That Li Fengjie would now dispatch him to liaise with the Portuguese was entirely expected.
 
-Lin Baoguang decided to immediately cable Lingao, asking Jiang Shan and the others to have Gu Baocheng arrange someone in Macau to contact Li Luoyou and uncover the specific inside story.
+Lin Baoguang decided to cable Lingao immediately, asking Jiang Shan and the others to have Gu Baocheng arrange someone in Macau to contact Li Luoyou and uncover the full story.
 
-On September 20th, after several days of rest and waiting for reinforcements and supplies to arrive, Chen Haiyang finally launched the operation to enter the Pearl River's inland waters. Led by the survey ship *Haitian*, he commanded the special expeditionary force out of the Sham Shui anchorage and into the Pearl River proper.
+---
 
-From the Pearl River Estuary into the inland waterways and up to Guangzhou, there were two routes. One was the outer route: proceeding upriver from east of Macau, passing through the Bogue, crossing two sandbanks, and arriving directly at Huangpu. This was the primary route for ordinary merchant vessels heading to Guangzhou. Navigation conditions were relatively good.
+On September twentieth, after several days of rest while awaiting reinforcements and supplies, Chen Haiyang finally launched the operation to penetrate the Pearl River's inland waters. Led by the survey ship *Haitian*, he commanded the special expeditionary force out of the Sham Shui anchorage and into the Pearl River proper.
 
-The other was called the "inner route": proceeding upriver from west of Macau, crossing the "Hengsha Shoal," then arriving at Xiangshan. From Xiangshan, one continued upriver through the Bogue to Huangpu. Since this route passed many shoals and tributaries, it was generally used only by smaller vessels.
+From the Pearl River Estuary into the inland waterways and up to Guangzhou, two routes existed. The first was the outer passage: proceeding upriver from east of Macau, passing through the Bogue, crossing two sandbanks, and arriving directly at Huangpu. This was the primary route for merchant vessels bound for Guangzhou; navigation conditions were relatively favorable.
 
-Chen Haiyang had *Haitian's* survey data and various information from local sailors and veteran boatmen. He decided to take only the outer route for this first voyage, ensuring the ships' safety. His ultimate destination for this voyage was the Bogue. If possible, he would establish a stronghold there to secure this strategic point, eliminating the need to fight through it every time they went to Guangzhou.
+The second was the inner passage: proceeding upriver from west of Macau, crossing the Hengsha Shoal, then reaching Xiangshan. From there, one continued upriver through the Bogue to Huangpu. Since this route traversed numerous shoals and tributaries, it generally suited only smaller vessels.
 
-The fleet, with the twin-masted survey ship *Haitian* in the lead, weighed anchor at Sham Shui and sailed past the waters east of Macau. It was a perfect autumn day with gentle breezes. The freshly scrubbed ships from the Sham Shui anchorage sailed in formation under full canvas. Red imperial flags with golden streamers rose on the mainmasts; numerous banners fluttered in the wind. Cannons thundered; bugles sounded. A squadron of steam-powered landing craft puffed thick black smoke as they advanced on the fleet's flanks. Behind them came clusters of small boats towed by the landing craft. Marine flags flew proudly.
+Chen Haiyang possessed *Haitian's* survey data along with intelligence gathered from local sailors and veteran boatmen. He decided to take only the outer route for this maiden voyage, prioritizing the fleet's safety. His ultimate destination was the Bogue itself. If possible, he intended to establish a stronghold there to secure the strategic chokepoint—eliminating the need to fight through it on every subsequent voyage to Guangzhou.
 
-The Portuguese at Macau knew this was the Australian fleet—a few days earlier, the Macau Senate had sent envoys to Hong Kong Island, where both sides had exchanged gifts and opinions. Due to the transmigrators' support for Jesuit mission work in Lingao and their trade with the Society of Jesus, the Portuguese weren't unfamiliar with them. What worried them was the Australians' sudden appearance at the Pearl River Estuary—not only had they routed a pirate gang here, but they had also built fortifications on Hong Kong Island.
+The fleet weighed anchor at Sham Shui with the twin-masted survey ship *Haitian* in the lead, sailing past the waters east of Macau. It was a perfect autumn day, blessed with gentle breezes. The freshly scrubbed ships from the Sham Shui anchorage sailed in formation under full canvas. Imperial red flags with golden streamers rose on the mainmasts; countless banners fluttered in the wind. Cannons thundered; bugles rang out. A squadron of steam-powered landing craft churned forward on the fleet's flanks, trailing plumes of thick black smoke. Behind them came clusters of small boats in tow. Marine flags flew proudly above it all.
 
-Chen Haiyang assured them: the Australian fleet had no designs whatsoever on Macau. Though fearful and not entirely trusting of the Australians' guarantees, the disparity in power left the Portuguese no choice but to greet these newcomers peacefully. They even permitted Australian small vessels to enter Macau for supplies.
+The Portuguese in Macau knew this was the Australian fleet. A few days earlier, the Macau Senate had dispatched envoys to Hong Kong Island, where both sides had exchanged gifts and opinions. Due to the transmigrators' support for Jesuit missionary work in Lingao and their ongoing trade with the Society of Jesus, the Portuguese were not unfamiliar with these newcomers. What worried them was the Australians' sudden appearance at the Pearl River Estuary—not only had they routed a pirate gang in these waters, but they had also constructed fortifications on Hong Kong Island.
 
-Chen Haiyang noted that Macau's harbor held four large galleons plus five or six smaller vessels. In terms of scale, Portuguese naval strength in East Asia was indeed formidable. If not for the advantages of modern weaponry, propulsion, and vessels, relying on traditional ships and weapons alone, they might not be a match.
+Chen Haiyang offered his assurances: the Australian fleet harbored no designs whatsoever on Macau. The Portuguese remained fearful and not entirely convinced, but the disparity in power left them no choice except to greet these newcomers peacefully. They even permitted Australian vessels to enter Macau for supplies.
 
-In the distance, smoke puffed from a fort, followed by rumbling cannon fire. The Portuguese were firing salutes.
+Chen Haiyang noted that Macau's harbor held four large galleons along with five or six smaller vessels. In terms of scale, Portuguese naval strength in East Asia remained formidable. Without the advantages of modern weaponry, propulsion, and ship design—relying on traditional vessels and arms alone—they would prove a dangerous adversary.
 
-The Macau forts fired their salutes, followed by the Portuguese ships in harbor firing in unison. The fleet responded with salutes of its own. The entire Pearl River Estuary roiled with white smoke and thundering guns—announcing the transmigration faction's formal arrival on the mainland.
+In the distance, smoke puffed from a fortress, followed by the rumble of cannon fire. The Portuguese were firing a salute.
+
+The Macau forts discharged their guns, followed by the Portuguese ships in harbor firing in unison. The fleet responded with salutes of its own. The entire Pearl River Estuary boiled with white smoke and thundering artillery—announcing the transmigrators' formal arrival on the mainland.
 
 *(End of Chapter)*

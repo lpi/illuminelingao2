@@ -80,7 +80,7 @@ The front page headline was in bold black type: "News from the Traveling Court"â
 
 These news items from the "Traveling Court" were both foreign and fascinating to them. Yet they made the collaborators feel they were not aloneâ€”a happy paradise existed somewhere beyond their miserable world, however distant.
 
-He read the front page news aloud. The lead story was about the imminent convening of Jeju Island's First Political Consultative Conference. The content was simple, more like an official notice. Even so, the siblings found many of the terms half-understood at best. They roughly gathered that the Officials were summoning representatives from the whole island to meet and discuss how island affairs should be handled going forward.
+Her brother read the front page news aloud. The lead story was about the imminent convening of Jeju Island's First Political Consultative Conference. The content was simple, more like an official notice. Even so, the siblings found many of the terms half-understood at best. They roughly gathered that the Officials were summoning representatives from the whole island to meet and discuss how island affairs should be handled going forward.
 
 Kim O-sun, being a "cadre," had attended several naturalized cadre study sessions. She'd heard superiors explain the significance and importance of this conference and knew it was a matter of paramount importance. Since her whole family was now bound to the "Officials," the "Committee," and "Great Song," she was deeply invested and eager to understand what was really going on.
 

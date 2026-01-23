@@ -2,7 +2,7 @@
 
 "Can we rely on this fellow?" asked Cho Myeong-gwi.
 
-"No problem. He's taken the silver. We needn't worry about him stirring up trouble." Hwang Un-u took a sip of wine. "I can see he's quite greedy, and quite fond of women too..."
+"No problem. He's taken the silver—we needn't worry about him stirring up trouble." Hwang Un-u took a sip of wine. "I can see he's quite greedy, and quite fond of women too..."
 
 "Fond of women? Then why didn't he stay the night?"
 
@@ -14,9 +14,9 @@ The three men shared a laugh.
 
 Choe Hyeon-taek asked: "Master! The goods are easy enough, but how will we transport them out? The crop-heads control both Jeju Harbor and Jocheon. Ships aren't allowed to leave port; there are no large vessels at the other garrisons."
 
-The island's nine garrisons had now collapsed. Their grain supply cut off, most of the soldiers had scattered—a portion being absorbed by the crop-haired pirates, another portion fleeing to seek protection under Master Kim.
+The island's nine garrisons had collapsed. Their grain supply cut off, most soldiers had scattered—some absorbed by the crop-haired pirates, others fleeing to seek protection under Master Kim.
 
-"No problem." Hwang Un-u picked up a slice of abalone with his chopsticks. "Clerk Kim from the Revenue Office told me—the crop-heads plan to open the port soon. All vessels will need to register and receive some kind of 'permit'—something like a warrant or token. With this permit, ships can sail out for trade. Apparently they're also planning to set up trading posts and commercial houses here."
+"No problem." Hwang Un-u picked up a slice of abalone with his chopsticks. "Clerk Kim from the Revenue Office told me the crop-heads plan to open the port soon. All vessels will need to register and receive some kind of 'permit'—something like a warrant or token. With this permit, ships can sail out for trade. Apparently they're also planning to set up trading posts and commercial houses here."
 
 Choe Hyeon-taek sighed. "These pirates are certainly unusual!"
 
@@ -26,21 +26,21 @@ Hwang Un-u snorted coldly. "You really think they're pirates?"
 
 "They speak Chinese—though strangely. They also write Chinese characters."
 
-The three fell silent for a moment. The origins of these crop-haired pirates remained as mysterious as the ships, weapons, and strange devices they had brought with them. No matter how hard they racked their brains, they could not arrive at an answer.
+The three fell silent. The origins of these crop-haired pirates remained as mysterious as the ships, weapons, and strange devices they had brought. No matter how hard they racked their brains, they could not arrive at an answer.
 
-"What kind of people they are doesn't matter to us. This permit business—when the time comes, we'll just leave it to Pak Deok-hwan. He's helped us once; can he refuse a second time?" Hwang Un-u smiled as he spoke.
+"What kind of people they are doesn't matter to us. This permit business—when the time comes, we'll just leave it to Pak Deok-hwan. He's helped us once; can he refuse a second time?" Hwang Un-u smiled.
 
 Choe Hyeon-taek quickly flattered him: "Master, such brilliant insight."
 
 Cho Myeong-gwi, who had been saying little, spoke up at last: "About the matter I mentioned before—can it be done?"
 
-"This can't be rushed." Hwang Un-u's expression immediately changed, forcing out an obsequious smile. "The crop-haired people keep a very tight watch on weapons..."
+"This can't be rushed." Hwang Un-u's expression immediately shifted, forcing out an obsequious smile. "The crop-haired people keep a very tight watch on weapons..."
 
 "There's all that weaponry in the armory—the crop-heads can't possibly use most of it. You can't get any of it out? Is the clerk for the Military Office still the same man as before?"
 
 "That's exactly the problem—the Military Office clerk fled when the crop-heads broke through the walls. No one knows where he's gone. Now a former official slave promoted by the crop-heads is in charge."
 
-"Oh? What's his name? Where's he from?" Cho Myeong-gwi had come to Jeju City with his master's commission. First, to investigate the city's conditions and probe the crop-heads' activities and intentions. Second, to reconnect with old relationships inside the walls and seize as much of the assets left behind by the Yi Dynasty as possible.
+"Oh? What's his name? Where's he from?" Cho Myeong-gwi had come to Jeju City with his master's commission. His first objective: investigate conditions in the city and probe the crop-heads' activities and intentions. His second: reconnect with old relationships inside the walls and seize as much of the assets left behind by the Yi Dynasty as possible.
 
 "You should have met him, sir. His name is Kim Yong-ju..." Seeing Cho Myeong-gwi's blank look of confusion, he added: "He's Kim O-sun's father..."
 
@@ -50,7 +50,7 @@ Among the young unmarried official slave women of Jeju's Provincial Governor's O
 
 Kim Yong-ju had been a hunter by trade. He had been arrested for poaching in the royal hunting grounds and, his sentence commuted, had been exiled to Jeju Island. He was a man of considerable martial skill. Here in Jeju, he still made his living by hunting—and had to deliver wild game to the Provincial Offices as tribute.
 
-"An illiterate commoner, and he's serving as a clerk?" said Cho Myeong-gwi. "From what I've seen, this Kim Yong-ju seems a bit like a hotheaded simpleton—not easy to handle."
+"An illiterate commoner, and he's serving as a clerk?" said Cho Myeong-gwi. "From what I've seen, this Kim Yong-ju seems like a hotheaded simpleton—not easy to handle."
 
 "He's just an ignorant country bumpkin who can barely string a sentence together. Besides, Pak Deok-hwan's younger brother, Pak Deok-maeng, is his deputy. They call it 'secretary.'"
 
@@ -62,11 +62,11 @@ Kim Yong-ju had been a hunter by trade. He had been arrested for poaching in the
 
 Pak Deok-hwan practically "floated" home. His younger brother Pak Deok-maeng had already gone to bed. He checked the courtyard, then examined whether the main gate was properly barred before finally returning to his bedroom. Lighting a small oil lamp and trimming the wick down very low, he at last drew out the two silk pouches he had tucked into his clothing.
 
-The first silk pouch contained, to his astonishment, ten *liang* of silver in small ingots. Pak Deok-hwan's jaw dropped: this was a considerable fortune! Due to its small economic scale, silver did not circulate widely within Joseon, and its value was much higher than in the Great Ming.
+The first silk pouch contained, to his astonishment, ten *liang* of silver in small ingots. Pak Deok-hwan's jaw dropped: this was a considerable fortune! Due to Korea's small economic scale, silver did not circulate widely within Joseon, making its value much higher than in the Great Ming.
 
 During the Imjin War and its aftermath, when Ma Gui recaptured Pyongyang, the Joseon court's reward to him amounted to a mere fifty *liang*. The first soldier to scale the walls of Pyongyang received only ten *liang* of reward silver from Joseon.
 
-Ten *liang* of silver was no small sum even in the Great Ming—it would suffice for a year's expenses for a middling household in an ordinary year. In Joseon, it was worth far more.
+Ten *liang* of silver was no small sum even in the Great Ming—enough to cover a year's expenses for a middling household in an ordinary year. In Joseon, it was worth far more.
 
 Pak Deok-hwan's hands trembled. Such generosity from Master Choe! Who would have thought the consortium he served was so wealthy!
 
@@ -84,11 +84,11 @@ The work of inventorying bow and arrow stocks and registering bow and arrow shop
 
 Feng Zongze had originally planned to nationalize the workshops that had belonged to the Provincial Offices. After further consideration, however, he concluded that doing so would burden the Military Control Commission considerably: once nationalized, he would need to appoint management personnel. Neither he nor his naturalized subordinates had experience managing such enterprises, which would inevitably produce great waste and confusion. Moreover, the craftsmen and former official slaves working in the shops would instantly become "state-supported personnel." This was both unnecessary and wasteful of resources.
 
-Ultimately, he decided to contract out the Provincial Office workshops, outsourcing production to local bow and arrow shops. The Military Control Commission would issue orders; the shops would manufacture bows and arrows; the Commission would inspect and purchase goods that passed muster. As for raw materials, the shops would procure them on the open market, with the Commission selling a portion of the captured stockpile into the market as appropriate.
+Ultimately, he decided to contract out the Provincial Office workshops, outsourcing production to local bow and arrow shops. The Military Control Commission would issue orders; the shops would manufacture bows and arrows; the Commission would inspect and purchase goods that passed muster. As for raw materials, the shops would procure them on the open market, with the Commission selling a portion of the captured stockpile as appropriate.
 
 This arrangement avoided excessive management demands at the outset. As long as they controlled the inspection and procurement process, that would suffice. After all, their main purpose on Jeju Island was to transit refugees, not to conduct socialist transformation.
 
-To improve quality, Feng Zongze sent samples of the local bowmaking materials and finished products back to Lingao by transport ship, requesting that technicians improve the design and material ratios to produce cheaper, better-performing bows. If possible, they should also refine the production process. Naturally, he also asked the industrial departments to examine whether any of these bowmaking materials might serve as raw materials needed elsewhere in Lingao's industrial system.
+To improve quality, Feng Zongze sent samples of the local bow-making materials and finished products back to Lingao by transport ship, requesting that technicians improve the design and material ratios to produce cheaper, better-performing bows. If possible, they should also refine the production process. Additionally, he asked the industrial departments to examine whether any of these bow-making materials might serve as raw materials needed elsewhere in Lingao's industrial system.
 
 Under Pak Deok-hwan's introduction and recommendation, the workshop contracts were awarded to "Mingdi Manor," the largest bow and arrow shop on the island—which was, of course, another of Master Kim's enterprises.
 
@@ -108,7 +108,7 @@ Just as Pak Deok-hwan wept and laughed in his drunkenness, a fleet of ships slow
 
 Among all the harbors of Jeju Island at that time, Jocheon offered the best conditions. Thus vessels traveling to and from the Korean mainland typically entered and departed through this port. Besides its garrison, the town also had a post station and a small market, resembling a modest port town.
 
-Following D-Day on Jeju Island, this had naturally become the primary harbor controlled by the Jeju Forward Committee.
+Following D-Day on Jeju Island, it had naturally become the primary harbor controlled by the Jeju Forward Committee.
 
 ---
 

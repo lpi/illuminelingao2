@@ -1,85 +1,87 @@
 # Chapter 1142 - Cultural Exchange
 
-"You truly are a great mathematician!" he exclaimed excitedly. "Problems Mr. Descartes couldn't figure out, you've easily provided solutions for!" His excitement made him forget the earlier interruption. "Do you have any works I could read?"
+"You truly are a great mathematician!" Huygens exclaimed, his excitement palpable. "Problems that Mr. Descartes himself couldn't unravel—you've provided solutions with apparent ease!" In his enthusiasm, he'd forgotten the earlier interruption entirely. "Have you published any works I might study?"
 
-Dr. Zhong smiled. "Works..."
+Dr. Zhong smiled. "Published works, you say..."
 
-Suddenly Zhong Xiaoying cried out: "Duck! The ducks are smoking!"
+"Duck! The ducks are smoking!" Zhong Xiaoying's cry cut through the air.
 
-Dr. Zhong hurriedly scrambled for a fork to turn the roast ducks. Even in this emergency, he didn't forget his "abduction" plan, quickly saying to Huygens: "I'll give you a duck... no, a pamphlet. Take it back for Mr. Descartes to see—it's my thoughts on certain mathematical and optical problems."
+Dr. Zhong scrambled for a fork to rescue the roasting birds. Even in this culinary emergency, he didn't abandon his "abduction" plan. "I'll give you a duck—no, wait—a pamphlet," he called to Huygens, juggling hot ducks with one hand. "Take it back for Mr. Descartes. It contains my thoughts on certain mathematical and optical problems."
 
-"That is wonderful." Huygens nodded repeatedly. "Your ducks seem about done..."
+"That would be wonderful," Huygens replied with eager nods. "Your ducks appear to be done now..."
 
-Before long, Cleadia's fish was done, and Zhong Lishi's ducks were roasted. Holding a sharp steel knife in one hand and an iron fork in the other, Zhong Lishi personally sliced the first duck into neat rows. He told Huygens: "Slicing roast duck is an art; every slice must have skin and meat... then roll the duck meat in a lotus leaf pancake, add scallion segments and sweet bean sauce... Come! Taste it..."
+Before long, Cleadia's fish emerged from the fire and Zhong Lishi's ducks achieved their golden perfection. Grasping a sharp steel knife in one hand and an iron fork in the other, Zhong Lishi personally carved the first duck into precise rows of even slices. He turned to Huygens: "Slicing roast duck is an art unto itself—every slice must contain both skin and meat. Then you roll the duck in a lotus leaf pancake, add scallion segments and sweet bean sauce..." He proffered a prepared wrap. "Come, taste it."
 
-The flour and sweet bean sauce were brought by Dr. Zhong, while the scallions were local produce. Of course, all were top quality.
+The flour and sweet bean sauce were Dr. Zhong's own provisions; the scallions were locally sourced. All were of the finest quality.
 
-This time, not only Huygens but Cleadia and Westerly also gathered around with interest. This way of eating was quite novel to Europeans, not to mention that the Dutch of this time were famous for eating poorly.
+This time, not only Huygens but Cleadia and Westerly gathered round with keen interest. This manner of eating was wholly novel to Europeans—never mind that the Dutch of this era were famously indifferent to cuisine.
 
-Huygens' eyes suddenly bulged, and he was speechless for a long time.
+Huygens' eyes went wide. For a long moment, he seemed incapable of speech.
 
 "How does it taste?"
 
-"It tastes good! Excellent!" Huygens praised sincerely. "Much better than roast goose! Hmm, a complex flavor."
-
-The banquet was held in the Customs Hall. Windows on all sides were open, covered with iron mesh screens, allowing cool sea breezes in while preventing the prolific local insects from swarming the lights.
-
-Gas lamps illuminated the entire hall brightly. Cleadia quietly walked in to look. Seeing the screens on all four sides densely covered with bugs, she felt a wave of revulsion and quickly turned her head. She curiously looked at the tableware and cutlery on the long dining table covered with a white tablecloth. Although most dishes were Chinese style, the format was a buffet. The white tablecloth was set entirely with porcelain and silver tableware—Wei Bachi valued the "Taiwan Governor's Mansion" pomp highly, wanting to display the "majesty of the Committee's highest representative" everywhere.
-
-"So many knives, forks, and porcelain... truly grand..." Cleadia whispered to her brother.
-
-At the time, fork usage wasn't widespread in Europe. But she didn't find chopsticks strange: she had gotten used to Chinese tableware in Batavia and was even eager to try.
-
-Westerly also wore formal attire—he and his sister had received formal invitations. Just now he felt a bit overheated—Europeans, especially those of some status, wouldn't take off their clothes even in hot Southeast Asia. His skin, already ruddy, turned even redder, like a grilled prawn.
-
-"I heard the Australians are indeed luxurious," Westerly said with feigned calm. "Father said the Australians have abundant produce and possess endless wealth..."
-
-He pointed to a redwood grandfather clock at the end of the banquet hall—like the one in Purple Lightning Tower, it was a hybrid of modern mechanism and local casing.
+"Delicious! Exceptional!" Huygens praised with obvious sincerity. "Far superior to roast goose! Such a complex weave of flavors."
 
 ---
 
-"Look, Sister, that's an Australian clock. Very beautiful, isn't it?" Westerly said with relish. "It's very different from Dutch clocks. They say it's from Dr. Zhong's hand—I really want to learn from him."
+The banquet was held in the Customs Hall. Windows on all four sides stood open, fitted with iron mesh screens that admitted the cool sea breeze while barring the swarms of local insects drawn to the lights.
 
-As the two spoke in low voices, the large grandfather clock chimed loudly. After striking six times, music suddenly sounded in the empty banquet hall—it was the welcome tune ordained by the Committee: "Beautiful Australia."
+Gas lamps bathed the entire hall in brilliant illumination. Cleadia wandered in quietly, taking in the scene. Noticing the dense carpet of bugs covering the screens on every side, she felt a wave of revulsion and quickly averted her gaze. Her attention turned to the tableware and cutlery arrayed upon the long dining table, which was draped in a pristine white cloth. Though most dishes were Chinese in style, the format was Western buffet. The table gleamed with porcelain and silverware—Wei Bachi placed great stock in the pomp befitting the "Taiwan Governor's Mansion," determined to project the "majesty of the Committee's highest representative" in every detail.
 
-Led by Wei Bachi, Committee members Zhong Lishi, Hong Laojun, Shi Dafu, and others wearing formal attire entered in sequence amidst the music. Hai Mao and Huygens gave speeches respectively, then the band played symphony music, and the banquet began.
+"So many knives, forks, and porcelain... truly grand," Cleadia whispered to her brother.
 
-Facing a table full of Chinese and Western delicacies, the Committee members and the Dutchmen accompanying Huygens ate ravenously, juices dripping. But Zhong Lishi and Huygens seemed somewhat restrained, burping constantly despite not eating much. Wei Bachi found it strange and asked Huygens, "Mr. Huygens, is the food not to your taste?"
+Fork usage wasn't yet widespread in Europe at the time, but chopsticks didn't faze her either; she had grown accustomed to Chinese tableware in Batavia and was even eager to try.
 
-"Oh, very delicious! Very delicious!"
+Westerly also wore formal attire—he and his sister had received proper invitations. He was feeling overheated; Europeans, particularly those of any standing, refused to shed their layers even in sultry Southeast Asia. His already ruddy complexion had deepened, leaving him looking like a boiled prawn.
 
-Seeing this, Zhong Xiaoying whispered something to Cleadia, and both couldn't help giggling. Westerly hurriedly leaned over to ask, and Cleadia whispered to her brother: "Those two ate while cooking in the kitchen; each ate nearly half a duck and two fish..."
+"I've heard the Australians live luxuriously," Westerly observed with feigned nonchalance. "Father says they enjoy abundant produce and possess boundless wealth..."
 
-The day after the banquet, Wei Bachi had someone take the Bontekoe siblings to the Kaohsiung Health Center, where they had physical exams and received cowpox vaccinations.
+He gestured toward a redwood grandfather clock at the far end of the banquet hall—like its counterpart in Purple Lightning Tower, it was a hybrid of modern mechanism and native craftsmanship.
 
-The reaction to cowpox was very minor, basically requiring little care. To be safe, they rested for a few days as per doctor's orders, coming out again only after the vaccination sites had scabbed over. Zhong Lishi sent them some illustrated popular science magazines published by the Grand Library to pass the time. According to the maid responsible for caring for them: Westerly read very intently, always trying to understand the Chinese characters explaining the pictures. He even specifically asked the maid for a Dutch-Australian dictionary or similar book.
+---
 
-Dr. Zhong thought, *I do have a Dutch-Chinese Dictionary, but I can't give it to him.* There were surely ready-made ones in the Grand Library, but demand was too small to justify specialized printing.
+"Look, Sister—that's an Australian clock. Beautiful, isn't it?" Westerly said with evident relish. "Quite different from Dutch clocks. They say Dr. Zhong built it himself. I should very much like to learn from him."
 
-"Knowledge is power," he thought secretly. *As long as you have power, people naturally hope to understand you, learn from you. Learn your language.* Teaching language was actually an effective means of cultural dissemination—he should suggest the Grand Library publish some dictionaries and linguistics textbooks.
+As the siblings conversed in hushed tones, the great grandfather clock began to chime. After six resonant strikes, music swelled through the empty banquet hall—the official welcome tune sanctioned by the Committee: "Beautiful Australia."
 
-He thought for a moment and called Zhong Xiaoying—he noticed his adopted daughter seemed to get along well with these two children, gesturing and laughing throughout the banquet.
+Led by Wei Bachi, Committee members Zhong Lishi, Hong Laojun, Shi Dafu, and others filed in wearing formal attire, their entrance synchronized to the music. Hai Mao and Huygens exchanged speeches, then a band struck up symphonic music and the banquet began in earnest.
 
-"Is Honorable Father asking how Cleadia's Cantonese is?" Zhong Xiaoying made a face. "Her Cantonese is as good as Honorable Father's..."
+Confronted with a table laden with Chinese and Western delicacies, the Committee members and the Dutch contingent accompanying Huygens fell upon the food with gusto, sauces dripping. But Zhong Lishi and Huygens appeared curiously restrained, burping frequently despite eating little. Wei Bachi found this puzzling. "Mr. Huygens," he asked, "is the food not to your liking?"
 
-"Ahem," Dr. Zhong coughed a few times before Zhong Xiaoying answered honestly: "She can speak simple conversion; for complex things she has to gesture—but Miss Cleadia has strong language learning ability. She says she can speak several languages..."
+"Oh, it's wonderful! Absolutely wonderful!"
 
-"Since that's the case, teach her Mandarin properly," Zhong Lishi said. "This is a task I give you. And her brother too."
+Observing this, Zhong Xiaoying leaned close to Cleadia and whispered something. Both girls dissolved into giggles. Westerly hurriedly bent to inquire, and Cleadia whispered back: "Those two were taste-testing in the kitchen earlier—each of them ate nearly half a duck and two fish..."
 
-"Yes, Honorable Father," Zhong Xiaoying said. "But they probably won't stay here long?"
+The day after the banquet, Wei Bachi arranged for the Bontekoe siblings to visit the Kaohsiung Health Center, where they underwent physical examinations and received their cowpox vaccinations.
 
-"They'll stay here for at least half a month or more." Zhong Lishi had already asked Huygens: they planned to stay in Taiwan for a month. Originally they planned to stay in Fort Zeelandia. But yesterday Huygens had notified him: they hoped to stay in the more comfortable and hygienic Kaohsiung Trading House—of course, they would pay for room and board.
+The reaction to cowpox was minimal, requiring scarcely any aftercare. As a precaution, they rested for several days per medical advice, emerging only after the vaccination sites had scabbed over. Zhong Lishi sent them illustrated popular science magazines published by the Grand Library to pass the time. According to the maid assigned to attend them, Westerly read with intense focus, constantly attempting to decipher the Chinese characters accompanying the pictures. He even specifically asked the maid for a Dutch-Australian dictionary or similar reference.
 
-"I also want to discuss mathematics, astronomy, and physics problems with you day and night." Huygens showed great enthusiasm.
+*I do have a Dutch-Chinese dictionary*, Dr. Zhong mused privately, *but I can't very well give it to him.* Ready-made copies surely existed in the Grand Library, but demand was too small to justify specialized printing.
 
-A few days later, the siblings' scars had healed. Bontekoe had company business in Tayouan, so he returned there first, leaving the siblings in Kaohsiung under Huygens' guardianship.
+*Knowledge is power*, he reflected. *When you possess power, people naturally want to understand you—to learn from you. To learn your language.* Teaching language was, in fact, an effective vehicle for cultural dissemination. He ought to suggest that the Grand Library publish dictionaries and linguistics textbooks.
 
-"Excuse me, where is St. Anthony's Church?" Westerly and Cleadia came out the gate—this was their first time out in days, and they weren't used to the sunlight.
+After a moment's thought, he summoned Zhong Xiaoying. He had noticed his adopted daughter seemed to get along splendidly with the two Dutch children, gesturing and laughing throughout the banquet.
 
-"Just on the hillside over there..." A trading house servant pointed. On a small hill beside the street stood a wooden Jesuit church.
+"Is Honorable Father asking about Cleadia's Cantonese?" Zhong Xiaoying made a face. "Her Cantonese is about as good as yours, Honorable Father..."
 
-This was Westerly and Cleadia's first time out freely without escort—being a completely strange area, they were somewhat timid. They heard there was a Catholic church here with missionaries from Europe, so they decided to visit—Cleadia could verify speak a little Italian.
+"Ahem." Dr. Zhong coughed pointedly until Zhong Xiaoying relented: "She can manage simple exchanges; for anything complex, she has to resort to gestures. But Miss Cleadia picks up languages quickly—she says she speaks several already."
 
-The Franz von Bontekoe family weren't citizens of the Seven Provinces Republic; they were Germans serving the Dutch East India Company, from an old Hanseatic League city in northwest Germany. Many Germans from this region worked as merchants and sailors. The Bontekoe family were actually Catholics.
+"In that case, teach her Mandarin properly," Zhong Lishi instructed. "This is your assignment. Her brother too."
+
+"Yes, Honorable Father." Zhong Xiaoying tilted her head. "But they probably won't stay long?"
+
+"They'll remain here at least a fortnight, perhaps longer." Zhong Lishi had already inquired with Huygens; they planned to stay in Taiwan for a full month. Originally, they'd intended to lodge in Fort Zeelandia. But Huygens had recently notified him of a change: they wished to remain in the more comfortable and hygienic Kaohsiung Trading House instead—and were, of course, willing to pay for room and board.
+
+"I also hope to discuss mathematics, astronomy, and physics problems with you at every opportunity," Huygens had declared with evident enthusiasm.
+
+A few days later, the siblings' scabs had healed. Bontekoe had Company business at Tayouan and returned there first, leaving the children in Kaohsiung under Huygens' guardianship.
+
+"Excuse me—where is St. Anthony's Church?" Westerly and Cleadia emerged from the gate. It was their first outing in days, and they squinted against the unaccustomed sunlight.
+
+"Just on the hillside over there," a trading house servant replied, pointing. On a small rise beside the street stood a wooden Jesuit church.
+
+This was the siblings' first time venturing out freely, without escort. The area being entirely unfamiliar, they felt somewhat timid. They had heard there was a Catholic church nearby with European missionaries, so they decided to pay a visit—Cleadia could speak a little Italian.
+
+The Franz von Bontekoe family weren't citizens of the Seven Provinces Republic; they were Germans in the employ of the Dutch East India Company, hailing from an old Hanseatic League port in northwest Germany. Many Germans from this region worked as merchants and sailors. The Bontekoes were, in fact, Catholics.
 
 (End of Chapter)

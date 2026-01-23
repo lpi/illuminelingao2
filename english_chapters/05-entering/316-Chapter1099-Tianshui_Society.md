@@ -1,87 +1,89 @@
 # Chapter 1099 - Tianshui Society
 
-"You mean you want us to rope in the Donglin Party?" Li Yan said with interest.
+"You're suggesting we rope in the Donglin Party?" Li Yan asked with interest.
 
-"Correct," Yu E'shui nodded. "Strictly speaking, the Fushe."
+"Precisely," Yu E'shui nodded. "Strictly speaking, the Fushe."
 
-"The Fushe controls the public opinion of the *Qingliu*. As long as they stop large-scale attacks on Sun Yuanhua, Sun Yuanhua's political life will be saved. Is that what you mean?"
+"The Fushe controls the *Qingliu*'s public opinion. As long as they cease their large-scale attacks on Sun Yuanhua, his political career will be saved. Is that your meaning?"
 
-"That's exactly what I mean," Yu E'shui said. "Although the speech officials are not controlled by the Donglin, the Fushe's reputation as *Qingliu* already carries great momentum in the court and the public. Before his death, Zhang Pu implicitly had the ability to sway public opinion in the court and the public. The power of this *Qingliu* cannot be underestimated."
+"Exactly," Yu E'shui confirmed. "Though the speech officials are not directly controlled by the Donglin, the Fushe's reputation as *Qingliu* already carries tremendous weight both at court and among the public. Before his death, Zhang Pu possessed an implicit ability to sway public opinion across the realm. The power of this *Qingliu* cannot be underestimated."
 
-"But, can the Fushe help with this?" Wang Ding held a skeptical attitude. What they were doing now, to put it plainly, was like what lobbyist groups did in the United States, and the Fushe was equivalent to a powerful political party.
+"But will the Fushe actually assist us in this?" Wang Ding remained skeptical. What they were doing now amounted to lobbying work, akin to American interest groups, with the Fushe serving as the equivalent of a powerful political party.
 
-In the end, for lobbying to be successful, one had to explain the pros and cons earnestly, and the other was to have an exchange of interests.
+For lobbying to succeed, one had to either explain the pros and cons persuasively, or offer an exchange of interests.
 
-Wang Ding felt that from the perspective of pros and cons, it was hard to say whether the Fushe would stick its neck out to help Sun Yuanhua just to protect Zhou Yanru—after all, Sun Yuanhua and Xu Guangqi were not of the Donglin lineage. Sun's downfall would be a huge blow to Zhou Yanru, but whether Zhou Yanru's downfall would cause a serious blow to the Donglin, the Donglin and Fushe might not necessarily form a unified view internally.
+Wang Ding suspected that from the perspective of pros and cons, the Fushe might not stick its neck out to help Sun Yuanhua merely for the sake of protecting Zhou Yanru—after all, neither Sun Yuanhua nor Xu Guangqi belonged to the Donglin lineage. Sun's downfall would strike a heavy blow against Zhou Yanru, but whether Zhou's fall would seriously damage the Donglin was a matter on which the Donglin and Fushe might not internally agree.
 
-From the perspective of interest exchange, the Senate couldn't bring out any interests to exchange with the Fushe. What the Fushe cared about most was grasping power in the court and locally; for this, the Fushe didn't hesitate to make pre-arrangements in the examination halls to obtain academic degrees for their own people. In comparison, the Senate's current influence on the court was pitifully small—unless they went to war.
+From the perspective of interest exchange, the Senate could offer nothing the Fushe cared to trade for. What the Fushe desired most was securing power at court and in the provinces; toward this end, they did not hesitate to rig examinations to obtain academic degrees for their own members. By comparison, the Senate's current influence on the court was pitifully negligible—unless they resorted to war.
 
-"No, the possibility of the Fushe saving Zhou Yanru is very high!" Jiang Shan said. "Wen Tiren is the sworn enemy of the Donglin. If Zhou Yanru is driven away, the Fushe loses all its influence in the Cabinet and the central government—this would be a disaster for the Fushe, which pursues the rejuvenation of the Great Ming and the renewal of court administration."
+"No, the probability of the Fushe saving Zhou Yanru is actually quite high!" Jiang Shan declared. "Wen Tiren is the Donglin's sworn enemy. If Zhou Yanru is driven out, the Fushe loses all influence in the Cabinet and central government—a disaster for a society dedicated to the Great Ming's rejuvenation and administrative reform."
 
-Historically, after Wen Tiren drove away Zhou Yanru and became the Senior Grand Secretary, the Donglin's power in the court suffered a heavy blow. Not only did Wen Tiren oppose the Donglin everywhere, but the Eunuch Faction, which had been designated as the "Case of Rebellious Faction," also constantly counterattacked. To reverse this decline, the Fushe did not hesitate to exert full efforts seven years later to help Zhou Yanru come back and enter the Grand Secretariat again.
+Historically, after Wen Tiren drove out Zhou Yanru and seized the Senior Grand Secretary position, the Donglin's power at court suffered a devastating blow. Not only did Wen Tiren oppose the Donglin at every turn, but the Eunuch Faction—branded under the "Case of the Rebellious Faction"—also mounted constant counterattacks. To reverse this decline, the Fushe had spared no effort seven years later to restore Zhou Yanru to the Grand Secretariat.
 
-It can be seen that Zhou Yanru was the Donglin's main ally in the central government. Especially since Zhou Yanru made great "contributions" to the Fushe in the metropolitan examination of 1631, Zhang Pu would not fail to understand the value of a benevolent Senior Grand Secretary. Jiang Shan believed that as long as the pros and cons were explained to Zhang Pu and others, it was possible for both sides to cooperate.
+Clearly, Zhou Yanru was the Donglin's principal ally in the central government. Especially given Zhou's great "contributions" to the Fushe in the metropolitan examination of 1631, Zhang Pu could not fail to appreciate the value of a benevolent Senior Grand Secretary. Jiang Shan believed that if the pros and cons were properly explained to Zhang Pu and his associates, cooperation between both sides was entirely achievable.
 
-Li Yan said, "This task can be given to Zhao Yingong to handle—he has already established friendships with some key members of the Fushe in Hangzhou. He can totally use these relationships to approach Zhang Pu and carry out the persuasion work."
+Li Yan spoke up: "This task can be assigned to Zhao Yingong—he has already cultivated friendships with key Fushe members in Hangzhou. He can leverage these relationships to approach Zhang Pu and conduct the persuasion work."
 
-"Wouldn't it be strange for him to come forward? What's the motive?"
+"Wouldn't it seem strange for him to come forward? What would be his motive?"
 
-"Don't forget Zhao Yingong is also a core member of the Hangzhou Church. Sun Yuanhua is a Catholic. Helping out of religious fellowship is suitable both emotionally and rationally."
+"Don't forget that Zhao Yingong is also a core member of the Hangzhou Church. Sun Yuanhua is a Catholic. Helping out of religious fellowship makes perfect sense, both emotionally and rationally."
 
 "Send a telegram to Hangzhou immediately."
 
-***
+---
 
-Hangzhou in the first lunar month, due to the Little Ice Age, saw not only most small rivers freezing but also thin ice on the West Lake.
+Hangzhou in the first lunar month lay gripped by the Little Ice Age. Most small rivers had frozen over, and even the West Lake bore a thin crust of ice.
 
-Although the weather was cold, the streets were still lively. After the fifth day of the New Year, all the shops had opened, but families with overnight grain were busy visiting relatives and friends for New Year's greetings.
+Though the weather was cold, the streets remained lively. After the fifth day of the New Year, every shop had reopened, while families with grain to spare busied themselves visiting relatives and friends for New Year's greetings.
 
-Zhao Yingong was now one of the "celebrities" in Hangzhou City. Since Zhang Dai and Fang Yizhi visited successively, his Wanbi Bookstore had seemingly become a famous cultural salon in the city. Not to mention the literati of all sizes inside and outside the city, even the ordinary citizens in the city knew that Wanbi Bookstore was an "interesting good place."
+Zhao Yingong had become something of a "celebrity" in Hangzhou City. Since visits by Zhang Dai and Fang Yizhi, his Wanbi Bookstore had transformed into a famous cultural salon. Not only did literati great and small from inside and outside the city frequent it, but even ordinary citizens knew Wanbi Bookstore as an "interesting good place."
 
-Especially some scholars of the Fushe in Zhejiang, led by Fang Yizhi, often gathered here to explore the "Science of Investigating Things" (*Gewu*)—Zhao Yingong achieved very good results through books like "Treatise on Light for Beginners" gifted to Zhang Dai, successfully attracting this group of scholars concerned with *Gewu* to Wanbi Bookstore. Thus achieving his goal of approaching the core figures of the Fushe.
+Fushe scholars in Zhejiang were particularly drawn to the establishment. Led by Fang Yizhi, they often gathered there to explore the "Science of Investigating Things." Zhao Yingong had achieved excellent results through works like the "Treatise on Light for Beginners" that he had presented to Zhang Dai, successfully attracting scholars interested in *Gewu* studies to Wanbi Bookstore—thereby accomplishing his goal of approaching the Fushe's core figures.
 
-"The New Year is about over." When Gao Xuan stepped onto the steps of Wanbi Bookstore, he sighed with emotion—compared to when he first came to Wanbi Bookstore early last year, his complexion was much better, his clothes had become very neat, and holding a bamboo folding fan that never left his hand regardless of the season, he looked like a *Xiucai*. Obviously, he had been well-fed and warmly dressed recently, living a quite comfortable little life.
+"The New Year is almost over." When Gao Xuan stepped onto the bookstore's entrance steps, he sighed with feeling. Compared to his first visit early the previous year, his complexion had improved markedly, his clothing had grown neat and proper, and clutching a bamboo folding fan that never left his hand regardless of season, he looked every inch the *Xiucai*. Evidently, he had been well-fed and warmly dressed of late, living quite a comfortable little life.
 
-Since Gao Xuan accepted the employment of Wanbi Bookstore and became a contracted writer, with an income of two taels of silver a month—his originally straitened days greatly improved, and his voice became much louder in front of his father-in-law and brother-in-law.
+Since accepting employment at Wanbi Bookstore as a contracted writer with an income of two taels of silver per month, Gao Xuan's formerly straitened circumstances had greatly improved. His voice had grown considerably louder in the presence of his father-in-law and brother-in-law.
 
-Gao Xuan was an "Editor," and also a staff member of this bookstore. The clerk at the door didn't greet him, letting him walk straight through the main hall to the "Editorial Department" in the back.
+As an "Editor" and bookstore staff member, Gao Xuan was not greeted by the door clerk but walked straight through the main hall to the "Editorial Department" in the back.
 
-The Editorial Department was located in "Wanbi Tower," which was an "Australian-style" three-story blue brick building with a garden. There were a dozen rooms upstairs and downstairs, used by the full set of "reading, writing, editing, and proofreading" teams—Zhao Yingong specifically established the "Tianshui Society" within Wanbi Bookstore.
+The Editorial Department occupied "Wanbi Tower"—an "Australian-style" three-story blue brick building with a garden. A dozen rooms upstairs and downstairs housed the complete "reading, writing, editing, and proofreading" team. Zhao Yingong had specifically established the "Tianshui Society" within Wanbi Bookstore.
 
-The main task of this publishing house was not to edit the books printed by Wanbi Bookstore—those were all printed using paper matrixes shipped from Lingao and didn't require any editing work. Apart from proofreading some paper proofs of traditional books shipped from Lingao, the publishing house's main work was to edit various popular readings, especially magazines.
+This publishing house's primary task was not editing the books printed by Wanbi Bookstore—those used paper matrixes shipped from Lingao and required no editorial work. Apart from proofreading some paper proofs of traditional books shipped from Lingao, the publishing house's main work was editing various popular readings, especially magazines.
 
-These popular readings were all printed using lithography. This printing method allowed for quick plate making and accommodated both text and images, making it very suitable for small-scale, multi-batch printing businesses. China's first popular magazine, *Dianshizhai Pictorial*, used lithography. Zhao Yingong's publishing business ideas were inspired by *Dianshizhai Pictorial*.
+These popular readings were all printed using lithography. The technique allowed for quick plate-making and accommodated both text and images, making it ideal for small-scale, multi-batch printing operations. China's first popular magazine, *Dianshizhai Pictorial*, had used lithography. Zhao Yingong's publishing business ideas drew inspiration from that very publication.
 
-However, his business scope was much larger. There were three types of periodically published magazines, targeting different groups of people. The first was *Tianshui Life Weekly*, which targeted scholars like Zhang Dai and Fang Yizhi: most of them had degrees like *Juren* or *Xiucai*, and some were even *Jinshi* who had served as officials. They were in well-off circumstances, many enjoyed long-standing literary reputations, and were upper-middle-class members among scholars, with considerable pursuit of spiritual life.
+However, his business scope far exceeded it. Three types of periodically published magazines targeted different demographics. First came *Tianshui Life Weekly*, aimed at scholars like Zhang Dai and Fang Yizhi—most possessed degrees such as *Juren* or *Xiucai*, some were even *Jinshi* who had served as officials. They lived in comfortable circumstances, many enjoyed established literary reputations, and ranked as upper-middle members of the scholar class, with considerable appetite for spiritual enrichment.
 
-*Tianshui Life Weekly* was divided into four sections: Current Affairs Commentary, Reading Thoughts, Culture and Entertainment, and Strange News and Anecdotes. Its positioning was roughly the routine of *Sanlian* or *Phoenix* in the old spacetime: having a certain grade and depth without losing its nature as popular reading.
+*Tianshui Life Weekly* was divided into four sections: Current Affairs Commentary, Reading Thoughts, Culture and Entertainment, and Strange News and Anecdotes. Its positioning roughly followed the approach of *Sanlian* or *Phoenix* in the old timeline: maintaining a certain grade and depth without sacrificing its nature as popular reading.
 
-Zhao Yingong knew that although the target demographic was the middle and upper class, they had fame and influence among the intellectual class, and the reading habits of this group would inevitably influence many others. Just as white-collar workers always unconsciously imitated business elites, if efforts were made to build fame among the target demographic, this magazine would radiate to the entire intellectual class.
+Zhao Yingong understood that though the target demographic was the middle and upper class, they wielded fame and influence among the intellectual stratum. The reading habits of this group would inevitably influence many others. Just as white-collar workers unconsciously imitated business elites, building prestige among the target demographic would allow the magazine to radiate throughout the entire scholarly class.
 
-As for the introduction of science and technology, Zhao Yingong temporarily categorized it under Strange News and Anecdotes—changing the concepts of scholar-officials couldn't be done overnight. Moreover, populizing completely new concepts to traditional intellectuals who had no basic scientific concepts but considered themselves masters of knowledge would be too difficult. It was better to start from a humanistic perspective to change their concepts a bit first.
+As for introducing science and technology, Zhao Yingong had temporarily categorized such content under Strange News and Anecdotes. Transforming the concepts of scholar-officials could not happen overnight. Moreover, popularizing entirely new ideas for traditional intellectuals—who lacked basic scientific foundations yet considered themselves masters of knowledge—presented enormous challenges. Better to start from a humanistic perspective and gradually shift their worldview first.
 
-The second type was *Wanbi Studio Pictorial*, which was a different spacetime pirated version of *Dianshizhai Pictorial*, with mixed text and images, focusing mainly on images. The content focused on overseas strange news, social anecdotes, and natural science popularization. The target demographic was urban citizens with certain economic capabilities. The content was easy to understand.
+The second publication was *Wanbi Studio Pictorial*, essentially a pirated version of *Dianshizhai Pictorial* from another timeline. It mixed text and images, with emphasis on the visual. Content focused on overseas curiosities, social anecdotes, and natural science popularization. The target demographic was urban citizens with some economic capacity; the content was accessible and easy to understand.
 
-Both of these pictorials used 16-kai pages and were beautifully printed. Because they targeted higher-level groups, the prices were also higher. Addressing the lower-level commoners, Zhao Yingong launched the third magazine: *Classic of Mountains and Seas Pictorial* (*Shanhaijing Pictorial*). This pictorial compressed paper and printing costs to the maximum, using cheap paper and simpler lithographic plate making. The format was reduced to 32-kai.
+Both pictorials used 16-kai pages and featured beautiful printing. Because they targeted higher-level audiences, their prices were correspondingly elevated. Addressing the lower-class commoners, Zhao Yingong launched a third magazine: *Classic of Mountains and Seas Pictorial*. This publication compressed paper and printing costs to the minimum, using cheap paper and simpler lithographic plates. The format was reduced to 32-kai.
 
-The content was mainly social news, a mix of folk legends and social novels, supplemented by a small amount of common scientific knowledge. It was mainly presented in the form of serial pictures—very little "text," only a few sentences, using not only vernacular Chinese but also vulgar characters. This was excellent leisure reading for ordinary people who knew few characters or were completely illiterate.
+The content consisted mainly of social news, folk legends mixed with social novels, supplemented by small amounts of practical common knowledge. It was presented primarily as serial pictures—very little "text," only brief sentences rendered in vernacular Chinese and vulgar characters. This made excellent leisure reading for ordinary people who knew few characters or were completely illiterate.
 
-Hangzhou was a commercial city with a large population engaged in the tertiary industry. Citizen culture was very developed, and the urban commoners had a great demand for leisure and entertainment. "Comic strips" like *Classic of Mountains and Seas Pictorial* fit their requirements exactly.
+Hangzhou was a commercial city with a large population engaged in the tertiary industry. Citizen culture flourished, and urban commoners had enormous demand for leisure and entertainment. "Comic strips" like *Classic of Mountains and Seas Pictorial* fit their requirements perfectly.
 
-Zhao Yingong hired a group of down-and-out literati to work for the publishing house at the cost of one to two taels of silver a month, euphemistically calling them "Editors." There were those who worked on text and those specifically responsible for painting.
+Zhao Yingong had hired a group of down-and-out literati to staff the publishing house at the cost of one to two taels of silver monthly, grandly titling them "Editors." Some worked on text; others specialized in illustration.
 
-Gao Xuan walked into the courtyard. The servant guarding the door was sweeping the floor; seeing him enter, he hurriedly and respectfully called out, "Mr. Gao!"
+Gao Xuan walked into the courtyard. The servant guarding the entrance was sweeping the ground; seeing him enter, the man hastened to call out respectfully, "Mr. Gao!"
 
 Gao Xuan nodded politely and asked, "Has the Master come?"
 
-Zhao Yingong came to the "Editorial Department" to "guide work" once every three mornings. Calculating the days, he should be coming today.
+Zhao Yingong visited the "Editorial Department" to "guide work" once every three mornings. By calculation, today should be his day.
 
-"The Master didn't come today," the servant said. This surprised Gao Xuan a bit. Although Master Zhao had some strange ways in his speech and behavior, he was extremely disciplined in doing things and wouldn't change his habits without special circumstances.
+"The Master didn't come today," the servant replied. This surprised Gao Xuan somewhat. Though Master Zhao exhibited certain peculiarities in speech and behavior, he was extremely disciplined in matters of routine and would not change habits without special cause.
 
-Gao Xuan went into the small building on his own and came to his "Public Office." The sign hanging at the door read "Social Affairs Department." This department specialized in writing social news and street stories. It was also the department with the most local scholars.
+Gao Xuan made his own way into the small building and proceeded to his "Public Office." The sign hanging at the door read "Social Affairs Department." This department specialized in writing social news and street stories and contained the most local scholars.
 
-The room had been cleaned until the windows were bright and the tables clean. Several rows of desks in the old spacetime style were placed face to face and back to back. It made the Senators feel very familiar as soon as they walked in. However, what lay on the desks were all the Four Treasures of the Study.
+The room had been scrubbed until the windows gleamed and the tables shone. Several rows of desks arranged in the old-timeline style stood face-to-face and back-to-back, giving any Senator who walked in an immediate sense of familiarity. However, lying atop the desks were the Four Treasures of the Study.
 
-Several "Editors" had already arrived in the office, and everyone exchanged greetings. As soon as Gao Xuan sat down, a servant brought breakfast.
+Several "Editors" had already arrived at the office; everyone exchanged greetings. The moment Gao Xuan sat down, a servant brought breakfast.
 
-Master Zhao was a very good person. Since most of the editors came from poor families, he provided a breakfast every morning for the "Editors" who came to work. Although it was nothing more than fried dough sticks, white porridge, and Xiaoshan dried radishes, for these poor scholars, it was enough to warm their hearts and lungs.
+Master Zhao was a very good person. Since most of the editors came from impoverished backgrounds, he provided breakfast each morning for the "Editors" who came to work. Though it was nothing more than fried dough sticks, white porridge, and Xiaoshan dried radishes, for these poor scholars, it was enough to warm their hearts to the core.
+
+(End of Chapter)

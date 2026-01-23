@@ -1,18 +1,18 @@
 # Chapter 654 - Chengmai Opens Its Gates
 
-"No surrendering! Anyone who surrenders will be beheaded!" A few officers still threatened the defeated soldiers. But the men had already lost all will to fight. Imperial troops blocked the landward routes; naval warships waited offshore, gun ports open, black muzzles pointed at the beach. They had no provisions, barely any weapons—even if they tried to hold out, they couldn't.
+"No surrendering! Anyone who surrenders will be beheaded!" A few officers still threatened the defeated soldiers. But the men had lost all will to fight. Imperial troops blocked the landward routes; naval warships waited offshore, gun ports open, black muzzles pointed at the beach. They had no provisions, barely any weapons—even if they tried to hold out, they couldn't.
 
-As the propaganda personnel continued to shout "lenient treatment for prisoners" and "surrender and live" through their loudspeakers, nearly all the soldiers on the beach gave up. Those at Xiao Ying Field grew increasingly shaken.
+As propaganda personnel continued to shout "lenient treatment for prisoners" and "surrender and live" through their loudspeakers, nearly all the soldiers on the beach gave up resistance. Those at Xiao Ying Field grew increasingly shaken.
 
-The veteran soldiers whispered among themselves about surrendering, the voices gradually growing louder. Officers and commanders dared not scold them, fearing mutiny. By noon, with the sun beating down mercilessly, several thousand men stood without shelter, struggling even to find water. Chaos broke out as men cried that they wished to surrender. Even the officers finally gave up, heads bowed in dejection as they followed the soldiers out.
+The veteran soldiers whispered among themselves about surrendering, the voices gradually growing louder. Officers and commanders dared not scold them for fear of mutiny. By noon, with the sun beating down mercilessly, several thousand men stood without shelter, struggling even to find water. Chaos erupted as men cried that they wished to surrender. Even the officers finally gave up, heads bowed in dejection as they followed the soldiers out.
 
 Chen Renjie refused to surrender. He stripped off his armor and, with a dozen strong swimmers among his guards, slipped away from Xiao Ying Field into the water, attempting to swim past the encirclement. He was quickly intercepted by small naval boats, the crew knocking them senseless with boat hooks before hauling them aboard.
 
-Most soldiers who tried to swim away met similar fates. The alternative was to be shot or drowned.
+Most soldiers who attempted to swim away met similar fates. The alternative was to be shot or drowned.
 
 "Ten men to a line! Remove your armor, raise your hands above your heads, and come out single file!" Several workers in gray uniforms—without collar insignia—ran back and forth with loudspeakers, giving commands in Mandarin. Behind them stood ranks of soldiers with fixed bayonets, and rows of Typewriters.
 
-Officers of *waiwei bazong* rank and above exited through one channel; common soldiers used another. Each group of ten was roped together, then marched up a hastily built pier where transport ships waited. Each ship departed as soon as it was full. The wounded were kept behind for treatment.
+Officers of *waiwei*, *bazong* rank and above exited through one channel; common soldiers used another. Each group of ten was roped together, then marched up a hastily built pier where transport ships waited. Each ship departed as soon as it was full. The wounded were kept behind for treatment.
 
 Jia Mofei supervised the entire process. He needed precise counts of prisoners "departing offshore" so that Lingao could prepare to receive them.
 
@@ -30,15 +30,15 @@ He Ming modestly declined: "I can't ride."
 
 But he did accept their request to stand on the camp wall and acknowledge the cheers of the troops. As he stepped up and waved, all the cannons in the camp fired in unison. Then, from the naval ships offshore, ceremonial cannons boomed. The thunder rolled across the battlefield.
 
-Complete victory! Wei Aiwen, Dongmen Chuiyu... and so many other transmigrators serving in logistics or directly commanding battalions, companies, and warships—all felt a heady intoxication. The army they had built with their own hands, armed with modern industrial weapons and a powerful logistical system, had unleashed unstoppable force. That power, transcending time itself, would carry them to conquer Guangdong, revitalize China, and eventually bring the entire world under the new order.
+Complete victory. Wei Aiwen, Dongmen Chuiyu... and so many other transmigrators serving in logistics or directly commanding battalions, companies, and warships—all felt a heady intoxication. The army they had built with their own hands, armed with modern industrial weapons and a powerful logistical system, had unleashed unstoppable force. That power, transcending time itself, would carry them to conquer Guangdong, revitalize China, and eventually bring the entire world under the new order.
 
-There was no time to tally spoils in detail, but the most critical figure—the prisoner count—was in: besides those captured on the beach, 2,200 had been taken elsewhere. Combined with those from previous battles, the total exceeded 10,000. Over two hundred horses were captured, along with countless swords, spears, and armor, and more than three thousand firearms. The baggage was beyond calculation.
+There was no time to tally spoils in detail, but the most critical figure—the prisoner count—was in: besides those captured on the beach, 2,200 had been taken elsewhere. Combined with previous battles, the total exceeded 10,000. Over two hundred horses were captured, along with countless swords, spears, and armor, and more than three thousand firearms. The baggage was beyond calculation.
 
-But He Rubin and Zhao Ruyi remained at large. Near noon, word finally came: He Rubin had escaped!
+But He Rubin and Zhao Ruyi remained at large. Near noon, word finally came: He Rubin had escaped.
 
 He Rubin's column had exhausted its horses during the flight toward Qiongshan. As horses collapsed one after another, his retainers and guards surrendered their mounts for him to switch, each man staying behind to fight. They battled and fled for over twenty *li*. When the secretaries could endure no more and the sounds of pursuit faded, He Rubin knew the enemy hadn't given up but would certainly have forces blocking the road at Shishan. With only a hundred-odd men and thirty or forty scholars, there was no chance of breaking through. Thinking of his twenty-two thousand men now reduced to this handful, and knowing the court would never forgive him, he considered suicide again.
 
-Before he could decide, tan agricultural vehicles roared up. The M240s sprayed bullets, and the resting cavalry and secretaries fell in droves. Amid screams and chaos, guards hurried He Rubin and Zhao Ruyi onto horses. Song Ming led a dozen riders in a volley of arrows to draw the vehicles' fire, creating enough of a gap for the others to escape.
+Before he could decide, agricultural vehicles roared up behind them. The M240s sprayed bullets, and the resting cavalry and secretaries fell in droves. Amid screams and chaos, guards hurried He Rubin and Zhao Ruyi onto horses. Song Ming led a dozen riders in a volley of arrows to draw the vehicles' fire, creating just enough of a gap for the others to escape.
 
 But flesh and blood could not outpace machines. Before long, they were caught again—this time by several vehicles. Machine guns and semi-automatic rifles cut the little band apart. Zhao Ruyi, protected by his retainers, abandoned his horse and escaped into the jungle. He Rubin's horse was shot dead; with his guards dead or fled, he drew his sword to end his own life. Then Song Ming galloped up and surrendered his own mount.
 
@@ -46,13 +46,13 @@ But flesh and blood could not outpace machines. Before long, they were caught ag
 
 A few more guards charged the mobile squad, drawing fire long enough for He Rubin to escape once more.
 
-The surviving secretaries scattered—some into the jungle, some playing dead, some sitting by the roadside feigning madness, wailing. Lü Yizhong, having twisted his ankle, buried himself headfirst in the brush like an ostrich.
+The surviving secretaries scattered—some into the jungle, some playing dead, some sitting by the roadside feigning madness and wailing. Lü Yizhong, having twisted his ankle, buried himself headfirst in the brush like an ostrich.
 
 The mobile team swept the area, capturing Lü Yizhong and thirteen more secretaries, finding nineteen bodies, and noting that over a dozen had escaped. He Zhangran was killed in the melee; Song Ming somehow escaped again with a handful of guards.
 
 Thus fell the curtain on the Battle of Chengmai. Of the twenty-two thousand troops Wang Zunde had assembled from all of Guangdong, fewer than four thousand remained.
 
-"...One hundred fourteen officers of *waiwei*, *bazong*, *qianzong* rank and above killed in action; 6,157 soldiers killed; 10,825 scattered or missing. Nine hundred thirty-five horses, mules, and oxen lost. Equipment and baggage beyond count."
+*...One hundred fourteen officers of waiwei, bazong, qianzong rank and above killed in action; 6,157 soldiers killed; 10,825 scattered or missing. Nine hundred thirty-five horses, mules, and oxen lost. Equipment and baggage beyond count.*
 
 —*Chronicle of Events in Qiong During the Chongzhen Era*
 
@@ -64,11 +64,11 @@ Of course, there were threats: "Open the gates before nightfall, or no one in th
 
 The gentry met at the yamen to discuss their options—which came down to surrender or fight to the death.
 
-The gentry and common folk had no wish to resist. They had seen clearly enough: if the imperial army couldn't hold its fortified camps, how could tiny Chengmai stand? Better to surrender now and pay in grain and silver than wait for a bloody sack. The *qianzong* in charge of the garrison said nothing to oppose surrender, remaining silent.
+Neither gentry nor common folk had any wish to resist. They had seen clearly enough: if the imperial army couldn't hold its fortified camps, how could tiny Chengmai stand? Better to surrender now and pay in grain and silver than wait for a bloody sack. The *qianzong* in charge of the garrison said nothing to oppose surrender, remaining silent throughout.
 
 Seeing that the officer would not block their plans, the gentry decided to send an envoy over the wall to negotiate—ideally to persuade the Australians not to enter the city. Whatever provisions they needed, the city would provide. Song Zonghui volunteered.
 
-Shortly after noon, he and a boy servant went to the wall, about to be lowered in a basket, when Magistrate Liu Jingxuan appeared.
+Shortly after noon, he and a boy servant went to the wall and were about to be lowered in a basket when Magistrate Liu Jingxuan appeared.
 
 Liu whispered that he should try at all costs to negotiate terms that kept the bald bandits out of the city.
 
@@ -104,7 +104,7 @@ Zhu Quanxing saw a well-kept middle-aged man, clothes stained but of fine cut—
 
 "I'll have to report up the chain," he said, and ordered an officer to escort him to the main camp command post.
 
-At the main camp, Song Zonghui was led to a private shelter and treated well. The camp's strict order impressed him; he had assumed the bald bandits relied solely on superior weapons, not such military discipline.
+At the main camp, Song Zonghui was led to a private shelter and treated well. The camp's strict order impressed him; he had assumed the bald bandits relied solely on superior weapons, not realizing they possessed such military discipline.
 
 Wei Aiwen handled the negotiations. The terms Song Zonghui proposed largely aligned with the Executive Committee's policy of "Ming facade, Australian core"—not absolute but well-suited to this opportunity where the other side was eager to cooperate.
 
@@ -116,7 +116,7 @@ Such bluntness left Song Zonghui speechless, though it was true.
 
 "I still ask the general to be lenient." Song offered private bribes of silver and women.
 
-Wei declined. Recent regulations from the Political Security Bureau required that all negotiations with natives be recorded with witnesses and signed afterward—transmigrators included. He ignored Song's hints and stated his terms plainly.
+Wei declined. Recent regulations from the Political Security Bureau required that all negotiations with natives be recorded with witnesses and signed afterward—transmigrators included. He ignored Song's hints and stated his terms plainly:
 
 All soldiers must exit the city and disarm. Commander Zhou could leave. All equipment and supplies must be surrendered—no concealment.
 

@@ -1,168 +1,172 @@
 # Chapter 600 - Cooperation
 
-However, this matter could serve as a warning bell to remind other Executives, especially Wu De, President of the Planning Agency. Once the "Yi Fan-Chen Ce" system was adopted, the impact on the Planning Agency, as the direct successor of the Planning Committee, was naturally foreseeable by him.
+Yet this matter could serve as a warning bell—alerting other Executives, particularly Wu De, President of the Planning Agency. Once the "Yi Fan-Chen Ce" system was adopted, the impact on the Planning Agency, as direct successor to the Planning Committee, would be immediately apparent to him.
 
-Ma Qianzhu rang the doorbell at the end of the alleyway. A window immediately appeared on the iron-clad door, revealing a pair of alert eyes.
+Ma Qianzhu rang the doorbell at the end of the alleyway. A small window immediately appeared in the iron-clad door, revealing a pair of watchful eyes.
 
 "Pass."
 
-He handed over the pass.
+He handed it over.
 
-A few minutes later, the door opened. The guard stood at attention and saluted: "Hello, Chief."
+A few minutes later, the door swung open. The guard stood at attention and saluted: "Hello, Chief."
 
 "Good, good." He mumbled a few words, took back the pass, and asked casually: "Is Xiao Zishan in?"
 
-"In."
+"Yes, sir."
 
-Ma Qianzhu looked at the blue brick small building in the courtyard. Xiao Zishan's office was at the top of the second floor. If he looked down from the window, he could see him—according to his consistent practice, he would definitely come to socialize with him. Thinking of this, he walked a few steps faster to quickly leave this line of sight.
+Ma Qianzhu glanced at the blue-brick building in the courtyard. Xiao Zishan's office occupied the top of the second floor. If he looked down from the window, he would see Ma Qianzhu—and according to his consistent practice, would certainly come down to exchange pleasantries. Anticipating this, Ma Qianzhu quickened his pace to escape that line of sight.
 
-The General Office Lounge was in the back courtyard of the General Office. Xiao Zishan let Li Xiaolü do a landscape design, building an open-pavilion style fake ancient building, transplanting quite a few flowers and trees on four sides—jasmine was blooming vigorously right now, snow-white small flowers filling the branches, fragrance assaulting people.
+The General Office Lounge was located in the General Office's rear courtyard. Xiao Zishan had commissioned Li Xiaolü for a landscape design, resulting in an open-pavilion-style pseudo-antique structure, with transplanted flowers and trees on all four sides. Jasmine was blooming vigorously now—snow-white blossoms covered the branches, their fragrance almost overwhelming.
 
-This was a place similar tea house. The room was bright and spacious, with rattan chairs inside, very much like the tea houses Ma Qianzhu had visited in Suzhou and Hangzhou. With gentle breezes, it was a good place for resting and talking. However, there were no waiters here. Tea leaves, boiling water, and drinks were all ready-made, neatly packaged and placed on the low cabinet. Bringing one's own cup was fine; using cups here was also fine. There was a sink along the wall, also spare brushes and small packets of bleaching powder. A paper was pasted on the wall: "Please wash tea sets yourself after use!"
+This was a place resembling a teahouse. The interior was bright and spacious, furnished with rattan chairs, very much like the teahouses Ma Qianzhu had visited in Suzhou and Hangzhou. There were no waiters, however. Tea leaves, boiling water, and beverages came pre-packaged and arranged neatly on a low cabinet. One could bring one's own cup or use those provided. A sink ran along the wall, with spare brushes and small packets of bleaching powder. A notice was pasted on the wall: "Please wash tea sets yourself after use!"
 
-Ma Qianzhu brewed tea for himself. After waiting leisurely for a few minutes, Si Kaide arrived hurriedly.
+Ma Qianzhu brewed tea for himself. After waiting leisurely for several minutes, Si Kaide arrived in haste.
 
-"Hello, State Secretary." He greeted. Actually, he and Ma Qianzhu were not very familiar, only met a few times at Executive Committee Enlarged Meetings.
+"Hello, State Secretary." He greeted him. In truth, he and Ma Qianzhu were not especially familiar—they had only met a handful of times at Executive Committee Enlarged Meetings.
 
 "Just call me Ma Qianzhu, Comrade Si Kaide."
 
-"Good." Si Kaide nodded. This person was about thirty, 175cm tall, body shape quite standard, with a common face. According to the General Bureau of Political Security's political appraisal, this person was a chauvinist, hating Britain and America, ideal was establishing a colonial empire, entering the Third Industrial Revolution in his lifetime. Regarding this last point, Ma Qianzhu thought he and himself still had common language.
+"Very well." Si Kaide nodded. He was approximately thirty, 175 centimeters tall, with a rather standard build and an unremarkable face. According to the General Bureau of Political Security's political assessment, this man was a chauvinist, harboring hostility toward Britain and America. His ideal was establishing a colonial empire and entering the Third Industrial Revolution within his lifetime. Regarding this last point, Ma Qianzhu felt they might possess some common ground.
 
-Ma Qianzhu introduced the Foreign Intelligence Bureau's stationing plan to him.
+Ma Qianzhu outlined the Foreign Intelligence Bureau's station deployment plan.
 
-"...Jiang Shan's idea is that for the current layout on the mainland, basically we still have to adopt a system of shouldering both intelligence and commerce. This can maximize the use efficiency of people, money, and materials, avoiding duplicate construction."
+"...Jiang Shan's concept is that for the current mainland layout, we should essentially adopt a system that combines intelligence and commercial functions. This maximizes the efficiency of people, money, and materials while avoiding redundant construction."
 
-"You mean, similar to the Guangzhou Station model."
+"You mean something like the Guangzhou Station model."
 
-"Roughly so. But such stations may not reach a scale like Guangzhou Station."
+"Roughly speaking. But such stations may not achieve the scale of Guangzhou Station."
 
-"Investment and operation responsible by the Colonial and Trade Ministry, while responsible for support work of intelligence personnel, is that the meaning?"
+"Investment and operations under the Colonial and Trade Ministry's responsibility, while supporting intelligence personnel activities—is that the idea?"
 
-"Of course." Ma Qianzhu nodded, "But I want to correct one point. Strictly speaking, investments are all provided by the Planning Agency and the General Fiscal Directorate." He smelled a scent of wanting to bargain, quickly knocking out this possibility.
+"Precisely." Ma Qianzhu nodded. "But I want to correct one point. Strictly speaking, all investments are provided by the Planning Agency and the General Fiscal Directorate." He detected a hint of bargaining intent and moved quickly to foreclose that possibility.
 
-"Yes," Si Kaide nodded, "My meaning is, if our department is to be responsible for business activities, then there will be commercial considerations in the selection of these stations. Instead of purely considerations for obtaining intelligence. Some locations the Intelligence Bureau thinks have important significance and are necessary to establish permanent stations, but from commercial consideration, these locations may not obtain sufficient profit, or even earn profit to maintain the station's own operation."
+"Yes," Si Kaide nodded. "What I mean is, if our ministry is responsible for commercial activities, then commercial considerations will inevitably factor into station site selection—rather than purely intelligence considerations. Some locations the Intelligence Bureau deems of critical importance, warranting permanent stations, may not generate sufficient profit from a commercial standpoint, or may even fail to cover the station's own operating costs."
 
-"If there are such locations, the Intelligence Bureau will be solely responsible." Ma Qianzhu was very crisp.
+"If such locations exist, the Intelligence Bureau will assume sole responsibility for them." Ma Qianzhu was direct.
 
-"In that case, I agree to cooperate. But I hope the Intelligence Bureau provides a list of points they wish to plant, so the Ministry can conduct a comprehensive assessment."
+"In that case, I agree to cooperate. But I hope the Intelligence Bureau provides a list of proposed deployment sites so the Ministry can conduct a comprehensive assessment."
 
-"No problem." Ma Qianzhu said, "I will tell Jiang Shan to find you—you must keep this location list confidential."
+"No problem." Ma Qianzhu said. "I'll instruct Jiang Shan to contact you. You must keep this location list strictly confidential."
 
-"Of course," Si Kaide said, "I am drafting a report on increasing overseas stations. Since the Intelligence Bureau also has considerations in this aspect, we can jointly draft this report with the Intelligence Bureau."
+"Naturally," Si Kaide said. "I'm drafting a report on expanding overseas stations. Since the Intelligence Bureau is also considering this matter, we could draft the report jointly with them."
 
-"This matter you can discuss slowly with Jiang Shan." Ma Qianzhu said nonchalantly, "How do you plan to arrange your planting?"
+"You can discuss the details with Jiang Shan." Ma Qianzhu said nonchalantly. "How do you plan to approach your deployment?"
 
-Si Kaide grinned: "Regarding large-scale planting, the Ministry of Commerce and Ministry of Light Industry are also anxious. They all want to expand the mainland market."
+Si Kaide grinned. "Regarding large-scale deployment, the Ministry of Commerce and Ministry of Light Industry are equally anxious. They all want to expand the mainland market."
 
-Ma Qianzhu knew, this was because recently silver reserves were constantly declining. The Transmigration Group's biggest financial source: Leizhou sugar's crushing season hadn't started yet. Yet industrialization consumption didn't stop for a minute. As departments mainly earning "foreign exchange": the anxiety of the Ministry of Commerce and Ministry of Light Industry was imaginable.
+Ma Qianzhu understood. Silver reserves had been steadily declining. The Transmigration Group's primary revenue source—Leizhou sugar's crushing season—hadn't yet begun. Meanwhile, industrialization expenditures continued without pause. As the departments chiefly responsible for earning "foreign exchange," the anxiety of the Ministry of Commerce and Ministry of Light Industry was understandable.
 
-"We discussed and decided, first planting in Jiangnan—Nanjing, Yangzhou, Suzhou, and Hangzhou. These four places have the most commercial value. Our high-quality industrial products will have a market. Best establish one or two points in Fujian too."
+"We've discussed and decided to prioritize deployment in Jiangnan—Nanjing, Yangzhou, Suzhou, and Hangzhou. These four locations offer the greatest commercial value. Our high-quality industrial products will find markets there. It would also be ideal to establish one or two points in Fujian."
 
-Fujian was an important production area for export porcelain. Kraak porcelain was mostly produced in this area. Also local rich tea resources. Both were important export sources. Regarding the Transmigration Group's own needs, kaolin and tea were very needed resources.
+Fujian was a major production region for export porcelain. Kraak porcelain was manufactured primarily in that area. The province also boasted abundant tea resources. Both were crucial export commodities. For the Transmigration Group's own needs, kaolin and tea were highly desired resources.
 
-Secondly, Beijing and Zhangjiakou.
+Second priority: Beijing and Zhangjiakou.
 
-"Zhangjiakou? Digging money out of Shanxi old wealth's hands is very not easy."
+"Zhangjiakou? Extracting money from Shanxi old wealth won't be easy."
 
-"Zhangjiakou is a heavy trading town for Mongolian goods. Furs and horses, doesn't the Executive Committee want them?"
+"Zhangjiakou is a major trading hub for Mongolian goods. Furs and horses—doesn't the Executive Committee want those?"
 
-Of course want them. Furs could be used for re-export—Europeans had extremely high enthusiasm for furs. As for horses, the Transmigration Group lacked this most. Don't look at the disdain of the Agricultural Committee bunch for Mongolian horses, disliking low shoulder height, small physique, but this kind of horse tolerated coarse feed. Getting a few hundred for animal power was also quite good, at least easier to use than slow oxen. Besides, the army also had extremely strong demand for horses—Zhang Berlin had complained countless times: using substituting livestock to transport soldiers and pulling cannons was a barbarous and backward military system.
+Of course they did. Furs could be re-exported—Europeans possessed enormous appetite for furs. As for horses, the Transmigration Group suffered chronic shortages. Never mind that the Agricultural Committee people disdained Mongolian horses for their low shoulder height and small stature—this breed tolerated rough feed. Acquiring a few hundred for draft work would be quite valuable, certainly more maneuverable than plodding oxen. Besides, the army also had urgent demand for horses. Zhang Berlin had complained countless times: using substitute livestock for troop transport and artillery hauling was a barbaric and backward military system.
 
-"How to transport Mongolian goods? From Zhangjiakou to any seaport inside the Pass, this distance isn't close."
+"How would we transport Mongolian goods? From Zhangjiakou to any coastal port inside the passes—that's no short distance."
 
-"This requires the intelligence department to think of ways. First is to settle the frontier army generals, let them handle procedures, otherwise horses simply can't get on the road. Secondly is to get a seaport in the northern coastal area, loading goods traded from the north onto ships nearby."
+"That's where the intelligence department needs to get creative. First, we must cultivate relationships with frontier army generals, obtaining their assistance with transit procedures—otherwise horses simply cannot get on the road. Second, we need to secure a port in the northern coastal region for loading goods traded from the north directly onto ships."
 
-"Are these all the planting points considered?"
+"Are these all the deployment sites under consideration?"
 
-"Yes, commercial planting in the Jiangnan region can be denser, for example, Zhenjiang and Shanghai can also be planted. But just these for now. Too many points and investment won't be enough."
+"Yes. Commercial deployment in the Jiangnan region can be denser—Zhenjiang and Shanghai could also receive stations. But we'll limit it to these for now. Too many sites, and investment runs short."
 
-"Very good." Ma Qianzhu noted down key points in his notebook.
+"Very good." Ma Qianzhu jotted key points in his notebook.
 
-Si Kaide didn't know if this "very good" was praising his work well done, or indicating "that's all." He coughed:
+Si Kaide couldn't tell whether this "very good" was praise for his work or simply meant "that's all." He coughed:
 
-"Besides the mainland, I propose setting up a point in Macau too."
+"Besides the mainland, I propose establishing a point in Macau."
 
-"Macau has a guy called..."
+"Macau already has a fellow named..."
 
-"Huang Shunlong." Si Kaide reminded him, "This person is our agent in Macau. But this person is not very active in doing business. His business is nothing more than sitting there receiving stolen goods and reselling contraband. Now his value to us is getting smaller and smaller—he can't satisfy Lingao's appetite. We need a sales window able to face Portuguese directly."
+"Huang Shunlong." Si Kaide reminded him. "This man serves as our agent in Macau. But he's not very proactive in business. His operation amounts to sitting there receiving stolen goods and reselling contraband. His value to us is diminishing—he can no longer satisfy Lingao's appetite. We need a sales window capable of dealing directly with the Portuguese."
 
-"Isn't there a Li Huamei acting as agent."
+"Isn't there a Li Huamei acting as agent?"
 
-"This person," Si Kaide said, "Very suspicious. You should know she is probably unreliable."
+"This person—" Si Kaide said, "is highly suspect. You're likely aware she's probably unreliable."
 
-"If so, can consider establishing one."
+"If that's the case, establishing a point there is worth considering."
 
-"Finally is setting up a point in Vietnam." He said, "Start setting up in Tonkin (North Vietnam). Here is our source of rice and coal. Establishing a trade station is very necessary." Having a trade station naturally meant having intelligence work.
+"Finally: establishing a point in Vietnam." He said. "Begin with Tonkin. This is our source for rice and coal. A trade station there is essential." Where there was a trade station, intelligence work would naturally follow.
 
-"Setting up a point in Tonkin is a major event. Probably requires coordination of all ministries. The Northern Court (Trinh Lords) may not permit it. We have to be prepared for military struggle."
+"Establishing a station in Tonkin is a major undertaking. It would probably require coordination across all ministries. The Northern Court may not permit it. We must be prepared for military confrontation."
 
-"How about probing first?" Si Kaide had been planning this for a long time. Last time Chang Shide from Leizhou specially returned to Lingao to discuss this with him: Leizhou Station and Guangzhou Station prepared to establish a Vietnam Trade Company, besides mining coal in Hong Gai, also conducting trade activities.
+"What about probing first?" Si Kaide had been planning this for some time. Chang Shide from Leizhou Station had recently returned to Lingao specifically to discuss it with him. Leizhou Station and Guangzhou Station were preparing to establish a Vietnam Trade Company—besides mining coal in Hong Gai, they would also conduct trade activities.
 
-Setting up a commercial station or goods firm in Tonkin wasn't hard. As long as there was money to earn, the North Vietnamese small court still welcomed everyone to do business—many Great Ming merchants already had warehouses and firms locally. What was difficult was coal mining in Hong Gai. This matter was trickier. Hard to imagine the North Vietnamese small court would ignore a group of strange overseas people mining coal.
+Setting up a commercial station or goods firm in Tonkin wasn't difficult. As long as there was money to be made, the Northern Vietnamese court still welcomed merchants. Many Great Ming merchants already maintained warehouses and firms locally. The difficulty lay in mining coal at Hong Gai. That was far trickier. It was hard to imagine the Northern Vietnamese court simply ignoring a group of strange overseas people digging for coal.
 
-Si Kaide's abacus was if Ma Qianzhu didn't oppose, he would first engage in Hong Gai on a small scale. Anyway, manpower and material resources were available on hand.
+Si Kaide's calculation was straightforward: if Ma Qianzhu didn't object, he would start small-scale operations in Hong Gai. Manpower and materials were already available.
 
-"This matter still needs to be submitted to the Executive Committee for discussion. Involves foreign relation issues." Ma Qianzhu said, "Tonkin isn't Southeast Asian native chiefs. Also has hundreds of thousands of troops. Stiffening relations now, I'm afraid we won't handle it easily."
+"This matter still requires Executive Committee deliberation. It involves foreign relations issues." Ma Qianzhu said. "Tonkin isn't a collection of Southeast Asian native chieftains. They field hundreds of thousands of troops. Antagonizing them now—I'm afraid we couldn't handle the consequences easily."
 
-A few days later, the proposal regarding the Intelligence Bureau and Colonial and Trade Ministry jointly planting stations on the mainland obtained passage in the Executive Committee, then passed three readings in the Senate Standing Committee. As for planting in Tonkin, the Executive Committee and Senate "passed in principle," agreeing to dispatch a small-scale team for probing layout—premise was "try not to cause military conflict."
+A few days later, the proposal for the Intelligence Bureau and Colonial and Trade Ministry to jointly deploy mainland stations passed the Executive Committee and subsequently cleared three readings in the Senate Standing Committee. As for deployment in Tonkin, the Executive Committee and Senate "approved in principle," agreeing to dispatch a small-scale team for preliminary reconnaissance—with the proviso: "minimize military conflict."
 
-Si Kaide felt very stifled—colonization ought to be bloody. How could it be called "colonial development" without the accompaniment of cannons and muskets?
+Si Kaide felt profoundly stifled. Colonization was supposed to be bloody. How could it be called "colonial development" without the accompaniment of cannons and muskets?
 
-"We have to be timid even towards Vietnamese." He grumbled in his office, then picked up the phone, "Connect Organization Department... Yes, Organization Department? I'm Colony and Trade Ministry Office. I want to transfer a few people's files... No, transfer procedures temporarily not done... Right, the first one is named Bei Kai..."
+"We have to be timid even toward Vietnamese," he grumbled in his office. Then he picked up the telephone: "Connect me to the Organization Department... Yes, Organization Department? This is the Colonial and Trade Ministry Office. I'd like to request transfers of several personnel files... No, transfer procedures aren't needed yet... Correct, the first one is named Bei Kai..."
 
-Li Yan stared at the mycelium under the microscope—this was the Agricultural Committee's biological laboratory. Seven or eight people squeezed inside. A group of PhDs and Masters studying molecular biology, stem cells and such 21st-century frontier sciences were researching various practical fungus strains under Huang Dashan's leadership. This was one of two choices for biology students. The other choice was the Ministry of Health's biological laboratory, dealing specifically with viruses and vaccines.
+---
 
-He wrote down his observation results on the clipboard—this kind of work was boring and dry, but fortunately he was used to it. Following plans step-by-step had become part of his life.
+Li Yan stared at the mycelium under the microscope. This was the Agricultural Committee's biological laboratory, where seven or eight people crammed together. A cohort of PhDs and Masters who had once studied molecular biology, stem cells, and other twenty-first-century frontier sciences were now researching practical fungal strains under Huang Dashan's leadership. This was one of two options for biology students. The alternative was the Ministry of Health's biological laboratory, which dealt specifically with viruses and vaccines.
 
-Li Yan handed the microscope to someone else and walked out of this already crowded laboratory. Walking out from the turbid hot laboratory to the outside, he only felt the air incomparably fresh. He took a deep breath—compared to other places, the air at the farm was still nice.
+He recorded his observations on the clipboard. This work was tedious and dry, but fortunately he was accustomed to it. Following plans step-by-step had become integral to his life.
 
-He had already received the transfer order. Tomorrow he would go to work at the Foreign Intelligence Bureau. Always doing retrieval and treatment translation work in the library was really too unchallenging. He was used to dry work, but didn't mean he was used to simple work. Intelligence work fitted his appetite exactly.
+Li Yan handed the microscope to someone else and walked out of the increasingly cramped laboratory. Emerging from the stuffy, overheated space into the outdoors, he found the air remarkably fresh. He inhaled deeply. Compared to other locations, the air at the farm remained pleasant.
 
-Li Yan didn't intend to be some 007, nor M. What he wanted to be was a planner in the office. Best be a trainer. Specifically teaching various schemes and traps, and his beloved IEDs—although whether this thing had possibility of use was doubtful.
+He had already received his transfer order. Tomorrow he would report to the Foreign Intelligence Bureau. His perpetual work in retrieval and translation at the library had grown insufficiently challenging. He was accustomed to dry work, but that didn't mean he was content with simple work. Intelligence work suited his temperament perfectly.
 
-A few days later, the first dispatch personnel training class opened. The reason for calling it the first session was because the students of this class were different—all were Elders aspiring to dedicate themselves to intelligence or trade work. They all voluntarily submitted applications demanding to go work on the front line on the mainland.
+Li Yan had no intention of becoming some 007, nor M. What he aspired to be was an office planner. Ideally, a trainer—specifically teaching various schemes and traps, and his beloved IEDs. Whether such devices would actually find use remained doubtful.
 
-There were a dozen people in this batch, tall short fat thin differing, except one point—they were all male. Not that no women submitted applications; quite a few ladies were willing to throw themselves into this high-risk job. But after analysis, the intelligence department believed the scope of activities for women in Great Ming controlled areas wasn't large, unless she could willingly mix in the lower class society, or go all out to be a social butterfly like Miss PIPE.
+---
 
-Fortunately, almost all women in the Transmigration Group had boyfriends or husbands, allowing Jiang Shan to avoid facing excellent female agents attempting to infiltrate Chongzhen's side or Huang Taiji/Dorgon's side preparing to lurk into enemy beds through harem struggles. This was what he had always been worried about. The remaining few persistent activists also retreated after Yu E-shui pointed out various living inconveniences they would face doing intelligence activities on the mainland.
+A few days later, the first dispatch personnel training class commenced. It was designated "first session" because these students differed from previous cohorts—all were Elders who had volunteered to dedicate themselves to intelligence or trade work. Every one had submitted applications requesting frontline mainland assignments.
 
-"Don't talk about girls, I see these men might not be able to endure this hardship when the time comes." Yu E-shui crossed his legs, "Everyone thinks it's as leisurely as Guangzhou and Leizhou, surrounded by maids, concubines, and servants—where is such a cheap deal."
+The batch numbered about a dozen, varying in height, weight, and build, but sharing one characteristic—all were male. It wasn't that no women had applied; quite a few ladies were willing to undertake this high-risk work. But after analysis, the intelligence department concluded that women's scope for activity in Great Ming-controlled areas was limited—unless she was willing to blend into lower-class society or go all-in as a social butterfly like Miss PIPE.
 
-"I have to protest this. Our days in the early stage of developing Leizhou were still very bitter!" Chen Tianxiong opposed the mention of pulling Guangzhou and Leizhou together. Developing Guangzhou seemed much easier than Leizhou to him. Guangzhou had Gao Ju, High Official Gao, this wealthy and powerful local snake helping suppress the scene and handle affairs. Leizhou was developed by their group cutting through thorns, frightened and wary. Where was the comparability between the two? Not to mention anything else, the so-called "enjoyment" of Leizhou Station was just everyone getting a few women in advance, completely incomparable to the living standard of the Guangzhou group.
+Fortunately, almost all women in the Transmigration Group had boyfriends or husbands, sparing Jiang Shan from confronting excellent female agents aspiring to infiltrate Chongzhen's court, or preparing to burrow into Huang Taiji's or Dorgon's side through harem intrigues. This had always been his concern. The remaining handful of persistent volunteers also retreated after Yu E-shui enumerated the various living inconveniences they would face conducting intelligence activities on the mainland.
 
-"Alright, let's see if we need to eliminate anyone." Jiang Shan said to Li Yan—the latter had just been promoted to Deputy Director of the Great Ming Division, concurrently Head of Intelligence Training. This head title was created by the Intelligence Bureau itself; the Organization Department only recognized the position of Deputy Director of Great Ming Division.
+"Never mind the girls—I suspect these men might not endure the hardship when the time comes." Yu E-shui crossed his legs. "Everyone imagines it's as comfortable as Guangzhou and Leizhou, surrounded by maids, concubines, and servants. Where is such a cushy deal to be found?"
 
-"Eliminating now means difficult to recruit again in the future." Yu E-shui said, "Now everyone thinks dispatch is like Guangzhou. Wait until dispatched out to cry cheated, coming back to say it, everyone won't be interested in going."
+"I must protest that characterization. Our early days developing Leizhou were extremely bitter!" Chen Tianxiong objected to lumping Guangzhou and Leizhou together. Developing Guangzhou had seemed far easier than Leizhou to him. Guangzhou had Gao Ju—High Official Gao—a wealthy and powerful local powerhouse to manage affairs and keep things under control. Leizhou had been carved out by their group through sheer struggle, constantly on edge and wary. The two situations were utterly incomparable. Not to mention that the so-called "enjoyment" at Leizhou Station amounted merely to everyone acquiring a few women ahead of schedule—nothing approaching the lifestyle of the Guangzhou contingent.
 
-"Fine, let's interview slightly. Really unsuitable ones can't be taken." Li Yan insisted on interviewing.
+"Fine. Let's see whether anyone needs to be eliminated." Jiang Shan said to Li Yan. The latter had just been promoted to Deputy Director of the Great Ming Division, with concurrent appointment as Head of Intelligence Training. The "Head" title was the Intelligence Bureau's own creation; the Organization Department recognized only the Deputy Director position.
 
-"Okay, up to you."
+"Eliminating people now means future recruitment becomes more difficult." Yu E-shui observed. "Currently everyone believes dispatch is like Guangzhou. Wait until they're deployed and cry about being deceived—after they return and spread the word, enthusiasm for going will evaporate."
 
-...
+"Very well. Let's conduct brief interviews. Those truly unsuitable cannot be accepted." Li Yan insisted on interviews.
 
-"Xu Ke—" The person in front wore a Navy uniform, "You are Navy, active Lieutenant, how come you came to us?"
+"As you wish."
 
-"Doing Naval military intelligence is my long-cherished wish..."
+---
 
-"Then you have to retire first, then come. We here are under the Central State Council system, not accepting active servicemen."
+"Xu Ke—" The person before them wore a Navy uniform. "You're Navy. Active Lieutenant. Why have you come to us?"
 
-Asking this person to retire and come again was obviously a bit demanding. Xu Ke blinked his eyes: "Make an exception. Do you guys not need military intelligence personnel understanding navy? The Foreign Intelligence Bureau collects military intelligence too, right."
+"Conducting naval military intelligence is my long-cherished ambition..."
 
-"Correct, but your establishment is in the Navy! Coming to us, salary can't be issued, and the Navy will count you as a deserter—"
+"Then you'll need to retire first, then reapply. We fall under the Central State Council system—we don't accept active-duty military personnel."
 
-"This problem—" Xu Ke scratched his head. Salary or not wasn't a big problem; becoming a deserter was a serious problem.
+Requiring this person to retire and apply afresh was clearly asking a great deal. Xu Ke blinked. "Make an exception. Don't you need military intelligence personnel who understand the navy? The Foreign Intelligence Bureau collects military intelligence too, doesn't it?"
 
-"Really want to come, have to apply for retirement to the Navy, transfer file back to Organization Department, then submit application."
+"Correct, but your position is with the Navy! If you come to us, your salary can't be issued, and the Navy will count you as a deserter—"
 
-"I still really want to be an intelligence officer! Naval military intelligence officer." Xu Ke still insisted on his aspiration very much, "How about you help me communicate? There's always a way."
+"This problem—" Xu Ke scratched his head. Salary was a minor issue. Becoming a deserter was a serious one.
 
-So the telephone switchboard and transfer station were busy for a while. Ming Qiu didn't know how to handle this either. Reasonably speaking the Navy should have places like its own intelligence analysis room. After detailed urgent consultation, it was decided Xu Ke would work in the Foreign Intelligence Bureau with the status of Naval military intelligence personnel, counted as Navy dispatched staff—salary paid by Navy, allowance paid by Foreign Intelligence Bureau. Specifically responsible for naval military intelligence collection and analysis in the Foreign Intelligence Bureau.
+"If you genuinely want to come, you must apply for retirement from the Navy, transfer your file back to the Organization Department, then submit an application."
 
-"This, is it appropriate letting the Navy stick a foot in now?" Wang Ding asked Jiang Shan in a low voice, "Looking at the meaning of Navy and Army, establishing independent military intelligence bureaus later is a certain thing, mostly likely one for each. Aren't our hard tossings making wedding dresses for others?"
+"I really do want to be an intelligence officer! A naval military intelligence officer." Xu Ke remained devoted to his aspiration. "Perhaps you could help communicate with them? There's always a solution."
 
-"Making wedding dresses is just making wedding dresses. This is cooperation. Don't be too calculating." Jiang Shan had a face of grandeur, "One of the Foreign Intelligence Bureau's tasks is providing intelligence preparation for the army's future mainland conquest actions. Nothing inappropriate about the Navy sending someone to be responsible for naval intelligence. Besides, our future activities rely a lot on Navy support. With such a person here, isn't coordination easier? Director Wang, everything should focus on the big picture."
+So the telephone switchboard and transfer stations buzzed with activity for a while. Ming Qiu didn't know how to handle this either. Reasonably speaking, the Navy should possess its own intelligence analysis room. After urgent consultations, it was decided that Xu Ke would work at the Foreign Intelligence Bureau with the status of naval military intelligence personnel—counted as Navy-dispatched staff. Salary paid by Navy; allowance paid by Foreign Intelligence Bureau. He would be specifically responsible for naval military intelligence collection and analysis within the Foreign Intelligence Bureau.
 
-"Fine, listen to you."
+"Is this appropriate—letting the Navy stick its foot in now?" Wang Ding asked Jiang Shan quietly. "Looking at the Navy's and Army's intentions, establishing independent military intelligence bureaus later is virtually certain—probably one for each service. Aren't our hard efforts just making wedding dresses for others?"
+
+"Making wedding dresses is making wedding dresses. This is cooperation. Don't be too calculating." Jiang Shan assumed an expression of magnanimity. "One of the Foreign Intelligence Bureau's tasks is providing intelligence preparation for the army's future mainland conquest operations. There's nothing inappropriate about the Navy sending someone to handle naval intelligence. Besides, our future activities depend heavily on Navy support. With such a person here, won't coordination be easier? Director Wang, everything should focus on the big picture."
+
+"Very well. As you say."
 
 "Next—"
 
@@ -170,10 +174,10 @@ So the telephone switchboard and transfer station were busy for a while. Ming Qi
 
 "Let me be a human trafficker—I have insights on this..."
 
-...
+---
 
-After simple interviews, these people were all accepted. Li Yan let them sign, take photos, and fill forms. After procedures were done, Wang Ding appeared in front of them with a serious face:
+After brief interviews, all candidates were accepted. Li Yan had them sign forms, take photographs, and complete paperwork. Once procedures were finished, Wang Ding appeared before them with a grave expression:
 
-"Comrades here are all prepared to accept dispatch to the mainland to engage in intelligence and trade activities. Some comrades will stay in the General Bureau to work, but inevitably will travel for business too.
+"Comrades gathered here have all prepared to accept dispatch to the mainland for intelligence and trade activities. Some comrades will remain at headquarters to work, but will inevitably travel for business as well."
 
 (End of Chapter)

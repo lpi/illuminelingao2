@@ -1,88 +1,90 @@
 # Chapter 1048: The Collaborators
 
-Several Haenyeo looked eagerly at the "Wokou Lord" who had suddenly descended into the thatched hut. Seeing his grim expression as if he was about to treat Pan, they could hardly believe their eyes. After a long while, a Haenyeo knelt and begged: "My Lord, please save her! She hasn't married yet because she has to support the whole family. If she dies, the whole family won't be able to live."
+The Haenyeo watched with anxious hope as the "*Wokou* Lord" descended into their thatched hut. Seeing his grave expression as he prepared to treat Pan, they could hardly believe their eyes. After a long moment, one of them knelt and begged: "My Lord, please save her! She never married—she had to support her entire family. If she dies, they won't survive."
 
-"It's nothing serious, I can cure it," Feng Zongze said. Incision and drainage was a very simple minor surgery for medical personnel. especially with the premise that they possessed antibiotics like Sulfonamides now, curing it wasn't difficult.
+"It's nothing serious. I can cure it," Feng Zongze said. Incision and drainage was a simple minor surgery for anyone with medical training—especially now that they possessed antibiotics like sulfonamides. The cure would be straightforward.
 
-Feng Zongze had practiced wielding the scalpel on many refugees long ago. Executing the operation was as smooth as flowing clouds and running water. He finished the surgery in three moves, inserted a drainage strip, and sprinkled anti-inflammatory powder—in his experience, sulfanilamide powder was almost a "miracle drug" with marvelous effects in eliminating wound inflammation.
+Feng Zongze had already honed his surgical skills treating countless refugees. His scalpel work flowed smooth as silk. He completed the operation in three swift movements, inserted a drainage strip, and packed the wound with anti-inflammatory powder. In his experience, sulfanilamide powder worked almost as a miracle drug, remarkably effective at eliminating wound infections.
 
-Sure enough, although there was a commotion among the Haenyeo when he started using the scalpel, seeing his skilled technique, draining pus and applying medicine, Pan became quiet after it was over. Knowing the "Wokou Lord" had treated her with medical skills, they couldn't help but shed tears of gratitude, bowing repeatedly in a grand ceremony.
+Sure enough, though the Haenyeo initially stirred in alarm when the scalpel appeared, they fell quiet watching his skilled technique as he drained the pus and applied medicine. When the procedure was complete and Pan realized the "*Wokou* Lord" had actually treated her, the women couldn't contain their tears of gratitude, bowing repeatedly in formal ceremony.
 
-"It's not serious now. Take care of her for three to five days, and she'll be fine," Feng Zongze said in Korean. "I've instructed the kitchen to issue her patient rations."
+"The danger has passed. Care for her properly over the next three to five days, and she'll be fine," Feng Zongze said in Korean. "I've instructed the kitchen to issue patient rations for her."
 
-The so-called patient ration was a type of relief ration specially provided for the sick and wounded. It contained no sweet potato powder but was composed entirely of rice flour and starch, including a small amount of protein powder. Cooked into gruel, it was nutritious and easy to digest.
+The so-called patient ration was a specialized relief food formulated for the sick and wounded. Unlike the standard variety, it contained no sweet potato powder, composed entirely of rice flour and starch with a small amount of added protein powder. Cooked into gruel, it was nutritious and easily digestible.
 
-Feng Zongze glanced at the Haenyeo. Since their capture, he saw that the prisoners were all thinly clad, so he instructed to give each of them a set of cotton clothes supplied for refugees from the warehouse.
+Feng Zongze surveyed the Haenyeo. Since their capture, he had noticed the prisoners were all inadequately clothed, so he'd ordered a set of refugee-issue cotton clothing for each.
 
-Although called cotton clothes, they were actually padded with cattail wool (*Puhuang*), and the quantity of padding was insufficient. The warmth retention was poor. But for the Haenyeo who had been barely surviving winter in single layers or half-naked, these were already good clothes that could warm their hearts.
+Though called "cotton clothes," they were actually padded with cattail fluff, and the filling was thinner than ideal—their warmth retention was poor. But for Haenyeo who had been struggling through winter in single layers or half-naked, these were garments fine enough to warm their hearts.
 
-Seeing the "Wokou" giving cotton clothes, providing gruel daily to fill their bellies, and even treating illnesses, the Haenyeo, besides shedding tears of gratitude, also muttered in their hearts. What exactly did these strange "Wokou" want to do?
+Seeing these "*Wokou*" distribute cotton clothes and provide daily gruel to fill their bellies—and now even treating illness—the Haenyeo shed tears of gratitude while privately wondering: what exactly did these strange pirates want from them?
 
-If they fancied their bodies, it had been several days since capture, yet they weren't called to sleep with them, just detained, with people sent daily to ask many questions.
+If they desired their bodies, it had been several days since their capture, yet no one had summoned them to serve as bed-warmers. They were simply detained, with people sent daily to ask questions.
 
-Moreover, they gradually discovered clues: these "Wokou" were actually Chinese! Because they spoke Chinese when talking to each other. There were many descendants of Yuan and Ming exiles on Jeju Island, and some could still speak Chinese. The Haenyeo had heard it more or less.
+Moreover, the women had gradually noticed something peculiar: these "*Wokou*" were actually Chinese. When speaking among themselves, they used Chinese. Many descendants of Yuan and Ming exiles lived on Jeju Island, some still capable of speaking the language. The Haenyeo had heard it before, at least occasionally.
 
-Could they be pirates of the Ming Dynasty? But this attire was too strange.
+Could they be pirates from the Ming Dynasty? But their clothing was utterly bizarre.
 
-The Haenyeo began to mutter in their hearts, but the original fear and resistance had dissipated a lot. Everyone began to feel that whether they were Wokou or Ming pirates, they weren't bad people—at least for them, the poor.
+Uncertainty churned in the Haenyeo's minds, yet their original fear and resistance had dissipated considerably. They were beginning to believe that whether these strangers were *Wokou* or Ming pirates, they weren't bad people—at least not to the poor.
 
-Seeing the timing was about right, Feng Zongze released the Haenyeo home but instructed them to bring back the villagers hiding in the nearby mountains.
+Judging the timing to be right, Feng Zongze released the Haenyeo to return home, but instructed them to bring back the villagers hiding in the nearby mountains.
 
-"We don't rob things, don't burn houses, and certainly don't rob women," Feng Zongze said, seeing smiles appear on some of the kneeling Haenyeo. "As long as everyone comes back to work for us—those who work for us, we give grain." Saying this, he took out a brown oil-paper package. This was something the Haenyeo were very familiar with these days: relief rations.
+"We don't rob property, don't burn houses, and certainly don't abduct women," Feng Zongze said, noting smiles appearing on some of the kneeling women's faces. "As long as everyone comes back to work for us—those who work for us receive grain." He produced a brown oil-paper package. This was something the Haenyeo had grown very familiar with over recent days: relief rations.
 
-To familiarize them with this ration so that one day it would achieve the magical power of the US military's C-rations during World War II, the Haenyeo had been made to help in the kitchen and tend fires these days, fully familiarizing them with the appearance and taste of this ration, so as to spread the prestige of the relief ration.
+To ensure familiarity with this particular ration—so that one day it might achieve the magical power of U.S. military C-rations during World War II—the Haenyeo had been put to work in the kitchen, tending fires and learning the appearance and taste of these supplies, preparing them to spread word of the relief ration's virtue.
 
-Jeju Island in 1631 had relatively favorable weather without disasters, but in previous years there were disasters almost every year. The Joseon government forbade Jeju Island commoners from fleeing to the mainland peninsula, and relief was untimely. Many starved to death, and quite a few risked death to cross the strait and flee to the peninsula. The survivors had all suffered long-term torture of hunger.
+Jeju Island in 1631 had enjoyed relatively favorable weather without major disasters, but previous years had brought calamity after calamity. The Joseon government forbade Jeju commoners from fleeing to the mainland peninsula, and relief arrived too late to save many who starved. Quite a few had risked death crossing the strait to escape. Every survivor had endured prolonged torture by hunger.
 
-Although fishing villages had fish catches to supplement food, merchants buying seafood exploited heavily, selling grain at high prices while abalone and sea cucumber were worthless. The commoners in fishing villages lived a very bleak commodity economy life of selling cheap and buying dear.
+Though fishing villages had their catch to supplement food supplies, the merchants who bought seafood exploited them ruthlessly—buying cheap and selling dear. Commoners lived miserably under this bleak commodity economy, receiving pittances for their abalone while paying inflated prices for grain.
 
-People struggling on the starvation line for a long time had a strong expectation of eating their fill. This was also an incentive that could be most utilized to explode with maximum destructive power. The method Feng Zongze used wasn't fresh, but it was equally effective.
+People who had struggled on the edge of starvation for years harbored an intense expectation of eating their fill. This was an incentive that could be harnessed to explosive effect. Feng Zongze's methods weren't novel, but they remained equally potent.
 
-Not long after the Haenyeo were released, they quickly mobilized the villagers who had fled into the mountains to return—most families originally had no food for the next day, and with the daily catch cut off, they couldn't last hiding in the mountains. Now hearing the "Short-haired Wokou" came to pacify them, they came down the mountain.
+Not long after the Haenyeo were released, they succeeded in coaxing the villagers down from the mountains. Most families had possessed no food for the next day even before fleeing, and with their daily catch cut off, they couldn't survive long in hiding. Hearing that the "Short-haired *Wokou*" had come to pacify them, they emerged.
 
-When the commoners returned, Feng Zongze held a special meeting in the village, asking villagers to continue fishing and harvesting seafood, only that all catches must be sold to them: payment would be made in grain and other daily necessities.
+Once the commoners returned, Feng Zongze convened a village assembly, ordering the villagers to continue fishing and harvesting seafood—with the stipulation that all catches must be sold exclusively to them. Payment would be made in grain and other daily necessities.
 
-The commoners were naturally willing—unwilling, they had no choice: merchants obviously wouldn't come here to buy dried goods anymore unless they abandoned their family businesses and fled their hometowns.
+The commoners were naturally willing. Even had they objected, they had no alternative—merchants obviously wouldn't venture here to purchase dried goods anymore. Unless they abandoned their livelihoods and fled their homeland, they had no choice.
 
-First tempt with economic benefits, then move from quantitative change to qualitative change; this was the consistent method of the Senate's civil affairs work.
+First tempt with economic benefit, then transform quantity into quality. This was the Senate's consistent approach to civil affairs work.
 
-Commoners in hungry despair were the most realistic. Whoever could feed them and clothe them, they would follow, even if it was just a post-dated check. As long as you painted it brilliantly, you could still raise a team.
+Commoners reduced to desperate hunger were utterly practical. Whoever could feed and clothe them commanded their loyalty—even a postdated promise, painted brilliantly enough, could raise an army.
 
-Feng Zongze had no doubt that under their silent influence, the first batch of local collaborators would soon emerge from the fishing village.
+Feng Zongze had no doubt that under their quiet influence, the first batch of local collaborators would soon emerge from this fishing village.
 
-The Park brothers, Deok-hwan and Deok-maeng, were sent to Seongsan along with more than a dozen prisoners captured by the Special Reconnaissance Detachment.
+---
 
-The brothers were in a daze and frightened all the way, not knowing where this gang of grotesquely shaped Wokou intended to take them. According to horror stories circulating on the island, after Wokou captured prisoners, they would disembowel them and use human hearts to accompany wine; even in less horrific stories, they would be taken back to Japan as slaves.
+The Park brothers—Deok-hwan and Deok-maeng—were transported to Seongsan along with more than a dozen other prisoners captured by the Special Reconnaissance Detachment.
 
-Compared to the former, the latter was easier for the brothers to accept: anyway, they were slaves on Jeju Island too. Just worried about the language barrier, life might be hard. Of course, Park Deok-hwan was unwilling: after all, getting land and preparing to build a house had cost him a lot of savings. If captured to Japan, everything would have to start from scratch.
+The brothers remained dazed and terrified throughout the journey, uncertain where this gang of bizarrely attired *Wokou* intended to take them. According to the horror stories circulating on the island, captured prisoners would be disemboweled by *Wokou*, their hearts served as drinking accompaniments. In less gruesome versions, captives would simply be shipped to Japan as slaves.
 
-Finally, after the hoods were removed and they were settled, they realized they had arrived at Jeongui County Seat—they had been to this area on errands for the Jeju Government Office. What surprised them even more was that Jeongui County Seat had fallen into the hands of the Wokou! Inside and outside the city, short-haired, short-clothed Wokou carrying "iron guns" were everywhere.
+Compared to evisceration, the latter fate struck the brothers as more tolerable. They were already slaves on Jeju Island—little would change. Only the language barrier troubled them; life might prove difficult. Of course, Park Deok-hwan was reluctant to accept either fate: acquiring land and preparing to build a house had cost him years of painstaking savings. Captured and hauled off to Japan, he would have to start over from nothing.
 
-Temporarily not leaving Jeju Island made them feel slightly at ease. The prisoners were uniformly settled in Jeongui County Seat. The Jeju Island Forward Command ran a "study class" here, preparing to cultivate local collaborators on a large scale.
+When the hoods were finally removed and they were deposited at their destination, they realized with shock that they had arrived at Jeongui County Seat—territory they had visited on errands for the Jeju Government Office. More astonishing still: Jeongui had fallen to the *Wokou*! Short-haired, short-jacketed pirates carrying "iron guns" were everywhere, inside and outside the walls.
 
-The captured prisoners underwent screening: repeated interrogations until the prisoners confessed everything they knew—not only local conditions but also everyone's personal background.
+At least they hadn't left Jeju Island—a small comfort. The prisoners were settled collectively within Jeongui County Seat. Here the Jeju Island Forward Command was running a "study class," preparing to cultivate local collaborators on a large scale.
 
-Feng Zongze read interrogation reports every day, checking if there were usable talents. The Park brothers immediately entered his sight.
+The captured prisoners underwent rigorous screening: repeated interrogations until they had confessed everything they knew—not only local conditions but every detail of their personal backgrounds.
 
-The Park brothers were of official slave origin: the oppressed underclass. And they were victims of political struggles from a Middle People background, falling from young masters in the past to lowborns meaner than commoners (*baekjeong*). The huge gap in status and life would only generate huge hatred towards the existing system. Adding the two together, it was typical "great suffering and deep hatred."
+Feng Zongze reviewed interrogation reports daily, searching for useful talent. The Park brothers immediately caught his attention.
 
-Feng Zongze knew that the hatred of such people was all-encompassing, and the resentment was twisted. Although they could only be content with the status quo because their personal strength was too small to change anything, once given a chance for revenge, the power they exploded with would be extremely destructive.
+The brothers were official slaves—members of the oppressed underclass. They were also victims of political purges, former Middle People who had plummeted from comfortable young gentlemen to lowborn bondservants more degraded than common peasants. Such a devastating fall in status and living standards could only breed intense hatred for the existing system. The combination represented textbook "great suffering and deep grievance."
 
-Unhesitating betrayal and thoroughly satisfying revenge. Feng Zongze thought, this is too perfect.
+Feng Zongze understood that the rage such people harbored was all-encompassing, their resentment twisted by despair. Though they could only accept their circumstances because individual strength was insufficient to change anything, once offered an opportunity for revenge, the destructive power they could unleash would be extraordinary.
 
-Perhaps they were not suitable constructive forces, but they would spare no effort in acting as collaborators and destroying the old world and old order.
+Unhesitating betrayal. Thorough, gratifying vengeance. Feng Zongze thought: *Too perfect.*
 
-Even better, they were children of Middle People, well-educated, and could read and write Chinese characters—just couldn't speak.
+Perhaps they weren't suited to constructive roles, but they would spare no effort as collaborators in destroying the old world and its corrupt order.
 
-Compared to the double-dealing local petty officials, the potential value of the Park brothers was more appreciated by him.
+Better still, they were sons of Middle People—educated and literate. They could read and write Chinese characters, though they couldn't speak the language.
 
-Of course, such people should also exist among the official slaves of the Jeongui Government Office and various garrison posts they took over. However, the only ones who could be applied to Jeju immediately were these two—among the three cities of Jeju Island, Jeju City had the greatest value. As soon as the situation in the two counties stabilized slightly, it would be taken immediately.
+Compared to the equivocating local petty officials, the Park brothers' potential value was far more appealing.
 
-Feng Zongze decided to work on these two people personally.
+Of course, similar individuals surely existed among the official slaves of the Jeongui Government Office and the various garrison posts now under their control. But the only ones immediately deployable to Jeju were these two. Among Jeju Island's three cities, Jeju City held the greatest value—once conditions in the two counties stabilized even marginally, it would be taken without delay.
 
-After reading their materials repeatedly, Feng Zongze called the Park brothers to the interrogation room.
+Feng Zongze decided to cultivate these two personally.
 
-After casually asking a few simple personal questions, Feng Zongze asked:
+After studying their files repeatedly, he summoned the Park brothers for interrogation.
+
+Following a few casual preliminary questions, Feng Zongze asked:
 
 "Park Deok-hwan, how old are you?"
 
@@ -90,14 +92,16 @@ After casually asking a few simple personal questions, Feng Zongze asked:
 
 "Are you married?"
 
-"No..." Park Deok-hwan said uneasily, not knowing why this Wokou Lord asked this—he had felt these days that the comers were definitely not Wokou. They spoke Chinese and wrote Chinese characters; nine out of ten they came from the Ming Dynasty.
+"No..." Park Deok-hwan shifted uneasily, unsure why this *Wokou* Lord was asking such things. He had grown certain over recent days that these newcomers were definitely not *Wokou*. They spoke and wrote Chinese—nine chances in ten, they came from the Ming Dynasty.
 
-But people from the Ming Dynasty definitely didn't look like this. Park Deok-hwan still remembered seeing envoys from the Ming Dynasty when he accompanied his father to the office in his youth. Whether in official robes or casual clothes, officials or servants, none had short hair (*kunfa*), let alone this kind of strange button-front short jacket.
+But Ming people looked nothing like this. Park Deok-hwan still remembered seeing Ming Dynasty envoys when he'd accompanied his father to the office as a boy. Whether in official robes or casual dress, whether officials or servants, none had worn their hair cropped short. And certainly none had worn these strange button-front short jackets.
 
-"Twenty years old, not young anymore. Why haven't you married? There are three forms of unfilial conduct, of which the worst is to have no descendants." Korean scholar-officials were all Confucian believers, believing in Confucian classics to the point of rigidity. Since Park Deok-hwan was a son of Middle People and educated, this doctrine must have been deeply ingrained in his heart long ago.
+"Twenty years old—not young anymore. Why haven't you married?" Feng Zongze let a note of concern enter his voice. "There are three unfilial acts, and the worst is having no descendants."
 
-This question triggered all the hardships and troubles of preparing for marriage recently from the depths of his heart, and from this, he thought of his dead relatives, especially the past events of his grandmother and mother who died on the road urging him to "carry on the family line." His eyes reddened involuntarily, and he held back, saying:
+Korean scholar-officials were devout Confucians, believing in the classics to the point of rigidity. Since Park Deok-hwan was a Middle Person's son who had received education, this doctrine would have been ingrained in him from childhood.
 
-"This lowly one is an official slave; marriage is not a matter for oneself."
+The question touched every hardship and frustration of his marriage preparations, and from there his thoughts turned to his dead relatives—especially the final words of his grandmother and mother on the road to exile, urging him to "carry on the family line." His eyes reddened involuntarily. He fought to control his voice:
+
+"This lowly one is an official slave. Marriage is not a matter for oneself to decide."
 
 **(End of Chapter)**

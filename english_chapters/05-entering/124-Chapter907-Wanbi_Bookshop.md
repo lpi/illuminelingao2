@@ -4,7 +4,7 @@ Zhang Dai shook his head. "Whether the Australians are overseas barbarians or de
 
 He took out a book from beside him. "Gentlemen, please look."
 
-The others saw that he'd taken it from an exquisite bamboo book case—clearly something he treasured. Sun Chun, who was on close terms with him, reached for it first. A look of astonishment crossed his face as he leafed through it silently—after a few pages, he sighed and shook his head repeatedly. He handed it to Wen Huai, who had been waiting impatiently.
+The others saw he'd taken it from an exquisite bamboo book case—clearly something he treasured. Sun Chun, who was on close terms with him, reached for it first. A look of astonishment crossed his face as he leafed through it silently. After a few pages, he sighed and shook his head repeatedly before handing it to Wen Huai, who had been waiting impatiently.
 
 Wen Huai was also startled when he received it. He first turned it over several times, examining it from all angles, then opened it and read carefully. He read very attentively, oblivious to everyone else, going through a dozen pages before finally slapping the armrest:
 
@@ -42,6 +42,8 @@ Thinking this, his curiosity about Wanbi Bookshop grew even more intense. He was
 
 With such a Western spectacle on offer, everyone was happy to go. Wu Zhixiang, of course, agreed without hesitation. They settled on visiting Wanbi Bookshop the next day.
 
+---
+
 Early the next morning, the group gathered at Zhang Dai's residence. After breakfast, they took sedan chairs to Qinghefang.
 
 Wanbi Bookshop was located on a rather quiet street in Qinghefang. Though Zhang Dai hailed from Shaoxing, he'd resided in Hangzhou for many years. Being fond of excursions, he often explored streets and alleys in search of historic sites—even the poorest lanes. He was thoroughly familiar with the urban landscape. He knew there was a large ruined garden somewhere nearby. A large bookshop would most likely have been built on its grounds.
@@ -60,7 +62,7 @@ Zhang Dai smiled. "Perhaps there's a deeper meaning." He glanced at the characte
 
 The group ascended the steps. Several attendants had already emerged from within to greet them warmly. Zhang Dai laughed. "No need for all this fuss. I find chatter most tiresome." Seeing they were people of consequence, the attendants hastily withdrew; only one quick-witted fellow remained nearby, ready to serve at a moment's notice. The visitors paid little heed and walked through the entrance. Just inside the doorway stood a large glass screen, mounted on a marble base, with no other decoration. A landscape had been etched onto the glass in frosted finish. With his vast erudition, Zhang Dai recognized it at once: *A Thousand Li of Rivers and Mountains*, by Jiang Shen of the Song dynasty.
 
-"They never forget to invoke their ancestors," Zhang Dai thought. "But this building could never be Song construction." He toyed with the fan in his hand.
+*They never forget to invoke their ancestors,* Zhang Dai thought. *But this building could never be Song construction.* He toyed with the fan in his hand.
 
 Beyond the screen lay the main hall. Zhang Dai frequented various bookshops. Because their customers were all scholars, bookshops always displayed their wares with great ingenuity, hoping to win the favor of literati.
 
@@ -68,7 +70,7 @@ But they had never seen a bookshop like this. It looked less like a shop than a 
 
 The hall was so well-lit that scholars accustomed to dim interiors blinked involuntarily. Wu Zhixiang was used to Australian-style buildings, but the Zizi houses had all been modifications of traditional architecture—nothing so thoroughly novel as this. He found it quite refreshing.
 
-"This is no Guangdong man—this must be a genuine Australian!" The thought flashed through his mind. But he kept his expression neutral. Australians occupied a peculiar status in the Ming right now; to expose them or not could have serious repercussions. Better to feign ignorance.
+*This is no Guangdong man—this must be a genuine Australian!* The thought flashed through his mind. But he kept his expression neutral. Australians occupied a peculiar status in the Ming right now; whether to expose them or not could have serious repercussions. Better to feign ignorance.
 
 "Truly extravagant!" Wen Huai couldn't help exclaiming. "Just this glass alone—how much silver would it cost! Even the palace probably can't afford this..."
 
@@ -82,4 +84,6 @@ Sun Chun remarked, "Glass is just a matter of money. But this hall, this dome—
 
 Zhang Dai wasn't surprised. "This is Western building technique, not an Australian secret art. I've seen Catholic churches built in a similar manner. When you think about it, isn't it similar to a stone arch bridge? We use the principle for bridges; Westerners use it for buildings."
 
-*Note: The Mengzi Zhengyi was authored by the Qing scholar Jiao Xun.*
+---
+
+*Author's Note: The Mengzi Zhengyi was authored by the Qing scholar Jiao Xun.*

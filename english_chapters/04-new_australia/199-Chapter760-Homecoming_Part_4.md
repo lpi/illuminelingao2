@@ -2,13 +2,13 @@
 
 Fu Fu climbed a small mound and let the breeze cool him. He had walked most of the day under the sun and wanted to let the sweat dry. Not that he felt particularly tired—he had done farm work since childhood, and the ample rations and daily training and labor in the army had only made him stronger. A march of a few dozen *li* was nothing.
 
-No ox-cart route ran from East Gate Market to Meiyang Village, but the road had been thoroughly improved. Footbridges had been put up along the way; low spots had been filled in; there were now drainage ditches on either side; and gravel had been spread on the surface. Apart from insufficient width, the roadbed already met the standard for a simple country highway. Walking was no trouble at all for Fu Fu—after all, he had a five-kilometer cross-country run every week.
+No ox-cart route ran from East Gate Market to Meiyang Village, but the road had been thoroughly improved. Footbridges had been put up along the way; low spots had been filled in; drainage ditches now lined either side; and gravel had been spread on the surface. Apart from insufficient width, the roadbed already met the standard for a simple country highway. Walking was no trouble at all for Fu Fu—after all, he did a five-kilometer cross-country run every week.
 
 The winter wind in Lingao was not cold; rather, it was cool and pleasant. From the mound, the tawny road wound between scrub-covered hillocks and the paddies. Most of the second rice crop had already been harvested; winter wheat, broad beans, and various green-manure cover crops were now planted. This area was a priority zone for the Tiandihui's promotion of new agricultural methods.
 
 This was a "new countryside" landscape the likes of which he had never seen—a little like the scenery in the "Australian picture cards" shown during political lessons. The "Australian villages" in those pictures were so beautiful they seemed like fairyland. Fu Fu had never dared believe that such lovely, prosperous villages existed anywhere in the world, or that fields could be so lush and handsome.
 
-He still remembered the old roadside scenery: the moment you left the village behind, you were swallowed by fearsome, desolate moorland and barren hills. Grass along the track grew taller than a man, so dense that an adult who walked into it would vanish instantly. Feral dogs prowled the wasteland, uttering low, terrifying barks. Elders used to say those dogs dug up corpses from the graveyards to eat… Since childhood, Fu Fu had heard every kind of horror story about the wilderness.
+He still remembered the old roadside scenery: the moment you left the village behind, you were swallowed by fearsome, desolate moorland and barren hills. Grass along the track grew taller than a man, so dense that an adult who walked into it would vanish instantly. Feral dogs prowled the wasteland, uttering low, terrifying barks. Elders used to say those dogs dug up corpses from the graveyards to eat... Since childhood, Fu Fu had heard every kind of horror story about the wilderness.
 
 The sprawling thickets that once blanketed the landscape had largely been cleared. Flat ground had mostly been converted to fields; only copses of timber remained on the slopes, and in some places saplings had been planted. Fu Fu had himself participated in "agricultural support" missions while in the army; he knew the hillside plantings were probably "economic forests"—fruit trees and the like.
 
@@ -30,13 +30,15 @@ Fu Fu quickened his pace toward the village. He could hardly wait to see Fu Yiji
 
 He walked along the road, glancing at the fields on either side. Many had been fitted with irrigation ditches and sluice gates—the army had contributed to these water-control projects. Two-thirds of Fu Fu's "agricultural support" assignments had been spent on irrigation construction.
 
-Near the village entrance, he saw two girls descending the slope beside the road. One wore the blue "work clothes"; the other was dressed in the local village style. Both carried rattan baskets on their backs, stuffed with tender cut grass. One of them also held a basket containing rice gleaned from the paddies along with chaff.
+Near the village entrance, he saw two girls descending the slope beside the road. One wore blue "work clothes"; the other was dressed in the local village style. Both carried rattan baskets on their backs, stuffed with tender cut grass. One of them also held a basket containing rice gleaned from the paddies along with chaff.
 
 From their gait and build, Fu Fu recognized them at once: Fu Yijin and Fu Xi. He called out, "Sister Yijin! Little Xi!"
 
 The two girls stopped and stared at him in astonishment.
 
-Seeing them halt, Fu Fu was certain. He hurried toward them. As he drew near, he could see even more clearly—who else could it be? Fu Yijin still wore her braid, bangs across her forehead, a wooden hairpin tucked in. Round-cheeked, her dark but bright eyes blinked at him in surprise. Truly a girl changes by the day—after two years, she looked entirely different. "Sister Yijin, it's me!" he called out.
+Seeing them halt, Fu Fu was certain. He hurried toward them. As he drew near, he could see even more clearly—who else could it be? Fu Yijin still wore her braid, bangs across her forehead, a wooden hairpin tucked in. Round-cheeked, her dark but bright eyes blinked at him in surprise. Truly a girl changes by the day—after two years, she looked entirely different.
+
+"Sister Yijin, it's me!" he called out.
 
 Fu Yijin and Fu Xi continued to stare at the strange soldier, unable to place him.
 

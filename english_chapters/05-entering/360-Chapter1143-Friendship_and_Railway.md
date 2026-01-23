@@ -1,91 +1,91 @@
 # Chapter 1143 - Friendship and Railway
 
-The distance from the trading house to the church wasn't far, but walking took over twenty minutes. The two walked slowly along the road, breathing fresh air carrying the sea breeze, while admiring the bustling construction scenes along the way. Westerly was interested in everything on the construction site: steam cranes, manual tipcarts, mixers... these clumsy, black, rough construction machines and vehicles from Lingao aroused endless interest in this boy.
+The walk from the trading house to the church wasn't far, but on foot it took over twenty minutes. The siblings strolled along the road, breathing in fresh air laced with the sea breeze, while taking in the bustling construction scenes on every side. Westerly found everything on the work sites fascinating: steam cranes, manual tipcarts, concrete mixers—these clumsy, blackened, roughly-hewn machines and vehicles from Lingao kindled endless curiosity in the boy.
 
-"Pity I didn't bring a sketchbook..." the boy said with excitement and regret. "I must get my sketchbook when we return from church!"
+"What a pity I didn't bring my sketchbook," he said, voice caught between excitement and regret. "I absolutely must fetch it when we return from church!"
 
-"Alright, alright," Cleadia said with a smile.
+"Yes, yes," Cleadia replied with an indulgent smile.
 
-They walked a distance and discovered a new road appearing parallel to the road ahead—no, calling it a road wasn't accurate; it was two iron rails lying across wooden timbers, extending into the distance.
+They walked on and discovered a new route running parallel to the road ahead—no, "road" wasn't quite right. Two iron rails lay across wooden beams, stretching toward the horizon.
 
-"Sister, this must be a railway," Westerly said. "I heard sailors say Australian docks all have these rails for moving heavy carts—similar to what the English use in quarries."
+"Sister, this must be a railway," Westerly declared. "I heard sailors say Australian docks all have these rails for moving heavy carts—similar to what the English use in their quarries."
 
-Rail laying had temporarily halted because rails hadn't arrived in time; only roadbed materials and some equipment were piled up. Westerly couldn't suppress his curiosity; he stepped off the road and climbed onto the roadbed.
+Rail-laying had temporarily halted due to a shipment delay; only roadbed materials and equipment lay piled about. Unable to suppress his curiosity, Westerly stepped off the road and clambered onto the embankment.
 
-Westerly squatted down, beginning to study the rails and sleepers, then carefully examining the spike connections. Cleadia knew her brother's hobby and waited aside for him.
+He squatted down to examine the rails and sleepers, then bent to inspect the spike connections. Cleadia knew her brother's nature well and waited patiently beside him.
 
 "No climbing on the roadbed!"
 
-Westerly had taken a few steps when he heard someone shouting—he didn't understand Chinese, so he just stared blankly toward the source of the sound.
+Westerly had taken only a few steps when someone shouted. He didn't understand Chinese, so he simply stared blankly in the direction of the voice.
 
-He saw a manual handcar flying toward them on the rails. Westerly looked at the vehicle curiously and said to Cleadia, "I think if we could ride that thing to church, it would be faster..."
+A manual handcar came flying toward them along the rails. Westerly studied the contraption with interest. "If we could ride that thing to church," he mused to Cleadia, "it would be much faster..."
 
-While they were speaking, they saw a young woman pumping the handcar alone. Upon closer look, it was Zhong Xiaoying. These days Zhong Xiaoying came to the trading house daily to chat with Cleadia and teach her Mandarin. They had become good friends.
+As they were speaking, they recognized the young woman pumping the handcar alone: it was Zhong Xiaoying. She had been visiting the trading house daily to chat with Cleadia and teach her Mandarin. The three had become fast friends.
 
-Zhong Xiaoying wiped sweat from her forehead. "Eh? It's you two? Why aren't you resting in the trading house? What are you doing climbing on the railway?"
+Zhong Xiaoying wiped sweat from her brow. "Eh? It's you two? Why aren't you resting at the trading house? What are you doing climbing around on the railway?"
 
-"Our vaccination scars have healed," Cleadia said first. "There's a church over there; we decided to go look."
+"Our vaccination scabs have healed," Cleadia answered first. "There's a church over there—we decided to go look."
 
-Westerly stepped forward and greeted her in stammering Cantonese: "Miss! Can I catch a ride?"
+Westerly stepped forward and greeted her in halting Cantonese: "Miss! Might I catch a ride?"
 
 Zhong Xiaoying smiled and shook her head, gesturing: "This car isn't safe..."
 
-Westerly shrugged helplessly. Suddenly struck by an idea, he pulled a pretty little cloth bag from his pocket and waved it at the girl: "Not riding for free; I have a gift..."
+Westerly shrugged in defeat. Then, struck by sudden inspiration, he fished a pretty little cloth bag from his pocket and waved it at her. "Not a free ride—I have a gift..."
 
-Zhong Xiaoying still shook her head. Cleadia had a way; she went up and whispered, gestured, and talked with Zhong Xiaoying. Finally, Zhong Xiaoying smiled at them: "In that case, get on..."
+Zhong Xiaoying still shook her head. But Cleadia had her own methods. She approached, leaning in to whisper, gesture, and negotiate. At last Zhong Xiaoying smiled at them both: "Very well then—hop on."
 
-Overjoyed, Westerly jumped onto the car, looking curiously at this handcar, seeming to want to ask about everything. Zhong Xiaoying knew what he meant and waved her hands repeatedly: "I only know how to use it; don't ask me how it works—you'd better ask my Honorable Father."
+Overjoyed, Westerly leapt onto the car and immediately began scrutinizing every detail, brimming with questions about its workings. Zhong Xiaoying grasped his intent and waved her hands. "I only know how to operate it—don't ask me how it works. You'd better ask my Honorable Father."
 
-"Dr. Zhong? I'll definitely go ask for instruction." Westerly was full of curiosity about Zhong Lishi. "Where is he now?"
+"Dr. Zhong? I shall certainly seek his instruction." Westerly's curiosity about Zhong Lishi was immense. "Where is he now?"
 
 ---
 
-"He's at Customs. Specifically: on the Customs Clock Tower—installing the big clock." Zhong Xiaoying said. "Hold that handle there, push down. Right, we have to put effort in together..."
+"At Customs. Specifically: on the Customs Clock Tower—installing the great clock." Zhong Xiaoying pointed. "Grab that handle there and push down. That's it—we need to pump together."
 
-Zhong Xiaoying and Westerly pumped the handcar together, advancing toward St. Anthony's Church. On the way, Westerly kept asking: "Can I go see the big clock Dr. Zhong is installing? I'm very interested in these mechanisms—" Seeming worried his request might not be accepted, "I learned metalworking and carpentry skills from an artist; I can help."
+Zhong Xiaoying and Westerly worked the handcar together, propelling themselves toward St. Anthony's Church. Along the way, Westerly peppered her with questions: "Might I see the great clock Dr. Zhong is installing? I'm terribly interested in mechanisms of all kinds—" Worried his request might be refused, he added, "I learned metalwork and carpentry skills from an artist. I can be useful."
 
-This speech was a bit difficult for Cleadia, whose Cantonese was at a very rudimentary level. She had to use all her skills to basically convey her brother's meaning.
+This lengthy speech tested Cleadia's rudimentary Cantonese to its limits. She had to summon all her linguistic resources to convey her brother's meaning.
 
-"Of course." Zhong Xiaoying smiled. "Honorable Father's carpentry skills aren't good; he'll be very happy to have a free worker."
+"Of course." Zhong Xiaoying smiled. "Honorable Father's carpentry skills aren't his strength. He'll be delighted to have a free worker."
 
-Cleadia asked, "There are so many people here; are they all immigrants you moved from China?"
+Cleadia asked, "All these people here—are they immigrants you brought from China?"
 
 "Yes. Taiwan originally had no civilized people. Only headhunting natives."
 
-"You are truly amazing," Cleadia said sincerely. Although Tayouan had existed for many years, it remained a desolate trading post. If not for Fort Zeelandia under construction, Tayouan wouldn't even count as a town.
+"What you've accomplished is truly remarkable," Cleadia said with genuine admiration. Tayouan had existed for years, yet it remained a desolate trading outpost. Were it not for Fort Zeelandia under construction, Tayouan would scarcely qualify as a town.
 
-"The Committee is amazing." Zhong Xiaoying's face showed an expression of infinite adoration.
+"The Committee is remarkable," Zhong Xiaoying replied, her face radiant with devotion.
 
-The church established by the Lingao Church in Kaohsiung was small, a wooden structure. This church and the New Daoism temple were neighbors: separated only by a road. Both sides were peaceful enough, their goals the same: continuing the battle of "eradicating heresy" started on Qimu Island. He Ying's instructions to both major churches explicitly required them to "save souls" with the strictest posture.
+The church established by the Lingao mission in Kaohsiung was modest—a wooden structure of humble proportions. It stood adjacent to the New Daoism temple, separated only by a road. The two institutions coexisted peacefully enough, their goals identical: continuing the battle of "eradicating heresy" that had begun on Qimu Island. He Ying's instructions to both major churches explicitly required them to "save souls" with the utmost rigor.
 
-Missionaries sent from Macau were bent on surpassing New Daoism in the battle of "saving souls," so fanatical in the "eradicating heresy" battle in refugee camps that a priest carelessly caught an infectious disease and was summoned by the Lord. Since Macau had no one to send immediately, the Lingao Church sent John Dermot. This red-headed Irishman was happy to escape the endless work of painting stained glass and frescoes, taking up the post happily.
+The missionaries dispatched from Macau were bent on surpassing New Daoism in this contest of souls. They pursued "heretics" in the refugee camps with such fanaticism that one priest carelessly contracted an infectious disease and was called home to the Lord. Since Macau had no replacement available immediately, the Lingao Church sent John Dermot instead. The red-headed Irishman was only too happy to escape the endless labor of painting stained glass and frescoes, and he took up the post with enthusiasm.
 
-However, when Zhong Xiaoying accompanied the siblings into the church, John Dermot was still squatting gloomily by the wall painting frescoes. This prefabricated small church manufactured by Lingao Construction Corporation had no decoration; he had to do it all himself.
+However, when Zhong Xiaoying accompanied the siblings into the church, John Dermot was still crouched gloomily by the wall, painting frescoes. This prefabricated chapel manufactured by the Lingao Construction Corporation had been delivered bare; all decoration fell to him.
 
-And things didn't end there. Since that Committee member Zhong with the receding hairline arrived in Kaohsiung, he'd been coercing and bribing him to make iron hands and numerals for the big clock—and specifically demanded Gothic script.
+And the demands didn't stop there. Ever since that Committee member Zhong with the receding hairline arrived in Kaohsiung, he had been alternately cajoling and pressuring Dermot to forge iron hands and numerals for the great clock—and he specifically demanded Gothic lettering.
 
-John Dermot felt it hard to balance church beautification, soul saving, and serving the Committee. Especially the first two were supremely important to him. But thinking of the Bishop's teachings before departure, he dared not refuse Committee Member Zhong's request.
+John Dermot found it impossible to balance church beautification, soul-saving, and Committee service. The first two were supremely important to him. But recalling the Bishop's admonitions before his departure, he dared not refuse Committee Member Zhong's requests.
 
-Today Committee Member Zhong appeared again. Just as he was helpless, the appearance of Zhong Xiaoying's group temporarily rescued him from his predicament—Dr. Zhong was entangled by Westerly: this boy was full of curiosity about the big clock he was building, constantly asking this and that.
+Today Committee Member Zhong had appeared again. Just as Dermot felt his predicament becoming untenable, the arrival of Zhong Xiaoying's group temporarily rescued him—for Dr. Zhong was immediately entangled by Westerly. The boy's curiosity about the great clock proved inexhaustible; he peppered the older man with one question after another.
 
-"Mr. Zhong, may I look at the mechanism inside that big clock?" Westerly finally asked.
+"Mr. Zhong, might I examine the mechanism inside the great clock?" Westerly finally asked.
 
-"Of course. Won't you rest a few more days?"
+"Certainly. Won't you rest a few more days first?"
 
-"This child can't wait..." Cleadia smiled. "Dr. Zhong, rest assured, my brother knows metalworking and carpentry. You can find a use for him."
+"This child cannot wait..." Cleadia smiled. "Dr. Zhong, rest assured—my brother knows metalwork and carpentry. You'll find a use for him."
 
-"Alright. You can come find me directly at the Customs Clock Tower tomorrow." Zhong Lishi nodded. "Xiaoying and I are living at Customs these days."
+"Very well. Come find me directly at the Customs Clock Tower tomorrow." Zhong Lishi nodded. "Xiaoying and I are residing at Customs these days."
 
-"Then can Sister and I also move into Customs? That way we can ask for your instruction day and night," Westerly said.
+"Then might Sister and I also move into Customs?" Westerly pressed. "That way we can seek your instruction at every hour."
 
-Zhong Lishi thought for a moment. "Yes. But you need to apply to the trading house and fulfill necessary procedures."
+Zhong Lishi considered for a moment. "Yes, you may. But you'll need to apply to the trading house and complete the necessary procedures."
 
-The next day, the Westerly siblings moved into the Customs Building with their luggage—although Kaohsiung Customs was operational, actual business volume was tiny, and there were many empty rooms above the second floor. After finding a room, Westerly couldn't wait to join the clock construction team.
+The next day, the siblings moved into the Customs Building with their luggage. Though Kaohsiung Customs was operational, actual business volume remained negligible, leaving many empty rooms above the second floor. After settling into their quarters, Westerly couldn't wait to join the clock construction team.
 
-There were several craftsmen on the clock tower, mostly carpenters, led by Ma Linxi, a refugee taken in from Shandong.
+Several craftsmen were at work on the clock tower, mostly carpenters, led by Ma Linxi—a refugee recruited from Shandong.
 
-After retrieving his life from the icy sea, Ma Linxi was sent to Jeju Island. He stayed there forty days. As a skilled man, he was viewed differently in the refugee camp and quickly incorporated into a direct-subordinate labor team to participate in Jeju Island construction. Naturally, the food quality he received was better than average refugees.
+After nearly drowning in the frozen sea and being hauled back from death's edge, Ma Linxi was shipped to Jeju Island. He remained there forty days. As a skilled tradesman, he attracted favorable attention in the refugee camp and was swiftly incorporated into a direct-subordinate labor team for Jeju Island construction projects. Naturally, his rations were of better quality than the average refugee's.
 
-In a few months, he passed a Class C diploma exam. Then he was shipped to Taiwan preparing for transshipment back to Lingao to enrich Lingao Construction Corporation's skilled worker team. However, Ma Linxi's skills had gained him some fame, so Hong Laojun intercepted him and incorporated him into the direct-subordinate engineering team. Shi Dafu felt he had potential and taught him some simple blueprint reading and drawing techniques.
+Within a few months, he passed a Class C diploma examination. He was then slated for transport to Taiwan, en route to Lingao, where he would augment the Lingao Construction Corporation's skilled workforce. But Ma Linxi's reputation had preceded him—Hong Laojun intercepted him and folded him into the direct-subordinate engineering team. Shi Dafu, recognizing his potential, taught him simple blueprint reading and drafting techniques.
 
 (End of Chapter)

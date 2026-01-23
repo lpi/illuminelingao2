@@ -1,95 +1,99 @@
 # Chapter 1146 - The Situation in Fujian
 
-"Sit." Ming Qiu pointed to a chair opposite him.
+"Sit." Ming Qiu gestured to a chair opposite him.
 
-"Yes, thank you, Commissar." Xu Ke sat down straight.
+"Yes. Thank you, Commissar." Xu Ke seated himself, back straight.
 
-"Need some water?" Ming Qiu pushed a cold water bottle over—the office wasn't air-conditioned, but an electric fan was whirring away.
+"Care for some water?" Ming Qiu slid a bottle of cold water across the desk. The office lacked air conditioning, but an electric fan whirred steadily overhead.
 
-"No thanks, I'm not thirsty."
+"No, thank you—I'm not thirsty."
 
-"How is the intelligence work going?" Ming Qiu asked pleasantly.
+"How is the intelligence work progressing?" Ming Qiu inquired, tone conversational.
 
-"Very chaotic. Too much information, hard to verify..." Xu Ke reported honestly. "But there's no major sign of Zheng Zhilong mobilizing troops."
+"Chaotic, to be frank. The volume of information is overwhelming, and verification is difficult..." Xu Ke reported honestly. "But there's no indication that Zheng Zhilong is mobilizing forces."
 
-"It's about the recent situation in Fujian..." Ming Qiu paused. "You know, the General Staff is very concerned about Zheng Zhilong's movements. They suspect he might take advantage of our current main force being tied up in Operation Engine to make a move."
+"It's the situation in Fujian that concerns me..." Ming Qiu paused. "You're aware that the General Staff is extremely attentive to Zheng Zhilong's movements. They suspect he may exploit the fact that our main forces are committed to Operation Engine to make a move."
 
-"According to our intelligence, Zheng Zhilong is currently busy consolidating his power in Fujian. He's suppressing pirates who haven't submitted to him and expanding his trade network. He doesn't seem to have the intention or capacity to provoke us right now."
+"According to our intelligence, Zheng Zhilong is currently preoccupied with consolidating his power in Fujian—suppressing pirates who haven't submitted to him and expanding his trade network. He doesn't appear to have either the intention or the capacity to provoke us at present."
 
-"That's good. But we can't let our guard down. The Dutch have been very active recently too." Ming Qiu stood up and walked to the large map on the wall. "Huygens' visit, Li Siya's activities... these are all signals. We must be prepared for worst-case scenarios."
+"That's reassuring. But we mustn't grow complacent. The Dutch have been quite active lately as well." Ming Qiu rose and walked to a large map mounted on the wall. "Huygens' visit, Li Siya's machinations... these are all signals. We must prepare for worst-case scenarios."
 
-Ming Qiu pointed to the Taiwan Strait on the map. "If a conflict breaks out, our First Fleet will bear the brunt. We need precise intelligence on enemy ship numbers, cannon configurations, and base defenses. Can you guarantee this?"
+He tapped the Taiwan Strait on the map. "If conflict erupts, our First Fleet will bear the brunt. We need precise intelligence on enemy ship numbers, cannon configurations, and base defenses. Can you guarantee that?"
 
-"We are doing our best to collect it. But penetrating their core circle is difficult," Xu Ke admitted. "Zheng Zhilong is very suspicious of outsiders."
+"We're doing everything in our power to gather it. But penetrating their inner circle is difficult," Xu Ke admitted. "Zheng Zhilong is deeply suspicious of outsiders."
 
-"I understand. But you have to find a way." Ming Qiu turned back, his gaze sharp. "This is war, Lieutenant. Information asymmetry can be fatal."
+"I understand. But you must find a way." Ming Qiu turned back, his gaze sharpening. "This is war, Lieutenant. Information asymmetry can be fatal."
 
 "Yes, Commissar!"
 
-"Also, regarding Li Siya..." Ming Qiu lowered his voice. "We have reason to believe she is planning something. Keep a close eye on her movements. If necessary..." He made a cutting gesture.
+"Also, regarding Li Siya..." Ming Qiu's voice dropped. "We have reason to believe she's planning something. Keep a close eye on her movements. If necessary..." He drew a finger across his throat.
 
-Xu Ke's heart skipped a beat. "Understood."
+Xu Ke's heart lurched. "Understood."
 
-"Go back and write a detailed analysis report focusing on the potential threat of a Zheng-Dutch alliance. I need it tomorrow morning."
+"Return to your office and compose a detailed analytical report focusing on the potential threat of a Zheng-Dutch alliance. I need it on my desk by tomorrow morning."
 
-"Yes!" Xu Ke stood up and saluted, then turned to leave.
+"Yes, sir!" Xu Ke rose, saluted, and turned to leave.
 
-Walking out of the headquarters, Xu Ke felt a heavy weight on his shoulders. The tropical sun was scorching, but he felt a chill. The shadow of war was looming, and he was the scout standing at the forefront.
+Walking out of headquarters, he felt the weight of responsibility settle upon his shoulders. The tropical sun blazed down, yet a chill crept through him. The shadow of war was gathering, and he stood at the vanguard.
 
-Returning to the office, Xu Ke immediately convened a meeting of key intelligence personnel to re-analyze recent intelligence reports, looking for any overlooked clues.
+---
 
-"Chief, look at this..." An analyst handed over a report. "Recently, raw silk shipments from Zhangzhou to Tayouan have suddenly increased."
+Back at the office, Xu Ke immediately convened a meeting of key intelligence personnel to re-examine recent reports and hunt for overlooked clues.
 
-"Raw silk?" Xu Ke frowned. "The Dutch trade with Japan requires large amounts of raw silk. But why the sudden increase?"
+"Chief, take a look at this..." An analyst slid a document across the table. "Raw silk shipments from Zhangzhou to Tayouan have increased sharply of late."
+
+"Raw silk?" Xu Ke frowned. "Dutch trade with Japan requires large quantities of raw silk. But why the sudden spike?"
 
 "Could they be stockpiling goods in preparation for war?"
 
-"Possible. Or maybe..." Xu Ke's eyes lit up. "They are preparing a heavy gift for the Shogunate to facilitate the negotiations mentioned by Wei Bachi!"
+"Possibly. Or perhaps..." Xu Ke's eyes lit with sudden insight. "They're assembling a lavish gift for the Shogunate to smooth the negotiations Wei Bachi mentioned!"
 
-"If negotiations succeed, the Dutch will be free to deal with us."
+"And if negotiations succeed, the Dutch will have free hands to deal with us."
 
-"Exactly." Xu Ke nodded. "This is a critical piece of intelligence. We must verify the final destination of this batch of raw silk."
+"Exactly." Xu Ke nodded decisively. "This is critical intelligence. We must verify the final destination of this silk shipment."
 
 ---
 
 Meanwhile, in Anping, Li Siya was meeting with Zheng Zhifeng.
 
-"The Dutch are willing to talk?" Zheng Zhifeng asked, playing with a jade thumb ring.
+"The Dutch are willing to talk?" Zheng Zhifeng asked, idly turning a jade archer's ring between his fingers.
 
-"Yes. But they want to see our sincerity first," Li Siya said. "They want us to help them restrain the Australian expansion in Taiwan."
+"Yes. But they want to see our sincerity first," Li Siya replied. "They want us to help them restrain Australian expansion in Taiwan."
 
 "Restrain? How?"
 
-"They hope we can use our influence among Fujian immigrants to create some trouble for the Australians. Strikes, riots, rumors... anything to slow down their construction."
+"They hope we'll use our influence among Fujian immigrants to create difficulties for the Australians. Strikes, riots, rumors... anything to slow their construction."
 
-Zheng Zhifeng sneered. "The Redhairs are good at calculating. Wanting us to be the bird shot by the gun?"
+Zheng Zhifeng sneered. "The Red-hairs are masterful calculators. They want us to be the bird flushed from the brush, shot by the hunter?"
 
-"But this is also in our interest, isn't it?" Li Siya persuaded. "Australian expansion is too fast. If they gain a firm foothold in Taiwan, your brother's dominance at sea will be threatened."
+"Yet this is in our interest too, is it not?" Li Siya pressed. "Australian expansion proceeds too swiftly. If they establish a firm foothold in Taiwan, your brother's dominion over these seas will be threatened."
 
-Zheng Zhifeng went silent. He knew Li Siya was right. The Australian "giant ships and cannons" had left a deep impression on them.
+Zheng Zhifeng fell silent. He knew she was right. The Australian "giant ships and great cannons" had left an indelible impression.
 
-"I will report this to my brother," Zheng Zhifeng finally said. "But don't expect too much. Brother is currently focusing on officialdom; he doesn't want to provoke the Australians easily."
+"I will convey this to my brother," he said at last. "But don't expect too much. He's focused on cultivating the Court at present; he has no wish to provoke the Australians prematurely."
 
-"I understand. But please remind Lord Zheng that the Australians won't be content with just Taiwan. Their goal is the entire East Asian sea."
+"I understand. But please remind Lord Zheng: the Australians will not content themselves with Taiwan alone. Their goal is the entire East Asian sea."
 
-Leaving the Zheng residence, Li Siya let out a long breath. She knew convincing Zheng Zhilong wouldn't be easy. This pirate-turned-official was now more concerned with preserving his wealth and position. But she had other cards to play.
+Departing the Zheng residence, Li Siya exhaled slowly. Persuading Zheng Zhilong would not be simple. This pirate-turned-official was now far more concerned with preserving his wealth and position. But she had other cards to play.
 
-Back in Kaohsiung, construction continued in full swing. The arrival of the Dutch guests didn't slow down the pace; instead, it seemed to show off Australian efficiency, accelerating progress.
+---
 
-Westerly and Cleadia worked happily at the clock tower every day. They had completely integrated into this strange collective. Westerly even learned to use simple Chinese to ask specifically for tools: "Hammer," "Saw," "File"...
+Back in Kaohsiung, construction proceeded at a blistering pace. The arrival of the Dutch guests hadn't slowed progress; if anything, the pace had quickened, as though to showcase Australian efficiency.
 
-Zhong Lishi liked this eager-to-learn boy very much. He sometimes even personally explained mechanical principles to him. Although language barriers existed, the language of science was universal. Through drawings and gestures, they communicated surprisingly smoothly.
+Westerly and Cleadia worked cheerfully at the clock tower each day, fully absorbed into this strange collective. Westerly had even learned to request specific tools in simple Chinese: "Hammer." "Saw." "File."
 
-"Dr. Zhong, your design is truly genius!" Westerly exclaimed while pointing at the escapement mechanism drawing.
+Zhong Lishi had grown quite fond of the eager boy. He sometimes took time to personally explain mechanical principles to him. Though language barriers remained, the language of science was universal. Through diagrams and gestures, they communicated with surprising fluency.
 
-"This is the crystallization of predecessors' wisdom," Zhong Lishi said modestly—though "predecessors" referred to scientists hundreds of years later.
+"Dr. Zhong, your design is pure genius!" Westerly exclaimed, pointing at a drawing of the escapement mechanism.
 
-Huygens was also frequenting Dr. Zhong. They discussed everything from astronomy to geography, from mathematics to philosophy. Huygens was deeply shocked by Dr. Zhong's erudition. He realized these Australians possessed knowledge far surpassing contemporary Europe.
+"This is the crystallization of our forebears' wisdom," Zhong Lishi replied modestly—though those "forebears" referred to scientists who wouldn't be born for centuries.
 
-"If possible, I really wish to invite you to lecture in Europe," Huygens said sincerely.
+Huygens, too, visited Dr. Zhong frequently. Their discussions ranged from astronomy to geography, from mathematics to philosophy. Huygens found himself profoundly shaken by Dr. Zhong's erudition. He realized the Australians possessed knowledge far exceeding contemporary Europe's.
 
-"Perhaps there will be a chance in the future," Dr. Zhong smiled. "But for now, we have more important work to do."
+"If it were possible, I would dearly love to invite you to lecture in Europe," Huygens said with evident sincerity.
 
-Indeed, a huge storm was brewing—both metaphorically and literally.
+"Perhaps there will be an opportunity in the future," Dr. Zhong replied with a smile. "But for now, we have more urgent work to attend to."
+
+Indeed, a great storm was gathering—both figuratively and literally.
 
 (End of Chapter)

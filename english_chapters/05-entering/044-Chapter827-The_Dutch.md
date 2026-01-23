@@ -1,87 +1,91 @@
-# Chapter 827: The Dutch
+# Chapter 827 - The Dutch
 
-The envoy was stunned, probably not expecting the Governor to suddenly ask about the Australians.
+The envoy seemed taken aback—he clearly hadn't expected the Governor to suddenly raise the subject of the Australians.
 
-"They are a group of people from overseas! They claim to be descendants of the Great Song," the envoy said, probably realizing that saying "Great Song" to a foreign devil was like playing the lute to a cow, and corrected himself, "That is to say, they claim to be descendants of Chinese people."
+"They are a group from overseas! They claim to be descendants of the Great Song—" He paused, apparently realizing that invoking "Great Song" to a foreign devil was like playing the lute to a cow. He corrected himself: "That is to say, they claim to be descendants of Chinese people."
 
-This point was no different from Li Siya's report. The Governor nodded secretly and asked a few other things about the Australians. The envoy seemed very willing to answer his questions and said a lot about the Australians—of course, mostly rumors. Although Old Liu Xiang had fought a battle with the Australians, he had never had formal contact with this opponent. Most of the news was hearsay; some came from people who were captured during the attack on Bopu and later released, and another part came from reports by his spies.
+This aligned precisely with Li Siya's report. The Governor nodded to himself and asked several more questions about the Australians. The envoy seemed quite willing to answer, providing extensive information about this mysterious group—though most of it was rumor. While Old Liu Xiang had fought one battle with the Australians, he had never established formal contact with his opponent. Most of his intelligence came from hearsay; some derived from men who had been captured during the attack on Bopu and later released; the rest came from spy reports.
 
-Although Old Liu Xiang had withdrawn from the Pearl River Estuary due to pressure from Zheng Zhilong before the second counter-encirclement campaign, avoiding direct conflict with the Transmigration Group, he had planted many spies in the area. He knew all the news about the Transmigration Group defeating He Rubin, shelling the Bogue forts, and pressing directly on Guangzhou city. Although the Australians hiding in the remote backwaters had strong ships and sharp cannons in the past, their sudden eruption of such combat power was something he had not anticipated.
+Although Old Liu Xiang had withdrawn from the Pearl River Estuary before the second counter-encirclement campaign—ceding ground to avoid conflict with Zheng Zhilong—he had planted numerous agents throughout the area. He knew all about the Transmigration Group's defeat of He Rubin, their shelling of the Bogue forts, and their advance directly upon the walls of Guangzhou. The Australians had always seemed a force hiding in remote backwaters, possessing strong ships and sharp cannons—but their sudden eruption of such overwhelming combat power was something he had never anticipated.
 
-Fortunately, the Australians did not seem to intend to be his enemy. Their seizure of the Pearl River Estuary certainly annoyed him, but now he dared not fight on two fronts under any circumstances. He had to deal with Zheng Zhilong first.
+Fortunately, the Australians appeared to harbor no hostile intentions toward him. Their seizure of the Pearl River Estuary certainly provoked his irritation, but under no circumstances could he afford to fight on two fronts. Zheng Zhilong had to be dealt with first.
 
-The Governor listened very seriously and carefully to the envoy's chatter without interrupting him. Only when the other party stopped did he ask a few questions. Gathering intelligence on the Australians was his main interest now. The fact that Liu Xiang had conflicted with the Australians was something he had not expected. And the fact that the Chinese government had actually dispatched a large army to punish Lingao but was defeated by the Australians interested him even more.
+The Governor listened with careful attention, never interrupting. Only when the envoy paused did he ask clarifying questions. Gathering intelligence on the Australians was his primary interest now. The fact that Liu Xiang had clashed with the Australians was something he had not anticipated. And the revelation that the Chinese government had dispatched a great army to punish Lingao—only to be defeated by the Australians—interested him intensely.
 
-Although the Dutch had a very low opinion of the Ming army's combat level, every military operation on the Chinese coast had been defeated by the deterrence of the Ming army's seemingly endless manpower and resources. As fellow outsiders, the fact that the Australians occupying a corner of the Ming Empire could withstand the tide-like army that had once terrified the Company and successfully partitioned a piece of Chinese land made De Carpentier feel a strong interest in this.
+Though the Dutch generally held a low opinion of Ming military competence, every Dutch military operation along the Chinese coast had ultimately been deterred by the seemingly inexhaustible manpower and resources the Ming could bring to bear. That these Australians—fellow outsiders who had occupied a corner of the Ming Empire—could withstand the tide-like army that had once terrified the Company and successfully carve out a piece of Chinese territory... this made De Carpentier feel a profound curiosity about them.
 
-The news revealed by a war was more than all intelligence reports combined. De Carpentier had heard many rumors about the Australians' amazing level of firearms, and the two victories the Australians had won seemed to explain a lot of problems.
+The news revealed by a single battle was worth more than all intelligence reports combined. De Carpentier had heard endless rumors about the Australians' astonishing firearms, and their two victories seemed to confirm much of what had been whispered.
 
-Clearly, the Australians were a potent force. He rang a bell and summoned the attendant outside.
+Clearly, the Australians were a potent force. He rang the bell and summoned the attendant waiting outside.
 
-"Take this gentleman down to rest," he said.
+"Take this gentleman down to rest," he ordered.
 
-That night, at the dinner for the Governor and the senior merchants of Batavia, a discussion was held on how to treat the Australians, whether to aid Old Liu Xiang, and how to deal with Zheng Zhilong.
+---
 
-The East India Company's military strength in Batavia was very weak. When the expedition against China was launched a few years ago, only seven ships were sent. When going to conquer Macau, there were only fourteen ships. The total number of army troops was considerable, but these companies were scattered among dozens of trade posts throughout Java, spanning thousands of kilometers for the East India Company. Soldiers recruited from Europe thousands of miles away died constantly like flies in the hot and humid climate and unhygienic environment. Now, replenishing the vacancies in the companies at various strongholds seemed difficult to the Governor; he lacked the strength to launch another large-scale expedition.
+That evening, at a dinner gathering the Governor and Batavia's senior merchants, discussion turned to how to treat the Australians, whether to aid Old Liu Xiang, and how to manage Zheng Zhilong.
 
-As for the auxiliary troops composed of a small number of local natives, no one held much hope for their combat effectiveness. It was even hard to say whether these natives were trustworthy.
+The East India Company's military strength in Batavia was decidedly limited. The expedition launched against China a few years earlier had involved only seven ships. The assault on Macau had employed merely fourteen. The total number of army troops was considerable, but these companies were scattered across dozens of trading posts throughout Java, spanning thousands of kilometers in the Company's service. Soldiers recruited from Europe—shipped thousands of miles across the ocean—died constantly, like flies, in the hot, humid climate and unsanitary conditions. Simply filling the vacancies in the existing garrisons seemed a daunting task to the Governor; he lacked the strength to mount another large-scale expedition.
 
-Participating in military conflicts in the South China Sea with limited military power was beyond the Dutch's ability, not to mention that Zheng Zhilong still held the lifeline of the East India Company's trade with China. Therefore, the merchants believed that the Governor's decision to refuse to send ships to participate directly in the battle was correct. As for whether to aid Liu Xiang with ships and cannons, there was some debate among the senior merchants. Some believed that cannons were manageable, after all, European-style cannons had spread quite widely throughout East Asia. But pirates using European-style ships were still a tiny minority. Suddenly adding two European ships to Old Liu Xiang's fleet would seriously provoke Zheng Zhilong and might cause adverse effects for the Company.
+As for the auxiliary troops composed of a small number of recruited local natives, no one harbored much hope for their combat effectiveness. It was questionable whether these natives could even be trusted.
 
-Several other senior merchants supported selling the ships to Old Liu Xiang to check Zheng Zhilong's power. The Governor was inclined towards this side.
+Undertaking military commitments in the South China Sea with such limited forces exceeded Dutch capabilities—particularly when Zheng Zhilong still held the lifeline of the Company's trade with China. The merchants therefore concluded that the Governor's decision to refuse direct naval participation in the battle was correct. As for aiding Liu Xiang with ships and cannons, some debate arose among the senior merchants. Several believed that cannons were manageable—after all, European-style artillery had spread quite widely throughout East Asia. But pirates using European-style ships remained a tiny minority. Suddenly adding two European vessels to Old Liu Xiang's fleet would seriously provoke Zheng Zhilong and might produce adverse consequences for the Company.
 
-"Gentlemen, the issue of ships is not a problem," the Governor said, tapping lightly on the table. "In the entire East Asian region, we are not the only ones who can provide ships. The Xibanks, whether in Manila or the Xibanks in Macau, have the ability to strengthen Old Liu Xiang with ships. Do not forget, in the several conflicts between Liu and Zheng in the previous stage, a Spanish galleon participated directly in the battle. Even if Iquan suspects, the biggest suspects are the Xibanks. We can completely deny all this. Besides, do you think Zheng Zhilong would fall out with us before deciding the victor with Old Liu Xiang?"
+Other senior merchants advocated selling the ships to Old Liu Xiang as a means of checking Zheng Zhilong's growing power. The Governor inclined toward this view.
 
-Furthermore, selling two waste ships that would likely only be scrapped for firewood and ship timber was profitable for the Company. After all, Old Liu Xiang was willing to pay cash. As for the sailor problem, he could recruit them himself—whether in Batavia, Manila, or Macau, one could recruit scum of various nationalities willing to sail and fight for money.
+"Gentlemen, the question of ships is not truly a problem," the Governor said, tapping lightly on the table. "Throughout the entire East Asian region, we are not the only party capable of providing ships. The Spanish in Manila, the Spanish in Macau—both could strengthen Old Liu Xiang with vessels if they chose. Let us not forget that in several recent clashes between Liu and Zheng, a Spanish galleon participated directly in battle. Even if Iquan suspects foul play, the primary suspects will be the Spanish. We can deny everything completely. Besides—do you truly believe Zheng Zhilong would break with us before he settles matters decisively with Old Liu Xiang?"
 
-Everyone finally agreed to the proposal to sell the *Alert* and the *Ardent* to Old Liu Xiang. Including all weapons and navigation equipment on the two ships. The *Ardent* for 10,000 Spanish Reals, and the *Alert* for 7,000 Spanish Reals. In addition, they would sell 10 bronze 12-pounder naval guns and 24 iron 6-pounder and 12-pounder naval guns to Old Liu Xiang. And 400 matchlocks.
+Furthermore, selling two derelict ships that would otherwise likely be scrapped for firewood and timber was profitable for the Company. After all, Old Liu Xiang was willing to pay cash. As for the crew shortage, he could recruit his own sailors—in Batavia, Manila, or Macau, one could always find scum of various nationalities willing to sail and fight for money.
 
-"Your Excellency, do you think it is possible for Old Liu Xiang to defeat Iquan?" a merchant asked.
+The assembly ultimately agreed to the proposal to sell the *Alert* and the *Ardent* to Old Liu Xiang, complete with all weapons and navigation equipment. The *Ardent* would fetch ten thousand Spanish Reals; the *Alert*, seven thousand. Additionally, they would sell him ten bronze 12-pounder naval guns and twenty-four iron 6-pounder and 12-pounder naval guns, along with four hundred matchlocks.
 
-"It's hard to say." De Carpentier shook his head. "It is said that the strength of both sides is about the same. But Iquan is obviously more dominant—he has the support of the Chinese court. And Iquan has already defeated all opponents on the Fujian seas, including those who were once very powerful."
+"Your Excellency, do you believe it possible for Old Liu Xiang to defeat Iquan?" one merchant asked.
 
-In the Governor's view: if Old Liu Xiang could not win continuously or kill Zheng Zhilong himself in a certain battle, eventually Old Liu Xiang would fail.
+"It is difficult to say." De Carpentier shook his head. "By all accounts, the strength of both sides is roughly comparable. But Iquan clearly holds the advantage—he has the backing of the Chinese court. And Iquan has already defeated all rivals on the Fujian seas, including some who were once very powerful."
 
-A sigh of regret rang around the dining table. Old Liu Xiang could not be called an ally, but with him around, Zheng Zhilong's attitude could be somewhat looser. Once Old Liu Xiang fell, there would be no force capable of containing Zheng Zhilong.
+In the Governor's assessment, unless Old Liu Xiang could win continuously—or kill Zheng Zhilong himself in a single decisive engagement—he would eventually be ground down to defeat.
 
-"Gentlemen, even without Old Liu Xiang, there are others in this world." De Carpentier spoke his thoughts. "Have you ever heard of the Australians?"
+A sigh of regret circled the dining table. Old Liu Xiang could not truly be called an ally, but so long as he remained in play, Zheng Zhilong's attitude could be kept somewhat in check. Once Old Liu Xiang fell, no force would remain capable of containing Zheng Zhilong.
 
-The Governor sat in an armchair. From the long window next to his desk, he could see the city of Batavia. This city had been under construction since 1619, constantly expanding and strengthening over more than a decade, and now began to take shape. De Carpentier had no doubt that the Governor sitting in this position in the future would see a more prosperous and great Batavia.
+"Gentlemen, even without Old Liu Xiang, there are others in this world." De Carpentier gave voice to the thought that had been forming in his mind. "Have any of you heard of the Australians?"
 
-A knock sounded outside.
+---
+
+The Governor sat in his armchair. Through the tall window beside his desk, he could see the city of Batavia spread out before him. Construction had been underway since 1619, and the city had been continuously expanding and strengthening over more than a decade. Now it was beginning to take recognizable shape. De Carpentier had no doubt that whoever occupied this seat in the future would look out upon an even more prosperous and magnificent Batavia.
+
+A knock sounded at the door.
 
 "Come in."
 
-His secretary appeared at the door.
+His secretary appeared in the doorway.
 
-"Your Excellency, the Junior Merchant Van der Lanthroon you summoned has arrived."
+"Your Excellency, the Junior Merchant Van der Lanthroon, whom you summoned, has arrived."
 
 "Show him in."
 
-Van der Lanthroon walked in carefully from the main door. He was probably in his early thirties, with a reserved face. This man was a nobleman from Zeeland, had served in the navy, and fought in wars. Now he was a Junior Merchant in the East India Company. However, even a Junior Merchant was ranked above other general company employees. On East India Company ships, only the Merchant had the highest command authority. In many trading posts, the Merchant possessed all power.
+Van der Lanthroon entered carefully through the main door. He appeared to be in his early thirties, with a reserved, watchful face. This man was a nobleman from Zeeland who had served in the navy and seen battle. Now he held the rank of Junior Merchant in the East India Company. Though a Junior Merchant ranked above ordinary Company employees, such a position carried limited authority. On East India Company ships, only the Merchant wielded supreme command. At many trading posts, the Merchant possessed absolute power.
 
-But as a Junior Merchant, Van der Lanthroon's authority had never exceeded a single merchant ship. He desperately hoped to become a Merchant for a fleet or a certain trading post. The Dutch East India Company was a company that treated its employees very harshly; although the dividends given to shareholders by the East India Company every year could reach thousands of guilders per share, the remuneration given to employees was meager. A Junior Merchant only had a monthly salary of twenty guilders and a food allowance equivalent to a quarter of the salary. Serving the Dutch East India Company law-abidingly was no way to get rich. Climbing to a high position as much as possible and using the power in hand to smuggle was their only chance to get rich in the Far East.
+But as a Junior Merchant, Van der Lanthroon's authority had never extended beyond a single merchant vessel. He desperately hoped to rise to the position of Merchant—whether for a fleet or a trading post. The Dutch East India Company was a company that treated its employees with notorious stinginess; though the annual dividends paid to shareholders could reach thousands of guilders per share, the remuneration given to employees was meager. A Junior Merchant earned only twenty guilders per month, plus a food allowance worth roughly a quarter of his salary. Serving the Dutch East India Company faithfully was no path to wealth. Climbing as high as possible and exploiting the power of one's position to smuggle on the side—that was the only way to grow rich in the Far East.
 
-Van der Lanthroon took off his hat and bowed deeply to the Governor.
+Van der Lanthroon removed his hat and bowed deeply to the Governor.
 
-"Mr. Van der Lanthroon," De Carpentier said briefly, "I now appoint you as the Merchant on the *Magdeburg*."
+"Mr. Van der Lanthroon," De Carpentier said without preamble, "I am appointing you Merchant aboard the *Magdeburg*."
 
-The *Magdeburg* was a "yacht"—in fact, this type of ship was neither "fast" nor a "yacht." It was a flat-bottomed ship often used by the Dutch in the East Indies, with a load of 400-600 tons, a rounded stern, and a towering poop deck. The ship sailed very slowly and was mainly used as a merchant ship and transport vessel. But because the construction period was short, it carried a lot of cargo, and required few sailors, it met the needs of the "Sea Coachmen."
+The *Magdeburg* was classified as a "yacht"—though in truth, this type of vessel was neither particularly fast nor yacht-like in any conventional sense. It was a flat-bottomed ship commonly used by the Dutch in the East Indies, with a displacement of four to six hundred tons, a rounded stern, and a towering poop deck. Such ships sailed quite slowly and served primarily as cargo vessels and transports. But because they required short construction periods, carried substantial freight, and needed relatively few sailors, they met the practical needs of the "Sea Coachmen."
 
-Although Van der Lanthroon was not promoted to a senior position, the *Magdeburg* was a large ship, much more important than the two-masted small boat he was currently on. So this order still made him very happy.
+Though this was not a promotion to senior rank, the *Magdeburg* was a large vessel—far more significant than the two-masted boat Van der Lanthroon currently served on. The assignment brought a flush of pleasure to his face.
 
 "Thank you, Your Excellency!"
 
-"No need to thank me, thank our masters." The Governor said, "Prepare immediately after you get on the ship. I want you to prepare to go to Lingao immediately to trade with the Australians."
+"No need to thank me; thank our Masters." The Governor used the Company euphemism. "Begin preparations immediately after you join the ship. I want you ready to sail for Lingao at once to trade with the Australians."
 
-"Lingao?" Van der Lanthroon had never heard of this place. He knew of the Australians.
+"Lingao?" Van der Lanthroon had never heard of the place, though he had heard of the Australians.
 
-"Yes. I will send someone to navigate for you. Your mission is to trade with the Australians in Lingao and ask for as much news about them as possible. If possible, find out if they are willing to reach a trade agreement with us."
+"Yes. I will send someone to navigate for you. Your mission is to conduct trade with the Australians in Lingao and gather as much intelligence about them as possible. If circumstances permit, determine whether they are willing to reach a trade agreement with us."
 
-"at your orders, Your Excellency."
+"At your orders, Your Excellency."
 
-"I will send you a few assistants. Keep them by your side after arriving in Lingao and provide them with all conveniences."
+"I will assign you several assistants. Keep them close after you arrive in Lingao and provide them every convenience."
 
-One of those sent to the *Magdeburg* was Gonzalez himself. The Governor hoped that he would see Lingao's military strength and the fortification status of the wharf with his own eyes as an officer. The other was Leibtrini, an Italian, a professional cartographer. His task was to try to map Lingao's port and terrain. At the same time, he was to draw what he saw into an album. In the era without cameras, this was the only way for people far away to get a visual impression.
+One of those being sent aboard the *Magdeburg* was Gonzalez himself. The Governor hoped the officer would observe Lingao's military strength and the fortification status of the wharf with his own eyes. The second was Leibtrini, an Italian—a professional cartographer. His task was to map Lingao's port and surrounding terrain as accurately as possible. He was also to render what he saw into an illustrated album. In an era without cameras, this was the only way for people far away to form a visual impression.
 
 (End of Chapter)

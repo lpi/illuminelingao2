@@ -8,11 +8,11 @@ Fortunately, it was summer in Hainan; even stark naked, no one would freeze.
 
 In such attire, any escape attempt—or even straying any distance—would be instantly noticed.
 
-The camp was commanded by Yuan Qiushi, who had long served as Wu De's bodyguard and deputy, observing and learning how Wu handled prisoners, captives, and laborers. Though his labor-camp position had later been taken by Yang He, he was still an experienced hand. Young and fearless, he belonged to the type who showed ruthless cruelty to enemies.
+The camp was commanded by Yuan Qiushi, who had long served as Wu De's bodyguard and deputy, observing and learning how Wu handled prisoners, captives, and laborers. Though his labor-camp position had later been taken by Yang He, he was still an experienced hand—young, fearless, and the type who showed ruthless cruelty to enemies.
 
 Wu De had specifically assigned him to command the POW camp with the intention of breaking the veteran soldiers' arrogance. The moment purification was complete, Yuan had a gallows erected in the center of the camp and regulations posted publicly.
 
-Though constructed from nothing more than straw and bamboo, the POW camp's huts were arranged in neat rows, complete with all necessary facilities. The harshest discipline prevailed: prisoners had to obey every command of the guards without exception. Any defiance was punished by hanging. In the first few days, more than ten men were hanged daily. Then the executions suddenly ceased—the entire camp fell into line with regulations.
+Though constructed from nothing more than straw and bamboo, the POW camp's huts were arranged in neat rows, complete with all necessary facilities. The harshest discipline prevailed: prisoners had to obey every command of the guards without exception. Any defiance was punished by hanging. In the first few days, more than ten men were hanged daily. Then the executions suddenly ceased—the entire camp had fallen into line with regulations.
 
 At first, rations were meager—more water than rice in the gruel—intended to prevent the prisoners from having the strength to cause trouble while grinding down their will to resist.
 
@@ -54,7 +54,7 @@ But what came was not a blade but a riding whip. After seven or eight lashes, he
 
 They did not stay long in Chengmai before being transferred to Ma'ao.
 
-"This is Ma'ao on Lingao County!" the bandit receiving them announced arrogantly. "You've arrived at Lingao—only as prisoners!"
+"This is Ma'ao in Lingao County!" the bandit receiving them announced arrogantly. "You've arrived at Lingao—only as prisoners!"
 
 This humiliation paled beside the "purification" that followed. Whether Qian Taichong, Lü Yizhong, or the other secretaries, all had imagined they would receive some preferential treatment as scholars. The palanquins had seemed proof of that. They had expected to be shown courtesy upon arrival: baths, fresh clothes, a modest but comfortable lodging—perhaps a small courtyard of a local wealthy family, or at worst, a temple. Some even fantasized that besides comfortable quarters, they might be entertained with beautiful boys or women. They knew the bald bandits had few men of letters; capturing so many at once, would they not treat them with the utmost hospitality to demonstrate their thirst for talent?
 
@@ -62,7 +62,7 @@ Instead of hospitality, they were subjected to extreme humiliation. When Qian Ta
 
 There was no "wealthy family's courtyard" or "temple room"—only a long rectangular wooden building, almost empty, with ten double bunk beds lined with straw mats. Nothing else.
 
-Such crude quarters, combined with everything that had happened to them, left no trace of preferential treatment!
+Such crude quarters, combined with everything that had happened to them, left no trace of preferential treatment.
 
 The captive secretaries sat miserably on the bunks, their shaved heads and sack-like garments matching everyone else exactly. Each man was steeped in despair, too despondent even for the usual courtesies. Though Lü Yizhong's strange appearance had briefly provoked laughter, gloom quickly settled back over them.
 
@@ -129,5 +129,7 @@ The fervent discussion once again confirmed the truth that "the enemy is not to 
 Some felt the logic did not quite hold, but at this moment, everyone wanted to find a scapegoat for the disaster—one unconnected to themselves. No one raised objections; instead, they racked their brains for suspicious signs of Tang Yunwen's "treachery."
 
 Qian Taichong neither objected nor agreed. He did not think the accusation against Tang held water. Tang Yunwen was a regular military officer. It was possible he had accepted bald bandit bribes and deliberately avoided reporting or suppressing them. But deliberately ordering his men to collapse in order to disrupt the army? Highly unlikely. However greedy Tang might be, he would never sacrifice his own troops for money. And defecting to the bald bandits made even less sense—why would he give up his official Ming military position to serve some overseas barbarians? By common sense, it simply did not add up.
+
+---
 
 *Note: "Recycled cloth" refers to fabric made by unraveling old cotton cloth into fibers and re-spinning it.*

@@ -1,26 +1,26 @@
 # Chapter 730 - Borrowing Soldiers
 
-These negotiations were still in progress. The Portuguese Municipal Council in Macau had some interest in the Guangdong authorities' proposal—after all, protecting their trade with China was their paramount concern. The Australians' bold entrance into the Pearl River mouth, sailing and firing salutes, had also made the Portuguese feel unprecedented threat.
+These negotiations were still in progress. The Portuguese Municipal Council in Macau had some interest in the Guangdong authorities' proposal—after all, protecting their trade with China was their paramount concern. The Australians' bold entrance into the Pearl River mouth, sailing past and firing salutes, had also made the Portuguese feel unprecedented threat.
 
 These so-called "Australians" in Lingao, while so far not directly harming Portuguese interests—besides granting a few ships India-Lingao trade privileges, they hadn't made major moves in overseas trade. Their dealings with Chinese in Guangdong were mostly in basic commodities the Portuguese had no interest in: grain, cotton, and various bulk cargo like minerals, metals, and timber.
 
-Overall, the Portuguese and Lingao's Australians kept to their own lanes, even finding mutual benefit. The Australians sold the Portuguese large quantities of high-quality, cheap industrial goods, enabling the Portuguese to profit handsomely in various resale and distribution markets. The Portuguese also sold much "Indian merchandise" to Lingao. This gave the Portuguese—who had despaired of opening the Chinese market—great interest in the Australians. Perhaps if they could establish stable trade relations, they might open a sales channel to Australia.
+Overall, the Portuguese and Lingao's Australians kept to their own lanes, even finding mutual benefit. The Australians sold the Portuguese large quantities of high-quality, cheap industrial goods, enabling them to profit handsomely in various resale and distribution markets. The Portuguese also sold much "Indian merchandise" to Lingao. This gave the Portuguese—who had despaired of opening the Chinese market—great interest in the Australians. Perhaps if they could establish stable trade relations, they might open a sales channel to Australia.
 
 However, the Australians' crushing defeat of Ming forces at Lingao, followed by their fleet entering the Pearl River, had alarmed the Portuguese. The Australians clearly weren't content to remain holed up in a remote backwater as mere pirates or merchants. They had grander ambitions.
 
-Among the Chinese in Guangdong, a vague rumor had reached Portuguese ears: the Australians were Chinese who'd left for overseas centuries ago. They'd returned to reclaim their ancestors' thrones, titles, and fiefs.
+Among the Chinese in Guangdong, a vague rumor had reached Portuguese ears: the Australians were Chinese who had left for overseas centuries ago. They had returned to reclaim their ancestors' thrones, titles, and fiefs.
 
-Gelaazzini received updates every few days on the negotiations—unsurprisingly. The Ming intermediary sent from Guangdong was Li Luoyou, who'd studied at the Jesuit mission as a youth. Though he had his own residence in Macau, he still visited familiar priests at the mission every few days.
+Gelaazzini received updates every few days on the negotiations—unsurprisingly. The Ming intermediary sent from Guangdong was Li Luoyou, who had studied at the Jesuit mission as a youth. Though he had his own residence in Macau, he still visited familiar priests at the mission every few days.
 
 Li Luoyou didn't hide his purpose or the negotiations' content. In Macau, the Jesuits wielded enormous influence over the Municipal Council. He believed keeping the Jesuits informed could only help.
 
-Li Luoyou had been shocked by the Ming authorities' attack on Lingao. He hadn't expected the government to act so rashly—hadn't they thought to send scouts first? Li Luoyou reflected regretfully: if they'd just sent someone to observe, this war might have been avoided, preserving more of the government forces' strength. In his assessment, Guangdong's armies were absolutely no match for the Australians. He knew that without numerical advantage, Ming soldiers couldn't handle even the Portuguese—a patchwork force of various peoples. Let alone Australians whose weapons and training were ten times superior.
+Li Luoyou had been shocked by the Ming authorities' attack on Lingao. He had not expected the government to act so rashly—hadn't they thought to send scouts first? He reflected regretfully: if they had just sent someone to observe, this war might have been avoided, preserving more of the government forces' strength. In his assessment, Guangdong's armies were absolutely no match for the Australians. He knew that without numerical advantage, Ming soldiers couldn't handle even the Portuguese—a patchwork force of various peoples. Let alone Australians whose weapons and training were ten times superior.
 
 When Guangzhou's merchants and gentry fell into a scramble over Purple Letter franchises, and many merchants broke off trade with the Australians for various reasons, Li Luoyou had quietly continued his Lingao trade. Ship after ship of medicines, metals, grain, and fabric went to Lingao, returning with Australian goods. This continued until government forces blockaded the Qiongzhou Strait. This trade made his Qionghai Company branch in Lingao enormously profitable, greatly surprising Gu Baocheng, who was managing his first business venture.
 
-Among Li Luoyou's enterprises, Qionghai barely ranked. But Li Luoyou treated it as a crucial foothold. It was also Gu Baocheng's first property to manage—Li Luoyou even considered it the starting point for the Gu family's restoration. So his investment there was quite generous.
+Among Li Luoyou's enterprises, Qionghai barely ranked. But he treated it as a crucial foothold. It was also Gu Baocheng's first property to manage—Li Luoyou even considered it the starting point for the Gu family's restoration. So his investment there was quite generous.
 
-Li Luoyou had spared no expense buying a large plot in the East Gate Market's newly developed area. Part was built up with the Qionghai Company building; the rest, he instructed Gu Baocheng to hold without immediate use or sale.
+He had spared no expense buying a large plot in the East Gate Market's newly developed area. Part was built up with the Qionghai Company building; the rest, he instructed Gu Baocheng to hold without immediate use or sale.
 
 "Isn't leaving such fine land idle wasteful?" Gu Baocheng had asked.
 
@@ -38,7 +38,7 @@ Just before the government began blockading the Qiongzhou Strait, an informed Li
 
 "Tell the master," Gu Baocheng said confidently, "the Australians will have a hard fight, but the government forces will never win."
 
-The messenger reported Gu Baocheng's words exactly to Li Luoyou. Li Luoyou silently nodded—this boy's vision was still a bit lacking, but at least he wasn't just parroting others. He'd formed his own judgment—and not a bad one.
+The messenger reported Gu Baocheng's words exactly to Li Luoyou. Li Luoyou silently nodded—this boy's vision was still a bit lacking, but at least he wasn't just parroting others. He had formed his own judgment—and not a bad one.
 
 He Cheng's total annihilation at Chengmai, then the siege at Qiongshan—none of this surprised Li Luoyou. Even when Li Fengjie quietly sent for him, asking him to serve as envoy to negotiate military assistance in Macau, he felt no surprise. The Governor's rash expedition was bound to fail. Afterward, someone had to clean up—and that someone would naturally be Li Fengjie.
 
@@ -46,7 +46,7 @@ Li Fengjie was Li Luoyou's greatest patron in Guangdong. Li Luoyou handled many 
 
 Such connections were no small matter. So when Wang Zunde fell ill, Li Fengjie emerged to manage Guangdong's defenses while secretly arranging peace negotiations—and enlisted this "business partner" to approach the Portuguese about joint Pearl River defense.
 
-"I'm sure you've heard, my friend." Li Luoyou said when receiving He Chengzong, who'd come rushing overnight to Foshan. The visitor's expression was grim. "The crop-heads have entered the Pearl River! They're raiding and killing everywhere! Dongguan, Xin'an, Shunde, Nanhai—all counties are panicking three times a day..."
+"I'm sure you've heard, my friend." Li Luoyou said when receiving He Chengzong, who had come rushing overnight to Foshan. The visitor's expression was grim. "The crop-heads have entered the Pearl River! They're raiding and killing everywhere! Dongguan, Xin'an, Shunde, Nanhai—all counties are panicking three times a day..."
 
 "They've taken the Bogue?"
 
@@ -70,11 +70,11 @@ Only then did He Chengzong quietly reveal the purpose. Li Fengjie wanted him to 
 
 Li Fengjie chose Li Luoyou as envoy first because he was a trusted confidant; second because Li Luoyou had deep connections with the Portuguese; and finally because Li Luoyou was a merchant—not an official or member of his staff.
 
-Asking Portuguese help was essentially inviting foreign intervention. If censors and remonstrators learned of it, there'd be an enormous scandal. Only someone like Li Luoyou—with absolutely no official background—could be sent, allowing officials to plausibly deny and disavow if information leaked. After all, he was genuinely a "civilian"—not even a "temporary employee."
+Asking Portuguese help was essentially inviting foreign intervention. If censors and remonstrators learned of it, there would be an enormous scandal. Only someone like Li Luoyou—with absolutely no official background—could be sent, allowing officials to plausibly deny and disavow if information leaked. After all, he was genuinely a "civilian"—not even a "temporary employee."
 
 Li Luoyou pondered silently. This was very tricky. Whether the Portuguese would agree was completely uncertain. As someone very close to the Portuguese who understood their thinking, he knew they wanted to protect their trade, but their commitment and capability were questionable. Also, since the Portuguese had settled in Macau, Sino-Portuguese relations had been rocky at best—toleration rather than harmony. Calls to expel the Portuguese from official circles had never ceased. Especially recently, rumors were everywhere that Inspector Gao intended to expel the Portuguese and ban trade—detailed and vivid. The Portuguese themselves had heard.
 
-Asking the Portuguese to send forces under such circumstances—how they'd react, he couldn't predict.
+Asking the Portuguese to send forces under such circumstances—how they would react, he couldn't predict.
 
 "This is extremely tricky." Li Luoyou decided to speak frankly. "Inspector Gao's memorial has become common gossip. The Portuguese surely know. If they ask about it, how do I respond?"
 
@@ -96,9 +96,9 @@ He Chengzong still looked pleased: "What's improper? You're just a merchant. Eve
 
 "Ha ha, ha ha." Li Luoyou laughed along. His reputation was built on "integrity." If he deceived the Portuguese this time, his standing in Macau's business world would collapse. So this "substitution" lie was absolutely unspeakable.
 
-If the Portuguese really asked about Inspector Gao's memorial, he'd simply say he knew nothing about it. Let them judge for themselves. Guangzhou was full of people willing to sell anything for foreign silver. They'd find the truth on their own.
+If the Portuguese really asked about Inspector Gao's memorial, he would simply say he knew nothing about it. Let them judge for themselves. Guangzhou was full of people willing to sell anything for foreign silver. They would find the truth on their own.
 
-After He Chengzong departed, Li Luoyou seriously considered this mission. Of course, unless he wanted to stop doing business in Guangdong, he couldn't refuse Li Fengjie's request. And he'd have to try to succeed.
+After He Chengzong departed, Li Luoyou seriously considered this mission. Of course, unless he wanted to stop doing business in Guangdong, he couldn't refuse Li Fengjie's request. And he would have to try to succeed.
 
 Though he was the Australians' business partner, he felt the Australians had gone too far this time. Disrupting Guangdong would only further weaken the already severely debilitated Ming body. In his view, the Australians should stay in Lingao selling Australian goods. The Portuguese might not achieve quick success, but applying some pressure could be useful.
 

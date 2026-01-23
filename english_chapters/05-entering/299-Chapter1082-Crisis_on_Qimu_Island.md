@@ -1,109 +1,109 @@
 # Chapter 1082 - Crisis on Qimu Island
 
-Although no one openly questioned Kong Youde, Kong Youde himself already felt a sense of distrust permeating around him.
+Though no one openly questioned Kong Youde, he could already feel a miasma of distrust permeating those around him.
 
-This was a very dangerous signal. The army was a place where killing was like cutting grass, and this was even more so in a rebel army creating chaos: in troubled times, human life was cheap, and a trivial reason could lead to death. Not to mention that "straddling two boats" was the most hated thing.
+This was a dangerous signal. The army was a place where killing came as easily as cutting grass, and this was doubly true in a rebel army born of chaos. In troubled times, human life was cheap—a trivial reason could lead to death. And nothing was more despised than a man who straddled two boats.
 
-Although Li Jiucheng did not show any suspicion towards him, the excessive trust expressed by Li Jiucheng and his son recently seemed to confirm his view—Li Jiucheng and his son had already begun to suspect him!
+Li Jiucheng had shown no outward suspicion toward him. Yet the excessive displays of trust from Li Jiucheng and his son in recent days seemed to confirm his darkest fears—they had already begun to suspect him.
 
-It had to be said that this was a very dangerous signal.
+It had to be said: this was a very dangerous signal.
 
-Difficult! How should he prove his innocence? Kong Youde sighed deeply.
+*Difficult.* How could he possibly prove his innocence? Kong Youde heaved a deep sigh.
 
-He certainly trusted his own trusted subordinates, but after all, there were only a few hundred people. If most generals believed he harbored disloyalty, these few hundred people would just be buried with him.
+He certainly trusted his own loyal subordinates, but they numbered only a few hundred. If most of the generals came to believe he harbored disloyalty, those few hundred men would simply be buried alongside him.
 
-If he didn't have some prestige among the Dongjiang veterans in Dengzhou, if it were anyone else, they might have been killed already!
+Were it not for his considerable prestige among the Dongjiang veterans in Dengzhou, were he anyone else, he might have been killed already.
 
-How to win the trust of everyone had become the biggest problem Kong Youde faced now.
+How to regain everyone's trust had become the most pressing problem Kong Youde now faced.
 
-For this reason, he had to try his best to show that he had no second thoughts, including voluntarily moving out of his original residence to avoid the suspicion of harboring Sun Yuanhua.
+For this reason, he had been forced to demonstrate by every possible means that he harbored no second thoughts. He had voluntarily vacated his original residence to dispel any suspicion of sheltering Sun Yuanhua.
 
-Fortunately, a few days ago, they received an intelligence report: Sun Yuanhua suddenly appeared in Laizhou and officially began to attend to affairs and arrange city defenses. This greatly cleared Kong Youde of suspicion—however, how Sun Yuanhua escaped remained an unclear matter, so Kong Youde's situation was still somewhat subtle.
+Fortunately, a few days prior, they had received an intelligence report: Sun Yuanhua had suddenly appeared in Laizhou and officially begun attending to administrative duties and organizing the city's defenses. This had done much to clear Kong Youde of suspicion. However, the mystery of how Sun Yuanhua had escaped remained unsolved, and so Kong Youde's position was still somewhat delicate.
 
-Now Laizhou had been rectified by him to be like an iron barrel. Spies also reported back that Yu Dacheng, who was originally dispirited and hiding in the Yamen only chanting scriptures, suddenly cheered up after Sun Yuanhua appeared in Laizhou. He not only dispatched reinforcements but also transported a large amount of grain and military weapons to Laizhou.
+Laizhou had now been reorganized under Sun Yuanhua's direction until it was tight as an iron barrel. Spies also reported that Yu Dacheng, who had previously been dispirited and cloistered in his yamen chanting sutras, had suddenly rallied after Sun Yuanhua's arrival. He had not only dispatched reinforcements but also transported large quantities of grain and military supplies to Laizhou.
 
-Obviously, Sun Yuanhua's "appeasement" attitude was changing—the convenience they gained using "appeasement" after raising the flag of rebellion was being lost. Especially the idea in the original plan to use Sun Yuanhua to write letters constantly sending the news of "willing to accept appeasement" to the court, thereby delaying the court's suppression and expanding their power, had gone completely bankrupt.
+The implications were clear: Sun Yuanhua's stance on "appeasement" was shifting. The advantages the rebels had gained through professed willingness to negotiate were slipping away. In particular, their original plan to have Sun Yuanhua continuously pen letters expressing their "willingness to accept appeasement"—thereby delaying court suppression efforts while they expanded their power—had now completely collapsed.
 
-Next, the rebels were bound to face the court's suppression. As the saying goes, time waits for no man; the time left for them was getting less and less. at the military council the day before yesterday, everyone agreed that they must take Huang County immediately and besiege Laizhou as soon as possible.
+What followed was inevitable: the rebels would face the court's military response. Time waits for no man; the window remaining to them was shrinking rapidly. At the military council two days prior, all had agreed: they must take Huang County immediately and besiege Laizhou as soon as possible.
 
-Capturing Huang County was to ensure the safety of Dengzhou, and occupying Laizhou could give the team more room for maneuver as soon as possible, so that they could advance to attack and retreat to defend. Otherwise, sooner or later, they would be trapped to death between the mountains and the sea by government troops.
+Capturing Huang County would secure Dengzhou. Occupying Laizhou would grant the army greater room to maneuver—the ability to advance to attack or retreat to defend. Otherwise, sooner or later, they would find themselves strangled between the mountains and the sea by government forces.
 
-However, in order to further confuse the court and embolden the ministers in the court who advocated appeasement, it was still necessary to continue expressing the sincerity of "accepting appeasement." Although Sun Yuanhua had escaped, they still had a group of officials in their hands. It was useless to keep these people, so at yesterday's military council, it was decided to release them all, including Song Guanglan, Zhang Tao, Wang Zheng, and others. At the same time, let them take a letter jointly signed by the main generals of the Dengzhou rebels to express their heart of "accepting appeasement."
+Yet to further confuse the court and embolden those ministers who advocated appeasement, it remained necessary to continue expressing the sincerity of "accepting appeasement." Though Sun Yuanhua had escaped, they still held a group of officials. These people were useless to keep, so at yesterday's military council, it was decided to release them all—Song Guanglan, Zhang Tao, Wang Zheng, and others. At the same time, they would carry a letter jointly signed by the principal rebel generals, expressing their desire for appeasement.
 
-Because Kong Youde had a relatively good relationship with the Dengzhou officials, this matter was handed over to him. Kong Youde thought: On the surface, this was trust in him—"no suspicion," but in reality, he still hadn't cleared the suspicion of colluding with Sun Yuanhua.
+Because Kong Youde had maintained relatively good relations with the Dengzhou officials, this task had fallen to him. On the surface, this suggested trust—a vote of "no suspicion." But in reality, Kong Youde knew, he had still not cleared himself of the accusation of colluding with Sun Yuanhua.
 
-However, there was no foolproof plan right now; he could only take it one step at a time. Kong Youde thought, *things haven't reached the point of showdown yet, but I must capture Laizhou as soon as possible!*
+There was no foolproof plan at present. He could only take things one step at a time. *Matters have not yet reached the point of showdown,* Kong Youde thought, *but I must capture Laizhou as soon as possible.*
 
-While he was lost in thought, a personal guard came to report that Grand Marshal Li Jiucheng invited him to a military council.
+While he was lost in contemplation, a personal guard arrived to report that Grand Marshal Li Jiucheng had summoned him to a military council.
 
-"Go back and report to the Marshal, I'll be there immediately." Kong Youde ordered. He knew that today's military council definitely discussed sending troops to Laizhou.
+"Return and inform the Marshal I shall attend immediately." Kong Youde issued the order. He knew today's council would certainly address the deployment of troops against Laizhou.
 
-They had already captured Huang County a few days ago—capturing Huang County took almost no effort, but attacking Laizhou was hard to say. The number of Ming troops in Laizhou was limited, and originally it was not difficult to attack, but now that Sun Yuanhua had entered the city, the defense in the city would inevitably be greatly strengthened. With him sitting in Laizhou as Governor of Dengzhou and Laizhou, and Shandong Governor Yu Dacheng cooperating with his actions, needless to say, Shandong's army would be mobilized to reinforce Laizhou.
+They had already captured Huang County a few days prior—taking it had required almost no effort. But attacking Laizhou was another matter entirely. The Ming garrison there was limited, and ordinarily the assault would not have been difficult. But now that Sun Yuanhua had entered the city, its defenses would inevitably be greatly strengthened. With him presiding over Laizhou as Governor of Dengzhou and Laizhou, and with Shandong Governor Yu Dacheng coordinating his efforts, the provincial army would certainly be mobilized to reinforce the city.
 
-"Come, bring my armor!" he shouted.
+"Come—bring my armor!" he called.
 
-A personal general walked over and said: "Today is not a roll call ceremonial assembly, is armor needed?"
+A personal guard approached. "Today is not a formal assembly for roll call. Is armor truly necessary?"
 
-"Of course it's needed!" Kong Youde said loudly, "Military council must not be slighted either."
+"Of course it's necessary!" Kong Youde declared loudly. "One must not slight a military council either."
 
-Speaking, he let the personal guards put on his full armor. Except for not wearing a bow and arrow, it was almost the same style as the "Bow and Quiver Ceremony" (*Tuojian Li*). Although Kong Youde was the Vice Marshal and his prestige in the army was second only to Li Jiucheng, he was very careful, never revealing a trace of arrogance, completely maintaining the low profile of a subordinate.
+He allowed his guards to dress him in full armor. Save for the absence of bow and quiver, his appearance matched the formal "Bow and Quiver Ceremony." Though Kong Youde was Vice Marshal, his prestige in the army second only to Li Jiucheng's, he remained scrupulously careful, never betraying a trace of arrogance, always maintaining the humble bearing of a subordinate.
 
-At that moment, fully armored, he left the Yamen. Someone had already prepared a fine Mongolian horse for him. Kong Youde flipped onto the horse and went to the Grand Marshal's Mansion surrounded by personal guards.
+Fully armored now, he departed the yamen. A fine Mongolian horse had already been prepared for him. Kong Youde vaulted into the saddle and rode to the Grand Marshal's Mansion surrounded by his guards.
 
-The streets of Dengzhou had become a piece of silence. Those coming and going on the streets were all soldiers wearing uniforms. Occasionally there were commoners driven to work for the rebels, but few people made loud noises. Kong Youde and his party walked in the middle of the road, and people on the road avoided them one after another.
+The streets of Dengzhou had fallen into silence. Those moving along them wore soldiers' uniforms; occasionally there were commoners pressed into labor for the rebels, but few made any noise. Kong Youde and his retinue rode down the center of the road. People scattered from their path.
 
-The Festival Hall (*Jietang*) in the Governor's Yamen was now the Festival Hall of the Grand Marshal's Mansion. Starting from the main gate, there were fully armored guards and warriors all the way.
+The Festival Hall in the former Governor's Yamen now served as the Festival Hall of the Grand Marshal's Mansion. From the main gate onward, fully armored guards and warriors stood in rows.
 
-Kong Youde, fully armored and in high spirits, strode into the second gate, passed through two rows of solemn and silent guards with shining swords, spears, and halberds, bowed and walked into the Festival Hall, knelt down about five *chi* away from the official desk, and loudly reported his rank:
+Kong Youde, resplendent in his armor and bearing an air of martial vigor, strode through the second gate. He passed between two ranks of solemn, silent guards whose swords, spears, and halberds gleamed in the light. Bowing as he walked, he entered the Festival Hall and knelt approximately five *chi* from the official desk, announcing his rank in a ringing voice:
 
-"Vice Grand Marshal Acting for Heaven (*Ti Tian Xing Dao*) Kong Youde pays respcets to Your Excellency!"
+"Vice Grand Marshal Acting for Heaven, Kong Youde, pays his respects to Your Excellency!"
 
-Li Jiucheng nodded and smiled, saying "Please rise."
+Li Jiucheng nodded with a smile. "Please rise."
 
-In the Festival Hall, the main generals of the rebel army had all gathered. Most of them were generals who had reached the rank of Regional Assistant Commander (*Canjiang*) or Mobile Corps Commander (*Youji*) in Dongjiang Town, and all had a group of basic troops in their hands.
+The Festival Hall had filled with the principal rebel generals. Most had attained ranks of Regional Assistant Commander or Mobile Corps Commander in Dongjiang Town; all commanded core troops of their own.
 
-After capturing Dengzhou, the rebels incorporated the local Dengzhou soldiers and the remnants of Southern soldiers, conscripted a large number of able-bodied men from the local Liaodong commoners, and took in many local bandits and desperadoes. The scale of the army suddenly expanded to tens of thousands, but the ones in the army who were truly reliable and capable of fighting were still these original Dongjiang old troops.
+After capturing Dengzhou, the rebels had incorporated local Dengzhou soldiers and remnants of the Southern soldiers, conscripted large numbers of able-bodied men from among the local Liaodong commoners, and absorbed many local bandits and desperadoes. The army had swelled to tens of thousands. Yet the truly reliable and battle-worthy troops remained the original Dongjiang veterans.
 
-The rabble could only serve as cannon fodder to strengthen the momentum. Fighting with the wind at their backs was fine, but once they encountered a hard battle, they would turn into soft eggs. Therefore, Li Jiucheng and others dispatched several people early on carrying pay silver captured from Dengzhou to various islands on the Liao Sea to induce Dongjiang generals to lead troops to "raise the great banner together."
+The rabble could serve only as cannon fodder to bolster their apparent numbers. They fought well enough when the wind was at their backs, but the moment they encountered hard fighting, they would collapse into soft eggs. Therefore, Li Jiucheng and the others had dispatched men early on, carrying pay silver seized from Dengzhou, to the various islands of the Liao Sea to induce Dongjiang generals to lead their troops in "raising the great banner together."
 
-This group of people was not very good at fighting Tartars, but crossing the sea to Shandong to fight government troops was absolutely no problem.
+These men might not excel at fighting Tartars, but crossing the sea to Shandong to fight government troops was well within their capabilities.
 
-This activity was currently proceeding very smoothly. Some Dongjiang generals had already expressed their intention to rise up together.
+This recruitment effort was proceeding smoothly. Several Dongjiang generals had already expressed their intention to join the uprising.
 
-But at today's military council, besides the originally planned attack on Laizhou, a new situation arose.
+But at today's military council, beyond the planned attack on Laizhou, a new situation had emerged.
 
-Mao Chenglu, who was sent to Huang County, sent someone back to report: Currently, there was a large group of village braves active within the territory of Huang County. They were aggressively gathering refugees around the Huang County seat. The troops sent by the rebels to loot refugees had already conflicted with them, and most importantly, they suffered quite a loss.
+Mao Chenglu, dispatched to Huang County, had sent a messenger back with a report: a large force of village braves was currently active within Huang County's territory. They were aggressively gathering refugees around the county seat. Rebel troops sent to seize refugees had already clashed with them—and suffered significant losses.
 
-Yesterday, the rebels pursued thousands of refugees taken away by the village braves and fought a battle with the village braves at Baimatang. As a result, not only did they not gain any advantage, but they also suffered four or five hundred casualties. The rest all routed back to the Huang County seat.
+The previous day, rebels pursuing a group of several thousand refugees whom the village braves had taken had fought a battle at Baimatang. Not only had they failed to prevail, but they had suffered four or five hundred casualties. The survivors had routed back to the county seat.
 
-"Whose village braves are so bold?" Kong Youde was quite surprised. Village braves generally took "protecting the territory and peaceful people" as their main purpose and would not take the initiative to provoke, only seeking the safety of their own stockade. Moreover, with the current military power of the rebels and the large number of firearms they mastered, ordinary stockades had no second way to deal with it except surrendering at the sight of the wind and letting them dispose of things.
+"Whose village braves are so bold?" Kong Youde was genuinely surprised. Village braves typically focused on "protecting their territory and keeping the peace," rarely taking the initiative to provoke. They concerned themselves only with the safety of their own stockade. Moreover, given the rebels' current military power and their abundant firearms, ordinary stockades had no recourse but to surrender at first sight and submit to whatever was demanded of them.
 
-"It's a stockade over largely Longkou." Li Jiucheng said, "Chenglu said they have firearms, and they are very powerful."
+"It's a stockade near Longkou," Li Jiucheng said. "Chenglu reports they have firearms—very powerful ones."
 
-Kong Youde lost his voice: "It's Master Lu of Qimu Island!"
+Kong Youde lost his composure. "It's Master Lu of Qimu Island!"
 
-Li Jiucheng asked: "What? You know."
+Li Jiucheng raised an eyebrow. "You know of this?"
 
-"Yes." Kong Youde nodded, "This Master Lu is from the South and believes in the Lord of Heaven like Governor Sun. So Governor Sun looked at him with special regard at first and once allocated him a lot of weapons and gunpowder."
+"Yes." Kong Youde nodded. "This Master Lu is a Southerner and believes in the Lord of Heaven, as Governor Sun does. Sun therefore looked upon him with special favor from the beginning and once allocated him a considerable quantity of weapons and gunpowder."
 
-It was not surprising that Master Lu set up a stockade on Qimu Island—everyone did this these days. But why did he want to gather refugees on a large scale?
+It was not surprising that Master Lu had established a stockade on Qimu Island—everyone was doing so these days. But why would he seek to gather refugees on such a large scale?
 
-The land over there in Longkou was definitely not fertile land, so he couldn't be looking for refugees to reclaim wasteland. Secondly, in this time of turmoil and chaos, and it being deep winter, there was absolutely no possibility of reclaiming wasteland.
+The land around Longkou was hardly fertile; he could not be recruiting refugees to reclaim wasteland. Besides, in this season of turmoil and chaos, in the depths of winter, there was absolutely no possibility of land reclamation.
 
-The only possibility was that they, like various folk Daoist sects on the ground of Shandong, were preparing to take advantage of this huge chaos in Dengzhou to raise the flag of rebellion!
+The only explanation was that they, like the various folk religious sects throughout Shandong, were preparing to exploit the great chaos in Dengzhou to raise their own banner of rebellion.
 
-In ancient times, anyone who wanted to rebel always started by coercing the people and sheltering refugees. The rebels destroyed stockades and burned houses wantonly in Huang County, on the one hand, to collect grain and property as much as possible and strengthen the walls and clear the fields; on the other hand, there was also the consideration of coercing a large number of refugees to expand the army.
+In ancient times, anyone intending to revolt always began by coercing the populace and sheltering refugees. The rebels had razed stockades and burned houses throughout Huang County partly to collect as much grain and property as possible and strengthen their position by clearing the countryside, but also partly to coerce large numbers of refugees into their ranks for army expansion.
 
-This Master Lu also had such a plan?! The generals in the Festival Hall instantly exchanged glances.
+Did this Master Lu harbor similar designs? The generals in the Festival Hall exchanged glances.
 
-In this way, the matter became difficult to handle. These generals had been in Shandong for quite some time and knew a little about the folk Daoist sects in Shandong. They knew very well that the incited believers were extremely fanatical. Once this Master Lu really started an uprising under the banner of "responding to the tribulation" in the Huang County territory, the rebels would have to spend a lot of effort to suppress it.
+If so, the situation had become considerably more complicated. These generals had been in Shandong long enough to know something of the province's folk religious sects. They understood perfectly well that once believers were incited, they became fanatically devoted. If this Master Lu truly launched an uprising under the banner of "responding to the tribulation" within Huang County's territory, the rebels would need to expend considerable effort to suppress it.
 
-"This stockade must be broken as soon as possible." Geng Zhongming said, "Once they rise up, it will be difficult for us to attack Laizhou!"
+"This stockade must be destroyed as soon as possible," Geng Zhongming declared. "Once they rise up, our attack on Laizhou becomes far more difficult."
 
-"The matter of Laizhou cannot be delayed either." Li Jiucheng said, "If we don't take Laizhou, we brothers won't sleep soundly in Dengzhou. Two prongs! One way to attack Laizhou, and one way to destroy this whatever Master Lu as soon as possible!"
+"The Laizhou matter cannot be delayed either," Li Jiucheng said. "If we don't take Laizhou, none of us brothers will sleep soundly in Dengzhou. We'll proceed on two fronts: one to attack Laizhou, and another to destroy this 'Master Lu' with all haste."
 
-Li Jiucheng decided immediately to give Mao Chenglu another three thousand elite soldiers, asking him to attack Qimu Island immediately and break the stockade on the island. As for Master Lu and his group, anyone with a foreign accent was to be killed entirely. If the refugees with local accents in the stockade refused to obey orders, they were also to be killed entirely—to avoid leaving future trouble.
+Li Jiucheng decided immediately to reinforce Mao Chenglu with three thousand elite soldiers, ordering him to attack Qimu Island at once and breach the stockade. As for Master Lu and his followers, anyone with a foreign accent was to be killed entirely. If the locally-accented refugees in the stockade refused to obey orders, they too were to be killed entirely—to prevent future complications.
 
-Because the opponent had many firearms, Li Jiucheng decided to allocate a portion of cannons to Mao Chenglu as well.
+Because the enemy possessed many firearms, Li Jiucheng decided to allocate a portion of artillery to Mao Chenglu as well.
 
 (End of Chapter)

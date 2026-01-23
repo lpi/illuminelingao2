@@ -1,81 +1,81 @@
 # Chapter 883 - Standardized Ships
 
-Zhang Guangtian heard this but said nothing. The Fan family burning and smashing Buddhist and Daoist statues was, after all, wasting their own property. Previously, several other prominent scholar-gentry families had converted en masse and burned Buddha statues too; one couldn't control them. The Chan sect in its day claimed to "scold the Buddhas and revile the ancestors," and there was the story of Chan Master Danxia burning a wooden Buddha for warmth. Although Zhang Guangtian held a hereditary military post, in his spare time he read many Chan kōans and wasn't as alarmed by such "blasphemous" acts as Monk Guangdi. It was just that recently, those flocking madly to this Far Western teaching were mostly people of the Confucian orthodoxy. If such people truly prevailed, there would inevitably be another persecution like the Three Wu Emperors destroying Buddhism continuously in the future. The harm might be even greater than the Three Wu persecutions.
+Zhang Guangtian heard this but held his tongue. The Fan family burning and smashing Buddhist and Daoist statues was, after all, their own property to waste. Several other prominent scholar-gentry families had previously converted en masse and burned Buddha statues as well; one couldn't control such matters. The Chan sect in its heyday had proclaimed "scold the Buddhas and revile the ancestors," and there was the famous tale of Chan Master Danxia burning a wooden Buddha for warmth. Though Zhang Guangtian held a hereditary military post, he had read extensively in Chan kōans during his leisure hours and wasn't as alarmed by such "blasphemous" acts as Monk Guangdi. What troubled him was that recently, those flocking so eagerly to this Far Western teaching were mostly people of the Confucian orthodoxy. If such people truly prevailed, there would inevitably be another persecution like those of the Three Wu Emperors who destroyed Buddhism—perhaps even more devastating.
 
-As he mused thus, Monk Guangdi, accustomed to ingratiating himself with people, saw that this "white-robed senior brother" was in a bad mood and dared not chatter on. He accompanied him for another half-li before bidding farewell and returning to Jingci Temple.
+As he mused thus, Monk Guangdi, accustomed to ingratiating himself with others, sensed that this "white-robed senior brother" was in a foul mood and dared not prattle on. He accompanied him for another half-li before bidding farewell and returning to Jingci Temple.
 
-Zhang Guangtian returned home. He was a hereditary Hundred Households military officer of the local Guard, but Zhang Guangtian was already stranger to things like fighting wars—ordinarily, he was just an ordinary scholar delicately devoted to Buddhism.
+Zhang Guangtian returned home. Though a hereditary Hundred Households military officer of the local Guard, Zhang Guangtian was already a stranger to matters like fighting wars—ordinarily, he was merely an ordinary scholar delicately devoted to Buddhism.
 
-The Zhang family wasn't very wealthy, living the life of a so-called "plowing and reading" middle-class family—of course, he didn't plow himself, but lived on rents collected from the land attached to the Guard post.
+The Zhang family wasn't particularly wealthy, living the life of a so-called "plowing and reading" middle-class household—though of course he didn't plow himself, but subsisted on rents collected from land attached to the Guard post.
 
-Shortly after returning home, while still troubled by this matter, suddenly the gatekeeper reported: a Mr. Huang from Fujian requested an audience.
+Shortly after returning home, while still troubled by this matter, the gatekeeper suddenly announced that a Mr. Huang from Fujian had requested an audience.
 
-"Huang Zhen indeed went to Zhang Guangtian's house." Zhao Tong, pretending to be a patient, whispered to Zhang Yingchen who was taking his pulse.
+---
 
-Zhang Yingchen nodded slightly, indicating he heard.
+"Huang Zhen did indeed visit Zhang Guangtian's residence." Zhao Tong, feigning illness, whispered to Zhang Yingchen as the Daoist took his pulse.
 
-"Huang Zhen stayed at the Zhang house for over two hours before coming out," Zhao Tong continued reporting. "After returning to the inn, his mood was very good, and he didn't even eat gruel for dinner."
+Zhang Yingchen nodded slightly, indicating he had heard.
 
-Zhang Yingchen nodded again: the seed he planted in Huang Zhen's heart had sprouted so quickly; it surprised even him.
+"Huang Zhen remained at the Zhang residence for over two hours before departing," Zhao Tong continued his report. "After returning to the inn, his spirits were noticeably elevated. He didn't even touch his dinner gruel."
 
-Since he went to find Zhang Guangtian, the subsequent events needed no asking: Zhang Guangtian would certainly introduce him to Monk Yuanwu of Tiantong Temple in Ningbo. Even if Yuanwu didn't write that *First Discussion on Discerning Heaven* following the historical trajectory, he would take similar measures. The pool of spring water that was West Lake was about to be ruffled.
+Zhang Yingchen nodded again. The seed he had planted in Huang Zhen's heart had sprouted far more quickly than even he had anticipated.
 
-"Does he intend to go to Ningbo?"
+Since Huang Zhen had sought out Zhang Guangtian, subsequent events required no inquiry: Zhang Guangtian would certainly introduce him to Monk Yuanwu of Tiantong Temple in Ningbo. Even if Yuanwu didn't compose that *First Discussion on Discerning Heaven* precisely following the historical trajectory, he would take similar measures. The placid spring waters of West Lake were about to be disturbed.
 
-"Not for the moment," Zhao Tong said. "But if he goes, we'll definitely know—Huang Zhen took our depot's sedan chair when he came to Hangzhou last time. Walking to Ningbo, he'll most likely come buy tickets from us again."
+"Does he intend to travel to Ningbo?"
 
-"Mm, keep a close eye on him. Watch his activities. Notify me immediately once he goes to Ningbo." Zhang Yingchen spoke with barely moving lips, then wrote a prescription and gave him another packet of "pill medicine," raising his voice to say:
+"Not at present," Zhao Tong replied. "But if he does, we'll certainly know—Huang Zhen traveled by our depot's sedan chair when he came to Hangzhou. For the journey to Ningbo on foot, he'll most likely purchase tickets from us again."
 
-"Take one dose first, then come back in three days."
+"Mm, keep close watch on him. Monitor his activities. Notify me immediately once he departs for Ningbo." Zhang Yingchen spoke with barely moving lips, then wrote a prescription and handed over another packet of "pill medicine," raising his voice: "Take one dose first, then return in three days."
 
-The next day, a telegram was sent from the Hangzhou Station to the External Intelligence Bureau in Lingao.
+The following day, a telegram was dispatched from Hangzhou Station to the External Intelligence Bureau in Lingao:
 
-Center:
+*Center:*
 
-I have already introduced Huang Zhen to Zhang Guangtian. Zhang will likely introduce him to Monk Yuanwu of Tiantong Temple. It seems the show is about to draw its curtain. What joy to participate in such a grand event! Please ask the Grand Library to search for a copy of *Posthumous Letters on Discerning Learning* printed by Giulio Aleni and others in Fujian, absolutely must include the preface signed by Yang Tingyun with his religious name Michael.
+*I have introduced Huang Zhen to Zhang Guangtian. Zhang will likely introduce him to Monk Yuanwu of Tiantong Temple. It appears the drama is about to raise its curtain. What joy to participate in such a grand event! Please have the Grand Library locate a copy of* Posthumous Letters on Discerning Learning *printed by Giulio Aleni and others in Fujian—absolutely must include the preface signed by Yang Tingyun with his religious name Michael.*
 
-Daoquanzi
+*Daoquanzi*
 
-"Heh heh, I'll prepare all the ammunition; I don't worry you won't fight." Zhang Yingchen thought this after sending the telegram.
+"I'll prepare all the ammunition," Zhang Yingchen thought after transmitting the message. "I needn't worry you won't fight."
 
-But he still had an unresolved matter: that gentry member who wanted to "compound the great elixir" with him was haunting him like a ghost. After talking last time, despite Zhang Yingchen repeatedly saying he didn't know much about "bedroom arts" and only teaching him some guiding techniques for strengthening the body, the other party somehow became even more convinced he "contained another universe" inside. He became even more respectful, frequently sending people to "give alms" and inviting him to go "sit and discuss the Dao" again. He still hadn't thought of a good way to get rid of this old reprobate.
+Yet an unresolved matter still plagued him: that gentry member who wished to "compound the great elixir" with him haunted him like a persistent ghost. Despite Zhang Yingchen's repeated insistence that he knew little of "bedroom arts" and had only taught him some guiding techniques for strengthening the body, the other party had somehow become even more convinced that he "contained another universe" within. His respect intensified accordingly; he frequently dispatched servants to "give alms" and extend invitations to come "sit and discuss the Dao" again. Zhang Yingchen still hadn't devised a satisfactory method of ridding himself of this old reprobate.
 
-"Pity Ji Tuisi can't produce Viagra!" Zhang Yingchen muttered to himself. If he had that drug in hand, in a wealthy and prosperous place like Jiangnan, plenty of people would fight to buy it even for fifty taels of silver.
+"Pity Ji Tuisi can't produce Viagra!" Zhang Yingchen muttered to himself. With that drug in hand, in a wealthy, prosperous place like Jiangnan, plenty of people would fight to purchase it even at fifty taels of silver.
 
-While Daoist Zhang sowed discord, the Hangzhou Station had begun a series of preparatory works. Zhao Yingong found himself running over a dozen projects simultaneously. Phoenix Villa construction, the villa's agriculture, silk reeling, Qinghe Ward cultural bookstore, printing office, Qiwei Depot's Jiangsu-Zhejiang layout, Nanjing Delong Branch preliminary preparations, educating orphans, Hangzhou Church negotiations... Although some of these projects were delegated to inspection team elders, every elder was now working sixteen hours a day. Mei Lin complained incessantly, saying he thought coming to Jiangnan was a cushy job, didn't expect it to be busier than Lingao. Not only did he travel between Phoenix Villa and Qinghe Ward daily to direct infrastructure and renovation, but at night when not working, he also had to help handle various affairs and act as a teacher for the orphans.
+While Daoist Zhang sowed discord, the Hangzhou Station had commenced a series of preparatory operations. Zhao Yingong found himself juggling over a dozen projects simultaneously: Phoenix Villa construction, the villa's agricultural operations, silk reeling, Qinghe Ward's cultural bookstore, the printing office, Qiwei Depot's layout across Jiangsu and Zhejiang, preliminary preparations for the Nanjing Delong Branch, educating orphans, and negotiations with the Hangzhou Church. Though some projects were delegated to inspection team elders, every elder now worked sixteen-hour days. Mei Lin complained incessantly, claiming he'd thought coming to Jiangnan was a cushy assignment only to find it busier than Lingao. Not only did he travel daily between Phoenix Villa and Qinghe Ward to direct infrastructure and renovation, but nights when he wasn't working, he also had to assist with various affairs and serve as a teacher for the orphans.
 
-Xu Ke and Lu Zhongxing were even more miserable than Mei Lin—at least Mei Lin had excellent food and a warm bed every day. They spent most of their time rushing about outside, eating field rations and sleeping in boat cabins. Protected by escort guards, the two conducted road and river surveys along the refugee transport and collection routes to draw accurate transportation maps: each map had to note road and river capacity. They conducted field surveys of locations along the route that could serve as refugee rest stops, estimating the reception capacity of each location. These all had to be included in the contingency plans.
+Xu Ke and Lu Zhongxing fared even worse than Mei Lin—at least Mei Lin enjoyed excellent food and a warm bed each day. They spent most of their time rushing about outdoors, eating field rations and sleeping in boat cabins. Protected by escort guards, the two conducted road and river surveys along the refugee transport and collection routes, drawing accurate transportation maps with each route's capacity carefully annotated. They conducted field surveys of locations along the route that could serve as refugee rest stops, estimating reception capacity at each location. All of this had to be incorporated into contingency plans.
 
-Amidst this busyness, they also had to rotate visits to Qiwei's various branches in Jiangnan: currently, even naturalized citizen personnel and local employees were busy as bees. Qiwei's burden was especially heavy, with construction tasks for five branches urgent as fire: expanding the alliance, buying boats, recruiting hands... Mao Sansheng and others spun like tops. To prevent errors amidst the chaos, the elders adopted this patrol system to discover and solve problems in time.
+Amidst this frenetic activity, they also rotated through visits to Qiwei's various branches across Jiangnan. Currently, even naturalized citizen personnel and local employees were working like bees. Qiwei's burden was especially heavy, with construction tasks at five branches urgent as brushfire: expanding alliances, purchasing boats, recruiting hands. Mao Sansheng and the others spun like tops. To prevent errors amidst the chaos, the elders adopted this patrol system to discover and solve problems promptly.
 
-As the prelude to the Dengzhou Rebellion was about to open, Zhao Yingong anxiously awaited the arrival of the Population Work Team personnel—these elders and naturalized citizens were staff prepared for the Dengzhou Rebellion and the Northern Zhejiang Drought of 1632. Before formally intervening in the Dengzhou Rebellion, they could all be used as Hangzhou Station manpower. For this, he repeatedly wired the Executive Committee, asking for the speedy dispatch of Population Work Team personnel.
+As the Dengzhou Rebellion's opening act approached, Zhao Yingong anxiously awaited the arrival of Population Work Team personnel. These elders and naturalized citizens were staff prepared for both the Dengzhou Rebellion and the Northern Zhejiang Drought of 1632. Before formally intervening in the Dengzhou Rebellion, they could all be utilized as Hangzhou Station manpower. For this purpose, he repeatedly wired the Executive Committee, urging speedy dispatch of Population Work Team personnel.
 
-While the Hangzhou Station was intensively setting up stalls to prepare for tomorrow's refugee flood, the Executive Committee was debating endlessly over the details of refugee collection and transport. The Planning Commission racked its brains formulating plans.
+While Hangzhou Station was intensively establishing operations to prepare for tomorrow's flood of refugees, the Executive Committee engaged in endless debates over details of refugee collection and transport. The Planning Commission racked its brains formulating plans.
 
-The biggest bottleneck was current insufficient transport capacity—shipyards were producing at full speed, but they were building warships. Of course, hybrid-powered warships could carry people, but this transport involved cold, hungry, disease-ridden refugees; using warships was obviously unsuitable. Specialized transport vessels had to be used.
+The greatest bottleneck was insufficient current transport capacity. Shipyards were producing at full speed, but they were building warships. Hybrid-powered warships could transport people, of course, but this operation involved cold, hungry, disease-ridden refugees—using warships was obviously unsuitable. Specialized transport vessels were essential.
 
-Navy ships could provide some capacity. As for Great Wave Shipping, its freight tasks were already heavy; diverting excess tonnage to transport people would be very difficult. And transporting people wasn't like transporting cargo; time at sea was long, and turnaround trips were many. It wasn't efficient for ship utilization.
+Navy ships could provide some capacity. As for Great Wave Shipping, its freight commitments were already substantial; diverting excess tonnage for passenger transport would be extremely difficult. Moreover, transporting people differed fundamentally from transporting cargo—time at sea was lengthy, and round trips were numerous, making efficient utilization of vessels challenging.
 
-Thus, the Planning Commission's urgent task was shipbuilding to expand capacity. Wu De knew expecting the Lingao Shipyard was unrealistic—the shipyard's entire production capacity was occupied by constructing the 854 Modification, 901, and 621 projects. Arranging construction of specialized transport ships was completely impossible.
+Thus, the Planning Commission's urgent priority became shipbuilding to expand capacity. Wu De knew that expecting anything from Lingao Shipyard was unrealistic—the yard's entire production capacity was consumed by construction of the 854 Modification, 901, and 621 projects. Arranging construction of specialized transport ships was completely impossible.
 
-At this time, Shi Jiantao, responsible for setting up the shipyard in Hong Kong, voluntarily requested to build transport ships. For this, he specially returned to Lingao and requested an audience with Wu De.
+At this juncture, Shi Jiantao, responsible for establishing the shipyard in Hong Kong, voluntarily requested to build the transport ships. For this purpose, he returned specially to Lingao and requested an audience with Wu De.
 
-"Can the Hong Kong Shipyard do it?" Wu De was very skeptical—in the Planning Commission's priority list for material and personnel allocation, the Hong Kong Shipyard was in a very unimportant position. The Hong Kong Shipyard was initially established mainly for ship repair and maintenance. It had only built one dry dock for small vessels and several slipways. It was basically at the level of a beach shipyard. Large equipment was scarce, and trained labor was insufficient. After arriving in Hong Kong, Shi Jiantao had to work hard to recruit local Cantonese shipwrights.
+"Can the Hong Kong Shipyard handle this?" Wu De was deeply skeptical. On the Planning Commission's priority list for material and personnel allocation, Hong Kong Shipyard occupied a distinctly unimportant position. The facility had been established primarily for ship repair and maintenance. It possessed only one dry dock for small vessels and several slipways—essentially equivalent to a beach shipyard. Large equipment was scarce, and trained labor insufficient. After arriving in Hong Kong, Shi Jiantao had worked strenuously to recruit local Cantonese shipwrights.
 
-Shi Jiantao's suggestion to "drop dumplings" (mass produce) standardized transport ships in Hong Kong had been proposed for a long time. The Planning Commission, considering expanding ship production capacity, had approved his expansion plan, and a simple gantry crane had recently been installed.
+Shi Jiantao's proposal to "drop dumplings"—mass-produce standardized transport ships in Hong Kong—had been floating around for some time. The Planning Commission, seeking to expand ship production capacity, had approved his expansion plan, and a simple gantry crane had recently been installed.
 
-A timber processing plant invested in by the Planning Commission in Hong Kong had also recently entered trial production. This factory wasn't prepared as a supporting facility for the shipyard, but to process forestry resources from Guangdong and Fujian nearby, avoiding transport of large quantities of raw logs and saving freight tonnage. Having a timber processing plant was a favorable condition for the shipyard.
+A timber processing plant with Planning Commission investment had also recently commenced trial production in Hong Kong. This factory hadn't been conceived as a supporting facility for the shipyard, but to process forestry resources from nearby Guangdong and Fujian, thus avoiding transport of large quantities of raw logs and saving freight tonnage. Having a timber processing plant constituted a favorable condition for the shipyard.
 
-"I have confidence." Shi Jiantao had long prepared a full set of plans and blueprints. He hurriedly presented them now. "Our approach is standardized shipbuilding—similar to Liberty ships."
+"I'm confident we can succeed." Shi Jiantao had long prepared a complete set of plans and blueprints. He now presented them eagerly. "Our approach is standardized shipbuilding—similar to Liberty ships."
 
-"Mn." Wu De nodded. Standardized shipbuilding wasn't a rare thing. The currently produced 854s and 901s were also standardized ship types.
+"Mn." Wu De nodded. Standardized shipbuilding was nothing novel. The currently produced 854s and 901s were also standardized ship types.
 
-"You know very well that what we lack most is transport capacity. To expand capacity, we must expand shipbuilding. To expand shipbuilding quantity, we must improve production efficiency." Shi Jiantao spoke with assurance. "So we designed the 'Harmony Wheel' implementing the 'Liberty Ship' concept."
+"You understand well that our greatest shortage is transport capacity. To expand capacity, we must expand shipbuilding. To expand shipbuilding volume, we must improve production efficiency." Shi Jiantao spoke with confident assurance. "Therefore, we designed the 'Harmony Wheel' implementing the Liberty Ship concept."
 
-"Harmony Wheel." Wu De's face went blank for a moment.
+"Harmony Wheel." Wu De's expression momentarily went blank.
 
-The Harmony Wheel [He Xie Lun] was neither harmonious [a pun on river crab], nor were most of them steamers [Lun]. They were simply cargo ships built in large batches using standardized blueprints, mass-produced standard parts, and assembly line methods, referencing the idea of American Liberty and Victory ships built during WWII.
+Despite the name, the Harmony Wheel was neither particularly harmonious nor were most examples steamships. They were simply cargo vessels built in large batches using standardized blueprints, mass-produced standard parts, and assembly-line methods—referencing the concept of American Liberty and Victory ships constructed during World War II.
 
-Just as American Liberty ships weren't of only one type, Lingao's Harmony Wheels also had several standard designs.
+Just as American Liberty ships weren't confined to a single type, Lingao's Harmony Wheels encompassed several standard designs.
 
-On the Planning Commission's schedule, Lingao Shipyard's shipbuilding plan was "Class A Shipbuilding," while Hong Kong Shipyard belonged to "Class B Shipbuilding." There were clear gaps in allocated materials, personnel, and technical level. So the "Harmony Wheels" were almost entirely wooden-structured, sail-powered small and medium auxiliary vessels not exceeding 800 tons.
+On the Planning Commission's schedule, Lingao Shipyard's shipbuilding program was designated "Class A Shipbuilding," while Hong Kong Shipyard belonged to "Class B Shipbuilding." Clear gaps existed in allocated materials, personnel, and technical level. Thus the Harmony Wheels were almost entirely wooden-structured, sail-powered small and medium auxiliary vessels not exceeding 800 tons.

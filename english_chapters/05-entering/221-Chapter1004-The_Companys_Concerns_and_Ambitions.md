@@ -1,125 +1,125 @@
 # Chapter 1004 The Company's Concerns and Ambitions
 
-News of the Australians appearing in Formosa made the East India Company bigwigs in Batavia nervous—although the Tayouan trading post wasn't operating satisfactorily and its importance had greatly declined after signing the trade agreement with the Australians, as a direct window for China trade, Formosa's position remained crucial.
+News that the Australians had appeared in Formosa sent tremors of anxiety through the East India Company bigwigs in Batavia. Though the Tayouan trading post had been underperforming and its importance had declined considerably since the signing of the trade agreement with the Australians, Formosa remained crucial as a direct window for China trade.
 
-The Australians sending ships to observe Formosa was terrible news for the Dutch. For this reason, De Carpentier and Batavia's Council dispatched the *Magdeburg* during typhoon season on a risky voyage to Lingao to gather intelligence.
+The prospect of Australian ships surveying Formosa represented dire tidings for the Dutch. De Carpentier and Batavia's Council had dispatched the *Magdeburg* during typhoon season, risking the treacherous voyage to Lingao specifically to gather intelligence.
 
-Trini understood why they were so anxious. He pondered for a moment and said: "These past few months, I can sense they're planning a major operation. But I cannot say such an operation is targeting the company."
+Trini understood their anxiety well. He pondered for a moment before speaking. "These past months, I've sensed they're planning a major operation. But I cannot confidently state that such an operation targets the company's interests."
 
-He then described the large-scale activities he had witnessed in Lingao: massive import and export of goods, frequent personnel transfers, and active shipbuilding operations. He clearly sensed the Australians had entered a state of war readiness.
+He then described the large-scale activities he had witnessed in Lingao: massive flows of imports and exports, frequent personnel transfers, and vigorous shipbuilding operations. The Australians had clearly entered a state of war readiness.
 
-"All Australian institutions, factories, and ships are running at full speed..." Mr. Trini said. "Especially ships entering and leaving port very frequently, constantly shipping goods in and out—you know, this isn't trading season."
+"All Australian institutions, factories, and ships are running at full capacity..." Trini observed. "Ships enter and leave port with remarkable frequency, constantly moving goods in and out—and this during what should be the off-season."
 
-"If that's the case, why do you still believe the Australians' preparations aren't targeting the company?"
+"If that's the case, why do you still believe these preparations aren't directed at the company?"
 
-"Simple. Because they're procuring equipment for use in cold northern regions." Trini said. "Many of the goods in their order forms submitted to the company cannot be used in Formosa. I think you're also aware of this."
+"The answer is straightforward. They're procuring equipment designed for cold northern regions." Trini said. "Many goods in their order forms submitted to the company cannot possibly be used in Formosa. I suspect you're aware of this as well."
 
-Reminded by this, Van de Lantron recalled that the Australians' recent orders included much woolen cloth and leather, and they had also purchased Persian raw wool and Indian raw cotton. These goods couldn't be used in Formosa.
+Thus reminded, Van de Lantron recalled that the Australians' recent orders had included substantial quantities of woolen cloth and leather, along with purchases of Persian raw wool and Indian raw cotton. These goods would be useless in Formosa's climate.
 
-"Secondly, with respect: I believe that with the company's entire strength in East Asia, the Australians wouldn't need such extensive war preparations. Their opponent is far stronger and larger than our masters."
+"Furthermore, with respect: I believe that with the company's entire strength in East Asia, the Australians wouldn't require such extensive war preparations. Their intended opponent is far stronger and larger than our masters."
 
-Van de Lantron nodded: "What you say makes sense. However, to reassure the Governor and the gentlemen of the Council, I would still very much like to know exactly where they intend to strike—and why did they go to Formosa?"
+Van de Lantron nodded. "Your reasoning is sound. However, to reassure the Governor and the gentlemen of the Council, I would very much like to know precisely where they intend to strike—and why they visited Formosa."
 
-"I believe their chosen target is the Ming Empire, that is, the Chinese. Their going to Formosa may be due to various motives—such as obtaining a midway stopover point. Specifically, I cannot know..."
+"I believe their chosen target is the Ming Empire—that is, China. Their visit to Formosa may serve various purposes—perhaps securing a midway stopover point. The specifics, I cannot determine..."
 
 "Please continue."
 
-"The Ming Empire is vast in territory, populous, and possesses incomparable great wealth. The Australians came all the way to East Asia and have such powerful military strength. If their conquest and plunder objectives didn't include the Ming Empire, I would be very surprised." Trini said. "Moreover, they specifically chose this place, Lingao."
+"The Ming Empire possesses vast territory, an enormous population, and incomparable wealth. The Australians crossed the world to reach East Asia and now command formidable military strength. If their ambitions of conquest and plunder did not include the Ming Empire, I would be profoundly surprised." Trini paused meaningfully. "Moreover, they chose this particular place—Lingao—as their base deliberately."
 
-"Alright, assuming the Australians are about to launch a conquest of the Ming Empire, what do you think their chances of victory are?"
+"Very well. Assuming the Australians are indeed preparing to launch a conquest of the Ming Empire, what do you estimate their chances of success to be?"
 
-"Without a doubt they can easily defeat Chinese armies ten times their number, but conquering all of China is obviously difficult to accomplish—at least not in the short term." Trini said. "China's territory is too vast. To conquer such a country, the Australians' strength is still a bit small."
+"They can unquestionably defeat Chinese armies ten times their number with ease. But conquering all of China is obviously difficult to accomplish—at least not in the short term." Trini considered his words carefully. "China's territory is simply too vast. To subdue such a nation, the Australians' present strength remains insufficient."
 
-"Assuming, just assuming. If one day the company had to go to war with the Australians, could the company achieve a favorable peace outcome?"
+"Assuming—purely hypothetically—that someday the company found itself at war with the Australians. Could the company achieve a favorable peace outcome?"
 
-"With respect, I'm afraid it would be very difficult. Peace can certainly come, but the outcome may not be favorable." Trini said. "The Australians' military potential is truly astonishing. Once mobilized, I'm afraid no one is their match."
+"With respect, I believe it would prove exceedingly difficult. Peace would certainly come eventually, but the terms might not favor our side." Trini spoke frankly. "The Australians' military potential is truly astonishing. Once fully mobilized, I fear no one could oppose them."
 
-"What if before their potential has fully developed?"
+"What if we struck before that potential fully developed?"
 
-"Is this also included in your mission this time?"
+"Is that also included in your mission this time?"
 
-"Three or four directors—you must understand, they are the masters, and they're not in Batavia. So they proposed... hoping to assess... whether it would be worthwhile to seize the Australians' territory."
+"Three or four directors—you must understand, they are our masters, and they're not in Batavia. They have proposed... hoping to assess... whether seizing Australian territory might prove worthwhile."
 
-Compared to the desolate Tayouan, Lingao was bustling and prosperous. It had undergone thorough development with many military industries and large shipyards; its comprehensive strength was much stronger than even the Portuguese Macau. If it could be seized, it would obviously be a very ideal base for China trade or even East Asian trade.
+Compared to the desolate Tayouan, Lingao bustled with activity and prosperity. The territory had undergone thorough development with numerous military industries and large shipyards; its comprehensive strength vastly exceeded even Portuguese Macau. If it could be seized, it would obviously constitute an ideal base for China trade—perhaps even for dominating East Asian commerce entirely.
 
-The Senate was well aware of Trini's assigned mission, but didn't mind this at all.
+The Senate was well aware of Trini's assigned mission but viewed it with complete indifference.
 
-Since the Senate was about to launch Operation Engine, they didn't want to divert forces for unexpected attackers. Therefore, they very much hoped to make the Dutch understand that their military strength simply couldn't be challenged by anyone.
+Since the Senate was preparing to launch Operation Engine, they had no desire to divert forces to deal with unexpected attackers. They very much wished to make the Dutch understand that their military strength simply could not be challenged by anyone.
 
-So Trini was sometimes even invited by the Foreign Intelligence Department to observe army and navy training, and was permitted to make close-up drawings of the Fubo Army. Only the Australians had many requirements for the drawings—for example, requiring soldiers' head-to-body ratio to be drawn as 1:7, muscles to be drawn Greek-style, shoulders to match the Germanic shape...
+Accordingly, Trini was sometimes even invited by the Foreign Intelligence Department to observe army and navy training exercises and was permitted to create detailed drawings of the Fubo Army at close range. The Australians maintained only certain requirements for these drawings—for instance, soldiers' head-to-body ratios had to be rendered as 1:7, muscles drawn in the Greek fashion, shoulders conforming to Germanic proportions...
 
-But these were originally similar to Renaissance scholastic painting anyway, so Trini was naturally happy to comply.
+But since these conventions aligned with Renaissance scholastic painting traditions anyway, Trini was naturally happy to comply.
 
-"I mean no disrespect to the gentlemen, but this idea is—too crazy. The Australians have extreme confidence in their military force, very casually displaying their force to me and letting me continuously send sketchbooks back to Batavia."
+"I mean no disrespect to the gentlemen, but this idea is—frankly—insane. The Australians possess extreme confidence in their military force. They quite casually display it to me and allow me to continuously send sketchbooks back to Batavia."
 
-"So what do you think?"
+"So what is your assessment?"
 
-"From my personal observation, Australian soldiers are actually local natives, the vast majority being Chinese. Only a very few officers are Australians. When they recruit soldiers from the mainland, their physiques are very poor—not much better than Southeast Asian monkeys. But now their firing speed and accuracy with muskets is terrifying. I've never seen such formidable professional soldiers... Officers are also very excellent—led by Australian professional soldiers no less than Gustav's officers. I've seen many times: they rise before dawn, then silently march on foot from one county to another."
+"From my personal observations, Australian soldiers are in fact local natives—the vast majority being Chinese. Only a very few officers are Australians. When they recruit soldiers from the mainland, the physiques are quite poor—not much better than Southeast Asian monkeys. But their musket firing speed and accuracy have become terrifying. I've never encountered such formidable professional soldiers..." His voice grew more emphatic. "The officers are equally excellent—professional soldiers led by Australian commanders no less capable than Gustav's finest officers. I've witnessed many times: they rise before dawn, then march silently on foot from one county to another."
 
 "Meaning they don't march on foot because they lack ships."
 
-"They're just having their army practice quickly crossing steep mountains, then immediately engaging in combat. Actually, every soldier must do this kind of practice."
+"They're drilling their army to cross steep mountains rapidly, then immediately engage in combat. Actually, every soldier must perform this kind of practice."
 
-"The great Hannibal... is that it?"
+"The great Hannibal... is that what you're suggesting?"
 
-"Whether they can match Hannibal's level I find hard to evaluate, Your Excellency. But their combat power obviously surpasses most armies I've seen."
+"Whether they match Hannibal's level I find difficult to evaluate, Your Excellency. But their combat power clearly surpasses most armies I've observed."
 
-"As for ships, they don't have enough yet. But there will be many in the future, Your Excellency. Please be sure to bring this sketchbook back and tell the gentlemen in Batavia: the Australians built a several-hundred-ton sailing ship in fourteen weeks."
+"As for ships, they don't possess enough yet. But there will be many in the future, Your Excellency. Please be certain to bring this sketchbook back and inform the gentlemen in Batavia: the Australians constructed a several-hundred-ton sailing ship in fourteen weeks."
 
 "What?!"
 
-"Their shipyard has very high efficiency, but I've never been able to get close. Looking from afar, it seems many ships are being built side by side simultaneously. The second identical ship was launched 10 days later."
+"Their shipyard operates with extraordinary efficiency, though I've never managed to get close. From a distance, it appears many ships are being built simultaneously, side by side. The second identical vessel was launched just ten days later."
 
-"This is too astonishing. I think I should still confirm it with my own eyes."
+"This is too astonishing. I believe I should verify it with my own eyes."
 
-"Before you leave, you'll see the next one launched."
+"Before you depart, you'll witness the next one launched."
 
-"Do you think the Australians might have intentions to expand southward?"
+"Do you believe the Australians harbor intentions to expand southward?"
 
-"It's only a matter of time." Trini smiled slightly. "When you possess a matchless great army and powerful fleet, would you let them go home to farm?"
+"It's only a matter of time." Trini smiled slightly. "When you possess a matchless army and powerful fleet, would you send them home to farm?"
 
-"Your work is truly outstanding. I will recommend you to the Council in Batavia."
+"Your work is truly outstanding. I shall recommend you to the Council in Batavia."
 
-"It's fine, no need. I'm an Italian, and Italians have no homeland. My homeland is the work my employer gives me."
+"That's kind of you, but unnecessary. I'm an Italian, and Italians have no homeland. My homeland is whatever work my employer assigns me."
 
 "What do you think of Lingao?"
 
 "I truly wish Lingao were in Italy."
 
-"Fortunately, Lingao isn't in Italy." Van de Lantron said.
+"Fortunately for us, Lingao is not in Italy," Van de Lantron replied.
 
-"Where Lingao is doesn't matter." Trini realized Van de Lantron's questioning had concluded. He stood up, took a bottle of rum from the liquor cabinet, then took out two bottles of "soda water" and two glass cups, retrieved some crushed ice from the "icebox," and mixed two rum sodas in the local fashionable manner.
+"Where Lingao is located hardly matters." Trini sensed that Van de Lantron's questioning had concluded. He stood and retrieved a bottle of rum from the liquor cabinet, then took out two bottles of "soda water" and two glass cups. He fetched some crushed ice from the "icebox" and mixed two rum sodas in the local fashionable manner.
 
-"A pleasant enjoyment." Van de Lantron praised after drinking.
+"A pleasant indulgence," Van de Lantron praised after drinking.
 
-"Let our masters consider the Australians' ambitions or objectives. Now I have an Australian project to propose to the Council."
+"Let our masters contemplate the Australians' ambitions and objectives. For now, I have an Australian project to propose to the Council."
 
-"Oh? Was it proposed by the Australians?"
+"Oh? Was it proposed by the Australians themselves?"
 
-"Correct. The Australians have provided me with some agricultural books and drawings, asking me to translate them into an illustrated book." Trini handed him a thick notebook as he said this, sitting down on the sofa to continue explaining. "The Australians are preparing to provide us with some seedlings for the company to plant on some small island in the Moluccas. They will purchase the mature crops."
+"Indeed. The Australians have provided me with some agricultural books and illustrations, asking me to translate them into an illustrated manual." Trini handed him a thick notebook as he spoke, then settled back onto the sofa to continue his explanation. "The Australians are preparing to supply us with seedlings for the company to cultivate on some small island in the Moluccas. They intend to purchase the mature crops."
 
-"What is it?"
+"What crop?"
 
-"From what I see, it seems to be rubber trees."
+"From what I observe, it appears to be rubber trees."
 
-"Rubber trees?" Although rubber trees and rubber had been known since Columbus's time, Europeans were still quite unfamiliar with this plant. Trini had some knowledge of natural history, enabling him to recognize this plant unseen in Europe.
+"Rubber trees?" Though rubber trees and rubber had been known since Columbus's time, Europeans remained quite unfamiliar with this plant. Trini's knowledge of natural history enabled him to recognize this species unseen in Europe.
 
 "Yes, an American plant..."
 
-Trini became interested: "They've also been to America?"
+"They've been to America as well?"
 
 "Very possibly. Otherwise, how could they provide rubber tree seedlings?"
 
-"What do they want these rubber trees for? Why not plant them on the lands they occupy—you said the Australians now actually occupy the entire island."
+"What use do they have for these rubber trees? Why not plant them on the lands they occupy—you mentioned the Australians now effectively control the entire island."
 
-"I think they lack sufficient labor. As for the use of rubber trees, I'm also unclear." Trini knew that rubber trees secreted a sticky colloid that Indians used to kick as balls, and could also be applied to cloth for waterproofing—but once dried it would harden, having no practical value.
+"I suspect they lack sufficient labor. As for rubber's purpose, I'm equally uncertain." Trini knew that rubber trees secreted a sticky colloid that Indians used for kicking as balls, and which could be applied to cloth for waterproofing—though once dried, it hardened and lost practical value.
 
-The Australians wanting the company to cultivate this plant obviously meant they had mastered some technology for using this colloid—the Moluccas were hotter and rainier than Lingao, with climate similar to rubber's place of origin. That the Australians had such an idea wasn't surprising.
+That the Australians wanted the company to cultivate this plant meant they had obviously mastered some technology for utilizing this colloid. The Moluccas were hotter and rainier than Lingao, with a climate similar to rubber's place of origin. That the Australians conceived such an idea wasn't surprising.
 
-"Additionally, I believe that since the Australians want the company to promote cultivating these crops in the Moluccas, they won't be interested in the company's property for at least seven years—otherwise wouldn't their investment become worthless?"
+"Additionally, I believe that since the Australians want the company to promote cultivating these crops in the Moluccas, they won't pursue the company's assets for at least seven years—otherwise their investment would become worthless."
 
-"Why ten years?"
+"Why seven years?"
 
-"Because it takes at least seven years from planting rubber to producing the rubber they need."
+"Because it requires at least seven years from planting rubber to producing the rubber they require."
 
 (End of Chapter)

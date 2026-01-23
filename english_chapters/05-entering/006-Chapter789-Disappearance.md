@@ -16,7 +16,7 @@ Nanxiong Prefecture was the overland gateway between Guangdong and Jiangxi—a n
 
 "Mm…" Xue Ziliang was noncommittal.
 
-Lin Baiguang pointed out a few more aspects of the plan he considered problematic. At the same time, he pledged that the Guangzhou Security Division would fully support his operation.
+Lin Baiguang pointed out a few more aspects of the plan he considered problematic. At the same time, he pledged that the Guangzhou Security Division would fully support the operation.
 
 Xue Ziliang smiled. "Your Guangzhou Security Division executed that evil servant outright—ruthless work."
 
@@ -24,11 +24,13 @@ Xue Ziliang smiled. "Your Guangzhou Security Division executed that evil servant
 
 After more discussion, Lin Baiguang led him to the inner courtyard to rest while he went to arrange the operation. Xue Ziliang took a bath and lay in bed, pondering the next steps.
 
-Yu Baocun gazed gloomily at the black sky. Heavy clouds layered on clouds; stars and moon hid their light. The entire Gao mansion was desolate and silent—not a human voice. Only a single corner lamp burned in the hall. The dark silhouettes of tiered roofs pressed down overhead, making one feel suffocated.
+---
 
-The household's servants, high and low, had all been swept out. The slaves were held separately in Nanhai County, Panyu County, and the Guangzhou Prefecture yamen. The few masters of the house had moved with their valuables to nearby temples—Inspecting Censor Gao had brought few relatives when he took office. The entire mansion was now controlled by runners from the prefectural and county governments.
+Yu Baocun gazed gloomily at the black sky. Heavy clouds layered on clouds; stars and moon hid their light. The entire Gao mansion was desolate and silent—not a human voice stirred. Only a single corner lamp burned in the hall. The dark silhouettes of tiered roofs pressed down overhead, making one feel suffocated.
 
-Yu Baocun sat in the hall, deeply worried. Inspecting Censor Gao had inexplicably vanished seven or eight days ago. During that time, they had once closed the gates and searched the city—not a single hair of his had turned up.
+The household's servants, high and low, had all been swept out. The slaves were held separately in Nanhai County, Panyu County, and the Guangzhou Prefecture yamen. The few remaining family members had moved with their valuables to nearby temples—Inspecting Censor Gao had brought few relatives when he took office. The entire mansion was now controlled by runners from the prefectural and county governments.
+
+Yu Baocun sat in the hall, deeply worried. Inspecting Censor Gao had inexplicably vanished seven or eight days ago. During that time, they had closed the gates and searched the city once—not a single hair of his had turned up.
 
 As Guangzhou Prefect, Yu Baocun had been tasked with finding the Inspecting Censor—a most troublesome assignment. Inspecting Censors held low rank but were important local officials; they couldn't just disappear without explanation. When Wang Zunde died of illness in Zhaoqing, the court had issued a special decree investigating the matter. And this Inspecting Censor Gao had been hale and hearty just days ago!
 
@@ -38,7 +40,7 @@ Runners from the prefectural and county governments had scoured the city, turnin
 
 Finally, Yu Baocun had no choice but to return to the Gao mansion and supervise workers, guided by household servants, in tearing up every inch of the estate. After all the commotion, they found nothing.
 
-The most suspicious servants—the maid on night duty in the inner study, the boy-servants attending the master—were held in Nanhai County yamen and harshly interrogated. After hundreds of lashes and torture, some servants fainted several times, yet their confessions remained the same: Master Gao returned home, had a late-night snack in the inner study, wrote memorials for a long time. Around the end of the Hai hour (around 11 PM), he undressed and retired with Concubine Su's help. The servants on night watch outside the study all confessed, under the lash, to having dozed off after midnight. But how the master vanished—they truly couldn't explain.
+The most suspicious servants—the maid on night duty in the inner study, the boy-servants attending the master—were held in Nanhai County yamen and harshly interrogated. After hundreds of lashes and torture, some servants fainted several times, yet their confessions remained the same: Master Gao had returned home, had a late-night snack in the inner study, written memorials for a long time. Around the end of the Hai hour (around 11 PM), he undressed and retired with Concubine Su's help. The servants on night watch outside the study all confessed, under the lash, to having dozed off after midnight. But how the master vanished—that they truly couldn't explain.
 
 Concubine Su—Su Ai—hadn't vanished, but she was the master's favorite. With Master Gao's fate uncertain, Yu Baocun didn't dare torture her and only summoned her to talk. Su Ai was sensible: she knew the matter was grave. If Gao Shunqin perished, she was doomed—even if the authorities didn't scapegoat her, the Gao family wouldn't spare her. So she made no pretenses and recounted that night clearly.
 
@@ -52,9 +54,9 @@ Yu Baocun, experienced in official affairs, understood the implications. Yet the
 
 Fortunately, someone finally came to share this awkward burden. Seeing Yu Baocun's week of fruitless investigation, Li Fengjie grew anxious and pulled strings to summon Lin Ming, a Trial Centurion of the Embroidered Uniform Guard stationed in Foshan, to assist in the search. Yu Baocun was both alarmed and relieved: alarmed because the Embroidered Uniform Guard was hard to deal with; relieved because this Centurion Lin had a reputation for "skilled manhunting." If he handled the investigation, perhaps a breakthrough would come. At the very least, regarding Su Ai, the Embroidered Uniform Guard wouldn't be as hesitant as he was.
 
-This Trial Centurion Lin gave Yu Baocun hope the moment he arrived. After briefly questioning the Gao servants, he sent the prefecture's veteran detectives out to investigate. Days ago, he had picked up some lead and immediately left the city with his subordinates—gone for several days now.
+This Trial Centurion Lin gave Yu Baocun hope the moment he arrived. After briefly questioning the Gao servants, he sent the prefecture's veteran detectives out to investigate. A few days ago, he had picked up some lead and immediately left the city with his subordinates—gone for several days now.
 
-The Embroidered Uniform Guard must have some tricks. Just as Yu Baocun was musing, hoofbeats suddenly clattered outside the gate, followed by a burst of commotion. Yu Baocun's spirits rose—only Lin Ming's party had that swagger. They had to be back. After dark, only they dared gallop through the streets so boldly.
+The Embroidered Uniform Guard must have some tricks up their sleeves. Just as Yu Baocun was musing, hoofbeats suddenly clattered outside the gate, followed by a burst of commotion. Yu Baocun's spirits rose—only Lin Ming's party had that swagger. They had to be back. After dark, only they dared gallop through the streets so boldly.
 
 He quickly stood and paced the hall, affecting a worried demeanor.
 
@@ -62,7 +64,7 @@ Sure enough, Lin Ming and seven or eight retainers strode in through the main ga
 
 "Centurion Lin—" Yu Baocun hurried to the door and descended the steps to greet him respectfully. By rank, Prefect Yu outranked a mere Trial Centurion by several grades, but the Eastern Depot's reign of terror was not long past; officials still feared these men.
 
-"Let's talk inside!" Lin Ming, dusty and tired, cupped his fists, swept inside, and strode into the hall.
+"Let's talk inside!" Lin Ming, dusty and tired, cupped his fists, swept past the prefect, and strode into the hall.
 
 Yu Baocun quickly ordered, "Attendants! Serve tea! Prepare a late supper."
 

@@ -1,10 +1,10 @@
 # Chapter 804 - New Plans
 
-Those Elders and laborers waiting at the Anyoule dock in Sanya, watching the *Dajing* ease toward shore and waiting to install equipment, of course knew nothing of the complex history behind the cargo wrapped in straw matting and oilcloth on deck. The Elders had grown accustomed to miracles from the industrial sector. As for the naturalized workers, it was taken for granted—was there anything the Elders couldn't accomplish?
+Those Elders and laborers waiting at the Anyoule dock in Sanya, watching the *Dajing* ease toward shore as they prepared to install equipment, of course knew nothing of the complex history behind the cargo wrapped in straw matting and oilcloth on deck. The Elders had grown accustomed to miracles from the industrial sector. As for the naturalized workers, it was taken for granted—was there anything the Elders couldn't accomplish?
 
-In addition to the Elders preparing to install equipment, the *Dajing* had also brought back Wang Luobin and others returning from Lingao for debriefings and the New Year. The Elders who had finished their holiday leave were all glowing with health. Those originally stationed at Sanya had brought their purchased female servants along, and even the perpetually worried Zhuo Tianmin had returned with a servant—quite attractive at that. His long-standing concerns about his son had finally been thoroughly resolved. Fangshaodi had established a special class for Elder children, gathering the handful of "little Elders" together. The boarding system not only freed the parents from distraction but also provided collectivist education—ensuring the next generation wouldn't turn into wastrels.
+In addition to the Elders preparing to install equipment, the *Dajing* had brought back Wang Luobin and others returning from Lingao after debriefings and the New Year. The Elders who had finished their holiday leave were all glowing with health. Those originally stationed at Sanya had brought their purchased female servants along, and even the perpetually worried Zhuo Tianmin had returned with a servant—quite attractive at that. His long-standing concerns about his son had finally been thoroughly resolved. Fangshaodi had established a special class for Elder children, gathering the handful of "little Elders" together. The boarding system not only freed the parents from distraction but also provided collectivist education—ensuring the next generation wouldn't turn into wastrels.
 
-Li Haiping had returned too—though not on the *Dajing*, but aboard the six single-masted lateen-sail patrol boats newly assigned to reinforce the Sanya Detachment. The fleet of six fishery patrol boats had indeed been somewhat reassuring.
+Li Haiping had returned too—though not on the *Dajing*, but aboard six single-masted lateen-sail patrol boats newly assigned to reinforce the Sanya Detachment. The fleet of six fishery patrol boats had indeed been somewhat reassuring.
 
 "Engineer Wang, I hear the Year's End banquet was quite a success," He Fanghuai said with a sarcastic smile at the dock.
 
@@ -38,13 +38,13 @@ Equipment installation would naturally be the responsibility of Xiao Gui, the en
 
 "The Planning Commission also has proposals for immigrant colonization and industrial upgrading," Wang Luobin cleared his throat. "Both are long-term plans, not urgent—but we need to start laying groundwork now."
 
-The Planning Commission had decided that in the second phase of Operation Giant—the third quarter of 1631—15,000 people would be brought in from the mainland in batches. A small portion would come from other counties in Hainan; most would be refugees from the mainland, brought in to build up Sanya District's population base for agricultural and industrial development.
+The Planning Commission had decided that in the second phase of Operation Giant—the third quarter of 1631—fifteen thousand people would be brought in from the mainland in batches. A small portion would come from other counties in Hainan; most would be refugees from the mainland, brought in to build up Sanya District's population base for agricultural and industrial development.
 
 Such an influx would require massive infrastructure: housing, water supply and drainage, and roads. It would also involve providing the suddenly enlarged population with sufficient food, fuel, and health services.
 
 "...Some of this will depend on supplies from Lingao; some must be produced locally. Building materials production and training construction workers are especially important..." Wang Luobin said.
 
-Zhuo Tianmin expressed concern: "Bricks and tiles are easy—as long as we have enough coal, we can make do by building Hoffmann kilns even if Lingao can't supply chains and pulleys. But cement and timber require specialized equipment."
+Zhuo Tianmin expressed concern. "Bricks and tiles are easy—as long as we have enough coal, we can make do by building Hoffmann kilns even if Lingao can't supply chains and pulleys. But cement and timber require specialized equipment."
 
 Cement supply needed cement kilns; timber needed dedicated treatment plants and drying kilns. All of this required Lingao to manufacture specialized equipment and dispatch technicians. The small repair shop and handful of Elders in Sanya alone couldn't manage it.
 
@@ -62,7 +62,7 @@ Massive amounts of sea salt were a fundamental raw material for the chemical ind
 
 "Our enterprise truly has no end in sight!" Ji Runzhi exclaimed, unable to contain his excitement. As a devotee of "large-scale" and "mega" construction, he was naturally drawn to big projects.
 
-He Fanghuai, however, was worried: "I don't know anything about chemicals, but chemical plants have all those pipes, valves, and tanks of every size—can the General Machinery Plant handle it?"
+He Fanghuai, however, was worried. "I don't know anything about chemicals, but chemical plants have all those pipes, valves, and tanks of every size—can the General Machinery Plant handle it?"
 
 "That depends on how fast you can ship out iron ore," Xiao Gui said. "At the end of the day, industry needs enough steel. With steel, you can make anything."
 
@@ -76,13 +76,13 @@ Ji Runzhi had all the architectural reference materials on hand, and with He Fan
 
 Over three or four days, he built seven "seaside cabins" on the shallows. Wooden walkways connected the cabins. These cabins were common at seaside resorts in the old timeline: elevated stilted structures with wooden frames and thatched roofs. The Lingao version didn't even have wooden walls—just wooden frames with straw matting attached, sufficient to block wind, rain, and prying eyes. Once finished, they looked quite presentable—with an "eco-harmony" vibe.
 
-Each cabin had a veranda. Ji Runzhi added a few potted tropical plants for decoration. With rattan chairs on the verandas, watching the scenery, feet dangling over the water flowing below, cuddling a servant while sipping wine... The Elders who came to inspect were full of praise. Those only visiting on assignment couldn't help feeling envious—Lingao had no such beautiful seaside scenery.
+Each cabin had a veranda. Ji Runzhi added a few potted tropical plants for decoration. With rattan chairs on the verandas, one could watch the scenery with feet dangling over the water flowing below, cuddling a servant while sipping wine... The Elders who came to inspect were full of praise. Those visiting only on assignment couldn't help feeling envious—Lingao had no such beautiful seaside scenery.
 
 "They won't survive typhoons, though," Ji Runzhi said. "We'll have to move everything out before typhoon season. As for electricity..."
 
-Wang Luobin cut him off: "No power—we don't need people calling us wasteful."
+Wang Luobin cut him off. "No power—we don't need people calling us wasteful."
 
-He Fanghuai nodded vigorously: "With scenery this beautiful, who needs electricity? A lantern for light is fine. We can fish too."
+He Fanghuai nodded vigorously. "With scenery this beautiful, who needs electricity? A lantern for light is fine. We can fish too."
 
 That evening, the Elders moved into the seaside cabins—all except Xi Yazhou and Li Haiping. As garrison commanders, regulations required them to live in the barracks. They could only enjoy the cabins on their days off.
 

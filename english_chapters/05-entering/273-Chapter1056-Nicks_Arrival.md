@@ -1,10 +1,10 @@
 # Chapter 1056 - Nick's Arrival
 
-This was going to be an ideal place for him to accomplish great things. Nick thought to himself: in all of East Asia, apart from Hokkaido, Jeju Island offered the most ideal conditions for raising horses.
+This was going to be an ideal place to accomplish great things. In all of East Asia, Nick thought, apart from Hokkaido, Jeju Island offered the most ideal conditions for raising horses.
 
-The H800 safely docked at the jetty under the tow of a small launch. As an Exemplar was arriving aboard, the Marine squad garrisoned at Jocheon formed a line on the dock to welcome them. Li Haiping was out at sea, so the highest-ranking officer present to greet Nick's party was the Special Reconnaissance Team detachment leader, Xue Ziliang.
+The H800 docked safely at the jetty under the tow of a small launch. Since an Exemplar was aboard, the Marine squad garrisoned at Jocheon formed a line on the dock to welcome them. Li Haiping was out at sea, so the highest-ranking officer present to greet Nick's party was Xue Ziliang, the Special Reconnaissance Team detachment leader.
 
-As the Marine sergeant bellowed "Present arms!" and "Salute!", the loudspeaker began playing "We Salute You, Comrade Commander!" Nick had no choice but to stand at attention, then raise his hand in salute to those greeting him.
+As the Marine sergeant bellowed "Present arms!" and "Salute!" the loudspeaker began playing "We Salute You, Comrade Commander!" Nick had no choice but to stand at attention, then raise his hand in salute to those greeting him.
 
 When the music concluded, Nick finally relaxed and shook hands with Xue Ziliang. Pak Chang-beom had already prepared sedan-chair bearers—by Chinese standards, the conveyance was more accurately called a "bamboo pole litter."
 
@@ -30,7 +30,7 @@ After considerable effort to get clean and change into fresh clothes and shoes, 
 
 Nick said nothing more. He still felt like a fish out of water—even when facing a genuine "banana."
 
-Once the "pampering" was complete and all the luggage unloaded, Nick personally inspected the seals and packaging to confirm everything was intact before setting out. This time he did not refuse the sedan chair. Xue Ziliang had told him the main road was in poor condition; Feng Zongze was investing manpower to repair it. Of course, he could also take a boat, but sea conditions were poor these past few days, and since what he was carrying was important, he ultimately decided on the overland route.
+Once the "pampering" was complete and all luggage unloaded, Nick personally inspected the seals and packaging to confirm everything was intact before setting out. This time he did not refuse the sedan chair. Xue Ziliang had told him the main road was in poor condition; Feng Zongze was investing manpower to repair it. Of course, he could also take a boat, but sea conditions were poor these past few days, and since what he was carrying was important, he ultimately decided on the overland route.
 
 Just as they were about to depart, Nick suddenly noticed a dozen or so cavalrymen in the convoy wearing conical helmets and carrying sabers. Their luggage was also being transported by horses. His interest was immediately piqued.
 
@@ -102,7 +102,7 @@ General information on Jeju Island's horses and pastures had already been provid
 
 According to the Veritable Records of the Yi Dynasty, the number of official horses on Jeju Island was approximately ten thousand. This figure was probably fairly accurate, because under the horse tribute regulations established by the Yi Dynasty, Jeju Island was required to present horses to the court annually for military and official use. This was known as "horse tribute presentation."
 
-The horse tribute presentation was typically held on June 7 before the Gwandeok Pavilion of the Jeju Provincial Governor's Office. The annual quota was 200 horses. Additionally, 700 horses were presented every third year during the cyclical years (Zi, Wu, Mao, You), with 20 horses presented on each of the Three Felicitous Days (New Year's Day, Winter Solstice, and the King's Birthday). Three horses were also presented whenever a new magistrate took office in any of Jeju's three counties. Furthermore, irregular selections could be conducted by traders when necessary.
+The horse tribute presentation was typically held on June 7 before the Gwandeok Pavilion of the Jeju Provincial Governor's Office. The annual quota was 200 horses. Additionally, 700 horses were presented every third year during the cyclical years, with 20 horses presented on each of the Three Felicitous Days—New Year's Day, Winter Solstice, and the King's Birthday. Three horses were also presented whenever a new magistrate took office in any of Jeju's three counties. Furthermore, irregular selections could be conducted by traders when necessary.
 
 By this calculation, Jeju Island's official horse pastures were required to present roughly 450 horses annually to the Yi Dynasty court. Given selection ratios, a herd of at least ten thousand horses had to be maintained to guarantee this tribute.
 

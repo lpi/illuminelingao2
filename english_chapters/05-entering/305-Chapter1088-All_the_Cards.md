@@ -1,97 +1,107 @@
 # Chapter 1088 - All the Cards
 
-The bombardment not only wiped out the entire rebel Red Barbarian artillery team but also saw several shells land amidst the dense rebel troops waiting nearby to attack, instantly killing fifty or sixty people and injuring over a hundred. The ground was covered with fragments of corpses and blood, and the screams of the wounded rose one after another.
+The bombardment had not merely annihilated the rebel Red Barbarian artillery team—several shells had also landed amidst the dense rebel formations waiting nearby, instantly killing fifty or sixty men and wounding over a hundred more. The ground was carpeted with fragments of flesh and blood, and the screams of the wounded rose in a chorus of agony.
 
-The rebel troops, who had barely finished lining up, fell into chaos. Some refugees turned around and wanted to flee. Fortunately, shells did not continue to fall. Mao Chenglu's subordinates blocked them on all sides and beheaded more than a dozen people before maintaining the formation.
+The rebel troops, who had barely managed to form ranks, dissolved into chaos. Some refugees tried to turn and flee. Fortunately, no more shells followed. Mao Chenglu's subordinates closed in from all sides, beheading more than a dozen men before the formation could be stabilized.
 
-Mao Chenglu looked extremely ugly—although these few shots didn't kill many people, destroying the Red Barbarian artillery team, this assistance, greatly increased the difficulty of him capturing the stockade.
+Mao Chenglu's expression had turned ugly. Though these few salvos had not killed vast numbers, the destruction of the Red Barbarian artillery team—his critical advantage—had dramatically complicated the task of taking this stockade.
 
-What surprised him most was the power of the opponent's artillery. He had seen explosive shells before, but never with such formidable power—even the large "Ten Thousand Men Enemy" (*Wanren Di*) used for defending cities, which required two people to move, was not as formidable as the explosive shells fired just now. Not to mention cannonballs.
+What surprised him most was the power of the enemy's artillery. He had seen explosive shells before, but never with such devastating effect. Even the massive "Ten Thousand Men Enemy" fortress bombs—so heavy they required two men to move—were not so formidable as the shells that had just fallen. Let alone ordinary cannonballs.
 
-The explosive shells that the Great Ming army could fire were actually a kind of poison gas shell: the shell contained a small amount of gunpowder as a detonator, and the rest was mainly sulfur, lime, and many toxic traditional Chinese medicines like croton. After exploding, smoke diffused; another kind was indeed a grenade, but the charge was very small, and it just broke into two halves after landing. Neither was as powerful as firing solid shots or grapeshot. So they were not used too widely.
+The explosive shells the Great Ming army typically fired were actually a form of poison gas munition: the shell contained a small charge of powder as detonator, with the remainder consisting mainly of sulfur, lime, and various toxic medicinal substances like croton. Upon detonation, they dispersed noxious smoke. Another type was indeed a grenade, but its charge was minimal; after landing it merely split into two halves. Neither approached the power of solid shot or grapeshot. Consequently, such weapons saw limited use.
 
-It seemed that the opponent's bird guns were not only sharp, but even their cannons were far superior to his side—Mao Chenglu was secretly worried in his heart. Now that the enemy had ceased fire, evidently they had fired too much just now and must rest the guns.
+It seemed the enemy's bird guns were not the only things that were sharp—their cannons were also far superior to his own. Mao Chenglu felt a cold knot forming in his stomach. The enemy had ceased fire; evidently their intense barrage had overheated the guns, and they must be resting them now.
 
-Cannons of the 16th and 17th centuries, due to limited technology in smelting and casting, had low barrel strength, so the barrel weight was large, and the rate of fire was not high. At most 12-15 rounds were fired per hour, and no more than 60-80 rounds per day. This was under the condition of being equipped with a large amount of vinegar for forced cooling.
+Sixteenth and seventeenth-century cannons, constrained by primitive smelting and casting techniques, possessed low barrel strength. This necessitated heavy barrel weights and limited rates of fire—at most twelve to fifteen rounds per hour, and no more than sixty to eighty rounds per day, even with large quantities of vinegar available for forced cooling.
 
-Mao Chenglu didn't know the quality of the opponent's cannons. The dense artillery fire just now made him think that the opponent's cannons must have entered the heat dissipation stage, which happened to be an excellent opportunity for his side to launch an assault.
+Mao Chenglu did not know the quality of the enemy's cannons. But the concentrated fire moments before led him to believe the enemy's guns must now be in their cooling phase—an excellent opportunity for his forces to launch an assault.
 
-"Beat the drums!" He ordered loudly, "First wave, up!"
+"Beat the drums!" he commanded loudly. "First wave—advance!"
 
-The drums sounded rapidly. The refugee soldiers of the first wave began to stir—they had been scared out of their wits by the dense artillery fire just now. The little bit of courage they had mustered was long gone. Many people originally only had the courage of blood and qi incited for a moment. When death was presented before them so simply and bloodily, almost everyone showed a shrinking gesture.
+The drums hammered out a rapid cadence. The refugee soldiers of the first wave began to stir. They had been terrified witless by the dense artillery fire moments before. Whatever courage they had mustered was long gone. Many had been moved only by that momentary surge of blood and bravado. Now that death had been presented so simply and bloodily before them, nearly everyone shrank back.
 
-More than a thousand people, squeezing together, just refused to move forward.
+More than a thousand people pressed together, refusing to advance.
 
-The rebel soldiers had experience with this long ago. Without needing an order, as soon as the second drum roll sounded, the supervising rebel soldiers raised their big sabers and beheaded several people at the tail of the column.
+The rebel soldiers were experienced with this. Without waiting for orders, the moment the second drum roll sounded, the supervising soldiers raised their great sabers and beheaded several men at the rear of the column.
 
-"Those who don't advance, behead!" With screams coming from behind and the roars of the supervisors, the crowd at the tail began to surge forward, forcing those in front to also start advancing.
+"Those who do not advance—beheaded!" Screams erupted behind them; the supervisors' roars thundered in their ears. The crowd at the rear surged forward, forcing those in front to move as well.
 
-On the Willow Palisade fortress, reports came from everywhere that the cannons were ready and could open fire at any time.
+---
 
-Chen Sigen raised his telescope: the first wave composed of refugees had already stepped onto the sandbar. Watching the messy crowd surging densely towards the Willow Palisade, that wretched state of being forced to go to their deaths made him feel increasingly unbearable. But at this time, the gun positions had designated targets. He hesitated for a moment and ordered: "Fire!"
+On the Willow Palisade fortress, reports arrived from every quarter: the cannons were ready and could open fire at any time.
 
-With a signal rocket rising, all cannons of the Willow Palisade fortress and the Qimu Island detachment fleet fired simultaneously. Because the targets had been designated with range tables, the first round of shells hit the target area accurately.
+Chen Sigen raised his telescope. The first wave—composed of refugees—had already mounted the sandbar. Watching the chaotic mob surging densely toward the Willow Palisade, those wretched figures being driven to their deaths, he felt increasingly unable to bear it. Yet the gun positions had already been assigned targets. He hesitated a moment, then gave the order: "Fire!"
 
-The target aimed at this time was the rear of the refugees. That is to say, the artillery did not directly strike the refugees rushing at the very front, but shelled the large body of troops waiting behind to join the assault. Chen Sigen hoped to use this method to directly force the rebels to rout and kill as few people as possible.
+A signal rocket climbed into the sky. Every cannon on the Willow Palisade fortress and in the Qimu Island detachment fleet fired simultaneously. Because targets had been predesignated with range tables, the first salvo struck the target area with precision.
 
-The sound of cannons alarmed Mao Chenglu and his subordinate generals who were observing the formation: What, the opponent opened fire again? How many cannons do they have?
+This time, the guns were not aimed at the refugees rushing at the very front but at the main body of troops waiting to join the assault behind them. Chen Sigen hoped that shelling the rear would directly trigger a rout, minimizing the number of deaths.
 
-Just as thoughts turned, they saw many smoke trails emitted from the island battery and the bay again, flying towards the shore. However, this time the shells did not fall directly but burst in mid-air, instantly spraying dozens to hundreds of small iron balls towards the ground.
+The thunder of cannons alarmed Mao Chenglu and his subordinate officers observing the formation. *What—they're firing again? How many cannons do they have?*
 
-Pellets like a rainstorm shot continuously. Wherever they went, flesh and blood flew, severed limbs scattered, and those hitting the ground also sprayed up dust half a person high. Not to mention those coerced refugees without organization or training in front of the formation routed immediately, even the rebel combat soldiers preparing to join the battle subsequently were terrified and fled in all directions. Some people rolled directly from the sandbar onto the ice surface, fleeing madly towards the shore.
+Even as the thought formed, smoke trails arced from the island battery and the bay, streaking toward the shore. But this time the shells did not fall directly. Instead, they burst in mid-air, instantly spraying dozens to hundreds of small iron balls toward the ground.
 
-Mao Chenglu's face was pale. Dengzhou gunners were known as the strongest in the Ming army, regarding both rate of fire and fire density, but in his current feeling, the opponent's artillery fire was like a continuous stream, never stopping.
+The pellets descended like a steel rainstorm. Wherever they fell, flesh and blood flew, severed limbs scattered, and impacts on the ground kicked up dust half as tall as a man. The disorganized refugees at the formation's front routed immediately—but even the rebel combat soldiers waiting to join the assault were terror-struck and fled in all directions. Some simply rolled off the sandbar onto the ice, scrambling wildly toward the shore.
 
-Waves of iron ball rainstorms swept across the already disintegrating formation. Crying, shouting, screaming, and meaningless shrieks in panic filled the air. Even in those military formations not yet affected, many soldiers were in commotion, trembling with fear.
+Mao Chenglu's face went pale. Dengzhou's gunners were reputed to be the finest in the Ming military, both in rate of fire and concentration. Yet in his current experience, the enemy's artillery seemed to pour forth in an unbroken stream, never ceasing.
 
-The first wave that had approached the Willow Palisade was awed by this artillery fire. Although only a few shells fell on their heads, everyone turned back and fled together coincidentally. Even the supervising rebel soldiers couldn't care about waving sabers to kill for supervision, and ran away together wrapped in the crowd. Countless tatters were left on the sandbar instantly.
+Wave after wave of iron ball storms swept across the already disintegrating formation. Weeping, shouting, screaming, and meaningless shrieks of panic filled the air. Even in those military units not yet directly affected, soldiers were visibly agitated, trembling with fear.
 
-Here in the central army, Mao Chenglu's house guards and combat soldiers were in commotion. Fear had risen in everyone's heart: killing with swords and spears, these veteran army ruffians were not afraid, but standing like this, being beaten to death alive without even seeing what the enemy looked like, this feeling was truly desperate.
+The first wave that had approached the Willow Palisade was awed into paralysis. Though only a few shells had fallen among them, every man turned and fled as one. Even the supervising rebel soldiers forgot to swing their sabers and ran along with the crowd. In an instant, countless discarded rags littered the sandbar.
 
-Mao Chenglu and others looked extremely ugly. Although this burst of artillery fire only disrupted the formation of thousands of refugees, and not many rebel combat soldiers were killed or wounded, seeing nearly ten thousand people fall into chaos as soon as the opponent opened fire, this battle probably couldn't be fought anymore.
+Here in the central army, Mao Chenglu's house guards and combat soldiers were stirring uneasily. Fear had taken root in every heart. Death by sword or spear—these veteran ruffians could accept. But standing here, being killed alive without even glimpsing the enemy—this was a feeling of pure despair.
 
-Many people was an advantage, but also a disadvantage. Mao Chenglu understood this principle. If this "army of one hundred thousand" really fell into chaos, he was afraid he would be trampled to death even if he ran away.
+Mao Chenglu and his officers exchanged grim looks. Though this barrage had only routed the formation of several thousand refugees, with relatively few rebel combat soldiers among the casualties, watching nearly ten thousand men collapse into chaos the moment the enemy opened fire made one thing clear: this battle could no longer be fought.
 
-With an ashen face, he waved his horse whip: "House guard squad, up! Tidy up this group of mobsters and tell them to continue charging!"
+Many could be an advantage, but it could also be a liability. Mao Chenglu understood this principle well. If this "army of one hundred thousand" truly fell into uncontrollable chaos, he might be trampled to death before he could even attempt to flee.
 
-The house guards quickly galloped out, intercepting the routed soldiers everywhere. Refugees were easy to handle; being unarmed, they had to stop and wait for reorganization after house guards beheaded a few. Those old army ruffians were not so easy to deal with. They hesitated not to wave sabers to resist, and in many places, they started fighting among themselves.
+His face ashen, he cracked his horse whip. "House guard squad—forward! Restore order to this rabble and get them charging again!"
 
-On Qimu Island, many village braves of the Advance Column were helping move ammunition on the Willow Palisade fortress. They had never seen the power of big cannons. Although many people knew the master's "bird guns" were incomparably sharp, a bird gun was just a bird gun after all. They didn't expect the big cannons to be even more powerful. Fighting twenty or thirty shots made the opponent routed, unable to even approach. The entire fortress was instantly beaming with smiles, cheering loudly.
+The mounted guards galloped out, intercepting routed soldiers everywhere. The refugees were easy to manage—unarmed, they had no choice but to halt and await reorganization once a few had been beheaded. The veteran army ruffians were another matter. They did not hesitate to resist with drawn sabers, and in many places brawls broke out among themselves.
 
-Just then, someone hurriedly arrived and reported important news to him.
+---
 
-The observation post just found through the battery telescope that the rebel central army location was at azimuth 4471.
+On Qimu Island, many village braves from the Advance Column were helping transport ammunition at the Willow Palisade fortress. They had never witnessed the power of heavy cannon fire. Though they knew the masters' "bird guns" were devastatingly effective, a bird gun was still just a bird gun. They had not expected the great cannons to be even more formidable. Twenty or thirty shots had routed the enemy before they could even approach. The entire fortress erupted in beaming smiles and loud cheering.
 
-Chen Sigen looked at the planning board and raised the telescope again: this place was a bit far from Qimu Island, a full 1800 meters in straight-line distance. In this spacetime, no cannon could shoot to such a far place. It seemed Mao Chenglu had a lot of tricks. Chen Sigen thought. He ordered again: "Cease fire, all guns load explosive shells, target azimuth 4471 in five minutes!" Then he added, "Prepare for rapid fire!"
+Just then, a messenger arrived in haste with important news for Chen Sigen.
 
-The distance increased to 1800 meters. Although it was still within the effective range of all guns, accuracy was greatly discounted at a long distance. Chen Sigen decided to execute rapid fire, projecting a large number of shells to the target position at one time, so that Mao Chenglu and his central army would be completely covered before they could react.
+The observation post had just confirmed through the battery telescope that the rebel central army was positioned at azimuth 4471.
 
-While cannons rumbled here on Qimu Island, Chen Guangfu's five hundred men had quietly arrived at a forest by Longkou Bay. Choosing this place as the starting position was well thought out by Chen Guangfu: going down to the ice surface from this small forest, until rushing onto Qimu Island, although the journey was longer than other locations, the ice surface was solid, suitable for horse movement.
+Chen Sigen consulted the plotting board and raised his telescope again. That position was quite distant from Qimu Island—a full eighteen hundred meters in a straight line. In this era, no cannon could reach such a range. It seemed Mao Chenglu had tricks of his own. Chen Sigen gave another order: "All guns cease fire. Load explosive shells. Target azimuth 4471 in five minutes!" He added: "Prepare for rapid fire!"
 
-The speed of marching on horseback was very fast, so it didn't matter even if it was half a *li* or one *li* longer. If they encountered ice crevices on the way forward, it would cause great trouble.
+With range extended to eighteen hundred meters, accuracy would be significantly degraded even though the distance remained within effective range for all guns. Chen Sigen decided to execute rapid fire—projecting a massive volume of shells onto the target position in a single burst, so that Mao Chenglu and his central army would be completely engulfed before they could react.
 
-Five hundred riders held their breath one by one, just waiting for his order.
+---
 
-Gunfire came constantly from the sandbar side. Chen Guangfu rejoiced secretly: Fighting started over there! He immediately ordered:
+While cannons thundered around Qimu Island, Chen Guangfu's five hundred men had quietly reached a forest by Longkou Bay. This starting position had been carefully chosen: descending onto the ice from this small wood, the journey to Qimu Island was longer than from other locations, but the ice here was solid and suitable for horses.
 
-"Brothers, up!" Saying this, he whipped his horse and was the first to dash out of the forest.
+Mounted movement was swift, so an extra half-*li* or even a full *li* mattered little. If they encountered ice crevasses during the advance, that would cause real trouble.
 
-Five hundred riders surged out of the forest almost simultaneously, pouring onto the ice surface of Longkou Bay.
+Five hundred riders held their breath as one, awaiting his command.
 
-Horse hooves boiled, snow smoke rose in bursts. Five hundred riders were like arrows leaving the string, shooting towards the soft underbelly of Qimu Island.
+Gunfire boomed constantly from the sandbar. Chen Guangfu rejoiced inwardly: *The fighting's started over there!* He immediately shouted:
 
-The shrill alarm sounded on Qimu Island almost simultaneously. Zhu Mingxia, who had been sitting on the ground with the soldiers, stood up abruptly. He glanced at the signal station; the flags hung out indicated that the other party was coming from the west of Qimu Island.
+"Brothers—forward!"
 
-"Beat the drums!" He shouted.
+With a crack of his whip, he was the first to burst from the forest.
 
- rapid combat readiness drums sounded. Soldiers who were originally sitting cross-legged on the ground resting all stood up, hurriedly fastening their hat straps and checking weapons while patting dust off their bodies.
+Five hundred riders surged from the trees almost as one, pouring onto the ice of Longkou Bay.
 
-Four companies instantly entered combat readiness. Zhu Mingxia said in a deep voice: "Light Infantry Company, Battle Line 3rd and 4th Companies follow me in company columns, Grenadier Company as reserve! All companies run!"
+Hooves thundered. Snow-smoke billowed in their wake. Five hundred cavalry shot toward the exposed underbelly of Qimu Island like arrows loosed from the string.
 
-Three companies quickly moved to the shore—this was all sandy beach, very suitable for enemy landing, so barbed wire and abatis had been laid on the frozen beach in advance. The three companies led by Zhu Mingxia rushed to the shore.
+---
 
-"Deploy into double-line column by company!" He was the first to arrive at the shore and saw cavalry galloping on the ice surface—so the enemy's backhand was here. Zhu Mingxia thought.
+The shrill alarm sounded on Qimu Island almost simultaneously. Zhu Mingxia, who had been sitting on the ground with his soldiers, sprang to his feet. He glanced at the signal station. The flags indicated the enemy was approaching from the west of Qimu Island.
 
-"Sight 300 meters, prepare to fire!" He raised one hand, observing the movement of the cavalry, "Fire!"
+"Beat the drums!" he shouted.
+
+Rapid combat-readiness drums rolled out. Soldiers who had been sitting cross-legged on the ground, resting, leapt up as one. They fastened helmet straps, checked weapons, and slapped dust from their uniforms even as they moved.
+
+Four companies snapped instantly into combat readiness. Zhu Mingxia's voice rang out deep and commanding: "Light Infantry Company, Battle Line Third and Fourth Companies—follow me in company columns! Grenadier Company remains in reserve! All companies—run!"
+
+Three companies surged toward the shore. This stretch was entirely sandy beach, ideal for enemy landing, so barbed wire and abatis had been laid across the frozen surface in advance. The three companies led by Zhu Mingxia raced to the water's edge.
+
+"Deploy into double-line column by company!" He was first to reach the shore. Cavalry were galloping across the ice toward them. *So this is the enemy's hidden card,* Zhu Mingxia thought.
+
+"Sight three hundred meters! Prepare to fire!" He raised one hand, watching the cavalry's movement. "Fire!"
 
 (End of Chapter)

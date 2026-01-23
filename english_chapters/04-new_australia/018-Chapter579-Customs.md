@@ -2,11 +2,11 @@
 
 Compared to contemporary European squirrel-cage cranes, the Lingao version used a gearbox and cam controller, both increasing output efficiency and preventing sudden reversal that could cause injury or death.
 
-This 21st-century technology-improved squirrel cage was far superior in both efficiency and safety to what Quark Qiong had seen before. Even for a trader like Quark with little engineering knowledge, the advantages of this loading system were obvious: a full flatcar of goods was loaded in just a few minutes, using fewer than ten people total. With manual carrying, it would take one or two hours.
+This twenty-first-century technology-improved squirrel cage was far superior in both efficiency and safety to anything Quark Qiong had seen before. Even for a trader like Quark with little engineering knowledge, the advantages of this loading system were obvious: a full flatcar of goods was loaded in just a few minutes, using fewer than ten people total. With manual carrying, it would take one or two hours.
 
 Quark Qiong's deepest impression since arriving in Ming was that the Ming rarely used animal power or machinery, with a tendency to overuse human labor. He'd discussed this with Li Luoyou, who explained that while machinery was certainly convenient, each machine displaced many workers, invisibly robbing them of their livelihood.
 
-"Even if it's just a bitter bowl of rice, people still need to eat, don't they?" Li Luoyou looked down on this red-haired foreigner for not understanding statecraft.
+"Even if it's just a bitter bowl of rice, people still need to eat, don't they?" Li Luoyou had looked down on this red-haired foreigner for not understanding statecraft.
 
 Li Luoyou was interested in machines—he often inquired about such things from European missionaries and merchants and even ordered books. Yet he greatly resisted their practical application. This made Quark somewhat unable to understand his logic, though the extreme cheapness of Ming labor did leave a deep impression. Especially the workers in Li Luoyou's establishments—by Quark's standards, their wages were unimaginably low.
 
@@ -16,11 +16,13 @@ Was it really doing good, or was it because human labor was so cheap that this g
 
 This great merchant only welcomed one type of machine without hesitation—those for tasks that humans simply couldn't do. For example, machinery for casting cannon.
 
+---
+
 At this moment, this great merchant was watching the loading operations intently. Even his earlier fear was gradually fading. Flatcars and box cars ran back and forth on the tracks—some pushed by human power, some arranged in trains that moved on their own. Some cargo was transported to berths for loading onto ships; other cargo was unloaded from ships. Tower cranes continuously rotated and lifted; cargo flowed constantly. The speed and frequency dazzled Li Luoyou.
 
 All kinds of goods were being transported. Exports from Lingao were all well-packaged—either uniform-sized crates, or neat grass bags and bundles, or sealed rattan baskets and bamboo containers. Some were straw-rope-wrapped jars. They bore various markings and symbols. Li Luoyou could just make out some boxes marked "Fragile" and "Handle with Care."
 
-Imports were less uniform, much more varied: some was husked rice and unhulled grain; some was sugar; some was timber beams. Some flatcars carried Guangdong pig iron—he'd been having his men stockpile pig iron as raw material for casting cannon recently and had familiarized himself with the material's forms and standards. He'd always wondered why pig iron was in such tight supply. Now, seeing the mountains of iron ingots and bars piled on those flatcars, he understood why a formerly worthless commodity had risen so much in price—the Australians' iron purchases far exceeded his own scale.
+Imports were less uniform, far more varied: some was husked rice and unhulled grain; some was sugar; some was timber beams. Some flatcars carried Guangdong pig iron—he'd been having his men stockpile pig iron as raw material for casting cannon recently and had familiarized himself with the material's forms and standards. He'd always wondered why pig iron was in such tight supply. Now, seeing the mountains of iron ingots and bars piled on those flatcars, he understood why a formerly worthless commodity had risen so much in price—the Australians' iron purchases far exceeded his own scale.
 
 What did Australia need so much pig iron for? Li Luoyou was puzzled. The various Australian goods they sold rarely required large amounts of iron. This iron, once imported, was surely being stockpiled.
 
@@ -30,13 +32,15 @@ But even more was the black coal—most of the box cars were loaded with pitch-b
 
 The captain advised: "Gentlemen, after disembarking you'll still need to clear customs and show your passes. You'd better hurry and pack your luggage to go ashore."
 
+---
+
 Li Luoyou had originally expected Runshitang to send someone to welcome him at the dock, so he'd waited on deck for quite a while. Watching as passengers from nearby ships had all departed and still no one came to receive him, he could only tell his attendants to prepare to disembark.
 
 As a great master, Li Luoyou naturally had servants to manage everything. In no time, the servants had bundled up his luggage. With this Master Li surrounded and attended, the entourage grandly disembarked.
 
 Besides the iron-railed track, the embankment also had pedestrian paths. These roads were paved with some unknown material—gray, hard, smooth, and level. Signs stood on both sides reading "Keep Right." Not just signs—white arrows were painted directly on the road surface: "Going" on one side, "Coming" on the other.
 
-Li Luoyou's party followed the arrows, keeping to the right. At the embarkment's end stood a long building, square-shaped, with a clock tower in the center resembling a European church, though no bronze bell hung above—only a large circular opening covered by wooden boards.
+Li Luoyou's party followed the arrows, keeping to the right. At the embankment's end stood a long building, square-shaped, with a clock tower in the center resembling a European church, though no bronze bell hung above—only a large circular opening covered by wooden boards.
 
 This building was strange; strangest of all was its many doors. In front was a large open courtyard, currently uncrowded and rather empty. Large signs stood in the courtyard reading "Local," "Long-term Valid," "Short-term Valid," "Temporary," "Customs Declaration," "Quarantine Registration," "Refugees," "Green Channel"...
 
@@ -46,7 +50,7 @@ Li Luoyou, newly arrived, didn't know what these meant. Quark was equally baffle
 
 So this was the Australian customs. But customs' main function was collecting taxes. Since the Australians weren't collecting taxes, what purpose did these "customs" officials serve?
 
-"Indeed." Saoye quickly stepped forward to answer.
+"Indeed," Saoye quickly stepped forward to answer.
 
 "Are you carrying any goods?"
 
@@ -74,9 +78,11 @@ These Australians were certainly interesting. Just as he was thinking this, Saoy
 
 "When in Rome, do as the Romans do." Li Luoyou folded his fan and stood. "Let's go meet them and see."
 
+---
+
 Inside the building was a long counter. Behind it sat several people wearing "Customs" cloth tags. Li Luoyou noticed they were all very young—twenty at most. Each had a stack of white paper before them, European-style dipping inkwells, and Chinese-style writing implements.
 
-"This is our master." Saoye announced with full authority.
+"This is our master," Saoye announced with full authority.
 
 The clerk looked up to study him:
 
@@ -100,7 +106,7 @@ The form was then passed to the person beside him.
 
 This person verified it, then took a card from a drawer—made of thick, stiff paper, about half the size of a book. The clerk tore a long strip from the form Li Luoyou had filled out and pasted it onto the card. Then, using a bamboo-handled iron-nibbed dipping pen, he began writing something.
 
-"You must carry this card at all times during your stay in Lingao." The clerk said. "The card is valid for thirty days. Return it when you leave Lingao. If you wish to stay beyond this period, you must re-register at this office or the local police station before expiration to receive a new card."
+"You must carry this card at all times during your stay in Lingao," the clerk said. "The card is valid for thirty days. Return it when you leave Lingao. If you wish to stay beyond this period, you must re-register at this office or the local police station before expiration to receive a new card."
 
 He emphasized his words to convey their importance: "...The card is very important. Don't lose it under any circumstances. If it's lost or damaged, report it immediately!"
 
@@ -109,6 +115,8 @@ Li Luoyou took it and looked. The back of the card read "Temporary Visa," with t
 The front, besides his registered name, origin, and occupation, showed "Date of Issue," with a line at the bottom: "Valid for thirty days from date of issue."
 
 Li Luoyou noticed that not only he but also Advisor Han, Saoye, and even every servant had all gone through the same process and received identical cards. Those who couldn't read had the clerk fill in for them.
+
+---
 
 After receiving their documents, Li Luoyou's traveling party proceeded along the counter. Behind this section sat several young women in long blue cloth gowns. They wore cloth caps shaped like wontons, and their gowns were quite form-fitting—they looked quite attractive. Their chest tags read "Quarantine."
 
@@ -132,10 +140,10 @@ Next was Quark. The same questions were asked. Then Li Luoyou suddenly heard: "H
 
 "No!"
 
-"Please step inside for a moment." The woman said.
+"Please step inside for a moment," the woman said.
 
 "Why?" Quark sensed something was wrong. "I'm not sick. I'm perfectly healthy!"
 
-"It will only take a moment." The woman was unyielding. Several burly men with clubs behind her also moved closer.
+"It will only take a moment." The woman was unyielding. Several burly men with clubs behind her moved closer.
 
-(End of Chapter)
+*(End of Chapter)*

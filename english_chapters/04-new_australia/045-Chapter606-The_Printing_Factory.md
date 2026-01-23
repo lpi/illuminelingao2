@@ -1,46 +1,46 @@
 # Chapter 606 - The Printing Factory
 
-The most important piece of equipment in the print shop was the high-speed mimeograph machine. As for the several EPSON 24-pin dot matrix printers, they had also been extremely important in the early days—many stencils for mimeographing had been printed using those printers back then. After the first batch of female typists were trained, the Chinese typewriters they'd brought finally came into use, and Zhou Dongtian came to rely mainly on Chinese typewriters for cutting stencils.
+The most important piece of equipment in the print shop was the high-speed mimeograph machine. As for the several EPSON 24-pin dot matrix printers, they had been extremely important in the early days—many stencils for mimeographing had been printed using those printers back then. After the first batch of female typists were trained, the Chinese typewriters they'd brought finally came into use, and Zhou Dongtian came to rely mainly on Chinese typewriters for cutting stencils.
 
-Now, the Chinese typewriters brought from the old time-space had been cleaned, sealed, and stored along with several other relatively well-preserved dot matrix, inkjet, and laser printers as STC—Standard Technical Components for original equipment templates. In their place were several crude, heavy locally-manufactured Chinese typewriters. Several female typists were working in front of bright windows, their heads bent over their work, the room echoing with the clatter of type-heads striking the character plates.
+Now, the Chinese typewriters brought from the old time-space had been cleaned, sealed, and stored along with several other relatively well-preserved dot matrix, inkjet, and laser printers as STC—Standard Technical Components for original equipment templates. In their place stood several crude, heavy locally-manufactured Chinese typewriters. Several female typists worked in front of bright windows, their heads bent over their tasks, the room echoing with the clatter of type-heads striking the character plates.
 
-In the adjacent room, around a large table, some people were using styluses to cut steel stencil plates while others proofread freshly printed proofs. Everyone was very busy—the print shop was extremely busy within the transmigrator collective. They not only had to handle printing over a thousand copies each week of both editions of the *Lingao Times*, but also had to take on large quantities of textbooks, technical booklets, various manuals, and countless documents. The workload was extremely heavy. Besides the mimeograph machine, they'd also copied several hand-cranked mimeograph machines for smaller print runs. Several workers were currently turning the handles.
+In the adjacent room, around a large table, some people used styluses to cut steel stencil plates while others proofread freshly printed proofs. Everyone was very busy—the print shop was one of the busiest operations in the transmigrator collective. They not only had to print over a thousand copies each week of both editions of the *Lingao Times*, but also had to produce large quantities of textbooks, technical booklets, various manuals, and countless documents. The workload was immense. Besides the mimeograph machine, they'd copied several hand-cranked mimeograph machines for smaller print runs. Several workers were currently turning the handles.
 
-The woodblock printing workshop here occupied the largest floor area. Zhou Dongtian went in to take a look. When constructing these workshops, they'd put considerable thought into the lighting. The transmigrator collective couldn't provide sufficient artificial lighting for the workers, so they had to make the most of natural daylight. They'd put great effort into designing the lighting. Not only were the windows very large, but most workshops also had skylights. Louvered shutters and curtains were used to adjust the light, making it as soft as possible.
+The woodblock printing workshop occupied the largest floor area. Zhou Dongtian went in to take a look. When constructing these workshops, they'd put considerable thought into the lighting. The transmigrator collective couldn't provide sufficient artificial lighting for the workers, so they had to make the most of natural daylight. The design reflected this necessity. Not only were the windows very large, but most workshops also had skylights. Louvered shutters and curtains were used to adjust the light, making it as soft as possible.
 
 Before the windows sat several elderly engravers, wearing their issued reading glasses, concentrating intently on carving printing blocks. Woodblock printing was mainly used for printing various tickets, blank documents, credentials, and the like.
 
-Lingao's currency—Food Circulation Vouchers and other securities—were also printed here. Therefore, the woodblock printing workshop was particularly important. During work hours, dedicated personnel stood guard. Before closing up, all blocks, paper, and ink had to be counted and then stored in a special warehouse.
-
-The management system here was extremely strict. Not only were there counting records for the manufacture, modification, and disposal of every block, but there was also a registration system for each use and printing session. Every printed sheet was accounted for.
+Lingao's currency—Food Circulation Vouchers and other securities—were also printed here. Therefore, the woodblock printing workshop was particularly important. During work hours, dedicated personnel stood guard. Before closing up, all blocks, paper, and ink had to be counted and then stored in a special warehouse. The management system was extremely strict. Not only were there counting records for the manufacture, modification, and disposal of every block, but there was also a registration system for each use and printing session. Every printed sheet was accounted for.
 
 Zhou Dongtian went to the mimeograph machine workshop to find Tan Ming—this person could be considered one of the rare talents in the transmigrator community who had actually operated a printing press, and he even knew color separation—though that skill wasn't needed locally.
 
-The high-speed mimeograph machine was installed in a separate workshop, locked when not in use. Zhou Dongtian had brought large quantities of spare parts and ink for it, estimating that with economical use, it could last about seven or eight years. To take care of this precious baby, every print run was personally operated by a transmigrator, with only a few indigenous apprentices assisting.
+The high-speed mimeograph machine was installed in a separate workshop, locked when not in use. Zhou Dongtian had brought large quantities of spare parts and ink for it, estimating that with economical use, it could last about seven or eight years. To take care of this precious machine, every print run was personally operated by a transmigrator, with only a few indigenous apprentices assisting.
 
 Tan Ming was washing his hands; he'd just finished processing the latest order—the Mandarin Dictionary compiled by the Grand Library. The Executive Committee had placed an order for one hundred copies.
 
-Because of his many concurrent positions, Zhou Dongtian mainly left the technical work of the print shop to Tan Ming now. Zhou Dongtian discussed with him the matter of establishing a proper printing factory.
+Because of his many concurrent positions, Zhou Dongtian mainly left the technical work of the print shop to Tan Ming now. He discussed with him the matter of establishing a proper printing factory.
 
-"I've never seen the kind of type foundry you're describing," Tan Ming shook his head. "I've operated offset presses and worked with laser typesetting. But using lead type for typesetting—I really don't know how to do that."
+"I've never seen the kind of type foundry you're describing," Tan Ming said, shaking his head. "I've operated offset presses and worked with laser typesetting. But using lead type for typesetting—I really don't know how to do that."
 
 "You won't have to do it yourself," Zhou Dongtian said. "But in the future, my main effort will be on the movable type printing factory over there. Just manage the print shop here properly. I've submitted a document to the Organization Division recommending your appointment as factory director of Bairren Print Works. The formal appointment should come through in a few days."
 
 "That... of course... thank you..." Tan Ming said, somewhat incoherently.
 
-"Don't mention it. You've been doing most of the work here anyway! Besides, I'm only here concurrently," Zhou Dongtian waved his hand. "Whether you're factory director or not doesn't really matter. The key is having a title makes it easier to get things done."
+"Don't mention it. You've been doing most of the work here anyway. Besides, I'm only here concurrently," Zhou Dongtian waved his hand. "Whether you're factory director or not doesn't really matter. The key is having a title makes it easier to get things done."
 
-Zhou Dongtian went through each item with him in his office. Tan Ming looked a bit lacking in confidence—suddenly having to take charge of everything made him feel somewhat apprehensive.
+Zhou Dongtian went through each item with him in his office. Tan Ming looked a bit lacking in confidence—suddenly having to take charge of everything made him somewhat apprehensive.
 
 Having settled matters there, Zhou Dongtian hurried off to the Industry Department to discuss equipment issues.
 
-Movable type printing sounded very modern, but in the modern printing industry, it had almost disappeared completely. Even the smallest printing shops no longer used it. Zhou Dongtian had encountered movable type printing plants in the past and had some understanding of this system.
+---
 
-Movable type printing was certainly much more efficient than woodblock printing. But in a traditional society without any industrial foundation, its costs were far higher than woodblock printing. The technical difficulty was also much greater. This was why movable type printing never became mainstream in China. In Chinese history, large-scale movable type book printing had only occurred a few times, and all were government-organized. Among the public, movable type printing remained at the level of small-scale, simple, rudimentary printing applications. It was rarely used for printing books.
+Movable type printing sounded very modern, but in the contemporary printing industry, it had almost disappeared completely. Even the smallest printing shops no longer used it. Zhou Dongtian had encountered movable type printing plants in the past and had some understanding of this system.
 
-Zhou Dongtian naturally understood the reasons. First, casting movable type was a technical skill, and printing a single book required large quantities of type that had to be manufactured in advance. Moreover, the materials for the type were very particular. Bi Sheng had used ceramic type, which had the lowest manufacturing difficulty and smallest cost. Therefore, ceramic type was still in use in the 19th century—the *dibao* (official bulletins) in various places were printed with ceramic type. But because ceramic didn't hold ink well, the printed documents had blurry characters.
+Movable type printing was certainly much more efficient than woodblock printing. But in a traditional society without any industrial foundation, its costs were far higher than woodblock printing, and the technical difficulty was also much greater. This was why movable type printing never became mainstream in China. In Chinese history, large-scale movable type book printing had only occurred a few times, and all were government-organized. Among the public, movable type printing remained at the level of small-scale, simple, rudimentary applications. It was rarely used for printing books.
 
-During the Qing Dynasty, government-printed books had used copper type, with good printing results. But copper type was expensive—only the imperial court could afford it. The inherent value of copper meant that even emperors couldn't resist the temptation of the copper type. By the Qianlong era, the copper type stored at the Palace of Martial Valor (Wuyingdian) had been melted down and recast into imperial furnishings.
+Zhou Dongtian understood the reasons well. First, casting movable type was a technical skill, and printing a single book required large quantities of type that had to be manufactured in advance. Moreover, the materials for the type were very particular. Bi Sheng had used ceramic type, which had the lowest manufacturing difficulty and smallest cost. Therefore, ceramic type was still in use in the nineteenth century—the *dibao* (official bulletins) in various places were printed with ceramic type. But because ceramic didn't hold ink well, the printed documents had blurry characters.
+
+During the Qing Dynasty, government-printed books used copper type, with good printing results. But copper type was expensive—only the imperial court could afford it. The inherent value of copper meant that even emperors couldn't resist the temptation. By the Qianlong era, the copper type stored at the Palace of Martial Valor (Wuyingdian) had been melted down and recast into imperial furnishings.
 
 Printing craftsmen had also tried using other materials to make type, including wooden type and tin type. None worked well. Type requirements were stringent: it had to be wear-resistant but not too hard, had to hold ink properly, and had to be cheap enough for large-scale use. The only material meeting these requirements was lead. But pure lead type still didn't perform ideally—antimony had to be added.
 
@@ -48,33 +48,35 @@ Another problem with movable type printing was the ink. This was never solved in
 
 These factors combined meant movable type printing never became the mainstream of Chinese printing.
 
-New technology and new concepts couldn't become productive forces without suitable technical means. Zhou Dongtian had once felt this way after learning about the development history of printing out of interest—Chinese people throughout history had proposed countless new technologies and concepts ahead of their time, but many remained at primitive stages. In the mid-19th century, the ceramic type workshops printing official bulletins in various places were no different from Bi Sheng's era.
+New technology and new concepts couldn't become productive forces without suitable technical means. Zhou Dongtian had come to appreciate this truth after learning about the development history of printing out of interest—Chinese people throughout history had proposed countless new technologies and concepts ahead of their time, but many remained at primitive stages. In the mid-nineteenth century, the ceramic type workshops printing official bulletins in various places were no different from Bi Sheng's era.
 
 Zhou Dongtian knew that to use metal type practically, he first had to solve the problem of mass-producing printing ink—he recalled that the key was oil-based ink, meaning oil had to be used to mix the printing ink.
 
-According to technical documents, boiled linseed oil was ideal. It had excellent adhesion and dried easily. This was why it was still used to mix oil painting pigments. However, Zhou Dongtian visited the Planning Commission once and checked all the material inventory lists. There was no linseed oil among the inventory or producible/purchasable materials. As for other vegetable oils—rapeseed oil, castor oil, coconut oil, peanut oil—none were suitable.
+According to technical documents, boiled linseed oil was ideal. It had excellent adhesion and dried easily. This was why it was still used to mix oil painting pigments. However, Zhou Dongtian visited the Planning Commission and checked all the material inventory lists. There was no linseed oil among the inventory or producible/purchasable materials. As for other vegetable oils—rapeseed oil, castor oil, coconut oil, peanut oil—none were suitable.
 
-"I need linseed oil," he found Fa Shilu at the Agricultural Committee. As Chief Agriculturalist, he should have a solution. "I know Lingao doesn't have any, but you must be able to think of some locally producible substitute oil."
+"I need linseed oil," he told Fa Shilu at the Agricultural Committee. As Chief Agriculturalist, he should have a solution. "I know Lingao doesn't have any, but you must be able to think of some locally producible substitute oil."
 
-"Hemp oil, I suppose," Fa Shilu took only thirty seconds to give him an answer. "Lingao has hemp—actually there are few places without hemp. But we haven't cultivated it—the Li people should have plantings. The last trading expedition to the Li region brought back hemp rope and coarse cloth."
+"Hemp oil, I suppose," Fa Shilu answered after only thirty seconds of consideration. "Lingao has hemp—actually there are few places without hemp. But we haven't cultivated it—the Li people should have plantings. The last trading expedition to the Li region brought back hemp rope and coarse cloth."
 
 So Zhou Dongtian went to the Planning Commission again. But the Commission's inventory didn't have this item—hemp oil had mild hallucinogenic effects when consumed and wasn't edible. Local hemp also hadn't formed any cultivation scale, so the Planning Commission hadn't bothered collecting it.
 
 Under his persistent pursuit, Wu De finally agreed to add hemp seed collection to the urgent schedule.
 
-"I'll have the long-range exploration teams and trading departments go collect it as soon as possible," Wu De said. "But I don't know if hemp produces seeds at this time of year—you need to have a schedule, you can't just demand things immediately..."
+"I'll have the long-range exploration teams and trading departments collect it as soon as possible," Wu De said. "But I don't know if hemp produces seeds at this time of year—you need to have a schedule, you can't just demand things immediately..."
 
 "Then the Executive Committee shouldn't suddenly issue directives demanding expanded exports either."
 
 "Fine, fine, it's our fault," Wu De said helplessly. "The key is what you want is too strange. Hemp fiber I have in stock. Seeds I've never thought about."
 
+---
+
 Having solved the ink problem, Zhou Dongtian went to the Machine Factory and approached Zhan Wuya directly. He wanted to gather all the personnel who had participated in manufacturing Chinese typewriters last time—this group had made the lead type for the type plates before, so they had experience.
 
-Lead type needed to be manufactured in large quantities. The simplest and cheapest method for batch manufacturing was of course casting. The specific method was to use hard metal like steel, have an engraver carve a reversed raised character—the punch—then use the punch to stamp an indented matrix into soft brass. Then pour molten lead into the matrix to cast the type.
+Lead type needed to be manufactured in large quantities. The simplest and cheapest method for batch manufacturing was casting. The specific method was to use hard metal like steel, have an engraver carve a reversed raised character—the punch—then use the punch to stamp an indented matrix into soft brass. Then pour molten lead into the matrix to cast the type.
 
-This was just a simple principle. In practice, there were a series of detailed processes: lead type had to be uniform in size with perfectly aligned bases so they could line up neatly on the composing stick. This required special equipment to guarantee, plus specialized finishing workers to file and polish. Because of the enormous consumption of lead type, casting had to be a continuous large-scale operation. Matrices needed special processes for quick release... The complete type-founding process had been gradually improved and perfected from the 15th century onward, reaching very high standards by the 18th century.
+This was just the simple principle. In practice, there was a series of detailed processes: lead type had to be uniform in size with perfectly aligned bases so they could line up neatly on the composing stick. This required special equipment to guarantee, plus specialized finishing workers to file and polish. Because of the enormous consumption of lead type, casting had to be a continuous large-scale operation. Matrices needed special processes for quick release... The complete type-founding process had been gradually improved and perfected from the fifteenth century onward, reaching very high standards by the eighteenth century.
 
-Zhou Dongtian planned to work from the transmigrator collective's current industrial level, manufacturing equipment to 18th-century printing factory standards.
+Zhou Dongtian planned to work from the transmigrator collective's current industrial level, manufacturing equipment to eighteenth-century printing factory standards.
 
 Several technicians gathered around the technical documents Zhou Dongtian had copied from the Grand Library, commenting and critiquing. Clearly, to batch-manufacture lead type, having one steel punch per character wasn't enough—these wore out quickly and had to be constantly replenished. This made everyone a bit worried: engraving steel punches was boring, quite tedious work.
 
@@ -84,9 +86,9 @@ Several technicians gathered around the technical documents Zhou Dongtian had co
 
 "We can recruit woodblock carvers for engraving. They're already in the business of carving characters," Zhou Dongtian said.
 
-"But the efficiency is very low," Sun Li studied for a long time before saying. "I don't know how many punches a day an engraver can produce, but efficiency won't be high. And hand-poured casting of these matrices—that would require manual work too, plus demolding time and filing work. If we rely entirely on manual labor, this plan of being able to print within three or four months seems unreliable." He asked: "How did modern movable type printing plants do it?"
+"But the efficiency is very low," Sun Li studied the documents for a long time before saying. "I don't know how many punches a day an engraver can produce, but efficiency won't be high. And hand-poured casting of these matrices—that would require manual work too, plus demolding time and filing work. If we rely entirely on manual labor, this plan of being able to print within three or four months seems unreliable." He asked: "How did modern movable type printing plants do it?"
 
-"They had specialized linotype machines. Casting, typesetting, and distributing type were all automatic, with one person operating the machine. Of course, it required electricity or steam." Zhou Dongtian produced several more drawings. "But this machine is quite complex, nearly 20th-century level."
+"They had specialized linotype machines. Casting, typesetting, and distributing type were all automatic, with one person operating the machine. Of course, it required electricity or steam." Zhou Dongtian produced several more drawings. "But this machine is quite complex, nearly twentieth-century level."
 
 What he'd brought out was the Linotype machine invented by Americans. This machine was in use from 1890 to 1940. Though mainly used for printing newspapers and magazines, it was also widely used in America for printing books.
 
@@ -120,12 +122,12 @@ Liang Xin scratched his head in disappointment—he hadn't thought of that probl
 
 Sun Li said: "Aren't the Dutch in Batavia? If the Dutch East India Company headquarters is there, they must print something, right? There should be a print shop, and following your logic about continuous type founding, there should be a few type founders. Why not just kidnap them along with their equipment? Lock them up and have them print for us."
 
-"I keep feeling this method is too backward," Jiang Ye looked for a long time. "There should be a simpler method—after all, we're standing on the shoulders of our predecessors. With so many inventions and innovations, we should be able to find something suitable. Let's think about the process some more."
+"I keep feeling this method is too backward," Jiang Ye said after studying the documents for a long time. "There should be a simpler method—after all, we're standing on the shoulders of our predecessors. With so many inventions and innovations, we should be able to find something suitable. Let's think about the process some more."
 
 "This matter should be done as soon as possible," Zhou Dongtian said. If they could recruit skilled type founders, it would be much better than having him—a half-baked amateur—train workers himself. After all, he'd only watched typesetting and printing before. If he had to personally guide the whole operation, he wasn't entirely confident.
 
 Zhou Dongtian continued his departmental tour and paperwork applications. He found the Colonial and Trade Department and submitted a document requesting the recruitment of Dutch printers from Batavia. The document emphasized that whether by coercion or voluntary agreement, as long as they could get the people, that would be fine. Bringing equipment along would be even better.
 
-Si Kaide was organizing a trade expedition to Southeast Asia. Zhou Dongtian's request was just an add-on. He readily agreed, saying that as long as there were such people locally, he'd find a way to bring them back no matter what.
+Si Kaide was organizing a trade expedition to Southeast Asia. Zhou Dongtian's request was just an add-on. He readily agreed, saying that as long as such people existed locally, he'd find a way to bring them back no matter what.
 
 (End of Chapter)

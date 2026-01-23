@@ -1,139 +1,145 @@
-# Chapter 642 A Win-Win Battle
+# Chapter 642 — A Win-Win Battle
 
-A curtain of white smoke sprayed from the edge of the square. The Ming cavalry rushing forward immediately turned upside down under the hail of bullets, like a wave smashing against a reef. The remaining cavalry dared not rush forward any further, splitting to both sides of the square one after another, attempting to outflank and slash the infantry from the side and rear. Soldiers on the two flanks of the square seized this opportunity to fire continuously at the cavalry galloping past the front of the formation. The helmeted and armored cavalry suffered heavy casualties under the rotating fire of Minié rifles. In just a few minutes, dozens of men and horses' corpses were left around the square.
+A curtain of white smoke erupted from the edge of the square. The Ming cavalry rushing headlong into the volley were instantly upended by the hail of bullets, their charge shattering like a wave crashing against a reef. The survivors dared not press forward any further, splitting to either side of the formation in a desperate attempt to outflank and slash the infantry from the flanks and rear. Soldiers on the two wings of the square seized the opportunity, firing continuously at the cavalry galloping past. The helmeted and armored riders suffered devastating casualties under the rotating fire of Minié rifles. In just a few minutes, dozens of men and horses lay dead around the square.
 
-He Zhanran retreated his horse several dozen *zhang*, gathered his men and horses, and prepared to charge again. At this time Yang Zeng shouted: "Sights 100 meters, fire!"
+He Zhanran retreated several dozen *zhang*, gathered his scattered forces, and prepared to charge again. At that moment Yang Zeng shouted: "Sights one hundred meters—fire!"
 
-The cavalry team that had just finished assembling was covered by dense rain of bullets again before they could launch a charge. Instantly, dozens of cavalrymen fell. The others were completely stunned—no one expected the enemy's firearms to shoot so far and so hard; iron armor had no effect at all. One squad leader's heart-protecting mirror was shattered, and another squad leader's helmet along with half his head was blown away.
+The cavalry team that had just finished assembling was engulfed by another dense rain of bullets before they could even launch their charge. Dozens more fell in an instant. The survivors stood paralyzed with shock—no one had expected the enemy's firearms to shoot so far, or with such devastating force. Iron armor meant nothing. One squad leader's steel heart-protecting mirror was shattered like crockery. Another had his helmet and half his skull blown away.
 
-The Ming cavalry retreated slightly, then split into two streams to outflank from both wings again. This time their speed was very fast; presumably knowing the Hair Bandits' bird guns had long range, everyone galloped their horses fast, hoping to use speed to offset the enemy's aim.
+The Ming cavalry retreated slightly, then split into two streams to attempt another flanking maneuver. This time they moved with desperate speed; presumably knowing that the Hair Bandits' bird guns had terrifying range, everyone spurred their horses hard, hoping velocity alone would throw off the enemy's aim.
 
-Volley fire rang out again, and another twenty-plus cavalrymen fell from their horses. At this moment, He Zhanran suddenly turned his horse's head and led all cavalry to charge straight at the square—he originally thought the Hair Bandits were using the "Three-Stage Fire" tactic of bird guns. Now that three ranks had fired, the enemy must have a relatively long reloading time. He intended to use this gap to smash open the square. A trusted small chieftain of his led a few personal soldiers to charge at the very front, prepared to crash directly into the bayonet array regardless of life or death, to cut a bloody path.
+Volley fire roared again. Another twenty-odd cavalrymen tumbled from their saddles. At that moment, He Zhanran suddenly wheeled his horse and led all remaining cavalry in one final straight charge at the square. He had assumed the Hair Bandits were employing the traditional "Three-Stage Fire" tactic of bird guns—now that three ranks had fired, the enemy would require considerable time to reload. He intended to exploit this gap and smash the square wide open. A trusted chieftain of his led a few personal soldiers at the very front, prepared to crash directly into the bayonet array regardless of life or death, to carve open a bloody path.
 
-But the Hair Bandits' bird guns sounded a neat volley once again. The charge was like a wild wave against a reef; the tide of cavalry was smashed to pieces. The routed cavalry retreated to two hundred meters away before the Minié rifles stopped firing. He Zhanran had already lost nearly half his men. The remaining men had no heart to fight again, fleeing the battlefield on horseback one after another. Cursing while cutting down a fleeing cavalryman, He Zhanran was attempting to reassemble his men and horses several hundred meters away when the sound of cannon fire rang through the air.
+But the Hair Bandits' bird guns thundered in yet another unified volley. The charge was like a wild wave hurled against a cliff; the tide of cavalry shattered to pieces. The survivors retreated to two hundred meters away before the Minié rifles finally fell silent. He Zhanran had already lost nearly half his men. Those who remained had no stomach for more fighting and fled the battlefield on horseback one after another. Cursing viciously, He Zhanran cut down a fleeing cavalryman and was attempting to reassemble what little remained of his force some several hundred meters distant when the sound of artillery pealed through the air.
 
-Shell after shell carrying red glows flew over the Light Infantry square, suddenly bursting in the air and violently projecting a rain of 88 shrapnel balls towards the ground. The cavalrymen currently assembling were covered by the fierce rain of bullets, falling in swathes. The neighing of horses, screams, and groans mixed together.
+Shell after shell, trailing crimson glows, arced over the Light Infantry square. Each one burst suddenly in midair, violently projecting a rain of eighty-eight shrapnel balls toward the earth below. The cavalrymen still attempting to regroup were engulfed by the savage hail, falling in swathes. The neighing of horses, screams, and groans blurred together into a single cacophony of agony.
 
-A projectile hit the ground almost grazing He Zhanran, throwing dirt all over his head and face. The pungent smell of gunpowder smoke stung his eyes so he couldn't open them. He knew the Hair Bandits' firearms were powerful, but he didn't expect them to be this powerful. Cannonballs could actually explode in the air! Then project a rain of bullets! He dared not fight anymore. He had only forty or fifty riders left at hand, not only at an absolute disadvantage, but war drums were beating urgently in the Hair Bandit earthen fort more than two *li* away, and a force had already marched out. He Zhanran turned his horse and shouted loudly for the soldiers to flee.
+A projectile struck the ground almost grazing He Zhanran himself, throwing dirt all over his head and face. The pungent stench of gunpowder smoke stung his eyes so badly he could not open them. He had known the Hair Bandits' firearms were powerful—but he had never imagined *this*. Cannonballs could actually explode in the air! And then project a rain of bullets! He dared not fight any longer. He had only forty or fifty riders left, at an absolute disadvantage—and worse, war drums were beating urgently from the Hair Bandit earthen fort more than two *li* distant. A force had already marched out. He Zhanran wheeled his horse and shouted for the soldiers to flee.
 
-"Cease fire!" Zhang Berlin put down his binoculars. In the distance, only a few cavalrymen were fleeing towards the county seat. He couldn't help but lower his heart that had been hanging in mid-air. "Didn't expect the square formation to be truly useful!"
+"Cease fire!" Zhang Berlin lowered his binoculars. In the distance, only a handful of cavalrymen were fleeing toward the county seat. He could not help but release the breath he had been holding. "I didn't expect the square formation would actually work!"
 
-When the cavalry assaulted the retreating infantry, he had thought about letting the gunners fire shrapnel shells to intercept the cavalry. But the enemy cavalry ran so fast that they arrived in front of the infantry square very quickly. Firing cannons at that time would easily accidentally injure their own side.
+When the cavalry had first charged the retreating infantry, he had considered ordering the gunners to fire shrapnel shells to intercept them. But the enemy cavalry had moved so fast that they reached the infantry square almost immediately. Firing artillery at that moment would have risked friendly casualties.
 
-Yang Zeng breathed a sigh of relief seeing the enemy retreat. by this time he was sweating all over. During the cavalry's first impact, he even felt he wouldn't keep his little life.
+Yang Zeng exhaled in relief as he watched the enemy retreat. He was drenched in sweat from head to toe. During the cavalry's first impact, he had genuinely believed he would not keep his life.
 
-"Steady! Maintain formation!" He shouted continuously holding his command saber, holding the line. He remembered listening to the instructor during study saying that when enemy cavalry charged a square, there might be a second or third wave of cavalry waiting. As soon as your formation was slightly disordered, they would immediately rush over to destroy the square. The momentum of the cavalry's full-speed charge had once terrified him extremely. If not for the long-term continuous training that formed a numbness like a conditioned reflex in the soldiers, the soldiers would probably have lost their formation long ago.
+"Steady! Maintain formation!" He continued shouting, command saber raised, holding the line. He remembered his instructor's words during training: when enemy cavalry charged a square, there might be a second or third wave waiting. The instant your formation wavered, they would rush in to destroy it. The momentum of cavalry at full gallop had terrified him to his core. Had it not been for the long-term continuous drilling that had forged a near-instinctive numbness in the soldiers, they would likely have broken formation long ago.
 
-He dared not change formation, ordering to retreat slowly towards the Grand Camp in square formation.
+He dared not change formation. Instead, he ordered a slow retreat toward the Grand Camp, maintaining the square.
 
-"Steady, steady!" He waved his command saber. The other two company commanders also tried their best to maintain the order of retreat. At this time, he heard the brisk fife playing of the "Grenadiers' March" sounding from behind. A high-spirited team of grenadiers marched from the rear in an orderly manner, forming a neat double-column line beside them to cover their retreat into the camp.
+"Steady, steady!" He waved his command saber. The other two company commanders did their best to preserve the orderly withdrawal. At that moment, he heard the brisk notes of fifes playing the "Grenadiers' March" from behind. A high-spirited team of grenadiers advanced in orderly columns, forming a neat double-file line beside them to cover their retreat into the camp.
 
-Withdrawing all the way to the Grand Camp gate, the artillerymen and infantrymen on the earthen ramps let out a burst of warm cheers—except for a portion of officers and NCOs who had participated in the Bopu Defense Battle and bandit suppression operations, this new type of army had never fought a battle with the enemy in such a dignified formation. Now they saw the result of their repetitive daily drilling on the parade ground: three hundred infantrymen against three hundred cavalrymen; the cavalry didn't gain even a shred of advantage, instead leaving behind a ground full of dead men and horses. The native soldiers and officers instantly had a hundred times more confidence in their own army and weapons.
+By the time they withdrew to the Grand Camp's gate, the artillerymen and infantrymen on the earthen ramps burst into warm cheers. Except for a portion of officers and NCOs who had participated in the Bopu Defense Battle and various bandit suppression operations, this new army had never fought a pitched battle in such a dignified formation. Now they witnessed the result of their repetitive daily drilling on the parade ground: three hundred infantrymen against three hundred cavalrymen—and the cavalry had gained not even a shred of advantage. Instead, they had left behind a field of dead men and horses. Confidence surged a hundredfold among soldiers and officers alike.
 
-Yang Zeng was immediately called before He Ming upon returning to the camp. He saluted the highest commander while trembling:
+Yang Zeng was immediately summoned before He Ming upon returning to camp. He saluted the highest commander, still trembling:
 
 "I brought the company back! No casualties!"
 
-"Well done!" He Ming punched him hard, almost knocking this small guy to the ground. "Record a merit for him! First Class Merit!"
+"Well done!" He Ming punched him hard on the shoulder, nearly knocking the smaller man to the ground. "Record a merit for him! First Class Merit!"
 
-When Tong Yizhen subsequently rushed to the battlefield with his house guards and infantry, he saw He Zhanran's unit routed and scattered. They retreated in chaos; most had lost their helmets and weapons, and many had terrible wounds on their bodies, falling off their horses as they ran.
+---
 
-Tong Yizhen was greatly shocked. It was not strange for the outpost to lose a battle, but these were three hundred elite cavalry. Breaking three or four times their number of infantry should have been more than enough. Now they were actually defeated, and defeated so miserably.
+When Tong Yizhen subsequently rushed to the battlefield with his household guards and infantry, he found He Zhanran's unit scattered in complete rout. They were retreating in chaos; most had lost their helmets and weapons, and many bore terrible wounds, tumbling from their horses as they fled.
+
+Tong Yizhen was stunned. It was not unusual for an outpost to lose a skirmish—but these were three hundred elite cavalry, more than capable of breaking infantry three or four times their number. Yet they had been utterly routed, and routed so miserably.
 
 He Zhanran was brought before him in a sorry state: "This humble general is incompetent—"
 
-"How many cavalry does the enemy have?" He didn't care to listen to his pleas of guilt. "Where are they now?"
+"How many cavalry does the enemy have?" Tong Yizhen cut him off impatiently. "Where are they now?"
 
-"The Hair Bandits have no cavalry, only, only..." He Zhanran barely swallowed a mouthful of saliva made bitter by wild running and gunpowder smoke, "The firearms are extremely fierce!"
+"The Hair Bandits have no cavalry—only... only..." He Zhanran barely managed to swallow a mouthful of saliva turned bitter by wild running and gunpowder smoke. "Their firearms are extremely fierce!"
 
-He reported one by one the events of impacting the square, suffering accurate continuous fire from two hundred paces away, to being bombarded by cannonballs that could explode in the air and project bullets:
+He reported each event in sequence: the impact against the square, the accurate and continuous fire from two hundred paces, and finally the bombardment by cannonballs that could explode in the air and project bullets:
 
-"The Hair Bandits' firearms are not only sharp, but their strict discipline is absolutely not comparable to ordinary pirates."
+"The Hair Bandits' firearms are not only sharp—their strict discipline is absolutely not comparable to ordinary pirates."
 
-"You withdraw first!" Tong Yizhen didn't quite believe his words. Officers who lost battles always exaggerated the enemy's strength and fighting prowess. But He Zhanran's defeat was so miserable that it didn't seem like a lie.
+"You withdraw first!" Tong Yizhen did not entirely believe him. Officers who lost battles invariably exaggerated the enemy's strength and prowess. But He Zhanran's defeat was so thorough that it hardly seemed like a lie.
 
-Since the vanguard suffered a setback, he decided not to lead troops directly into the battlefield, to avoid being hit head-on by the high-morale enemy. He already knew from the defeated soldiers that the Hair Bandits had abandoned the camp at the South Gate and the earthworks besieging Chengmai, retreating the whole army to a large camp near the coast to the northwest.
+Since the vanguard had suffered a setback, Tong Yizhen decided not to lead his troops directly into battle—to do so would invite a head-on collision with a high-morale enemy. He already knew from the retreating soldiers that the Hair Bandits had abandoned the camp at the South Gate and the earthworks besieging Chengmai, withdrawing their entire army to a large camp near the coast to the northwest.
 
-He immediately ordered a portion of mounted house guards and personal soldiers, led by a young general under him named Song Ming, to rapidly occupy the empty camp left by the Hair Bandits outside the South Gate and raise his big banner. Then he called another personal soldier:
+He immediately ordered a portion of his mounted household guards and personal soldiers, led by a young officer named Song Ming, to rapidly occupy the empty camp left behind by the Hair Bandits outside the South Gate and raise his big banner. Then he called another personal soldier:
 
-"Go quickly to report to the Commander-in-Chief! I have already captured the Hair Bandits' South Gate Grand Camp! Breaking the siege of Chengmai!"
+"Go quickly and report to the Commander-in-Chief! I have already captured the Hair Bandits' South Gate Grand Camp! Chengmai has been relieved!"
 
-Subsequently, he urged the infantry to rush as fast as possible. He took men and horses to the foot of Chengmai South Gate, telling the defenders on the wall to open the gate quickly. The defenders on the wall witnessed the government cavalry's disastrous defeat just now and were originally already in despair. Suddenly seeing dust rolling from the direction of the post road and large batches of government troops surging in endlessly, they knew the government army finally came to rescue. On the gate tower, the Magistrate, Assistant Magistrate, and others lying prone commanding the militia to resist were all in tears, kowtowing towards the capital in the north one after another, shouting "Long Live."
+Subsequently, he urged his infantry to rush forward as fast as possible. He then led his men to the foot of Chengmai's South Gate, calling up to the defenders on the wall to open the gate immediately. The defenders had witnessed the government cavalry's disastrous defeat just moments earlier and had already given in to despair. But now, seeing dust rolling from the direction of the post road and great masses of government troops surging endlessly toward them, they knew deliverance had arrived at last. On the gate tower, the Magistrate, the Assistant Magistrate, and other officials who had been lying prone directing the militia to resist burst into tears. One after another, they kowtowed northward toward the capital, crying "Long Live!"
 
-The military and civilians in the county immediately opened the South Gate. Tong Yizhen led his headquarters troops into the city immediately. Rapidly taking over the four-wall defense, his subordinates then hurriedly circled to occupy houses everywhere. For a time, chickens flew and dogs jumped in the county seat; soldiers and officers were busy encircling and occupying houses everywhere, demanding supplies.
+The military and civilians within the county immediately opened the South Gate. Tong Yizhen led his headquarters troops inside at once and rapidly assumed control of the defense along all four walls. His subordinates hurriedly fanned out to occupy houses throughout the city. For a time, chickens flew and dogs jumped within the county seat; soldiers and officers were everywhere, encircling and occupying buildings, demanding supplies.
 
-For a time, the whole city was full of sounds of cursing, begging, screaming, and crying. Some families were driven out of their homes by soldiers; some simply took the opportunity to rob the civilians in the city; there were also those entering houses to rape women. For a time, the county seat was in Chaos, with commoners' crying and officers/soldiers' scolding and shouting mixed together.
+For a time the whole city filled with the sounds of cursing, begging, screaming, and crying. Some families were driven from their homes by soldiers; others were simply robbed outright. Some soldiers entered houses to rape women. The county seat descended into chaos—the commoners' crying and the officers' and soldiers' scolding and shouting mingled into a single din.
 
-Chengmai Magistrate Liu Jingxuan's lips were pale. He took clerks and runners, trembling, to attend to the officers and soldiers constantly coming to him for demands at the county yamen entrance. He had been slapped a few times, and his lips were broken. Several clerks and auxiliary officials shrank behind him.
+Chengmai's Magistrate Liu Jingxuan stood at the entrance to the county yamen, lips pale, attended by trembling clerks and runners. He struggled to satisfy the endless demands of officers and soldiers streaming toward him. He had already been slapped several times, and his lips were split and bleeding. Several clerks and auxiliary officials cowered behind him.
 
-The gentry were all terrified. Originally, when they contributed people and money to defend the county seat to the death, they looked forward day and night to the government army coming to rescue. They didn't expect this savior to be about the same as bandits. Seeing even the Magistrate ate a few slaps from big soldiers, everyone was even more worried their own family properties and little lives wouldn't be kept.
+The gentry were all terrified. When they had contributed people and money to defend the county seat to the death, they had looked forward day and night to the arrival of the government army to rescue them. They had not expected this "savior" to behave no differently than bandits. Seeing even the Magistrate cuffed about by common soldiers, each of them grew even more anxious about their family properties and their little lives.
 
-"General, lower official Chengmai Magistrate Liu Jingxuan—" He just started but was interrupted by Tong Yizhen:
+"General, this lower official—Chengmai Magistrate Liu Jingxuan—" He had barely started before Tong Yizhen cut him off:
 
-"Alright, alright, the Commander-in-Chief will arrive in a while. Quickly clean out your yamen to welcome the Commander-in-Chief!"
+"Enough, enough. The Commander-in-Chief will arrive shortly. Clean out your yamen immediately and prepare to receive him!"
 
-"Yes, yes, this is the lower official's duty." Liu Jingxuan knew the Imperial Court had sent a grand army to suppress the Hair Bandits. He always thought it was just a matter of supplying grain and fodder. He didn't expect the Hair Bandits actually wanted to fight a decisive battle with the Government Army under the city. He couldn't help secretly crying bitterness—he had served as magistrate for several terms and knew the most difficult thing for local officials was catering to passing high officials and armies; both were about the same as bandits. There had been magistrates who died of illness or even committed suicide because of excessive extortion. Now that the Government Army actually wanted to station inside the city, his face instantly turned ashen, and the officials and gentry behind him also appeared very uneasy.
+"Yes, yes—it is this lower official's duty." Liu Jingxuan knew the Imperial Court had dispatched a grand army to suppress the Hair Bandits. He had always assumed his only obligation would be to supply grain and fodder. He had not anticipated that the Hair Bandits would actually seek a decisive battle with the government army right beneath the city walls. Secretly, he cursed his bitter luck—he had served as magistrate for several terms and knew that the most difficult thing for local officials was catering to passing high officials and armies. Both were little better than bandits. There had been magistrates who had died of illness—or even committed suicide—because of excessive extortion. Now that the government army intended to station inside the city, his face turned ashen, and the officials and gentry behind him appeared no less uneasy.
 
-"It's just, it's just, regarding the military discipline of your noble unit's brothers, please ask General to maintain it." He said tremblingly.
+"It's just... it's just... regarding the military discipline of your noble unit's brothers—please, may I ask the General to maintain it," he said, trembling.
 
-General Tong looked at the chaotic scene filling the city. Not far away lay a few corpses with heads cut off. Judging from the clothing, these people were not Hair Bandits.
+General Tong surveyed the chaotic scene filling the city. Not far away lay a few corpses with heads cut off. Judging from their clothing, these people were not Hair Bandits.
 
-"This General will naturally maintain military discipline, but grain and fodder supply must also be done with all your heart."
+"This General will naturally maintain military discipline. However, the supply of grain and fodder must also be handled with all your heart."
 
-"Yes, yes, lower official—" Before he finished speaking, suddenly several disheveled women crying and shouting threw themselves at him, shouting injustice.
+"Yes, yes, this lower official—" Before he could finish, several disheveled, crying women threw themselves at him, wailing for justice.
 
-"What kind of world is this!" A woman wailed while crying, "My man lost his life serving as militia defending the city. Before he was even buried, someone cut off his head..."
+"What kind of world is this!" one woman sobbed. "My man lost his life serving as militia defending the city. Before he was even buried, someone cut off his head..."
 
-Tong Yizhen knew this was his subordinates cutting off heads to claim as war merit. This kind of thing was accustomed in the army. He only coughed once and instructed soldiers to drive the women away.
+Tong Yizhen understood immediately. His subordinates had cut off heads to claim as war merit—the practice was common enough in the army. He merely coughed once and instructed his soldiers to drive the women away.
 
-At this time, a runner rushed over: "Master, Master!" He ran until his face was red all over, even dropping his hat. "The Vice... Masters..." He saw many soldiers and several generals beside the Magistrate and hurriedly corrected himself: "North City, North City, is on fire!"
+At that moment a runner came racing up: "Master! Master!" His face was red from running, and he had even lost his hat. "The Vice... Masters..." Seeing the many soldiers and generals around the Magistrate, he hastily corrected himself. "North City! North City is on fire!"
 
-Liu Jingxuan was greatly shocked. He saw several places in the city already starting fires. He hurriedly said, "Quick, quick, beat the gong, call the Water Society to turn out the Dragon!" He looked back at the runners who were already dumbstruck like wooden chickens, waved his sleeve, and stomped his foot, "You guys go too!"
+Liu Jingxuan was overcome with alarm. He saw flames already rising from several points in the city. He rushed to give orders: "Quick, quick! Beat the gong! Call the Water Society to turn out the Dragon!" He turned back to the runners standing frozen like wooden chickens and stamped his foot. "You lot go too!"
 
-" This group of rotten bastards, making too much of a mess!" Seeing the soldiers behaving so recklessly, Lieutenant Colonel Tong feared being reported and impeached by the censors. Plus the women's crying and shouting... with a formidable enemy in front, going too far would cause trouble. Immediately, he ordered a personal officer to take dozens of personal soldiers bearing his arrow-token to patrol the whole city, beheading several looting and killing soldiers on the street before maintaining order.
+"This group of rotten bastards, making too much of a mess!" Seeing his soldiers behaving so recklessly, Lieutenant Colonel Tong feared the censors would get wind of this and impeach him. And with a formidable enemy at the gates, pushing too far now would invite disaster. He immediately ordered a personal officer to take several dozen soldiers bearing his arrow-token to patrol the entire city. Only after beheading several looting and killing soldiers on the street was order restored.
 
-Half an hour later, a part of Li Guang's Governor's Standard Camp also arrived under Chengmai City, but his attempt to enter the city was stopped by Tong's unit—the Chaozhou soldiers under Lieutenant Colonel Tong seemed to consider this city their war trophy, not allowing others to dip a finger. Both sides drew plain blades and swords were drawn. If not for generals of both sides coming out quickly to stop it, the Chaozhou soldiers and Zhaoqing soldiers almost caused a conflict at the city gate.
+Half an hour later, a portion of Li Guang's Governor's Standard Camp arrived as well, but his attempt to enter the city was blocked by Tong's men. The Chaozhou soldiers under Lieutenant Colonel Tong seemed to consider the city their personal war trophy, refusing to let anyone else claim a share. Both sides drew their blades; swords cleared scabbards on both sides. Had generals from each camp not rushed out to intervene, the Chaozhou soldiers and Zhaoqing soldiers would have come to blows right there at the city gate.
 
-He Ming stood on the tower, looking at the constantly surging Ming troops with high-power binoculars. Their numbers were so great, like mercury pouring on the ground, filling the entire empty ground around Chengmai County seat.
+---
 
-Countless columns, innumerable flags, clanking of armor, soldiers' footsteps, the flapping sound of wind beating flags, like a great tide surging violently towards here.
+He Ming stood atop a tower, observing the constantly surging Ming troops through high-power binoculars. Their numbers were staggering—like mercury poured onto the ground, they filled every open space around Chengmai's county seat.
 
-The setting sun went down. Sunlight shone on the rolling grand army coming from the east. Armor and spear points glittered. Sounds of war drums, horns, and reed pipes rose everywhere, accompanying the vast twilight. An unspeakable sense of pressure weighed heavily on his heart.
+Countless columns, innumerable flags, the clanking of armor, the tramp of soldiers' footsteps, the flapping sound of banners snapping in the wind—all of it surged toward him like a violent tide.
 
-If one said He Ming had been on the battlefield, fought Vietnamese devils, and smelled gunpowder, many veteran officers in the Field Army, even if from military backgrounds, had never fought a war. Everyone knew from a rational perspective that such a medieval army like the Ming Army couldn't defeat a modernized army, but watching this grand army surging endlessly, everyone's face was very grave. Some even felt dizzy and simply put down their binoculars to stop looking.
+The setting sun sank beneath the horizon. Its fading light shone on the rolling grand army approaching from the east. Armor and spear points glittered. The sounds of war drums, horns, and reed pipes rose from every quarter, accompanying the vast twilight. An unspeakable sense of pressure settled heavy upon his heart.
 
-A general ascended a huge rock. Countless helmeted heads surged forward around him. He was like a reef standing in a sea of stormy waves. The general gazed forward, the command flag in his hand pointing sharply to the front.
+He Ming had been on the battlefield before. He had fought Vietnamese forces and smelled gunpowder. But many veteran officers in the Field Army, even those from military backgrounds, had never experienced actual combat. Everyone knew from a rational standpoint that a medieval army such as this could not defeat a modernized force. Yet watching this grand army surge endlessly toward them, every face grew grave. Some officers felt dizzy and set down their binoculars, unable to look any longer.
 
-Over twenty thousand men and horses arrived under the county seat one after another, occupying the open ground and hilltops around the county seat. Infantry were setting up camp palisades and placing gun carriages. The whole army arranged a total of three camps, digging long trenches outside, confronting the Fubo Army.
+A general ascended a huge rock. Countless helmeted heads surged forward around him. He stood like a reef against a sea of stormy waves. His gaze fixed forward, the command flag in his hand pointing sharply ahead.
 
-He Rubin only arrived at Chengmai County seat before dark. He didn't enter the county seat but set up the Grand Camp outside the West Gate. Together with Zhao Ruyi, he first inspected the captured heads.
+More than twenty thousand men and horses arrived outside the county seat one after another, occupying the open ground and hilltops surrounding the city. Infantry set up camp palisades and positioned gun carriages. The whole army arranged itself in three camps, digging long trenches to confront the Fubo Army.
 
-Not only were the heads few, far from matching the more than three hundred chopped as reported by Lieutenant Colonel Tong, but the hair on this batch of so-called "Hair Bandit" heads was mostly cut messily. Some hair still had blood residue; some heads had already turned black, obviously hair cut only a day or two after death.
+He Rubin arrived at Chengmai only just before dark. He did not enter the county seat, instead establishing his Grand Camp outside the West Gate. Together with Zhao Ruyi, he first inspected the captured heads.
 
-He Rubin had long experience in military affairs; one look and he knew the tricks within. As for Zhao Ruyi, he was also a very shrewd and capable person. But with a big battle imminent, needing the officers and soldiers to follow orders, both remained silent. After inspection, they immediately ordered the Military Administration Department to record merits for the exertion personnel.
+Not only were the heads few—far short of the more than three hundred claimed by Lieutenant Colonel Tong—but the hair on this batch of so-called "Hair Bandit" heads had mostly been cut in a sloppy, ragged manner. Some hair still bore traces of blood; some heads had already turned black, obviously hair cut only a day or two after death.
 
-After inspecting the heads, they took the private secretaries and generals to ascend the North Wall of Chengmai to gaze at the Hair Bandit military camp camped by the seaside.
+He Rubin had long experience in military affairs. One look told him the tricks within. As for Zhao Ruyi, he too was shrewd and capable. But with a major battle imminent and the need for officers and soldiers to follow orders, both men remained silent. After the inspection, they immediately ordered the Military Administration Department to record merits for the exertion personnel.
 
-Tang Yunwen presented the Dutch telescope he bought from Macau. He Rubin pulled open the lens tube to look towards the Hair Bandit Grand Camp:
+After inspecting the heads, they took the private secretaries and generals with them to ascend the North Wall of Chengmai and gaze upon the Hair Bandit military camp pitched by the seaside.
 
-The Hair Bandit camp about four *li* away was surrounded by an earthen rampart a man's height. The shape of the camp wasn't round or square, but protruded with quite a few large sharp corners. He didn't understand the use of these protruding sharp corners surrounding the whole camp, but he knew the Dutchmen also arranged their forts like this.
+Tang Yunwen presented the Dutch telescope he had purchased in Macau. He Rubin extended the lens tube and studied the Hair Bandit Grand Camp:
 
-On the earthen rampart were installed many round baskets woven from willow branches. Bundles of bamboo linked together formed bunkers. There were also many tall towers built with frames standing upright; the highest was even taller than the county seat, with figures moving on top. Trenches were dug outside the entire camp; the defense was very tight.
+The camp lay about four *li* distant, surrounded by an earthen rampart roughly a man's height. The shape was neither round nor square, but protruded with numerous large, sharp angles. He did not understand the purpose of these protruding corners surrounding the entire camp, but he knew the Dutch arranged their forts similarly.
 
-There were lights on the distant sea; it seemed many ships were anchored. Tang Yunwen told him these were all Hair Bandit naval gunships.
+On the earthen rampart were installed many round baskets woven from willow branches. Bundles of bamboo, linked together, formed bunkers. Tall towers built from wooden frames stood upright here and there; the tallest was even higher than the county seat's walls, and figures could be seen moving atop it. Trenches had been dug outside the entire perimeter; the defenses were formidable indeed.
 
-Looking at the scale of the camp, the Hair Bandit men and horses were at least over ten thousand. He Rubin didn't expect the enemy to turn out in full force to fight a life-and-death battle with him under Chengmai County seat. moreover, the Hair Bandits' combat power seemed not to be underestimated. Lieutenant Colonel Tong's unit had to go through a hard battle to drive the Hair Bandit infantry out of their camp, and the cavalry lost more than two hundred men.
+Lights twinkled on the distant sea—apparently many ships lay at anchor. Tang Yunwen told him these were all Hair Bandit naval gunships.
 
-He saw a place resembling a village on the coastline about four or five *li* east of the Hair Bandit Grand Camp: "What place is this?"
+Looking at the scale of the camp, the Hair Bandit forces must number at least ten thousand. He Rubin had not expected the enemy to commit everything they had to a life-and-death battle beneath Chengmai. Moreover, the Hair Bandits' combat power seemed not to be underestimated. Lieutenant Colonel Tong's unit had endured a fierce fight merely to drive the Hair Bandit infantry from their camp, and the cavalry had lost more than two hundred men in the process.
 
-"Reporting to Commander-in-Chief," Magistrate Liu Jingxuan, who was called to accompany, hurriedly said, "This is Xiaoyingchang. There was originally a village, completely destroyed by an earthquake in the Wanli years. Now it is uninhabited."
+He saw what appeared to be a village on the coastline, about four or five *li* east of the Hair Bandit Grand Camp. "What is that place?"
 
-"General Sha! You send one thousand men to garrison Xiaoyingchang. Block the road for Hair Bandits to flee along the coast to raid Qiongshan!" He ordered.
+"Reporting to the Commander-in-Chief," Magistrate Liu Jingxuan, who had been called to accompany them, hurriedly said. "That is Xiaoyingchang. There was once a village there, completely destroyed by an earthquake during the Wanli years. It has been uninhabited ever since."
 
-Guangzhou Guard Commander and Governor's Standard Camp Guerrilla Sha Jianbi hurriedly responded and immediately went down the wall to arrange.
+"General Sha! Dispatch one thousand men to garrison Xiaoyingchang. Block the road, lest the Hair Bandits flee along the coast to raid Qiongshan!" he ordered.
 
-After observing carefully for a while, He Rubin couldn't see where the weakness of the Hair Bandit camp lay. He knew the enemy Grand Camp in tomorrow's battle would be a very hard bone to chew, and losing soldiers and generals would be inevitable.
+Guangzhou Guard Commander and Governor's Standard Camp Guerrilla Sha Jianbi responded immediately and descended from the wall to make arrangements.
 
-But as long as the Hair Bandit main force was crushed here, Lingao would be taken in one drum beat. This portion of military strength was probably all the land forces the Hair Bandits had. The opponent's tactics were nothing more than the mode of relying on a strong camp and firearms to defend to the death, which didn't go beyond his expectations.
+After observing carefully for some time, He Rubin could discern no weakness in the Hair Bandit camp. He understood that tomorrow's battle for the enemy Grand Camp would be a very hard bone to chew—and that losing soldiers and generals was inevitable.
 
-(End of Chapter)
+But as long as the Hair Bandit main force was crushed here, Lingao would fall in a single drum beat. This force was probably all the land forces the Hair Bandits possessed. Their tactics would amount to nothing more than defending to the death behind a strong camp and sharp firearms—which did not go beyond his expectations.
+
+---
+
+*(End of Chapter)*

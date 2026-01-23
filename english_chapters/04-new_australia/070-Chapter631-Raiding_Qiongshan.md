@@ -1,137 +1,139 @@
 # Chapter 631 - Raiding Qiongshan
 
-The targets for breaking stockades had to be chosen very carefully. First, they had to have a bad reputation among the common people; second, they had to be powerful locally. Only in this way could it serve to warn others without frightening the common people too much or stirring up hatred against the common enemy.
+Selecting targets for the stockade raids required careful deliberation. First, the victims had to possess notorious reputations among the common folk. Second, they needed to wield considerable local influence. Only by striking such figures could the operation serve as a warning to others without terrorizing ordinary peasants or inadvertently uniting them against a common enemy.
 
-Choosing targets wasn't difficult. Since stabilizing Lingao, the intelligence department had begun collecting intelligence on neighboring Danzhou and Chengmai counties for future regime takeover and warfare. The transmigrator group had a fairly comprehensive grasp of the situation in these counties.
+Finding suitable targets proved straightforward enough. Ever since consolidating their hold over Lingao, the Intelligence Department had been methodically gathering information on neighboring Danzhou and Chengmai counties in preparation for future territorial expansion and military operations. The transmigrator group now possessed a remarkably comprehensive understanding of conditions throughout the region.
 
-Finally, You Laohu and Yu Zhiqian circled a few local tyrants, all typical ones who colluded with officials to oppress the villagers. Moreover, they were mainly clan landlords. Destroying one family would make a powerful clan completely lose control over the locality. This was more crucial than simply eliminating a band of local tyrants.
+After careful review, You Laohu and Yu Zhiqian circled several local tyrants—all textbook examples of landlords who colluded with corrupt officials to oppress their villages. More importantly, these targets were predominantly clan landlords. Destroying a single family would shatter an entire clan's stranglehold over the locality, an outcome far more consequential than merely eliminating a handful of petty despots.
 
-In the following week, Yu Zhiqian led his troops on an armed parade through Chengmai County, breaking two stockades and forcing many villages to provide grain and labor. They obtained large amounts of money, grain, and people. Most captured prisoners were sent by militia to Lingao for dispersed settlement. He only escorted over a hundred able-bodied men and dozens of captured local tyrants and their lackeys to the foot of Chengmai County City. The men continued helping dig trenches and build earthworks.
+Over the following week, Yu Zhiqian led his troops on an armed parade through Chengmai County, breaking two stockades and compelling numerous villages to provide grain and laborers. They seized substantial quantities of money, grain, and manpower. Most prisoners were dispatched under militia escort to Lingao for dispersed settlement, while Yu Zhiqian retained only a hundred-odd able-bodied men and several dozen captured tyrants and their lackeys, marching them to the foot of Chengmai County's walls. There, the men were put to work digging trenches and constructing earthworks.
 
-Originally You Laohu only intended to bluff, but now with plenty of grain and people, and seeing Chengmai County had no elite soldiers or capable generals, a small skirmish under the city walls—though casualties were few, the sight of township braves routing at the first touch of Minié rifles greatly boosted the morale of both transmigrators and indigenous soldiers.
+You Laohu had originally intended merely to bluff, but with ample grain and manpower now at his disposal—and having witnessed Chengmai's utter lack of elite soldiers or capable commanders—a small skirmish beneath the city walls changed everything. Though casualties were few, the sight of township militia routing at the first crack of Minié rifles sent morale soaring among both transmigrators and indigenous soldiers alike.
 
-With the aid of 12-pounder mountain howitzers, Minié rifles, and explosives, breaking stockades—an operation of some difficulty for ordinary bandits or even Ming troops—was effortless for Yu Zhiqian and the others. Yu Zhiqian's unit suffered total casualties of only nine infantry wounded, one militia killed, and eleven wounded. If not for the time and effort spent collecting supplies, they could have broken a few more stockades.
+With the aid of 12-pounder mountain howitzers, Minié rifles, and high explosives, breaking stockades—an operation of considerable difficulty for ordinary bandits or even Ming regular troops—proved almost effortless for Yu Zhiqian's unit. Their total casualties amounted to a mere nine wounded infantrymen, one militia killed, and eleven militia wounded. Had they not spent so much time collecting supplies, they could have broken several more fortifications.
 
-After every stockade break, Yu Zhiqian always let a few people escape to the prefectural city to raise the alarm—You Laohu had long set up ambush posts outside Chengmai's city gates; anyone attempting to enter the city to raise the alarm was hanged on trees outside. Eventually, no one went to the county town anymore.
+After each stockade fell, Yu Zhiqian always allowed a few survivors to flee toward the prefectural city to raise the alarm. You Laohu, however, had long established ambush posts outside Chengmai's city gates; anyone attempting to enter and sound the warning was seized and hanged from the roadside trees. Eventually, no one bothered trying to reach the county seat anymore.
 
-Captured local tyrants and lackeys were hanged in batches on big trees lining the Chengmai-Qiongshan official road. For a time, the whole of Chengmai County shook; gentry and merchants in the county were terrified, fleeing in droves by night from the east and west gates. Yu Zhiqian instructed the secret sentries outside not to capture them, letting them flee.
+The captured tyrants and their henchmen were executed in batches, their bodies strung up on the great trees lining the official road between Chengmai and Qiongshan. For a time, all of Chengmai County trembled. Terrified gentry and merchants fled by night through the east and west gates in droves. Yu Zhiqian instructed his hidden sentries not to capture these refugees but to let them scatter in panic.
 
-You Laohu and Yu Zhiqian discussed: with grain and men on hand, why not set up a stockade under Chengmai city as a forward base? So they sent someone back to Maniao for instructions. Seeing them making such a huge commotion, He Ming sent another infantry company and several teams of student soldiers from the training unit to reinforce them.
+You Laohu and Yu Zhiqian conferred: with grain and men now in hand, why not establish a stockade beneath Chengmai's walls as a forward operating base? They dispatched a messenger back to Maniao requesting instructions. Seeing the scale of their operation, He Ming reinforced them with another infantry company and several squads of student soldiers from the training unit.
 
-You Laohu drove the laborers to build formal earthen works around Chengmai and sent people to repair the dock and dredge the harbor at the seaside. Mei Wan also simply sent an engineering team to guide the construction, utilizing labor to repair roads.
+You Laohu set the laborers to constructing formal earthworks around Chengmai while sending crews to repair the docks and dredge the harbor at the coast. Mei Wan contributed an engineering team to supervise the construction, putting the conscripted labor to work improving the roads as well.
 
-While Chengmai was making a huge commotion, on the Qiongshan-Haikou Coastal Defense Battalion-Chengmai official road line, the Special Reconnaissance Team led by Ye Mengyan was also actively operating. Leading a thirty-man team, he infiltrated all the way to Qiongshan County, setting up several reconnaissance posts along the way, extending the early warning line to Haikou Coastal Defense Battalion City. Then he led his men along the Nandu River to the Jiazi Coal Mine.
+While Chengmai descended into chaos, the Special Reconnaissance Team led by Ye Mengyan was conducting equally aggressive operations along the Qiongshan-Haikou Coastal Defense Battalion-Chengmai corridor. Leading a thirty-man team, he infiltrated all the way to Qiongshan County, establishing several reconnaissance posts en route and extending the early warning network to the very walls of the Haikou Coastal Defense garrison. From there, he led his men along the Nandu River to the Jiazi Coal Mine.
 
-Tang Menglong had long received warning that the Ming army might soon launch a suppression campaign against Lingao.
+Tang Menglong had long since received warning that the Ming army might soon launch a punitive campaign against Lingao.
 
-Theoretically, the Jiazi Coal Mine was the Hai family's asset and officials shouldn't touch it. Moreover, being in a remote inland area with poor transport, military action against it would be difficult. But potential danger of attack always existed. The Administration Council's instruction to Tang Menglong was: stop all coal shipments, stop Hai family wharf operations, keep only local personnel, with specific work handled by Lin Baiguang. At the mine, temporarily shrink production scale, step up military training for miners, and strengthen mine fortifications.
+In theory, the Jiazi Coal Mine was a Hai family asset, and officials had no business touching it. Moreover, its remote inland location and poor transport links made military action against it impractical. But the potential for attack always existed. The Administration Council's instructions to Tang Menglong were clear: halt all coal shipments, suspend Hai family wharf operations, retain only essential local personnel with specific duties handled by Lin Baiguang. At the mine itself, production was to be scaled back, military training for miners intensified, and fortifications strengthened.
 
-When Ye Mengyan arrived at Jiazi Coal Mine, production had completely stopped; only the coal washing plant and briquette factory continued processing stockpiles. Miners were fully armed, practicing bayonet drills in the open. Tang Menglong had built several new blockhouses at the wharf and mining area, each capable of garrisoning five or six soldiers, stocked with many bamboo tubes of explosives.
+By the time Ye Mengyan arrived at the Jiazi Coal Mine, production had ceased entirely. Only the coal washing plant and briquette factory continued processing existing stockpiles. The miners had been fully armed and were drilling bayonet techniques in the open. Tang Menglong had constructed several new blockhouses at the wharf and mining area, each capable of garrisoning five or six soldiers and stocked with numerous bamboo tubes packed with explosives.
 
-"He Ming has obtained authorization from the Executive Committee: if necessary, you can lead your people to evacuate. You can withdraw now if you want," Ye Mengyan said. "You only have one platoon and thirty-some Minié rifles here; you definitely can't hold if the enemy main force attacks."
+"He Ming has obtained authorization from the Executive Committee: if necessary, you can lead your people out," Ye Mengyan told him. "You can withdraw now if you want. You've only got one platoon and thirty-some Minié rifles here. If the enemy's main force attacks, you can't possibly hold."
 
-"What would the government army attack this coal mine for?" Tang Menglong said carelessly. "You walked the mountain road along the way. Would the government army ignore proper business, not attack Lingao, and instead bother to march this road to fight? Besides, this mine is considered the Hai family's property anyway."
+"Why would the government army bother attacking this coal mine?" Tang Menglong replied with an unconcerned shrug. "You walked the mountain road on your way here. Would the government army ignore their actual objective, bypass Lingao entirely, and march all this way just to pick a fight? Besides, this mine is technically Hai family property."
 
-"This is just in case," Ye Mengyan said. "Anyway, I've passed the message. If you want to withdraw, do it quickly. The main government force hasn't reached Hainan yet; it's easy to coordinate your main group's withdrawal now."
+"This is just a precaution," Ye Mengyan said. "I've delivered the message. If you want to withdraw, do it quickly. The main government force hasn't reached Hainan yet—coordinating your evacuation now would be straightforward."
 
-Tang Menglong considered for a moment: "I won't withdraw. There are several hundred people here, men and women. Evacuation is very inconvenient. If intercepted by government troops on the way, losses would be huge. Besides, there's a lot of equipment and material here; infrastructure cost a huge price. If we leave, villagers and bandits in the mountains will take the chance to loot and steal. Rebuilding after defeating the enemy would be another huge investment."
+Tang Menglong considered for a moment. "I won't withdraw. We have several hundred people here, men and women both. Evacuation would be extremely inconvenient. If we were intercepted by government troops en route, the losses would be catastrophic. Besides, there's a tremendous amount of equipment and infrastructure here—it cost a fortune to build. If we abandon it, the mountain bandits and local villagers will strip the place clean. Rebuilding after we defeat the enemy would require another massive investment."
 
-Since Tang Menglong decided not to withdraw, Ye Mengyan didn't insist. He left the explosives and some hand grenades he brought with Tang Menglong, and left a squad of spec ops members to assist in defense.
+Since Tang Menglong had resolved to stay, Ye Mengyan didn't press the matter. He left behind the explosives and hand grenades he had brought, along with a squad of special operations soldiers to assist in the defense.
 
-Ye Mengyan led the remaining men to infiltrate back to the Haikou area from the mountains. His second mission was to harass local government and garrison troops in Qiongshan. The spec ops team had few people but good equipment; however, lacking heavy weapons, besieging a city like You Laohu wasn't viable. Knowing that sniping a few passing messengers had little value, he simply led the team to Danying Mountain outside Qiongshan County City.
+Ye Mengyan led the remaining men back through the mountains toward the Haikou area. His secondary mission was to harass local government and garrison troops in Qiongshan. The special operations team was small but well-equipped; lacking heavy weapons, however, besieging a city like You Laohu was not an option. Knowing that sniping a few passing messengers would accomplish little of strategic value, he simply led his team to Danying Mountain, which overlooked Qiongshan County from the outside.
 
-"Set up a cannon on this high point, and wouldn't Qiongshan surrender immediately?" Ye Mengyan lowered his binoculars, muttering. He wore a set of civilian-version US military jungle camouflage BDU from the Vietnam War era. Slung on his shoulder was a VZ68 submachine gun. No helmet. Behind him were twelve young men hand-picked from his detachment, dressed identically, except using less convenient SKS semi-automatics. These spec ops members sat silently in the woods eating rations and drinking water.
+"Set up a cannon on this high ground, and Qiongshan would surrender immediately," Ye Mengyan muttered, lowering his binoculars. He wore a civilian-version U.S. military jungle camouflage BDU from the Vietnam War era. A VZ68 submachine gun hung from his shoulder; he wore no helmet. Behind him sat twelve young men handpicked from his detachment, dressed identically except for their use of the less convenient SKS semi-automatic rifles. The spec ops soldiers sat silently in the woods, eating rations and drinking water.
 
-The entire Qiongshan County City lay at his feet. Built against mountains and facing water. A big river flowed past the south and east gates; outside the west gate was a man-made moat. Only outside the north gate was there nothing—like most Hainan county towns, Qiongshan's north gate was built but never opened; though it had a tower and gate, the inside was blocked by bricks.
+The entire city of Qiongshan lay spread beneath him. Built against the mountains and facing the water, a great river flowed past the south and east gates; outside the west gate stretched a man-made moat. Only outside the north gate was there nothing—like most Hainan county seats, Qiongshan's north gate had been built but never opened. Though it possessed a tower and a gate, the interior was bricked shut.
 
-It was evident the city's defenses were poor. Even by 17th-century Ming standards, it wasn't great, just passable. Ye Mengyan saw three city gates open, completely unguarded. Infiltrating all the way here, apart from哨 posts and small patrols ten li outside Haikou Coastal Defense Battalion City, there were no reconnaissance or precautionary measures along the road—could this be called "pre-war state"? Practically child's play. Thinking of this, he felt extreme contempt for the Ming officials.
+The city's defenses were clearly poor. Even by seventeenth-century Ming standards, they were merely passable. Ye Mengyan observed that all three functioning city gates stood wide open, completely unguarded. Having infiltrated all the way here, aside from sentry posts and small patrols positioned ten *li* outside the Haikou Coastal Defense garrison, he had encountered no reconnaissance or precautionary measures along the entire route. Could this seriously be called a "pre-war footing"? It was practically child's play. The thought filled him with contempt for Ming officialdom.
 
-"Detachment Leader! We sneaked all the way to Qiongshan; what next?" A member asked him.
+"Detachment Leader! We've sneaked all the way to Qiongshan—what now?" one team member asked.
 
-"Higher-ups want harassment. I think this place can't withstand harassment. If we charge down, we could probably take Qiongshan County City." Ye Mengyan smiled. "Tricky situation."
+"Higher-ups want harassment." Ye Mengyan smiled. "I think this place can't withstand much harassment at all. If we charged down there, we could probably take Qiongshan County outright. Tricky situation."
 
-"The streets outside the city are bustling; why don't we set a fire and burn the Qiongshan suburbs?" A member said. "Once this fire burns, old Wang Zunde will be forced to make the government army cross the sea."
+"The streets outside the city are bustling. Why don't we set a fire and burn down the Qiongshan suburbs?" another member suggested. "Once the flames go up, old Wang Zunde will have no choice but to force the government army across the sea."
 
-Ye Mengyan chuckled: "Rotten idea. What if everything burns down?" He thought, actually it was a good method to shake Wang Zunde. But the Planning Institute, Administration Council, and Senate wouldn't forgive him—though for different motives.
+Ye Mengyan chuckled. "Terrible idea. What if everything burns out of control?" He thought to himself that it would actually be an effective method to rattle Wang Zunde—but the Planning Institute, the Administration Council, and the Senate would never forgive him, each for their own reasons.
 
-"Burn the suburbs, and after we win we have to provide relief to victims," Ye Mengyan said. "Think of something else!"
+"Burn the suburbs, and after we win we'll have to provide relief to the victims," he said aloud. "Think of something else!"
 
-At noon that day, Ye Mengyan led the spec ops team down from Danying Mountain. He decided to choose the East Gate Market Street outside Qiongshan's east gate as the demonstration site. Many pedestrians and shops here; it would cause the biggest sensation.
+At noon that day, Ye Mengyan led the special operations team down from Danying Mountain. He had decided to make the East Gate Market Street outside Qiongshan's east gate his demonstration site. The area was crowded with pedestrians and shops—perfect for causing maximum sensation.
 
-He left a covering group using automatic rifles on high ground outside the market. If large enemy groups rushed out from the city, they would use automatic fire to block. He himself led seven or eight men to the entrance of the East Gate Suburb Street. Though outside the city, there was a wooden barrier guarded by two militia.
+He positioned a covering group with automatic rifles on high ground outside the market. If a large enemy force rushed out from the city, they would use automatic fire to pin them down. He himself led seven or eight men to the entrance of the East Gate Suburban Street. Although outside the city walls, the area had a wooden barrier guarded by two militiamen.
 
-Seeing the appearance of Ye Mengyan and others dressed in motley colors and hung with gear, the militia's first reaction wasn't fear or nervousness, but curiosity. One carrying a spear even stepped forward to see clearly. Upon seeing their short hair stubble, the militia seemed to suddenly realize, instantly dropping the spear in terror and running toward the city gate, shouting at the top of his lungs:
+When they saw Ye Mengyan and his motley-clothed, gear-festooned companions approaching, the militiamen's first reaction was not fear or alarm but curiosity. One of them, carrying a spear, even stepped forward for a better look. The moment he noticed their close-cropped stubble, sudden realization dawned on his face. Terror-stricken, he dropped his spear instantly and bolted toward the city gate, screaming at the top of his lungs:
 
-"Hair Rebels are here! Hair Rebels are here!"
+"The Hair Rebels are here! The Hair Rebels are here!"
 
-Ye Mengyan waved his submachine gun; team members swarmed in. Two members quickly controlled the barrier entrance. He led the others charging straight along the street toward the city gate.
+Ye Mengyan gestured with his submachine gun; his team members swarmed forward. Two men quickly secured the barrier entrance while he led the rest charging straight up the street toward the city gate.
 
-Not a market day today; few pedestrians on the street. Seeing a group of weird-looking people swarm in, everyone froze momentarily.
+It wasn't a market day, and few pedestrians wandered the street. When they saw the strange-looking group surge in, everyone froze momentarily.
 
-A few militia at the city gate seemed to react. Seeing few enemies, with a shout, they surged out of the gate tunnel with swords and spears to fight. A member behind Ye Mengyan immediately threw two hand grenades.
+A handful of militia at the city gate seemed to snap to attention. Seeing how few attackers there were, they let out a battle cry and poured out of the gate tunnel with swords and spears at the ready. One of Ye Mengyan's men immediately lobbed two hand grenades.
 
-Grenades exploded in the gate tunnel; smoke filled the air instantly, amid wails and groans. The street fell into chaos; pedestrians hid in shops and alleys on both sides. Ye Mengyan knew they were few and couldn't stay long. He quickly pasted two Fubo Army notices on the fence by the gate. After pasting, he didn't leave immediately but shouted to the commoners on the street, saying they were Fubo Army troops coming only to warn the government, not to harm commoners, so don't be afraid. Shopkeepers on both sides held their breath listening, but no one dared speak. Ye Mengyan then turned and withdrew. Just then, SKS-D rifles rang out one after another; several militia on the gate tower trying to shoot arrows were killed by the covering group before they could draw their bows.
+The grenades exploded inside the gate tunnel, filling it instantly with smoke and the sounds of wails and groans. The street devolved into chaos as pedestrians dove into shops and side alleys. Ye Mengyan knew his force was too small to linger. He quickly pasted two Fubo Army notices on the fence beside the gate. After affixing them, he didn't withdraw immediately but instead called out to the commoners hiding along the street, announcing that they were Fubo Army troops who had come only to warn the government—not to harm civilians—so there was no need for fear. Shopkeepers on both sides held their breath and listened, but none dared respond. Ye Mengyan then turned and withdrew.
 
-After withdrawing from the East Gate Street, Ye Mengyan's squad walked a few li then he ordered everyone to ambush at a bend in the post road. Sure enough, minutes later, over a hundred militia and village braves chased after them, led by a man on horseback wielding a long spear. Soon they approached within fifty meters.
+Just then, SKS rifles cracked one after another; several militiamen on the gate tower who had been trying to nock arrows were cut down by the covering group before they could even draw their bowstrings.
 
-Ye Mengyan tapped the marksman in the squad: "Shoot the one riding the horse!"
+After pulling back from East Gate Street, Ye Mengyan's squad marched several *li* before he ordered everyone to set up an ambush at a bend in the post road. Sure enough, within minutes, over a hundred militiamen and village braves came chasing after them, led by a mounted man wielding a long spear. They soon closed to within fifty meters.
 
-At the gunshot, the mounted leader fell. The braves around him fell into disarray. A row of hand grenades from the squad exploded in the dense crowd, knocking down a swath. Those not killed or wounded turned and ran back toward the county town. Members ambushing the rear threw another row of grenades, killing and wounding many. The enemy collapsed; regardless of roads, they scattered to flee.
+Ye Mengyan tapped the marksman in his squad. "Shoot the one on the horse."
 
-Having fought a beautiful ambush and knowing the enemy dared not chase again, Ye Mengyan ordered the leader's horse retrieved. Members asked him to ride; he shook his head:
+At the gunshot, the mounted leader toppled from his saddle. The surrounding braves fell into disarray. A volley of hand grenades from the squad exploded amid the densely packed pursuers, knocking down a swath of men. Those not killed or wounded turned and fled back toward the county seat. The team members positioned at the rear threw another salvo of grenades, inflicting further casualties. What remained of the enemy force collapsed entirely; abandoning the road, they scattered in every direction.
+
+Having executed a textbook ambush and knowing the enemy wouldn't dare pursue again, Ye Mengyan ordered the leader's horse retrieved. His men urged him to ride, but he shook his head.
 
 "I don't know how to ride..."
 
-Privately he thought bringing a horse would make further harassment operations impossible, but he couldn't bear to discard it—it was a Mongolian horse, rare locally, much more majestic than the small fruit-tree horses.
+Privately, he thought that bringing a horse along would make further harassment operations impossible—but he couldn't bear to abandon it. The animal was a Mongolian horse, a rarity in these parts and far more impressive than the diminutive local ponies bred for orchard work.
 
-Having made a big scene at Qiongshan was enough; might as well retreat to Chengmai to rest a few days before coming back. Thinking this, he ordered:
+Having made quite a scene at Qiongshan, that seemed enough for now. Better to retreat to Chengmai to rest for a few days before returning. With that thought, he gave the order:
 
-"Bring the horse, we return to Chengmai first!"
+"Bring the horse. We return to Chengmai first!"
 
-Members quickly cleaned the battlefield. Ye Mengyan ordered the pursuing leader's head cut off and hung on a roadside tree. Someone found a beautiful short sword on the body and handed it to Ye Mengyan.
+His men quickly policed the battlefield. Ye Mengyan ordered the pursuing leader's head severed and hung from a roadside tree. One of his soldiers found a beautiful short sword on the body and presented it to him.
 
-"Captain, this thing is beautiful; you keep it." The member said.
+"Captain, this thing is gorgeous. You should keep it."
 
-Ye Mengyan looked at the short sword; dark green leather sheath inlaid with filigree gold and silver patterns, ancient style, clearly no ordinary object.
+Ye Mengyan examined the short sword: a dark green leather sheath inlaid with filigree patterns of gold and silver, ancient in style, clearly no ordinary weapon.
 
-"All captures go to the public; turn it in." Ye Mengyan wasn't interested in so-called "divine weapons" of cold steel, just thought it looked nice. He tossed it into his backpack and ordered everyone to pack up and retreat immediately.
+"All captures go to the common pool. Turn it in." Ye Mengyan had no interest in so-called "divine weapons" of the cold steel variety—he simply thought it looked nice. He tossed it into his backpack and ordered everyone to pack up and withdraw immediately.
 
-To prevent interception by Haikou Coastal Defense Battalion troops, they left the main road and detoured. Within a few hours, they retreated to You Laohu's camp under Chengmai city.
+To avoid interception by Haikou Coastal Defense garrison troops, they left the main road and took a circuitous route. Within a few hours, they had retreated safely to You Laohu's camp beneath Chengmai's walls.
 
-You Laohu's camp was now a considerable stockade. He drove seven or eight hundred male and female laborers. Under militia guard, led by the construction team, they built the camp and leveled roads daily.
+You Laohu's camp had grown into a substantial stockade. He had seven or eight hundred male and female laborers at his disposal. Under militia guard and engineering team supervision, they spent their days building fortifications and leveling roads.
 
 You Laohu threw a banquet for Ye Mengyan in his headquarters.
 
-His so-called headquarters was a temporary shed. Furnished very comfortably inside, with all kinds of chairs and even a large red mahogany bed. Clearly looted from big households in the countryside.
+His so-called headquarters was a temporary shed, though furnished quite comfortably inside—various chairs, even a large red mahogany bed. Clearly, all of it was loot from the big households in the countryside.
 
-Hearing about Ye Mengyan's scene at Qiongshan's East Gate suburb, You Laohu was excited—he was a chaotic neutral type who loved trouble; such dramatic and lively scenes fascinated him.
+When he heard about Ye Mengyan's dramatic raid on Qiongshan's East Gate suburb, You Laohu grew visibly excited. He was a chaotic neutral type who loved stirring up trouble; such theatrical scenes fascinated him.
 
-"Little Ye, you really showed off this time." You Laohu slapped his thigh. "It's much more boring here. Sticking our butts out fixing roads and building stockades facing a lousy county town all day." Saying this, he instructed the company quartermaster to prepare food and treats for Ye Mengyan's team.
+"Little Ye, you really showed off this time!" You Laohu slapped his thigh. "Things are much duller here. Just sticking our butts out, fixing roads and building stockades while staring down at a lousy county town all day." As he spoke, he instructed the company quartermaster to prepare food and provisions for Ye Mengyan's team.
 
-Soon a lavish spread was on the table, centering on a large platter of spare ribs. Each rib was reddish-yellow and bright, smelling fragrant; crispy outside, tender inside, rich in flavor.
+Soon an impressive spread covered the table, centered on a large platter of spare ribs. Each rib glistened reddish-gold, fragrant and inviting—crispy on the outside, tender within, and intensely flavorful.
 
-"Done by a cook Old Yu caught. Skill is superb." You Laohu gnawed one clean with lightning speed and grabbed another.
+"The handiwork of a cook Old Yu captured." You Laohu gnawed one clean with astonishing speed and grabbed another. "His skill is superb."
 
-Yu Zhiqian smiled: "Strictly speaking, we're violating discipline..."
+Yu Zhiqian smiled. "Strictly speaking, we're violating discipline..."
 
-"Discipline," You Laohu wanted to say "screw discipline," but thought he might get caught out, so changed to: "Anyway, sent to Lingao he's a cook; staying here he's a cook. I'm just using him first." He pointed at the ribs. "Target ribs are marinated with honey, crispy and tasty, a bit like Cantonese char siu but not quite. Endless aftertaste! When I get back, I have to make my life secretary learn from this cook."
+"Discipline—" You Laohu started to say "screw discipline," but caught himself; he might get called out for it later. "Anyway, whether we send him to Lingao or keep him here, he's still a cook. I'm just using him first." He gestured at the ribs. "These are marinated with honey—crispy and sweet, a bit like Cantonese *char siu* but not quite. An endless aftertaste! When I get back, I absolutely have to make my aide-de-camp learn from this cook."
 
-Besides ribs, there were several plates of fresh vegetables and other dishes. Just no wine.
+Besides the ribs, there were several plates of fresh vegetables and other dishes—everything but wine.
 
-"Food is great. Where's the supply from?" Ye Mengyan wondered—Logistics absolutely wouldn't send fresh vegetables and raw meat.
+"The food is excellent. Where does it all come from?" Ye Mengyan wondered aloud. There was no way Logistics would be sending fresh vegetables and raw meat.
 
-"Old Yu got it from hitting big households—chicken, duck, fish, meat, oil, salt, sauce, vinegar enough!" You Laohu shook his head. "Actually there's plenty of wine, but can't drink." He smacked his lips regretfully. "Vegetables and grain were all requisitioned from various stockades. Since we broke a few and killed a bunch, stockades all over Chengmai are scared witless; they'd give up their wives if asked."
+"Old Yu got it all from hitting the big households—chicken, duck, fish, meat, oil, salt, sauce, vinegar, enough of everything!" You Laohu shook his head in mock regret. "There's actually plenty of wine too, but we can't drink it." He smacked his lips wistfully. "The vegetables and grain were all requisitioned from the various stockades. Since we broke a few and killed a bunch of people, every stockade in Chengmai is scared witless. They'd hand over their own wives if we asked."
 
-"Meat hasn't been quarantined..."
+"The meat hasn't been quarantined..."
 
-"Don't eat if you don't want to." You Laohu started his fourth rib. Seeing the ribs disappearing, Ye Mengyan hurriedly joined the gluttony.
+"Don't eat it if you don't want to." You Laohu was already starting on his fourth rib. Seeing the ribs disappearing fast, Ye Mengyan hurriedly joined in the feast.
 
-While the three were eating and drinking, an orderly reported: The Planning Institute representative had arrived.
+While the three men ate and drank, an orderly reported: the Planning Institute representative had arrived.
 
-"Our good days are over." You Laohu shook his head. "Invite him in quickly."
+"Our good days are over." You Laohu shook his head. "Tell him to come in."
 
-Naturally, Yu Zhiqian hitting big households in Chengmai attracted Planning Institute attention. To bring captured materials and manpower into the system quickly, Wu De sent a special search team led by a Planning Institute representative.
+Naturally, Yu Zhiqian's campaign against the big households in Chengmai had attracted the Planning Institute's attention. To bring the captured materials and manpower properly into the system, Wu De dispatched a special search team led by a Planning Institute representative.
 
-"Local use of spoils ends in a messy account," he said seriously when giving orders to the representative. "Now You Laohu's detachment is hitting local tyrants under Chengmai, gaining much wealth, grain, and people. You go register spoils; some grain and non-staple food can be allocated locally to the detachment, but procedures must be sound."
+"Local use of spoils always ends in a messy accounting," Wu De had said seriously when issuing orders to the representative. "Right now, You Laohu's detachment is striking local tyrants around Chengmai and acquiring considerable wealth, grain, and manpower. Go there and register the spoils. Some grain and provisions can be allocated locally to the detachment, but the procedures must be sound."
 
 (End of Chapter)

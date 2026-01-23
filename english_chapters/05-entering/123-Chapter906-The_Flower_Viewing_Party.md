@@ -1,16 +1,16 @@
 # Chapter 906 – The Flower-Viewing Party
 
-Zhou Dongtian conceded that the line of reasoning was decent enough, but it was useless to them. Deduction required a foundation of rich data. They knew virtually nothing about the local personages of Hangzhou. There could be hundreds—or thousands—of people who fit Zhao Yingong's profile. Scholars gave themselves *zi* and *hao*—style names and literary sobriquets—as casually as eating cabbage. A single person might have three or four, or even a dozen. Who knew who this "Foolish One of Longmian" might be?
+Zhou Dongtian conceded that the reasoning was decent enough, but it was ultimately useless to them. Deduction required a foundation of rich data, and they knew virtually nothing about Hangzhou's local personages. Hundreds—or thousands—of people might fit Zhao Yingong's profile. Scholars gave themselves *zi* and *hao*—style names and literary sobriquets—as casually as eating cabbage. A single person might have three or four, or even a dozen. Who knew who this "Foolish One of Longmian" might be?
 
 Xu Ke suddenly said, "Could it belong to Zhang Dai, the one who just passed by?"
 
 From the personal characteristics Zhao Yingong had deduced, Zhang Dai did fit fairly well. But Zhao Yingong dismissed his guess. He'd read *Dream Memories of Tao'an* and remembered that Zhang Dai's courtesy name was "Zongzi," and his sobriquets included Tao'an, Tiansun, Die'an Jushi, and so on—but not "Foolish One of Longmian."
 
-"Let's go back and look through a copy of *Jinshen*," Zhao Yingong said with a sigh. "We know far too little about the basic conditions of the Ming. Just scratching the surface."
+"Let's go back and look through a copy of *Jinshen*," Zhao Yingong said with a sigh. "We know far too little about the basic conditions of the Ming. We're just scratching the surface."
 
 Zhou Dongtian gave a cold laugh. "What's the point of knowing so much? Once the cannons sweep the land clean, it'll all be sorted. Why bother with all this fuss?"
 
-The group continued watching from the observation deck for a while. Once the novelty wore off, they returned to the cabin. Mei Lin had relaxed considerably and was now engaged in an animated discussion with Meiyan'er about the Buddhist statues at the "Three Tianzhu Temples"—probably bits and pieces he'd picked up in an elective course back in his student days. Meiyan'er not only listened attentively but occasionally offered a comment of her own. Zhao Yingong was secretly impressed: the high-class courtesans of this timeline really did have a bit of skill. No wonder Yu Eshui had mentioned in a training class that wealthy Ming people frequented the pleasure houses primarily for "social life."
+The group continued watching from the observation deck for a while. Once the novelty wore off, they returned to the cabin. Mei Lin had relaxed considerably and was now engaged in an animated discussion with Meiyan'er about the Buddhist statues at the "Three Tianzhu Temples"—probably bits and pieces he'd picked up in an elective course back in his student days. Meiyan'er not only listened attentively but occasionally offered a comment of her own. Zhao Yingong was secretly impressed: the high-class courtesans of this timeline really did have skill. No wonder Yu Eshui had mentioned in a training class that wealthy Ming people frequented the pleasure houses primarily for "social life."
 
 It was nearly noon. Meiniang had brought her maids in with trays, setting out the table while asking what wine the honored guests would like.
 
@@ -20,7 +20,7 @@ Zhao Yingong saw that four exquisite appetizer dishes had already been laid out.
 
 "It comes from Guangdong. They say it's a fine foreign-made wine," said Meiniang. "Never mind the quality of the wine itself—just the bottle it comes in is priceless! These days, unless you're a powerful official, it's hard to get your hands on it..."
 
-By this point, Zhao Yingong understood: it must be the "private wine" brewed by Guo Yi. To think a courtesan on the West Lake could get her hands on *Guoshi Wushuang*! Even in Guangzhou, this wine was extremely difficult to obtain. Guo Yi was running a "hunger marketing" strategy, targeting the high-end gift market with limited production. After the Guangzhou station's distillery was destroyed last year, production had only just resumed and output was even lower now.
+By this point, Zhao Yingong understood: it must be the "private wine" brewed by Guo Yi. To think a courtesan on West Lake could get her hands on *Guoshi Wushuang*! Even in Guangzhou, this wine was extremely difficult to obtain. Guo Yi was running a "hunger marketing" strategy, targeting the high-end gift market with limited production. After the Guangzhou station's distillery was destroyed last year, production had only just resumed, and output was even lower now.
 
 He said at once, "*Guoshi Wushuang* is too strong. In this hot weather, a lighter Shaoxing wine would be better."
 
@@ -30,11 +30,13 @@ Eight exquisite cold dishes were brought out as accompaniments—four meat, four
 
 The wine was warmed and served. They drank and played drinking games while Meiyan'er sang a few songs. Her words were elegantly literary and tinged with a southern accent; no one but Zhao Yingong could quite make them out. They only felt the melodies were pleasant and offered vague praise.
 
+---
+
 Zhang Dai's boat was at that moment on the lake surface, less than two hundred meters away. After Wu Zhixiang arrived in Hangzhou and learned that Zhang Dai held considerable influence within the Restoration Society—and that he loved excitement, enjoyed exotic novelties, and had a strong interest in new things—he'd changed his original plans. He would first focus on cultivating Zhang Dai right here in Hangzhou.
 
 Fortunately, Zhang Dai was not a cold and aloof literatus. In his daily dealings, he was quite uninhibited and enjoyed making friends. With little effort, Wu Zhixiang obtained an introduction through an acquaintance and presented eight pots of Dutch tulips that he'd brought all the way from Guangzhou. These rare "foreign flowers" suited Zhang Dai's tastes perfectly. Seeing that the visitor called frequently and treated him with great respect, and finding Wu Zhixiang's conversation refined and full of fascinating anecdotes about Guangdong—especially the recent vogue for "Australian goods"—Zhang Dai gradually warmed to his new friend. Before long, the two had become quite familiar.
 
-At that moment, Wu Zhixiang, Zhang Dai, and several friends were relaxing on the upper deck of the tower-boat. The eight pots of tulips that had crossed the ocean were arranged in two rows before the steps. Their brilliant blooms basked in the mild early-summer sunshine, unfurling their multicolored petals. Gusts of fragrance drifted up on the warm breeze to the banquet above. The friends had already admired and praised the flowers at length; every one of them marveled at the striking colors of these exotic blossoms. They critiqued and commented—for today's outing on the tower-boat wasn't for the scenery of West Lake or the dragon boat races, but specifically for a "flower-viewing party." They had even composed several poems. Now they sat chatting idly while continuing to drink and admire the flowers.
+At that moment, Wu Zhixiang, Zhang Dai, and several friends were relaxing on the upper deck of the tower-boat. The eight pots of tulips that had crossed the ocean were arranged in two rows before the steps. Their brilliant blooms basked in the mild early-summer sunshine, unfurling their multicolored petals. Gusts of fragrance drifted up on the warm breeze. The friends had already admired and praised the flowers at length; every one of them marveled at the striking colors of these exotic blossoms. They critiqued and commented—for today's outing on the tower-boat wasn't for the scenery of West Lake or the dragon boat races, but specifically for a "flower-viewing party." They had even composed several poems. Now they sat chatting idly while continuing to drink and admire the flowers.
 
 By this time, a banquet prepared by Master Zhang's household chef was half-consumed. Maids and servants were clearing the dishes and setting out fresh wine and fruit.
 
@@ -46,9 +48,7 @@ He was an elegantly dressed scholar with an intelligent and friendly face, his c
 
 "Though peonies are brilliant, their brilliance is forthright and dignified, without any seductive air..." This fellow continued holding forth on his self-invented classifications of "gaudy beauty," "refined beauty," "righteous beauty," and "seductive beauty."
 
-"I think your views are rather biased," said the speaker, Sun Chun. He was an unremarkable-looking ordinary scholar.
-
-Though unremarkable, he was actually a core member of the Restoration Society.
+"I think your views are rather biased," said the speaker, Sun Chun. He was an unremarkable-looking ordinary scholar—though unremarkable, he was actually a core member of the Restoration Society.
 
 "That's quite wrong—"
 

@@ -1,93 +1,95 @@
 # Chapter 1037: The Route
 
-"It is truly deep-rooted after all. I fear that the fall of one leaf may make the various group leaders mourn the autumn," the Daoist said, dropping a literary phrase.
+"He is truly deep-rooted, after all. I fear that one falling leaf may cause the various group leaders to mourn the autumn," the Daoist remarked, allowing himself a literary flourish.
 
-Luo Chun smiled, a smile of submission: "Total Perversion... err, the Perfected One worries too much. The believers are only filled with satisfaction; how could they mourn the autumn? This big tree usually couldn't provide shelter from wind and rain, only forcing everyone to fertilize and water it. It's better if all its leaves fall off."
+Luo Chun smiled—a smile of submission. "Total Perv— err, the Perfected One worries too much. The believers are only filled with satisfaction; why would they mourn the autumn? This big tree never provided shelter from wind and rain, only demanded that everyone fertilize and water it. Better if all its leaves fall off."
 
-Zhang Yingchen nodded: "So that's how it is."
+Zhang Yingchen nodded. "So that's how it is."
 
-Luo Chun said the General Altar was not entirely unaware of the various illegal acts Ma Weisan did in Yizhou. But he was extremely pious to the General Altar and the Cult Master, and the incense money and various offerings he submitted monthly were exceptionally generous, so he had always been regarded as a "capable man."
+Luo Chun explained that the General Altar had not been entirely unaware of Ma Weisan's various illegal acts in Yizhou. But he had been exceptionally pious toward the General Altar and the Cult Master, and the incense money and offerings he submitted monthly were notably generous. Thus he had always been regarded as a "capable man."
 
-However, the cult members below had quite a few complaints, especially the original Incense Masters, most of whom dared not speak out against him: Ma Weisan was a local tyrant; killing a few people or wiping out someone's family was nothing to him—it wasn't like he hadn't done it before.
+However, the cult members below harbored considerable complaints, especially the original Incense Masters, most of whom dared not speak against him openly. Ma Weisan was a local tyrant—killing a few people or wiping out someone's family meant nothing to him. It wasn't as if he hadn't done it before.
 
-"If the Perfected One is willing to remove him to rid the people of a scourge, I'm afraid the group leaders and believers would beat gongs and drums in celebration."
+"If the Perfected One is willing to remove him and rid the people of this scourge, I'm afraid the group leaders and believers would beat gongs and drums in celebration."
 
-Luo Chun's words carried both public and private meanings. Ma Weisan was indeed not a good person, and she had transferred all the hatred for Hu Qi'er's death onto Ma Weisan's head, harboring a grudge against him. Therefore, as soon as Zhang Yingchen revealed an intention to move against Ma, she urged him on without hesitation.
+Luo Chun's words carried both public and private meanings. Ma Weisan was genuinely not a good man, and she had transferred all her hatred for Hu Qi'er's death onto his head, nursing a deep grudge. Therefore, the moment Zhang Yingchen revealed any intention of moving against Ma, she urged him on without hesitation.
 
-Zhang Yingchen didn't speak. He knew Ma Weisan had a very bad reputation in the local sect, and Luo Chun's words made him determined to remove him. Currently, he urgently needed money: the operating funds for the Yizhou plate relying on allocations from the Religious Affairs Office and the Civil Affairs Commission were far from enough; right now, he mainly relied on raising funds himself. Eliminating Ma Weisan would yield a large sum of money: according to intelligence provided by Luo Chun and others, there were at least ten thousand taels of silver and thousands of *dan* of grain stored in Ma Weisan's manor. Not to mention the large amount of land and other real estate under his name.
+Zhang Yingchen did not speak immediately. He knew Ma Weisan bore a terrible reputation locally, and Luo Chun's words had hardened his determination to eliminate him. He urgently needed money. Operating funds for the Yizhou operation drawn from the Religious Affairs Office and Civil Affairs Commission were far from sufficient; currently he relied mainly on self-raised funds. Eliminating Ma Weisan would yield a substantial sum. According to intelligence from Luo Chun and others, Ma Weisan's manor held at least ten thousand taels of silver and thousands of *dan* of grain—not to mention the extensive land and other real estate in his name.
 
-It seemed he would have to trouble Xiao Ye. He thought so. Ming Qing came to report: "Master Wang from Qiwei Escort Bureau is here to pay a visit."
+It seemed he would have to trouble Xiao Ye. He was contemplating this when Ming Qing came to report: "Master Wang from Qiwei Escort Bureau is here to pay a visit."
 
-"Quick, please come in!" Zhang Yingchen instantly cheered up. He had received a telegram a few days ago that Lingao would send a Senator to the Hangzhou Station to be responsible for the refugee transfer work in southern Shandong and northern Zhejiang.
+"Show him in at once!" Zhang Yingchen's spirits lifted instantly. He had received a telegram days ago indicating Lingao would dispatch a Senator to the Hangzhou Station to oversee refugee transfer operations in southern Shandong and northern Zhejiang.
 
-For the convenience of work, this Senator would appear in the name of the external manager of the Qiwei Escort Bureau.
+For convenience, this Senator would appear under the guise of external manager for the Qiwei Escort Bureau.
 
-Zhang Yingchen secretly speculated who the coming Senator was. Wang is a common surname, and there are quite a few people named Wang among the Senators; he wondered which one it was.
+Zhang Yingchen privately speculated about which Senator was coming. Wang was a common surname, and quite a few Senators bore it. He wondered which one.
 
-Luo Chun hurriedly withdrew—having worked by the leader's side for a long time, she had this bit of perceptiveness. This was also one of the reasons why the Daoist was quite satisfied with Luo Chun. In comparison, Little Min's perceptiveness was much worse.
+Luo Chun hurriedly withdrew—having worked beside leaders for many years, she possessed this much perceptiveness. This was also one reason the Daoist found her satisfactory. By comparison, Little Min's perceptiveness lagged considerably.
 
-A young, strong man walked in, wearing a Qiwei Escort Bureau "vest"—recently Qiwei was promoting "corporate culture," which included promoting employees wearing uniform "shop clothes."
+A young, powerfully built man walked in wearing a Qiwei Escort Bureau "vest"—recently, Qiwei had been promoting "corporate culture," which included having employees wear uniform shop clothes.
 
-Zhang Yingchen was not very familiar with all the Senators, only roughly knowing that this one was from the industrial sector. And he was most unfamiliar with Senators from the industrial sector, so he could only greet him with a smile.
+Zhang Yingchen was not particularly familiar with all the Senators, only roughly aware that this one came from the industrial sector. And he was least acquainted with industrial-sector Senators—he could only greet the visitor with a smile.
 
 "The Heavenly King covers the Earth Tiger!"
 
 "The Pagoda suppresses the River Demon!"
 
-The two men's hands shook tightly together: "Comrade, I've looked forward to your coming!" The Daoist shook hands vigorously, putting on an enthusiastic appearance.
+The two men's hands clasped tightly. "Comrade, I've looked forward to your coming!" The Daoist shook hands vigorously, putting on an enthusiastic appearance.
 
-The visitor smiled and also shook hands vigorously in return. The Daoist couldn't help knitting his brows; fortunately, the other party released his hand in time. The Daoist couldn't help but secretly admire: what a strong man.
+The visitor smiled and returned the powerful handshake. The Daoist couldn't help furrowing his brows—fortunately, the other party released his hand in time. Zhang Yingchen silently marveled at the man's strength.
 
-The visitor was 1.80 meters tall, with a round face, stubble on his chin, dark skin, and hands that were both large and thick, calloused between the fingers. Obviously a Senator who worked on the industrial front line all year round.
+The visitor stood 1.80 meters tall, with a round face, stubble on his chin, dark skin, and hands both large and thick, calloused between the fingers—obviously a Senator who had worked on industrial front lines for years.
 
-The visitor was none other than Wang Ruixiang. He had worked in the industrial sector for two years, played with guns and cannons, and felt life in Lingao was still too boring. For this Operation Generator, since he was from Shandong and had lived in the Jiangnan region for a long time, he applied to be sent out to "move around."
+This was none other than Wang Ruixiang. He had worked in the industrial sector for two years, handling guns and cannons, but found life in Lingao too boring. For Operation Generator, being a native of Shandong with extensive experience living in the Jiangnan region, he had applied to be sent out to "move around."
 
-Under his unremitting efforts, Wang Ruixiang was finally approved to participate in the Intelligence Bureau's external assignment training and returned to his hometown.
+Through unremitting effort, Wang Ruixiang was finally approved to participate in the Intelligence Bureau's external assignment training and return to his homeland.
 
-Wang Ruixiang was not from the three eastern prefectures, so he was not sent to Qimu Island but came to south Shandong to assist the Daoist's activities. Running back and forth between Hangzhou and Yizhou indeed required a young and strong person.
+Wang Ruixiang was not from the three eastern prefectures, so he had not been dispatched to Qimu Island. Instead he came to southern Shandong to assist the Daoist's activities. Running back and forth between Hangzhou and Yizhou indeed required someone young and strong.
 
-They sat down as host and guest, and Ming Qing served tea. Zhang Yingchen dismissed the attendants to talk in secret.
+They sat as host and guest, and Ming Qing served tea. Zhang Yingchen dismissed the attendants to speak privately.
 
-Wang Ruixiang's mission in Yizhou was to discuss the refugee transfer work in Yizhou.
+Wang Ruixiang's mission in Yizhou was to discuss the refugee transfer work.
 
-"What arrangements does the organization have?" Zhang Yingchen asked hurriedly. Since experimentally transferring the first batch of refugees, he had sheltered almost one thousand five hundred people. Because he didn't know when the transfer could start and the destination, the work of sheltering refugees had temporarily slowed down: currently, only orphans and refugees with children were sheltered.
+"What arrangements does the organization have?" Zhang Yingchen asked eagerly. Since experimentally transferring the first batch of refugees, he had sheltered nearly one thousand five hundred people. Because he didn't know when transfer could commence or what the destination would be, the work of sheltering refugees had temporarily slowed—currently, only orphans and refugees with children were being taken in.
 
-Wang Ruixiang said: "Commissioner Liu wants us to transfer the refugees from south Shandong and north Jiangsu to Taiwan as soon as possible. Manpower is scarce there now; they want to engage in construction."
+Wang Ruixiang said, "Commissioner Liu wants us to transfer refugees from southern Shandong and northern Jiangsu to Taiwan as soon as possible. Manpower is scarce there—they want to undertake construction."
 
-"Refugees are no problem; right now, you can say they are everywhere. As many as needed. It's just hard to transfer them," Zhang Yingchen was quite troubled.
+"Refugees are no problem; right now, you could say they're everywhere. As many as needed. The difficulty is in transferring them," Zhang Yingchen said, troubled.
 
-The first batch of refugees went to Qimu Island; the route was north along the Yi River. Taking a short land route, then following the Juyang Water to Laizhou Bay, and finally to Qimu Island.
+The first batch of refugees had gone to Qimu Island via a route north along the Yi River, then a short overland stretch, then following the Juyang Water to Laizhou Bay, and finally to Qimu Island.
 
-Because the Yellow River in the Ming Dynasty entered the sea from Huai'an, the Yi River was navigable at that time, and due to the floods in south Shandong that year, the water levels of various rivers were very high. Zhang Yingchen rented a batch of boats to transport the refugees and relief rations for supply along the way. Where water routes were not available, people were sent to organize the refugees to march on foot.
+Because the Yellow River in the Ming Dynasty entered the sea from Huai'an, the Yi River was navigable during this period. Moreover, the floods in southern Shandong that year had left water levels in various rivers quite high. Zhang Yingchen had rented boats to transport refugees and relief rations for supply along the way. Where water routes were unavailable, he organized refugees to march on foot.
 
-Because the conditions along the route were unclear, Zhang Yingchen only experimentally organized about two hundred refugees: men, women, old, and young included—after all, when the large-scale transfer really started, it couldn't be all able-bodied men. In addition, twenty young, reliable believers who were good at dealing with situations were sent to look after them along the way. Qiwei also sent a few escorts. The journey went smoothly, but the conditions on the road verified his conjecture: safety could be guaranteed; the government ignored the refugees, adopting an attitude of letting them sink or swim as long as they didn't cause trouble. Ordinary bandits were no match for so many people. But villages and towns where supplies and rest could be found were almost nonexistent along the way; all villages and county seats shut their doors to such groups of moving refugees, not allowing them to stay. Even getting some water to drink took a lot of talking. The refugees could only camp in the wild; the old and weak couldn't stand such exposure to the elements, and several died of illness on the road.
+Because conditions along the route were unclear, Zhang Yingchen had only experimentally organized about two hundred refugees—men, women, elderly, and children all included, since actual large-scale transfer couldn't consist entirely of able-bodied men. Additionally, twenty young, reliable believers skilled at handling situations were sent to look after them along the way. Qiwei also contributed several escorts. The journey went smoothly, but conditions on the road confirmed his suspicions: safety could be guaranteed—the government ignored refugees, adopting an attitude of letting them sink or swim as long as they caused no trouble, and ordinary bandits were no match for such numbers. But villages and towns where they might find supplies and rest had virtually disappeared along the route. Every village and county seat barred its doors to moving refugee groups, refusing to let them stay. Even obtaining drinking water required extensive pleading. The refugees could only camp in the open; the elderly and weak couldn't withstand such exposure, and several died of illness along the way.
 
-Grain prices were very high and hard to buy. Unless there was a fixed supply along the way, refugees couldn't complete the journey relying only on the grain they carried.
+Grain prices soared and grain was difficult to purchase. Without a fixed supply chain along the way, refugees couldn't complete the journey relying solely on the grain they carried.
 
-Moreover, with enough grain on them, escapes inevitably occurred on the road. Although the believers watched carefully along the way, more than a dozen people still escaped. Adding those who died of illness, the total loss rate was nearly 10%.
+Moreover, carrying sufficient grain invited escapes on the road. Though believers watched carefully throughout, more than a dozen people still fled. Adding those who died of illness, the total loss rate approached ten percent.
 
-"...Overall, it's better to go by water; grain transport is convenient, and refugees are easier to manage. Both escapes and deaths from illness would be much fewer," Zhang Yingchen said.
+"...Overall, water transport is preferable. It makes grain transport convenient and refugees easier to manage. Both escapes and deaths from illness would decrease significantly," Zhang Yingchen concluded.
 
-Wang Ruixiang had no concept of these place names. Zhang Yingchen opened a "Top Secret" level map on the table, which was exactly the large-scale map of Shandong, and pointed out the routes to him one by one.
+Wang Ruixiang had no concept of these place names. Zhang Yingchen unrolled a "Top Secret" level map on the table—a large-scale map of Shandong—and pointed out the routes one by one.
 
-"To set up points one by one along the road would be too hard for Qiwei—they can't possibly have so much manpower and funds. If I do it myself, it's even harder," Daoquanzi said. "If I had two more years to expand the New Daoism network, maybe it would work. Now, only a unified layout by the Generator Forward Command will do."
+"Setting up supply points along the road would be too difficult for Qiwei—they can't possibly have that much manpower and capital. If I do it myself, it's even harder," Daoquanzi said. "With two more years to expand the New Daoism network, perhaps it could work. For now, only a unified layout by the Generator Forward Command will suffice."
 
-Wang Ruixiang shook his head: "Very hard." He looked at the map and exclaimed: "Fuck!" startling the Daoist.
+Wang Ruixiang shook his head. "Very difficult." He studied the map and exclaimed: "Fuck!"—startling the Daoist.
 
-Wang Ruixiang said: "Looking at this map, the Yi River and Juyang Water don't connect. Of course, walking a section of land route in the middle is indeed no problem, but taking a boat from Yizhou, walking, then taking a boat to Qimu Island, and then sending them to Jeju Island feels too troublesome. Might as well treat these as immigrants from the Zhejiang side and transport them directly by ship via Zhejiang. I see it's not far from Jining here; how about organizing refugees to walk to Jining and take the returning grain transport boats?" From Yizhou to Jining, refugees would only need to walk two days at most. The road was also relatively easy.
+Wang Ruixiang said, "Looking at this map, the Yi River and Juyang Water don't connect. Walking a section of land route in between is certainly feasible, but taking boats from Yizhou, walking, then taking boats to Qimu Island, then shipping them to Jeju Island seems unnecessarily complicated. Might as well treat these as immigrants for the Zhejiang side and transport them directly by ship via Zhejiang. It's not far from Jining here—why not organize refugees to walk to Jining and take returning grain transport boats?"
 
-After the refugees took boats all the way to Hangzhou, they would take ships from Hangzhou via the Qiantang River to sea towards Taiwan—anyway, Jeju Island hadn't opened yet, so the destination for refugees was all Kaohsiung.
+From Yizhou to Jining, refugees would need only two days' walk at most. The road was also relatively easy.
 
-After arriving in Hangzhou, Wang Ruixiang conducted a certain investigation of the grain transport gang organization, assessing whether its transport capacity had value for use in Operation Generator. Returning grain boats were generally empty and could freely carry passengers and cargo. As an important wharf along the canal, Jining could easily find large numbers of empty grain boats heading south.
+After arriving in Hangzhou, refugees would take ships via the Qiantang River to the sea, heading toward Taiwan. Since Jeju Island hadn't opened yet, the destination for all refugees was Kaohsiung.
 
-"I've considered this." The Daoist stroked his beard lightly. Going via Jining was theoretically feasible but difficult to operate in practice. Mainly because Jining was too close to Yanzhou—where the Prince of Lu lived, the ruling center of southern Shandong. Whether for protecting the feudal prince or surveillance, the Eastern Depot and Embroidered Uniform Guard were inevitable. Moreover, nearby Zou County was a center of White Lotus Sect activity, remaining intensely active even until the late Qing Dynasty.
+During his time in Hangzhou, Wang Ruixiang had investigated the grain transport gang organization, assessing whether its transport capacity could be useful for Operation Generator. Returning grain boats typically traveled empty and could freely carry passengers and cargo. As an important wharf along the canal, Jining offered easy access to large numbers of southbound empty grain boats.
 
-He had just snatched a territory from the South Infinite Sect, forging a feud between the two sides; it was not appropriate to provoke the White Lotus Sect now.
+"I've considered this." The Daoist lightly stroked his beard. Going via Jining was theoretically feasible but practically difficult. Primarily because Jining was too close to Yanzhou—where the Prince of Lu resided, the ruling center of southern Shandong. Whether for protecting the feudal prince or surveillance, the Eastern Depot and Embroidered Uniform Guard would be unavoidable. Moreover, nearby Zou County was a center of White Lotus Sect activity, remaining intensely active even into the late Qing.
 
-"So going by the canal isn't suitable." Wang Ruixiang was slightly disappointed. After investigating in Hangzhou, he felt the water transport capacity of the Grain Transport was actually huge and could be fully utilized. Moreover, he had established some connections with the "Point Men" (leaders) among the transport soldiers.
+He had just seized territory from the South Infinite Sect, creating a feud. It was not advisable to provoke the White Lotus Sect now.
 
-"Besides, the canal passes through the densely populated heartland of the Ming Dynasty. Passing checkpoints and asking for locks along the way involves too many uncontrollable factors. If we transport thousands or tens of thousands of refugees south, I'm afraid everyone along the way will look askance."
+"So the canal route isn't suitable." Wang Ruixiang was slightly disappointed. His investigation in Hangzhou had impressed upon him the enormous transport capacity of the Grain Transport system, which could be effectively utilized. He had even established connections with "Point Men"—leaders among the transport soldiers.
 
-Then they discussed the second plan. If they continued to send Yizhou refugees to Longkou, it would still rely on going north via the Yi River. Only not taking the Juyang Water. Specifically, refugees would travel north along the Yi River to the watershed, then north along the Bailang River or Jiaolai River to Laizhou, then travel along the coast. Refugees would carry only one or two days' rations, with supply along the way relying on water routes. A relay station would be set up at the watershed: supply from Yizhou south of the watershed, supply from Longkou north of the watershed. If necessary, a fixed supply point could be set up at the watershed relay station.
+"Besides, the canal passes through the densely populated Ming heartland. Passing checkpoints and requesting locks along the way involves too many uncontrollable factors. If we transport thousands or tens of thousands of refugees south, I'm afraid everyone along the way will stare."
+
+They then discussed the second option. If they continued sending Yizhou refugees to Longkou, the route would still proceed north via the Yi River—only bypassing the Juyang Water. Specifically, refugees would travel north along the Yi River to the watershed, then north along the Bailang River or Jiaolai River to Laizhou, then travel along the coast. Refugees would carry only one or two days' worth of rations, with supply along the way relying on water transport. A relay station would be established at the watershed: supply would come from Yizhou south of the watershed, from Longkou north of it. If necessary, a fixed supply point could be set up at the watershed relay station.
 
 **(End of Chapter)**

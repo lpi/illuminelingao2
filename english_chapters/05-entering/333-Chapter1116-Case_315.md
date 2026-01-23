@@ -1,8 +1,8 @@
 # Chapter 1116 - Case 315
 
-The Committee members paid close attention to this incident. Upon hearing the rumors, Feng Zongze immediately called a meeting to discuss countermeasures. Everyone at the meeting agreed the rumors were suspicious—clearly carrying strong political intent. Given the content, it was probably the work of Yi Court remnants on the island.
+The Committee members paid close attention to this incident. Upon hearing the rumors, Feng Zongze immediately called a meeting to discuss countermeasures. Everyone agreed the rumors were suspicious—clearly carrying strong political intent. Given the content, it was probably the work of Yi Court remnants on the island.
 
-Feng Zongze had been sailing along smoothly on Jeju Island, making quite a name for himself. The "Jeju Bow and Arrow Industry" he'd nurtured had achieved remarkable results in recent months. From the Korean peninsula, they'd traded for a considerable amount of grain (mainly coarse varieties) and Korean ginseng. Though the Committee had no use for ginseng itself, it could serve as a re-export commodity—both Japan and the Ming had high demand for Korean ginseng at premium prices.
+Feng Zongze had been sailing along smoothly on Jeju Island, making quite a name for himself. The "Jeju Bow and Arrow Industry" he'd nurtured had achieved remarkable results in recent months. From the Korean peninsula, they'd traded for a considerable amount of grain—mainly coarse varieties—and Korean ginseng. Though the Committee had no use for ginseng itself, it could serve as a re-export commodity; both Japan and the Ming had high demand for Korean ginseng at premium prices.
 
 However, the Korean market for bows and arrows was limited. Though the Court had been strengthening military preparations against another Jurchen invasion, the Yi military's overall equipment level was low and their numbers small. Feng Zongze had been considering new market development—for example, the Manchu.
 
@@ -10,7 +10,7 @@ Jeju Island, as a maritime node in Northeast Asia, could easily engage in three-
 
 Now Jeju Island had manpower and land aplenty. The collaborators, though they couldn't communicate easily, worked diligently. Local security was peaceful. As for the other Committee members—Nangong Wudi, Xue Ziliang, Li Haiping, and Nick—they focused on their own departments and didn't interfere with civil administration. Feng Zongze handled everything large and small, walking with such purpose that dust swirled in his wake. He felt his protagonist aura was blazing brightly. He'd been ambitiously planning to visit the Planning Committee to secure some industrial projects for Jeju. Now, the sudden emergence of this "hostile faction" felt like a club to the head.
 
-It wasn't fear—it was surprise. He'd thought "everything was under control." He hadn't expected hostile elements to have been scheming in the shadows. He'd been utterly oblivious until they made their move.
+It wasn't fear—it was surprise. He'd thought "everything was under control." He hadn't expected hostile elements to have been scheming in the shadows while he remained utterly oblivious until they made their move.
 
 The thought that if the hostile elements staged a "Great Jeju Uprising," returning to Lingao would be terribly embarrassing—those "opposition members" in the Committee who were always looking for someone to kick around would hold another "hearing"...
 
@@ -24,7 +24,7 @@ The Political Security Bureau had dispatched a working group to Jeju. Their prim
 
 Zhao Manxiong had specifically noted in internal briefings that the biggest issue with Operation Engine was the possibility that some core members of folk religious sects might be among the transported refugees. So on Qimu Island, both Lingao Catholicism and New Daoism conducted "heretical cleansing." The political security group on Jeju performed "rechecks"—not only to catch those who had slipped through, but also to identify any former heretics who might have feigned conversion and were now lying in wait.
 
-Consequently, the Jeju political security team was extremely busy. The special envoy heading the work, Liu Fuqing, was a naturalized cadre. He'd once been a scribe at the Nanjing Ministry of Justice. After getting caught forging case files, he'd been exiled to Leizhou Garrison. After the Second Anti-Encirclement victory, he'd crossed from Xuwen to Lingao to "join the transmigrators."
+Consequently, the Jeju political security team was extremely busy. The special envoy heading the work, Liu Fuqing, was a naturalized cadre. He'd once been a scribe at the Nanjing Ministry of Justice. After getting caught forging case files, he'd been exiled to Leizhou Garrison. Following the Second Anti-Encirclement victory, he'd crossed from Xuwen to Lingao to "join the transmigrators."
 
 In the purification camp, he'd been recruited as an informer. Due to excellent performance, he served as a full-time informer in the purification camp for over a year. After training courses, he was dispatched to Danzhou to build the Political Security Bureau's intelligence network. Because of his outstanding work, he'd been sent to Jeju as special envoy.
 
@@ -32,13 +32,13 @@ In the purification camp, he'd been recruited as an informer. Due to excellent p
 
 ---
 
-A seedy-looking half-elderly man appeared at the door. Words that should have sounded authoritative came out feeble from his mouth.
+A seedy-looking, half-elderly man appeared at the door. Words that should have sounded authoritative came out feeble from his mouth.
 
 Feng Zongze briefly described the case and ordered him to solve it quickly.
 
 "You know, I've always attached great importance to internal security work. This case appearing is actually a good thing—it'll make our work more solid and careful. How's the intelligence network setup work I instructed you on earlier progressing?"
 
-Liu Fuqing was somewhat surprised, as he hadn't seen Official Feng for over two months—just a single audience when he first arrived. As for specific instructions, there had been none these past two months. Fortunately, his work was directly under Political Security Bureau leadership. Whether Feng Zongze attended to this area or not, he could work methodically according to the orders and work manuals sent to him.
+Liu Fuqing was somewhat surprised, as he hadn't seen Official Feng for over two months—just a single audience when he first arrived. As for specific instructions, there had been none. Fortunately, his work was directly under Political Security Bureau leadership. Whether Feng Zongze attended to this area or not, he could work methodically according to the orders and work manuals sent to him.
 
 But he was an old hand from the bureaucracy, a wily fox who'd refined his craft to perfection. A few thoughts later, he understood. "Counter-revolutionaries" had appeared on the island and had already taken action, yet Official Feng had given no instructions on political security work for months. Wouldn't that look embarrassing in retrospect? Taking the hint, he immediately said loudly:
 
@@ -62,7 +62,7 @@ As for the second statement—that was one hundred percent false, Feng Zongze th
 
 "Understood, sir!"
 
-Liu Fuqing returned to his office—located in the residence of a fugitive merchant outside the refugee camp. He ordered Kim O-sun to be summoned and questioned her carefully about what had happened, who she recognized among those present, and the appearance and features of the shop clerk who'd spoken. He then summoned and questioned others on her list of attendees, learning about the situation from multiple angles while expanding his list of people who'd been present. Through continuous questioning of those present, he quickly established that the speaker was a clerk at a bow-materials shop in Jeju City named Choi Chang-min.
+Liu Fuqing returned to his office—located in the residence of a fugitive merchant outside the refugee camp. He ordered Kim O-sun to be summoned and questioned her carefully about what had happened, who she recognized among those present, and the appearance and features of the shop clerk who'd spoken. He then summoned and questioned others on her list of attendees, learning about the situation from multiple angles while expanding his list of people who'd been present. Through continuous questioning, he quickly established that the speaker was a clerk at a bow-materials shop in Jeju City named Choi Chang-min.
 
 Liu Fuqing immediately summoned Jeju's Revenue Clerk to inquire about the shop's owner.
 

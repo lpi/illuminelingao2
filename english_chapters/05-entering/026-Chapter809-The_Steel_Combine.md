@@ -8,11 +8,11 @@ The sea wind tousled Ji Wusheng's hair. His wicker safety helmet sat on the tabl
 
 Several soldiers carrying Minié rifles stood guard not far from the Elders. The young soldiers watched the Elders and the nearby steelworks construction site with expressions of wonder and reverence.
 
-"Red Brand Harbor's conditions are quite complex. It'll take some work to use it as a port." The one speaking and gesturing was Meng De. His face was pale. He wore a civilian M65 field jacket with Fubo Navy major's epaulettes on his shoulders, making him appear more bulky than the others. Since being honorably wounded while salvaging the five-masted ship, Meng De had been convalescing and had even missed the military training mobilization of Elders during the Second Counter-Encirclement Campaign. He had only recently returned to duty. Given his physical condition, Chen Haiyang had recommended the General Affairs Office assign him a desk job that didn't require frequent sea voyages. So Meng De became the navigation instructor for the Fangshaodi Naval Petty Officer Class and the Director of Bopu Port Affairs, replacing Li Di—who had been transferred to the Naval Command as Chief of Staff.
+"Red Brand Harbor's conditions are quite complex. It'll take some work to use it as a port." The one speaking and gesturing was Meng De. His face was pale. He wore a civilian M65 field jacket with Fubo Navy major's epaulettes on his shoulders, making him appear bulkier than the others. Since being honorably wounded while salvaging the five-masted ship, Meng De had been convalescing and had even missed the military training mobilization of Elders during the Second Counter-Encirclement Campaign. He had only recently returned to duty. Given his physical condition, Chen Haiyang had recommended the General Affairs Office assign him a desk job that didn't require frequent sea voyages. So Meng De became the navigation instructor for the Fangshaodi Naval Petty Officer Class and the Director of Bopu Port Affairs, replacing Li Di—who had been transferred to the Naval Command as Chief of Staff.
 
 Besides instructing naturalized sailors in operating motorized vessels, Meng De applied his expertise to port management and development.
 
-"...Red Brand Islet is a basalt sea-erosion platform with good water depth conditions offshore—mostly over 5 meters. But inside Red Brand Harbor, coastal drift and silting have reduced the depth to just 2-4 meters." Meng De pointed to various positions around Red Brand Harbor. "Without dredging, this port's utility will be very limited."
+"...Red Brand Islet is a basalt sea-erosion platform with good water depth conditions offshore—mostly over five meters. But inside Red Brand Harbor, coastal drift and silting have reduced the depth to just two to four meters." Meng De pointed to various positions around Red Brand Harbor. "Without dredging, this port's utility will be very limited."
 
 "We don't have a dredger... but we could assemble one temporarily." Someone's gaze fell on an excavator at work. "Put an excavator on a floating barge and secure it—that should work."
 
@@ -34,7 +34,7 @@ Meng De nodded and glanced at Ji Wusheng. Ji Wusheng said, "If you think it'll w
 
 "At present, vessels under a thousand tons should be able to enter Red Brand Harbor. Let's first survey the channel, mark suitable routes and anchorages. Then we'll build the ore-loading dock—or at least get a temporary unloading pier operational."
 
-With a dock in place, the many large, heavy, oversized, and overlong pieces of equipment to be installed could be shipped directly ashore, rather than hauled by oxen on 48-wheeled heavy flatbed carts as they were now.
+With a dock in place, the many large, heavy, oversized, and overlong pieces of equipment to be installed could be shipped directly ashore, rather than hauled by oxen on forty-eight-wheeled heavy flatbed carts as they were now.
 
 A proposal had also been floated to lay railway tracks from Ma'ao to Bopu, but the calculations showed excessive consumption of wrought iron. After much deliberation, the Planning Commission couldn't find room for this extra expenditure—most of the steel reserve had already been committed to Ma'ao development, and stocks were running low. The conclusion: at most, factory-yard railways could be laid within the industrial zone.
 
@@ -62,6 +62,6 @@ He was no longer just "Steel Plant Director." In a recent personnel appointment,
 
 Ji Wusheng said, "Without those materials, we wouldn't even know where to begin. At least the first blast furnace is nearly complete now—once we can start smelting iron and steel, we'll be halfway there."
 
-Note: The following 29 sections are technical chapters. Those not interested may skip them.
+*Note: The following 29 sections are technical chapters. Those not interested may skip them.*
 
 (End of Chapter)

@@ -10,15 +10,15 @@ Standing in the crowd, Gao Xuan watched as more and more people gathered. At fir
 
 "Hey, don't you call yourselves gentlemen, saying 'I have sinned' all day long? Well, come out and receive your punishment now!"
 
-...
+The cursing grew more vicious and the noise louder. Huang Zhen listened from the sidelines, feeling somewhat at a loss. The situation was clear enough: this mob of previously unknown scholars and commoners had come specifically to denounce and attack the Western Cross Religion. For the first few days, seeing so many people arrive had excited him. But recently he'd begun to feel uneasy: the dispute between the two religions was hardly even a ripple in this city of Hangzhou—why were more and more people coming? Many weren't even Buddhist disciples; some weren't even scholars. Looking at some of the most agitated provocateurs, they were obviously city "troublemakers." Senior Brother Zhang was a proper Chan Buddhist disciple who'd received the precepts—he shouldn't have recruited such people for support and show of force.
 
-The cursing grew more vicious and the noise louder. Huang Zhen listened from the sidelines, feeling somewhat at a loss. The situation was clear enough: this mob of previously unknown scholars and commoners had come specifically to denounce and attack the Western Cross Religion. For the first few days, seeing so many people arrive had excited him. But recently he'd begun to feel strange: the dispute between the two religions was hardly even a ripple in this city of Hangzhou—why were more and more people coming? Many weren't even Buddhist disciples; some weren't even scholars. Looking at some of the most agitated provocateurs, they were obviously city "troublemakers." Senior Brother Zhang was a proper Chan Buddhist disciple who'd received the precepts—he shouldn't have recruited such people for support and show of force.
+*Hmm, they clearly have bad intentions. I wonder who they are? How did they find their way here? Could someone be pulling strings behind the scenes?* This thought made Huang Zhen suddenly alert. If someone was exploiting the clash between the two religions to fish in troubled waters, the Chan school's reputation could also be badly damaged.
 
-"Hmm, they clearly have bad intentions. I wonder who they are? How did they find their way here? Could someone be pulling strings behind the scenes?" This thought made Huang Zhen suddenly alert. If someone was exploiting the clash between the two religions to fish in troubled waters, the Chan school's reputation could also be badly damaged.
+He was about to go find Zhang Tian when—since the Church kept its doors firmly shut and refused to show itself—the mob grew increasingly impatient. They continued their loud abuse, and one or two actually walked forward and began pounding on the door with their fists—*dong dong dong dong*. Someone in the crowd even called out slogans to rush in and smash everything.
 
-He was about to go find Zhang Tian when, since the Church kept its doors firmly shut and refused to show itself, the mob grew increasingly impatient. They continued their loud abuse, and one or two actually walked forward and began pounding on the door with their fists—*dong dong dong dong*. Someone in the crowd even called out slogans to rush in and smash everything.
+At this point, a small side door by the courtyard opened. Apparently seeing that the mob was getting out of hand, an elderly man with a crucifix on his chest hurried out, hands pressed together, and said: "Gentlemen, gentlemen, please don't resort to violence. This is holy ground of the Church, a place of peaceful cultivation. If you have something to say, please—a few of you may enter and talk. I beg you all to show consideration."
 
-At this point, a small side door by the courtyard opened. Apparently seeing that the mob was getting more out of hand, an elderly man with a crucifix on his chest hurried out, hands pressed together, and said: "Gentlemen, gentlemen, please don't resort to violence. This is holy ground of the Church, a place of peaceful cultivation. If you have something to say, please—a few of you may enter and talk. I beg you all to show consideration." His manner was extremely respectful and his tone very mild. But instead of calming down, the mob burst into furious denunciations:
+His manner was extremely respectful and his tone very mild. But instead of calming down, the mob burst into furious denunciations:
 
 "Sorcerer! Don't you know we've come today to hunt demons?"
 
@@ -26,17 +26,17 @@ At this point, a small side door by the courtyard opened. Apparently seeing that
 
 "You're old, so I'll let you off—get out of here quickly! Don't provoke us, or your old bones won't survive!"
 
-...
-
 All manner of scolding, threats, and abuse rained down on the old man, leaving him dumbstruck and ashen-faced. Unable to withstand the onslaught, he could only keep making the sign of the cross as he retreated, crestfallen.
 
-Witnessing this scene, Gao Xuan, who had followed along with the crowd, felt a surge of anger. Because no matter what, the other side had been very polite in their speech. Besides, he hadn't heard of the Cross Religion doing anything terrible in Hangzhou. As he was thinking this, the troublemakers grew even more carried away. They shouted loudly, stamped their feet, and pounded even more violently on the church door. Suddenly someone yelled: "If they won't open up, we'll break it down! Break it down!"
+Witnessing this scene, Gao Xuan, who had followed along with the crowd, felt a surge of anger. No matter what, the other side had been very polite in their speech. Besides, he hadn't heard of the Cross Religion doing anything terrible in Hangzhou. As he was thinking this, the troublemakers grew even more carried away. They shouted loudly, stamped their feet, and pounded even more violently on the church door. Suddenly someone yelled: "If they won't open up, we'll break it down! Break it down!"
 
 "Right, break it! Break it down!" More voices joined in. Then they began to press and surge forward in a mob toward the door.
 
 Zhang and Huang, however, both sensed that things were going wrong. Although they called the Catholic Church "heretical," the Church had the backing of many powerful figures at court, and locally, quite a few gentry believed in it. Apart from doctrine they considered "contrary to proper ethics," the Church hadn't done anything actually evil. With the government taking no action to ban the Church, storming it would surely provoke a fierce backlash from the believing gentry. Moreover, they considered themselves scholars who emphasized "debating reason"—to resort to violence before the argument was even settled would be an ungracious victory.
 
 Seeing people about to turn violent, it was actually they who called loudly for the crowd to calm down. But the situation was already beyond the control of these few. Zhuang Haoren and his ilk had taken silver to cause trouble—they weren't about to heed a few scholars and monks. One by one, they rolled up their sleeves, ready for a brawl.
+
+---
 
 Inside the church at Tianshui Bridge, Jesuits led by Giulio Aleni and Francesco Furtado, along with devout believers, were at that moment discussing countermeasures. After the two pillars of the Hangzhou Church had died one after the other, the Church's influence with the local government had declined significantly. Yesterday they had sent someone with calling cards to the county offices of Qiantang and Renhe, requesting that yamen runners be dispatched to maintain order. But so far, not a single runner had appeared. Instead, lots of unrelated idlers had shown up. Clearly, someone was seizing the opportunity to harm the Church.
 
@@ -86,4 +86,6 @@ The so-called Black Dragon Society men were members of the kinds of gangs common
 
 Shortly after the Foreign Intelligence Bureau's Black Dragon Society operatives arrived in Hangzhou, they had used the name "Black Dragon Society" to set up a similar peripheral organization. They'd recruited this kind of muscle to serve as legwork for the Hangzhou Station, handling such unseemly tasks as acting as enforcers and spreading rumors.
 
-Taking refuge at Wanbi Bookshop was one option—at least it would temporarily ensure personal safety. But this was the Church's largest property in Hangzhou; if it were destroyed, the losses would be incalculable. Everyone hesitated, unable to decide whether to stay or go. Finally Aleni spoke: "You go take shelter for now. I will stay here." He made the sign of the cross and began murmuring a prayer in Latin.
+Taking refuge at Wanbi Bookshop was one option—at least it would temporarily ensure personal safety. But this was the Church's largest property in Hangzhou; if it were destroyed, the losses would be incalculable. Everyone hesitated, unable to decide whether to stay or go.
+
+Finally Aleni spoke: "You go take shelter for now. I will stay here." He made the sign of the cross and began murmuring a prayer in Latin.

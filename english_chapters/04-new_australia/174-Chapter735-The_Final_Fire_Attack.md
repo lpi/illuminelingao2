@@ -1,135 +1,231 @@
 # Chapter 735 - The Final Fire Attack
 
-To intensify the fire, the ships were piled with barrels of sulfur and gunpowder, along with so-called toxic smoke-producing herbs. Xu Tingfa estimated that with so many fire ships and rafts attacking simultaneously, the bandits couldn't withstand it even with powerful cannons. Burning just one-third of the bandit ships would disrupt their defense. Xu Tingfa gathered the remaining naval war-junks and forty-some commandeered rice and salt boats serving as auxiliary warships, preparing to charge into the enemy formation amidst the chaos of a successful fire attack, letting water-braves board and slaughter. Li Fengjie offered unprecedented rewards: one tael for killing a Fake Bandit, fifty taels for a True Bandit. Fifty taels for burning a small bandit ship, one hundred for a large one; two hundred taels for capturing a bandit ship.
+To intensify the flames, the ships were piled with barrels of sulfur and gunpowder, along with so-called toxic smoke-producing herbs. Xu Tingfa estimated that with so many fire ships and rafts attacking simultaneously, the bandits couldn't possibly withstand them, even with their powerful cannons. Burning just one-third of the enemy fleet would disrupt their entire defense.
 
-While the Fubo Army was delayed at Ershawei clearing remnants on Henan Island, Xu Tingfa ordered Chen Qian to lead the fire ship squadron slowly down the Provincial River, with himself leading the main fleet in the rear.
+He gathered the remaining naval war-junks and forty-odd commandeered rice and salt boats serving as auxiliary warships, preparing to charge into the enemy formation amid the chaos of a successful fire attack and let the water-braves board and slaughter.
 
-"You brat deserted twice; this is your chance to earn merit and atonement!" Before departure, Xu Tingfa told Chen Qian fiercely. "The Governor has authorized me to act as I see fit—you watch yourself!"
+Li Fengjie offered unprecedented rewards: one tael for killing a Fake Bandit, fifty taels for a True Bandit. Fifty taels for burning a small bandit ship, one hundred for a large one; two hundred taels for capturing a bandit vessel intact.
 
-Chen Qian cursed inwardly at Xu Tingfa—who ran faster than a rabbit himself but now used him as cannon fodder vanguard. But he dared not disobey; everyone knew Governor Li was red-eyed with desperation. Another defeat meant heads would genuinely roll.
+While the Fubo Army was delayed at Ershawei clearing bandit remnants on Henan Island, Xu Tingfa ordered Chen Qian to lead the fire ship squadron slowly down the Provincial River. He himself would follow with the main fleet in the rear.
 
-"This general will surely lead bravely!" Chen Qian said insincerely.
+"You brat deserted twice—this is your chance to earn merit and atonement!" Before departure, Xu Tingfa addressed Chen Qian fiercely. "The Governor has authorized me to act at my discretion. Watch yourself!"
 
-"Save official talk for later," Xu Tingfa grunted viciously. "If the bandits enter Bai'etan and fire three or four shots at the Provincial Capital, both our heads will move! Of course, yours goes first!"
+Chen Qian cursed silently. Xu Tingfa had run faster than a rabbit himself, yet now he was using *him* as cannon fodder in the vanguard. But he dared not disobey. Everyone knew Governor Li was red-eyed with desperation. Another defeat meant heads would genuinely roll.
 
-"This general knows." Chen Qian bowed respectfully with clasped hands. Sweat poured down. Officers were masters of buck-passing, but now he couldn't pass this buck. His defense sector was Humen; having fled all the way to Guangzhou, if the Governor wanted a scapegoat for execution, he was the perfect candidate.
+"This general will lead bravely!" Chen Qian replied with hollow conviction.
 
-But as for leading bravely—he truly lacked the guts. Chen Qian saw clearly: attempting face-to-face combat with the bandits on the water was suicide.
+"Save the official talk for later." Xu Tingfa grunted viciously. "If the bandits enter Bai'etan and fire three or four shots at the Provincial Capital, both our heads will move! Yours first, of course."
 
-But with Li Fengjie and others pressing down, he had to go even to his death. Helpless, Chen Qian chose two fast, maneuverable "Long Dragons" as his command ships and handpicked dozens of water-skilled personal guards good at boat handling. He planned to dodge aside as soon as the fire ships went in, then decide based on the situation.
+"This general understands." Chen Qian bowed respectfully, sweat pouring down his face.
+
+Officers were masters of buck-passing, but this time there was no passing the buck. His defense sector had been Humen; having fled all the way to Guangzhou, if the Governor needed a scapegoat for execution, he was the perfect candidate.
+
+But as for "leading bravely"—he truly lacked the courage. Chen Qian understood clearly: attempting face-to-face naval combat with these bandits was suicide.
+
+Yet with Li Fengjie and others pressing down, he had to go even if it meant his death. Resigned, Chen Qian chose two fast, maneuverable "Long Dragons" as his command ships and handpicked several dozen water-skilled personal guards who excelled at boat handling.
+
+His plan was simple: dodge aside the moment the fire ships went in, then assess the situation.
+
+---
 
 Night fell.
 
-The Task Force anchored at Ershawei lowered its flags and entered night rest mode. Sentries lit bonfires on the abandoned Ershawei forts. They watched the river vigilantly—officers on land had sent out long-range patrols, specially trained to spot human silhouettes in pitch darkness. Any attempt to attack the fleet from land was impossible.
+The Task Force, anchored at Ershawei, lowered its flags and entered night rest mode. Sentries lit bonfires on the abandoned fortifications while watching the river with vigilant eyes.
 
-Danger came from the water. Despite thorough arrangements—large ships in the core, small boats on the perimeter as fixed sentries, plus patrol boats for constant night patrol—in such narrow waters unfavorable for maneuvering, room for error was small in a sneak attack.
+Officers on land had dispatched long-range patrols—men specially trained to spot human silhouettes in pitch darkness. Any attempt to attack the fleet from land was virtually impossible.
 
-Night commander Le Lin sat in a chair on the fort, wrapped in a thick military wool cloak—made from fabric bought from the Portuguese, warm and waterproof, one of the preparations for the future continental campaign. Armies and sailors couldn't operate in tropical/subtropical zones forever.
+The danger would come from the water.
 
-Le Lin wrapped the cloak tight. As a Hong Konger, he'd never felt Guangdong nights this cold in the old timeline—even Christmas in Lan Kwai Fong required at most a jacket. Yet here, even wearing his British Navy-style sweater, he felt the chill biting. Damp cold penetrated everywhere.
+Despite thorough arrangements—large ships anchored in the core, small boats on the perimeter as fixed sentries, plus patrol boats conducting constant night sweeps—in such narrow waters unfavorable for maneuvering, there was little room for error if a sneak attack came.
 
-"Why is this Little Ice Age so cold—" he muttered, occasionally lifting his Russian-made infrared binoculars to scan the surroundings to pass boring time.
+Le Lin, the night commander, sat in a chair on the fort, wrapped in a thick military wool cloak. The fabric had been purchased from the Portuguese—warm and waterproof—as part of preparations for the future continental campaign. Armies and sailors couldn't operate exclusively in tropical and subtropical zones forever.
 
-Sun Tianbiao cursed secretly. Since fleeing the Lingao Wei post by night to report the emergency at Haikou Battalion, he'd been kicked around like a ball—Haikou, Zhaoqing, Guangzhou, Haikou—involved in everything related to "Bandits." In the rout at Chengmai, he jumped into the water to escape, finding a fishing boat to cross back to the mainland. After a hard journey to Zhaoqing, he was almost taken for a beggar. Governor-General Wang asked a few questions with a bad expression, then nothing followed. Sun Tianbiao had scraped by in the Governor-General’s guard for a few days before being kicked to Guangzhou "for assignment."
+Le Lin pulled the cloak tighter around himself. As a Hong Konger, he'd never felt Guangdong nights this cold in the old timeline—even Christmas in Lan Kwai Fong required at most a jacket. Yet here, even wearing his British Navy-style sweater beneath the cloak, the chill bit through. The damp cold penetrated everywhere.
 
-Finally, he managed to fill a vacancy in the Humen Navy—commanding no troops, just drawing a salary. And he had to drill and patrol occasionally. How could this compare to his comfortable life as a landlord master at the Wei post?
+"Why is this Little Ice Age so bloody cold—" he muttered, occasionally lifting his Russian-made infrared binoculars to scan the surroundings and pass the boring time.
 
-Not only that, this time he was assigned the lead in the fire ship attack—supposedly because he was familiar with bandit affairs. Forced, Sun Tianbiao boarded the first wave of ten ships, hiding in the hold, calculating when to jump and flee. In his heart, he cursed Chen Qian’s eighteen generations of ancestors.
+---
 
-Seeing the shadowy silhouettes of the bandit fleet appearing in distance. Sun Tianbiao’s heart jumped to his throat. Others might not know, but he was well aware of the "legends" about the bandits. Besides powerful firearms, there were legends of "Thousand-League Eyes" that could see at night. Sun Tianbiao intended to report this to Commander Chen Qian, but the man wouldn't even see him, just told him to "advance bravely."
+Sun Tianbiao cursed his fate silently.
 
-"Bravely to death?" Sun Tianbiao muttered, then cursed, "Row slower! Too much water noise!"
+Ever since he'd fled the Lingao Wei garrison post by night to report the emergency at Haikou Battalion, he'd been kicked around like a ball—Haikou, Zhaoqing, Guangzhou, Haikou again—involved in everything related to "Bandits."
 
-The ships needed almost no power, drifting slowly downstream with the current. Sun Tianbiao relaxed slightly—this way, everyone could jump ship far away, no need to row until ramming distance. Before his thought finished, the river surface lit up brilliantly. For a moment he couldn't open his eyes—amidst his surprise, a powerful beam of light projected from the bandit fleet, illuminating the entire fire ship squadron.
+During the rout at Chengmai, he'd jumped into the water to escape, eventually finding a fishing boat to ferry him back to the mainland. After a grueling journey to Zhaoqing, the Governor-General had received him with an unpleasant expression, asked a few perfunctory questions, and then... nothing. Sun Tianbiao had scraped by for several days in the Governor-General's guard before being kicked over to Guangzhou "for assignment."
 
-What projected was just a medium-power stage spotlight, but enough to light up the attacking fire ship squadron clearly on the water.
+He'd finally managed to fill a vacancy in the Humen Navy—commanding no troops, just drawing a salary. And he still had to drill and patrol occasionally. How could this compare to his comfortable life as a landlord master at the garrison post?
+
+Now, to make matters worse, he'd been assigned to lead the fire ship attack—supposedly because he was "familiar with bandit affairs."
+
+Forced into service, Sun Tianbiao boarded the first wave of ten ships and hid in the hold, calculating when to jump and flee. In his heart, he cursed Chen Qian's eighteen generations of ancestors.
+
+He watched the shadowy silhouettes of the Australian fleet appear in the distance, and his heart jumped to his throat.
+
+Others might not know, but Sun Tianbiao was well aware of the "legends" surrounding the bandits. Beyond their powerful firearms, there were stories of "Thousand-League Eyes" that could see in the dark. He had tried to report this intelligence to Commander Chen Qian, but the man had refused to see him, merely sending word to "advance bravely."
+
+"Bravely to my death?" Sun Tianbiao muttered bitterly. Then, louder: "Row slower! Too much water noise!"
+
+The ships needed almost no propulsion, drifting slowly downstream with the current. Sun Tianbiao relaxed slightly—at this rate, everyone could abandon ship well before reaching ramming distance, with no need to row until the very end.
+
+Before his thought was complete, the river surface erupted in brilliant light.
+
+For a moment he couldn't open his eyes. A powerful beam projected from the Australian fleet, illuminating the entire fire ship squadron as if it were noon.
+
+What cast such light was merely a medium-power stage spotlight—but it was more than sufficient to expose the attacking fire ships on the dark water.
+
+---
 
 "Ignite!"
 
 "Open fire!"
 
-Orders came almost simultaneously from the fort and fire ships.
+The orders came almost simultaneously from the fort and the fire ships.
 
-Bandit cannons roared instantly, interspersed with continuous sharp screeches like tearing cloth. Shells and lead bullets flew in succession, landing among the fleet. Several fire rafts were sunk by waves before they could ignite. A fire ship suddenly shuddered violently, wood chips flying as if whipped by an invisible lash. The sailors on board twitched, jumped, and fell into the water.
+Australian cannons roared instantly, interspersed with the continuous sharp screech of tearing cloth—the Typewriters. Shells and lead bullets flew in rapid succession, landing among the squadron.
 
-A shell screamed in, directly hitting a fire ship. The fuel-laden vessel instantly turned into a sea of fire. Sun Tianbiao even thought he heard sailors screaming.
+Several fire rafts were immediately swamped by the waves and sank before they could even be lit. A fire ship shuddered violently as something invisible lashed its deck—wood chips flying, sailors twitching, jumping, tumbling into the water.
 
-Sun Tianbiao quickly grabbed a tinder pot and smashed it into the fore-hold already sprinkled with gunpowder. Flames whooshed up. Without a word, he rolled over the side into the water. Others on the ship jumped too.
+A shell screamed in and struck a fire ship directly. The fuel-laden vessel transformed instantly into a sea of flame. Sun Tianbiao thought he could hear sailors screaming.
 
-Ignition was the order. Ship after ship lit up. The first wave of over a dozen fire ships drifted downstream toward the Task Force at Ershawei.
+Without hesitation, he grabbed a tinder pot and smashed it into the fore-hold, which had already been sprinkled with gunpowder. Flames whooshed upward. Without a word, he rolled over the side into the water. Others aboard the ship did the same.
 
-"Steady, brothers!" Chen Qian in the rear hadn't expected the bandits to have such a trick, producing such immense light out of thin air in the dark night. Now sneak attack was impossible. To escape safely, the only way was to light all ships and rafts immediately and let them drift down in a swarm, hoping to catch the bandits off guard and hit a few ships by blind luck.
+---
 
-However, this distance was indeed too far! Chen Qian thought—drifting like this, the bandits would run long before impact. In normal times, everyone would just light up and run. But this time no shirking was allowed. Chen Qian commanded remaining ships to row faster and charge, forbidding ignition before reaching enemy ships.
+Ignition was the order. Ship after ship burst into flame.
 
-"Anyone igniting unauthorized or abandoning ship will be beheaded!" He shouted, waving his saber on his command ship. "Charge! The bandits have few guns! Those hit are unlucky; those missed will have riches!"
+The first wave of more than a dozen fire ships drifted downstream toward the Task Force at Ershawei.
 
-The fire ship pilots were desperadoes. Shouted at, with eyes only for silver, seeing shells falling among Sun Tianbiao’s vanguard, they buried their heads and rowed desperately toward the fleet.
+"Steady, brothers!" Chen Qian in the rear hadn't expected the bandits to possess such a trick—producing immense light out of thin air in the dark of night. A sneak attack was now impossible.
 
-Three minutes after Le Lin ordered fire, the fleet's main commanders rushed to the deck. Chen Haiyang raised binoculars; burning ships were everywhere on the distant river. Enemy fire attack! Special Service Boats on the outer perimeter were firing furiously with cannons and Typewriters. Searchlights swept back and forth across the river. Chen Haiyang estimated the distance and felt slightly relieved—the nearest firelight was still about 2 kilometers from the fleet perimeter. According to known Ming army and pirate tactics, once lit, ships were unmanned, relying on current and wind—given current river speed, it would take at least 30 minutes to drift to the anchorage.
+To escape safely, the only path was to light all remaining ships and rafts immediately and let them drift down in a swarm, hoping to catch the enemy off guard and hit a few vessels by sheer luck.
 
-At this speed, many fire ships would likely burn and sink before reaching the anchorage. Not to mention cannons and Typewriters were constantly shooting at them.
+But this distance was far too great! Chen Qian thought desperately. Drifting like this, the bandits would flee long before the fire ships reached them.
 
-"Tell Le Lin to proceed with the anti-fire–ship contingency plan," Chen Haiyang ordered. "Strengthen observation! The enemy may have unlit ships moving in the dark!"
+Under normal circumstances, everyone would simply light their ships and run. But this time, no shirking was permitted. Chen Qian commanded the remaining vessels to row faster and charge, forbidding ignition until they reached point-blank range.
 
-Ships raised anchor chains. Sailors manned stations. Especially Typewriter gunners—they quickly removed oilcloth covers, loaded drum magazines, and rotated gun mounts, watching the dark water.
+"Anyone igniting without authorization or abandoning ship will be beheaded!" He waved his saber on his command vessel, shouting: "Charge! The bandits have few guns! Those hit are unlucky; those who get through will have riches!"
 
-Sun Tianbiao’s vanguard was blasted to pieces by cannons and Typewriters, turning into burning wreckage drifting, swirling, and sinking. The following fire ships passed through the wreckage, continuing their "special attack" with a rare bravery.
+The fire ship pilots were desperadoes. Goaded forward, with eyes only for silver, they saw shells falling among Sun Tianbiao's vanguard and buried their heads, rowing desperately toward the fleet.
 
-Several small steam launches, kept under steam, rushed from the anchorage, moving forward hundreds of meters to sweep the following fire ships with Typewriters. Dense bullets swept the decks, tearing sailors apart. Lead fire ships lost control and slowed; some turned sideways and collided with ships behind them.
+---
 
-Chen Qian saw the vanguard intercepted again by Australians and knew breaking the blockade was hopeless. Hateful, he ordered ignition. Over thirty fire ships and nearly a hundred fire rafts ignited together. For a moment, flames soared on the water, a spectacular sight.
+Three minutes after Le Lin ordered fire, the fleet's main commanders rushed to the deck.
 
-These fire ships and rafts drifted slowly downstream. Being slow and unmanned, several collided and sank en route; others clustered and burned out prematurely on the water. The remainder, approaching within 500 meters, were hooked one by one to the riverbank by Marines on sampans with long iron hooks, left to burn out.
+Chen Haiyang raised his binoculars. Burning ships were everywhere on the distant river. Enemy fire attack! The Special Service Boats on the outer perimeter were firing furiously with cannons and Typewriters. Searchlights swept back and forth across the water.
 
-Xu Tingfa saw the river filled with firelight and thought they succeeded. He immediately led 40 war-junks downstream, planning to attack with the momentum. Unexpectedly, before getting close, they were hit by fierce fire from Special Service Boats. The lead three war-junks immediately caught fire. Xu Tingfa steeled himself and ordered a fierce attack, placing dozens of fifty-tael silver ingots on the deck, waving his sword and shouting: "Advancers, rewarded! Retreaters, beheaded!"
+Chen Haiyang estimated the distance and felt slightly relieved. The nearest flames were still roughly two kilometers from the fleet perimeter. According to known Ming army and pirate tactics, once ignited, the fire ships were unmanned, relying on current and wind alone.
 
-While shouting to charge "to repay Court favor," someone brought the dripping wet Sun Tianbiao before him.
+Given the river's current speed, they would need at least thirty minutes to drift to the anchorage.
 
-"General—the bandits' firepower ahead is fierce; ships cannot pass..."
+At that pace, many fire ships would likely burn through and sink before they ever arrived. And the cannons and Typewriters were continuously shooting at them.
 
-Sun Tianbiao hadn't finished when Xu Tingfa immediately shouted: "Drag him down, behead him!"
+"Tell Le Lin to proceed with the anti-fire-ship contingency plan," Chen Haiyang ordered. "Strengthen observation! The enemy may have unlit ships moving in the dark."
 
-Guards immediately dragged the stunned Sun Tianbiao to the prow and chopped off his head with one stroke. They presented the bloody head.
+Ships raised anchor chains. Sailors manned their stations. The Typewriter gunners moved especially quickly—removing oilcloth covers, loading drum magazines, rotating gun mounts—their eyes trained on the dark water.
 
-"Hang it on the mast!" Xu Tingfa shouted. "Anyone daring to flee faces this end!"
+---
 
-The troops trembled. Shouting war cries, they fired firearms toward Ershawei indiscriminately—Two Dragons Out of Water, One-Nest-of-Bees, Fire Doves. Regardless of range, they fired everything—spectacular indeed. Missing the bandits, they accidentally injured many sailors who had jumped from fire ships.
+Sun Tianbiao's vanguard was blasted to pieces by cannons and Typewriters, transforming into burning wreckage that drifted, swirled, and sank.
 
-"You bastard... look before you shoot..." A water-brave, hit by a rocket for no reason, cursed and sank.
+The following fire ships passed through the debris, continuing their attack with rare determination.
 
-"Attention! Enemy range 430 meters. Solid shot, one round load!" Gunners on Special Service Boats shouted while observing.
+Several small steam launches, kept under pressure for just this contingency, rushed from the anchorage. They advanced several hundred meters and raked the oncoming fire ships with Typewriters. Dense bullets swept the decks, tearing sailors apart.
 
-Xu Tingfa’s final general offensive lasted until midnight. The river was filled with firelight, gunfire, screams, curses, and cries for help. As the night deepened, more ships caught fire. Finally, the Ming army's last counterattack was declared bankrupt. Xu Tingfa narrowly escaped, swimming ashore with guards to flee. Chen Qian fled into the West River with his command ship. of the 40 participating war-junks, except 4 that fled during battle, all were lost. At dawn, the exhausted Le Lin and others saw only floating corpses and broken ship wreckage emitting wisps of smoke filling the river.
+The lead fire ships lost control and slowed. Some turned sideways and collided with vessels behind them.
 
-The Army Task Force lost 5 sampans and 1 Long Dragon in this night battle. One steam launch was hit in the boiler by a cannonball, causing an explosion that killed 2 sailors and heavily damaged the launch—the Navy's most serious loss. Several other ships were hit but remained combat-capable. Total casualties were 3 dead, 14 wounded. Ming losses were unaccountable; few prisoners were taken in the dark, and many swam away. But local villagers fished five or six hundred corpses from the water after the battle.
+Chen Qian watched his vanguard intercepted again and knew breaking the blockade was hopeless. Furious and hateful, he ordered immediate ignition.
 
-On November 3, 1630 (Western Calendar), as the thin mist over Bai'etan just dispersed, the Australian-Song Fubo Army Pearl River Task Force sailed into Bai'etan.
+More than thirty fire ships and nearly a hundred fire rafts burst into flame simultaneously. For a moment, fires soared across the water—a spectacular, terrible sight.
 
-Iron chains rattled as anchors were dropped into Bai'etan's green waves. Black cannon muzzles pointed straight at Guangzhou City.
+These ships and rafts drifted slowly downstream. Being unmanned and slow, several collided en route and sank; others clustered together and burned out prematurely on the water.
 
-Guangzhou's city gates were tightly shut—news of Xu Tingfa's failed counterattack had long been brought back by fleeing soldiers. The gates, usually open early, were exceptionably unopened.
+The remainder, approaching within five hundred meters, were hooked one by one to the riverbank by Marines in sampans wielding long iron poles. There they burned harmlessly to ash.
 
-Guangzhou Prefect Yu Baocun watched from the city wall. Seeing the fleet arrive, he quickly descended and entered his sedan chair.
+---
 
-"Quick! To the Governor's Yamen!"
+Xu Tingfa saw the river filled with firelight and concluded the attack had succeeded.
 
-Li Fengjie was completely out of plans. Xu Tingfa's counterattack failed; he didn't even know where the man was. Forts along the way were useless. Of five thousand hired water-braves, between death and desertion, less than two thousand remained. And the *Folangji* (Portuguese) people he pinned high hopes on showed no intention of sending warships to cut the bandits' rear. According to Li Luoyou's letter, the *Folangji* seemed to definitely know about Gao Shunqin demanding to close the border and expel them—let alone "borrowing troops to help," not taking the opportunity to loot was already due to Li Luoyou's great effort.
+He immediately led his forty war-junks downstream, planning to attack with the momentum. To his dismay, before he could even close the distance, fierce fire from Special Service Boats struck his formation. The three leading war-junks immediately caught fire.
 
-Though the letter didn't say explicitly, the implication was obvious: make peace with the bandits quickly to avoid greater blows.
+Xu Tingfa steeled himself and ordered a fierce assault. He placed dozens of fifty-tael silver ingots on the deck, waving his sword and bellowing: "Advancers, rewarded! Retreaters, beheaded!"
 
-Peace, peace. Li Fengjie was half dejected, half angry. He had wanted to negotiate peace originally, but miscalculated, hoping to save some face before contacting the Australians. Now not only was face gone, but the lining was almost stripped too. Now the bandit fleet was anchored in Bai'etan, ready to shell Guangzhou anytime—putting him in a dilemma.
+While screaming about charging "to repay Court favor," someone dragged the dripping-wet Sun Tianbiao before him.
 
-Seeking peace would inevitably invite attacks from many, especially Gao Shunqin, who held extreme hostility toward all overseas people. Heaven knew how he would impeach to the Court.
+"General—the bandits' firepower ahead is fierce; ships cannot pass—"
 
-If they fought, there was absolutely no assurance of victory—even if the bandits didn't take Guangzhou, losing his post after this turmoil was a certainty. If the bandits breached the city, even his life wouldn't be guaranteed.
+Sun Tianbiao hadn't finished when Xu Tingfa shouted: "Drag him down and behead him!"
 
-Thinking of this, his brows knit tight. He sighed continuously.
+Guards immediately seized the stunned Sun Tianbiao and hauled him to the prow, where they lopped off his head with a single stroke. They presented the bloody trophy.
 
-He Chengzong whispered: "Your Excellency, the only way now is to quickly negotiate terms, getting the bandit navy to withdraw from Bai'etan. If days drag on, we cannot answer for it!"
+"Hang it on the mast!" Xu Tingfa roared. "Anyone daring to flee faces the same end!"
 
-"We already cannot answer for it now!" Li Fengjie grumbled.
+The troops trembled. Shouting war cries, they fired every weapon they had toward Ershawei—Two Dragons Out of Water, One-Nest-of-Bees, Fire Doves. Regardless of range, they shot everything. The barrage was certainly spectacular.
 
-"Your Excellency, right now we can still find a story to cope. If the bandits really start fighting outside Guangzhou city, there really won't be any story left!"
+Missing the bandits entirely, they accidentally struck many sailors who had jumped from the fire ships.
+
+"You bastard... look before you shoot..." A water-brave, hit by a rocket for no reason, cursed as he slipped beneath the surface.
+
+---
+
+"Attention! Enemy range four hundred thirty meters. Solid shot, one round load!" The gunners on the Special Service Boats called out calmly as they observed.
+
+Xu Tingfa's final general offensive lasted until midnight. The river filled with firelight, gunfire, screams, curses, and cries for help. As the night deepened, more ships caught fire.
+
+At last, the Ming army's final counterattack was declared a complete failure.
+
+Xu Tingfa narrowly escaped, swimming ashore with his guards and fleeing into the darkness. Chen Qian escaped into the West River with his command ship.
+
+Of the forty participating war-junks, only four managed to flee during the battle. All the rest were lost.
+
+---
+
+At dawn, the exhausted Le Lin and his men surveyed the aftermath. Floating corpses and broken ship wreckage filled the river, wisps of smoke still rising in the pale morning light.
+
+The Fubo Army had lost five sampans and one Long Dragon in this night engagement. One steam launch had taken a cannonball to the boiler, causing an explosion that killed two sailors and rendered the vessel inoperable—the Navy's most serious loss of the campaign.
+
+Several other ships had been hit but remained combat-capable. Total casualties: three dead, fourteen wounded.
+
+Ming losses were incalculable. Few prisoners were taken in the darkness, and many had escaped by swimming. But in the days that followed, local villagers fished five or six hundred corpses from the water.
+
+---
+
+On November 3, 1630—by the Western calendar—as the thin mist over Bai'etan dispersed with the rising sun, the Australian-Song Fubo Army Pearl River Task Force sailed into its waters.
+
+Iron chains rattled as anchors dropped into Bai'etan's green waves. Black cannon muzzles pointed straight at Guangzhou City.
+
+Guangzhou's city gates remained tightly shut. News of Xu Tingfa's failed counterattack had been brought back by fleeing soldiers during the night. The gates, usually open at dawn, stayed sealed.
+
+Guangzhou Prefect Yu Baocun watched from the city wall. Seeing the fleet arrive, he quickly descended and climbed into his sedan chair.
+
+"Quickly! To the Governor's Yamen!"
+
+---
+
+Li Fengjie was completely out of plans.
+
+Xu Tingfa's counterattack had failed; he didn't even know where the man was. The forts along the way had proven useless. Of five thousand hired water-braves, between death and desertion, fewer than two thousand remained.
+
+And the *Folangji*—the Portuguese he had pinned such high hopes on—showed no intention of sending warships to cut the bandits' rear.
+
+According to Li Luoyou's letter, the Portuguese seemed to know definitively about Inspector Gao Shunqin's petition to close the border and expel them. Far from "borrowing troops to help," they had decided not to take the opportunity to loot only through Li Luoyou's considerable diplomatic efforts.
+
+Though the letter didn't say so explicitly, its implication was unmistakable: *Make peace with the bandits quickly to avoid greater catastrophe.*
+
+Peace, peace. Li Fengjie felt half dejected, half furious.
+
+He had wanted to negotiate peace from the beginning. But he had miscalculated, hoping to inflict some damage—preserve some face—before contacting the Australians. Now, not only was face gone, but the substance was nearly stripped away too.
+
+The bandit fleet now anchored in Bai'etan, ready to shell Guangzhou at any moment, had put him in an impossible position.
+
+Seeking peace would inevitably invite attacks from many quarters, especially Inspector Gao Shunqin, who harbored extreme hostility toward all overseas peoples. Heaven knew how the man would impeach him to the Court.
+
+Yet if they fought, there was absolutely no assurance of victory. Even if the bandits didn't take Guangzhou, losing his post after this debacle was a certainty. If they actually breached the city, even his life might not be guaranteed.
+
+His brow furrowed tight. He sighed continuously.
+
+He Chengzong leaned in and whispered: "Your Excellency, the only course now is to negotiate terms quickly—get the bandit navy to withdraw from Bai'etan. If days drag on without resolution, we will be unable to answer for the consequences."
+
+"We cannot answer for them *now*!" Li Fengjie grumbled.
+
+"Your Excellency, at this moment we can still construct some story to cope. But if the bandits actually begin bombarding the city, there will be no story left to tell."
 
 *(End of Chapter)*

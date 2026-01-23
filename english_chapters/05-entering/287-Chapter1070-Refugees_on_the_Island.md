@@ -1,99 +1,99 @@
 # Chapter 1070 - Refugees on the Island
 
-Lu Yang believed he still remembered basic algebra and geometry. If he couldn't find a topic to talk about, he would just discuss math problems together—he believed his math level was enough to crush Sun Yuanhua.
+Lu Yang was confident he still remembered basic algebra and geometry. If he could not find a topic of conversation, he would simply discuss mathematics—he was certain his level was sufficient to thoroughly humble Sun Yuanhua.
 
 "This is..."
 
-"Student Lu Yang," Lu Yang said respectfully. "The student is a friend of Master Lu, specially here to guide Sir."
+"Student Lu Yang," Lu Yang said respectfully. "I am a friend of Master Lu, here specifically to guide Sir around the island."
 
-"Oh," Sun Yuanhua nodded. "Is this gentleman also from Guangdong?"
+"Ah." Sun Yuanhua nodded. "Is this gentleman also from Guangdong?"
 
-"The student is from Ningxia."
+"I am from Ningxia."
 
-Sun Yuanhua sized up this young man. He originally thought Lu Wenyuan was young enough, but he didn't expect this one to be even younger. He looked only about twenty years old no matter how you looked at him. With his delicate skin and tender flesh, if it weren't for his rather dark skin, he would really look like a wealthy young master.
+Sun Yuanhua studied the young man before him. He had thought Lu Wenyuan quite young, but he had not expected this one to be younger still—no more than about twenty years old, no matter how one looked at him. With his delicate skin and tender complexion, were it not for his rather dark skin, he would truly resemble a wealthy young master.
 
-The other person accompanying them was a Western priest, none other than Jean Nicholas (Jin Lige).
+The other person accompanying them was a Western priest—none other than Jean Nicholas.
 
-This missionary was very busy on Qimu Island—besides comforting the people with doctrine, his other task was to root out "heresy." There were many names for various folk religions in Shandong. The Civil Affairs Department and the Religious Affairs Office attached great importance to this: Ordinary believers were not surprising. The key was not to let organizers infiltrate. The countermeasure adopted was first to weed them out. The Political Security Bureau had quietly identified and developed the first batch of informants, specifically watching for anyone spreading such rhetoric in the camps. Secondly, they prepared a substitute faith for the refugees eager to find sustenance: Jean Nicholas was naturally one choice, and a group of New Taoism students sent by Daoist Dai from Lingao was another choice.
+This missionary was extremely busy on Qimu Island. Beyond comforting the people with doctrine, his other task was rooting out "heresy." Various folk religions flourished under many names in Shandong. The Civil Affairs Department and the Religious Affairs Office attached great importance to this matter: ordinary believers were unremarkable. The key was preventing organizers from infiltrating. The countermeasure adopted was twofold. First, they would identify and isolate such elements. The Political Security Bureau had quietly identified and developed an initial batch of informants, specifically watching for anyone spreading such rhetoric in the camps. Second, they prepared substitute faiths for refugees eager to find spiritual sustenance: Jean Nicholas was naturally one option, and a group of New Taoism students dispatched by Daoist Dai from Lingao was another.
 
-Whether it was Catholicism or New Taoism, their targets for propagation were limited—the task given to them by the Civil Affairs Committee was to compete for believers with various folk religions, especially to try to convert the grassroots organizers and small leaders of folk religions among the refugees.
+Whether Catholicism or New Taoism, their targets for propagation were limited—the mission assigned by the Civil Affairs Committee was to compete for believers against the various folk religions, especially to attempt converting the grassroots organizers and minor leaders of folk religions among the refugees.
 
-He Ying's instructions used the phrase "use all means." Thus, Jean Nicholas and the New Taoism students worked fanatically, launching a race to eradicate "heresy" day and night.
+He Ying's instructions had employed the phrase "use all means." Thus, Jean Nicholas and the New Taoism students worked fanatically, launching a day-and-night race to eradicate "heresy."
 
-Jean Nicholas had just cracked a "heretical" organization implicated by a small incense head a few days ago, so the incense head and activists had been isolated alone. As for the general believers: according to the principle of "whoever cracks the case benefits," the side that cracked it gained the right to preach to these believers.
+Just a few days prior, Jean Nicholas had cracked a "heretical" organization implicated through a small incense-head. The incense-head and key activists had been isolated separately. As for the general believers: according to the principle of "whoever cracks the case benefits," the side that exposed it gained the right to preach to these believers.
 
-Those who refused to change would not be wasted either—they would neither be expelled nor burned to death. After all, Lingao had spent a lot of costs on them. They were simply detained separately, and once enough were gathered, a ship would send them to the mines in Sanya.
+Those who refused to convert would not be wasted either—they would neither be expelled nor burned to death. After all, Lingao had expended considerable costs on them. They were simply detained separately, and once enough were gathered, a ship would transport them to the mines in Sanya.
 
-Jean Nicholas worked so fanatically that the Political Security Bureau special agent had to process his "reports" every day—to ensure this work did not turn into religious persecution mania, the Political Security Bureau sent a specially trained agent to be responsible for appraising such reports.
+Jean Nicholas worked with such fervor that the Political Security Bureau's special agent had to process his "reports" every day. To ensure this work did not devolve into religious persecution mania, the Political Security Bureau had assigned a specially trained agent to be responsible for evaluating such reports.
 
-Because of the constant "saving of souls," this priest's face was brimming with a happy smile. Although he only wore a thin wool robe, his whole body radiated vitality.
+Because of the constant "saving of souls," this priest's face was brimming with a contented smile. Though he wore only a thin wool robe, his entire being radiated vitality.
 
-Seeing Sun Yuanhua, he warmly expressed his welcome, then greatly praised Master Lu as a "true servant of the Lord" and a "fearless warrior defending the faith."
+Upon seeing Sun Yuanhua, he warmly expressed his welcome, then praised Master Lu extravagantly as a "true servant of the Lord" and a "fearless warrior defending the faith."
 
-Such high praise inevitably increased Sun Yuanhua's trust in Lu Wenyuan by a few degrees. Keeping Jean Nicholas in Shandong was originally intended for him to work on Sun Yuanhua.
+Such high praise inevitably increased Sun Yuanhua's trust in Lu Wenyuan by several degrees. Keeping Jean Nicholas in Shandong had always been intended precisely for him to work on Sun Yuanhua.
 
-Sun was a very devout believer and regarded Western missionaries as teachers and friends. Having such a person around was of great use in reducing his hostility and increasing his sense of trust.
+Sun Yuanhua was a deeply devout believer who regarded Western missionaries as teachers and friends. Having such a person present was invaluable for reducing his hostility and increasing his sense of trust.
 
-Jean Nicholas's appearance indeed greatly soothed Sun Yuanhua's originally somewhat anxious heart. Seeing his expression relax, Lu Yang led him up to the stockade.
+Jean Nicholas's appearance did indeed greatly soothe Sun Yuanhua's somewhat anxious heart. Observing his expression relax, Lu Yang led him up to the stockade walls.
 
-Sun Yuanhua gazed around: He recognized at a glance that this was a stockade built using the "Western Method." Although not very obvious, the protruding bastions protecting the stockade gate and the scattered towers of varying heights were all common in the pictures of Western fortification brought by the priests.
+Sun Yuanhua gazed around: he recognized at a glance that this was a stockade built using "Western methods." Though not immediately obvious, the protruding bastions protecting the stockade gate and the scattered towers of varying heights were all common features in the illustrations of Western fortifications brought by the priests.
 
-He himself had also built "Western-style platforms." When he was in Liaodong, he once attempted to promote this fortification technology locally, so he was quite familiar with these things.
+He himself had built "Western-style platforms." During his time in Liaodong, he had once attempted to promote this fortification technology locally, so he was quite familiar with such designs.
 
-Of course, Master Lu was also a believer and had deep associations with missionaries, so knowing these things was not surprising.
+Of course, Master Lu was also a believer with deep associations with missionaries, so knowing these things was hardly surprising.
 
-The problem was that the stockade he saw, although small in volume, was built with care and its conception was even more ingenious. It maximized the use of terrain, materials, and firepower. Sun Yuanhua had to admit that even if he were to design it himself, he couldn't achieve such a level.
+The problem was that the stockade he observed, though modest in scale, was built with exceptional care and ingenious conception. It maximized the use of terrain, materials, and firepower. Sun Yuanhua had to admit that even if he were to design it himself, he could not achieve such a level.
 
-For a local gentleman from Guangdong to be so proficient in the art of fortification was a bit too strange.
+For a local gentleman from Guangdong to be so proficient in the art of fortification was considerably strange.
 
-In the late Ming Dynasty, scholar-officials were quite enthusiastic about military studies; people wrote books and established theories on firearms, military science, and fortification. But most were hearsay, picking up bits and pieces from ancient military books or Western military science brought by Western missionaries, then adding their own "whimsical ideas" to fabricate nonsense. Sun Yuanhua was a "professional"; he could tell at a glance that the layout here was far from what an ordinary amateur scholar-official could produce.
+In the late Ming Dynasty, scholar-officials were quite enthusiastic about military studies; people wrote books and propounded theories on firearms, military science, and fortification. But most of it was hearsay, picking up fragments from ancient military texts or Western military science brought by missionaries, then adding their own "whimsical ideas" to fabricate nonsense. Sun Yuanhua was a "professional"—he could tell at a glance that the layout here far exceeded what any ordinary amateur scholar-official could produce.
 
-On the stockade wall, village braves wearing sheepskin vests and turned-up fur hats were patrolling. They looked even more spirited than the government soldiers: high morale, not afraid of the cold. Obviously, they were well-fed and warmly clad. What they held in their hands were not the whistle sticks or wooden spears commonly used by village braves, but well-manufactured long spears with heads like triangular pyramids, dark and shiny. Each person also had a straight sword with a wooden scabbard hanging at their waist.
+On the stockade walls, village braves wearing sheepskin vests and turned-up fur hats patrolled the ramparts. They appeared even more spirited than government soldiers: high morale, unfazed by the cold. Obviously, they were well-fed and warmly clad. What they held were not the whistle sticks or wooden spears commonly issued to village braves, but well-manufactured long spears with heads like triangular pyramids, dark and gleaming. Each man also wore a straight sword with a wooden scabbard at his waist.
 
-Although they had no armor, this appearance was already more decent than most government soldiers in Dengzhou—good enough to be elite combat soldiers. If they had a suit of armor, using them as selected vanguard family retainers would not be a problem.
+Though they lacked armor, this appearance was already more impressive than most government soldiers in Dengzhou—good enough to serve as elite combat troops. If they possessed armor, employing them as selected vanguard family retainers would pose no difficulty.
 
-He held the battlement and looked out. About a hundred *zhang* (approx. 330 meters) away from the stockade wall were rows of long houses, surrounded by trenches and fences, dotted with a few wooden towers. It looked like a large military camp. However, the voices of adults and children coming from the camp direction indicated that the people living there were all commoners.
+He grasped the battlement and looked outward. About a hundred *zhang*—roughly 330 meters—from the stockade walls stood rows of long houses, surrounded by trenches and fences and dotted with a few wooden towers. It resembled a large military camp. However, the voices of adults and children drifting from that direction indicated that the inhabitants were all civilians.
 
-Morning cooking smoke was curling up. Although not very clear, the camp was full of shadowy figures coming and going.
+Morning cooking smoke curled upward. Though not entirely clear, the camp was full of shadowy figures coming and going.
 
-People were already coming out of the camp, in teams of ten, dispersing to work on the island. Some were shoveling snow, some were collecting catches by the beach, and others were building and repairing. It appeared orderly and very methodical.
+People were already emerging from the camp, organized in teams of ten, dispersing to various tasks across the island. Some shoveled snow, some collected catches along the beach, and others worked on building and repairs. Everything appeared orderly and methodical.
 
-Sun Yuanhua had long experience in military affairs; one look and he knew that these people working had undergone training. There must be quite brilliant officers on the island training them.
+Sun Yuanhua had extensive experience in military affairs; one glance told him these workers had undergone training. Brilliant officers must be present on the island to drill them.
 
 "What is that place?"
 
-"It is the Refugee Camp," Lu Yang said. "It houses common people who have been displaced."
+"It is the Refugee Camp," Lu Yang replied. "It houses common people who have been displaced."
 
-Sun Yuanhua sighed for a long time before saying, "Master Lu has taken in so many people; the cost must be considerable."
+Sun Yuanhua sighed for a long moment before saying: "Master Lu has taken in so many people. The cost must be considerable."
 
-"Yes, but this is a matter of saving lives. The cost is not calculated," Lu Yang said.
+"It is considerable," Lu Yang acknowledged. "But this is a matter of saving lives. The cost is not calculated."
 
-As they were speaking, another team of village braves escorted a group of refugees hobbling toward the refugee camp from the willow fence side. Most of them were from villages and towns around Dengzhou. Hearing that Kong Youde and others were slaughtering locals on a large scale after capturing Dengzhou, and fearing massive retaliatory killings by the Liaodong people, the villages and towns fled one after another, supporting the old and carrying the young.
+As they spoke, another team of village braves escorted a group of refugees hobbling toward the refugee camp from the willow fence entrance. Most were from villages and towns around Dengzhou. Having heard that Kong Youde and the others were slaughtering locals on a massive scale after capturing Dengzhou, and fearing wholesale retaliatory killings by the Liaodong population, the villages and towns had fled in waves, the young supporting the old and carrying the young.
 
-It was said that Qimu Island, which was heavily defended and surrounded by sea on three sides, became the first choice for refugees—after all, in this freezing weather, stumbling along with men, women, old, and weak without enough food, it was impossible to go far. The news that Qimu Island had food, drink, shelter, and many village braves guarding it had already spread like wildfire in the Dengzhou area through the propaganda of spies. Therefore, large numbers of refugees had been coming recently every day to escape the rebels.
+It was said that Qimu Island—heavily defended and surrounded by sea on three sides—had become the first choice for refugees. After all, in this freezing weather, stumbling along with men, women, the elderly, and children without sufficient food made it impossible to travel far. News that Qimu Island had food, drink, shelter, and many village braves guarding it had already spread throughout the Dengzhou area through the efforts of intelligence agents. Large numbers of refugees had therefore been arriving every day to escape the rebels.
 
-"These are all refugees fleeing the rebel army..." Lu Yang said. Jean Nicholas also couldn't help but make the sign of the cross.
+"These are all refugees fleeing the rebel army..." Lu Yang said. Jean Nicholas could not help but make the sign of the cross.
 
-Although Lu Wenyuan sent out many shelter teams composed of the Army and civil affair personnel, carrying food and medicine to go out dozens of *li* to welcome the refugees, the refugees were freezing and starving on the road, plus suffering from bandit raids, leaving trails of corpses along the way. Those who were finally taken in looked like hungry ghosts from hell.
+Though Lu Wenyuan had sent out many shelter teams composed of the Army and civil affairs personnel, bringing food and medicine and venturing dozens of *li* to welcome the refugees, the refugees nevertheless froze and starved on the road. Combined with bandit raids, they left trails of corpses along the way. Those who were finally taken in looked like hungry ghosts escaped from hell.
 
-None of the three spoke. It was a long time before they saw the refugees finish entering the camp. Although each had their own thoughts, witnessing the scene of deep suffering inevitably moved them.
+None of the three spoke. A long while passed before the refugees had finished entering the camp. Though each held different thoughts, witnessing this scene of profound suffering inevitably moved them.
 
-While sighing with emotion, Sun Yuanhua couldn't help but feel surprised. There were five or six thousand people in this refugee camp, and refugees continued to be taken in every day. Qimu Island was just a small island after all; how many people could it hold?
+While sighing with emotion, Sun Yuanhua could not suppress his surprise. There were five or six thousand people in this refugee camp, and refugees continued to be admitted every day. Qimu Island was merely a small island—how many people could it possibly hold?
 
-Furthermore, what was Master Lu's motive for taking in so many people? Sun Yuanhua didn't believe that Lu Wenyuan's large-scale intake of refugees was solely out of kindness—feeding and drinking so many people every day was a huge expense, not to mention the cost of heating and clothing in winter.
+Furthermore, what was Master Lu's motive for taking in so many people? Sun Yuanhua did not believe that Lu Wenyuan's large-scale acceptance of refugees was solely out of kindness—feeding such vast numbers every day was an enormous expense, not to mention the costs of heating and clothing in winter.
 
-"Master Lu has a benevolent heart; it is the good fortune of the common people of Shandong!" Sun Yuanhua said. "It's just that with so many refugees gathering on the island, Master Lu can save them for a while, but not for a lifetime. How do you plan to handle them in the future?"
+"Master Lu has a benevolent heart; it is the good fortune of the common people of Shandong!" Sun Yuanhua said. "It is just that with so many refugees gathering on the island, Master Lu can save them for a while, but not forever. How do you intend to handle them in the future?"
 
-"We just wait for the Shandong area to quiet down, then the refugees can naturally return to their hometowns..." Lu Yang said. "It's just that after this great chaos, even if they return safely, they will likely starve to death."
+"We simply wait for the Shandong region to quiet down, then the refugees can naturally return to their hometowns..." Lu Yang replied. "It is just that after this great upheaval, even if they return safely, they will likely starve to death."
 
-The Three Eastern Prefectures were originally places where people suffered greatly. After such a great turmoil, plowing oxen, donkeys, and mules were killed or robbed, houses were burned, and property was completely lost. People returning to their villages with nothing would have no farm tools or draft animals, nor seeds or grain. Without government relief, they simply wouldn't survive until the next harvest season.
+The Three Eastern Prefectures had always been places where people suffered greatly. After such tremendous turmoil, plowing oxen, donkeys, and mules had been killed or stolen, houses had been burned, and property had been completely lost. People returning to their villages with nothing would have no farm tools or draft animals, nor seeds or grain. Without government relief, they simply could not survive until the next harvest season.
 
-"This matter..." Sun Yuanhua originally wanted to say he would definitely think of a way, but then he thought about how he had lost Dengzhou and was now in an unpredictable situation with the rebel army just dozens of *li* away. How could he have any solution?
+"This matter..." Sun Yuanhua originally intended to say he would certainly devise a solution, but then he reflected on how he had lost Dengzhou and now found himself in an unpredictable situation with the rebel army only dozens of *li* away. What solution could he possibly offer?
 
-Even if he were still the Governor of Dengzhou and Laizhou, relieving the people and distributing plowing oxen and seeds were matters for the Provincial Administration Commission; he couldn't manage the civil affairs side.
+Even if he were still the Governor of Dengzhou and Laizhou, relieving the people and distributing plowing oxen and seeds fell under the jurisdiction of the Provincial Administration Commission—he could not manage civilian affairs.
 
-As for whether the Imperial Court could or would provide relief, that was another matter.
+As for whether the Imperial Court could or would provide relief, that was another matter entirely.
 
-Judging by the Imperial Court's current state of fires everywhere and smoke all around, even if there was some relief, it would be a drop in the bucket.
+Judging by the Court's current state, with fires everywhere and smoke rising on all sides, even if some relief were forthcoming, it would amount to a mere drop in the bucket.
 
 (End of Chapter)

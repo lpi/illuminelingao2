@@ -1,161 +1,171 @@
 # Chapter 591 - Liaodong Population
 
-"If that's the case, we can diffuse light industry; why diffuse a gun factory? Ordinary people won't visit that often."
+"If that's the rationale, we should diffuse light industry. Why on earth would we diffuse a gun factory? Ordinary people won't be visiting armories on their leisure days."
 
-"My opinion is to sell Li Luoyou a complete set of silk reeling equipment..."
+"My position is that we sell Li Luoyou a complete silk-reeling setup—"
 
-"I think processing supplied materials is good; earning money and raw materials while letting apprentices practice!"
+"Processing supplied materials is the wiser path. We earn money *and* raw materials while letting our apprentices get hands-on experience!"
 
-"Bullshit—"
+"Horseshit—"
 
-The two sides didn't argue much on technical issues, but almost fought over whether to sell equipment and how to sell it.
+The two factions had found little to quarrel about on technical matters, yet the question of whether to sell equipment—and on what terms—had nearly come to blows.
 
-"Forget it, everyone stop arguing!" Huang Tianyu appeared at the office door with a look of dismay. "He doesn't want it anymore!"
+"Enough! Everyone, cease this pointless bickering!" Huang Tianyu appeared at the office doorway, his expression curdled with dismay. "The man doesn't want it anymore."
 
-"What?!" Everyone was startled. Whether supporting or opposing, this news was like ice water. Of all things manufactured by Lingao industry, some sold hot, some sold average, but no one had ever disliked them enough not to want them! In everyone's mind, Lingao Manufacturing equaled "German Manufacturing" of the old spacetime.
+"*What?!*" The room went silent. Regardless of where any man had stood on the question, this news hit like ice water dashed in the face. Of all the products manufactured by Lingao industry, some sold like wildfire and others moved at a crawl, but never—not once—had anyone outright refused them. In every Elder's mind, "Lingao Manufacturing" carried the same mystique as "German Engineering" from the old spacetime.
 
-Now this native tycoon actually said he didn't want it! Several people who had originally opposed selling machines most fiercely also felt a sense of loss. It felt like a woman you didn't like kept pestering you to go to bed, claiming you could ravage and play with her, but now suddenly she wouldn't even let you touch her breasts. Emotionally, it was extremely disappointing.
+And now this native tycoon had simply... declined?
 
-"Why not buy it?"
+Even those who had most fiercely opposed the sale felt a strange sense of loss. It was rather like a woman you didn't fancy pestering you relentlessly for intimacy, offering herself entirely to your pleasure—only to suddenly refuse even a modest advance. The emotional deflation was palpable.
 
-"Heard he thought it was expensive." Huang Tianyu sat down on a box of parts.
+"Why won't he buy?"
 
-"Who said that?" The people who originally actively opposed selling machines became even more disappointed—fifty thousand taels of silver gone!
+"Apparently the price was too steep." Huang Tianyu slumped onto a crate of parts.
 
-"Liu San said it. The formal notification should come very soon."
+"Says who?" Those who had originally championed blocking the sale now appeared most crestfallen—fifty thousand taels of silver, evaporating!
 
-A few minutes later, the phone in the Mechanical Factory rang. The secretary of the Manufacturing Director's Office notified Zhan Wuya that Secretary Chuyu of the Planning Agency Office had just formally notified the cancellation of the simplified gun factory equipment order.
+"Liu San told me. The formal notification should arrive any moment."
 
-The Political Security Bureau was brightly lit—this courtyard kept lights on even at midnight. Secret police—in any spacetime—were accustomed to working at night. The sound of telephone rings, talking, and the heavy tapping of Chinese typewriters came from the courtyard.
+Minutes later, the telephone in the Mechanical Factory rang. The secretary from the Manufacturing Director's Office informed Zhan Wuya that Secretary Chuyu of the Planning Agency had officially cancelled the simplified gun factory equipment order.
 
-Ufo held the latest wiretap report just organized and typed before midnight. Over a dozen indigenous clerks sat in a room partitioned into small cubicles. Each cubicle was installed with thick glass plates and sound-absorbing panels filled with kapok. Every monitor understood at least two dialects: Cantonese, Hainanese, Leizhou dialect, Hainan Military dialect, Hakka, Lingao dialect... Any dialect anyone spoke in this area, someone here understood. They concentrated on listening to voices recorded by various devices: computer microphones, tape recorders, recording pens... playing out, then dipping iron-tipped pens in ink to record the conversation content in notebooks before them.
+---
 
-These voices were played through dozens of cheap computer active speakers purchased in bulk for over ten yuan each. Each recording room had one installed, carefully placed in a wooden protective box.
+The Political Security Bureau burned bright through the night. This particular courtyard kept its lights ablaze even past midnight—secret police, in any spacetime, gravitated toward nocturnal hours. The compound hummed with ringing telephones, murmured conversations, and the heavy percussion of Chinese typewriters.
 
-The recorded wiretap reports were sent to the typing room, where they were transcribed and typed clearly. Typing used several heavy Chinese typewriters. Not brought from the old spacetime, but locally imitated; because materials weren't quite up to standard, they were even more clumsy, big, black, and rough than the originals. However, in typing speed, the indigenous typists quickly proved they were much better than the Chiefs.
+Ufo held the latest wiretap report, freshly organized and typed before the stroke of midnight. In an adjacent room, over a dozen indigenous clerks sat in cubicles partitioned by thick glass panels and sound-absorbing kapok insulation. Every monitor was fluent in at least two dialects: Cantonese, Hainanese, Leizhou dialect, Hainan Military dialect, Hakka, Lingao dialect—whatever tongue was spoken in this region, someone here understood it. They listened with fierce concentration to voices captured by various devices: computer microphones, tape recorders, recording pens. The sounds poured from cheap computer speakers purchased in bulk for barely ten yuan each, carefully housed in protective wooden boxes. As they listened, the clerks dipped iron-tipped pens in ink, transcribing every word into notebooks.
 
-To save equipment life, the Political Security Bureau only installed bugs in a few places. Although installation locations were confidential, the Elders could basically guess: the Commercial Hall definitely had them, the County Yamen had them, the County School and Jasmine Pavilion had them, and the small teahouse opposite the County Yamen was full of bugs. Runshitang's East Guest Courtyard could also be monitored at any time.
+Once transcribed, the wiretap reports traveled to the typing room for formal transcription. The typewriters were heavy, clunking Chinese models—not imported from the old spacetime, but locally imitated. Inferior materials made them even more unwieldy than the originals: big, black, rough. Yet in speed, the indigenous typists quickly proved they could outpace the Elders themselves.
 
-Whether Yang Shixiang or the distinguished guests of Runshitang living inside, no one knew there were inter-layers and secret passages in this house that they didn't know about. Monitoring equipment could be installed into the inter-layer walls at any time if needed.
+To preserve equipment, the Political Security Bureau installed listening devices only in select locations. Though installation sites remained officially classified, any Elder could hazard an educated guess: the Commercial Hall, certainly; the County Yamen; the County School; the Jasmine Pavilion; and that small teahouse directly across from the County Yamen—which was practically saturated with bugs. Runshitang's East Guest Courtyard could be monitored at a moment's notice.
 
-99% of wiretap reports were useless. Useful materials involving civilian comments were bound into volumes and given to the Propaganda Department for reference; those involving complaints against grassroots staff and corruption were given to the Cheka; general crimes to the National Police... Finally, wiretap reports involving "serious situations" were handed to the General Bureau Investigation Division for processing.
+Neither Yang Shixiang nor the distinguished guests lodging there suspected that their residence concealed interlayers and secret passages unknown to them. Monitoring equipment could be threaded into the walls whenever circumstances demanded.
 
-Even ordinary gossip and domestic trivia, as long as they involved keywords, had to be handed to specialized teams for processing. These keywords were mainly Ming officials like the County Magistrate, local big landlords, names of pirates active nearby, etc. These people had files in the PSB, and conversation content involving them was filed into their respective dossiers under the "Rumors" category.
+Ninety-nine percent of wiretap reports proved worthless. Useful material regarding civilian sentiment was bound into volumes and forwarded to the Propaganda Department. Complaints against grassroots staff or evidence of corruption went to the Cheka. Common crimes were routed to the National Police. Reports flagged as "serious situations" landed on the desks of the General Bureau Investigation Division.
 
-Regardless of the processing result, the original manuscripts of all reports had to be archived. Zhao Manxiong emphasized repeatedly in work meetings: to do security work well, the first thing is to establish a complete database.
+Even mundane gossip and domestic trivia, if they touched upon certain keywords, required processing by specialized teams. These keywords centered on Ming officials—the County Magistrate, local major landlords, names of pirates known to operate nearby. All such individuals had dossiers in the PSB, and any conversation mentioning them was filed under the "Rumors" category.
 
-Ufo flipped through these reports, first taking out the report from Runshitang East Guest Courtyard—Li Luoyou's arrival raised the monitoring level there from "General Attention" to "Key Attention."
+Regardless of outcome, every original manuscript was archived. Zhao Manxiong had emphasized this point repeatedly in work meetings: the foundation of security work is a complete database.
 
-He read for a few minutes, frowning tight. This Advisor Han spoke with ill intent! Obviously not planning to let this deal succeed! He hurriedly called the Ministry of Commerce.
+Ufo thumbed through the stack, first extracting the report from Runshitang's East Guest Courtyard. Li Luoyou's arrival had elevated the monitoring status there from "General Attention" to "Key Attention."
 
-"The Ministry of Commerce has closed. Shall I transfer to the duty room?" The operator lady's voice on the phone was sweet, still carrying an accent in her Mandarin.
+He read for several minutes, his frown deepening. This Advisor Han spoke with poisoned intent—clearly determined to sabotage the deal! He hurried to telephone the Ministry of Commerce.
 
-"Oh, no need!" Ufo remembered then that it was midnight; discussing business was impossible.
+"The Ministry of Commerce has closed for the evening," came the operator's sweet voice, still carrying an accent beneath her Mandarin. "Shall I transfer you to the duty room?"
 
-However, if the news was conveyed before work tomorrow, Li Mei still had a chance to readjust, including transaction conditions and such. This transaction was led by Wu De, and the relationship between the First Deputy Director and Wu De seemed not shallow. Ufo didn't dare neglect; he picked up his mobile phone to dial Wu De's number.
+"No, never mind." Ufo remembered then that it was midnight. Business discussions would have to wait.
 
-Wait! He felt it inappropriate. This matter was Wu De's idea, but many opposed it. Reporting directly to him was too naked.
+Still, if the intelligence reached the right ears before workday morning, Li Mei might have time to recalibrate—adjusting transaction conditions or whatever else was needed. This transaction was Wu De's initiative, and the relationship between the First Deputy Director and Wu De ran deep. Ufo dared not be careless; he reached for his mobile phone to dial Wu De directly.
 
-Thinking of this, he decided not to call Wu De, but Li Mei. She was the direct leader responsible for this transaction and had great interest in it. She would definitely communicate with Wu De and come up with a new plan to salvage this deal.
+*Wait.* He hesitated. The optics were wrong. This was Wu De's project, but plenty of people opposed it. Reporting directly to him would appear too nakedly partisan.
 
-From a business perspective, handling it this way fit procedure and couldn't be faulted.
+He reconsidered. Rather than contacting Wu De, he would call Li Mei. She was the direct supervisor responsible for this transaction and had considerable personal stake in its success. She would surely coordinate with Wu De and devise a plan to salvage the deal.
 
-However, her phone was off. Li Mei was nearly sixty; her sleep was light, and she wouldn't sleep with her mobile on—unless notified to do so.
+From a procedural standpoint, this was unimpeachable.
 
-He immediately ordered the report sealed and sent to the reception room. The envelope was marked "Copy to Li Mei, Ministry of Commerce."
+But her phone was off. Li Mei was nearing sixty; she slept lightly and never left her mobile powered through the night—unless specifically instructed otherwise.
 
-"Urgent!" He stamped it and gave it to the clerk, "Deliver by 7 AM tomorrow!"
+He ordered the report sealed and sent to the reception room. On the envelope he wrote: "Copy to Li Mei, Ministry of Commerce."
 
-Ufo didn't know at this time that Li Luoyou had already clearly expressed to Liu San that evening that he didn't intend to buy the gun factory equipment, and the Planning Agency had already cancelled the order.
+"Urgent!" He stamped it and handed it to the clerk. "Deliver by seven tomorrow morning."
 
-After listening to Advisor Han's words, Li Luoyou suddenly realized in horror he hadn't considered well: what would the future relationship between the government and Australians be like?
+What Ufo did not know at that moment was that Li Luoyou had already made his position plain to Liu San earlier that evening: he had no intention of purchasing the gun factory equipment. The Planning Agency had already cancelled the order.
 
-The government defaulted to their existence now, but wouldn't default forever. Li Luoyou knew too well the relationship between the government and various Europeans coming to Great Ming hoping to get rich. Europeans always expected to occupy a base on the Chinese coast for long-term nearby business. The local government initially ignored it, but when things blew up and could no longer be covered up locally, they would send troops to expel them.
+---
 
-Generally speaking, until now, except for the Portuguese, no foreign group could occupy a place on the coast for long. Although the Dutch occupied a place in Taiwan, they were ultimately driven out of Penghu.
+After hearing Advisor Han's words, Li Luoyou had been struck by a realization that chilled him to the bone: he had not adequately considered what the future relationship between the Great Ming government and the Australians might become.
 
-This knot lingered in his mind, causing him much headache. He decided that before the relationship between Australians and the government became clear, he should get involved as little as possible—Australians could just leave, but he had a family; he couldn't run even if he wanted to.
+The government tolerated their existence now, but that tolerance would not last forever. Li Luoyou knew intimately the pattern of relations between the government and the various Europeans who arrived in Great Ming hoping to make their fortunes. Europeans invariably sought to establish a coastal foothold for long-term trade. Local officials would ignore them at first, but when matters escalated beyond what could be concealed at the provincial level, troops would be dispatched for expulsion.
 
-Finally, he decided he didn't need to be so anxious to serve the country loyally, lest he be labeled "Australian lackey" or "treacherous merchant" when fighting started, possibly requiring huge bribes to Guangdong officials to pass the ordeal.
+Generally speaking, with the sole exception of the Portuguese, no foreign group had managed to hold coastal territory for long. The Dutch had occupied a portion of Taiwan, true, but they had ultimately been driven from Penghu.
 
-When Liu San learned the deal was blown, his first reaction was disbelief. Then he saw Advisor Han's incredibly calm face—no expression on it, yet Liu San felt he was laughing at him.
+This knot coiled in his mind, giving him no peace. He resolved that until the relationship between the Australians and the government clarified itself, prudence demanded minimal entanglement. The Australians could pack up and sail away whenever they wished—but he had a family; he could not simply flee.
 
-He didn't know if he should report the fact that Advisor Han visited to solicit a bribe and was refused. He had a feeling that writing this report would likely make him the scapegoat for the transaction failure.
+In the end, he decided there was no need to rush into fervent displays of patriotic service. Better to avoid being branded an "Australian lackey" or "treacherous merchant" should hostilities erupt, lest he be forced to pour enormous bribes into Guangdong officialdom just to survive.
 
-He didn't report the bribe solicitation in time that day. If responsibility was pursued, he was obviously the primary responsible person—even though no one in the Transmigration Group would agree to such bribery.
+When Liu San learned the deal had collapsed, his first reaction was disbelief. Then he caught Advisor Han's expression—utterly calm, betraying nothing—and yet Liu San could *feel* the mockery radiating from that face.
 
-Liu San's mood instantly became terrible. After repeated consideration, he decided to omit this part in the report, only writing that Advisor Han visited to request a price reduction. Not lowering the price was a directive from above; he had executed it faithfully. Anyway, Advisor Han wouldn't speak of the bribe solicitation himself.
+He found himself uncertain whether to report that Advisor Han had visited to solicit a bribe and been refused. A gnawing suspicion told him that writing such a report would likely make him the scapegoat for the transaction's failure.
 
-Although Li Luoyou's arms deal didn't happen, both parties were generally satisfied with this transaction. On one hand, money is always the more the better; on the other hand, two supply channels were obtained. Li Luoyou's supply prices were cheaper than Gao Ju and Huang Shunlong. Especially for bulk goods.
+He had not reported the bribery solicitation at the time. If blame were assigned, he would clearly be the primary responsible party—even though no one in the Transmigration Group would ever have agreed to such bribery.
 
-Most importantly, Li Luoyou agreed that as long as they needed, he could arrange for them to go to Jiangnan and provide necessary assistance.
+Liu San's mood curdled. After agonizing deliberation, he decided to omit that detail from his report, writing only that Advisor Han had visited to request a price reduction. Not lowering the price had been a directive from above; he had executed it faithfully. Besides, Advisor Han would never speak of his failed shakedown himself.
 
-However, this assistance could only be covert, not open.
+---
 
-As for the Capital (Beijing), it was inconvenient to go for now. The reason, Li Luoyou told them clearly: The transmigrators' accents were too strange.
+Although Li Luoyou's arms deal fell through, both parties departed reasonably satisfied with the overall transaction. From one perspective, more money was always preferable; from another, they had secured two new supply channels. Li Luoyou's pricing undercut both Gao Ju and Huang Shunlong, especially for bulk goods.
 
-"Best change this accent. The language you gentlemen speak resembles Liaodong accent; it's too conspicuous in the Capital." There were many patrolling spies in the Capital; any trivial matter would be reported to the Eastern Depot. If some idle spy interrogated them, he couldn't bear the risk.
+Most crucially, Li Luoyou had agreed that whenever needed, he could arrange for them to travel to Jiangnan and provide whatever covert assistance proved necessary.
 
-As for going to Liaodong, Li Luoyou expressed that going to look and do business was fine, but he couldn't take responsibility for long-term stationing.
+However, this assistance could only be covert—never overt.
 
-"Han people have a hard life on Tartar ground! Even Fan Wencheng, a pseudo-Grand Secretary who rendered great service to the Tartars, was almost killed by the Old Tartar just because he was Han. You are so conspicuous; you absolutely can't stay."
+As for the capital at Beijing, that remained off-limits for the time being. The reason, Li Luoyou explained candidly: the transmigrators' accents were simply too strange.
 
-Speaking of the plight of Han people in Liaodong, Li Luoyou inevitably sighed and lamented, describing the suffering of Liaodong Han people. Finally, he mentioned the breaching of the Wall and major looting last year, taking away over a hundred thousand men and women from inside the Pass; unknown how many survived now.
+"You must work to correct that accent. The dialect you gentlemen speak resembles the Liaodong tongue—far too conspicuous in the capital." Beijing swarmed with patrolling spies; the most trivial irregularity might be reported to the Eastern Depot. If some bored agent decided to interrogate them, Li Luoyou could not bear that liability.
 
-"Generals incompetent, commoners suffer! Commoners eat bran and vegetables, sell sons and daughters to pay imperial grain tax, yet they feed such a bunch of useless rice buckets!" Li Luoyou had turned from reverence to hatred for Supervisor Yuan by now. His words were full of curses. Liu San thought, regardless of whether Yuan Chonghuan died wrongfully, public opinion at the time was definitely extremely unfavorable to him.
+As for venturing into Liaodong itself, Li Luoyou indicated that short visits for reconnaissance or trade were possible, but he could not guarantee their safety for any extended stay.
 
-"...The Tartars simply don't have grain to feed so many people!" Li Luoyou said indignantly, "When the Old Tartar was alive, grain wasn't enough, so they simply killed Han people to reduce mouths. When Huang Taiji became the Pseudo Khan, he showed some leniency to Han people, but grain is still insufficient—"
+"Han people suffer grievously under Tartar rule! Even Fan Wencheng—that sycophantic pseudo-Grand Secretary who rendered the Tartars such service—was nearly killed by the Old Tartar simply for being Han. You would stand out immediately. Extended residence there is simply not possible."
 
-grain insufficient, so they offered high prices to buy from inside the Pass, willing to pay ten or even over ten taels for a *shi* of rice, several times more expensive than Central Plains market prices. Useless women and children were sold directly to Mongolia in exchange for cattle and sheep.
+Speaking of the plight of the Liaodong Han, Li Luoyou grew visibly agitated, sighing and lamenting their suffering. He spoke of the Wall being breached and the massive looting of the previous year, when over a hundred thousand men, women, and children had been hauled beyond the passes. How many still survived? Who could say.
 
-He had personal pain and traded in Liaodong for a long time; the miserable state of Liaodong Han people and captives was witnessed with his own eyes yet he was powerless. Speaking of it was extremely painful.
+"Incompetent generals, and the common people pay the price! Peasants eat chaff and weeds, sell their sons and daughters to pay the imperial grain tax—and for what? To feed a pack of useless parasites!" Li Luoyou's reverence for Supervisor Yuan had long since curdled into bitter hatred. His words brimmed with venom. Liu San thought that regardless of whether Yuan Chonghuan had died unjustly, public sentiment at the time had certainly turned sharply against him.
 
-Li Luoyou vented a bit, then thought he was in Lingao talking about this with a group of overseas people; they weren't Great Ming subjects at all. He immediately stopped talking, cupping his hands: "Lost my composure, forgive me! Forgive me!"
+"...The Tartars simply lack the grain to feed so many mouths!" Li Luoyou said bitterly. "When the Old Tartar still lived, grain was perpetually short—so they simply slaughtered Han people to reduce the number of mouths. When Huang Taiji became Pseudo-Khan, he showed somewhat more leniency toward the Han, but grain remains insufficient—"
 
-Thinking that since the Tartars were eager to sell captives due to lack of grain, his side could totally go buy them. Women and children whom Tartars didn't want and Mongols wouldn't pay high prices for were needed in Lingao. In the Operation Willow meeting before Li Luoyou's arrival, buying Liaodong population was also discussed.
+Insufficient grain meant they offered exorbitant prices to purchase from within the passes, willing to pay ten or even more than ten taels for a single *shi* of rice—several times the Central Plains market rate. Women and children deemed useless were sold directly to Mongolia in exchange for cattle and sheep.
 
-" regarding this matter, we are willing to relieve the suffering of the common people." Liu San said.
+This pain was personal to Li Luoyou. He had traded in Liaodong for many years; the wretched condition of both Liaodong Han and captives was something he had witnessed with his own eyes yet remained powerless to change. Speaking of it caused him immense anguish.
 
-"Oh? What is your intention?"
+After unburdening himself somewhat, Li Luoyou suddenly recalled that he was in Lingao, speaking of such matters to a group of overseas people who were not even subjects of Great Ming. He stopped short, cupping his hands apologetically: "Forgive me—I lost myself! I beg your pardon."
 
-"If the Tartars can't feed so many people and want to sell them, we will just go buy them—"
+Yet Liu San was thinking that since the Tartars were so desperate to sell captives due to grain shortages, the Transmigration Group might do well to purchase them. Women and children whom the Tartars didn't want and whom the Mongols wouldn't pay top prices for were precisely what Lingao needed. The Operation Willow meeting held before Li Luoyou's arrival had touched on this very subject.
 
-Li Luoyou's eyes lit up. This Master San spoke well; Australians, no matter what, always considered themselves descendants of Hua-Xia. Lingao was Great Ming territory. Arriving in Lingao was a hundred times better than falling into Mongol hands. However, he shook his head again:
+"Regarding this matter, we are willing to relieve the suffering of the common people," Liu San said.
 
-"This matter is difficult!" He warned, "The Tartars are very cunning! They absolutely won't sell young men, only women, children, and the old and weak... With my meager face, redeeming a dozen young men at once is possible, but a large batch is hard."
+"Oh? What do you have in mind?"
 
-He didn't continue; Australians weren't doing charity purely after all. They wouldn't necessarily spend big money to bring back many women, children, and elderly who couldn't do heavy work from thousands of miles away.
+"If the Tartars cannot feed so many people and wish to sell them, we will simply go and buy them—"
 
-"We want women, children, and the elderly too; saving one is one." Liu San put on an incarnation of justice. Women—Lingao had a gender imbalance; getting more women could balance the gender ratio. Besides, women had great use in light industry. As for children, they were the human resources transmigrators liked best—nothing accepted new things easier than children bearing strong hatred.
+Li Luoyou's eyes brightened. This Master San spoke sensibly; the Australians, whatever else one might say of them, considered themselves descendants of Hua-Xia. Lingao was Great Ming territory. Arriving in Lingao would be a hundred times better than falling into Mongol hands.
 
-"Master San is truly righteous as the clouds." Li Luoyou praised highly, "However, what Tartars value most are iron tools and grain. I see these in the thirty-one goods you guarantee to buy; presumably your own needs are insufficient. How can you have spare power to redeem? I fear this is difficult."
+Yet he shook his head. "This will prove difficult." He spoke cautiously. "The Tartars are exceedingly cunning. They will never sell young men—only women, children, the old, and the weak. With my modest connections, ransoming a dozen young men at once is manageable, but obtaining large numbers would be nearly impossible."
 
-"Only grain and iron tools?" Liu San was instantly poured with cold water. He asked with hope: "Can we sell other items?"
+He said no more; the Australians were not running a charity operation, after all. They wouldn't necessarily spend substantial sums to transport women, children, and elderly who couldn't perform heavy labor from thousands of miles away.
 
-"Although Huang Taiji is a Tartar, his insight is not bad." Li Luoyou said, "Merchants shipping things in to sell, he only welcomes materials for people's livelihood and state use. Grain and iron tools are best; cloth and silk are also fine. But things like your glass mirrors, purely for enjoyment, I fear selling them will be banned once shipped in."
+"We want women, children, and the elderly as well. Saving one is saving one," Liu San replied, assuming the pose of righteousness incarnate.
 
-"So it's like that." Liu San thought this was tricky. Exporting strategic materials required Executive Committee approval. "Then we have to plan differently."
+Women—Lingao suffered from a severe gender imbalance; bringing in more women would help correct that ratio. Moreover, women were invaluable for light industry. As for children, they represented the human resources the transmigrators prized most highly. Nothing absorbed new ideas more readily than children raised on strong hatred.
 
-"If you have such intentions, Li is willing to bridge the connection."
+"Master San is truly righteous beyond measure," Li Luoyou said admiringly. "However, what the Tartars value most are iron tools and grain. I noticed these appear among the thirty-one goods you guarantee to purchase. Presumably your own needs are not yet fully met. How can you spare resources for ransom? I fear this will prove difficult."
 
-"Sorry to trouble Proprietor Li!"
+"Only grain and iron tools?" Liu San felt as if someone had doused him with cold water. He asked hopefully, "Can we not sell other items?"
 
-Both sides agreed: within the next three months, he would arrange for a few Elders to secretly go to Liaodong for on-site reconnaissance to see if it was possible to purchase captives from Liaodong in large batches.
+"Though Huang Taiji is a Tartar, his shrewdness should not be underestimated," Li Luoyou replied. "Merchants who come to trade are welcomed only when selling materials essential for people's livelihood and state use. Grain and iron tools are preferred; cloth and silk are acceptable. But luxuries like your glass mirrors—items of pure enjoyment—I fear would be prohibited the moment they were shipped in."
 
-Both sides used Li Luoyou's branch here as the contact point, with Gu Baocheng as the liaison. Other than this channel, no other contact would be made. Li Luoyou showed a pair of patterned ox horn seals. The two seals could form one or split into a pair. He left one.
+"I see." Liu San found this problematic. Exporting strategic materials required Executive Committee approval. "Then we must approach this differently."
 
-"Whenever there is a letter or message, use this seal pattern as proof. Seeing the seal is like seeing the person."
+"If you have such intentions, I am willing to serve as your intermediary."
 
-In his daily operations, for secrecy, he used this method to contact all parties. It was a simple and effective way. Except for Saoye, his inner and outer studies each had two confidants keeping these ox horn seals with different patterns. As for who each seal corresponded to, only he knew.
+"We would be most grateful, Proprietor Li."
 
-Redeeming captives had no direct benefit for Li Luoyou and might not succeed, but it made his heart slightly smoother. His goodwill towards Australians also increased.
+Both sides settled on a plan: within the next three months, Li Luoyou would arrange for a small group of Elders to secretly travel to Liaodong for firsthand reconnaissance, determining whether large-scale purchase of captives was feasible.
 
-In the following days, Li Luoyou continued visiting everywhere in Lingao. Wu Nanhai's intensive farm left a deep impression on him. Then he visited the Catholic Church in East Gate Market—he discovered accidentally there was a church here—seeing people wearing wooden crosses on the road. Asking, he learned a church existed long ago. So at his request, a visit to the church was added temporarily.
+For communication, both parties would use Li Luoyou's branch in Lingao as the contact point, with Gu Baocheng acting as liaison. Beyond this channel, no other contact would be made. Li Luoyou produced a pair of patterned ox-horn seals that could lock together as one or separate into two halves. He left one half behind.
 
-At the East Gate Market Church, he received a warm welcome from Wu Shimang and others. Although Li Luoyou always felt an indescribable awkwardness towards this Australian priest. This man was dignified and behaved properly, much more decent than the smelly German priest Ma Yangchun who didn't like bathing, but his conversation really didn't feel like a priest's.
+"Whenever there is a letter or message, use this seal pattern as proof. The seal speaks with my voice."
 
-Father Bai (Bai Duolu) looked a bit more like it. Li Luoyou had a very good impression of the Australians allowing the church to build here, and hearing a monastery was established surprised him even more; it seemed Australians had great reverence for the Lord.
+This was his customary method for maintaining secrecy in his regular operations. It was simple and effective. Apart from his wife, his inner and outer studies each held two trusted confidants who kept ox-horn seals of different patterns. Only he knew which seal corresponded to whom.
 
-The church was not big, with a pointed roof, a small bell tower, and long glass windows on the walls. The architecture was simple and beautiful. Li Luoyou liked this church very much and donated circulation notes equivalent to one hundred taels on the spot. Wu Shimang expressed thanks and returned a Chinese version of "Catechism" as a gift. This was an introductory book for Catholics, printed extremely exquisitely with beautiful binding. Li Luoyou appreciated it greatly, immediately donating another hundred taels of silver for printing this book. And expressed willingness to purchase five hundred copies.
+Ransoming captives brought Li Luoyou no direct benefit and might well fail, yet it eased something within him. His goodwill toward the Australians deepened measurably.
+
+---
+
+In the following days, Li Luoyou continued his tours throughout Lingao. Wu Nanhai's intensive farm left a particularly deep impression. He then visited the Catholic Church in East Gate Market—he had noticed its presence by accident, spotting people wearing wooden crosses on the street. Upon inquiry, he learned the church had existed there for some time. At his request, a visit to the church was added to his itinerary.
+
+At the East Gate Market Church, he received a warm welcome from Wu Shimang and others. Although Li Luoyou could never quite shake an indefinable sense of awkwardness around this Australian priest. The man was dignified and well-mannered—far more presentable than that malodorous German priest Ma Yangchun who seemed allergic to bathing—yet his conversation simply didn't *feel* like that of a priest.
+
+Father Bai, on the other hand, struck closer to the mark. Li Luoyou was favorably impressed that the Australians permitted the church to build here, and when he heard a monastery had been established as well, he was genuinely surprised. It seemed the Australians held the Lord in high reverence after all.
+
+The church was modest: a pointed roof, a small bell tower, and long glass windows set into the walls. The architecture was simple yet beautiful. Li Luoyou took an immediate liking to it and donated circulation notes equivalent to one hundred taels on the spot. Wu Shimang expressed his thanks and presented a Chinese edition of the *Catechism* as a gift—an introductory text for Catholics, printed with exquisite care and beautifully bound. Li Luoyou appreciated it greatly and promptly donated another hundred taels of silver specifically for printing more copies. He further expressed willingness to purchase five hundred copies.
 
 (End of Chapter)

@@ -1,12 +1,12 @@
 # Chapter 758 – Aftermath
 
-While the men were enthusiastically shooting and swimming, the women lingered in the hot tub, chatting. Following Zheng Shangjie's earlier instructions, Mendoza teased Panpan about how she and Ding Ding controlled public-opinion guidance. Panpan had always considered herself a "journalist," not a "mouthpiece," and Mendoza's ribbing made her squirm.
+While the men were shooting and swimming, the women lingered in the hot tub, chatting. Following Zheng Shangjie's earlier instructions, Mendoza teased Panpan about how she and Ding Ding controlled public-opinion guidance. Panpan had always considered herself a "journalist," not a "mouthpiece," and Mendoza's ribbing made her squirm.
 
 "Before, he spent all day railing against media control, saying press freedom was the most fundamental right. His thesis topic was even 'journalistic oversight.'" Panpan had met Ding Ding at a university—she was an exchange student; he was a master's candidate in mass communication. "He used to say he'd fight for press freedom! I feel cheated," she added bitterly. "I never expected him to change the moment he arrived in the new world!" The more she thought about it, the angrier she became. It wasn't that Panpan didn't want Ding Ding to climb to power within this new aristocracy, but he had changed so swiftly, so nakedly, that she was having trouble accepting it emotionally. She couldn't help venting about how shamelessly he aspired to become Goebbels.
 
-"Let him be Goebbels, then. At least Goebbels was good at what he did in media," said Salina, who found the topic uncomfortable. Her observations ran deeper than Panpan's or Mendoza's. The Lingao regime was essentially an oligarchic aristocratic republic; in such a system, the rulers would inevitably treat media as a manipulable propaganda tool. So she saw Ding Ding's Goebbels-ness as no big deal. Just as her current consulting and training work for the Political Security General Administration and the Office of the Police Superintendent had distinct People's Commissariat for Internal Affairs undertones—but she would certainly not refuse a promotion within that system. People are practical.
+"Let him be Goebbels, then. At least Goebbels was good at what he did in media," Salina said, finding the topic uncomfortable. Her observations ran deeper than Panpan's or Mendoza's. The Lingao regime was essentially an oligarchic aristocratic republic; in such a system, the rulers would inevitably treat media as a manipulable propaganda tool. She saw Ding Ding's Goebbels-ness as no big deal. Just as her current consulting and training work for the Political Security General Administration and the Office of the Police Superintendent had distinct People's Commissariat for Internal Affairs undertones—but she would certainly not refuse a promotion within that system. People are practical.
 
-"He is ambitious—newspapers, radio, now he wants magazines…" Panpan sighed, her interest in media bubbling up again. "A pity there's no color printing; large-scale illustrated printing still has to use lithography. Magazines will have to be text-heavy. That's fine—the problem is the content dispute."
+"He is ambitious—newspapers, radio, now he wants magazines..." Panpan sighed, her interest in media bubbling up again. "A pity there's no color printing; large-scale illustrated printing still has to use lithography. Magazines will have to be text-heavy. That's fine—the problem is the content dispute."
 
 On magazine content, the Propaganda Division and the Grand Library disagreed. Propaganda wanted a current-affairs publication to extend the transmigrator collective's political and cultural influence; the Grand Library wanted a popular-science magazine. The two sides were at loggerheads.
 
@@ -34,7 +34,7 @@ Though the conversation was far from exhausted, Li Quan had to be taken home, an
 
 Still, no guest left empty-handed. Xue Ziliang received Qian Shuiting's SIG P229. Beiwei requisitioned a crate of bolt-action rifles for the Special Reconnaissance Squad—Mosin-Nagants and K31s, all scoped—plus over two thousand rounds each of 7.62×54R steel-cased and Swiss GP11.
 
-"I'll need to file the paperwork," said Beiwei. He badly wanted to test these two rifles' real-world performance, but he couldn't simply carry unregistered weapons back to headquarters. "Leave them here for now."
+"I'll need to file the paperwork," Beiwei said. He badly wanted to test these two rifles' real-world performance, but he couldn't simply carry unregistered weapons back to headquarters. "Leave them here for now."
 
 "No problem. I work at the Planning Commission. Drop by tomorrow with a requisition form, and I'll get Wu De to sign off on it. Done."
 
@@ -42,7 +42,7 @@ Beiwei himself asked for nothing, though Qian Shuiting pressed two opened carton
 
 Ai Beibei gave Salina and Panpan several garments she had made herself. Li Quan also received some of Qian Duoduo's outgrown clothes—her eyes went wide and she asked again and again, "These are for me?"
 
-"Of course they are. I'll explain to your mother." Ai Beibei worried that Li Mo might refuse to accept them; she sensed that, beneath the façade of the most obedient servant, Li Mo had a strong sense of self-respect.
+"Of course they are. I'll explain to your mother." Ai Beibei worried that Li Mo might refuse to accept them; she sensed that beneath the façade of the most obedient servant, Li Mo had a strong sense of self-respect.
 
 Panpan also got a jar of instant Colombian coffee—she said she often stayed up late writing and found the fresh-brewed South Sea coffee available only to transmigrators a bother, whereas instant was convenient.
 
@@ -56,13 +56,13 @@ Lin Chuanqing's interest in women as "sexual" partners was minimal; he mainly wa
 
 "One of your men was arrested by the Garrison Battalion," Wei Aiwen said curtly. "A few others joined the scuffle—also Navy. They're being sorted out now. They'll just do a few days in the stockade, but your sailor, because he's tied to a public-order incident, will have to stay at the Political Office a bit longer. You're his commanding officer; we need your recommended disposition."
 
-The sailor who had beaten his wife was a member of the Fisheries Corps under Lin Chuanqing's command. Just recently, the man had taken part in the Pearl River Estuary operation—though only as rear-echelon, fishing, patrolling, and hauling cargo near Lantau.
+The sailor who had beaten his wife was a member of the Fisheries Corps under Lin Chuanqing's command. Just recently, the man had taken part in the Pearl River Estuary operation—though only in the rear echelon, fishing, patrolling, and hauling cargo near Lantau.
 
 "What? His wife cuckolded him? Beat someone in the East Gate Market?" Lin Chuanqing's voice rose. "Good for him—pity he didn't beat the slut to death!"
 
-"Lucky for us he didn't," Wei Aiwen said. "He also struck a garrison soldier who was restraining him."
+"Lucky for us he didn't," Wei Aiwen replied. "He also struck a garrison soldier who was restraining him."
 
-"Let me give you my position," said Lin Chuanqing. "Whatever punishment he deserves for assaulting military police, he gets—per regulations. No argument from me. But the adulterous couple must be severely punished. I demand the whore be publicly hanged at the naval pier."
+"Let me give you my position," Lin Chuanqing said. "Whatever punishment he deserves for assaulting military police, he gets—per regulations. No argument from me. But the adulterous couple must be severely punished. I demand the whore be publicly hanged at the naval pier."
 
 "Let's set the question of execution aside. The immediate problem is there's no legal basis. The Tribunal is rushing to draft a statute on *destruction of a military marriage*—and there's the issue of jurisdiction."
 

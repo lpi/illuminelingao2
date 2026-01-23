@@ -14,11 +14,11 @@ With the Chengmai Office still unstaffed, Wei temporarily assumed civil affairs 
 
 After finishing the inventory, Song Zonghui dismissed the village militia as agreed. Wei chose not to confiscate their weapons; they posed no threat to the Fubogun, but disarming villages would leave them vulnerable to bandits. The Civil Affairs Guidance Manual recommended retaining local landlord militias until county cadres could be deployed.
 
-Soldiers and laborers worked until nightfall to clear the city of imperial remnants and round up a number of soldiers who had donned civilian clothes to hide. These men received no courtesy—stripped naked, roped together, and marched out. Song Zonghui shuddered, wondering if the Australians used public nudity as punishment; he felt a chill run through him.
+Soldiers and laborers worked until nightfall to clear the city of imperial remnants and round up a number of soldiers who had donned civilian clothes to hide. These men received no courtesy—stripped naked, roped together, and marched out. Song Zonghui shuddered, wondering if the Australians used public nudity as punishment; a chill ran through him.
 
 Once everything was settled, the Fubogun withdrew from the city as promised. The entire population breathed a sigh of relief. Though the bald bandits had not paraded on horseback or publicly executed discipline-breakers in the streets, every soldier who entered had been impeccably behaved—no looting, no assaults. They had even swept the streets after hauling away the abandoned equipment. Popular sentiment toward these "bald bandits" shifted remarkably.
 
-That evening, a small private banquet was held at Song Zonghui's residence. Song, the local notables, and one of the magistrate's secretaries raised cups with Wei Aiwen in a convivial atmosphere.
+That evening, a small private banquet was held at the Song residence. Song, the local notables, and one of the magistrate's secretaries raised cups with Wei Aiwen in a convivial atmosphere.
 
 Song Zonghui presented, on behalf of all the gentry and commoners, a gift list: five hundred *shi* of white rice, five hundred taels of silver, three hundred bolts of cotton cloth, thirty bolts of fine silk, twenty jars each of rice wine and spirits, thirty pigs, and fifty goats—"a token of appreciation for your army."
 
@@ -34,7 +34,7 @@ According to Wei's proposal, Magistrate Liu would serve as Director-General; thr
 
 "Since we're not locals, we'll just be the Annual Rotating Executive," Wei said magnanimously.
 
-Everyone looked pained. They knew the "Annual Executive" would be the real power. And once established, the Bureau would become a "second yamen," creeping into every local affair until it usurped the county's authority entirely.
+Everyone looked pained. They understood perfectly: the "Annual Executive" would be the real power. And once established, the Bureau would become a "second yamen," creeping into every local affair until it usurped the county's authority entirely.
 
 Wei waved his hand: "It's decided."
 
@@ -42,7 +42,7 @@ Helpless, the gentry and magistrate complied. Such semi-official bodies were com
 
 With everything in order, Wei cabled the Executive Committee to dispatch a Chengmai Work Team as soon as possible to consolidate county administration.
 
-News of He Ming's crushing victory at Chengmai reached Lingao that same afternoon. The Executive Committee and the Yuan Laoyuan had been waiting anxiously—there was never any doubt about the outcome, but tension still ran high.
+News of He Ming's crushing victory at Chengmai reached Lingao that same afternoon. The Executive Committee and the Yuan Laoyuan had been waiting anxiously—there was never any doubt about the outcome, but tension had still run high.
 
 Shortly after ten on the morning of July 11, drums sounded simultaneously at all of Lingao's gates. Then cannons boomed three times from the county seat, Bairren City, Bopu, Nanbao, Gaoshan Ridge, Ma'ao, and every ship in the harbor—a thunderous salute.
 
@@ -118,5 +118,7 @@ Si Kaide proposed: "Let the Colonial Trade Department ship them to Southeast Asi
 "So what if locals kill them? We still get our outposts."
 
 "If they're killed, what outposts? And without supervision, why would they farm and gather resources? They'll just raid. At best, we'll end up with another gang of Chinese pirates. Is that colonization?" Wu De sighed. "Without oversight, these surly scoundrels will probably fight among themselves. If we send officers along, they'll likely quarrel with the soldiers first. Colonization requires unity above all—such unruly men are of little use."
+
+---
 
 *Note: A jingguan is a mound made by piling enemy corpses and covering them with earth. The practice appears to date back to the Spring and Autumn period and once spread to the Korean peninsula.*

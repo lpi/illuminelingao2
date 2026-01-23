@@ -1,18 +1,18 @@
 # Chapter 1159 - Continuation of the Sarajevo Incident
 
-The coded message recovered from the dead assassin was decrypted by the cryptography department in Lingao within a week. Its contents confirmed what everyone had suspected.
+The coded message recovered from the dead assassin was decrypted by Lingao's cryptography department within a week. Its contents confirmed what everyone had suspected.
 
-The message was addressed to someone called "Third Master"—almost certainly Zheng Zhifeng—and reported the successful completion of "Phase One" of the operation. Phase One was the assassination of Vestreling. The message mentioned that "the Australian sailors" had been successfully framed, and that Dutch retaliation against the Australians was expected.
+The message was addressed to someone called "Third Master"—almost certainly Zheng Zhifeng—and reported the successful completion of "Phase One." Phase One was the assassination of Vestreling. The message noted that "the Australian sailors" had been successfully framed, and that Dutch retaliation against the Australians was expected.
 
 But what caught Xu Ke's attention was the mention of "Phase Two."
 
 According to the message, Phase Two would only be activated if Phase One succeeded in provoking hostilities between the Senate and the Dutch. It involved a more ambitious target: a coordinated assault on Australian positions in Taiwan, with expected Dutch support.
 
-In other words, Zheng Zhilong and his brothers had been planning to draw the Dutch and the Senate into conflict, then attack both while they were weakened.
+In other words, Zheng Zhilong and his brothers had planned to draw the Dutch and the Senate into conflict, then attack both while they were weakened.
 
 It was an audacious plan—and it had very nearly worked.
 
-The Senate's quick investigation and Huygens's sympathetic response had short-circuited Phase One. Without Dutch-Senate hostilities, Phase Two couldn't proceed. Zheng Zhilong's conspiracy had failed.
+The Senate's swift investigation and Huygens's sympathetic response had short-circuited Phase One. Without Dutch-Senate hostilities, Phase Two couldn't proceed. Zheng Zhilong's conspiracy had failed.
 
 But the failure wouldn't stop him for long. The Zheng family would try again—perhaps with a different approach, perhaps with different targets. The underlying hostility between Zheng's maritime empire and the Senate's expansion remained.
 
@@ -28,17 +28,19 @@ The room fell silent, contemplating the close call.
 
 "The question now is: what do we do about Zheng Zhilong?" the chair asked.
 
-The debate that followed was fierce. Some argued for immediate military action—strike before the enemy could regroup. Others advocated for diplomatic pressure—use the evidence of the conspiracy to isolate Zheng internationally and undermine his alliances.
+The debate that followed was fierce. Some argued for immediate military action—strike before the enemy could regroup. Others advocated diplomatic pressure—use the evidence of the conspiracy to isolate Zheng internationally and undermine his alliances.
 
 A third faction proposed a combination: prepare for war, but delay the actual attack until conditions were optimal. Use the intervening time to complete the consolidation of Taiwan and strengthen naval forces.
 
-This third option eventually won out. Operation Engine would proceed, but on an accelerated timeline. Special forces units were deployed to the Taiwan Strait for reconnaissance. Intelligence assets were activated throughout Fujian Province.
+This third option eventually prevailed. Operation Engine would proceed, but on an accelerated timeline. Special forces units were deployed to the Taiwan Strait for reconnaissance. Intelligence assets were activated throughout Fujian Province.
 
 Meanwhile, the diplomatic front wasn't neglected. The evidence of Zheng's conspiracy was carefully documented and shared with selected Dutch officials—not to provoke them against Zheng, but to ensure they understood who the real enemy was.
 
 Huygens proved invaluable in this effort. His reports to Batavia emphasized that the Senate had acted in good faith, that the murder was the work of Chinese pirates trying to manipulate both powers, and that continued cooperation with the Australians was in the Company's interest.
 
 Whether the VOC hierarchy in Batavia would accept this narrative remained to be seen. But at least the groundwork was laid.
+
+---
 
 Back in Kaohsiung, Cretia threw herself into her work. She translated documents, helped draft communications with Dutch officials, and used her knowledge of Company procedures to advise on likely Dutch reactions to various scenarios.
 

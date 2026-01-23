@@ -1,95 +1,93 @@
 # Chapter 691 - The Ticket to Dongsha Island
 
-"A few pistols?" The fellow sitting in the cast-iron chair raised his eyebrows and once again displayed a childlike cheerful smile. "Dear Mr. Australian Federal Government Official, wouldn't you and your colleagues like to confiscate some more dangerous contraband? I think you'll be interested."
+"A few pistols?" The man lounging in the cast-iron chair arched an eyebrow, that boyish grin spreading across his face once more. "My dear Mr. Australian Federal Government Official, surely you and your colleagues would like to confiscate something a touch more... dangerous? I suspect you'll find it interesting."
 
-The refitted Vessel 8154 no longer had the appearance of a fishing boat. It now looked quite similar to a light escort vessel from around WWII. Besides the manually-rotated 70mm rifled cannon, a rotatable machine gun turret had been installed above the forecastle—and inside wasn't a typewriter but a genuine M240 machine gun. Without question, once it opened fire, it could disable any warship of this timeline within minutes.
+The refitted Vessel 8154 bore no resemblance to the fishing boat it had once been. Now it looked more like a light escort vessel from the Second World War era. Beyond the manually-rotated 70mm rifled cannon, a rotatable machine gun turret had been mounted above the forecastle—and what nestled inside was no typewriter, but a genuine M240 machine gun. When that weapon opened fire, it could reduce any warship of this era to matchwood within minutes.
 
-In the Lingao Navy's registry, Fishing Vessel 8154 was listed as an "8154-class High-Speed Cruiser"—aside from being slightly smaller, its firepower could even qualify it as a battleship of this timeline.
+In the Lingao Navy's registry, the vessel was classified as an "8154-class High-Speed Cruiser." Though somewhat undersized, its firepower would have qualified it as a battleship by seventeenth-century standards.
 
-Weiss Rando had traveled to Dongsha Island aboard one of these. Also coming were several motor-sail vessels and salvage boats temporarily converted from landing craft.
+Weiss Rando had made the voyage to Dongsha Island aboard just such a vessel. The expedition also included several motor-sail ships and salvage boats converted from landing craft.
 
-Since his interrogation, Rando had been secretly transferred to the Administrative Office's Second Guest House. Father Jin Lige had tried several times to visit him but was kept away with the terrifying excuse of "contagious disease." He enjoyed comfortable house arrest at the Second Guest House. Good food, hot baths—he received a cool cotton-linen blend summer uniform. Only later did he learn this was reserved for transmigrator-level personnel. Though this place couldn't replicate everything from the 21st century—most items were imperfect imitations—for Rando it was already very pleasant. Especially the white porcelain flush toilet in his bedroom washroom, which moved him deeply. Someone who hadn't experienced the 17th century's abysmal sanitary conditions would have difficulty understanding his emotion.
+Since his interrogation, Rando had been quietly transferred to the Administrative Office's Second Guest House. Father Jin Lige had attempted several visits, only to be turned away each time with the alarming excuse of "contagious disease." In truth, Rando was enjoying a rather comfortable house arrest. Fine meals, hot baths—he had even been issued a cool cotton-linen summer uniform, which he later learned was reserved for transmigrator-grade personnel. The accommodations couldn't perfectly replicate the twenty-first century—most amenities were imperfect imitations—but for Rando, they bordered on luxury. The white porcelain flush toilet in his bedchamber's washroom moved him nearly to tears. Anyone who hadn't endured the abysmal sanitary conditions of the seventeenth century would struggle to comprehend such emotion.
 
-At the Second Guest House, someone came to talk with him every day. The visitors varied. Some clearly showed the air of having lived in America in their manner and speech. Many spoke surprisingly good English.
+Each day at the Second Guest House brought new visitors. Their backgrounds varied—some carried themselves with the unmistakable air of Americans in their manner and speech. Many spoke surprisingly fluent English.
 
-Their conversations covered all topics—his mercenary work, weapons use, and even the situation of the Portuguese in Macao. Clearly they were interested in all information.
+The conversations ranged widely: his mercenary career, weapons expertise, the Portuguese situation in Macao. They were clearly hungry for every scrap of information he possessed.
 
-The woman who had called herself a federal law enforcement officer also visited once, discussing certain details of weapons trafficking with him. Including some of his past operations. Rando discovered the federal government actually knew his activities quite well—they just hadn't bothered to pursue them.
+The woman who had identified herself as a federal law enforcement officer visited once to discuss the finer details of arms trafficking—including some of his previous operations. Rando realized the federal government had known about his activities all along; they simply hadn't bothered to intervene.
 
-"What use is knowing so many details?" Rando gazed at this beautiful female agent. Though she wore coarse cloth uniforms, with blue eyes cold as ice, she remained charming and attractive. "Are you planning to prosecute me on behalf of the federal government?"
+"What use is all this detail?" Rando studied the beautiful agent before him. Despite her coarse cloth uniform, those ice-blue eyes remained captivating. "Are you planning to prosecute me on behalf of the federal government?"
 
-"Just want to learn more about the situation." Salina answered simply.
+"Just gathering information," Salina replied simply.
 
-"I'm quite curious," Rando looked at her. "How did you come to serve the Chinese?"
+"I confess I'm curious." He held her gaze. "How did you end up serving the Chinese?"
 
-"Similar to you." Salina shrugged indifferently. "Any other options?"
+"Much the same as you." She shrugged. "Were there other options?"
 
-"Of course not. Had I known they were living so comfortably, I should have come crying and begging for the Chinese to take me in earlier." Rando stretched. "God, they really live well!"
+"None whatsoever. Had I known they lived so comfortably, I'd have come crawling and begging for the Chinese to take me in years ago." Rando stretched luxuriously. "God, they really do live well."
 
-"They built this bit by bit. You're just here to enjoy the fruits."
+"They built all this from nothing. You're merely enjoying the fruits."
 
-"NO, NO," Rando wagged a finger. "I paid for my ticket."
+"No, no." He wagged a finger. "I paid for my ticket."
 
-Though he said this, Rando still felt vague anxiety—surely the situation wouldn't change?
+Yet even as he said it, a vague unease stirred within him. Surely the situation wouldn't change?
 
-Standing on deck gazing at the island—the barren island already showed the embryonic form of a base. As a mercenary who frequently traveled by ship around the world, he fully understood Dongsha Island's importance on the South China Sea route. The Chinese of Lingao's next step after occupying all Hainan Island would certainly be Taiwan.
+Now, standing on deck and gazing at the island, he could see the barren atoll already taking on the embryonic form of a base. As a mercenary who had sailed the world's seas, Rando fully appreciated Dongsha Island's strategic value along the South China Sea routes. The Lingao Chinese, having secured Hainan Island, would certainly turn their eyes toward Taiwan next—and Dongsha Island was a crucial waypoint on that route. Establishing it as a relay base seemed inevitable.
 
-And Dongsha Island was an important waypoint on the route to Taiwan. Occupying it as a relay base was unsurprising.
+But Dongsha lay relatively close to the mainland. Coastal fishermen frequently worked these waters, making intelligence leaks a constant risk. Once the transmigrator regime established a permanent presence here, attacks from Zheng Zhilong, Liu Xiang, or the Europeans became distinct possibilities. Maintaining security would require a garrison force. For these reasons, consensus on establishing a permanent base had remained elusive until recently.
 
-But Dongsha Island was relatively close to the mainland. Many coastal fishermen came here to fish, making information leaks easy. Once the transmigrator regime established a base here, attacks from Zheng Zhilong, Liu Xiang, or other Europeans were quite possible. Ensuring personnel and facility security required establishing a garrison force. Therefore, until recently there had been no consensus on whether to establish a permanent base here.
+What finally tipped the scales was intelligence about exploitable shallow petroleum deposits near Jilong. Taiwan, after all, represented a vital link in the empire's future continental chain. And so Dongsha's development had finally been placed on the agenda.
 
-However, intelligence about exploitable shallow petroleum resources near Jilong had stirred the hearts of quite a few transmigrators. Taiwan was, after all, an important link in the empire's future continental chain. So establishing a relay base at Dongsha was put on the agenda.
+The Industry Committee had already invested significantly in guano mining operations. They had cleared and repaired the island's wells, constructed a steam-powered pumping station, and—to supplement the limited freshwater output—installed a desalination plant that used waste heat from the steam engines to process brackish water drawn from saltwater wells.
 
-The Industry Committee had already made considerable investment here for guano mining. They had repaired and cleared the island's wells, established a steam pumping station, and to supplement the limited freshwater output, had set up a distillation plant using boiler heat from steam engines to desalinate water. This station used brackish water of lower salinity pumped from saltwater wells.
+Simple rail tracks now crisscrossed the island. Piers had been built and cranes erected to facilitate the export of guano. The surrounding waters teemed with fish, and the Agricultural Committee was preparing to establish a fisheries station for purchasing, processing, and storing seafood.
 
-Simple rail tracks had already been laid on the island, piers built, and cranes installed to facilitate export of guano. The waters around Dongsha had rich fishing resources. The Agricultural Committee was also preparing to establish a fisheries facility here specifically for purchasing, processing, and storing seafood.
+For defense, the Navy would construct a small fortress here. A pentagonal star fort was already rising beside the pier. Once completed, the Dongsha garrison would maintain four cannons and a Marine company on permanent station. Weather observation and navigation facilities would also be established, transforming the island into a crucial support base for maritime operations.
 
-As a garrison measure, the Navy would establish a small-scale fortress here. Beside the pier, a pentagonal star fort was under construction. Once completed, the Dongsha Island fortress would be permanently garrisoned by four cannons and a Marine company. Weather observation and navigation stations would also be established here as an important support base for future maritime navigation.
+The Agricultural Committee and Civil Affairs People's Committee had initially planned to settle a fishing village here. But geographic and hydrological surveys painted a sobering picture: no suitable harbor, harsh environmental conditions. History showed that fishermen had only ever worked these waters seasonally—a permanent village would struggle to survive. In the end, they opted for a fishing station staffed by Marines, with fishermen coming ashore only during the fishing season.
 
-The Agricultural Committee and Civil Affairs People's Committee had originally planned to establish a fishing village here with settlers. But after investigating geographic and hydrological data, they concluded there was no suitable harbor and the environment was harsh. Historically, fishermen only worked here seasonally, and a fishing village would have difficulty surviving. Ultimately they decided to only establish a fishing station here, normally managed by Marines, with fishermen landing during fishing season.
+The pier was now packed with vessels. Dongsha Island possessed no harbor—only beaches encircling the entire landmass. Apart from the pier, there was virtually nowhere to dock, making berths desperately tight. The transport fleet from Lingao had jammed every available space alongside. The landing craft had simply run themselves up onto the beach.
 
-The pier was now packed with vessels—Dongsha Island had no harbor, surrounded entirely by beaches. Aside from the pier, there was almost nowhere for ships to dock, making berths very tight. The transport fleet from Lingao had the pier's sides completely jammed. The landing craft had simply beached directly.
+When 8154 finally secured the island's only berth, Rando surveyed the simple facilities already dotting the landscape. Large shelters rose among the coconut groves. Black smoke and jets of steam billowed constantly skyward from the steam engines.
 
-When 8154 docked at Dongsha Island's only berth, he saw many simple facilities already built on the island. Large shelters stood among the coconut groves. Steam engine black smoke and steam constantly shot toward the sky.
+"You've established a relay base at Dongsha." He leaned against the ship's railing, glancing casually at Qian Shuiting beside him. "Planning to move on Taiwan?"
 
-"You've established a relay base at Dongsha—are you planning to go to Taiwan?" Rando leaned against the ship's railing, casually asking Qian Shuiting beside him.
+Qian Shuiting answered with a noncommittal smile. An American cigarette dangled from his lips—cargo salvaged from Vessel A, Rando's own shipment.
 
-Qian Shuiting responded with a bland smile. His lips held an American cigarette—this was Rando's cargo salvaged from Vessel A.
+"Taiwan is a matter for the future," he said evasively.
 
-"Taiwan is a future matter." He said evasively.
+"So is the world."
 
-"The world is also a future matter."
+Qian Shuiting's smile deepened, but he offered nothing more. Rando's status remained unconfirmed, and he had no desire to be savaged by populist factions in the Yuan Laoyuan for speaking too freely.
 
-Qian Shuiting smiled. Rando's status hadn't been confirmed yet, and he didn't want to discuss too much, lest he be attacked by populist factions in the Yuan Laoyuan.
+When Rando stepped onto the pier, he found a simple rail network already in place. Empty ore cars sat on the tracks alongside primitive cranes. The pier's surface was dusted everywhere with grayish-white powder and gravel that gleamed with a glassy sheen.
 
-When Rando stepped onto the pier, he discovered a simple rail track had already been built on Dongsha Island. Many empty ore cars sat on the tracks, along with simple cranes. The pier surface was covered everywhere with grayish-white powder and gravel with a glassy sheen.
+"What exactly are you mining on this barren rock? Coral?"
 
-"What are you mining on this barren island? Coral?"
+"Guano," Qian Shuiting replied simply. He had accompanied the salvage team as a weapons consultant, though the Political Security Bureau had given him an additional assignment: interpreter and escort for the mercenary.
 
-"Guano." Qian Shuiting said simply. He had come with the salvage team as a weapons consultant. The Political Security Bureau had given him an additional task: serving as this mercenary's interpreter and escort.
+"Don't go out of your way to interrogate him," Wu Mu had instructed. "Just treat it as official escort duty with translation on the side. Speak freely."
 
-"You don't need to deliberately ask him anything. Just treat it as official escort plus interpreter." Wu Mu had said. "You can speak freely with him."
+"Speak freely? Is that wise?"
 
-"Speak freely—is that appropriate?"
+"Completely. If he's one of us, he'll need to know everything eventually. If he's not, what he learns won't matter."
 
-"Correct. Speak freely." Wu Mu said easily. "If he's one of us, he should know everything anyway. If he's not, knowing won't matter."
+Rando had no interest in guano. He smoked Lingao-produced cigarettes now; he had grown accustomed to this era's tobacco, and American smokes seemed to lack body.
 
-Rando had no interest in guano. He smoked Lingao-produced cigarettes. He had grown accustomed to these timeline's cigarettes; American smokes now seemed lacking in flavor.
+They made their way to a temporary camp nestled in the coconut grove. Sheds and large tents had been erected throughout. Diving equipment lay unpacked, undergoing final checks—including an old-fashioned two-person hand-cranked air pump. Yellow-painted gasoline drums stood in neat stacks beneath waterproof tarps.
 
-They came to a temporary camp in the coconut grove. Many sheds and large tents had already been erected inside. Some diving equipment had been unpacked and was undergoing final testing. Among this miscellaneous gear was even an old-fashioned two-person hand-cranked air pump. There were also gasoline drums painted yellow, neatly stacked with waterproof tarps over them.
+The scale of the operation made one thing clear: his ticket price had captured Lingao's interest. But if they salvaged nothing, he would be a dead man.
 
-Given this scale of operation, his ticket price had obviously captured the interest of the Chinese of Lingao. But if they salvaged nothing, he would die without a burial place.
+"I hope everything goes smoothly," he muttered.
 
-"I hope everything goes well!" He muttered.
+Zhou Weisen and Lin Chuanqing, the diving team leaders, were already huddled over a nautical chart in the command post, discussing descent plans. The chart of Dongsha's waters bore pencil marks at several points.
 
-Zhou Weisen and Lin Chuanqing, in charge of diving, were already discussing the descent plan in the command post. A nautical chart of the waters around Dongsha Island was spread on the table, already marked with pencil in several places.
+Everyone shook hands. At Lin Chuanqing's gesture, a sailor brought over bottles of iced soda. They sat and drank gratefully.
 
-Everyone shook hands courteously. Lin Chuanqing gestured, and a sailor brought over iced soda. Everyone sat down and drank heartily.
+"Based on the coordinates you provided, we'll search these points systematically starting tomorrow. Small boats have already gone out to drop buoys—no GPS here, unfortunately. We had to calculate positions with sextants, so we're hoping for no errors." Zhou Weisen studied the chart. "Average depth is under twenty meters. Diving should be straightforward."
 
-"Based on the coordinates you provided, we'll search these points one by one starting tomorrow. Small boats have gone to drop buoys—unfortunately there's no GPS here. We calculated using sextants. Hopefully without error." Zhou Weisen said. "Average depth is under 20 meters, so diving should be relatively easy."
+"I'm curious," Lin Chuanqing said. "When you sank the ship, how did you plan to salvage it later?"
 
-Lin Chuanqing said: "I'm curious. When you sank the ship, how did you plan to salvage it later?"
+"Hire divers, naturally." Rando spread his hands. "How was I to know I'd wind up somewhere without any?"
 
-"Hire divers, of course." Rando said. "How was I to know I'd come to a place without divers?"
-
-"Then how did you retrieve the weapons you brought to Macao from the ship? Though it sank shallow, entering a sunken ship for diving? Unless you're a very professional diver!" Zhou Weisen indicated this was hard to imagine.
+"Then how did you retrieve the weapons you took to Macao? The wreck may be shallow, but diving into a sunken ship? That requires a very professional diver." Zhou Weisen shook his head skeptically.

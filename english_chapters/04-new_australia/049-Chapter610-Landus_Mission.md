@@ -10,7 +10,7 @@
 
 "Can you estimate their strength?"
 
-"I can't estimate that, but in the harbor, you can always see roughly two companies of infantry, very well-trained—completely European-style training, very well-equipped. Gunners and sailors aren't counted. If the sailors were fully armed, you could organize at least twenty companies. These sailors are equally well-trained. The Australians have many firearms and plenty of ammunition."
+"I can't estimate that precisely, but in the harbor, you can always see roughly two companies of infantry, very well-trained—completely European-style training, very well-equipped. Gunners and sailors aren't counted. If the sailors were fully armed, you could organize at least twenty companies. These sailors are equally well-trained. The Australians have many firearms and plenty of ammunition."
 
 "So you think the Dutch have no chance of attacking Lingao."
 
@@ -18,7 +18,7 @@
 
 "So they're willing to pay five thousand guilders," Li Siya said.
 
-"Our relationship with the Australians is quite good. The Goa trade is very profitable. Why get involved in this for the Dutch?" Li Huamei's meaning was that they were doing well with the Australians, so why bother stirring up trouble?
+"Our relationship with the Australians is quite good. The Goa trade is very profitable. Why get involved in this for the Dutch?" Li Huamei's meaning was clear: they were doing well with the Australians, so why bother stirring up trouble?
 
 "This isn't as simple as five thousand guilders." Li Siya lifted a corner of the window curtain and gazed at the fountain trickling in the courtyard. "You said yourself: over these three years, the Australians' power has been growing day by day. When they become strong enough to ignore all the powers of the South China Sea, will there still be good days for us sisters?"
 
@@ -44,11 +44,13 @@ Li Huamei remained expressionless: "What do you have in mind?"
 
 "Him? He has some use. But the person I want to use is this one: Weiss Landu."
 
+---
+
 So she dispatched her most trusted black slave woman, who often handled her secret affairs, to meet with Landu. This woman not only spoke excellent Portuguese but was also a cold-blooded killer when necessary. She was skilled at concocting poisons and administering them, having quietly eliminated quite a few enemies and people Li Siya found annoying.
 
 Li Siya, with her keen instincts and omnipresent spies—she maintained a large group of dregs from all nationalities in Macau as eyes and ears—had her finger on the pulse of the city.
 
-When Weiss Landu appeared in Macau, he hadn't attracted much of her interest. Just another European failure common in the Far East—relying on brute strength and skill with weapons to eke out an advantage. Even on the *Countess of Scarborough*, she hadn't paid him much attention. Except for his strangely accented Italian and his manner that stood out from everyone around him.
+When Weiss Landu first appeared in Macau, he hadn't attracted much of her interest. Just another European failure common in the Far East—relying on brute strength and skill with weapons to eke out an advantage. Even on the *Countess of Scarborough*, she hadn't paid him much attention. Except for his strangely accented Italian and his manner that stood out from everyone around him.
 
 Later, she'd seen him multiple times on the streets, in taverns, and in churches. She'd never given him much thought. Then once, one of her subordinates brought her something strange.
 
@@ -56,7 +58,7 @@ It was a rectangular piece of paper, exquisitely printed, with a circular portra
 
 The source of this paper was the landlady of the small inn where Landu lodged. He'd gotten drunk and tried to pay his bill with this paper. When refused, he'd thrown a drunken tantrum and stuffed it into the landlady's bodice.
 
-Li Siya had someone give the landlady one real to buy this paper. It reminded her of similar printed materials she'd found on Treasurer Wen's person back then. Though Treasurer Wen's had been red, with the Arabic numeral 100. The portrait had been of an Asian man. And the text on it had been Chinese.
+Li Siya had sent someone to give the landlady one real to buy this paper. It reminded her of similar printed materials she'd found on Treasurer Wen's person back then. Though Treasurer Wen's had been red, with the Arabic numeral 100. The portrait had been of an Asian man. And the text on it had been Chinese.
 
 So Weiss Landu was an Australian! At least he had extremely deep connections with the Australians! Li Siya felt like she'd discovered a new continent. Thinking back, when Aragon had gone to raid Lingao, it had been walking right into a trap! Needless to say, this man had been sent to Macau by the other side for her.
 
@@ -84,11 +86,15 @@ The Dutch wanted to probe Lingao's secrets. She could have Landu go. If Landu wa
 
 If that were the case, Landu would be an invaluable asset! Li Siya thought. The Australians were bound to become a major power in the South China Sea in the future. Having someone who knew their background in her hands—the benefits were incalculable.
 
+---
+
 Landu still didn't know he'd already been outsmarted by Li Siya. Since he'd accepted the money, he decided to personally visit Lingao. He'd see with his own eyes what the Chinese were doing in Lingao, and assess whether he could defect to them. From his perspective, no army of this time-space could possibly be a match for Chinese armed with modern weapons. If the Chinese somehow managed to lose to people of this time-space, he might as well abandon any thought of defecting to them.
 
 But a European face going to Lingao would be too conspicuous. The Chinese would keep tabs on him the moment he arrived. Pretending to be a merchant was impossible—he didn't look like a merchant, knew nothing about local trade, and couldn't stand up to questioning. Landu thought it over and decided to pose as a priest's attendant. The Jesuits were recently sending two priests to Lingao. Lu Ruohua's letters requesting more priests had arrived, and the Jesuits had subsequently dispatched three more. But Lingao's demand for priests kept growing. Recently, a priest had "been called to the Lord" while preaching in the Li region. Per the Lingao church's request, the Jesuits decided to send two more priests to missionize there.
 
 Landu went to request Father Komahe, simply saying he was curious about Lingao and hoped to join the group and take a look. His request was immediately approved. So Landu became a member of the Jesuit delegation.
+
+---
 
 Spring sunlight filtered through the gaps in the bamboo and tree foliage outside the window, casting dappled shadows on the brick floor. Light breezes stirred the emerald bamboo, and a curtain of fragmentary shadows flowed back and forth like a stream.
 
@@ -110,9 +116,9 @@ Now Wang Zunde held three side letters.
 
 The main letter was the usual polite pleasantries about health and well-being. Wang Zunde skimmed through it. The first side letter discussed news from the capital. He roughly read it over—it discussed recent court developments: Yuan Chonghuan's prospects didn't look good. More than a month ago, the court had dispatched people to Guangxi to arrest Yuan Yuansu's family in Teng County and bring them to the capital.
 
-This once highly-favored official probably couldn't escape execution. Though Yuan Yuansu had no connection to him and wouldn't implicate him, watching him go from favor to arrest, he couldn't help feeling that old sentiment about the death of the hare and the grief of the fox. He picked up the second side letter.
+This once highly-favored official probably couldn't escape execution. Though Yuan Yuansu had no connection to him and wouldn't implicate him, watching him go from favor to arrest, Wang Zunde couldn't help feeling that old sentiment about the death of the hare and the grief of the fox. He picked up the second side letter.
 
-This one contained news about the court's battles with the Jurchen and the bandits. The eastern front had temporarily quieted after the court recovered Zunhua. But in the northwest, the bandit situation was growing day by day, showing signs of spreading. Moreover, among them, Shaanxi garrison soldiers, frontier troops, military households "joining the bandits were quite numerous."
+This one contained news about the court's battles with the Jurchen and the bandits. The eastern front had temporarily quieted after the court recovered Zunhua. But in the northwest, the bandit situation was growing day by day, showing signs of spreading. Moreover, among them, Shaanxi garrison soldiers, frontier troops, and military households "joining the bandits were quite numerous."
 
 Reading this, Wang Zunde couldn't help but snort coldly. In his heart, he thought this was entirely to be expected. The frontier troops had been in arrears for years now. As for disbanding the courier stations—that was an even worse move. Shaanxi and the northwest were harsh, cold lands. Unlike the fertile regions of Jiangnan and Guangdong, where even begging could barely keep one alive. Originally, people there barely scraped by, half-starved. Now that they'd been dismissed, if they didn't rebel, where would they find a way to live?
 
@@ -124,9 +130,9 @@ This one was very brief but quite important. It mainly said that since Xiong Wen
 
 "Hmph." Wang Zunde grunted. Xiong Wenhan's trick was just using one bandit to suppress another, hoping both sides would wear each other down while he reaped the benefits. But this matter probably wasn't as simple as he imagined.
 
-Guangdong's side didn't deal much with Zheng Zhilong, but they knew quite a bit about him. Most information came from the Portuguese. Including Zheng Zhilong's history and his special connections in Japan. Wang Zunde was well aware that Zheng Zhilong was no ordinary character. He wasn't someone who would be satisfied with an empty military title like "Commander."
+Guangdong's side didn't deal much with Zheng Zhilong, but they knew quite a bit about him. Most information came from the Portuguese, including Zheng Zhilong's history and his special connections in Japan. Wang Zunde was well aware that Zheng Zhilong was no ordinary character. He wasn't someone who would be satisfied with an empty military title like "Commander."
 
-After receiving pacification, he'd refused to leave Zuosuowei and squatted on Jinxia Island. His purpose was simply to use this as a port for trade with Japan. Twice a year, the Portuguese came to Guangzhou to trade. From their mouths, he'd learned much useful information. For example, compared to Yuegang, Zuosuowei was more ideal as a trading port. Zheng Zhilong had repeatedly attacked Yuegang not to plunder, but to force merchants to stop trading there...
+After receiving pacification, Zheng Zhilong had refused to leave Zuosuowei and squatted on Jinxia Island. His purpose was simply to use this as a port for trade with Japan. Twice a year, the Portuguese came to Guangzhou to trade. From their mouths, Wang Zunde had learned much useful information. For example, compared to Yuegang, Zuosuowei was more ideal as a trading port. Zheng Zhilong had repeatedly attacked Yuegang not to plunder, but to force merchants to stop trading there...
 
 "Zheng the Brigand has a wolf's heart and wild ambitions. He absolutely hasn't truly surrendered to the court!" This was Gao Shuncheng's comment at the time when he heard Zheng Zhilong had been pacified—privately, of course.
 

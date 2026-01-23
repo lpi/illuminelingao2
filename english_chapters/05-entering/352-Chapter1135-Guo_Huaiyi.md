@@ -1,87 +1,87 @@
 # Chapter 1135 - Guo Huaiyi
 
-However, Zheng Zhilong didn't place much importance on Taiwan. Since gaining control of Anping, he'd opened a direct trade route to Japan and wasn't very interested in Taiwan as a trade waystation. Apart from encouraging southern Fujian migration, he hadn't devoted much thought to increasing actual control over Taiwan—of course, he didn't have the energy for it at present.
+Zheng Zhilong, however, placed little importance on Taiwan. Since gaining control of Anping, he had established a direct trade route to Japan and saw little value in Taiwan as a waystation. Beyond encouraging migration from southern Fujian, he had devoted scant thought to increasing actual control over the island—nor, in truth, did he possess the resources to do so.
 
-Due to the lack of support from the mainland, Guo Huaiyi had to organize self-defense on his own. His approach was simple: on major matters, submit to the Dutch, pay head taxes, provide corvée labor, and supply the Dutch with various Taiwanese trade goods—Taiwan's main export, deerskins, mostly came from hunters among the southern Fujian migrants or small traders daring to deal with the natives. This made the Dutch view the southern Fujian migrants in Tainan as "useful subjects" and willing to use force to protect them. Successive *opperhoofd* governors had spared no effort in subduing the natives, largely to ensure the migrants' working safety.
+Lacking support from the mainland, Guo Huaiyi was forced to organize defense on his own. His approach was pragmatic: on major matters, he submitted to the Dutch. He paid head taxes, provided corvée labor, and supplied the Dutch with Taiwanese trade goods—particularly deerskins, which mostly came from hunters among the southern Fujian migrants or from small traders brave enough to deal with the natives. This cooperation made the Dutch view the Fujian migrants in Tainan as "useful subjects" worthy of military protection. Successive *opperhoofd* governors had spared no effort in subduing the natives, largely to ensure the migrants' working safety.
 
-Of course, the Dutch themselves had limited strength, sometimes barely able to look after themselves. So for smaller matters, Guo Huaiyi could only encourage each village to form militia for self-defense. The Fujianese who migrated to Taiwan were mostly from the southern Fujian region, already strongly regional in character. Moreover, migrants often moved in clan units, easily forming small group villages centered on regional and clan ties. Many local strongmen emerged.
+Of course, the Dutch themselves commanded limited strength, sometimes barely able to protect their own interests. So for smaller matters, Guo Huaiyi encouraged each village to form militias for self-defense. The Fujianese who crossed to Taiwan came overwhelmingly from southern Fujian, a region already marked by intense regional loyalties. Moreover, migrants often relocated in clan units, naturally forming villages centered on kinship and common origin. Local strongmen inevitably emerged.
 
-The southern Fujian migrant strongman groups continued to dominate Taiwan's grassroots society even after the Qing recovery of Taiwan, even more severely than on the mainland. Combined with serious malaria problems, outside officials and runners often couldn't adapt to the climate, dying before completing their terms. The one prefecture and two counties the Qing established in Taiwan had no control over the grassroots level—even sending runners and officials to the countryside on business carried personal danger. Lin Shuangwen, who later rose up during the Qianlong era, came from this background.
+This pattern of southern Fujian strongman groups dominating local society would persist even after the Qing recovery of Taiwan—in some ways more severely than on the mainland. Compounded by serious malaria, which killed outside officials and runners before they could complete their terms, the one prefecture and two counties the Qing eventually established in Taiwan exercised virtually no grassroots control. Even sending functionaries to the countryside on official business carried personal danger. Lin Shuangwen, who would later rise in rebellion during the Qianlong era, came from precisely this milieu.
 
-Guo Huaiyi was the leader of this strongman alliance. Li Siya understood clearly that his position in the "Great Company" was the same as Zheng Zhilong's—possessing great prestige and power, but not absolute authority.
+Guo Huaiyi led this alliance of strongmen. Li Siya understood clearly that his position in the "Great Company" mirrored Zheng Zhilong's: commanding great prestige and considerable power, but lacking absolute authority.
 
-Therefore, she decided to say as little as possible to Guo Huaiyi, speaking only about matters relevant to the mission.
+Therefore, she resolved to say as little as possible to Guo Huaiyi, speaking only about matters directly relevant to the mission.
 
-She presented Zheng Zhifeng's token. Guo Huaiyi gazed at it for a long moment, then invited her to the inner courtyard for tea. The two began their secret discussion.
+She presented Zheng Zhifeng's token. Guo Huaiyi studied it for a long moment, then invited her to the inner courtyard for tea. The secret discussion began.
 
-Guo Huaiyi already knew Li Siya's purpose. A messenger had brought Zheng Zhifeng's letter several days earlier. He'd been waiting for her arrival.
+Guo Huaiyi already knew her purpose. A messenger had delivered Zheng Zhifeng's letter several days earlier. He had been awaiting her arrival.
 
-What Li Siya cared most about was the Australians' specific situation in Taiwan—Zheng Zhifeng had only told her that the Australians had brought large numbers of migrants to the Takau area and were building castle fortifications on a grand scale.
+What Li Siya most wanted to know was the Australians' precise situation in Taiwan. Zheng Zhifeng had told her only that the Australians had transported large numbers of migrants to the Takau area and were constructing castle fortifications on a grand scale.
 
-"Miss," Guo Huaiyi mused for a moment, "I should take you to visit the area personally. You should see for yourself. Otherwise, mere words would be hard to explain clearly."
+"Miss," Guo Huaiyi mused for a moment, "I should take you to see the area personally. You need to observe for yourself. Otherwise, mere words would scarcely do it justice."
 
-Li Siya felt this was reasonable—after all, she'd need to see things firsthand before making concrete plans. She agreed: "Very well. I'll trouble you to send some capable people to guide me."
+Li Siya found this reasonable—she would need firsthand reconnaissance before formulating concrete plans. "Very well. I would be grateful if you could send capable guides."
 
-"No trouble at all—easy to arrange." Guo Huaiyi said the southern Fujian migrants here had recently had much contact with the Australians in Takau. The two sides frequently traded. Some people had even simply moved to Takau to live. Finding reliable, knowledgeable guides would be easy.
+"No trouble—easy to arrange." Guo Huaiyi explained that the southern Fujian migrants had recently established considerable contact with the Australians in Takau. The two sides traded frequently, and some people had simply relocated there. Finding reliable, knowledgeable guides would be straightforward.
 
-"What's the Dutch attitude toward the Australians?" This was Li Siya's primary concern.
+"What is the Dutch attitude toward the Australians?" This was Li Siya's primary concern.
 
-"The Governor is deeply worried about the Australians," Guo Huaiyi said. "One might even say he's losing sleep over it."
+"The Governor is deeply troubled," Guo Huaiyi replied. "One might say the matter keeps him awake at night."
 
-Hans Putmans was extremely worried about the Australians' migration activities in Takau. First was the Australians' terrifying logistics capability. In less than half a year, they'd transported forty thousand migrants to Takau. To put this in perspective, the southern Fujian migration that had begun in Yan Siqi's era and continued for over a decade hadn't brought this many migrants. And accompanying the migrants came a steady stream of building materials and massive quantities of supplies.
+Hans Putmans was extremely worried about Australian activities in Takau. First was their terrifying logistical capability. In less than half a year, they had transported forty thousand migrants to the area. To appreciate this scale: the southern Fujian migration that had begun in Yan Siqi's era and continued for over a decade had not delivered this many people. And accompanying the migrants came a ceaseless flow of building materials and massive quantities of supplies.
 
-The Dutch had gone through five governors in Taiwan before finally constructing a proper castle. But from the moment they landed, the Australians had built a fortress larger than Fort Zeelandia, completing 80% of the work in less than half a year. Simultaneously, they'd built docks, dredged the harbor, and extensively cultivated wasteland.
+The Dutch had gone through five governors in Taiwan before finally constructing a proper castle. But from the moment they landed, the Australians had erected a fortress larger than Fort Zeelandia, completing eighty percent of the work in less than half a year. Simultaneously, they had built docks, dredged the harbor, and extensively cultivated wasteland.
 
-No wonder Hans Putmans was losing sleep with such terrifyingly efficient neighbors possessing such maritime transport capacity just a few dozen leagues away.
+Little wonder that Hans Putmans was losing sleep with such terrifyingly efficient neighbors—possessing such maritime transport capacity—positioned just a few dozen leagues away.
 
 ---
 
-"...Just over ten days ago, the Governor invited us to a meeting at the trading post, warning us to be careful of the Australians," Guo Huaiyi said with a smile.
+"Just over ten days ago, the Governor invited us to a meeting at the trading post to warn us about the Australians," Guo Huaiyi said with a knowing smile.
 
 "Oh? What did he say?"
 
-"Just the usual—be careful, best not to have much contact with the Australians, that sort of thing," Guo Huaiyi said. "The Dutch are very afraid the Australians will pull us over to their side. Then there'd be no one to work for them, collect deerskins, or pay head taxes."
+"The usual platitudes—be careful, best not to have much contact with the Australians, that sort of thing." Guo Huaiyi shrugged. "The Dutch fear the Australians will pull us over to their side. Then there would be no one to work for them, collect deerskins, or pay head taxes."
 
 "Do the Australians have such intentions?"
 
-Guo Huaiyi shook his head. "No. They've never sent anyone to recruit us. They seem completely uninterested in us." He said with interest, "On the contrary, quite a few of our people have been attracted there—some for trade, some for work, and some have simply moved over."
+Guo Huaiyi shook his head. "No. They have never sent anyone to recruit us. They seem completely uninterested in our people." A glint of amusement entered his eye. "On the contrary, quite a few of our folk have been attracted there—some for trade, some for work, and some have simply relocated."
 
-"So the Australians in Takau are completely open?"
+"So the Australians in Takau operate entirely openly?"
 
-"Correct. Anyone who wishes can go there to work, trade, or even settle," Guo Huaiyi said. "They're quite free, coming and going as they please. I hear many Japanese from Tayouan have gone over too."
+"Correct. Anyone who wishes may go there to work, trade, or even settle. They are quite free about it—people come and go as they please. I hear many Japanese from Tayouan have gone over as well."
 
-"Why would the Japanese go?" Li Siya was puzzled.
+"The Japanese?" Li Siya was puzzled. "Why would they go?"
 
-"Because Hans Putmans forbids the Japanese from praying according to Jesuit rituals—they have to pray according to the Dutch 'true Christian' rites. The Japanese have always objected. Now the Australians have Jesuit missionaries and even a small chapel. Many Japanese have gone over."
+"Because Hans Putmans forbids the Japanese from worshipping according to Jesuit rituals—they must pray according to Dutch Reformed rites. The Japanese have always resented this. Now the Australians have Jesuit missionaries and even a small chapel. Many Japanese have made the move."
 
-"Is that so!" Li Siya now understood the Dutch Governor's concern even better. The Japanese were very important to the Dutch in Tayouan. Though they didn't play as economically important a role as the southern Fujian migrants, they were an important source of Dutch sailors and soldiers.
+"Is that so!" Li Siya understood the Governor's anxiety more clearly now. The Japanese were important to the Dutch presence in Tayouan. Though they did not play as economically vital a role as the southern Fujian migrants, they constituted an important source of sailors and soldiers for Dutch operations.
 
-Now the Australians had extended their reach here—these Australians were certainly skilled at poaching!
+And now the Australians had extended their reach here. These Australians were certainly skilled at poaching talent.
 
-Li Siya felt an even stronger urge to meet the Australians again.
+Li Siya felt a strengthening urge to encounter the Australians again.
 
-The situation she'd learned was very satisfactory: the Dutch in Tayouan were full of worry and fear toward the Australians. Moreover, she knew that since the East India Company had established trading posts in both Hong Kong and Hainan, large quantities of Chinese goods were being transshipped from Guangdong, severely impacting Tayouan's trade.
+The intelligence she had gathered was highly satisfactory: the Dutch in Tayouan were filled with worry and fear toward the Australians. Moreover, she knew that since the East India Company had established trading posts in both Hong Kong and Hainan, large quantities of Chinese goods were being transshipped from Guangdong, severely impacting Tayouan's trade.
 
-The East India Company had originally established its trading post in Taiwan specifically for its role as a window for China trade procurement—enduring unpredictable partners, various inconveniences, and constant losses. The Company needed to attract Chinese merchants here to sell the various goods it urgently needed.
+The Company had originally established its trading post in Taiwan specifically for China trade procurement—enduring unreliable partners, various inconveniences, and constant losses. The Company needed to attract Chinese merchants to sell the goods it urgently required.
 
-But now, Hong Kong and Sanya could meet most of the Company's needs. Were it not for Tayouan's advantage in nearby procurement of Fujian export porcelain and indigo, and its role as a Japan trade base, it would have no value at all. One could imagine the mood of the Taiwan Governor whose importance kept declining.
+But now, Hong Kong and Sanya could meet most of the Company's needs. Were it not for Tayouan's advantage in procuring Fujian export porcelain and indigo nearby, and its role as a base for the Japan trade, the post would have no value at all. One could readily imagine the mood of a Governor whose importance declined by the month.
 
-Professionally and personally, Hans Putmans could have no good feelings toward the Australians, making him easy to manipulate.
+Professionally and personally, Hans Putmans could have no warm feelings toward the Australians. That made him easy to manipulate.
 
-As for the Australians—Li Siya believed that, as a rising maritime hegemon themselves, they wouldn't be full of friendly feelings toward the Dutch. At bottom, their current trade cooperation was mutual benefit, with no trust component.
+As for the Australians themselves—Li Siya believed that, as a rising maritime power, they could hardly feel benevolent toward the Dutch. At bottom, their current trade cooperation was purely transactional, devoid of trust.
 
-Perhaps internally, both sides had intentions to fire on each other, to devastate or even destroy their rival in one blow. Li Siya had served the East India Company and spied on the Australians; she understood the Dutch thinking well.
+Perhaps internally, both sides harbored intentions to fire upon each other, to devastate or even destroy their rival in a single blow. Li Siya had served the East India Company and spied upon the Australians; she understood Dutch thinking very well.
 
-"Are there any important Company figures in Tayouan Harbor recently?"
+"Are there any important Company figures in Tayouan Harbor at present?"
 
-"I'm not sure. I don't go to Tayouan often," Guo Huaiyi said. "If you wish, I'll have someone investigate tomorrow."
+"I am not certain. I don't visit Tayouan often." Guo Huaiyi stroked his chin. "If you wish, I'll have someone investigate tomorrow."
 
-"Good. Also, if possible, I'd like to visit Tayouan personally first."
+"Good. Also, if possible, I would like to visit Tayouan personally first."
 
-Guo Huaiyi studied her and said: "Forgive my frankness: Miss Li is a bit too conspicuous..."
+Guo Huaiyi studied her and spoke frankly: "Forgive my directness, but Miss Li is rather conspicuous..."
 
-In a place like Taiwan, ordinary women appearing in public wasn't unusual—especially southern Fujian women, who were often important laborers. The problem was that Li Siya was Chinese-Portuguese mixed race, with an unusual appearance, and clearly a wealthy lady at first glance.
+In a place like Taiwan, ordinary women appearing in public was unremarkable—especially southern Fujian women, who often served as important laborers. The problem was that Li Siya was of mixed Chinese-Portuguese heritage, with striking features, and clearly a woman of wealth at first glance.
 
-Li Siya smiled. "Don't worry. I'll put on some makeup. I guarantee no one will recognize my face."
+Li Siya smiled. "Don't worry. I shall apply some makeup. I guarantee no one will recognize my face."
 
 (End of Chapter)

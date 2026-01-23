@@ -1,93 +1,103 @@
 # Chapter 1087 - Bombardment
 
-Next, several soldiers began to load gunpowder—the Dengzhou Army gunners used fixed charge bags for loading, each bag weighing one *jin*. They loaded according to the range needed. Then someone used a ramrod to ram it tight. There was a lot of learning in this: if rammed too tight, the gunpowder would smolder, causing failure to fire, and a loading spade had to be used to loosen it; but when loosening, the gunpowder might suddenly burn rapidly.
+Then came the loading of gunpowder. The Dengzhou Army gunners used fixed charge bags, each weighing one *jin*. They loaded according to the range required. A soldier then tamped the powder tight with a ramrod. There was considerable art to this: pack it too tightly and the powder might smolder, causing a misfire. A loading spade would then be needed to loosen it—but during loosening, the powder might suddenly burn rapidly, with catastrophic results.
 
-These gunners were all trained by Portuguese, so their gestures and actions were very standardized. A soldier filled a wad into the bore, then a large ball wrapped in wooden red cloth was sent into the belly. Subsequently, a bag of twelve small shots was sent in. Then the patrol leader measured with a gun ruler again, adjusting the elevation angle of the cannon according to the range.
+These gunners had all received Portuguese training, and their gestures and movements were highly standardized. A soldier inserted a wad into the bore, then a large ball wrapped in red cloth was sent into the chamber. Subsequently, a bag containing twelve smaller shot was loaded behind it. The patrol leader took another measurement with the gun ruler, adjusting the cannon's elevation according to the range.
 
-This set of methods was high-tech in the late Ming—the Dengzhou Army was trained single-handedly by the Portuguese. Ordinary Ming Army gunners had no idea there were so many essentials to firing a cannon.
+This methodology represented high technology for the late Ming. The Dengzhou Army had been trained entirely by the Portuguese. Ordinary Ming Army gunners had no conception that firing a cannon involved so many essential steps.
 
-Ma Linxi was moving cannonballs. A twelve-pound cannonball was not considered heavy, but for him, a person who had only eaten some swill water and pot scrapings for so many days, it was still too heavy. Just as he was holding his breath to move the cannonball, suddenly someone kicked him hard on the butt. He instantly fell flat on his face, a "dog chewing mud." The cannonball also rolled away too far. A burst of wild laughter immediately rang out around him.
+---
 
-Ma Linxi hurriedly climbed up, not even daring to lift his head, and ran straight for the cannonball. This big cannonball was very precious. According to the gunner master, one cost several *mace* of silver.
+Ma Linxi was moving cannonballs. A twelve-pound ball was not particularly heavy, but for a man who had subsisted on nothing but swill water and pot scrapings for days, it was still too much. Just as he was holding his breath to carry a ball, someone kicked him hard in the backside. He pitched forward instantly, performing a "dog eating mud" faceplant. The cannonball rolled away. Wild laughter erupted around him.
 
-With great difficulty, he moved the cannonball back—the rebel gunners did not allow coolies to roll cannonballs on the ground, allegedly for fear of scratching the surface of the cannonball or mixing in mud and sand, which were all taboo things—Ma Linxi's face was covered in cold sweat, panting from weakness.
+Ma Linxi scrambled up without daring to raise his head and ran straight for the ball. These cannonballs were precious. According to the gunner masters, each one cost several *mace* of silver.
 
-A small boss monitoring the coolies aside sneered and said lazily: "Eating is fast enough, moving things has no strength, truly waste!" Saying this, he drew out his waist saber with a "swish."
+With tremendous effort, he carried the ball back. The rebel gunners did not permit coolies to roll cannonballs along the ground, supposedly because scratching the surface or allowing mud and sand to adhere were both taboo. By the time Ma Linxi returned, his face was drenched in cold sweat, his breath coming in ragged gasps.
 
-Ma Linxi was so scared that he knelt on the ground begging for mercy repeatedly. several coolies around were also so scared that they knelt down to beg for mercy.
+A petty boss supervising the coolies sneered lazily from nearby: "Fast enough when it's time to eat, but can't muster any strength for work. Truly useless!" He drew his waist saber with a metallic rasp.
 
-Fortunately, that boss was just scaring the coolies. Seeing them shivering with fright one by one, he laughed loudly a few times. Seeing this, the coolies hurriedly got up one by one and continued to move cannonballs and gunpowder.
+Ma Linxi was so terrified he dropped to his knees, begging for mercy repeatedly. Several coolies nearby collapsed to their knees as well, pleading frantically.
 
-Ma Linxi had been doing this job for more than ten days. He used to be a carpenter, moving around the countryside of Huang County with tools on his back to work: repairing farm tools for people, building furniture, and helping out when houses were built. Although he slept in the wind and dew and earned some hard money, at least one person ate full and the whole family was not hungry.
+Fortunately, the boss was merely intimidating them. Seeing them trembling with fright one by one, he threw back his head and laughed. The coolies hurriedly rose and resumed moving cannonballs and powder.
 
-After the rebels came, the whole village was razed to the ground, so Ma Linxi had to "join the gang" with the refugees. Because of this craft, he was allocated to the artillery team—the artillery team always had times when repairs were needed. In the eyes of others, this Ma Linxi already had a huge advantage: First was being able to eat on time. Whether refugees assigned to the infantry units had food to eat depended entirely on luck and fists: rebel soldiers only gave each team of refugees a few baskets of black steamed buns made of unknown things every day, so that every mealtime caused fights, killing a few people.
+Ma Linxi had been at this labor for more than ten days now. He had once been a carpenter, wandering through Huang County's countryside with tools on his back: repairing farm implements for people, building furniture, helping out when houses were constructed. Though he slept rough and earned hard money, at least one person eating his fill meant the whole family was not hungry.
 
-Although in the artillery team he worked more than an ox and ate less than a dog—the rebel soldiers in the artillery team used them as slaves and livestock, not only whipping and bullying them constantly but also dragging them out to chop off heads with one saber cut if slightly careless. A few days ago, on the way dragging cannons to Huang County, because a cannon got stuck in mud and oxen couldn't exert force, in order to urge the coolies to exert force, the Thousand-man Commander of the artillery team chopped off several people's heads in one breath, scaring Ma Linxi into having nightmares every night.
+After the rebels came, his entire village was razed to the ground. Ma Linxi had no choice but to "join the gang" along with the other refugees. Thanks to his craft, he had been assigned to the artillery team—they always needed repairs. In others' eyes, Ma Linxi had gained an enormous advantage. First, he could eat on a regular schedule. Whether the refugees assigned to infantry units had food depended entirely on luck and fists. The rebel soldiers tossed each team of refugees only a few baskets of black steamed buns—made from who knew what—each day. Mealtimes invariably devolved into brawls, claiming several lives.
 
-Ma Linxi had nothing in his brain now. Besides working mechanically according to orders, he tried every way to survive. As long as he could live, he would do whatever he was asked to do.
+Though in the artillery team he worked harder than an ox and ate less than a dog—the rebel soldiers used the coolies as slaves and beasts, whipping and tormenting them constantly, dragging men out to be beheaded with a single saber stroke for the slightest mistake—at least the work was marginally safer than the front lines. A few days ago, on the road hauling cannons to Huang County, a cannon had become mired in mud and the oxen couldn't pull it free. To motivate the coolies, the artillery team's Thousand-man Commander had beheaded several men in quick succession. Ma Linxi had suffered nightmares every night since.
 
-Seeing that the gun positions were all set up, Ma Linxi and other coolies of the artillery team could catch their breath for a moment. They either lay down or sat, heavy panting filling the air, but no one dared to speak—speaking could also lead to death; this was one of the experiences and lessons they had gained these days.
+Now Ma Linxi's mind was empty of everything but mechanical obedience to orders and a desperate focus on survival. If he could live, he would do whatever was demanded of him.
 
-The Thousand-man Commander of the artillery team had no mood to play with them anymore. He ordered the gunners to pierce the powder bags and heat the slow match and firing probe red, just waiting for the order to fire.
+Seeing the gun positions fully established, Ma Linxi and the other artillery team coolies could catch their breath momentarily. They lay or sat wherever they stood, heavy panting filling the air. But no one dared speak—speaking could get you killed. They had learned this lesson the hard way.
 
-Here on the seaside, the first wave of refugees had barely lined up under the driving of rebel soldiers. Each team of refugees had fifty people, matched with three or four guards. The guards were all bandit soldiers and desperadoes recruited by the rebels locally. Most people had no armor, all holding sabers and shields, guarding behind each team of refugees, specially used for driving and supervising battle.
+The artillery team's Thousand-man Commander had no more interest in toying with them. He ordered the gunners to pierce the powder bags and heat the slow matches and firing probes red-hot. They awaited only the order to fire.
 
-The guards and leaders of each team constantly cheered up the refugees:
+---
 
-"Break the stockade, the whole army will be rewarded with wine and meat..."
+Near the shore, the first wave of refugees had barely managed to form up under the rebels' driving. Each team of fifty refugees was accompanied by three or four guards. These guards were all bandits and desperadoes whom the rebels had recruited locally. Most wore no armor, carrying only sabers and shields. They stationed themselves behind each refugee team, specifically tasked with driving and supervising the assault.
 
-"Kill an enemy soldier, reward one white steamed bun and one tael of silver..."
+The guards and team leaders continuously encouraged the refugees:
 
-"Those who dare to retreat, beheaded on the spot!"
+"Break the stockade and the whole army gets rewarded with wine and meat..."
 
-Ma Linxi knew that for people charging in the first wave, it would be good if three or four out of a hundred survived—he had seen too much these days. Rebel soldiers just treated commoners' lives as consumables for the defenders' ammunition and arrows, using corpses to fill the trenches.
+"Kill an enemy soldier—one white steamed bun and one tael of silver..."
 
-Fortunately, he had this craft and could save his little life.
+"Anyone who dares retreat will be beheaded on the spot!"
 
-While he was letting his imagination run wild, suddenly the sound of a cannon came through the air. Everyone was stunned. Ma Linxi looked up and saw a plume of smoke rising on the sea surface, and a beautiful arc came straight towards the direction of the sandbar.
+Ma Linxi knew that of those charging in the first wave, perhaps three or four in a hundred might survive. He had seen too much these past days. The rebel soldiers treated commoners' lives as nothing more than fuel for consuming the defenders' ammunition and arrows, using corpses to fill the trenches.
 
-He stared with his mouth wide open for less than a second, then suddenly, as if understanding something, threw himself to the ground and crawled behind a mound using both hands and feet.
+Fortunately, his craft had saved his wretched life.
 
-Almost at the same time, a cannonball fell from the sky and landed on the ice surface beside the artillery team. It exploded with a loud bang.
+He was lost in anxious thoughts when suddenly a cannon report split the air. Everyone froze. Ma Linxi looked up and saw a plume of smoke rising from the sea surface. A graceful arc traced through the sky, coming straight toward the sandbar.
 
-Shrapnel from the exploded cannonball and ice splinters splashed in all directions. Rebel soldiers and refugees nearby who didn't have time to dodge screamed and fell to the ground covered in blood.
+He stared, slack-jawed, for perhaps a second. Then, as if struck by sudden understanding, he threw himself to the ground and scrabbled behind a low mound on hands and knees.
 
-Then, more cannon sounds came from the sea surface and the direction of the fortress on the island. Under the clear blue sky, cannonballs dragging white smoke trails cut through the air, making whistling sounds and falling continuously towards the sandbar.
+Almost simultaneously, a cannonball fell from the sky and struck the ice beside the artillery team. It detonated with a tremendous bang.
 
-Cannonballs fell continuously around the six Red Barbarian Cannons. Explosion sounds were deafening and rose one after another. Thick smoke and fierce fire enveloped the entire artillery team's position.
+Shrapnel from the exploding shell and shattered ice sprayed in all directions. Rebel soldiers and refugees who had not dodged in time screamed and collapsed, covered in blood.
 
-The Thousand-man Commander, who was usually majestic, decisive in killing, and chopped people like killing chickens, had been blown into a dozen pieces of minced meat in the first bombardment. One of his arms landed on Ma Linxi's head, almost scaring him to death.
+Then more cannon fire erupted from the sea and from the fortress on the island. Against the clear blue sky, cannonballs trailing white smoke cut through the air, whistling as they fell in continuous succession onto the sandbar.
 
-Good Heavens! These village braves' cannons are so powerful! Just as Ma Linxi's thought turned, a hissing 68-pound spherical explosive shell emitting sparks fell directly onto a wheelbarrow loaded with ammunition. With a flash of fire, several gun carriages fully loaded with gunpowder were detonated simultaneously. A huge blast wave lifted Ma Linxi directly from the ground.
+Shells rained down around the six Red Barbarian Cannons. Explosions were deafening, one overlapping another. Thick smoke and fierce flames engulfed the artillery team's entire position.
 
-For a moment, Ma Linxi thought he was dead. He completely couldn't breathe, his vision turning black. It took a long while to recover. He felt the world spinning, ears buzzing, hearing nothing, only seeing black and red before his eyes, burning hot. After calming down, he saw the coolie Qian Erleng, who was with him, lying motionless under a blown-off wheel, covered in blood. Qian Erleng had given him half a bowl of noodle soup before; the two were considered friends in adversity. He hurriedly crawled over and pushed Qian Erleng, only to see Qian Erleng turn over and roll down the sandbar with a "gulu" sound, leaving a trail of blood and scattered internal organs all over the ground—only the half body above the chest remained, as if cut in half by a big hay cutter.
+The Thousand-man Commander—who moments before had been so majestic, so decisive in his killing, who had chopped men down like slaughtering chickens—was now blasted into a dozen pieces of minced meat in the first bombardment. One of his arms landed on Ma Linxi's head, nearly scaring him to death.
 
-Ma Linxi didn't know if he screamed. He couldn't hear anything. He only saw vehicles, cannons, and human corpses in front of him mixed with soil being constantly lifted up, torn apart, and falling down. He let out a silent scream and drilled his head hard towards the earth.
+*Heavens above! These village braves' cannons are terrifying!*
 
-On the bridge of the *Daishuang*, Lu Yang searched the situation on the sandbar with a telescope in vain—thick black smoke rolled in the distance. Cannonballs fired from warships on the sea surface and the bastions of the Willow Palisade had completely enveloped the target area. He couldn't see the effect of the bombardment at all at such a long distance.
+The thought had barely formed when a hissing sixty-eight-pound spherical explosive shell, sparks spurting from its fuse, fell directly onto a wheelbarrow loaded with ammunition. A flash of fire—and several gun carriages fully loaded with powder detonated simultaneously. The massive blast wave lifted Ma Linxi bodily from the ground.
 
-However, in terms of this firepower coverage, the rebel artillery team completely exposed on the ground should no longer exist. He observed at least three powder mass explosions in the telescope.
+For a moment, Ma Linxi was certain he had died. He could not breathe at all. His vision went black. A long time seemed to pass before he regained awareness. The world was spinning. His ears buzzed with a high whine; he could hear nothing. Before his eyes, everything was black and red and burning hot. When he could finally orient himself, he saw Qian Erleng—the coolie who had been working beside him—lying motionless beneath a blown-off wheel, drenched in blood. Qian Erleng had once given him half a bowl of noodle soup; they had been friends in adversity. Ma Linxi crawled over frantically and pushed at him. Qian Erleng rolled over with a soft *gulu* sound, tumbling down from the sandbar, leaving a trail of blood and scattered intestines across the ground. Only the half above his chest remained—as if some giant hay-cutter had sliced him in two.
 
-A "cease fire" signal rocket was fired from Qimu Island.
+Ma Linxi did not know if he screamed. He could hear nothing. He could only see vehicles, cannons, and human corpses mixing with soil, constantly hurled upward, torn apart, falling again. He let out a silent scream and drove his head hard into the earth.
 
-"Stop firing, all ships!" He ordered, walking quickly to the radio. Sure enough, Chen Sigen was calling him.
+---
+
+On the bridge of the *Daishuang*, Lu Yang searched the sandbar through a telescope—in vain. Thick black smoke rolled over the target area. Cannonballs fired from the warships and from the Willow Palisade bastions had completely blanketed the zone. At such distance, he could not assess the bombardment's effect at all.
+
+Still, given this volume of fire, the rebel artillery team—fully exposed on the open ground—should no longer exist. Through the telescope, he had observed at least three powder mass explosions.
+
+A "cease fire" signal rocket rose from Qimu Island.
+
+"All ships cease fire!" he ordered, striding quickly to the radio. As expected, Chen Sigen was calling.
 
 "The artillery position has been eliminated. Shift fire to area 2976 in five minutes. Use shrapnel!"
 
-"Shift fire to area 2976 in five minutes, fire shrapnel!" Lu Yang repeated his instruction. The gunnery officer and several sergeants leaned over the work table, working tensely with slide rules and dividers.
+"Shift fire to area 2976 in five minutes—shrapnel shells!" Lu Yang repeated the order. The gunnery officer and several sergeants bent over the plotting table, working tensely with slide rules and dividers.
 
-To save calculation time and also to adapt to artillery command personnel with low levels, they adopted a numbered grid firing mode. The surroundings of Qimu Island were all numbered with grids, and each grid had a specific range table. This ensured centralized firing on each sector within the shortest time.
+To save calculation time and accommodate artillery command personnel with limited education, they had adopted a numbered grid firing system. The area surrounding Qimu Island had been divided into numbered grids, each with its own specific range table. This ensured they could concentrate fire on any sector within the shortest possible time.
 
-The 130mm cannons on Gunboat 901 emitted wisps of white smoke. Gunners were scrubbing the bores with the fastest speed, quickly clearing the residue after continuous firing to let the gun barrels cool down as soon as possible.
+The 130mm cannons on Gunboat 901 trailed wisps of white smoke. Gunners were swabbing the bores at maximum speed, clearing residue from continuous firing to cool the barrels as quickly as possible.
 
-Cone-shaped shrapnel shells and cylindrical silk powder bags had been lifted to the deck by pulleys, waiting to be loaded.
+Cone-shaped shrapnel shells and cylindrical silk powder bags had already been hoisted to the deck by pulleys, awaiting loading.
 
-Chen Sigen put down the telescope: the sea breeze had blown away the distant smoke. Although the burning gun carriages were still emitting rolling thick smoke, not a single complete cannon or living person could be seen in the telescope. The power of explosive shell covering fire was indeed amazing. Since the biggest threat had been removed, the rest was just a rabble. He observed from the platform down to the gun emplacement; two naval 68-pound carronades had returned to horizontal positions, and gunners were quickly scrubbing the bores. The direct fire range of this kind of gun was very short: only a short fifty meters. But the fired shells were extremely powerful, and the damage effect on wooden ships was extremely strong. Chen Sigen had no warship targets available, so this time he used them in the role of mortars.
+Chen Sigen lowered his telescope. The sea breeze had cleared the distant smoke. Though the burning gun carriages continued to emit rolling black clouds, not a single intact cannon—not a single living person—could be seen through the lens. The power of massed explosive shell fire was truly astonishing. With the greatest threat neutralized, what remained was merely a rabble.
 
-When firing in a high arc, the trajectory of a carronade was similar to a mortar, and the range was naturally much farther. The 68-pound explosive shells fired continuously just now exerted extremely considerable power—the power of high-density loaded black powder was far better than Chen Sigen's most ideal estimate.
+He looked down from the observation platform to the gun emplacements below. Two naval sixty-eight-pound carronades had already returned to horizontal positions, and gunners were rapidly swabbing their bores. The direct-fire range of these weapons was extremely short—only about fifty meters. But their shells carried devastating power, and their effect against wooden ships was terrifying. Chen Sigen had no ship targets available, so he had employed them in a mortar-like role.
 
-A few more rounds of shrapnel, and he wasn't afraid the enemy wouldn't rout.
+When firing in a high arc, a carronade's trajectory resembled a mortar's, naturally extending its range considerably. The sixty-eight-pound explosive shells fired continuously moments ago had demonstrated power that far exceeded Chen Sigen's most optimistic estimates—the effect of densely packed black powder charges was remarkable.
 
-"Load shrapnel for all cannons!" He issued the command. The cannons on the Willow Palisade bastion, including 2 68-pound carronades and 4 24-pound smoothbore chase guns, all began loading this terrible shell.
+A few more rounds of shrapnel, and he was confident the enemy would rout.
+
+"Load shrapnel—all guns!" He issued the command. Every cannon on the Willow Palisade bastion—including the two sixty-eight-pound carronades and four twenty-four-pound smoothbore chase guns—began loading this terrible munition.
 
 (End of Chapter)

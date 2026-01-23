@@ -1,145 +1,159 @@
-# Chapter 649 Second Battle of Shishan
+# Chapter 649 — Second Battle of Shishan
 
-"It's a Regional Commander." Zhu Mingxia said with some regret, "I thought it would be at least a Vice General..."
+"It's a Regional Commander." Zhu Mingxia said with some regret. "I thought he'd be at least a Vice General..."
 
-Xiong Maozhang crouched in front of the corpse and examined it for a long time, saying: "There is only one Vice General in the whole of Guangdong. I heard people from the Great Library say that Regional Commanders, Vice Generals, and Regional Commanders are all very valuable right now. Not like later when Regional Commanders and Vice Generals were all over the streets."
+Xiong Maozhang crouched before the corpse and examined it for a long time. "There's only one Vice General in all of Guangdong. I heard from people at the Great Library that Regional Commanders, Vice Generals, and the like are quite valuable right now—not like later, when Regional Commanders and Vice Generals were everywhere."
 
-"Huizhou Regional Commander, Huizhou Regional Commander..." Zhu Mingxia thought for a long time before remembering. *Isn't this one of the five Regional Commanders and one Guerrilla of the Ming army coming to suppress us mentioned in the [Enemy Intelligence Report]?* The report explicitly stated at that time that these six generals were regular military officers of the Imperial Court who established their own headquarters, not comparable to ordinary Regional Commanders and Guerrillas.
+"Huizhou Regional Commander, Huizhou Regional Commander..." Zhu Mingxia thought for a long moment before it clicked. *Isn't this one of the five Regional Commanders and one Guerrilla mentioned in the [Enemy Intelligence Report] as accompanying the Ming army's punitive expedition?* The report had explicitly noted that these six officers were regular military commanders of the Imperial Court who had established their own headquarters—not comparable to ordinary Regional Commanders and Guerrillas.
 
-If put that way, this battle was roughly equivalent to killing an enemy Major General Division Commander.
+Put that way, this battle was roughly equivalent to killing an enemy Major General Division Commander.
 
-Commanding a battle for the first time and achieving such a great victory, Zhu Mingxia couldn't help but be secretly happy, repeatedly saying "Good," "Good."
+Having commanded a battle for the first time and achieved such a great victory, Zhu Mingxia could not help but feel secretly pleased. "Good," he said repeatedly. "Good."
 
-Several soldiers beside him saw the Battalion Commander so happy and knew they must have killed a great general of the government army. According to the custom at that time, the head should be cut off to present for merit. A soldier picked up a big saber from the side and was about to chop off the head.
+Several soldiers beside him saw the Battalion Commander so happy and knew they must have killed a senior government general. According to the custom of the time, the head should be taken to present for merit. One soldier picked up a big saber and was about to chop it off.
 
-"Don't chop." Zhu Mingxia stopped him. "He died for his country. Encoffin him properly and bury him with military honors!"
+"Don't." Zhu Mingxia stopped him. "He died for his country. Encoffin him properly and bury him with military honors!"
 
-At 4 PM, the three thousand men and horses led by Sha Jianbi appeared less than three kilometers from Shishan. Because Yan Zungao urged men and horses to walk fast, causing many infantrymen to fall behind and finally be defeated fighting Hair Bandits with insufficient strength, he did not urge his subordinates to walk fast. Along the way, he also collected many routed soldiers from Yan's unit and learned the whole process of the battle from their mouths.
+---
 
-However, he could get absolutely no situation report beyond the visual range of front, back, left, and right of the post road. No matter how many scouts and spies he sent out, not one could return. A wounded scout once galloped back madly, but was suddenly killed by a "bird gun" before reaching him.
+At four in the afternoon, the three thousand men led by Sha Jianbi appeared less than three kilometers from Shishan.
 
-What flustered him most was that he actually didn't know where the bird gun was fired from—no smoke, no people. He sent a squad of infantry to search back and forth within four hundred paces around where the scout fell, finding nothing in the end. Only two small black holes on the scout's body proved he was killed by a bird gun.
+Because Yan Zungao had urged his troops to march fast—causing many infantrymen to fall behind and ultimately be defeated fighting with insufficient strength—Sha Jianbi did not push his own men to hurry. Along the way, he also collected many of Yan's routed soldiers and learned the entire course of the battle from their accounts.
 
-Fear of bird guns that showed no smoke, no people, and even no sound had begun a few days ago. The officers and soldiers secretly called it the "Shadowless Cannon."
+However, he could obtain absolutely no intelligence beyond the visual range in every direction along the post road. No matter how many scouts and spies he sent, not one returned. One wounded scout had once galloped back wildly, but was suddenly killed by a "bird gun" before reaching him.
 
-Sha Jianbi's unit marched all the way and also suffered quite a few "Shadowless Cannons," losing forty or fifty officers and soldiers along the way, causing panic up and down. If not knowing Li Guang's two thousand men and horses were coming to reinforce from behind, these three thousand people would probably have dispersed in a hubbub before reaching Shishan.
+What unsettled him most was that he could not tell where the shot had come from—no smoke, no people. He sent a squad of infantry to search back and forth within four hundred paces around where the scout had fallen, but they found nothing. Only two small black holes in the scout's body proved he had been killed by a bird gun.
 
-After walking blindly in such panic for most of the day, the vanguard reported: Shishan lay four or five *li* away.
+Fear of these bird guns that produced no smoke, no visible shooter, and even no audible report had been building for days. The officers and soldiers had taken to calling them the "Shadowless Cannon."
 
-"Where is the enemy army deployed?"
+Sha Jianbi's unit had suffered quite a few of these "Shadowless Cannon" attacks along the march, losing forty or fifty officers and soldiers, causing panic throughout the ranks. Had they not known that Li Guang's two thousand men were coming up in support behind them, these three thousand would probably have dispersed before even reaching Shishan.
 
-"Right under Shishan." The vanguard Chiliarch reported.
+After marching blindly in such dread for most of the day, the vanguard reported: Shishan lay four or five *li* ahead.
 
-He stood up straight on the stirrups. There was a stockade on Shishan, flying the Hair Bandits' red flag. This was part of the original government army grain depot. The originally lush Shishan had become bare; both Ming army and Fubo Army had carried out work to clear the field of fire. A gray battle line lay horizontally at the foot of the hill, blocking the post road.
+"Where is the enemy deployed?"
 
-This battle line was very thin. Sha Jianbi saw the Hair Bandits lining up at the foot of the hill were no more than a thousand people, yet they set up a battle line of two hundred paces. This was simply crazy! With such thin depth, wouldn't it be broken by one charge? Were the Hair Bandits confident in their firearms to such a degree? One must know they defended strictly behind earthen dikes in Chengmai!
+"Right at the foot of Shishan," the vanguard Chiliarch reported.
 
-But the disastrous defeat the previous day had long made the government army jittery. Sha Jianbi dared not get too close either, deeply fearing being hit by the "Shadowless Cannon." Immediately he ordered people to set up formation on the spot, preparing for battle.
+Sha Jianbi stood straight in his stirrups and strained to see into the distance. There was a stockade on Shishan, flying the Hair Bandits' red flag—part of the original government army's grain depot. The once-lush hill had been stripped bare; both Ming army and Fubo Army had engaged in work to clear fields of fire. A gray battle line lay horizontally at the hill's base, blocking the post road.
+
+This battle line was very thin. Sha Jianbi could see that the Hair Bandits arrayed at the hill's base numbered no more than a thousand, yet they had stretched into a formation two hundred paces wide. This was utterly mad! With such shallow depth, wouldn't they be broken in a single charge? Were the Hair Bandits so confident in their firearms? After all, at Chengmai they had defended strictly behind earthen dikes!
+
+But the previous day's disastrous defeat had left the government army deeply shaken. Sha Jianbi dared not approach too closely either, afraid of being struck by the "Shadowless Cannon." He immediately ordered his men to form up on the spot and prepare for battle.
 
 Sha Jianbi gathered his subordinate Assistant Generals and Chiliarchs.
 
-"Everyone saw it. The Hair Bandits are no more than a thousand; the formation is also thin. In haste, they lined up relying only on the trench and low wall. If we concentrate the whole army to attack fiercely, we can squeeze and break their formation!" Sha Jianbi pretended to be fully confident, "I looked; that 'One-Character Long Snake Array' has only two rows of people. No matter how powerful the firearms are, they can only fire a few volleys!"
+"Everyone can see the situation. The Hair Bandits number no more than a thousand; the formation is thin. In their haste, they've only lined up behind a trench and a low wall. If we concentrate the whole army in a fierce assault, we can squeeze their formation and break it!" Sha Jianbi pretended complete confidence. "I've looked—that 'Long Snake Array' has only two ranks of men. No matter how powerful their firearms, they can only fire a few volleys!"
 
-"General Sha!" A Chiliarch said, "Listening to General Yan's defeated soldiers, one part of the Hair Bandits lines up and another lies in ambush. Waiting for my soldiers to attack fiercely, the ambush soldiers will attack my flank..."
+"General Sha!" one Chiliarch spoke up. "According to General Yan's defeated soldiers, one part of the Hair Bandits forms up while another lies in ambush. They wait for our soldiers to attack fiercely, and then the ambush troops strike our flank..."
 
-"No hindrance." Sha Jianbi said, "I intend to use Wheel Tactics. Three thousand men and horses divided into three teams."
+"No hindrance." Sha Jianbi said. "I intend to use Wheel Tactics. Three thousand men and horses divided into three teams."
 
-Three teams of men and horses attacking alternately. The Central Army waits to deal with sudden situations. One team goes up to fight, one team fires arrows behind the formation to cover. When the front team is tired, the rear team takes over.
+Three teams of men and horses would attack alternately. The Central Army would wait to deal with sudden developments. One team moves up to fight; one team shoots arrows behind the formation to provide covering fire. When the front team tires, the rear team takes over.
 
-Sha Jianbi thought this would firstly prevent the Hair Bandits from resting—the enemy had few people after all and no rotation. Even if their firearms were pure and skilled, firing continuously would exhaust the soldiers. When the enemy's gunfire became sparse, two teams of men and horses would charge out together, routing the enemy formation in one fell swoop.
+Sha Jianbi believed this would, first, prevent the Hair Bandits from resting—after all, the enemy had fewer men and no rotation capability. Even if their firearms were well-made and their soldiers well-drilled, continuous firing would exhaust them. When enemy gunfire grew sparse, two teams would charge out together, routing the enemy formation in one fell swoop.
 
-"...Once the enemy ambush soldiers come out, our army will meet them with one thousand Central Army soldiers. According to routed soldiers, Hair Bandit ambush soldiers are no more than a thousand. Moreover, when Hair Bandits fight, they all set up stockades beforehand to control me with firearms. White blade stabbing is not their forte. My soldiers fight with long spears and big sabers; what enemy troops use are merely short blades on bird guns. They surely cannot fight for long!" Identifying this, he said sternly, "General Mao!"
+"...Once the enemy's ambush troops emerge, our army will meet them with the Central Army's one thousand soldiers. According to the routed soldiers, the Hair Bandit ambush force numbers no more than a thousand. Moreover, when Hair Bandits fight, they always set up stockades first to control us with firearms. Hand-to-hand combat with blades is not their forte. My soldiers fight with long spears and big sabers; all the enemy uses are those short blades on their bird guns. They surely cannot hold for long!" Having convinced himself of this reasoning, he spoke sternly: "General Mao!"
 
 "Humble General is here!" An Assistant General responded immediately.
 
-"You take one thousand men as vanguard to attack first," Sha Jianbi instructed confidentially, "Hair Bandit firearms fire extremely fast; the columns need not be neat, just charge fast. Let officers and soldiers carry more bows and arrows. Release a round first at the edge of the trench before charging the formation—Hair Bandits have no armor; those hit by arrows will die or be wounded."
+"You take one thousand men as vanguard and attack first." Sha Jianbi gave confidential instructions. "Hair Bandit firearms fire extremely quickly; columns need not maintain perfect order—just charge fast. Have the officers and soldiers carry plenty of bows and arrows. Loose a volley at the edge of the trench before charging the formation. The Hair Bandits wear no armor; anyone hit by an arrow dies or is wounded."
 
-This General Mao was not Sha Jianbi's own man. He originally belonged to the Training Guerrilla, temporarily assigned under Sha. He knew Sha Jianbi wanted him to lead men to take the brunt, leaving the big credit to his own Central Army. But he dared not disobey orders, so he had to lead troops to organize columns.
+This General Mao was not Sha Jianbi's own man. He had originally belonged to the Training Guerrilla and had been temporarily assigned under Sha. He understood that Sha Jianbi wanted him to take the brunt of the assault, reserving the glory for his own Central Army. But he dared not disobey orders, so he led his troops to form up.
 
 "General Zhao!"
 
 "Humble General is here!"
 
-"You take one thousand men to support one *li* behind General Mao. Also carry more bows and arrows. If General Mao's men and horses cannot support and retreat, you continue the attack!" He patted General Zhao's shoulder, "General Mao charges the Hair Bandits for a bout; you taking men and horses up again surely will achieve success!"
+"You take one thousand men to support one *li* behind General Mao. Also carry plenty of bows and arrows. If General Mao's force cannot hold and retreats, you continue the attack!" He patted General Zhao's shoulder. "General Mao will charge the Hair Bandits for a round; when you bring your men up after, you'll surely succeed!"
 
-General Zhao forced a smile, saying: "Many thanks for General Sha's cultivation!" In his heart, he secretly cursed Sha Jianbi for wanting them to roll on a bed of nails in front while taking his own men and horses to pick up ready-made credit.
+General Zhao forced a smile. "Many thanks for General Sha's cultivation!" Privately, he cursed Sha Jianbi for wanting them to roll on beds of nails in front while his own men picked up ready-made glory.
 
-Sha Jianbi didn't entirely plan to send Generals Zhao and Mao into the tiger's mouth, but his own men and horses were few. Moreover, the ranks were intact and hadn't suffered defeat; morale was good. They had to be used at the critical moment—he still had no news about where the Hair Bandit ambush soldiers were. Being without a capable and reliable force in hand wouldn't do.
+Sha Jianbi did not entirely intend to sacrifice Generals Zhao and Mao. But his own forces were limited—and more importantly, they were intact, having suffered no defeat. Morale was good. They had to be saved for the critical moment. He still had no intelligence on where the Hair Bandit ambush troops might be positioned. Being without a capable and reliable force in reserve would not do.
 
-So the government army quickly set up a stockade on the road, dividing men and horses into three teams preparing for battle. Sha Jianbi's unit also took in more than two hundred survivors of Yan Zungao's unit along the way. He ordered a Squad Leader to command them temporarily, staying in the Central Army for use.
+So the government army quickly established a stockade on the road, dividing their forces into three teams and preparing for battle. Sha Jianbi's unit also gathered more than two hundred survivors from Yan Zungao's force along the way. He appointed a Squad Leader to command them temporarily, keeping them with the Central Army for use.
 
-The position established by Xiong Maozhang at the foot of Shishan consisted of a chest-high breastwork. In front of the breastwork was a deep trench, and in front of the trench were many abatis piled up from temporarily collected materials, including many wheelbarrows captured at the grain depot. The 1st Infantry Battalion deployed formation behind the low wall, directly intercepting any army attempting to pass the post road at the foot of Shishan.
+---
 
-The 1st Infantry Battalion deployed a standard double-rank line—Minié rifles fired much faster than flintlocks, so there was naturally no need to adopt a three-rank line. Xiong Maozhang deployed the battalion's 6 line infantry companies into a 150-meter line. The Battalion Grenadier Company served as reserve behind the whole battalion, covering the flank when necessary. The 1st Light Infantry Company and the 4th Battalion's Light Infantry Company were pulled out separately to form a garrison, defending the camp on Shishan together with logistics troops, while covering one wing of the 1st Infantry Battalion.
+The position Xiong Maozhang had established at the foot of Shishan consisted of a chest-high breastwork. In front of the breastwork lay a deep trench, and in front of the trench stood abatis piled from whatever materials could be collected on short notice, including many wheelbarrows captured at the grain depot. The 1st Infantry Battalion deployed behind the low wall, directly blocking any army attempting to pass the post road at the foot of Shishan.
 
-Of the 4 12-pounder mountain howitzers brought along, 2 were directly reinforcing the 1st Infantry Battalion, and the other 2 were arranged in the camp on top of Shishan, ready to provide fire support depending on the situation.
+The 1st Infantry Battalion was arrayed in a standard double-rank line—Minié rifles fired much faster than flintlocks, so there was no need for the old three-rank line. Xiong Maozhang deployed the battalion's six line infantry companies into a 150-meter formation. The Battalion Grenadier Company served as a reserve behind the main line, ready to cover the flank if necessary. The 1st Light Infantry Company and the 4th Battalion's Light Infantry Company had been pulled out separately, forming a garrison to defend the camp on Shishan together with logistics troops while also covering one wing of the 1st Infantry Battalion.
 
-Xiong Maozhang held binoculars observing the government army men and horses a few *li* away. According to the Special Reconnaissance Team's report, this batch of enemies had a total of three thousand men. Behind them, separated by about ten *li* or so, followed two thousand men. However, Chen Sigen made it clear: "Those two thousand people behind are obviously here to 'buy soy sauce' (slack off)." Walking and stopping, their fighting will was not strong.
+Of the four 12-pounder mountain howitzers they had brought, two directly supported the 1st Infantry Battalion, and the other two were positioned in the camp atop Shishan, ready to provide fire support as the situation demanded.
 
-"Must break these three thousand people as soon as possible," Xiong Maozhang said to Zhu Mingxia, "Otherwise when the follow-up two thousand dawdle over, and the enemy have more people, they will be hard to chew."
+Xiong Maozhang held binoculars, observing the government troops several *li* away. According to the Special Reconnaissance Team's report, this batch of enemies totaled three thousand. About ten *li* behind them followed another two thousand. However, Chen Sigen had made it clear: "Those two thousand in the rear are obviously here to 'buy soy sauce.'" They walked and stopped; their fighting spirit was not strong.
 
-Zhu Mingxia didn't speak. He looked at the government soldiers lining up in the binoculars: "Looks like the enemy's main attack direction is still your position. But have to guard against them attacking the stockade on the mountain."
+"We must break these three thousand as soon as possible," Xiong Maozhang said to Zhu Mingxia. "Otherwise, when those two thousand dawdle over and the enemy has more men, this will become a harder nut to crack."
 
-Xiong Maozhang put his helmet on his head: "I have to go to the position, otherwise I won't be at ease."
+Zhu Mingxia remained silent, studying the government soldiers forming up through his binoculars. "Looks like the enemy's main attack will still target your position. But we have to guard against them attacking the stockade on the mountain."
 
-While they were talking, the government army's signal cannon sounded once. One thousand men and horses attacked under the leadership of an Assistant General. When they rushed out more than one *li*, another signal cannon sounded, and another team of government soldiers sortied to kill towards the 1st Battalion's position.
+Xiong Maozhang set his helmet on his head. "I need to get to the position—otherwise I won't be at ease."
 
-"The enemy wants to use Wheel Tactics." Zhu Mingxia said. He continued to watch the government army's dynamics. The first team of men and horses had very fierce momentum, quickly rushing to a place less than a hundred meters from the position. Soldiers shot arrows while running; because the distance was too far, they posed no threat at all. Xiong Maozhang's 6 line infantry companies opened fire simultaneously at a distance of 150 meters. Bullets swept the wildly running columns. Government soldiers turned upside down. Before approaching the trench, their formation was in chaos. Then the second rank infantry fired a volley. In the thick smoke, Zhu Mingxia realized some enemies were already retreating.
+---
 
-Zhu Mingxia vaguely felt something was wrong. The enemy shouldn't just simply repeat the frontal assault tactic like this. For prudence, he didn't ask the 2 mountain howitzers in Shishan Fort to open fire, preparing to provide fire support at the critical moment.
+While they were speaking, the government army's signal cannon sounded. One thousand men advanced under an Assistant General's command. After they had traveled more than one *li*, another signal cannon sounded, and a second team of government soldiers charged toward the 1st Battalion's position.
 
-There were many officers and soldiers in Sha Jianbi's vanguard battalion whose courage had already been broken yesterday. Now having to crash face-to-face into Hair Bandit firearms, the officers and soldiers appeared very cowering. After taking a few volleys, they were even less willing to move forward. Officers and generals shouted desperately to urge them, threatened with beheading, and encouraged with silver, finally making the men and horses continue attacking upward with great difficulty.
+"The enemy wants to use Wheel Tactics." Zhu Mingxia observed. He continued to watch the government army's movements. The first wave advanced with fierce momentum, quickly rushing to within a hundred meters of the position. Soldiers loosed arrows while running; because the distance was too great, they posed no threat at all. Xiong Maozhang's six line infantry companies opened fire simultaneously at 150 meters. Bullets swept through the wildly charging columns. Government soldiers tumbled in all directions. Before they could even approach the trench, their formation had fallen into chaos. Then the second-rank infantry fired their volley. Through the thick smoke, Zhu Mingxia could see that some of the enemy were already falling back.
 
-At this time, the second team of government soldiers surged up again.
+Zhu Mingxia sensed vaguely that something was wrong. The enemy should not simply be repeating this frontal assault tactic. For prudence, he did not order the two mountain howitzers in Shishan Fort to open fire, holding them in reserve for fire support at a critical moment.
+
+Many officers and soldiers in Sha Jianbi's vanguard battalion had already lost their nerve the day before. Now, being compelled to crash directly into Hair Bandit firearms, they were visibly cowed. After absorbing several volleys, they were even less willing to advance. Officers and generals shouted their lungs out, threatened beheadings, and promised silver—finally managing to prod their men forward, though with great difficulty.
+
+At that moment, the second team of government soldiers surged up.
 
 "Shoot arrows! Shoot arrows!"
 
-Government soldiers hurriedly shot a row of feathered arrows, but most people fired randomly before entering range. Almost not a single arrow fell into the formation; most fell on the trench and abatis.
+Government soldiers hastily loosed a volley, but most fired randomly before entering effective range. Almost no arrows fell into the formation; the majority landed on the trench and abatis.
 
-"Steady! Sights 120 meters!" Officers constantly corrected the firing distance, "Fire!"
+"Steady! Sights 120 meters!" Officers constantly corrected the firing distance. "Fire!"
 
-Volleys roared, smoke filled the air. Government soldiers could never even approach the trench. Every time they barely entered within a hundred meters, they were routed by volleys. Although soldiers were constantly urged by officers to rush up, they soon retreated in defeat again. Sometimes under the leadership of a few brave officers, they could assault to the front of the trench, but at this time the double canister shots from those 12-pounder mountain howitzers would mercilessly kill them all by the trench edge.
+Volleys roared; smoke billowed. The government soldiers could never get close to the trench. Every time they barely pushed within a hundred meters, they were broken by volleys. Though officers constantly urged men to charge, they were soon beaten back again. Occasionally, under the leadership of a few brave officers, they might briefly assault to the front of the trench—but at that point, double canister shots from the 12-pounder mountain howitzers would mercilessly cut them down at the trench's edge.
 
-Smoke filled the air. Killing shouts, groans, and shouts shrouded the entire Shishan. The battle lasted for more than an hour. No matter how Sha Jianbi and his subordinate Assistant Generals encouraged and urged soldiers to charge, the government soldiers' assault became weaker and weaker. Especially after the mountain howitzers began to bombard government soldier columns 800 meters away with grenades, government soldiers had to retreat the columns to two *li* away each time to regroup and line up. Soldiers consumed large amounts of physical strength on this back-and-forth journey. Many officers and soldiers had been marching on the road since noon—most of the day without food or water. Attacking several times at this moment, they were already exhausted. Some soldiers simply fell by the roadside refusing to move.
+Smoke filled the air. War cries, groans, shouts—all shrouded the whole of Shishan. The battle dragged on for more than an hour. No matter how Sha Jianbi and his subordinate Assistant Generals encouraged and urged soldiers to charge, the government soldiers' assaults grew weaker and weaker. Especially after the mountain howitzers began bombarding government columns at 800 meters with explosive shells, the troops had to retreat their columns to two *li* before even attempting to regroup. Soldiers expended enormous physical strength on this back-and-forth journey. Many had been marching since noon—most of the day without food or water. After several attacks, they were exhausted. Some soldiers simply collapsed by the roadside and refused to move.
 
-Seeing his so-called Wheel Tactics had absolutely no effect—attacking for nearly an hour, rotating teams several times, achieving no progress except leaving a ground of corpses in front of the Hair Bandit trench in vain, while enemy volleys still hit steadily and fiercely without any sign of thinning—Sha Jianbi was greatly anxious. Dragging on like this, before enemy ambush soldiers came out, his own whole army would collapse.
+Seeing his so-called Wheel Tactics producing no effect whatsoever—attacking for nearly an hour, rotating teams several times, achieving nothing but a ground piled with corpses in front of the Hair Bandit trench, while enemy volleys remained as steady and fierce as ever without any signs of thinning—Sha Jianbi grew frantic. Dragging this out, his entire army would collapse before the enemy's ambush troops even emerged.
 
-He turned to order an all-out attack on the stockade on Shishan. There were only two light infantry companies and some logistics soldiers in the stockade, but there were 2 howitzers supporting. Grenades, canister shots, and solid shots beat down the government soldiers attempting to climb the mountain to seize the stockade overwhelmingly.
+He turned and ordered an all-out attack on the stockade atop Shishan. There were only two light infantry companies and some logistics soldiers in the stockade, but the two howitzers there provided covering fire. Explosive shells, canister shots, and solid shot hammered down on the government soldiers attempting to climb the mountain and seize the stockade.
 
-Although a government army young general was very brave, under his lead, a dozen fierce soldiers followed him to rush once to a place a dozen meters outside the stockade wall. Just as he waved the flag and got up to pounce on the stockade wall, a canister shot fired by a 12-pounder mountain howitzer hit him.
+Although one young government officer was exceptionally brave—under his leadership, a dozen fierce soldiers rushed to within a dozen meters of the stockade wall—a canister round from a 12-pounder mountain howitzer struck just as he raised his flag and rose to charge the wall.
 
-Government soldiers attacking the mountain stockade also constantly suffered harassing fire from bird guns of Hair Bandit infantry lined up below the mountain. Government soldiers attacked upward desperately several times. As corpses left on the slope became more and more, the attacking momentum also became weaker and weaker. The team attacking the mountain stockade retreated again—but this time they didn't even reach halfway up the mountain, shouted a few times perfunctorily, and retreated rolling and crawling as soon as bird guns fired in the mountain stockade.
+The government soldiers attacking the mountain stockade also suffered constant harassing fire from the bird guns of Hair Bandit infantry arrayed below. Desperate charges carried them partway up the slope several times. As the corpses on the hillside piled higher, their momentum faded. The team attacking the stockade retreated once more—but this time they failed to even reach halfway up, shouted a few perfunctory battle cries, and scrambled back down the instant bird guns cracked from the stockade above.
 
-Sha Jianbi's own men and horses hadn't moved out all along. Seeing his subordinate men and horses had lost their sharpness—let alone routing Hair Bandits to retake Shishan, they couldn't even deal with a team of Hair Bandit men and horses in front of them, suffering many casualties in vain—wouldn't he be blamed by superiors? He glared, ordering loudly: "Tell General Zhao and General Mao to attack desperately! Must open the post road, otherwise come see me with their heads!"
+Sha Jianbi's own forces had not yet moved out. Seeing that his subordinates' units had lost their edge—far from routing the Hair Bandits and retaking Shishan, they could not even deal with the force in front of them, suffering heavy casualties for nothing—he worried about how he would answer to his superiors. He glared and shouted an order: "Tell General Zhao and General Mao to attack with everything they have! The post road must be opened—or they can bring me their heads!"
 
-"Reporting to General, General Mao has been killed in action." A young general coming to report to him said panting.
+"Reporting to the General: General Mao was killed in action." A young officer had rushed up, panting.
 
-Hearing an Assistant General had been killed, Sha Jianbi was even more terrified. He gasped a rough breath, seeing the young general in front of him—although helmet askew and armor slanted, he looked very burly and sturdy. A round face with a pointed chin, sparse whiskers, upturned nostrils, small eyes. Looked quite capable too.
+Hearing that an Assistant General had been killed, Sha Jianbi was even more alarmed. He drew a rough breath and studied the young officer before him. Though his helmet was askew and his armor disordered, he appeared burly and sturdy—a round face with a pointed chin, sparse whiskers, upturned nostrils, small eyes. He looked quite capable.
 
 "What is your name?"
 
 "Humble General Cao Xiangjiao! Originally an Assistant General under General Mao..."
 
-"Good, General Cao! This General now appoints you as Vanguard Battalion Garrison Commander, leading General Mao's unit," His horse whip pointed at the 1st Infantry Battalion's battle line under Shishan, "You lead the team immediately to detour from the paddy field to attack one wing of their battle formation! As long as you break the enemy formation, I will recommend you before the Regional Commander!"
+"Good—General Cao! This General now appoints you Vanguard Battalion Garrison Commander, leading General Mao's unit." His whip pointed toward the 1st Infantry Battalion's battle line at the foot of Shishan. "You will lead the unit immediately to detour through the paddy field and attack one wing of their formation! If you break the enemy line, I will recommend you before the Regional Commander!"
 
-"Thank General for the cultivation! Humble General will surely strive forward courageously!" Cao Xiangjiao was originally a newborn calf not afraid of tigers. At this moment stimulated by his few words and having hope of promotion, he instantly became high-spirited. immediately mounting his horse, lifting a big saber to charge the formation.
+"Thank the General for your cultivation! Humble General will surely strive forward courageously!" Cao Xiangjiao was young and fearless. Stirred by these few words and the hope of promotion, his spirit soared. He immediately mounted his horse, lifted his big saber, and charged toward the enemy formation.
 
-After issuing this series of orders, he also knew relying on this hothead Cao Xiangjiao to charge the formation didn't have much certainty; he had to lead officers and soldiers personally to attack fiercely.
+After issuing this series of orders, Sha Jianbi knew that relying on this hothead Cao Xiangjiao to break through the enemy line held little certainty; he would have to lead his own officers and soldiers personally in a fierce attack.
 
-So he shouted: "Beat drums! Line up!"
+He shouted: "Beat drums! Line up!"
 
-Although Hair Bandit ambush soldiers hadn't appeared yet up to now, he couldn't care about much else. He thought, as long as the battle formation was charged open, even if Hair Bandit ambush soldiers came out, he would have time to turn around to meet the battle. Sha Jianbi believed that as long as not attacking the Hair Bandit stockade, Hair Bandits were absolutely not matches for government soldiers in hand-to-hand combat.
+Though the Hair Bandit ambush troops still had not appeared, he could afford no further hesitation. He reasoned that as long as the battle line was broken, even if the Hair Bandit ambush force emerged afterward, he would have time to wheel around and engage. Sha Jianbi believed firmly that as long as they were not attacking a Hair Bandit stockade, Hair Bandits were absolutely no match for government soldiers in hand-to-hand combat.
 
-Amidst deafening war drum sounds, Sha Jianbi mounted his horse. Personal soldiers hurriedly brought his big saber. He held the saber; his own Central Army and personal soldiers/house guards had lined up with bright helmets and shining armor, waiting to set off.
+Amidst deafening war drums, Sha Jianbi mounted his horse. Personal soldiers hurriedly brought him his great saber. He gripped it; his own Central Army and personal soldiers had lined up in bright helmets and gleaming armor, waiting to advance.
 
-Sha Jianbi stood on the stirrups looking into the distance trying to see as far as possible. He saw Cao Xiangjiao's men and horses had already detoured into the paddy field, moving towards one wing of the Hair Bandit formation. Only the paddy field was muddy, movement speed was very slow. From time to time people fell to guns and cannons, but Cao Xiangjiao waved his big saber, urging officers and soldiers to walk fast. Meanwhile, General Zhao's unit was still attacking feebly.
+Sha Jianbi stood in his stirrups, straining to see as far as possible. He observed Cao Xiangjiao's forces already detouring through the paddy field, moving toward one wing of the Hair Bandit formation. But the paddy field was muddy, and movement was very slow. From time to time men fell to gunfire and cannon, but Cao Xiangjiao waved his big saber, urging his soldiers to move faster. Meanwhile, General Zhao's unit continued attacking feebly.
 
-He waited nervously for the success of Cao Xiangjiao's detour. About the time it takes to eat a meal, he saw Cao Xiangjiao's flag appearing on the flank of the Hair Bandit formation. Sounds of guns and cannons rumbled, smoke filled the air; he knew Cao Xiangjiao's attack had begun. He waved the big saber, shouting: "Kill! Break the Hair Bandit grand formation, five taels of silver reward per person!" His subordinate officers and soldiers let out a howl. Following him to charge and kill fiercely from the front.
+He waited tensely for the success of Cao Xiangjiao's flanking maneuver. After roughly the time it takes to eat a meal, he saw Cao Xiangjiao's flag appearing on the flank of the Hair Bandit formation. Guns and cannons rumbled; smoke billowed. He knew Cao Xiangjiao's attack had begun. He waved his big saber and shouted: "Kill! Break the Hair Bandit grand formation—five taels of silver reward per man!"
 
-Cao Xiangjiao's detour indeed brought a threat to the 1st Infantry Battalion. Xiong Maozhang immediately ordered the Battalion Grenadier Company acting as reserve to rotate to the flank to line up immediately. Two volleys repelled the government soldiers' first charge. Subsequently, Zhu Mingxia ordered the 2 mountain howitzers on the mountain to open fire.
+His subordinates let out a howl and charged fiercely from the front behind him.
 
-"Use shrapnel shells!" Solid shots couldn't bounce in paddy fields, and killing power was limited. Canister shot range was insufficient. Air-bursting shrapnel shells became the best long-range killing weapon. Round after round of shrapnel shells drove Cao Xiangjiao's men and horses back again very quickly. Muddy paddy fields made it difficult for soldiers to move quickly; they fell under the Grenadiers' precision shooting one after another.
+---
 
-Sha Jianbi's Central Army threw off General Zhao's already chaotic unit, the whole army pouncing towards the center of the battle line in one breath. Preparing to break through the battle line in one fell swoop while Cao Xiangjiao attracted Hair Bandit firepower interference on the flank.
+Cao Xiangjiao's detour did indeed pose a threat to the 1st Infantry Battalion. Xiong Maozhang immediately ordered the Battalion Grenadier Company, serving as reserve, to rotate to the flank and form up. Two volleys drove back the government soldiers' first charge. Then Zhu Mingxia ordered the two mountain howitzers on the mountain to open fire.
 
-(End of Chapter)
+"Use shrapnel shells!" Solid shot could not bounce in paddy fields and had limited killing power. Canister range was insufficient. Air-bursting shrapnel shells became the best long-range killing weapon. Round after round of shrapnel swiftly drove Cao Xiangjiao's forces back. The muddy paddy made rapid movement impossible; soldiers fell one after another under the Grenadiers' precise shooting.
+
+Sha Jianbi's Central Army broke away from General Zhao's already chaotic unit, throwing the entire force at the center of the battle line in one breath, prepared to smash through while Cao Xiangjiao drew Hair Bandit fire away on the flank.
+
+---
+
+*(End of Chapter)*

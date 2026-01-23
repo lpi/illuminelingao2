@@ -1,95 +1,95 @@
 # Chapter 1091 - Removing Hidden Dangers
 
-According to the report from civil affairs cadres, there were both men and women in the musical troupe. The Senate needed these women, but not the men behind them. In the old timeline, any prostitution group was secrectly controlled by pimps: from hair salon girls in Wenzhou to nightclubs everywhere, it was all the same. Without the protection of these people, they simply couldn't operate. In this timeline, such musical troupes were mobile brothels, and the few middle-aged men in the troupe were the ones controlling this group of opera singers. These women had been oppressed and controlled by them for a long time, developing a habitual dependence and fear of them, so these few men had to disappear.
+According to the civil affairs cadres' reports, the traveling performers' troupe contained both men and women. The Senate had use for the women, but none whatsoever for the men lurking in their shadows. Whether in the old timeline's Wenzhou hair salons or the nightclubs scattered across every province, the pattern never changed—every prostitution ring answered to pimps who pulled the strings from behind the curtain. Without such protection, these operations simply could not function. Here in the seventeenth century, itinerant musical troupes were little more than mobile brothels, and the handful of middle-aged men traveling with them served as handlers for the troupe's female performers. Years of oppression had instilled in these women a bone-deep fear and dependence. Such men would have to disappear.
 
-"Take them away and hand them over to the military court, charged with the crime of organizing banditry," Zhu Mingxia instructed the orderly.
+"Take them away," Zhu Mingxia instructed his orderly. "Hand them over to the military court. The charge is organizing banditry."
 
-Gallows had been built on Qimu Island when they started taking in refugees—the arbitration tribunal had issued two authorization warrants, authorizing the Northbound Detachment to set up a military court each on Qimu Island and Jeju Island, to serve as the legal basis for temporary disposal.
+Gallows had risen on Qimu Island the moment they began processing refugees. The arbitration tribunal had issued two authorization warrants, empowering the Northbound Detachment to establish military courts on both Qimu Island and Jeju Island—a legal foundation for summary justice in these temporary holdings.
 
-The military court was set up in this refugee camp, and its only purpose was intimidation. With nearly ten thousand people gathered together, it would become an out-and-out hell on earth without powerful violent means to maintain order.
+The court existed for one purpose alone: intimidation. With nearly ten thousand souls crammed together in the camp, only the naked promise of violence could maintain order.
 
-The gallows had never been empty since they were put into use. The bodies of the hanged prisoners would not be taken down until the next unlucky guy was about to be hung up.
+Since the gallows went up, they had never stood empty. Each hanged corpse swayed in the wind until the next condemned soul required the noose.
 
-An hour later, the messenger brought the written judgment—Zhu Mingxia was also the presiding judge of the military court.
+An hour later, a messenger returned bearing the written judgment. As chief military officer, Zhu Mingxia also served as presiding judge of the military court.
 
-He flipped through the materials: clear logic, conclusive evidence; indictment, testimony, and confessions were all there. In addition to the crime of organizing banditry, a series of charges such as human trafficking, intentional injury, illegal detention, illegal torture, and gathering crowds to fight came were added. Of course, it would be strange if such a musical troupe didn't have such things at that time.
+He leafed through the documents: clear logic, conclusive evidence, indictment, testimony, and confessions all present and accounted for. Beyond the primary charge of organizing banditry, the prosecutors had appended a litany of additional crimes—human trafficking, intentional injury, illegal detention, unlawful torture, and inciting group violence. Unsurprising, really. It would have been far stranger if such a troupe *lacked* such transgressions.
 
-Zhu Mingxia nodded with satisfaction: The young lads memorized the legal articles really well. Doing it this way made everything appear reasonable and legal—"ruling the country by law" could not be abolished.
+Zhu Mingxia nodded with satisfaction. The young officers had memorized their legal articles well. Following proper procedure lent an air of legitimacy to the proceedings. "Rule by law" could not simply be discarded.
 
-"In the name of the Senate and the People, I order the necessary disposal of the following personnel." He signed his name after this line of words and handed the document to the messenger, "Execute immediately."
+"In the name of the Senate and the People, I order the necessary disposal of the following personnel." He signed his name beneath these words and returned the document to the messenger. "Execute immediately."
 
-After executing the people who shouldn't exist, Zhu Mingxia felt in a good mood. He looked out the window: on the small square beside the stockade, dead cattle, horses, and mules were being skinned. They prepared to use this livestock meat to improve the meals of the Northbound Detachment in the evening. The Northbound Detachment had been eating very hardships these days; apart from filling their stomachs, they were actually no different from refugees. Even fresh vegetables were rarely supplied here, let alone meat.
+Once the men who shouldn't exist had been eliminated, Zhu Mingxia found his mood much improved. Gazing through the window at the small square beside the stockade, he watched as dead cattle, horses, and mules were being skinned. Tonight, this butchered livestock would finally provide the Northbound Detachment a proper meal. The soldiers had been eating hardship for far too long—their rations might fill bellies, but offered little difference from refugee fare. Even fresh vegetables had become a rarity, to say nothing of meat.
 
-Even Zhu Mingxia himself hadn't eaten fresh meat for a long time. Seeing this scene, not only did he not feel disgusted, but he swallowed a few mouthfuls of saliva. Immediately he instructed the orderly: "Tell the cooking squad to get some steaks first, then make some radish beef balls! Also beef tendon, put more pepper, Sichuan peppercorn, and cumin..."
+Even Zhu Mingxia himself hadn't tasted fresh meat in ages. Rather than turning his stomach, the sight of the slaughterwork made him swallow with anticipation. He immediately called out to his orderly: "Tell the cooking squad to prepare some steaks first, then make radish beef meatballs! And beef tendon—add plenty of pepper, Sichuan peppercorn, and cumin..."
 
-While speaking, Lu Wenyuan and Chen Sigen also arrived. Both were in high spirits: they had just drafted the telegram to be sent to Lingao, reporting this major battle result, and at the same time requesting an increase in shipping frequency.
+While he was still speaking, Lu Wenyuan and Chen Sigen arrived. Both were in high spirits, having just finished drafting a telegram for Lingao reporting this major victory and requesting increased shipping frequency.
 
-The telegram could be sent in the name of the Jeju Island Forward Command after Zhu Mingxia read and signed it. Although this couldn't count as some amazing great victory, at least it showed that the Northbound Detachment had gained a firm foothold in Shandong, and the operation of the Engine Action was also normal.
+The message could be sent under the Jeju Island Forward Command's authority once Zhu Mingxia reviewed and signed it. While the battle hardly qualified as some glorious triumph, it demonstrated that the Northbound Detachment had secured a firm foothold in Shandong, and that Engine Action was operating smoothly.
 
-"If the ships can't come in time, hundreds of people will definitely freeze to death when it snows again in a few days." Lu Wenyuan said with some regret, "It's a bit of a waste for us to catch so many prisoners."
+"If the ships don't arrive in time, a few hundred people will certainly freeze to death when the next snow comes," Lu Wenyuan said with a note of regret. "Would be a waste, after catching so many prisoners."
 
-"Last time Zhao Yingong sent a telegram saying he was trying to solve it—how will he solve it?" Zhu Mingxia was also worried about this problem, "It wasn't easy to get so many people, don't let a large batch be tossed to death again."
+"Last telegram, Zhao Yingong mentioned he was working on a solution—but what solution?" Zhu Mingxia shared this concern. "It wasn't easy getting all these people. I'd hate to see another large batch die needlessly."
 
-He had no opinion on the telegram text. As the chief military officer, even if he didn't brag about himself, the four words "commanded with proper methods" would always belong to him.
+He had no objections to the telegram's wording. As commanding officer, even without embellishment, the commendation of "commanded with proper methods" would naturally belong to him.
 
-After signing, Lu Yang arrived. He reported that all corpses had been dumped.
+After signing, Lu Yang arrived with a report: all corpses had been disposed of.
 
-"Finally finished—getting my few *Dafa* boats all covered in blood stains, have to scrub them properly..." He complained, "If you asked me, wouldn't it be fine to just bury them directly? It's equal to fertilizing the land—"
+"Finally finished—got blood stains all over my *Dafa* boats. Going to need a thorough scrubbing..." He grumbled, "If you ask me, why not just bury them? Call it fertilizing the land—"
 
-"The weather is freezing, digging pits is too hard." Zhu Mingxia shook his head, "Besides, if not done well, we have to consider issues of plague and groundwater pollution. It's better to throw them into the sea: you can think of it this way, burying in the ground is making fertilizer, throwing into the sea is feeding fish. Anyway, once the Senators stand firm in Jeju and Shandong, large-scale development of local fishery resources should be put on the agenda immediately. This can not only solve a big chunk of the grain problem but also supplement the urgently lacking protein. What a good thing!"
+"The ground's frozen solid," Zhu Mingxia shook his head. "Digging pits would be backbreaking work. Besides, if done poorly, we'd face plague and groundwater contamination. Better to dump them at sea. Think of it this way: burial makes fertilizer, sea disposal feeds fish. Either way, once the Senators establish themselves in Jeju and Shandong, large-scale fishery development goes straight onto the agenda. Solves a significant portion of our grain shortage while supplementing our desperate need for protein. Everybody wins."
 
-Lu Wenyuan laughed: "Sir Zhu, your level of comprehensive utilization is not high. If that gang from the Planning Commission were here, they would definitely shave off the dead people's hair, weave it into cold-proof felt mats and insoles after high-temperature steam disinfection; throw corpses into biogas digesters to decompose, producing biogas for heating and cooking for refugees, biogas slurry for fertilizing fields, residues for feeding pigs, and if really can't use it up, throw into the sea to feed fish, developing fishery production..."
+Lu Wenyuan laughed. "Sir Zhu, your comprehensive utilization skills are lacking. Had the Planning Commission been here, they'd have shaved the corpses' hair and woven it into cold-weather felt mats and insoles after high-temperature steam disinfection. They'd dump the bodies into biogas digesters, generating fuel for heating and cooking, slurry for fertilizing fields, residue for feeding pigs—and *then*, if they still couldn't use it all up, throw it to the fish. Develop fishery production as a last resort..."
 
-"Stop talking, I'm almost vomiting." Chen Sigen frowned, "After hearing you say that, I don't even want to eat fish."
+"Stop, stop—I'm going to be sick." Chen Sigen grimaced. "After listening to that, I've lost all appetite for fish."
 
-"Alright, let's stop roasting the Planning Commission. I think tomorrow let Little Lu send a ship to contact Sun Yuanhua," Zhu Mingxia said, "First is to give him gifts, second is to see if we can help him strengthen Laizhou's defense. Kong Youde and his gang suffered such a big loss, they should attack Laizhou even more fiercely and ruthlessly."
+"Alright, enough roasting the Planning Commission. Tomorrow, let's have Little Lu send a ship to contact Sun Yuanhua," Zhu Mingxia said. "First to present gifts, second to see if we can help strengthen Laizhou's defenses. Kong Youde's forces suffered such heavy losses—they'll attack Laizhou with even greater fury now."
 
-"The headquarters has already telegraphed. They will soon send a Senator specifically responsible for Laizhou's defense and liaison work with Sun Yuanhua. They asked us to find an appropriate opportunity to help him establish a relationship with Sun Yuanhua." Lu Wenyuan said.
+"Headquarters already sent word," Lu Wenyuan replied. "They're dispatching a Senator specifically to handle Laizhou's defense and liaison with Sun Yuanhua. They want us to find an appropriate opportunity to facilitate introductions."
 
-"Eh? Could it be that this person is not me?" Lu Yang was greatly disappointed.
+"Oh? You mean it won't be me?" Lu Yang's face fell with disappointment.
 
-"You'll be busy soon enough—you are the Naval Detachment Commander, not a diplomat. What do you want to do hanging out with Old Sun instead of doing your own job?" Chen Sigen looked at him maliciously.
+"You'll be busy soon enough." Chen Sigen regarded him with a malicious grin. "You're the Naval Detachment Commander, not a diplomat. What are you thinking, hanging around Old Sun instead of doing your actual job?"
 
-"Alright, alright, I know." Lu Yang had to nod, "I have great reverence for Mister Huodong..."
+"Fine, fine, I understand." Lu Yang conceded with a reluctant nod. "I have the utmost reverence for Mister Huodong..."
 
-"Reverence is not good. We just need to respect him." Zhu Mingxia said, "Since it's like this, we have to find a suitable opportunity. How about we don't send our gifts first, wait for the person to come and send them together—to let him owe us a favor."
+"Reverence is unnecessary. Respect will suffice." Zhu Mingxia waved dismissively. "Since that's the situation, we need to find the right moment. Perhaps we should hold off on delivering our gifts until the new liaison arrives—send everything together. Make sure Sun Yuanhua owes *us* the favor."
 
-"Agreed, we must look for the right timing." Lu Wenyuan nodded, "Today is January 24th. In a few more days, the rebels will fight a battle with the government troops led by Yang Yufan and Wang Hong at Xincheng. So I think we don't need to rush to go at this moment. It will be better to go when this government army is defeated and people in Laizhou City are in panic, to make them appreciate the favor more."
+"Agreed, timing is everything." Lu Wenyuan nodded. "Today is January 24th. In a few days, the rebels will clash with government forces under Yang Yufan and Wang Hong at Xincheng. Better to wait until after the imperial army's defeat, when Laizhou City drowns in panic. Our gifts will carry far more weight then."
 
-Another effect was that Yang Yufan and Wang Hong lost the battle, but Sun Yuanhua won a battle. Reporting simultaneously would be great benefit to reducing Sun Yuanhua's guilt.
+Another advantage: Yang Yufan and Wang Hong's loss, combined with Sun Yuanhua's victory in the same report, would do wonders for mitigating Sun's guilt.
 
-"Didn't expect you to have quite a few ideas," Chen Sigen praised, "I think this is feasible."
+"Didn't expect you to have such a keen mind for strategy," Chen Sigen praised. "I think this is workable."
 
-Zhu Mingxia also expressed agreement. Everyone unanimously decided to go "give gifts" after the government troops suffered a defeat.
+Zhu Mingxia concurred, and together they resolved to "deliver gifts" only after the government troops met their defeat.
 
-Zhu Mingxia also ordered to organize a commando unit, preparing to go "pick up scraps" after the rebels finished fighting the government troops on January 30th. Even getting some dead horses and mules back would be good.
+Zhu Mingxia also ordered the formation of a commando unit, prepared to "scavenge the battlefield" after the January 30th engagement. Even salvaging some dead horses and mules would prove worthwhile.
 
-After fighting the rebels, things quieted down for a few days. The Qimu Island trio was waiting for someone from the rebels to contact them, but the Special Reconnaissance Team that went to Dengzhou for reconnaissance returned. They also brought back some prisoners.
+Following the skirmish with the rebels, several quiet days passed. While the Qimu Island trio awaited contact from the enemy, their Special Reconnaissance Team returned from Dengzhou reconnaissance—bringing prisoners in tow.
 
-Seeing these few figures in the courtyard wrapped in dirty cotton robes, looking dispirited one by one, Lu Wenyuan immediately knew who they were.
+Seeing the ragged figures huddled in the courtyard, wrapped in filthy cotton robes, their spirits utterly broken, Lu Wenyuan immediately recognized them.
 
-These were the original Dengzhou officials captured when the city fell: Dengzhou Intendant Song Guanglan, Liaodong-Coastal Supervising Censor Wang Zheng, Governor's Command Brigade Commander (*Fubiao Canjiang*) Zhang Tao...
+These were the Dengzhou officials captured when the city fell: Dengzhou Intendant Song Guanglan, Liaodong-Coastal Supervising Censor Wang Zheng, Governor's Brigade Commander Zhang Tao...
 
-According to the Special Reconnaissance report, they discovered during surveillance that these people were sent out by the rebels. The rebels were very polite, not only sending people to escort them out of the city but also giving each person several mules, along with servants and luggage.
+According to the reconnaissance report, they had discovered during surveillance that the rebels were releasing these men. The gesture was surprisingly courteous—not only providing escort out of the city, but furnishing each prisoner with several mules, servants, and personal luggage.
 
-The Special Reconnaissance Team had received relevant orders long ago, so naturally, they wouldn't let them go. They immediately sent people to follow and monitor. After the group was far away from the city, they launched a surprise attack, eliminated the escorting rebel cavalry, and captured all the remaining people.
+The Special Reconnaissance Team had standing orders for precisely this scenario. They shadowed the group, waited until they were well clear of the city, then struck. The rebel cavalry escort was eliminated, and all remaining personnel taken into custody.
 
-Simple interrogation of captured rebel soldiers and servants proved that these people were the captured Dengzhou officials.
+Preliminary interrogation of captured rebel soldiers and servants confirmed these were indeed the missing Dengzhou officials.
 
-"You did a good job." Lu Wenyuan patted the team member's shoulder vigorously, turned his head and said to Chen Sigen, "Give them a merit record!"
+"Excellent work." Lu Wenyuan clapped a team member firmly on the shoulder, then turned to Chen Sigen. "Give them merit citations!"
 
-"No problem!" Chen Sigen smiled and nodded, "Beautifully done!"
+"Absolutely!" Chen Sigen smiled broadly. "Beautifully done!"
 
-Capturing this batch of officials removed one of Sun Yuanhua's biggest hidden dangers. The so-called "unifying the narrative" was also a very important matter.
+Capturing these officials eliminated one of Sun Yuanhua's greatest vulnerabilities. The so-called "unification of narrative" was a matter of considerable importance.
 
-"Send all these people into the stockade to bathe and change clothes, then give them physical examinations. Prepare a banquet later to help them get over the shock." Lu Wenyuan instructed his subordinates, "Return luggage and servants to them, but free movement is not allowed. Put them all under house arrest!"
+"Have them all brought into the stockade to bathe and change clothes, then give them physical examinations. Prepare a banquet to help settle their nerves afterward." Lu Wenyuan instructed his subordinates. "Return their luggage and servants, but no free movement. Keep them all under house arrest!"
 
-When Dengzhou City fell, most civil and military officials either surrendered to the rebels or committed suicide. Those like them who neither surrendered nor committed suicide were the minority. This made these officials become the main evidence for the court to suspect "surrendering to the enemy and joining the rebellion" after being released by the rebels. However, for the Senators, the motive for these people refusing to commit suicide was not strange at all: most of these people were Catholics. Suicide was a grave sin for Catholics, unforgivable unless pardoned personally by the Pope after death.
+When Dengzhou fell, most civil and military officials either surrendered to the rebels or took their own lives. Those like these men—who did neither—were the rare minority. This very distinction made them prime evidence for court suspicions of "surrendering to the enemy and joining the rebellion" once the rebels released them. But for the Senators, the reason these men refused suicide was no mystery: most were Catholics. Suicide was a grave sin in their faith, unforgivable unless personally pardoned by the Pope after death.
 
-It was indeed surprising that so many high-ranking officials believing in Catholicism gathered in this small Dengzhou City. Sun Yuanhua indeed regarded his fellow believers as the most reliable assistants. Speaking of which, it was a bit like a Dengzhou Catholic clique.
+That so many high-ranking Catholic officials had congregated in this small city of Dengzhou was remarkable indeed. Sun Yuanhua had clearly regarded his fellow believers as his most reliable allies. In effect, he had cultivated something of a Dengzhou Catholic clique.
 
-However, Zhu Mingxia understood his practice very well: The new system Sun Yuanhua engaged in was not something ordinary officials and scholars of the Great Ming could understand and accept. Forming a small clique was also excusable.
+Zhu Mingxia understood the practice well: the reforms Sun Yuanhua had championed were not concepts ordinary Ming officials and scholars could easily understand or accept. Forming a tight-knit faction was entirely excusable.
 
-Although these officials were useless, they were Sun Yuanhua's best allies: they were colleagues in Sun Yuanhua's career and fellow believers, and now faced the same crisis. They were easily persuaded to cooperate. Helping Sun Yuanhua was helping themselves; they wouldn't fail to understand this simple principle. As long as they understood the current situation, they would speak according to the plan prepared in advance.
+Though these officials were of little practical use, they represented Sun Yuanhua's most natural allies: colleagues in his administration, brothers in faith, and now partners in crisis. They would be easily persuaded to cooperate. Helping Sun Yuanhua meant helping themselves—a principle they would readily grasp. Once they understood the current situation, they would speak exactly according to the prepared script.
 
 (End of Chapter)

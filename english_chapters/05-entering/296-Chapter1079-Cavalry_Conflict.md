@@ -1,83 +1,87 @@
 # Chapter 1079 - Cavalry Conflict
 
-Along the way, Zhu Mingxia kept a gloomy face, making Huang Xiong mutter in his heart, unclear what the Chief was thinking. He used to be an old soldier of Dengzhou and was habitually trying to figure out the superior's intentions. As long as the superior had a long face, he would panic. It wasn't good to ask, so he could only honestly follow by the side.
+Throughout the march, Zhu Mingxia wore a gloomy expression. Huang Xiong muttered uneasily in his heart, uncertain what the Chief was thinking. Having served as an old Dengzhou soldier, he habitually tried to divine his superiors' intentions. Whenever a superior's face went dark, he grew anxious. It wasn't proper to ask directly, so he could only follow quietly alongside.
 
-"Huang Xiong, do you think the number of people I brought out is a bit too few?"
+"Huang Xiong—do you think the force I brought out is too small?"
 
-Hearing Zhu Mingxia ask, Huang Xiong perked up and immediately replied: "Report to Detachment Leader, this recovery team consists of two infantry companies, one baggage company, one village brave company, one cavalry squad, and a work team, totaling four hundred and seventy people. It is not few."
+Hearing Zhu Mingxia's question, Huang Xiong perked up and replied immediately: "Report to Detachment Leader—this recovery team consists of two infantry companies, one baggage company, one village brave company, one cavalry squad, and a work team. Four hundred seventy personnel in total. It is not few."
 
-"It's enough to recover refugees." Zhu Mingxia glanced coldly at Huang Xiong and continued: "But if we want to do something other than recovering refugees, this bit is not enough to look at."
+"Enough to recover refugees." Zhu Mingxia glanced coldly at Huang Xiong. "But if we wanted to do something other than recover refugees, this number wouldn't be worth looking at."
 
 "What plans do you have, Detachment Leader?"
 
-"Hmph—I just wanted to roast (*tucao*) it."
+"Hmph—I just wanted to gripe about it."
 
-Huang Xiong naturally didn't understand what "roast" (*tucao*) meant, but he also knew that there was meaning in Zhu Mingxia's words. When a superior wanted to open up, a subordinate had better listen patiently. Any interruption was asking for trouble, so he kept his head down and followed closely, listening carefully to what Zhu Mingxia said, afraid of missing even a little bit.
+Huang Xiong naturally didn't understand what "gripe" meant, but he sensed there was meaning in Zhu Mingxia's words. When a superior wanted to vent, a subordinate had best listen patiently. Any interruption was asking for trouble. So he kept his head down and followed closely, listening intently, afraid of missing even a word.
 
-"Huang Xiong, our army is brave and good at fighting, capable of fighting one against ten. You guys were personally trained by me; you are all soldiers made of iron." Zhu Mingxia pointed towards Dengzhou, "Far from what that bunch of trash in Dengzhou can contend with. My Northbound Detachment has two thousand people; don't look at the small number, if we want to break Dengzhou City, we can do it just the same. The result? We can only turtle up in Qimu Island because we have to avoid direct military conflict."
+"Huang Xiong, our army is brave and skilled—capable of fighting one against ten. You were personally trained by me. You are soldiers forged from iron." Zhu Mingxia gestured toward Dengzhou. "Far beyond what that rabble in Dengzhou can contend with. My Northbound Detachment has two thousand men. Don't let the small number fool you—if we wanted to crack Dengzhou City, we could do it just the same. And yet? We can only turtle up on Qimu Island because we must avoid direct military conflict."
 
-Huang Xiong was once a Dengzhou soldier. After the news of the rebels massacring local soldiers and civilians upon breaking the city came, he felt quite miserable in his heart. It was just that the Chiefs kept holding the troops back, and he, a small officer, couldn't say anything. Hearing Zhu Mingxia say this, he couldn't help but sigh.
+Huang Xiong had once been a Dengzhou soldier. After news arrived of the rebels massacring local soldiers and civilians upon breaking the city, he had felt considerable anguish. But the Chiefs kept holding the troops back, and as a minor officer, he could say nothing. Hearing Zhu Mingxia speak thus, he could not help but sigh.
 
-"We can't even attack Huang County. That is the rebels' barrier, used to defend against us. Once we attack Huang County, that would be starting a proper war. Kong Youde and Li Jiucheng would have to mobilize a large army to fight us to the death. Beating them is of course nothing—easy as turning over a hand. But my current mission is after all not to fight the rebels; otherwise, taking Huang County would be much simpler than hanging around here collecting refugees."
+"We can't even attack Huang County—that's the rebels' barrier, their defense against us. Once we attack Huang County, we've started a proper war. Kong Youde and Li Jiucheng would have to mobilize a full army to fight us to the death. Beating them is nothing—easy as flipping a hand. But my current mission isn't to fight rebels. Otherwise, taking Huang County would be far simpler than wandering around collecting refugees."
 
-The Senate's intervention in the Jiaodong Peninsula had a significant impact on history. Although the refugee camp on Qimu Island did not look like a military camp to the outside world, there were thousands upon thousands of people gathering there. To put it nicely, they were refugees; to put it bluntly, they were a potential large group of bandits. In the eyes of people at that time, with so many people gathered together, even if they weren't bandits, they wouldn't be good birds—if one day they didn't have enough to eat and rushed out, that would be human locusts.
+The Senate's intervention in the Jiaodong Peninsula had significantly altered history. Though the refugee camp on Qimu Island did not outwardly resemble a military installation, thousands upon thousands of people had gathered there. To speak kindly, they were refugees; to speak harshly, they were a potential bandit horde in waiting. In the eyes of people in this era, such a massive gathering—even if not bandits—could not be good birds. Should they ever run short of food and surge outward, they would become human locusts.
 
-Shortly after occupying Dengzhou, the rebels immediately attacked Huang County, preparing to use Huang County as a stronghold to consolidate their rear. The offensive towards Laizhou was to broaden the scope of activity. Capturing Huang County was to ensure a reliable support point on the periphery of Dengzhou—once the court wanted to suppress, the first batch of government troops would definitely attack from the direction of Huang County.
+Shortly after occupying Dengzhou, the rebels had attacked Huang County immediately, preparing to use it as a stronghold to secure their rear. Their offensive toward Laizhou aimed to broaden their operational scope; capturing Huang County ensured a reliable support point on Dengzhou's periphery. If the Court ever launched a suppression campaign, the first wave of government troops would certainly strike from the Huang County direction.
 
-Because a large number of refugees had gathered on Qimu Island, the rebels attacking Huang County this time were not only more numerous than recorded in history, but after capturing Huang County, they were more actively capturing able-bodied men to enrich their strength. If he didn't come out to actively pick up these refugees, he feared none of them could run away and would all be caught. Zhu Mingxia jokingly called this collection "Operation Plunder Little Brothers." What he wanted to do was to plunder population from under the opponent's nose with as little combat or no combat as possible. "Wouldn't it be fine to directly f**k over the rebels!" He howled like this in his heart more than once.
+Because a large refugee concentration had formed on Qimu Island, the rebels attacking Huang County this time came in greater numbers than recorded in history. After capturing the city, they more actively pressed able-bodied men into service. If Zhu Mingxia did not go out to actively receive these refugees, he feared none could escape—all would be caught. He jokingly called this collection effort "Operation Plunder Little Brothers." His goal was to plunder population from under the enemy's nose with minimal or no combat. *Wouldn't it be simpler to just crush those rebels!* he howled inwardly more than once.
 
-Amidst Zhu Mingxia's roasting, the recovery team arrived at an abandoned village. The buildings in this village were relatively intact, with dilapidated fences and barely recognizable earthen walls. If water could be replenished locally, it would be suitable to set up camp here. Zhu Mingxia immediately ordered a search team to enter the village to search.
+Amid Zhu Mingxia's griping, the recovery team arrived at an abandoned village. The buildings here were relatively intact, with dilapidated fences and barely recognizable earthen walls. If water could be obtained locally, this would be a suitable campsite. Zhu Mingxia immediately ordered a search team to enter the village.
 
-"There is no one in the village! There is a well—" The scout hesitated, "Someone threw a corpse in the well; it can't be used."
+"No one in the village. There's a well—" The scout hesitated. "Someone threw a corpse in the well. It can't be used."
 
-Wang Qisuo, the scout sent to search the village, reported. He came from a local salt smuggler background, could speak the dialects of Dengzhou and surrounding areas, and was quite clever. His training results were very good, so Zhu Mingxia selected him to be a scout in the Advance Column, specifically assisting the regular army scouts in local activities.
+Wang Qisuo, the scout sent to search the village, delivered his report. He came from a local salt-smuggling background, spoke the dialects of Dengzhou and surrounding areas, and was quite clever. His training results had been excellent, so Zhu Mingxia selected him as a scout in the Advance Column to assist regular army scouts with local operations.
 
-"It seems the rebels have been here." Zhu Mingxia said. Throwing corpses into wells was equivalent to destroying the necessary conditions for local survival, forcing the local people to scatter—even if someone was lucky enough not to be caught by the rebels, they couldn't stay in the village.
+"It seems the rebels have been here." Zhu Mingxia nodded. Throwing corpses into wells was equivalent to destroying the essential conditions for local survival, forcing inhabitants to scatter. Even those lucky enough to avoid rebel capture could not remain in the village.
 
-Zhu Mingxia had no doubt that if it hadn't been snowing recently making it difficult to start fires, the rebels would probably have completely burned down the village.
+Zhu Mingxia had no doubt that if recent snowfall hadn't made fire-starting difficult, the rebels would probably have burned the village to ashes.
 
-However, this was a suitable relay campsite. If there was no clean water source, collecting snow from the ground would barely do—only for fuel, they would have to tear down houses. Zhu Mingxia thought, *anyway, the people in this village won't be coming back.*
+Still, this was a suitable relay campsite. Without a clean water source, collecting snow from the ground would barely suffice. As for fuel—they would have to tear down houses. *Anyway*, Zhu Mingxia thought, *the people of this village won't be coming back.*
 
-He ordered some personnel to stay behind for defense, including some refugees collected along the way, settled into empty houses to make fires for warmth and let them rest temporarily. Others piled up village sundries and some baggage to form a shanzhai version of a street barricade to block the east and west ends, and buried landmines on the north and south sides of the village to guard against sneak attacks.
+He ordered some personnel to remain for defense. Refugees collected along the way were settled into empty houses to make fires and rest temporarily. Others piled village debris and some baggage to form a makeshift street barricade blocking the east and west approaches. Landmines were buried on the north and south sides to guard against sneak attacks.
 
-He himself led the main force to continue forward. All the cavalry in his hand were sent out to actively contact the largest refugee group and directly annihilate small groups of enemies encountered. Zhu Mingxia estimated: The rebels would very likely dispatch a few cavalry to harass the refugees, slow down their marching speed, and facilitate capture by follow-up troops. Of course, it was also possible that just some stragglers ran out to rob.
+He himself led the main force forward. All cavalry in his command were deployed to actively contact the largest refugee group and annihilate any small enemy groups encountered. Zhu Mingxia estimated the rebels would very likely dispatch cavalry to harass refugees, slowing their march to facilitate capture by follow-up forces. Of course, some might simply be stragglers out robbing.
 
-On the frozen Shandong earth, more than a hundred refugees huddled together. Several lay motionless on the ground, blood gurgling from their wounds. More than a dozen executioners were sitting on horses, happily sizing up their spoils. They were rebels under Kong Youde. There were dozens of other cavalry groups like them. The purpose of coming out in large numbers was only one: robbing refugees. Young and beautiful women were abducted, belongings were snatched, and others didn't matter whether they lived or died. This kind of plundering sometimes yielded good treasures without much risk. Many rebels were happy to do so.
+---
 
-A bald-browed man at the head was the first to jump off his horse, wanting to carefully size up the women among the refugees. But everyone lowered their heads and huddled up. Barely grabbing their hair to force them to look up, it was still smoky and black, making it hard to see clearly. He instantly flew into a rage, raised his sword, and hacked two more refugees to death. He grinned with a big mouth and roared: "Grandma's bear (*Nainai ge Xiong*), women hurry over to Granddaddy here. If you dawdle anymore, I'll kill one with each cut and chop you all."
+On the frozen Shandong earth, more than a hundred refugees huddled together. Several lay motionless on the ground, blood gurgling from their wounds. More than a dozen executioners sat on horseback, happily surveying their spoils. They were rebels under Kong Youde. Dozens of similar cavalry groups were scattered about—their sole purpose: robbing refugees. Young and beautiful women were abducted; belongings were snatched; whether others lived or died was of no concern. This kind of plundering sometimes yielded good treasures with minimal risk. Many rebels were happy to participate.
 
-Saying this, he raised his sword, wanting to hack the third person. Before this sword could cut down, someone shouted: "Cavalry!"
+A bald-browed man at the head was first to dismount, intending to carefully examine the women among the refugees. But everyone had their heads lowered, huddled tight. He grabbed hair to force faces up, but the features were too smeared with soot to see clearly. Rage instantly consumed him. He raised his sword and hacked down two more refugees, then grinned widely and roared: "Grandma's bear! Women—come over to Granddaddy here right now. Dawdle any longer and I'll hack one with every swing—cut through all of you."
 
-Bald-brow followed the voice and looked. More than a hundred *zhang* away, a small squad of cavalry was slowly running towards them. Bald-brow dropped the refugee and hurriedly raised his sword to mount—the vision on the horse was better.
+He raised his sword to strike a third victim. Before the blade could descend, someone shouted: "Cavalry!"
 
-Bald-brow used to be a cavalryman in the Liaodong Garrison and had fought with the Manchus in Liaodong—although they lost every battle, relying on his horsemanship and the ability to grasp the best time to flee, he could always stay safe and sound.
+Bald-brow followed the voice. More than a hundred *zhang* away, a small squad of cavalry was trotting toward them. He dropped the refugee and hurried to raise his sword and mount—visibility was better from horseback.
 
-Relying on this ability to escape, he accumulated merit to become a Commander (*Dusi*)—however, Mao Wenlong granted official titles too numerously and indiscriminately on Pi Island back then, so after his death, the official ranks of Dongjiang generals were several grades lower. Bald-brow was just a Squad Leader (*Bazong*).
+Bald-brow had once been a cavalryman in the Liaodong Garrison, had faced the Manchus in Liaodong. Though they lost every battle, he had relied on horsemanship and an unerring instinct for the optimal moment to flee, always staying safe.
 
-Years of experience in fleeing made him quite cautious about enemies, especially mounted enemies, because the biggest threat to fleeing cavalry was pursuing cavalry.
+This survival skill had earned him promotion to Commander—though Mao Wenlong had granted official titles far too freely on Pi Island, so after his death, the ranks of Dongjiang generals were downgraded several levels. Bald-brow was merely a Squad Leader now.
 
- exerting force on the stirrups with both feet, standing upright, looking over, he saw that these cavalrymen wore no armor, and their attire had never been seen before: wearing gray cloaks on the outside, tall hats on their heads, coming towards him in a double column.
+Years of flight-based survival had made him cautious about enemies, especially mounted enemies. Pursuing cavalry posed the greatest threat to fleeing cavalry.
 
-The comers were hostile. The numbers on both sides were about the same. Bald-brow and these rebels under him had seen battle arrays after all. Seeing that the other side had no numerical advantage and no one wore armor, they didn't scatter but gathered together, intending to have a cavalry charge.
+Rising in his stirrups, he surveyed the newcomers. These cavalrymen wore no armor. Their attire was completely unfamiliar—gray cloaks, tall hats, advancing toward him in a double column.
 
-Although Liaodong cavalry performed averagely when facing the Manchus, they could fight one battle with them after all. Inside the pass, they were known as "Iron Cavalry," so neither Bald-brow nor his subordinate cavalry took the dozen or so cavalrymen in front of them seriously—even though the troop strength of both sides was equal.
+The approaching force was hostile. Numbers appeared roughly equal on both sides. Bald-brow and his rebels had seen battle formations after all. Observing that the enemy had no numerical advantage and wore no armor, they did not scatter but gathered together, preparing for a cavalry charge.
 
-However, the other side did not directly draw swords and charge over. Instead, they reined in their horses seventy or eighty *zhang* away. Except for three or four riders, everyone else dismounted. Lined up in a row.
+Though Liaodong cavalry performed poorly against the Manchus, they could at least put up a fight. Inside the pass, they were known as "Iron Cavalry." Neither Bald-brow nor his subordinates took the dozen or so cavalrymen before them seriously—even with roughly equal numbers.
 
-Bald-brow pulled down the iron helmet on his head, a bit confused. *Did the other side dismount to prepare for archery?* Back then in Liaodong, he had seen Tartars do this, but this distance was really a bit far—even Tartars known for strong bows and hard arrows wouldn't dismount to shoot arrows so far away. He waved his hand: "Everyone charge! Slash for a while!"
+But the other side did not draw swords and charge. Instead, they reined in their horses seventy or eighty *zhang* away. Except for three or four riders, everyone else dismounted. They formed a line.
 
-More than a dozen cavalrymen drew their swords simultaneously and spurred their horses to charge fiercely.
+Bald-brow pulled down his iron helmet, confused. *Did they dismount to prepare for archery?* He had seen Tartars do this in Liaodong, but this distance was excessive. Even Tartars renowned for powerful bows and hard arrows would not dismount to shoot from so far. He waved his hand. "Everyone charge! Cut them down!"
 
-Because there were very few people on both sides, Bald-brow didn't order his men to adopt any formation, simply pouncing on them directly.
+More than a dozen cavalry drew their swords simultaneously and spurred their horses to gallop fierce.
 
-Almost at the same time they spurred their horses to gallop, a burst of crisp cracking sounds came to their ears.
+Given the small numbers on both sides, Bald-brow did not order any formation—they simply charged headlong.
 
-"Too early!" Bald-brow roared. Firing guns so far away was basically just listening to a loud noise! He lowered his head, clamped the horse's belly with his legs, and continued to gallop wildly.
+Almost the instant they spurred their mounts, crisp cracking sounds reached their ears.
 
-However, a second volley of gunshots rang out very quickly. A rebel cavalryman's horse suddenly fell, followed by another one falling.
+"Too early!" Bald-brow roared. Firing guns from such distance was merely making noise! He lowered his head, clamped his horse's belly with his legs, and continued charging wildly.
 
-The gunshots became increasingly dense. The opponent's bird guns seemed capable of continuous fire! Before running twenty *zhang*, three or four people had already fallen. When another person fell, everyone turned their horses' heads around in unison without waiting for orders, whipped the horses' rumps wildly a few times, and directly chose to run away without saying a word.
+A second volley rang out almost immediately. A rebel cavalryman's horse suddenly collapsed. Another fell right after.
 
-The rescued refugees looked at these cavalrymen in horror. They didn't know what this new group of people wanted to do. Fortunately, the languages were mutually intelligible. After some communication, they learned that the other party came from Qimu Island specifically to pick them up to take refuge on Qimu Island. Qimu Island was originally not the destination for these refugees, but in front of these cavalrymen who had just killed people, they had no other choice.
+The gunfire grew increasingly dense. The enemy's bird guns seemed capable of continuous fire! Before they had covered twenty *zhang*, three or four men had fallen. When another dropped, everyone wheeled their horses in unison without waiting for orders, lashed their horses' rumps wildly, and chose to flee without a word.
+
+---
+
+The rescued refugees stared at these cavalrymen in terror, uncertain of the newcomers' intentions. Fortunately, their languages were mutually intelligible. After some communication, they learned that the others had come from Qimu Island specifically to escort them to refuge there. Qimu Island had not been their original destination, but before these cavalrymen who had just killed men, they had no other choice.
 
 (End of Chapter)

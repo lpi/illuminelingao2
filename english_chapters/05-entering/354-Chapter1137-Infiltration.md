@@ -1,85 +1,85 @@
 # Chapter 1137 - Infiltration
 
-Originally, the Dutch trading post was located on Beixianwei Island, serving both defense and guarding the Taijiang Inner Sea. However, to facilitate trade with locals, several buildings were constructed on one side of the Lu'ermen Channel to serve as a trading station. They purchased deerskins and cane sugar, and sold general merchandise, ironware, and salt.
+The Dutch trading post had originally been established on Beixianwei Island, serving the dual purpose of defense and control over the Taijiang Inner Sea. However, to facilitate trade with the local population, several buildings were constructed on the mainland side of the Lu'ermen Channel as a commercial station. There, the Dutch purchased deerskins and cane sugar while selling general merchandise, ironware, and salt.
 
-The trading station itself was a brick building; the second and third floors were warehouses for storing purchased goods. At the entrance, Han people and natives from Xingang and other places selling deerskins and local products were lining up below the steps. A large table sat on the steps, where deerskins were laid out for inspection and pricing by a low-level Dutch clerk—deerskins were Taiwan's most valuable local export besides sugar, and the Dutch valued them highly.
+The trading station itself was a solidly built brick structure; the upper floors served as warehouses for purchased goods. At the entrance, Han people and natives from Xingang and neighboring areas lined up below the steps, deerskins and local products in hand. A large table occupied the steps, where a junior Dutch clerk inspected and priced each deerskin laid before him—Taiwan's most valuable local export besides sugar, and a commodity the Dutch treated with corresponding seriousness.
 
-The May sunlight in Taiwan was already scorching. Except for the natives who customarily went bare-headed and bare-bodied, the Han people almost all wore the bamboo conical hats common in southern Fujian, their faces barely visible. Li Siya knew that as long as her face wasn't seen, there would be no problem. She carefully observed the situation in Tayouan from under her bamboo hat.
+The May sun in Taiwan was already brutal. Except for the natives, who customarily went bare-headed and bare-bodied, the Han people all wore the bamboo conical hats common in southern Fujian, their faces mostly hidden from view. Li Siya knew that as long as her face remained unseen, there would be no problem. She observed the scene from beneath her bamboo hat with careful attention.
 
-Although it was difficult to observe the progress of Fort Zeelandia closely from this location, she could vaguely see that more than half the work was done. Li Siya estimated it would be fully completed in less than half a year.
+Although she could not closely examine Fort Zeelandia's construction from this distance, she could make out enough to judge that more than half the work was complete. She estimated it would be finished within six months.
 
-Even more indicative of the Dutch state of alert than Fort Zeelandia was their battery on Beixianwei Island. The battery had clearly been reinforced, and bamboo walls erected on the ramparts indicated newly strengthened Dutch defenses. She noticed the number of cannons on the Beixianwei Island battery had also increased. Patrol sentries on the island had increased as well.
+Even more telling than the fortress itself was the battery on Beixianwei Island. The defenses had clearly been reinforced—bamboo walls on the ramparts indicated recent upgrades. She counted more cannons than before, and patrol sentries had increased as well.
 
-Recalling Guo Huaiyi's mention that the Dutch were recently recruiting large numbers of laborers for construction sites, clearly they were anxious to complete Fort Zeelandia as a strongpoint against Australian attack.
+Recalling Guo Huaiyi's mention that the Dutch were recruiting laborers in large numbers, the urgency became clear. They were racing to complete Fort Zeelandia as a strongpoint against potential Australian attack.
 
-This place was very close to the Japanese village. Li Siya soon noticed a Japanese notice posted on the board at the trading post entrance. She found an excuse to walk over and glance at it, discovering it was a Dutch recruitment order.
+The trading post stood very close to the Japanese village. Li Siya soon noticed a Japanese-language notice posted on the board at the entrance. Finding a pretext to approach, she read it quickly: a Dutch recruitment order.
 
-The Dutch were recruiting Japanese as soldiers—this new discovery confirmed her deduction. She knew the East India Company's stinginess well; they would never recruit mercenaries without cause.
+The Dutch were hiring Japanese as soldiers. This confirmed her suspicions. She knew the East India Company's legendary stinginess; they would never recruit mercenaries without pressing cause.
 
-Governor Putmans either had extreme wariness of the Australians or harbored ill intentions toward them.
+Governor Putmans either harbored extreme wariness of the Australians or was contemplating hostile action.
 
-However, based on current strength in Taiwan, the Dutch were far from a match for the Australians. Hans Putmans couldn't be crazy enough to initiate hostile action against the Australians. And he didn't have the authority.
+Yet based on current strength in Taiwan, the Dutch were far from a match for the Australians. Hans Putmans could not be mad enough to initiate hostilities. And he lacked the authority to do so regardless.
 
-After selling the deerskins, Li Siya came to Tayouan Street—a simple market had formed outside the Dutch purchasing station due to trade. At this time, there were only a few shops and stalls doing business with local natives and trading Han people. On the street and in shops, many coming and going were natives from the local Xiaolong, Madou, and Xingang tribes. Having been "civilized" by Dutch missionaries, they wore simple clothing. However, quite a few natives were dead drunk, staggering through the streets.
+After selling her deerskins, Li Siya made her way to Tayouan Street—a simple market that had formed outside the Dutch purchasing station due to trade activity. At this hour, only a handful of shops and stalls conducted business with local natives and visiting Han traders. On the street and in the shops, many customers were natives from the Xiaolong, Madou, and Xingang tribes. Having been "civilized" by Dutch missionaries, they wore simple clothing. Quite a few, however, were dead drunk, staggering through the streets in a stupor.
 
-The Dutch shipped large quantities of arrack from Batavia and rum from Lingao specifically to exchange for furs with the natives.
+The Dutch imported large quantities of arrack from Batavia and rum from Lingao specifically to exchange for furs with the natives.
 
-Getting natives addicted to alcohol was a common tactic of many trading companies in the Age of Discovery. Less civilized natives generally didn't need many daily necessities; to force them to trade frequently, one had to use addictive luxury goods. Once natives became addicted to alcohol, they became pitiful creatures the Company could exploit. This scene played out everywhere from North and South America to the Bering Strait and Siberia.
+Getting indigenous peoples addicted to alcohol was a common tactic of trading companies throughout the Age of Discovery. Less developed peoples generally required few daily necessities; to compel frequent trade, one had to employ addictive luxury goods. Once natives became dependent on drink, they became pitiful creatures the Company could exploit at will. This scene repeated everywhere from the Americas to the Bering Strait to Siberia.
 
-Li Siya had done this business herself and thought nothing of it. She had Guo Huaiyi's men take her into a decent-looking tavern. Judging by people entering and leaving, it didn't serve natives; customers were Han people, with occasional Japanese, blacks, and East Indians.
+Li Siya had conducted such trade herself and felt nothing in particular about it. She had Guo Huaiyi's men escort her into a respectable-looking tavern. Judging by the clientele entering and leaving, it did not serve natives; customers were Han people, with the occasional Japanese, African, or East Indian face.
 
-The tavern was bustling with noise, windows wide open for ventilation. It was seventy or eighty percent full. Taverns always had much news, especially small ones like this. Judging by the clientele, there were not only Han traders but also various people serving under the Dutch. From their mouths, she should be able to learn much.
+The tavern was crowded and noisy, windows thrown open for ventilation. It was seventy or eighty percent full. Taverns were always excellent sources of information, especially small establishments like this. The clientele included not only Han traders but also various people in Dutch employ. From their conversations, she should be able to learn a great deal.
 
-Li Siya could speak many languages common on the East Asian seas—even some native dialects. At her signal, the group found a table near some drinking Japanese, ordered wine and food, and quietly ate and drank.
+Li Siya spoke many languages common on East Asian waters—even some native dialects. At her silent signal, the group found a table near some drinking Japanese, ordered wine and food, and ate quietly.
 
-The Japanese spoke Japanese—probably thinking no one here understood it, so they spoke without inhibition. Li Siya quickly gathered much information: including recently strengthened defenses; orders to increase rice and gunpowder reserves in the city and various forts; and new cannons and matchlocks arriving from Batavia.
+The Japanese spoke freely in their own tongue, apparently assuming no one present understood them. Li Siya quickly gathered considerable intelligence: the recently strengthened defenses; orders to increase rice and gunpowder reserves in the city and at the various forts; and new cannons and matchlocks arriving from Batavia.
 
-Then Li Siya heard an important piece of news: a Very Important Person would arrive at Fort Zeelandia on a trade ship coming from Batavia with the southern monsoon.
+Then she heard something of genuine importance: a Very Important Person would arrive at Fort Zeelandia on a trade ship coming from Batavia with the southern monsoon.
 
 ---
 
-Although the Japanese were of relatively low status and didn't know exactly who was coming, judging from their discussion of preparations to welcome this VIP, the arrival would be at least a senior East India Company official equivalent to a Batavia Council member, or perhaps some dignitary from the Netherlands itself.
+Though the Japanese were of relatively low status and did not know exactly who was coming, judging from their discussion of preparations for the welcome, the arrival would be at least a senior East India Company official equivalent to a member of the Batavia Council—or perhaps some dignitary from the Netherlands itself.
 
-This news immediately aroused Li Siya's great interest. This VIP's sudden arrival clearly had an important purpose. If she could find out who it was and their purpose, perhaps she could exploit it.
+This intelligence immediately seized Li Siya's interest. The VIP's sudden arrival clearly had a significant purpose. If she could discover the visitor's identity and objectives, perhaps she could exploit the situation.
 
-After leaving the tavern, Li Siya immediately decided to stay the night to investigate thoroughly.
+After leaving the tavern, Li Siya resolved to remain overnight and investigate thoroughly.
 
-There were crude inns in the market, but naturally Li Siya couldn't stay there. Fortunately, Guo Huaiyi had people locally responsible for gathering intelligence and receiving personnel, so she stayed at their home.
+There were crude inns in the market, but Li Siya could hardly stay there. Fortunately, Guo Huaiyi maintained people locally for intelligence gathering and accommodating personnel, so she lodged at their residence.
 
-"Are there prostitutes active near Tayouan Street?" she asked her attendant immediately after settling in.
+"Are there prostitutes active near Tayouan Street?" she asked her attendant the moment she was settled.
 
-"Yes, there are quite a few on the street. Han and natives..."
+"Yes, quite a few on the street. Han and native women alike."
 
-"Whose business do they do?"
+"Whose business do they conduct?"
 
 "Anyone's."
 
-"Do any serve Redhairs?"
+"Do any serve the Redhairs?"
 
-"Not on the street. But over at the Beixianwei Island dock, there's a tavern with salt-water girls—Han, black. Occasionally even ghost girls. They cater specifically to sailors from ships, and Redhairs from the city often go there too."
+"Not on the street. But at the Beixianwei Island dock, there's a tavern with saltwater girls—Han, black, occasionally even ghost women. They cater specifically to sailors from anchored ships, and Redhairs from the city frequent the place as well."
 
-Li Siya knew "blacks" in Han parlance included slaves from Africa as well as East Indies natives. Africans were rare in East Asia, black women even more so; more likely they were East Indies female slaves brought by the Dutch from Batavia.
+Li Siya understood that "blacks" in local parlance encompassed both African slaves and East Indies natives. Africans were rare in East Asia, black women even rarer; these were most likely East Indian female slaves the Dutch had brought from Batavia.
 
-"As soon as it's dark, find a way to get me onto Beixianwei Island."
+"As soon as it's fully dark, find a way to get me onto Beixianwei Island."
 
-"Understood!" The attendant had been instructed to obey this woman's arrangements in everything.
+"Understood!" The attendant had been instructed to obey this woman's every command.
 
-"When I want to return, I'll hold up a light by the shore as a signal. Send a boat to pick me up."
+"When I wish to return, I'll hold up a light by the shore as a signal. Send a boat to retrieve me."
 
-"Easy," the attendant said. "The boat doesn't need to return. Lu'ermen side has many reefs and shallow water. The Redhair ghosts never patrol there. I'll hide the boat among the reefs. Just whistle by the shore and I'll come out to meet you."
+"Simple," the attendant said. "The boat needn't return. The Lu'ermen side has many reefs and shallow waters. The Redhair ghosts never patrol there. I'll hide the boat among the rocks. Just whistle from the shore and I'll come out to meet you."
 
-After complete darkness fell, Li Siya and two attendants quietly came to the shore, where a small boat was ready. Wrapped in a black hooded cloak, Li Siya leaped lightly onto the boat.
+After full darkness descended, Li Siya and two attendants slipped down to the shore, where a small boat waited. Wrapped in her black hooded cloak, Li Siya leaped lightly aboard.
 
 "Let's go."
 
-The small boat quietly rowed across the water—this was the Lu'ermen Channel, impassable for large ships, thus rarely visited. The boat soon crossed safely, docking among chaotic reefs by the shore.
+The small craft glided silently across the water—this was the Lu'ermen Channel, impassable for larger vessels and therefore seldom patrolled. The boat crossed safely and nestled among the chaotic reefs near the shore.
 
-"Wait for me here. If I'm not back before dawn, go back quickly and report to Chief Guo." Li Siya observed the shore situation and instructed.
+"Wait for me here. If I'm not back by dawn, leave immediately and report to Chief Guo." Li Siya surveyed the shore and gave her final instructions.
 
 "Understood."
 
-Li Siya quietly climbed ashore. It wasn't far from the dock, which was dark, with only a few lights still burning. Having ascertained the tavern's location, she groped her way toward it.
+She climbed ashore quietly. The dock was not far, shrouded in darkness save for a few scattered lights. Having ascertained the tavern's location, she made her way toward it.
 
-She carefully avoided sentries near the dock and took off her cloak beside a cargo pile. She wore a European-style cotton dress, deliberately torn in places, her hair let down loosely. She tore off a strip of hem, exposing part of her calves. She quickly took rouge from her pocket, smearing it on her face and lips, then used charcoal to outline her eyebrows and eyes.
+She skirted the sentries near the dock with care, then removed her cloak beside a stack of cargo. Beneath it she wore a European-style cotton dress, deliberately torn in places, her hair let down loose. She tore off a strip of hem to expose part of her calves. From her pocket she produced rouge, smearing it across her face and lips, then used charcoal to outline her eyes and brows.
 
 (End of Chapter)

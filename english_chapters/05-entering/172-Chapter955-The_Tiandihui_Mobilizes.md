@@ -12,7 +12,7 @@ Chang Shide considered whether to call the Organization Section but ultimately d
 
 The next day, Ming Lang did indeed come to speak with him. Chang Shide was appointed Deputy Director of the Qiongshan County Office, with overall responsibility for local Tiandihui work and the promotion of land consolidation.
 
-Chang Shide was quite satisfied with this appointment. Becoming the agricultural deputy county chief in Qiongshan was far superior to being a vaguely defined Tiandihui inspector in Lingao—especially since the Tiandihui, by its nature, could only be considered a public-benefit institution with fully allocated funding and quasi-civil-service status. How could that compare to the proper prestige and authority of the impressive title of Deputy Director of the Qiongshan County Office?
+Chang Shide was quite satisfied with this appointment. Becoming the agricultural deputy county chief in Qiongshan was far superior to being a vaguely defined Tiandihui inspector in Lingao—especially since the Tiandihui, by its nature, could only be considered a public-benefit institution with fully allocated funding and quasi-civil-service status. How could that compare to the proper prestige and authority of an impressive title like Deputy Director of the Qiongshan County Office?
 
 During the week-long public notice period after the meeting, Chang Shide was very busy. On one hand, he discussed with Wu Nanhai, Ye Yuming, and others how to carry out Tiandihui work in Qiongshan. On the other hand, he frequently engaged with the Planning Commission and the State Council. Liu Muzhou gave him a general briefing on Qiongshan's current land and agricultural situation, particularly discussing Liu Xiang's present predicament.
 
@@ -50,7 +50,7 @@ Liu Muzhou said: "Isn't it all for labor and rural social reform?" He coughed. "
 
 Chang Shide waved dismissively: "I know, I know. The Senate's new countryside—that's the baseline for regime construction." He scribbled on the transparency paper over the map again. "I want to develop these state-owned agricultural lands. Who currently manages them? The Planning Commission?"
 
-"Yes, the Planning Commission. All 'state-owned agricultural lands' belong to the Planning Commission." Liu Muzhou said: "For practical management, in Lingao County they're handled by the Agricultural Committee. For counties outside Lingao, there's still no clear determination of who specifically handles operations."
+"Yes, the Planning Commission. All 'state-owned agricultural lands' belong to the Planning Commission." Liu Muzhou said. "For practical management, in Lingao County they're handled by the Agricultural Committee. For counties outside Lingao, there's still no clear determination of who specifically handles operations."
 
 "When it comes down to it, the Senate's position on land ownership is still vague. Are they going to acknowledge private land ownership, or just nationalize everything and sell seventy-year leases?"
 

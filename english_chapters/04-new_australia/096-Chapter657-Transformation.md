@@ -2,9 +2,9 @@
 
 After reading the notice, Liu Dalin found its meaning somewhat puzzling. The beginning clearly contained a plea of grievance, expressing the "inevitability" of fighting against the imperial army. Yet the latter part boasted of the glorious martial achievements of the great victory. This contradictory attitude left him bewildered.
 
-His own heart was also conflicted. In his view, the government's dispatch of a punitive expedition was proper—for all under heaven belongs to the emperor. Though the Australians in Lingao had not openly raised banners of rebellion, they had never submitted tribute or sought incorporation. Their conduct was already that of a hostile nation.
+His own heart was equally conflicted. In his view, the government's dispatch of a punitive expedition was entirely proper—for all under heaven belongs to the emperor. Though the Australians in Lingao had not openly raised banners of rebellion, they had never submitted tribute or sought incorporation. Their conduct was already that of a hostile nation.
 
-Yet the Australians had never committed any wrongdoing here or anywhere in Guangdong. The common people had benefited from them. Especially in Lingao, these past few years the people had enjoyed peace and prosperity—all thanks to their efforts. On grounds of sentiment, the government's expedition did not enjoy popular support.
+Yet the Australians had never committed any wrongdoing here or anywhere else in Guangdong. The common people had benefited from them. Especially in Lingao, these past few years the people had enjoyed peace and prosperity—all thanks to their efforts. On grounds of sentiment, the government's expedition did not enjoy popular support.
 
 The court stood on principle; the Australians had the hearts of the people.
 
@@ -34,7 +34,7 @@ Steward Zhao smiled smugly. Making money this way required no effort at all.
 
 When the imperial army had been about to attack, the circulation vouchers had briefly depreciated. Everyone rushed to spend them, triggering a modest "panic buying" at the markets. Many people hurried to exchange vouchers for goods, silver, or copper cash. The crisis was quickly suppressed through forceful intervention by the Finance Committee and the Planning Committee. But some hasty individuals suffered heavy losses from selling their vouchers at low prices during the brief financial panic.
 
-Steward Zhao, however, had profited from the turmoil. He did the opposite—using his copper cash to buy up circulation vouchers. When the storm passed, he calculated and found he had made a tidy sum. Steward Zhao's faith in the Australians came from his son, who now worked for them as a "cadre" in a government office called the "General Affairs Office," specifically attending to the "chiefs'" daily lives. And his grandson was studying at Fragrant Garden. So Steward Zhao knew the Australians' affairs well. When the imperial army came to attack, he kept his mouth shut about who would win or lose—but in his heart, he had already known.
+Steward Zhao, however, had profited from the turmoil. He did the opposite—using his copper cash to buy up circulation vouchers. When the storm passed, he calculated and found he had made a tidy sum. Steward Zhao's faith in the Australians came from his son, who now worked for them as a "cadre" in a government office called the "General Affairs Office," specifically attending to the "chiefs'" daily lives. And his grandson was studying at Fragrant Garden. So Steward Zhao understood the Australians' affairs well. When the imperial army came to attack, he kept his mouth shut about who would win or lose—but in his heart, he had already known.
 
 Having arranged the evening duties, he sat in the gatehouse by the main entrance, preparing for his night watch. He smoked a cigarette while laying out cards, playing "Australian Solitaire." This card game had recently become popular; since it could be played alone and involved no gambling, it was favored by households of strict moral standards.
 
@@ -48,9 +48,9 @@ Listening to the singing outside, the steward imagined his grandchildren were pr
 
 He laid out his cards, humming the tune of the *Grenadier's March*.
 
-Parade columns converged on the great stadium from all directions. In the center, a bonfire heap as tall as a small hill was now blazing, flames shooting skyward. The torches on the colonnade and the great torch on the ceremonial platform were all lit. The entire stadium was bathed in firelight. Dozens of small searchlights danced across the sky. Against the black night, eight massive beams of light seemed almost tangible, striking the low clouds and appearing to pierce through to the heavens.
+Parade columns converged on the great stadium from all directions. In the center, a bonfire heap as tall as a small hill now blazed, flames shooting skyward. The torches on the colonnade and the great torch on the ceremonial platform were all lit. The entire stadium was bathed in firelight. Dozens of small searchlights danced across the sky. Against the black night, eight massive beams of light seemed almost tangible, striking the low clouds and appearing to pierce through to the heavens.
 
-Weapons captured in the Chengmai campaign—all manner of cannons—were arrayed around the bonfire, bronze and iron gleaming in the firelight. Swords, spears, armor, firearms—piles of equipment formed huge pyramidal stacks. Most striking was a towering cone composed of thousands of helmets, glinting strangely in the flames.
+Weapons captured in the Chengmai campaign—cannons of all types—were arrayed around the bonfire, bronze and iron gleaming in the firelight. Swords, spears, armor, firearms—piles of equipment formed huge pyramidal stacks. Most striking was a towering cone composed of thousands of helmets, glinting strangely in the flames.
 
 Along the colonnade hung banners—imperial military flags captured at Chengmai, torn and bloodstained, mud-spattered, suspended in rows beneath the wings of pillars.
 
@@ -58,7 +58,7 @@ Columns of students, militia, police, garrison companies, and marines marched al
 
 Those ordinary folk who had not been organized into the parade but had come only to watch stood wide-eyed, utterly overwhelmed by the spectacle. Trembling with fear, they kept their distance yet gazed on, mesmerized. Uniforms, formations, firelight, stirring marches—the blood of young men was stirred.
 
-"This scene looks familiar—a cheap knockoff. All you're missing are crisp black and brown uniforms." From a corner of the reviewing stand, a blonde woman filming with a DV made a sarcastic remark.
+"This scene looks familiar—a cheap knockoff. All you're missing are crisp black and brown uniforms." From a corner of the reviewing stand, a blonde woman filming with a DV camera made a sarcastic remark.
 
 Ding Ding immediately silenced his girlfriend's comment. But several people had already heard.
 

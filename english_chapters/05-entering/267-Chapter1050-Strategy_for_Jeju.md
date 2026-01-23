@@ -1,89 +1,89 @@
 # Chapter 1050: Strategy for Jeju
 
-Although the Jeju Government Office (*Gammyeong*) was the grandest and best house in the entire Jeju City and even the entire Jeju Island, it still looked shabby to the eye—Feng Zongze recalled his feeling when visiting the Yongfu Palace back then: does this even count as a government office (*Yamen*)!
+Though the Jeju Government Office was the grandest and finest building in all of Jeju City—indeed, on the entire island—it still looked shabby to the eye. Feng Zongze recalled his impression upon visiting the Yongfu Palace years ago: *Does this even qualify as a government office?*
 
-The two wandered around the Government Office led by a captured steward clerk.
+The two men wandered through the compound, guided by a captured steward clerk.
 
-The architectural style of the Government Office was similar to that of the Ming Dynasty in microcosm, but the scale and grandeur were far inferior. Not to mention the Ming-Qing county *Yamens* in Shanxi that many Senators had visited, even the *Yamens* of several remote and small counties on Hainan Island were grander than this.
+The architectural style mimicked the Ming Dynasty in miniature, but the scale and grandeur fell far short. Never mind the Ming-Qing county *yamens* of Shanxi that many Senators had toured—even the government offices of several remote and impoverished counties on Hainan Island were grander than this.
 
-"...This Gwandeokjeong Pavilion was built by Jeju Magistrate Shin Suk-cheong during the reign of King Sejong. Later it was rebuilt by Magistrate Yang Zan during the reign of King Seongjong," the minor clerk said attentively—the deaths of the Jeju Magistrate and the Judge made him cherish his own little life even more, lest he annoy this group of strange Wokou.
+"This Gwandeokjeong Pavilion was constructed by Jeju Magistrate Shin Suk-cheong during the reign of King Sejong," the clerk explained attentively, eager to please. "It was later rebuilt by Magistrate Yang Zan during the reign of King Seongjong." The deaths of the Magistrate and Judge had made him acutely aware of his own mortality; he took pains not to annoy this peculiar gang of *Wokou*.
 
-The two looked at this very Chinese-style pavilion together. Although called a pavilion (*Ting*), it was actually like a tiered building (*Louge*). In front of the pavilion was a large empty field paved with yellow sand. This was where the Magistrate and Judge practiced martial arts. The archery targets from the competition held by Jeju officials here a few days ago still stood.
+The two men examined the Chinese-style pavilion together. Though called a "pavilion," it was actually a tiered hall. Before it lay a large parade ground paved with yellow sand—where the Magistrate and Judge had practiced martial arts. The archery targets from the officials' recent competition still stood.
 
-"When was King Sejong from?" Nangong Wudi asked.
+"When was King Sejong's reign?" Nangong Wudi asked.
 
-Feng Zongze said: "I don't know either. By the way, the Joseon Dynasty uses the Ming Dynasty's reign titles; just ask and we'll know."
+"I have no idea," Feng Zongze admitted. "But the Joseon Dynasty uses Ming Dynasty reign titles. Just ask and we'll know."
 
-Immediately asking the clerk, the clerk said the reign title was Xuande (1426–1435). That is to say, it had a history of nearly two hundred years.
+When questioned, the clerk replied that the Chinese reign title was Xuande—corresponding to 1426–1435. The building had stood for nearly two hundred years.
 
-The characters on the plaque were written beautifully. The clerk said this was the handwriting of Prince Anpyeong, the third son of King Sejong.
+The calligraphy on the plaque was beautifully executed. The clerk explained that it was the hand of Prince Anpyeong, King Sejong's third son.
 
-"The calligraphy is good. Rare, rare." Feng Zongze said this from the bottom of his heart. Like most Senators, his handwriting was basically unpresentable except for his signature. The clerk felt baffled—in his opinion, Prince Anpyeong's calligraphy was certainly not bad, but it couldn't be called rare.
+"Fine calligraphy. Quite rare." Feng Zongze meant it sincerely. Like most Senators, his own handwriting was essentially unpresentable beyond his signature. The clerk looked puzzled—in his view, Prince Anpyeong's calligraphy was certainly competent, but hardly exceptional.
 
-Although the layout of the Government Office was a bit small, compared to the even shabbier civilian houses, the houses of the Jeju Government Office were still quite exquisite: there were raised foundations above the ground, all built with brick and tile structures. Inside the houses, floors were laid, and there were ground stoves and *Ondol* (heated floors). Walking inside was very warm. The disadvantage was that the ceiling was really too low. For people of Nangong Wudi and Feng Zongze's height, they could almost touch the ceiling by raising an arm.
+Though the government office's layout was somewhat cramped, its buildings remained exquisite compared to the even shabbier civilian dwellings. Raised foundations elevated the structures above ground level. All were built with brick and tile. Floors were laid inside, equipped with ground stoves and *ondol* heated flooring. Walking through was quite warm. The drawback was the oppressively low ceilings—men of Nangong Wudi and Feng Zongze's height could nearly touch them by raising an arm.
 
-"Really makes one feel oppressed," Nangong Wudi said dissatisfiedly.
+"This really makes one feel boxed in," Nangong Wudi complained.
 
-Feng Zongze said: "Building small houses is for warmth..."
+"Building small houses conserves heat..." Feng Zongze began.
 
-"Beijing is colder, yet I haven't seen the Emperor and *Yamens* build houses so low and small. Isn't this Jeju Island still subtropical?"
+"Beijing is colder, yet I've never seen the Emperor's palaces or government offices built so low and cramped. Isn't Jeju Island supposed to be subtropical?"
 
-"It's called subtropical, but it actually snows. In winter, it drops to freezing point. About the same as Jiangnan. Not to mention it's the Little Ice Age now," Feng Zongze said. "The difference you speak of is actually the gap in national power." Unlike Nangong Wudi who learned Korean by himself in the business field, Feng Zongze learned it specially, so he also had a certain understanding of Korean history and culture.
+"Technically subtropical, but it still snows. Winter temperatures drop to freezing—comparable to Jiangnan. And we're in the Little Ice Age now." Feng Zongze, unlike Nangong Wudi who had picked up Korean through business dealings, had studied the language formally and gained some understanding of Korean history and culture. "The difference you're noticing is really a gap in national power."
 
-"Never mind the house, look at these tables and chairs," Feng Zongze slapped the table, "Pine and elm. Don't compare with Beijing; even compared to the furniture in Hainan's county *Yamens* and wealthy households, how is it?"
+"Never mind the houses—look at this furniture." Feng Zongze slapped the table. "Pine and elm. Don't compare it to Beijing; just stack it against the furniture in Hainan's county *yamens* and wealthy households."
 
-"That's true. At least in Hainan, rosewood and such aren't rare items."
+"That's true. At least in Hainan, rosewood isn't considered rare."
 
-"Actually, Joseon at the end of the Ming Dynasty was quite miserable." Feng Zongze saw with satisfaction that the room chosen as the General Headquarters had been cleaned spotless and still smelled of disinfectant water. He sat heavily on the chair and took off his velvet hat, "In the Little Ice Age, natural disasters are frequent, and neither the Ming nor the Later Jin are kind characters; they all come to this neighbor nearby to 'harvest grain' (*plunder*). To the south, the East River Command (*Dongjiang Zhen*) constantly demands grain; to the west, the Later Jin frequently invades. The Joseon Dynasty is exhausted coping with it, and it's a miracle that it managed to survive and continue its dynasty for three hundred years."
+"Actually, Joseon at the end of the Ming was quite miserable." Feng Zongze noted with satisfaction that the room selected as General Headquarters had been cleaned spotless and still smelled faintly of disinfectant. He dropped heavily into a chair and removed his velvet cap. "Frequent natural disasters during the Little Ice Age. Neither the Ming nor the Later Jin are gentle neighbors—both come here regularly to 'harvest grain.' The Dongjiang Command to the south constantly demands supplies; Later Jin forces from the west launch frequent raids. The Joseon Dynasty is exhausted from coping. That it managed to survive and continue for three hundred years is something of a miracle."
 
-1631 was just another bleak year in the half-century of miserable days for the Joseon Dynasty during the late Ming and early Qing transition. Since spring, there had been drought until July and August, affecting a wide area, and the King frequently prayed for rain; after August, there were frost and rainstorms everywhere until November, so much so that ministers all asked to resign to appease heaven's anger. In May of this year, the Later Jin invaded Anju and other places again, not retreating until July and August. A riot occurred in the East River Command entrenched on the border of the Liaodong Peninsula and Korea; Commander Huang Long was imprisoned for a time. The island was extremely short of grain and constantly demanded grain transport. The Joseon Dynasty, in its own very difficult state, dared not disobey.
+1631 was merely another bleak year in the Joseon Dynasty's half-century of misery during the late Ming–early Qing transition. Since spring, drought had persisted until July and August, affecting vast areas; the King had frequently performed rain prayers. After August came frost and rainstorms lasting until November, so severe that ministers petitioned to resign in order to appease heaven's wrath. In May, Later Jin forces had invaded Anju and other areas, not withdrawing until summer's end. Meanwhile, a riot had erupted in the Dongjiang Command entrenched along the Liaodong Peninsula–Korea border; Commander Huang Long was briefly imprisoned. The island command was desperately short of grain and constantly demanded supplies. The Joseon Dynasty, itself in dire straits, dared not refuse.
 
-Nangong Wudi said dissatisfiedly: "Are you feeling benevolent?"
+"Feeling benevolent, are we?" Nangong Wudi asked with mock displeasure.
 
-"Of course, seeing the people of the Joseon Dynasty living in dire straits, and the brilliance of the Senate not yet shining here, I am very pained," Feng Zongze pretended to say sorrowfully.
+"Of course. Seeing the people of Joseon living in such dire straits while the Senate's brilliance has yet to shine upon them pains me deeply," Feng Zongze replied with exaggerated solemnity.
 
-"Fine, you, Little Sun, just shine on Jeju Island," Nangong Wudi roared, "General Feng, *Mansei*!"
+"Fine—you, Little Sun, can illuminate Jeju Island." Nangong Wudi roared, "General Feng—*Mansei*!"
 
-"Mansei, Mansei," Feng Zongze said. "Let's take inventory of the loot on Jeju Island first."
+"*Mansei*, *mansei*." Feng Zongze echoed. "But first, let's inventory the spoils of Jeju Island."
 
-Occupying the three cities brought at least half of Jeju's population under their direct control.
+Occupying the three cities had brought at least half of Jeju's population under their direct control.
 
-According to historical data, interrogation of captured officials, and seized registers, they roughly knew that there were fifty thousand people on Jeju Island now—even Joseon officials didn't know the exact number. If according to the numbers on the registers, excluding soldiers, there should be 63,093 people. But the captured Household Division clerk said this was impossible: because since the reign of King Sejong, the local population was allowed to migrate to the Korean mainland during famine years. For many years, the population had been in a state of outflow. Although supplemented by exiles, Jeju Island had been in a state of food shortage for a long time, and many people fled. Therefore, the actual population should be around fifty thousand.
+According to historical data, interrogations of captured officials, and seized registers, the island's current population was approximately fifty thousand—even Joseon officials didn't know the precise figure. The registers, excluding soldiers, listed 63,093 people. But a captured Household Division clerk insisted this was impossible: since the reign of King Sejong, local inhabitants had been permitted to migrate to the Korean mainland during famine years. For many years, population had been steadily draining away. Though exiles partially replenished numbers, Jeju Island had remained chronically short of food, and flight was common. The actual population was likely around fifty thousand.
 
-Of this population, more than half were concentrated in Jeju City and nearby villages. This was also why Feng Zongze set up the headquarters here. In addition, Jeju City itself was a transportation hub for entering and leaving the island, facing the Korean mainland directly.
+More than half this population concentrated in and around Jeju City—which was precisely why Feng Zongze had established headquarters here. Additionally, Jeju City itself was the transportation hub for entering and leaving the island, directly facing the Korean mainland.
 
-There were nine frequently used harbors with relatively good conditions on Jeju Island—exactly the locations of the "Nine Garrisons." The one with the most traffic with the Korean mainland, besides Jeju, was Jocheon-po east of Jeju. There were official relay stations and ships there, specifically undertaking official exchanges between the Korean mainland and Jeju Island. So while taking Jeju, Xue Ziliang was already ordered to take Jocheon-po to control the local large ships and boatmen.
+Nine frequently used harbors with reasonably good conditions dotted Jeju Island—exactly the locations of the Nine Garrisons. Besides Jeju itself, the port with the heaviest traffic to the Korean mainland was Jocheon-po, east of Jeju City. Official relay stations and vessels were based there, handling government exchanges between the mainland and the island. Consequently, while taking Jeju, Xue Ziliang had already been ordered to secure Jocheon-po and commandeer the local large ships and boatmen.
 
-"We should immediately occupy all garrisons and control all ports," Nangong Wudi said urgently.
+"We should immediately occupy all the garrisons and control every port," Nangong Wudi urged.
 
-"It doesn't matter. With just these few people, completely blockading the whole island is impossible," Feng Zongze said. "Generally, poor people won't run. Even if rich people run, what can they take away?"
+"It doesn't matter. With our few men, completely blockading the whole island is impossible anyway," Feng Zongze said. "Generally, poor people won't run. Even if the rich run, what can they take?"
 
-Completely controlling the ports was meaningless. The strait between Jeju Island and the Korean mainland wasn't wide, only a few dozen kilometers. Plus with the Kuroshio Current, anyone determined to run could reach the Korean shore holding a bathtub. Besides, if fleeing for life, one only needed to bring some valuables and dry food; a small boat was enough.
+Complete port control was meaningless. The strait between Jeju Island and the Korean mainland spanned only a few dozen kilometers. With the aid of the Kuroshio Current, anyone determined to escape could reach Korean shores clinging to a bathtub. Besides, fleeing for one's life required only valuables and some dried provisions—a small boat would suffice.
 
-The special task force's maritime power was limited and could only blockade a few large ports. Moreover, there were many rivers on Jeju Island, impossible to control all. Wealthy families could easily escape by taking small boats from these rivers if prepared.
+The Special Task Force's maritime resources were limited; they could only blockade the larger ports. Moreover, Jeju Island had many rivers, impossible to monitor entirely. Wealthy families could easily escape by taking small boats down these waterways if properly prepared.
 
-But even if they ran, the problem wasn't big: Jeju's wealth was mainly the cattle and horses on the island. To transport cattle and horses away required large ships. Except for a few official ships, Jeju Island had no large ships at all. Rich people running away would definitely not bring cumbersome cattle and horses, only valuables—for the Senate, it was better if rich people ran; the cattle, horses, and real estate they left behind would become spoils of war justifiably.
+But even if the rich fled, the impact would be minimal. Jeju's wealth consisted primarily of the island's cattle and horses, and transporting livestock required large ships. Except for a handful of official vessels, Jeju Island had virtually no large ships. Fleeing rich men would certainly not burden themselves with cumbersome livestock—only portable valuables. From the Senate's perspective, the more wealthy people who ran, the better: the cattle, horses, and real estate they left behind would become legitimate spoils of war.
 
-"If there aren't enough people, we have to raise a huge team. Collaborators must be greatly available!" Nangong Wudi said. The performance of the Public Security Army Japanese Company satisfied him greatly, so much so that he suddenly had a great fondness for the term "Public Security Army." "With so many official slaves on the island, they can't possibly support the Joseon Dynasty wholeheartedly, right? Getting a few puppet... no, Public Security Army companies shouldn't be a problem."
+"If we don't have enough men, we need to raise a massive force. Collaborators must be readily available!" Nangong Wudi declared. The performance of the Public Security Army's Japanese Company had satisfied him greatly, kindling a sudden appreciation for the term "Public Security Army." "With so many official slaves on this island, surely they can't all be loyal to the Joseon Dynasty? Getting a few puppet—no, *Public Security Army* companies shouldn't be a problem."
 
-"Right, we should start doing it immediately—nationalist sentiment isn't strong these days, completely usable." Feng Zongze also nodded. Their numbers were limited; whether regular army or Public Security Army, they had to be kept as mobile forces. Deploying occupation forces everywhere was beyond their reach.
+"Exactly. We should start immediately—nationalist sentiment isn't strong in this era. Completely usable." Feng Zongze nodded. Their numbers were limited; whether regular army or Public Security Army, they needed to preserve mobile forces. Deploying occupation troops everywhere was beyond their capability.
 
-They calculated that each city should arm at least one Public Security Army company equipped with cold weapons. Weapons were not hard to solve: whether confiscated Joseon soldiers' weapons or weapons in government armories, picking out three to five hundred usable ones was achievable.
+They calculated that each city should arm at least one Public Security Army company equipped with cold weapons. Weapons weren't difficult to source: whether confiscated Joseon military equipment or stocks from government armories, selecting three to five hundred serviceable pieces was achievable.
 
-As for the source of soldiers, start with official slaves. Just in Jeju City and surrounding areas, there were seven or eight thousand official slaves suffering from hunger and cold. Selecting three hundred with great bitterness and deep hatred certainly wouldn't be difficult.
+As for manpower—they would start with official slaves. Jeju City and its surroundings alone held seven or eight thousand bondservants suffering from hunger and cold. Selecting three hundred with "great suffering and deep grievance" would certainly pose no difficulty.
 
-"We should do the same as in Hainan back then, let each place establish a liaison system first, ordering various villages in the countryside to pay tribute and provide labor, thereby gradually cutting into the grassroots," Nangong Wudi suggested again.
+"We should do what we did in Hainan back then," Nangong Wudi suggested. "Establish a liaison system first, ordering various rural villages to pay tribute and provide labor, thereby gradually cutting into the grassroots level."
 
-"Good. But our first thing is still to consolidate the cities."
+"Good. But our first priority remains consolidating the cities."
 
-After detailed calculation, it was decided to send a platoon and a work team each to Daejeong and Jeongui as the core of the occupation forces. The Seongsan base would be controlled by the Navy. The main force of the remaining troops, including the labor squadron, would deliver to Jeju City. After all, the spoils of war here were the richest and needed focused digestion.
+After detailed discussion, they decided to dispatch one platoon and one work team each to Daejeong and Jeongui as the core of their occupation forces. The Seongsan base would be controlled by the Navy. The main body of remaining troops, including labor squadrons, would be concentrated in Jeju City. After all, this was where the richest spoils lay, demanding focused attention.
 
-The first step was to clear the houses in the city. The circumference of Jeju City was three thousand nine hundred and ten paces, more than double the size of the prefectural capital Qiongshan County Seat in Hainan. Besides ordinary commoners' residential streets and shops, a large number were "official houses."
+The first step was to survey the city's housing. Jeju City's circumference of 3,910 paces made it more than double the size of Qiongshan County Seat, the prefectural capital in Hainan. Beyond ordinary residential streets and shops, a substantial portion consisted of "official housing."
 
-The quality of official houses varied; many were for housing official slaves exiled locally. Because official slaves were mobile—some built their own houses after being on the island for a long time, some were assigned to other places on the island for farming and grazing—many houses were empty. The houses for official slaves were very crude, but at least they could shelter from wind and rain. They were just right for accommodating Shandong refugees.
+The quality of these official houses varied widely; many had been built to shelter official slaves exiled to the island. Because the slave population was transient—some built their own homes after years on the island, others were reassigned elsewhere for farming and herding—many structures stood vacant. The housing for official slaves was crude, but at least offered shelter from wind and rain. They would serve perfectly well for accommodating Shandong refugees.
 
-The disadvantage was poor sanitary conditions; skin diseases and parasites were rampant, requiring strict disinfection.
+The drawback was poor sanitary conditions: skin diseases and parasites ran rampant, requiring rigorous disinfection.
 
-However, there were many vacant lots in the city, very convenient for building temporary camps. Especially, water sources were quite abundant, which could supply water for purification and daily use in refugee camps. Although the city wall of Jeju was a bit tragic, it was a wall after all, which could implement effective refugee control and prevent them from escaping and running around.
+However, abundant vacant lots within the city would facilitate construction of temporary camps. Water sources proved fairly plentiful—adequate to supply purification systems and daily needs for refugee camps. And though Jeju's city wall was tragically inadequate as fortification, it remained a wall, enabling effective control over refugees and preventing them from escaping or wandering freely.
 
 **(End of Chapter)**

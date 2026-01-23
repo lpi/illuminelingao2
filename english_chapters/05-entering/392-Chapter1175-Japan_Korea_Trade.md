@@ -1,47 +1,35 @@
 # Chapter 1175 - Japan-Korea Trade
 
-Ping Qiusheng was quite careful to conceal—or at least believed he was concealing—his ambition to become the new-generation shogun of Japan. So all along, he'd done his best to present himself as a "Japanese otaku culture enthusiast."
+"To develop ginseng resources," Li Yao'er explained. "I'm deeply interested in ginseng and have accumulated considerable specialized knowledge. Korea and Liaodong's specialty is ginseng, isn't it?"
 
-Deep in his heart, he very much hoped to preserve Japan's traditional culture and language, and let Japan continue along its original historical trajectory—ideally proceeding straight to the Taisho era, then directly into the very lovely Heisei period. As for Showa spirit and such—it would simply not come into being.
+She then launched into an elaborate discourse on ginseng identification, cultivation, and extraction—rather esoteric material. Ping Qiusheng couldn't fathom how a girl trained in accounting had developed such fascination with obscure botanical knowledge.
 
-But this line of thinking he'd never dared mention to anyone; it carried a whiff of "political incorrectness." Ping Qiusheng found it hard to gauge the Senate's attitude toward Japan: it wasn't the approach of total "Sinicization" used on Korea and Vietnam, nor was it the unhesitating "final solution" applied to Southeast Asia—it was an ambiguous mixture of love and hate.
+"Conditions on Jeju Island are fairly rough," he cautioned.
 
-Now, Japan's destiny was in his hands.
+"That's quite alright. I love traveling by nature—I'm not afraid of hardship. Must have inherited my father's adventurous genes." Li Yao'er spoke in rapid bursts. "Just thinking about how many magnificent mountains and rivers in this timeline remain unpolluted and unaltered by humanity—it thrills me beyond words!"
 
-It was with this complex frame of mind that Ping Qiusheng boarded the transport ship for Jeju Island.
+The escort fleet made a brief stop at Kaohsiung to replenish water and supplies and offload cargo, then continued toward Jeju Island. They finally sailed smoothly into Chocheon Harbor in early June.
 
-"To develop ginseng resources," Li Yao'er said. "I'm very interested in ginseng and have learned a lot of specialized knowledge. Korea and Liaodong's specialty is ginseng, right?"
+After coming ashore, Ping Qiusheng immediately set about preparing for his Japan expedition.
 
-Then she went on at length about various aspects of ginseng identification, cultivation, and extraction—quite obscure stuff. He had no idea how a girl who'd studied accounting had developed such interests in esoteric knowledge.
+Developing trade with Japan had long been stated Senate policy. Previously, the lack of a suitable departure port—combined with concerns about the Zheng, Liu, and Dutch forces—had prevented action. Now, with Jeju firmly in hand, the Dutch functioning as quasi-allies, and Zheng and Liu at each other's throats in mutual restraint—while their own naval strength had grown substantially—the time had come to move. The Industry and Energy Committee and Finance were already salivating over Japanese silver and copper.
 
-"Conditions on Jeju Island are pretty rough."
+Si Kaide's instructions called for Ping Qiusheng not merely to develop trade with Japan, but also to conduct a degree of infiltration into Japanese society: establishing trade and intelligence networks, gathering information, and preparing the groundwork for the next phase of Japan operations.
 
-"That's alright. I love traveling by nature—not afraid of hardship. Must have inherited my dad's adventurous genes." Li Yao'er spoke in quick bursts. "Just thinking about how many magnificent mountains and rivers in this timeline haven't been polluted or altered by humanity makes me super excited!"
+"Simply setting up a trading post in Hirado wouldn't suffice. The shogunate is quite suspicious of the Chinese as well," Si Kaide had explained. "Originally, Chinese in Hirado could rent and live scattered among Japanese residences, but that was later prohibited. If we merely establish a trading post, we'd be no different from foreigners confined to Canton's Thirteen Factories."
 
-She jumped up as she spoke: "Just thinking about all the great landscapes in this timeline still untouched and unaltered by humans—I'm thrilled!"
+Si Kaide had also wanted him to purchase grain in Japan to supply the refugee camps on Jeju—but Ping Qiusheng considered this impossible. The entire northern portion of the East Asian mainland was suffering under Little Ice Age conditions. Whether the Great Ming, Korea, or Japan, harvests had declined year after year. Even if he could secure some grain, it wouldn't come cheaply—and whether the shogunate would even permit exports remained an open question.
 
-The escort fleet made a brief stop at Kaohsiung to replenish water and supplies and offload some cargo, then continued toward Jeju Island, finally sailing smoothly into Chocheon Harbor in early June.
+Fortunately, since the Agricultural Committee had dispatched Wan Lihui to Jeju to cultivate potatoes, the island's food supply should soon ease. This was no longer an urgent concern.
 
-After coming ashore, Ping Qiusheng immediately began preparations for his Japan trip.
+Regarding Japan trade, Ping Qiusheng believed relying on exports from Lingao was inherently unreliable—Lingao's industrial output was itself constrained by production capacity, while internal consumption ran high. Add the thousand-li journey northward, and costs became prohibitive. The ideal approach was for the Shanghai Station to purchase goods throughout Jiangnan and export them to Japan. After all, these products had long been popular in the Japanese market. On Jeju, they could also establish simple processing industries to manufacture basic Australian goods and crack open the Japanese market.
 
-Developing trade with Japan had long been a stated policy of the Senate. Previously, the lack of a suitable departure port plus concerns about the Zheng, Liu, and Dutch forces had prevented action. Now with Jeju in hand, the Dutch as quasi-allies, and Zheng and Liu at each other's throats creating mutual restraint—while their own naval strength had grown substantially—it was time to move. The Industry and Energy Committee and Finance were already salivating over Japanese silver and copper.
+As for trade with Korea, his concept was to exchange patent medicines shipped from Lingao for Korean ginseng and cotton cloth. Korea of this era had limited purchasing power, but a definite market existed for medicines—including the frostbite ointment Lingao had developed, which proved invaluable in the frigid north. Ginseng was a hot commodity in both Japan and the Great Ming; cotton cloth was a major item in Japan-Korea trade, given Japan's substantial textile demand.
 
-Si Kaide's instructions called for him not only to develop trade with Japan, but also to conduct some degree of infiltration into Japanese society, establishing trade and intelligence networks and gathering information—preparing for the next phase of Japan operations.
+Ping Qiusheng had previously submitted a report to the Executive Committee proposing that trade with the Jurchens should likewise focus on such goods. First, the Jurchens had no shortage of silver; second, Hong Taiji was quite resistant to luxury goods trade. But regardless of official policy, medicines were always in demand—especially for a regime built on military conquest and a bandit-style economy of plunder. Demand for medical supplies was particularly acute. If they wished to exchange for Liaodong's population without trading large quantities of grain, patent medicines made an excellent product category.
 
-"Just setting up a trading post in Hirado wouldn't be enough. The shogunate is quite suspicious of the Chinese too," Si Kaide had said. "Originally Chinese in Hirado could rent and live scattered among Japanese residences, but that was later banned. If we just establish a trading post, we'd be no different from foreigners at Canton's Thirteen Factories."
+The raw materials for pharmaceuticals could come directly from Korea or be imported from the Great Ming. Jeju's advantage lay in its proximity to Korea, Japan, and the Great Ming alike. Some lower-cost medicines could even be manufactured directly on the island.
 
-Si Kaide had also wanted him to buy grain in Japan to supply the refugee camps on Jeju, but Ping Qiusheng had thought this impossible. The entire northern part of the East Asian mainland was affected by Little Ice Age climate. Whether Great Ming, Korea, or Japan, harvests had declined year after year. Even if he could get some grain, it wouldn't be cheap—and whether the shogunate would permit exports was another question.
-
-Fortunately, since the Agricultural Committee had sent Wan Lihui to Jeju to grow potatoes, the island's food supply should soon ease. This was no longer an urgent matter.
-
-For Japan trade, Ping Qiusheng believed relying on exports from Lingao was unreliable—Lingao's industrial output was itself limited by production capacity, and their own consumption was high. Add the thousand-li journey northward, and costs became unacceptable. The ideal approach was for the Shanghai Station to purchase goods throughout Jiangnan and export them to Japan. After all, these goods had long been popular in Japan. On Jeju, they could also establish simple processing industries to manufacture some basic Australian goods to open the Japanese market.
-
-As for trade with Korea, his idea was to exchange patent medicines shipped from Lingao for Korean ginseng and cotton cloth. Korea of this era didn't have much purchasing power, but there was certainly a market for medicines, including the frostbite ointment that Lingao had developed—very useful in the frigid north. Ginseng was a hot commodity in both Japan and the Great Ming; cotton cloth was a major item in Japan-Korea trade, given Japan's large textile demand.
-
-Ping Qiusheng had once submitted a report to the Executive Committee suggesting that trade with the Jurchens should also focus on such goods. First, the Jurchens had no shortage of silver; second, Hong Taiji was quite resistant to luxury goods trade. But regardless of government policy, medicines were always needed—especially for a regime built on military conquest and a bandit-style economy of plunder. Demand for medical supplies was particularly high. If they wanted to exchange for Liaodong's population without trading large quantities of grain, patent medicines made an excellent product.
-
-The pharmaceuticals' raw materials could come directly from Korea, or could be imported from the Great Ming. Jeju's advantage was its proximity to Korea, Japan, and the Great Ming. Some lower-cost medicines could even be manufactured on Jeju.
-
-Though the Shanghai-to-Hirado route was fastest and most convenient, with Jeju Island as an excellent transit station, the trade routes now had diverse options and some degree of triangular trading could be conducted.
+Though the Shanghai-to-Hirado route was fastest and most convenient, with Jeju Island available as an excellent transit station, the trade routes now offered diverse options. Some degree of triangular trading could certainly be conducted.
 
 (End of Chapter)

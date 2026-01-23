@@ -1,85 +1,89 @@
 # Chapter 1044: The Park Brothers
 
-The Park brothers, with their bellies perfectly round from eating, managed to stagger home by leaning against the walls. They were official slaves of the Government Office (*Gammyeong*) and lived right inside Jeju City.
+The Park brothers staggered home with bellies perfectly round, leaning against walls for support. As official slaves of the Government Office, they lived within Jeju City's walls.
 
-The two Park brothers were originally from a family of "Middle People" (*Jungin*). Their father had once served as a minor military officer in the Palace Stables. Seven years ago, the current King launched a coup to depose Gwanghaegun—historically known as the "Injo Restoration"—and the Park family was implicated. Their grandfather and father were beheaded, while the women and children were demoted to official slaves (*gwan-nobi*) and exiled to Jeju Island.
+The brothers had once belonged to a *Jungin*—Middle People—family. Their father had served as a minor military officer in the Palace Stables. Seven years ago, the current King had launched his coup to depose Gwanghaegun—the event historians would call the "Injo Restoration"—and the Park family had been caught in the purge. Their grandfather and father were beheaded. The women and children were stripped of status, reduced to official slaves, and exiled to Jeju Island.
 
-On the way, the second-generation mistress of the Park family died unable to bear the hardships of the journey. Only the two Park brothers were left, struggling to reach Jeju Island, where they barely grew up amidst hunger, cold, and hard labor.
+On that brutal journey, the second-generation mistress of the Park household had died, unable to endure the hardships of the road. Only the two brothers survived, somehow struggling to Jeju Island, where they had grown to adulthood amid hunger, cold, and grinding labor.
 
-Their so-called home was merely a short, small hut built with large quantities of Jeju's specialty volcanic rocks. The gaps between the stones were filled with yellow mud mixed with hay. The roof was covered with thick thatch. There was no floor inside, only bare earth. Wooden boards placed in the corner served as beds, covered with hay. In the middle of the house was an earthen hearth (*bod*).
+What they called home was merely a squat hut constructed from Jeju's ubiquitous volcanic stone. Yellow mud mixed with hay filled the gaps between rocks. Thick thatch covered the roof. There was no floor inside—only bare earth. Wooden boards placed in one corner served as beds, covered with straw. An earthen hearth occupied the center of the dwelling.
 
-The house was newly built and very damp. There was a faint glow of fire in the hearth—starting a fire was troublesome, so ordinary commoners would leave some embers in the stove covered with ash. Consequently, there was a smell of smoke in the room.
+The house was newly built and still damp. A faint glow of embers lingered in the hearth—starting fires was troublesome, so common folk left coals banked beneath ash. Consequently, smoke hung perpetually in the air.
 
-If a person from the 21st century walked in, they wouldn't be able to stay for even a minute, but for the poor commoners of that time, this was their daily dwelling.
+A person from the twenty-first century wouldn't have tolerated a minute inside, but for the poor of this era, such dwellings were simply home.
 
-Even such a crude house was built by the Park brothers with great difficulty. They used copper coins saved over many years to bribe a petty clerk to obtain a piece of government land permitted for building. They carried stones, mixed yellow mud, and cut grass themselves, building it bit by bit like swallows building a nest during their free time from raising horses and farming for the government office. With their own house, they no longer had to live in the large longhouse dormitory for official slaves in the government compound. Only then did Park Deok-hwan have a possibility of getting married. Even as official slaves, they couldn't get married in a collective dormitory. As the elder brother, Park Deok-hwan was already twenty this year, an out-and-out older youth in ancient society. Moreover, there was the entrustment of their elders: their grandmother and mother, who died on the road to exile, had both urged them to "carry on the family line," even if they were reduced to official slaves.
+Even this crude shelter had cost the Park brothers dearly. They had spent copper coins saved over many years bribing a petty clerk for permission to build on a plot of government land. They carried the stones themselves, mixed the yellow mud, cut the grass—building it bit by bit during precious moments of rest from herding horses and working the government fields, like swallows constructing a nest. With their own house, they no longer had to sleep in the large longhouse dormitory for official slaves inside the government compound. Only now did Park Deok-hwan have any hope of marriage. Even for official slaves, the collective dormitory was no place to wed.
 
-Although the whereabouts of Park Deok-hwan's wife were still unknown, Park Deok-hwan was a man of foresight: a wife would be none other than an official maidservant in the government office. Men should marry when they grow up, and women should marry when they grow up. As long as there was a house, a suitable wife could always be found.
+As the elder brother, Park Deok-hwan was already twenty this year—unmistakably an "older youth" by the standards of ancient society. And they bore the weight of their elders' dying wishes: both their grandmother and mother had urged them to "carry on the family line," even as lowly official slaves.
 
-The Park brothers sat down heavily on the straw mats, belching—this was the fullest and best meal they had eaten in over a year. Years of constant famine meant days of eating their fill could be counted on one hand. Probably because of fleas or something similar, the two scratched vigorously, discussing Park Deok-hwan's marriage while scratching.
+The identity of Park Deok-hwan's future wife remained uncertain, but he was a man of foresight. She would almost certainly be an official maidservant from the government office. Men and women alike came of age and married—it was the natural order of things. With a house now secured, a suitable wife could surely be found.
 
-Official slaves were equivalent to state slaves. However, apart from not being allowed to leave their assigned government office and having to complete assigned work on time, there were no restrictions on their personal lives: marrying and having children were at their convenience, as long as they submitted a report to the government office—anyway, the children of official slaves were also lowborn (*cheonmin*) and would continue to serve the state.
+The brothers slumped heavily onto straw mats, belching contentedly. This was the fullest and finest meal they'd eaten in over a year. Years of constant famine meant days of true satiation could be counted on one hand. Probably because of fleas or some similar pest, both scratched vigorously as they discussed Park Deok-hwan's marriage prospects.
 
-The two discussed potential wife candidates one by one: there were many official maidservants in the government office. There had been famines for the past ten years or so, and every family lacked enough grain. Official slave families with daughters all wanted to marry them off as soon as possible to save food rations, so there was plenty of room for choice. But slightly prettier women were out of their reach: officials at all levels had long regarded them as forbidden fruit.
+Official slaves were essentially state property. Yet beyond the prohibitions against leaving their assigned government office and the requirement to complete assigned work on schedule, their personal lives went largely unrestricted. Marriage and children were permitted—they needed only file a report with the government office. The children of official slaves were born *cheonmin*—lowborn—and would continue serving the state in perpetuity.
 
-"...How about Jo Seong-i? Her ancestors were originally *Yangban*..." Park Deok-hwan was different from his brother; he was already thirteen when exiled and had clear memories of everything in his past home, so he cared about the original status of the official maidservants.
+The brothers evaluated potential brides one by one. The government office employed many maidservants. With famines plaguing the area for a decade or more, every family lacked sufficient grain. Families with daughters were eager to marry them off quickly, reducing the number of mouths to feed. Choices abounded. But the prettier women remained beyond their reach—officials at every level had long since claimed them.
 
-"I heard she's in poor health and probably can't work. Ancestors being *Yangban* can't be eaten as food—besides, isn't she still an official maidservant just the same?" Although Park Deok-maeng was only fourteen, he spoke with the air of an old man and had become very worldly.
+"...What about Jo Seong-i? Her ancestors were originally *Yangban*..." Park Deok-hwan differed from his younger brother; he had been thirteen at the time of their exile, old enough to retain clear memories of their former life. He placed weight on the original status of the maidservants.
+
+"I heard she's sickly—probably can't do heavy work," Park Deok-maeng replied. Though only fourteen, he spoke with the worldly air of an old man. "Having *Yangban* ancestors won't fill your belly. Besides, isn't she an official maidservant just like all the others?"
 
 "What about Kim O-sun?"
 
-"Too ugly—even Master Liang from the Household Division, who isn't picky about anything, won't look at her. Brother, do you really want to marry her?" Park Deok-maeng said discontentedly. Although it was his brother getting married, having a sister-in-law who looked too grotesque would make the younger brother lose face too.
+"Too ugly. Even Master Liang from the Household Division—you know, the one who'll take anyone—won't look at her. Brother, do you really want to marry *that*?" Park Deok-maeng's tone turned disapproving. It was his brother getting married, but a sister-in-law too grotesque to look upon would shame him as well.
 
-Master Liang, the Household Division clerk, was a lecherous man, insatiable when it came to women. Naturally, official maidservants with beauty wouldn't fall to him, but ordinary ones, as long as their appearance was slightly regular, would be called by him to "accompany drinking."
+Master Liang, the Household Division clerk, was insatiable in his appetites. The truly beautiful maidservants were beyond his reach, but any woman of merely regular appearance would find herself summoned to "accompany him for wine."
 
-"Turn off the lights..." Park Deok-hwan was about to say "it's all the same when the lights are out," but thinking of Kim O-sun's appearance, he couldn't help shivering.
+"Turn off the lights and—" Park Deok-hwan was about to say "it's all the same in the dark," but the image of Kim O-sun's face rose unbidden in his mind and he couldn't suppress a shudder.
 
-They then discussed several families' daughters, even including young widows in their calculations. Park Deok-maeng suddenly said:
+They discussed several more families' daughters, even considering young widows. Then Park Deok-maeng said suddenly:
 
-"What do you think of Yi Man-hui?"
+"What about Yi Man-hui?"
 
-"She is a daughter of Middle People, and her crime is somewhat disgraceful..." Park Deok-hwan hesitated. Yi Man-hui had just been exiled to the island recently. It was said she had illicit relations with someone while unmarried, which was extremely scandalous. However, some said this charge was fabricated to strike at Yi Man-hui's family—her family belonged to the Southerners faction (*Namin*), which was under attack by the Westerners faction (*Seoin*).
+"She's a Middle People daughter, and her offense was... somewhat disgraceful..." Park Deok-hwan hesitated. Yi Man-hui had only recently been exiled to the island. Word was she'd had illicit relations before marriage—an extreme scandal. Though some claimed the charge had been fabricated to strike at her family, who belonged to the Southerner faction now under attack by the Westerners.
 
-Factional struggles in the Joseon Dynasty were extremely fierce and continued for hundreds of years. The severity of the factional struggles was not inferior to the Ming Dynasty, and perhaps even surpassed it—but impressively, such intense internal strife did not lead to the fall of the country, which was perhaps a manifestation of the superiority of *Sadae* (Serving the Great) ideology. Many of the official slaves on Jeju Island came from the losers and victims of political struggles.
+Factional struggles in the Joseon Dynasty were extraordinarily fierce, grinding on for centuries. Their severity rivaled that of Ming Dynasty court politics and perhaps even exceeded it—yet remarkably, such intense internal strife had never brought down the kingdom. Perhaps this was the peculiar strength of *Sadae* ideology, the doctrine of "Serving the Great." Many of Jeju Island's official slaves were losers and victims of just such political battles.
 
-"Big Brother, what Middle People? Here, she is an official slave just like us—speaking of daughters of Middle People, you and I are sons of Middle People too," said Park Deok-maeng.
+"Brother, what does Middle People status matter? Here, she's an official slave like us. Speaking of Middle People daughters—you and I are sons of Middle People too," Park Deok-maeng pointed out.
 
-"That's true; once here, we are all lowborn." Park Deok-hwan sighed endlessly—he was already a sensible teenager who had studied when the great change happened to his family. Sometimes recalling the scene of the family living together back then, he always felt like it was a dream.
+"That's true. Once you're here, we're all lowborn." Park Deok-hwan sighed deeply. He had been a sensible teenager who had learned his characters when catastrophe struck his family. Sometimes, recalling the old days when the household had lived together in comfort, everything felt like a dream from another life.
 
-"Since we got a lot of food with great difficulty today, let's go pay respects to our elders," Park Deok-hwan said.
+"Since we got such good food today, let's go pay respects to our elders," Park Deok-hwan said.
 
-Their father and grandfather died on the execution ground in the capital, while their grandmother and mother died on the road. Their bodies were hastily buried in unknown places, becoming lonely ghosts. This was the matter that always made Park Deok-hwan most uneasy. He was someone who had read books and was deeply influenced by Confucian ideas of filial piety. Therefore, after settling down slightly in Jeju and being able to barely survive with his brother, he secretly made spirit tablets. On death anniversaries and festivals, he would take them to the wild to offer sacrifice facing north with clear water and simple food.
+Their father and grandfather had died on the execution ground in the capital. Their grandmother and mother had perished on the road, their bodies hastily buried in unknown places, becoming wandering ghosts. This haunted Park Deok-hwan more than anything else. He had studied the classics and absorbed the Confucian doctrines of filial piety. After settling somewhat on Jeju and managing to barely survive alongside his brother, he had secretly made spirit tablets. On death anniversaries and festival days, he would take them to the wilderness and offer sacrifice facing north, using only clear water and simple fare.
 
-Having obtained rare good food today, he also wanted to fulfill his filial thoughts.
+Having obtained rare delicacies today, he wished to fulfill his filial duty.
 
-The city gates of Jeju were already closed, but Jeju City was large, with many vacant lots and wastelands inside. Holding the items, the brothers went to a secluded place by the city wall.
+The city gates of Jeju were already closed, but the city was large, filled with vacant lots and wild ground. Carrying their offerings, the brothers made their way to a secluded spot near the city wall.
 
-This area near the city wall was almost entirely vegetable gardens and woods, with only occasional small thatched huts, presenting a pastoral scene. The brothers walked along a small path up a mound by the city wall. There was a grove on the mound, a very quiet and hidden place. The Park brothers usually paid respects to their ancestors here.
+This area along the wall was almost entirely vegetable gardens and small woods, punctuated by occasional thatched huts, presenting a pastoral landscape. The brothers followed a narrow path up a small rise by the wall, where a grove of trees crowned the height—a quiet, hidden place. Here they usually performed their ancestral rites.
 
-Just as the two set down the offerings, several "monsters" colorful all over (camouflaged) suddenly jumped out from the bushes, instantly scaring the Park brothers half to death. Before Park Deok-hwan could scream, his mouth and nose were covered, and he was dragged to the ground, his joints locked so he couldn't move. Park Deok-maeng was knocked unconscious directly.
+Just as they set down their offerings, several "monsters" covered in wild patterns—camouflage—burst from the bushes. The brothers nearly died of fright on the spot. Before Park Deok-hwan could scream, a hand clamped over his mouth and nose, and he was dragged to the ground, his joints locked immobile. Park Deok-maeng was knocked unconscious outright.
 
-Xue Ziliang whistled softly and looked at these two poor kids—poverty is a universal language, irrespective of ethnicity and borders. Just looking at their clothes and haggard complexions was enough to know.
+Xue Ziliang whistled softly, examining the two captives. Poverty was a universal language, transcending ethnicity and borders. One glance at their clothing and haggard complexions told the story.
 
-"You go interrogate them." Xue Ziliang gestured to order a soldier under him. This person was not from the Special Reconnaissance Detachment but an agent from the Foreign Intelligence Bureau, a Korean translator specially trained for the Jeju Island landing operation.
+"Interrogate them." He gestured to one of his soldiers. This man wasn't from the Special Reconnaissance Detachment but an agent from the Foreign Intelligence Bureau—a Korean translator trained specifically for the Jeju Island landing operation.
 
-Xue Ziliang stopped looking at these two prisoners: from arriving at Biyangdo by boat to walking here, they had captured prisoners several times along the way. Most were such poor commoners: "clothed in rags and with insufficient food" was a very appropriate adjective to use on them, and these two were no exception.
+Xue Ziliang turned his attention elsewhere. From their arrival at Biyangdo by boat to reaching this point on foot, they had captured prisoners several times along the way. Most were poor commoners like these: "clothed in rags with never enough to eat" described them precisely, and these two were no exception.
 
-Entering Jeju Island was even easier than he imagined. Although the city gates were closed when they arrived at the city. Xue Ziliang was quite shocked when he saw the city wall—this counts as a city wall?
+Infiltrating Jeju Island had proven even easier than he'd anticipated. Though they'd found the city gates closed upon arrival, the sight of the city wall itself had genuinely shocked him.
 
-Xue Ziliang had been stationed in South Korea for a period of time. But as an American, he was not interested in the history and culture of the Cosmic Empire; his usual pastimes were mainly focused on the lower body. He rarely visited historical sites and paid little attention even when he saw them. When the genuine original city wall appeared before his eyes, he was immediately shocked!
+Xue Ziliang had been stationed in South Korea for a period. But as an American, he'd taken no interest in the history and culture of the "Cosmic Empire"; his usual pastimes focused on matters decidedly below the belt. He rarely visited historical sites and paid scant attention when he did. But when the genuine, original city wall appeared before his eyes, the reality stunned him.
 
-Damn, this is a city wall?!
+*Damn—this counts as a city wall?*
 
-The city wall built of volcanic rocks looked quite regular—square and upright, but the height of this city wall seemed wrong no matter how you looked at it. Of course, Xue Ziliang couldn't see any city walls in the United States, but having been in Hainan for so long, he had seen quite a few city walls in Hainan. This city wall of Jeju could at best be counted as a "boundary wall"—and one with low anti-theft standards at that.
+The wall, built of volcanic rocks, looked regular enough—square and upright. But its height seemed wrong no matter how you looked at it. Of course, Xue Ziliang had never seen city walls in the United States. But after spending considerable time in Hainan, he'd observed many Chinese fortifications. This Jeju wall could at best qualify as a "boundary wall"—and a low-security one at that.
 
-He visually estimated from outside the city that the wall was less than 4 meters high—leaving that aside, because with the use of firearms at the time, walls becoming lower and thicker was a trend, but there were unexpectedly no defensive facilities on the entire city wall. Even the battlements and parapets found on the walls of the most desolate and backward small county towns in Hainan were completely absent here. Through his telescope, he clearly saw the soldiers standing on top exposed from the waist up.
+He estimated from outside that the wall stood less than four meters high. Leaving height aside—after all, with the increasing use of firearms, walls were trending lower and thicker—the entire structure lacked any defensive features whatsoever. Even the battlements and parapets found atop the most desolate, backward small county towns in Hainan were completely absent here. Through his telescope, he could clearly see soldiers standing atop the wall exposed from the waist up.
 
-Not to mention rifles, even bows and arrows could easily kill the defenders and suppress the top of the wall. As for facilities like enemy towers (*mamian* / projecting towers) and watchtowers common in general city defense fortifications, none existed on the walls of Jeju City.
+Never mind rifles—even bows and arrows could easily kill defenders and suppress the wall top. As for standard city defense features like projecting towers and watchtowers, none existed on Jeju City's walls.
 
-For such a city, there was no need for any Special Reconnaissance Detachment, no need for cannons, not even the Fubo Army. A labor squadron holding spears and machetes, climbing the wall with ladders and ropes, could break through with one charge.
+Against such fortifications, there was no need for any Special Reconnaissance Detachment, no need for cannons, no need even for the Fubo Army. A labor squadron armed with spears and machetes, scaling the wall with ladders and ropes, could breach it in a single charge.
 
-Xue Ziliang didn't know that less than forty years ago, in the late 25th year of Wanli (1597), a Ming general aiding Korea had said the following to Joseon officials:
+Xue Ziliang didn't know that less than forty years earlier, in the late 25th year of the Wanli reign, a Ming general aiding Korea had said the following to Joseon officials:
 
-"The commander-in-chief said, the fortresses of our country are like child's play." (*Veritable Records of King Seonjo*, Vol. 88). This was the evaluation of Korean town wall defenses by Ming generals after the Imjin War.
+*"The commander-in-chief has declared that the fortresses of this country are like child's play."*
+
+—from the *Veritable Records of King Seonjo*, Volume 88. This was the Ming military's assessment of Korean fortifications following the Imjin War.
 
 **(End of Chapter)**

@@ -1,103 +1,117 @@
 # Chapter 692 - Our Cause
 
-"Very simple." Rando said. Besides loading some emergency weapons and supplies onto the lifeboat, he and Hale had also packed another set of emergency supplies in a magnetic box, attaching it to the ship's hull.
+"Quite simple, actually." Rando leaned back. Beyond loading emergency weapons and supplies onto the lifeboat, he and Hale had packed a second set of emergency provisions in a magnetic box and clamped it to the ship's hull.
 
-"Anyone who can dive two or three meters can easily retrieve the box at low tide."
+"Anyone who can dive two or three meters can retrieve it easily at low tide."
 
-Lin Chuanqing laughed: "You really are a cunning fellow."
+Lin Chuanqing laughed. "You really are a cunning bastard."
 
-"If I weren't cunning enough, I'd have died many times over—when taking risks, always have a backup."
+"If I weren't cunning enough, I'd have died a dozen times over. When you're taking risks, always have a backup plan."
 
-"Well said. Come, let's drink to our success tomorrow." Qian Shuiting poured soda for everyone.
+"Well said." Qian Shuiting poured soda for everyone. "Let's drink to tomorrow's success."
 
-Rando said: "To my ticket price."
+Rando raised his bottle. "To my ticket price."
 
-The Navy's motorboat chugged along belching black smoke, towing behind it a huge cigar-shaped object covered in various marine organisms. At first glance it looked like a dying whale or sea beast bobbing in the waves. Yellow oil drums were strapped in rows on both sides of this huge thing as reserve buoyancy.
+---
 
-Two rowing boats full of Marines and sailors followed carefully. Their task was to constantly watch this object and prevent any accidents.
+The Navy motorboat chugged through the water trailing black exhaust, towing behind it an enormous cigar-shaped object encrusted with barnacles and marine growth. At first glance, it resembled a dying whale or some strange sea beast bobbing listlessly in the swells. Yellow oil drums had been lashed in rows along both flanks for additional buoyancy.
 
-This huge thing was carefully towed to the shallows, where it grounded. Sailors jumped from the boats and in waist-deep seawater pushed the big thing forward, using poles and pulleys to load it onto the beach track and slowly pull it up to the pier. People gathered curiously in a circle.
+Two rowboats packed with Marines and sailors followed at a cautious distance, their task to monitor the object and prevent any mishaps.
 
-"Not bad work." Qian Shuiting lowered his binoculars and lit a cigarette for himself. "Who would have guessed you'd drop a caisson in the waters off Dongsha Island. Without the coordinates you provided, we'd never have found it."
+The massive cylinder was carefully guided into the shallows until it grounded. Sailors leapt from the boats and waded waist-deep through the water, using poles and pulleys to maneuver it onto the beach rails and haul it slowly up to the pier. A curious crowd gathered in a ring around it.
 
-"When the caisson was dropped, a buoy floated up to mark the position," Weiss said. "Of course, no buoy would last three years. At the time we'd gone off course toward Dongsha Island—thought we'd definitely encounter Taiwan Coast Guard patrol boats for inspection. In the rush, we decided to drop it."
+"Not bad at all." Qian Shuiting lowered his binoculars and lit a cigarette. "Who would have guessed you'd dropped a caisson in the waters off Dongsha? Without the coordinates you provided, we'd never have found it."
 
-"No wonder your ship's stern was made as a ramp, with such a long slide from behind the bridge to the stern, and a crane under the gantry mast." Meng De said. "At first I thought it was for lowering fishing skiffs. You mean you kept this thing, over half the ship's length, up there the whole time?"
+"When we released it, a marker buoy floated up to log the position," Weiss said. "Of course, no buoy survives three years in open water. We'd drifted off course toward Dongsha—thought for certain we'd encounter Taiwan Coast Guard patrol boats and face inspection. In the rush, we decided to drop it."
+
+"No wonder your ship's stern was configured as a ramp," Meng De said, "with that long track running from behind the bridge all the way aft, and a crane mounted under the gantry mast. I'd assumed it was for deploying fishing skiffs. You're telling me you kept this thing—more than half the ship's length—sitting up there the entire voyage?"
 
 The former mercenary nodded.
 
-"If you'd noticed certain clues when salvaging the *Maquarello*, you should have guessed there was still cargo on board. Of course, without precise coordinates, salvaging anything from the sea is difficult."
+"If you'd been paying attention to certain details when salvaging the *Maquarello*, you might have guessed there was more cargo. Of course, without precise coordinates, recovering anything from the sea floor is nearly impossible."
 
-Qian Shuiting took a deep drag on his cigarette. The butt arced from his hand into the seawater. "Let's go, Mr. Weiss. Let's see what new gifts you've brought us."
+Qian Shuiting drew deep on his cigarette. The glowing butt arced from his fingers into the surf. "Come along, Mr. Weiss. Let's see what gifts you've brought us."
 
-The salvaged caisson had been pushed into a newly erected shed, still dripping water. Made of double-layer steel plates, the caisson was a long, thick cigar shape, its surface crawling with attached marine life. In the dim light, it looked like an oddly shaped reef.
+---
 
-The atmosphere inside and outside the shed was extremely heated, just like when Vessel A was brought up. A light ladder was raised. Gao Xiaosong and others climbed to the caisson's top, using knives to scrape off the marine growth and waterproof sealant from the cargo hatch bit by bit. The wheel turned. With several clanging sounds, the cargo hatch slowly opened. The watching crowd cheered and crowded into the shed, eager to be first to see.
+The salvaged caisson had been pushed into a newly erected shed, still dripping seawater. Constructed of double-layered steel plate, its massive cigar shape was blanketed in attached marine life. In the dim interior light, it looked like some bizarre misshapen reef.
 
-Only Weiss sat under a coconut tree outside the shed, leisurely smoking.
+The atmosphere was electric—inside and out, the excitement mirrored the day they'd raised Vessel A. A stepladder was propped against the hull. Gao Xiaosong and his team climbed to the caisson's crown, scraping away layers of barnacles and waterproof sealant from the cargo hatch with their knives. The wheel spun. With a series of metallic clangs, the hatch slowly opened. The watching crowd cheered and surged forward, everyone eager for the first glimpse.
 
-The caisson's cargo hold was slightly damp but hadn't flooded. "What's this?" Gao Xiaosong opened a sealed iron box and took out a rectangular object wrapped in dark green aluminum-plastic film, seemingly a large bar of soap, with some English letters on it. He switched on his headlamp and examined it carefully.
+Only Weiss remained outside, lounging beneath a coconut palm with a cigarette dangling from his lips.
 
-Zhou Weisen came over: "This is 1.25-pound C4 explosive." He pulled back the waterproof cloth, counted the boxes, and exclaimed: "My God, so much!"
+The cargo hold was slightly damp but had not flooded. "What's this?" Gao Xiaosong pried open a sealed iron box and extracted a rectangular package wrapped in dark green aluminum-plastic film—it resembled an oversized bar of soap, stamped with English lettering. He switched on his headlamp and examined it closely.
 
-The mountain of explosive crates frightened away many enthusiastic spectators. Although everyone knew American military-standard demolition equipment was far safer than Lingao's homemade dynamite, being near a pile of explosives was still daunting.
+Zhou Weisen leaned in. "That's a 1.25-pound block of C4 explosive." He pulled back the waterproof tarp and counted the crates. "My God—there's a mountain of it!"
 
-When Weiss walked into the shed, Qian Shuiting was waving an ugly-looking short gun just taken out:
+The towering stack of explosives sent many of the enthusiastic spectators scrambling back. Everyone knew American military-grade demolition material was far safer than Lingao's homemade dynamite, but standing next to a small hill of high explosive still unnerved most people.
 
-"What a letdown! I thought there'd be tactical nuclear warheads in this caisson. You were planning to use this to scam dollars from the Karen Army? Truly a heartless arms dealer."
+When Weiss finally strolled into the shed, Qian Shuiting was brandishing an ugly stub-nosed weapon freshly unpacked from a crate.
 
-"Looks like a submachine gun. What model?" Gao Xiaosong scrutinized the weapon, turning it over and over. A toy-like body assembled from plastic shells, a stock made of bent wire folded under the body. The crate also contained several translucent plastic drum magazines. Since dealing with the gun-savvy North Americans, the former Coast Guard captain had discovered his firearms knowledge was actually quite poor.
+"What a disappointment! I was hoping for tactical nuclear warheads. You planned to scam the Karen Army with this garbage? Truly a heartless arms dealer."
 
-"MGV-176, a Yugoslav copy of the American American-180 submachine gun," Qian Shuiting said. "Police equipment. This gun's passable. High rate of fire, decent accuracy in automatic fire. But the .22 ammunition it uses is too weak."
+"Looks like a submachine gun," Gao Xiaosong said, turning the weapon over in his hands. A toy-like receiver assembled from plastic shells, a stock fashioned from bent wire that folded beneath the body. The crate also held several translucent plastic drum magazines. Since arriving and dealing with the gun-savvy North Americans, the former Coast Guard captain had discovered just how deficient his firearms knowledge truly was.
 
-"Why fuss over a few submachine guns?" The former mercenary and smuggler crossed his arms, leaning against a shed pillar. "If needed, your factories could mass-produce Stens or M3 grease guns. After all, you're not short on ammunition."
+"MGV-176," Qian Shuiting identified it. "Yugoslav copy of the American-180. Police-grade equipment. Decent rate of fire, reasonable accuracy in full-auto. But the .22 ammunition is far too weak to be useful."
 
-"Ammunition is exactly what we're short of. If we could mass-produce ammunition, we might've already started making AKs."
+"Why fuss over a few submachine guns?" The former mercenary crossed his arms and leaned against a support pillar. "If you needed them, your factories could mass-produce Stens or M3 grease guns. After all, you're not short on ammunition."
 
-Guns were brought out of the cargo hold and inventoried one by one. Besides the unpopular MGV-176, the subsequent haul was more satisfying. Over twenty brand-new M240B machine guns were lined up on the ground. Barrels and components still had a thin coat of rust-preventive oil. FAL automatic rifles—including fixed-stock, standard-barrel types with bipods, and folding-stock, short-barrel carbine types—totaled 316, all shrink-wrapped. The middle of the cargo hold was stuffed with crates of ammunition. Besides the .22LR for the MGV-176 submachine guns, everything else was 7.62×51mm NATO rounds, sealed in specially made polyester packaging crates. Zhou Weisen, Gao Xiaosong, and Planning Committee representative Sun Xiao climbed up and down counting with several helpers—over a hundred crates.
+"Ammunition is precisely what we're short of. If we could mass-produce cartridges, we'd already be manufacturing AKs."
 
-"Enough to start a small war." Qian Shuiting told Weiss. "If you hadn't met us, you could've made a fortune from this deal." The latter just nodded. "Keep looking. King Solomon's treasures don't end here."
+Weapons emerged from the cargo hold one by one for inventory. Beyond the disappointing MGV-176s, the subsequent haul proved far more satisfying. Over twenty gleaming M240B machine guns were laid out in rows on the ground, barrels and components still coated in rust-preventive oil. FAL automatic rifles—fixed-stock standard-barrel variants equipped with bipods, and folding-stock short-barrel carbine versions—numbered 316 in total, all factory-sealed in shrink wrap. Crates of ammunition packed the hold's center section. Apart from the .22 LR rounds for the submachine guns, everything else was 7.62×51mm NATO, sealed in purpose-built polyester containers. Zhou Weisen, Gao Xiaosong, and Planning Committee representative Sun Xiao clambered up and down with their helpers, tallying the count—over a hundred crates.
 
-"You mean this?" Lin Chuanqing pointed at the crates brought out from the cargo hold's rear, plus devices resembling rocket launchers. Lao Di was startled: "Anti-tank missiles, Red Arrow 73!"
+"Enough to wage a small war," Qian Shuiting told Weiss. "If you hadn't encountered us, you'd have made a fortune on this shipment."
 
-"Do you know how to use this?"
+Weiss simply nodded. "Keep looking. King Solomon's treasures don't end here."
 
-"No, but I saw them during military exercises. These aren't just for hitting tanks—they're also great for hitting landing craft, speedboats, bunkers, whatever."
+"You mean these?" Lin Chuanqing gestured toward crates hauled from the rear of the hold, along with devices that resembled rocket launchers. Lao Di's eyes widened. "Anti-tank missiles—Red Arrow 73!"
 
-"This isn't domestic Red Arrow 73, but definitely an AT-3 series anti-tank missile." Gao Xiaosong said. "There's writing on the packaging. 'Yugoimport-SDPR'—is that the manufacturer's name?"
+"Do you know how to use them?"
 
-"Yugoimport-SDPR is Serbia's state-owned arms company. No, wait until we're back at the base lab before you start tinkering with it." Weiss stopped Lin Chuanqing's attempt to open the airtight packaging.
+"No, but I've seen them in military exercises. These aren't just for tanks—they're equally effective against landing craft, speedboats, bunkers, whatever you need to destroy."
 
-"Twenty-four missiles, with shaped-charge and thermobaric warheads. Alright, everything's here. Count carefully—don't miss anything."
+"These aren't the domestic Red Arrow 73," Gao Xiaosong noted. "They're definitely AT-3 series missiles. Look at the packaging—'Yugoimport-SDPR.' Is that the manufacturer?"
 
-"Question is, who are we planning to use this on?"
+"Yugoimport-SDPR is Serbia's state-owned arms company." Weiss caught Lin Chuanqing's hand before he could crack open the airtight seal. "Wait until we're back at the base laboratory before you start tinkering with these."
 
-Like the disposable rocket launchers salvaged from the ship's cabin, this was another puzzling question.
+"Twenty-four missiles total—shaped-charge and thermobaric warheads. Everything's accounted for. Count carefully. Miss nothing."
 
-The 8154 cruiser sounded its whistle, escorting this modest-sized fleet away from Dongsha Island. Jiang Shan found Weiss on the aft deck. He was leaning on the railing, gazing at the white foam churned up by the propellers.
+"The question is," someone asked, "who exactly are we planning to use these on?"
 
-Jiang Shan briefly introduced himself. The former mercenary shook his head slightly: "I saw you that night in the interrogation room."
+Like the disposable rocket launchers salvaged from the ship's cabin, this remained a puzzle without an obvious answer.
 
-"Just received this telegram." Jiang Shan took out a transcription paper. "A congratulatory message from Chairman Wen to the entire search and salvage team. He specifically mentioned your name."
+---
 
-Weiss glanced at it and handed the transcription back: "I can't read Chinese characters."
+The 8154 cruiser sounded its whistle and led the modest fleet away from Dongsha Island. Jiang Shan found Weiss on the aft deck, leaning against the railing and watching the white foam churn in the propellers' wake.
+
+He introduced himself briefly. The former mercenary gave a slight shake of his head. "I saw you that night in the interrogation room."
+
+"This just came in." Jiang Shan produced a transcription sheet. "A congratulatory message from Chairman Wen to the entire salvage team. He mentioned you by name."
+
+Weiss glanced at the paper and handed it back. "I can't read Chinese characters."
 
 "You'd better learn."
 
-"Chinese characters are too difficult." Rando spat his cigarette butt into the sea. "But I'll try to learn to speak Chinese—it's the language of the transmigrators."
+"Chinese characters are too difficult." Rando flicked his cigarette butt into the sea. "But I'll try to learn to speak the language—it's the tongue of the transmigrators."
 
-"What are you planning to do next?"
+"What are your plans going forward?"
 
-"Do what?" Weiss squinted at the waves. "I'm poor now, so I want to go back to Macao and collect the six hundred silver pesos owed to me."
+"Plans?" Weiss squinted at the rolling waves. "I'm broke now. I'd like to return to Macao and collect the six hundred silver pesos still owed to me."
 
-"Li Siya won't give payment for nothing." Jiang Shan reminded him. "What are you prepared to exchange for that money?"
+"Li Siya won't hand over payment for nothing," Jiang Shan reminded him. "What are you prepared to trade for that money?"
 
-"That depends on what you want her to know, or what you want the Dutch to know. I'm very happy to be of service in that regard." Weiss guessed this Chinese intelligence chief was satisfied with his answer, because he called over a naval steward carrying a tray with a bottle of rum and two glasses.
+"That depends entirely on what you want her to know—or what you want the Dutch to know. I'm more than happy to be of service in that regard."
 
-"Let's have a drink." He said.
+Weiss suspected the Chinese intelligence chief approved of his answer, because a moment later Jiang Shan beckoned over a naval steward carrying a tray with a bottle of rum and two glasses.
 
-Weiss didn't take the glass. Instead, he pulled an engraved silver cup from his pocket. He had won this from a rich but foolish Spanish gambler. When he mingled in Macao, he often showed off this beautiful goblet as evidence of his fabricated Italian noble background. Now he filled this silver cup with rum: "So, what shall we drink to?"
+"Let's have a drink," Jiang Shan said.
 
-"To our cause." Jiang Shan said.
+Weiss ignored the glass. Instead, he drew an engraved silver cup from his pocket—a trophy won from a wealthy but dim-witted Spanish gambler. During his days circulating through Macao's high society, he had often displayed this elegant goblet as evidence of his fabricated Italian noble heritage. Now he filled it with rum.
 
-"To our cause." Weiss murmured. He tilted his head back and drained the cup in one gulp, then with a flip of his wrist, tossed the exquisite silver goblet into the sea.
+"What shall we drink to?"
+
+"To our cause," Jiang Shan said.
+
+"To our cause," Weiss murmured.
+
+He tilted his head back and drained the cup in a single swallow. Then, with a casual flick of his wrist, he tossed the exquisite silver goblet over the railing and into the sea.

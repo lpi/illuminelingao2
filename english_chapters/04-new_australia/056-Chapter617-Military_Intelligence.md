@@ -4,7 +4,9 @@
 
 "Actually, we could call ourselves the GLA," Wen Desi said. "Global Liberation Army. Sounds good, doesn't it, Secretary of State Ma?"
 
-"We can use that later. Calling ourselves GLA right now won't mean anything to Ming people." Ma Qianzhu said. "I suggest that starting today, we can begin using the Fubo Army designation in the signatures of our official documents and proclamations."
+"We can use that later. Calling ourselves GLA right now won't mean anything to Ming people." Ma Qianzhu said. "I suggest that starting today, we begin using the Fubo Army designation in the signatures of our official documents and proclamations."
+
+---
 
 Jiang Shan returned to the Intelligence Bureau's office. As soon as he arrived, he received a call from He Ming instructing him to: "Immediately ascertain the status of Guangdong's Ming forces."
 
@@ -68,7 +70,9 @@ Wang Ding added: "This is our first project. We not only need to succeed but als
 
 Everyone present nodded in agreement.
 
-"Alright, I understand. We'll proceed according to your thinking." Jiang Shan yielded: he'd somewhat caught the implication in Wang Ding's words.
+"Alright, I understand. We'll proceed according to your thinking." Jiang Shan yielded: he had somewhat caught the implication in Wang Ding's words.
+
+---
 
 The Foreign Intelligence Bureau subsequently issued intelligence collection instructions to the Guangzhou Station, requiring them to focus on gathering information about Guangdong Ming troop movements, force strength, and personnel information on commanders—especially troop movements. Whether the War Department planned to engage the enemy outside their borders or conduct a defensive counterattack, grasping Ming troop movements was always paramount.
 
@@ -116,11 +120,11 @@ This wasn't just because horses were expensive or hard to obtain in Guangdong—
 
 "So they'll definitely bring lots of cloned red-barbarian cannons."
 
-"Wang Zunde's knockoff red-barbarian cannons, according to Guangzhou Station reports and intelligence we've gathered through Foshan channels, are mainly 9-pounder and 12-pounder guns. 12-pounder cannons are too heavy—the Ming lack draft animals for towing and probably can't use them in field battle. They'll bring 9-pounders. Plus various old-style cannons like *folangji*."
+"Wang Zunde's knockoff red-barbarian cannons, according to Guangzhou Station reports and intelligence we've gathered through Foshan channels, are mainly 9-pounder and 12-pounder guns. Twelve-pounder cannons are too heavy—the Ming lack draft animals for towing and probably can't use them in field battle. They'll bring 9-pounders. Plus various old-style cannons like *folangji*."
 
 "Guangdong Regional Commander He Rubin is known for his expertise in firearms. He even has a firearms treatise called *Western Fire Attack Divine Weapons*. He should have some understanding of cannon power and employment. We must pay attention to him." Zhang Bolin, having taken the artillery route, paid close attention to old-style firearms technology. He read every issue of the military history reference materials compiled by the Grand Library.
 
-"He Rubin was an anti-Catholic figure. He was implicated in the Nanjing Church Case of Wanli year 44. At that time, Western firearms knowledge was entirely controlled by Catholics and missionaries. This anti-religious figure probably doesn't have any connection with Western priests—the origin of his treatise is also suspicious—he claims the book was written in Wanli year 34, yet the preface mentions Ningyuan—and before Wanli year 34, the court hadn't purchased any red-barbarian cannons." Yu Eshui laughed. "So I'd say if he comes to command the punitive expedition, his command of operations and employment of firearms won't be any different from any other regional commander of this time-space."
+"He Rubin was an anti-Catholic figure. He was implicated in the Nanjing Church Case of Wanli year 44. At that time, Western firearms knowledge was entirely controlled by Catholics and missionaries. This anti-religious figure probably doesn't have any connection with Western priests—the origin of his treatise is also suspicious. He claims the book was written in Wanli year 34, yet the preface mentions Ningyuan—and before Wanli year 34, the court hadn't purchased any red-barbarian cannons." Yu Eshui laughed. "So I'd say if he comes to command the punitive expedition, his command of operations and employment of firearms won't be any different from any other regional commander of this time-space."
 
 "Ming firearms aren't worth mentioning," Ying Yu said. "Even if we trade shots with them using our 12-pounder cannons, they'll still be completely defeated. The infantry probably won't even fire before the enemy routs."
 
@@ -152,11 +156,11 @@ Wang Ding nodded: "Zheng Zhilong's forces are in a constant state of combat read
 
 Li Kuiqi's destruction made everyone's hearts tighten. Each time Zheng Zhilong eliminated a major enemy, his forces and influence expanded considerably, while there was one fewer power to restrain him. Zheng Zhilong's steps were drawing ever closer to Lingao.
 
-[Below is beyond the 5,000 character limit]
+---
 
-Note:
-Li Kuiqi should have been destroyed in the second year of Chongzhen. I misremembered it as Zhong Bin. Actually, by this time Zhong Bin was also nearly destroyed.
+*Note:*
+*Li Kuiqi should have been destroyed in the second year of Chongzhen. I misremembered it as Zhong Bin. Actually, by this time Zhong Bin was also nearly destroyed.*
 
-Correction noted here.
+*Correction noted here.*
 
 (End of Chapter)

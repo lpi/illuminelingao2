@@ -1,77 +1,81 @@
-# Chapter 828: Trade
+# Chapter 828 - Trade
 
-Van der Lanthroon completed the handover procedures with the former Merchant of the *Magdeburg*. This ship had only arrived from the Netherlands a few months ago and was in quite good condition after refitting. Because this voyage was to a port of an unknown power, carrying certain risks, the personnel on board were reinforced. The ship was manned by one hundred and twenty sailors and forty soldiers. Originally equipped with only four cannons, four more were installed. Although the route to Hainan Island could only be considered a short voyage, the ship was still equipped with two military surgeons to look after the crew—though how useful they would be was hard to say; there was no voyage where a dozen or even dozens of bodies were not thrown into the sea. Of course, a priest was also indispensable on the ship to look after the sailors' souls.
+Van der Lanthroon completed the handover procedures with the former Merchant of the *Magdeburg*. The vessel had arrived from the Netherlands only a few months prior and remained in quite serviceable condition after refitting. Given that this voyage led to the port of an unknown power and therefore carried certain risks, personnel aboard had been reinforced. The ship now carried one hundred and twenty sailors and forty soldiers. Originally mounting only four cannons, the *Magdeburg* had received four more. Though the route to Hainan Island could be considered a relatively short voyage, the ship was nevertheless equipped with two military surgeons to tend to the crew—though how useful they would prove was debatable; no voyage passed without a dozen or more bodies being consigned to the sea. A priest, of course, was also indispensable to look after the sailors' souls.
 
-Van der Lanthroon held a brief meeting with the Captain, Gonzalez, and Leibtrini. The task given by the Governor to Van der Lanthroon was to open trade with the Australians and simultaneously gather as much intelligence on them as possible. To achieve this goal, the first step was to choose suitable trade goods: if the Australians were not interested in the goods they brought, then neither trade relations nor intelligence gathering could be accomplished.
+Van der Lanthroon convened a brief meeting with the Captain, Gonzalez, and Leibtrini. The Governor's orders were clear: establish trade with the Australians while simultaneously gathering as much intelligence as possible. To accomplish this, the first requirement was selecting suitable trade goods. If the Australians showed no interest in what they brought, neither commercial relations nor intelligence gathering could proceed.
 
-Van der Lanthroon felt this was very tricky. No one here had ever traded with the Australians, and no one knew what they liked or needed. Since the Australians were on the coast of China, they could certainly get ample supplies of Chinese goods: silk, raw silk, porcelain. And judging from their large exports of sugar, paper, and glass products, they had strong manufacturing capabilities themselves. Van der Lanthroon thought about it and decided that the only products in the entire East Indies they might be interested in were spices. Pepper, cinnamon, and cloves were among the few goods Chinese people were willing to import in large quantities from the Dutch.
+Van der Lanthroon found this a difficult puzzle. No one present had ever traded with the Australians; no one knew what they wanted or needed. Since the Australians were established on the Chinese coast, they surely had access to ample supplies of Chinese goods: silk, raw silk, porcelain. And judging from their massive exports of sugar, paper, and glass products, they possessed formidable manufacturing capabilities of their own. After considerable thought, Van der Lanthroon concluded that the only products from the entire East Indies likely to interest them were spices. Pepper, cinnamon, and cloves numbered among the few goods Chinese buyers imported in substantial quantities from the Dutch.
 
-If he couldn't find suitable bulk export goods, Van der Lanthroon would have to transport a large amount of silver to trade with the Australians, which was the trade situation the Company least wanted to see.
+If no suitable bulk export commodities could be found, Van der Lanthroon would have to transport a large amount of silver to trade with the Australians—precisely the situation the Company least wanted to see.
 
-The Governor's secretary gave him a pamphlet about the basic situation of the Australians. Van der Lanthroon carefully studied the Australians' imports. The things they imported were diverse, but the largest bulk commodities were rice, timber, pig iron, various metals, and cotton products. Especially cotton products; the import figures were very large. Van der Lanthroon was shocked because, according to the pamphlet, just from one trader, they bought more cotton cloth and yarn from India than the total sales of various textiles to China since the East India Company began trading with China. In fact, the East India Company not only failed to sell many cotton products to the Chinese but instead imported a large amount of "Nanking cloth" from Chinese merchants every year for distribution.
+The Governor's secretary had provided him a pamphlet summarizing what was known about the Australians. Van der Lanthroon studied their import patterns carefully. The things they imported were remarkably diverse, but the largest bulk commodities were rice, timber, pig iron, various metals, and cotton products. Cotton products especially: the import figures were enormous. Van der Lanthroon was astonished to learn that, according to the pamphlet, just from one trader alone, the Australians purchased more cotton cloth and yarn from India than the total sales of all textiles to China since the East India Company had begun trading there. In fact, the Company not only failed to sell many cotton products to the Chinese but instead imported large quantities of "Nanking cloth" from Chinese merchants every year for distribution elsewhere.
 
-Obviously, they have a great demand for textiles, Van der Lanthroon thought. However, he was afraid he couldn't help with cotton products; these were mostly distributed by the English. Batavia had no stock of cotton products unless a ship was sent to procure them from India—which was obviously too late time-wise.
+*Clearly, they have a great demand for textiles,* Van der Lanthroon concluded. Unfortunately, he could do nothing about cotton products—these were mostly distributed by the English. Batavia had no stockpile available unless a ship was dispatched to procure supplies from India, which was obviously impossible given the time constraints.
 
-As for pig iron and metals, they were even scarcer. Whether ironware, lead, or copper, they were either shipped from Europe or imported from China and Japan so far. They were already in quite short supply and could not be exported.
+Pig iron and metals proved equally scarce. Whether ironware, lead, or copper, such materials were either shipped from Europe or imported from China and Japan. Supplies were already strained and could not be diverted for export.
 
-However, Batavia had a large amount of Dutch linen—this was a major bulk industrial export of the Netherlands. Because of its low price, it was actually dumped on the European market. At that time, someone described its price as so low that "even the poorest people could use it to make shirts." In addition, he planned to bring some high-quality woolens. Although woolens did not sell well in China, there were always people buying them as luxury goods.
+However, Batavia did possess a substantial stock of Dutch linen—a major industrial export of the Netherlands. Its prices were so low that it was effectively dumped on European markets. Contemporary observers described it as so cheap that "even the poorest people could afford shirts made from it." In addition, Van der Lanthroon planned to bring some high-quality woolens. Though woolens did not sell well in China, there was always a small market for them as luxury goods.
 
-After repeated consideration and studying the pamphlet over and over, Van der Lanthroon finally arranged a cargo list for the *Magdeburg*. The goods prepared for sale in Lingao included: a large amount of spices, Dutch linen, raw timber, and a small amount of high-quality woolens. Seeing from the pamphlet that the clothes worn by Australians were mostly blue and gray, he judged that the Australians lacked dyes other than indigo. So he added dyes like sappanwood to the cargo list. Finally, he loaded several hundred bags of local rice. Even Europeans in the East Indies had to rely on rice as a staple food.
+After repeated deliberation and close study of the pamphlet, Van der Lanthroon finally assembled a cargo list for the *Magdeburg*. The goods intended for sale in Lingao included: a large quantity of spices, Dutch linen, raw timber, and a small amount of fine woolens. Noting from the pamphlet that clothing worn by Australians was predominantly blue and gray, he surmised that the Australians lacked dyes beyond indigo. He therefore added dyestuffs like sappanwood to the manifest. Finally, he loaded several hundred bags of local rice. Even Europeans in the East Indies had to rely on rice as their staple.
 
-Since no one among the Dutch had been to Hainan Island, but they knew the exact coordinates of Lingao, and the Dutch often went to Vietnam for trade, they were not completely ignorant of the local situation. Referencing nautical charts and gathered intelligence, Van der Lanthroon roughly knew that Lingao was in the Qiongzhou Strait. He only needed to follow the route to Vietnam, turn west after arriving in Vietnam, and enter the Qiongzhou Strait to find Lingao.
+Since no Dutchman had ever sailed to Hainan Island, but the precise coordinates of Lingao were known, and the Dutch regularly traded with Vietnam, they were not entirely ignorant of the region. Consulting nautical charts and the intelligence gathered so far, Van der Lanthroon understood that Lingao lay within the Qiongzhou Strait. He need only follow the established Vietnam route, turn west after reaching the Vietnamese coast, and enter the Qiongzhou Strait to find Lingao.
 
-After the *Magdeburg* set sail, it passed through the Palembang Strait, sailed past Sumatra and the Philippine Islands, and after thirty-five days of sailing, arrived at Kimlan Bay. After replenishing food and fresh water locally, the *Magdeburg* turned its course to the northeast, preparing to cross the Gulf of Tonkin to find the entrance to the Qiongzhou Strait.
+---
 
-Because Li Siya provided the approximate coordinates of Lingao, the voyage was very smooth. The *Magdeburg* sailed past Bach Long Vi Island in early February 1631. The sailors on the ship spotted land—according to the charts in their hands, this should be Hainan Island.
+After the *Magdeburg* set sail, it passed through the Palembang Strait, skirted Sumatra and the Philippine Islands, and after thirty-five days at sea arrived at Cam Ranh Bay. Having replenished food and fresh water there, the *Magdeburg* turned northeast, preparing to cross the Gulf of Tonkin and locate the entrance to the Qiongzhou Strait.
 
-The *Magdeburg* sailed carefully along the coast—so far, no European ship had ever entered the Qiongzhou Strait. After sailing along the coast for a few days, they finally discovered the narrow strait entrance. However, at this moment, the sailor looking out from the top of the mast issued a warning: "Ship approaching!"
+Thanks to the approximate coordinates Li Siya had provided, the voyage proceeded smoothly. In early February 1631, the *Magdeburg* sailed past Bach Long Vi Island. The lookout atop the mast spotted land—according to their charts, this must be Hainan Island.
+
+The *Magdeburg* navigated cautiously along the coastline. No European vessel had ever entered the Qiongzhou Strait before. After several days of coastal sailing, they finally identified the narrow strait entrance. At that moment, however, the lookout called down a warning: "Ship approaching!"
 
 "Battle stations!" The Captain immediately issued the order.
 
-Hearing the news, Van der Lanthroon rushed out of the poop deck and immediately shouted loudly: "No shooting without orders!"
+Hearing the alarm, Van der Lanthroon rushed out from the poop deck and immediately shouted: "No firing without my orders!"
 
-He was deeply afraid that the incoming ship was an Australian vessel. If an armed conflict occurred, it would have a bad influence on his mission.
+His deepest fear was that the approaching vessel was Australian. An armed confrontation would badly compromise his mission.
 
-Sure enough, from two compass points off the port bow, a single-masted sailing ship gradually appeared on the sea horizon.
+Sure enough, from approximately two compass points off the port bow, a single-masted sailing ship gradually rose above the horizon.
 
-Van der Lanthroon leaned his hands on the bow rail, staring at the Bermuda sloop coming at full speed with full sails. This kind of ship was very rare in East Asian waters. It was a typical European-style ship. The ship looked small, but its shape was very beautiful. It reminded him of those sloops he had seen along the Mediterranean coast and in the English Channel.
+Van der Lanthroon leaned on the bow rail, watching the Bermuda sloop bearing down on them at full sail. Such vessels were extremely rare in East Asian waters—it was a distinctively European-style ship. Small, but beautifully crafted. It reminded him of the sloops he had seen along the Mediterranean coast and in the English Channel.
 
-Flying at the top of the mast was a flag he did not recognize. He cast his gaze to the stern of the ship, where a blue and white flag was flying—exactly as described in the pamphlet; this was the Australian Navy!
+A flag he did not recognize flew from the masthead. He shifted his gaze to the stern, where a blue and white ensign streamed in the wind—exactly as described in the pamphlet. This was the Australian Navy.
 
-"That ship is really strange," Gonzalez said. "A Bermuda sloop! Where did they get it? I've never seen anyone use this kind of ship in East Asia!"
+"That ship is truly strange," Gonzalez remarked. "A Bermuda sloop! Where would they have gotten such a thing? I've never seen anyone use this type of vessel in East Asia!"
 
-The Merchant glanced at the officer speaking beside him. This was a Xibank—Van der Lanthroon hated all Spaniards. In the past, he had heard plenty about the various terrors and atrocities committed by the Spaniards during the War of Independence.
+The Merchant glanced at the officer beside him. A Spaniard. Van der Lanthroon harbored a deep hatred for all Spaniards. During the War of Independence, he had heard endless accounts of the terrors and atrocities they had committed.
 
-"Lower the pennant!" Van der Lanthroon ordered. This was a gesture of respect to the other party, indicating no malice. Of course, it was hard to say if the other party understood the meaning. However, Van der Lanthroon believed that since the Australians used a typical European-style ship, they probably understood nautical signals.
+"Lower the pennant!" Van der Lanthroon ordered. This gesture conveyed respect to the other party, indicating peaceful intent. Whether the other side understood the signal was uncertain—but Van der Lanthroon reasoned that if the Australians used a typical European-style ship, they probably comprehended nautical conventions.
 
-Sure enough, the other party responded with the same courtesy. And the sailing ship was gradually closing in.
+Sure enough, the other vessel responded with the same courtesy. The sloop was gradually closing the distance.
 
-Leibtrini also came out, holding his sketchbook. Swiftly sketching the sailing ship with a charcoal stick, he asked: "What do you think they want to do? They are waiting on our route. Do they want to contact us?" It was Leibtrini's first time in East Asia, and even more so his first long voyage.
+Leibtrini had also emerged on deck, sketchbook in hand. He rapidly roughed out the approaching sailing ship with his charcoal stick, simultaneously asking: "What do you think they want? They're waiting along our course. Are they trying to make contact?"
 
-"I don't know. Maybe they want to contact us. Maybe they want to attack us. Have everyone ready for alert immediately," Gonzalez said. "Their ship is small; altogether they have at most fifty men. Besides, our freeboard is much higher. Even in a boarding battle, we have the advantage. Have someone load all the swivel guns."
+It was Leibtrini's first time in East Asia—and his first extended voyage of any kind.
 
-Van der Lanthroon ordered: "Do not lower sails, continue sailing." Boarding with a strange ship at sea was dangerous. It was not uncommon for large ships to be boarded and attacked by small ships, eventually being captured in hand-to-hand combat.
+"Unknown. Perhaps they wish to communicate. Perhaps they intend to attack." Gonzalez's voice was tense. "Have everyone prepare for alert immediately. Their ship is small—fifty men at most. Besides, our freeboard is considerably higher. Even in a boarding action, we hold the advantage. Load all the swivel guns."
+
+Van der Lanthroon ordered: "Do not lower sails. Continue forward." Boarding alongside a strange vessel at sea was dangerous business. It was not uncommon for large ships to be swarmed by smaller craft and captured in hand-to-hand fighting.
 
 "...Ship inspection..." someone opposite was shouting.
 
-"Oh, it sounds like Spanish? What are they saying?"
+"Is that Spanish? What are they saying?"
 
-"Stop for inspection!" The shout from the small boat opposite became louder. Although it was Spanish, the accent was very strange.
+"Stop for inspection!" The shouting from the small boat grew louder. Though the words were Spanish, the accent was peculiar.
 
-"Strange, they are speaking Spanish!" Gonzalez frowned. "They want us to stop for inspection."
+"Strange—they're speaking Spanish!" Gonzalez frowned. "They're ordering us to stop for inspection."
 
-"We are clearly flying the Prince's Flag."
+"We're clearly flying the Prince's Flag."
 
-"Maybe they don't know the Prince." Gonzalez had no love for the Dutch, and naturally no affection for His Highness the Prince either.
+"Perhaps they don't recognize the Prince." Gonzalez harbored no love for the Dutch, and consequently felt none for His Highness either.
 
-"Oh! First time encountering such a thing!" The Spaniard laughed loudly. "How do you think we should handle this? My dear Merchant. Let them board for inspection on this vast sea?"
+"Well! First time encountering such a thing!" The Spaniard laughed loudly. "How do you propose we handle this, my dear Merchant? Shall we heave to and let them board for inspection in the middle of the open sea?"
 
-"Of course not, that's unsafe—besides, they might not necessarily be Australians," Van der Lanthroon said. "Continue sailing."
+"Certainly not—that would be unsafe. Besides, we cannot even be certain they're actually Australians." Van der Lanthroon remained firm. "Maintain course."
 
-But the other party's sailing speed was very fast, and the ship was much more agile than theirs. Soon this sloop was sailing neck and neck with them. Now they could see the other party more clearly. This sloop looked very new; it must not have been launched long ago. There were cannons on the deck, already stripped of their covers. Some sailors wearing blue short jackets were running on the deck.
+But the other vessel's sailing speed was considerably greater than theirs, and the ship was far more agile. Soon the sloop was running neck and neck with the *Magdeburg*. Now they could see the other vessel clearly. It appeared quite new—surely launched not long ago. Cannons stood on the deck, already stripped of their covers. Sailors wearing blue short jackets hurried about their duties.
 
-Everyone became tense. Gunners and musketeers lit their matches. Off-duty sailors of the "Prince's Squad" also armed themselves with cutlasses, axes, and daggers, ready to join the battle at any time.
+Tension spread through the *Magdeburg*. Gunners and musketeers lit their matches. Off-duty sailors of the "Prince's Squad" armed themselves with cutlasses, axes, and daggers, ready to join battle at a moment's notice.
 
-At this moment, a figure appeared on the poop deck of the sloop. He put a cone-shaped cover over his mouth and shouted something loudly in Chinese.
+Then a figure appeared on the sloop's poop deck. He raised a cone-shaped device to his mouth and shouted something loudly—in Chinese.
 
 (End of Chapter)

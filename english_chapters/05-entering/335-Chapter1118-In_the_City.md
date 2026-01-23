@@ -16,7 +16,7 @@ Liu Fuqing knew that Clerk Pak's days were numbered. He lit his water pipe—the
 
 After Cho Myeong-gwi instructed his men to stage the stone figures' bleeding trick, he and Huang Yunyu sent people to spread rumors everywhere. Seeing the populace inside and outside the city growing anxious, they knew their tricks were working. He and Huang Yunyu had divided their tasks: Huang was specifically responsible for liaising with Pak Deokhwan and the Yi Court officials on the peninsula, while Cho served as Lord Kim's contact man.
 
-After the rumors had taken effect, early the next morning Cho Myeong-gwi set out with two clerks, leading several ponies, pretending to be going to the countryside to purchase bow materials.
+Once the rumors had taken effect, early the next morning Cho Myeong-gwi set out with two clerks, leading several ponies, pretending to be going to the countryside to purchase bow materials.
 
 Though Jeju City had checkpoints at the gates, there was no registration—coming and going was quite free. He led his men toward the mountains. After traveling about a dozen *li* to a village at the mountain's foot, he purchased some bow materials. Confirming no one was following, he then headed alone into a nearby ravine.
 
@@ -26,7 +26,7 @@ He watched Cho Myeong-gwi turn toward the wild mountains. Using trees and brush 
 
 Mountain ridges loomed on both sides of the valley, casting dark shadows. The "consultant," thoroughly familiar with the terrain, tracked him like a hunter pursuing prey. The valley was long and kept narrowing; in some places only a sliver of sky showed. The terrain was rugged. Without the consultant's own mountain-dweller background, he never could have followed Cho Myeong-gwi, who knew the paths well.
 
-He followed Cho Myeong-gwi for nearly half an hour, passing through the valley to reach a small village.
+He trailed Cho Myeong-gwi for nearly half an hour, passing through the valley to reach a small village.
 
 The village had only seven or eight households. The "consultant" knew this area well—it was a herding village belonging to a certain landowner. The residents were all the landowner's serfs and tenants. At this hour, they'd all be out working; there should be nobody in the village except old folks and children.
 
@@ -44,7 +44,7 @@ Waiting for him inside was not the local estate manager, but another bondservant
 
 Kim Dae-hae was from Hamgyeong Province in the north, a *baekjeong* pariah. Barrel-chested and powerfully built, he'd been a mountain bandit. After capture, he'd been exiled to Jeju as a government slave. Because of his formidable fighting prowess, Lord Kim had taken a liking to him and made him a private bondservant.
 
-He'd been waiting here for Cho Myeong-gwi for two days. Being a restless man, staying cooped up like this for two days had made him thoroughly irritable. If Lord Kim hadn't given him strict orders to wait for Cho Myeong-gwi's confirmed message, he'd have left long ago.
+He'd been waiting here for Cho Myeong-gwi for two days. Being a restless man, staying cooped up like this had made him thoroughly irritable. If Lord Kim hadn't given him strict orders to wait for Cho Myeong-gwi's confirmed message, he'd have left long ago.
 
 Seeing Cho Myeong-gwi enter, he said impatiently: "What took you so long?"
 
@@ -52,7 +52,7 @@ Seeing Cho Myeong-gwi enter, he said impatiently: "What took you so long?"
 
 "Bullshit!" Kim Dae-hae snorted coldly. "You spineless thing—I bet you've been enjoying good food, good drink, and women in the city and let everything slide! These few hundred Japanese raiders aren't worth a fart."
 
-Kim Dae-hae had always been jealous of Cho Myeong-gwi. Living like a lord in the glittering world of Jeju City: servants waiting on him, eating and drinking as he pleased, and courtesans to play with. Back at Lord Kim's stockade, though he was a man of some standing, his pleasures amounted to nothing more than a decent room, meat and wine at every meal, and access to any of the lower servant girls. Sure, those girls had to lie down when told to lie down and strip when told to strip—but they lay there like dead fish, not even moaning. Nothing like the courtesans in the city's pleasure houses who knew the arts of pleasure.
+Kim Dae-hae had always been jealous of Cho Myeong-gwi. Living like a lord in the glittering world of Jeju City: servants waiting on him, eating and drinking as he pleased, and courtesans to play with. Back at Lord Kim's stockade, though he was a man of some standing, his pleasures amounted to nothing more than a decent room, meat and wine at every meal, and access to any of the lower servant girls. Sure, those girls had to lie down when told to and strip when told to strip—but they lay there like dead fish, not even moaning. Nothing like the courtesans in the city's pleasure houses who knew the arts of pleasure.
 
 Cho Myeong-gwi heard his arrogant opening remarks and inwardly sneered at this oaf. Without showing his feelings, he sat down by the fire pit: "Easy for you to say! Even a few hundred Japanese raiders are enough to give us trouble."
 

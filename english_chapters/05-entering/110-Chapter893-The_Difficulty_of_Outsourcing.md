@@ -1,79 +1,79 @@
 # Chapter 893 - The Difficulty of Outsourcing
 
-Hong Kong Island, Hong Kong Shipyard.
+Hong Kong Island. The Hong Kong Shipyard.
 
-Sea breeze brushed the coastline of Saintess Bay, where sand slipways and simple gantry cranes lined up looked majestic. Several Harmony ships already taking shape stood on the slipways, huge ribs pointing to the sky like rows of saplings. Many workers climbed on scaffolds, banging and installing materials.
+Sea breezes swept across Saintess Bay, where rows of sand slipways and simple gantry cranes lined the shore in a display of industrial ambition. Several Harmony-class ships already taking shape stood on the slipways, their massive ribcages pointing skyward like rows of skeletal saplings. Workers swarmed the scaffolding, hammering and fitting materials into place.
 
-Keels of six Harmony ships had been laid. Workers were installing ribs—keels and ribs all came from the Ma'niao Iron and Steel Complex. Although to save man-hours, ship keels used wrought iron instead of steel.
+Six Harmony ships had their keels laid. Workers were now installing the ribs—both keels and ribs supplied by the Ma'niao Iron and Steel Complex. To conserve labor, the keels used wrought iron rather than steel.
 
-Not far from the slipways was a patch of simple bamboo sheds. This was the shipyard's temporary office. To complete the Harmony ships in time, Shi Jiantao threw all labor quotas and materials into factory area construction; "non-urgent" infrastructure like offices was all compressed.
+Not far from the slipways stood a cluster of simple bamboo sheds serving as the shipyard's temporary offices. In his drive to complete the Harmony ships on schedule, Shi Jiantao had funneled every available labor quota and material into factory construction; "non-essential" infrastructure like proper offices had been ruthlessly cut.
 
-"Your sample is unqualified." Shi Jiantao sighed, putting down the tape measure and protractor. He looked at the wooden rack on one side of the shed, piled with the latest batch of foreign samples sent for testing by various indigenous shipyards. He sighed again.
+"Your sample is unqualified." Shi Jiantao sighed and set down his tape measure and protractor. He glanced at the wooden rack along one wall of the shed, piled with the latest batch of sample components submitted by various indigenous shipyards for testing. He sighed again.
 
-On the workbench before him was a rib plate for a Harmony ship. It had a standard code compiled according to the newly implemented standard code system: Usage is a hull plate for Harmony 800 Standard Model Port Midship, material is fir.
+Before him on the workbench lay a rib plate for a Harmony ship, bearing a standard code from the newly implemented classification system: a hull plate for the Harmony 800 Standard Model, port midship section, material fir.
 
-Starting from January 1631, the shipyard in Heung-shan engaged in production while construction was ongoing. Before the Planning Commission's task was formally issued, Shi Jiantao's Hong Kong Shipyard had already preliminarily completed one Model 800 Harmony ship.
+Since January 1631, the Heung-shan shipyard had been producing while still under construction. Before the Planning Commission formally issued its quotas, Shi Jiantao's Hong Kong Shipyard had already completed the first Model 800 Harmony ship as a prototype.
 
-This ship was experimental, used to test if his idea was qualified. The result then was quite encouraging; from starting to manufacture the first standard part to the whole ship completing launch, the entire construction period took less than 50 days. A considerable portion of parts were produced by Lingao's wood processing plant and then transported to Hong Kong.
+That vessel was experimental, meant to test whether his concept was viable. The results had proved encouraging: from manufacturing the first standardized component to final launch, the entire construction period took less than fifty days. A considerable portion of the parts had been produced at Lingao's wood processing plant and then shipped to Hong Kong.
 
-At that time, Hong Kong was already building a new timber processing plant. Shi Jiantao's calculating plan was: once this plant was completed, he could utilize Guangdong's rich timber resources nearby—floating rafts directly down the Pearl River to Hong Kong.
+By then, Hong Kong was already constructing its own timber processing facility. Shi Jiantao's master plan envisioned utilizing Guangdong's abundant timber resources—logs could be floated directly down the Pearl River to Hong Kong on rafts.
 
-Precisely based on such consideration, Shi Jiantao had the guts and insight to pound his chest and accept the Planning Commission's order—of course, the speed displayed by Bopu Shipyard on Project 901 strengthened his belief. The prototype of Project 901 was claimed to be combat-ready in three months. Bopu Shipyard lacked sufficiently skilled hands and experience in building such ships, but with the help of mechanized production and modern management, the lead ship of Project 901 also completed launch roughly within 90 days. Of course fitting out took another period of time.
+It was precisely this calculation that had given Shi Jiantao the confidence to pound his chest and accept the Planning Commission's order. The speed displayed by Bopu Shipyard on Project 901 had only strengthened his conviction. The prototype 901 was supposedly combat-ready in three months. Though Bopu lacked sufficiently skilled workers and experience in building such vessels, mechanized production and modern management had enabled the lead ship to complete launch within roughly ninety days. Fitting out naturally required additional time afterward.
 
-According to Shi Jiantao's idea, except for keels, ribs, and some parts requiring higher processing precision manufactured by Lingao, other materials would all be outsourced to Hong Kong Shipyard and indigenous workshops in the Pearl River Delta.
+According to Shi Jiantao's plan, only keels, ribs, and components requiring high precision would be manufactured in Lingao. Everything else would be outsourced to Hong Kong Shipyard and indigenous workshops throughout the Pearl River Delta.
 
-Currently, rib installation progress was already halfway done. Hong Kong's timber processing plant successfully entered production. Purchasing shipbuilding materials like timber, flax, cloth, lime, tung oil, and oakum in Guangdong proceeded smoothly with the assistance of the Guangzhou Station. Through the Guangzhou Station, a batch of shipwrights and carpenters were also recruited from the Pearl River Delta, receiving training while working.
+Currently, rib installation was halfway complete. Hong Kong's timber processing plant had successfully begun production. Purchasing shipbuilding materials—timber, flax, cloth, lime, tung oil, and oakum—proceeded smoothly in Guangdong with assistance from the Guangzhou Station. Through the Station, a batch of shipwrights and carpenters had also been recruited from the Pearl River Delta, receiving training while working.
 
-However looked at, the Harmony Ship plan felt like it was progressing smoothly. But sweat beads on Shi Jiantao's forehead increased drop by drop.
+By all appearances, the Harmony Ship program was progressing well. Yet beads of sweat had begun appearing on Shi Jiantao's forehead, multiplying drop by drop.
 
-Starting from the delivery inspection of the first batch of outsourced product samples last month, sweat beads began appearing on his forehead.
+It had started during the delivery inspection of the first batch of outsourced samples the previous month.
 
-The shopkeepers of shipbuilding workshops recruited through Guangzhou Station were very enthusiastic about outsourcing shipbuilding parts—who didn't want to hook up with the Australians to do business! If nothing else, just their strength in besieging Guangzhou and burning the Five Rams Relay Station made everyone want to curry favor. Moreover, Australians were famous in the business world for being "Honest and Reliable Young Gentlemen" who kept their word.
+The shopkeepers of the recruited shipbuilding workshops had shown great enthusiasm for the outsourcing contracts—who didn't want to do business with the Australians? Their reputation alone, demonstrated by their siege of Guangzhou and the burning of the Five Rams Relay Station, made everyone eager to curry favor. Moreover, Australians were famous throughout the business world as "Honest and Reliable Young Gentlemen" who kept their word.
 
-Now being able to prepare materials for their ships was simply a pie falling from the sky—the reputation of Australians having various strange ships had long spread; everyone wanted to learn a thing or two from it. Moreover, since rumors said the Imperial Court was about to issue a decree blockading trade with Macau, fewer people came to build ships in the Pearl River Delta area; many shipyards hadn't opened business for months. Now that the Australians wanted to build ships, everyone wanted a share of the soup.
+Now, the opportunity to supply parts for their ships seemed like fortune falling from the sky. The Australians' reputation for possessing strange and wonderful vessels had spread far and wide; everyone hoped to learn something from the association. Furthermore, rumors claimed the Imperial Court would soon issue a decree blockading trade with Macau, which had already caused a decline in shipbuilding orders throughout the Pearl River Delta. Many yards had gone months without commissions. The Australian contracts represented a lifeline everyone wanted a share of.
 
-Shi Jiantao gave sample parts of various outsourced ship materials and specific dimensions to the outsourcing shipyards. As for blueprints, he didn't give them—not for technical secrecy, but because no one among the shipyard artisans could read blueprints; many were illiterate.
+Shi Jiantao had provided sample parts of each outsourced component along with precise dimensions to the contracted shipyards. Blueprints he withheld—not for secrecy, but because the shipyard artisans couldn't read them. Many were completely illiterate.
 
-But the work of outsourcing ship materials proceeded very unsmoothly. When the first batch of outsourced parts was sent back for inspection on time, dimension discrepancy problems appeared immediately.
+The outsourcing effort proceeded disastrously. When the first batch of parts arrived on schedule for inspection, dimension discrepancies appeared immediately.
 
-Ship material parts for wooden ships had relatively loose requirements for tolerances and didn't need overly precise processing. But this batch of outsourced parts not only had completely mismatched curvature, but tolerances were also large to an unacceptable degree. Even among the three trial products submitted by each workshop, tolerances between them were extremely large. Let alone comparing with the sample.
+Ship components for wooden vessels had relatively loose tolerance requirements and didn't demand extreme precision. But this batch of outsourced parts didn't merely deviate slightly—the curvatures were completely wrong, and the dimensional tolerances exceeded any acceptable range. Even among the three trial products submitted by each workshop, the variations between them were wild. Comparison with the samples was almost laughable.
 
-Shi Jiantao issued a yellow card on the spot, telling them to go back and "rectify." He emphasized repeatedly that he wanted parts "exactly the same" as the sample.
+Shi Jiantao issued a yellow card on the spot and sent them back to "rectify." He emphasized repeatedly that he wanted parts "exactly the same" as the samples.
 
-The shopkeepers patted their chests expressing they completely understood his meaning and went back. A few days later they sent three new samples. Results were still no go.
+The shopkeepers patted their chests, expressing complete understanding, and departed. Days later, they returned with three new samples each. The results: still unacceptable.
 
-"However long that board is, you must make it that long; however wide, make it that wide. Not a hair's breadth of error. Also the shape, must be exactly identical, understand?" He said tirelessly.
+"However long that board is, you make it that long. However wide, you make it that wide. Not a hair's breadth of error. The shape must be exactly identical—understand?" he said, wearying of repetition.
 
-So there was this third sample submission. Shi Jiantao was like a student with bad grades but still having to try hard for the exam, hoping this time would yield a passable result.
+And so came this third round of sample submission. Shi Jiantao felt like a student with bad grades still hoping against hope for a passing mark.
 
-"This time it's definitely the same. All made by our master foreman." The shopkeeper guaranteed repeatedly.
+"This time they're definitely the same," the shopkeeper assured him repeatedly. "All made by our master foreman."
 
-Inspection results were still much larger than allowed tolerances. Shi Jiantao looked at the shopkeeper who was terrified and craning his neck to watch the result, and couldn't help shaking his head.
+The inspection results still showed unacceptable deviations. Shi Jiantao looked at the shopkeeper—terrified and craning his neck to watch the verdict—and could only shake his head.
 
-"Can't be, look, isn't this piece exactly the same as the sample you gave, sir?" The shopkeeper was very afraid of the "Australian," but failing three times in a row, he felt somewhat anxious inside—his shipyard had thirty to fifty people waiting to start work and eat. They hadn't had business for a long time; if they couldn't do the Australians' business, let alone making money, maintaining the stall would be difficult.
+"It can't be wrong—look, isn't this piece exactly like your sample, sir?" The shopkeeper was afraid of the "Australian," but three consecutive failures had made him anxious. His shipyard had thirty to fifty men waiting for work and pay. They hadn't had business in a long time; if they couldn't secure the Australian contract, forget making money—just keeping the operation alive would be impossible.
 
-Without using measuring tools, relying only on the naked eye, the shape and dimensions this time weren't much different from the sample. But under measuring tools, the gap in dimensions still showed up.
+To the naked eye, the shape and dimensions this time appeared close to the sample. Under measuring instruments, however, the dimensional gaps remained evident.
 
-"Still have a gap." Shi Jiantao wiped the sweat on his head in some dilemma. What to do? The outsourcing business he imagined beautifully was like a soap bubble, colorful but bursting one by one before his eyes.
+"Still off." Shi Jiantao wiped the sweat from his forehead, his expression troubled. What now? The beautiful vision of outsourced production was bursting before his eyes like soap bubbles—colorful but insubstantial.
 
-If he let them go back to rectify now, the next batch would probably be the same. Shi Jiantao suddenly realized he had consistently ignored a problem: although the parts he outsourced to indigenous shipyards were all the simplest components, standard "rough work," these "rough works" under the premise of standardized manufacturing all had relatively high tolerance requirements.
+Sending them back for another round of rectification would only produce the same results. And then it struck him: he had consistently overlooked a fundamental problem. Though the parts he was outsourcing were all simple "rough work," the simplest components in the ship, standardized manufacturing demanded relatively tight tolerance requirements even for rough work.
 
-Satisfying tolerance requirements required better production tools and precise measuring tools. And these were nonexistent in these indigenous shipyards. Shi Jiantao had conducted on-site inspections of indigenous shipyards; seeing carpenters relying solely on crude saws, axes, and simple iron tools, what kind of products they could manufacture was self-evident. Without precise measuring tools, naturally they couldn't achieve accurate grasp of dimensions.
+Meeting tolerance requirements demanded better production tools and precise measuring instruments—neither of which these indigenous shipyards possessed. Shi Jiantao had conducted on-site inspections of their facilities. Watching carpenters work with nothing but crude saws, axes, and primitive iron tools made the quality of their output inevitable. Without precision measuring instruments, accurate dimensional control was simply impossible.
 
-This wasn't the 21st century where standardized production equipment and measuring tools were all easily available things. Even for a small electronics factory or small machinery factory in the countryside with incomplete equipment, as long as the contracting party had enough business, the boss could very quickly purchase necessary equipment from the market to immediately organize production.
+This was not the twenty-first century, where standardized production equipment and measuring tools could be purchased off the shelf. Even a small electronics or machinery workshop in the countryside, however poorly equipped, could quickly acquire whatever was needed from the market once orders came in.
 
-In comparison, shipyards in this time-space had nothing. They didn't even have the basic concept of standardized production. To make their products usable, it seemed impossible without spending great effort to help them rectify, or even upgrade process equipment.
+The shipyards of this era had nothing—not even the basic concept of standardized production. Making their output usable would require enormous effort: retraining workers, upgrading process equipment, establishing entirely new protocols.
 
-This way it returned to the old path of training workers himself. Shi Jiantao simply wanted to tear his hair out. He racked his brains tossing around for so long; if he stumbled on building the H-800, needless to say, he would become a "braggart" in the future, carrying a stain that couldn't be washed away. One must know that requesting to come to Hong Kong to set up a shipyard, building Harmony ships, and outsourced production after standardization were all his proposals.
+Which brought him back to the old path of training workers himself. Shi Jiantao wanted to tear his hair out. He had worked so hard on this approach; if he stumbled on the H-800, he would become a "braggart" forever, bearing a stain that could never be washed away. After all, it was he who had proposed coming to Hong Kong to establish a shipyard, building the Harmony ships, and achieving outsourced production through standardization.
 
-"Review starting tomorrow, bring all your workers to me." Shi Jiantao had to make a helpless decision in his helplessness. "We'll teach them how to work, understand?"
+"Report for retraining starting tomorrow," Shi Jiantao said at last, the decision forced upon him. "Bring all your workers. We'll teach them how to work. Understand?"
 
-"Yes, yes." The shopkeeper nodded repeatedly. Muttering inside: he was happy to learn how Australians worked, but who paid for food? Dozens of people running to this small island to eat, drink, and poop all cost money?
+"Yes, yes." The shopkeeper nodded repeatedly, though muttering internally: learning how the Australians worked would be interesting, but who was paying for food? Dozens of people traveling to this small island needed to eat, drink, and take care of necessities—all of that cost money.
 
-Shi Jiantao naturally understood his thoughts, but he was unwilling. According to old time-space rules, inspections and such were charged; as for training, you had to pay training fees in reverse. Even in this time-space, apprentices only ate for free, absolutely no logic of getting wages. However, right now was a time of needing people. Although shipyard artisans weren't very suitable, they were better than new naturalized citizens with zero woodworking foundation—besides, there weren't many naturalized citizens available to allocate to him right now.
+Shi Jiantao understood his thoughts perfectly, though it rankled. By old-time standards, inspections were charged; training required payment in the opposite direction. Even in this era, apprentices only ate for free—they certainly never received wages. But right now, he needed these people. Though the shipyard artisans weren't particularly skilled, they were still better than naturalized citizens with zero woodworking foundation. Besides, he couldn't get many naturalized citizens allocated to him anyway.
 
-"Your people come over, food and lodging fully covered by us. Learn on the job."
+"Your people come here, food and lodging fully covered by us. They'll learn on the job."
 
-Just like that, before evening, he reached a "commissioned training" agreement with the shopkeeper and foreman of the first indigenous shipyard accepting outsourcing work. The agreement was for one month. During this period, food and lodging expenses were covered by Hong Kong Shipyard, and shipwrights learned on the job.
+And so, by evening, he had reached a "commissioned training" agreement with the shopkeeper and foreman of the first indigenous shipyard accepting outsourcing work. The term was one month. During this period, Hong Kong Shipyard would cover all food and lodging expenses while the shipwrights learned by working.
 
-Shi Jiantao thought, even if they couldn't learn, at least they did a month of work. If it still didn't work out, he would have to think of other ways.
+Shi Jiantao thought grimly: even if they couldn't learn, at least they would do a month's work. If it still didn't work out, he would have to think of something else.

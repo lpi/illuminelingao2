@@ -1,6 +1,6 @@
 # Chapter 1115 - The Stone Figures "Bleed"
 
-Practice was physically demanding, so they received extra sweet potatoes each day as snacks. Sweet potatoes were high in dietary fiber—as long as they didn't overeat, they wouldn't gain weight, and the fiber would aid digestion. Besides, by Zhu Mingxia's standards, the entire troupe was malnourished. In peaceful times, they'd never lacked for food—the only question was quality. But during the chaos at Dengzhou, these delicate women had nearly starved; almost all had grown gaunt.
+Practice was physically demanding, so they received extra sweet potatoes each day as snacks. Sweet potatoes were high in dietary fiber—as long as they didn't overeat, they wouldn't gain weight, and the fiber aided digestion. Besides, by Zhu Mingxia's standards, the entire troupe was malnourished. In peaceful times, they'd never lacked for food—the only question was quality. But during the chaos at Dengzhou, these delicate women had nearly starved; almost all had grown gaunt.
 
 Apart from practice, female instructors gave daily lessons in reading and arithmetic, and they had to learn to write their own names. Many in the troupe had no names at all—some didn't even have surnames, only stage names given by the troupe mistress. This time, most had received new names. Even the mistress herself had been renamed—though at least her surname hadn't been changed.
 
@@ -8,7 +8,7 @@ Beyond practice and literacy, Zhao Jinghan devoted herself to the *pipa*—follo
 
 These past days, the mistress herself had been practicing frantically, as if Master Zhu had given her some directive. Every night before bed, she would teach Zhao Jinghan the pieces again.
 
-Because Zhao Jinghan had been "noticed" by Master Zhu, the mistress no longer dared to strike or scold her at will. But from her tense, anxious manner, it was clear Master Zhu wanted her to make sure everyone mastered these pieces.
+Because Zhao Jinghan had been "noticed" by Master Zhu, the mistress no longer dared to strike or scold her at will. But from her tense, anxious manner, it was clear Master Zhu wanted her to ensure everyone mastered these pieces.
 
 "Daughter, look—here's today's notation..." Liu Yisi wore a somewhat fawning smile as she brought over the score. She'd previously refused to teach her notation skills—now she was imparting everything she knew. "Rest a moment first, then practice with me... This piece is one Master Zhu specifically ordered us to master. You're my mainstay..."
 
@@ -22,15 +22,15 @@ Hearing the Japanese NCO's report, Xue Ziliang frowned. The whistling was too st
 
 Kim Yongjoo didn't disappoint. Whether in training or patrols, he was always first. Though illiterate, he was eager to learn Mandarin and could already manage simple conversations.
 
-Kim Yongjoo stammered that he didn't know what had made that sound—but one thing was certain: it wasn't an animal. He'd been a hunter by trade; after exile to Jeju, he'd continued making his living that way. There was hardly any animal on Jeju he hadn't hunted and eaten.
+He stammered that he didn't know what had made that sound—but one thing was certain: it wasn't an animal. He'd been a hunter by trade, and after exile to Jeju he'd continued making his living that way. There was hardly any animal on Jeju he hadn't hunted and eaten.
 
 But without hesitation he stood up: "I'll take some men and go look again."
 
-Hunters often traversed mountains and valleys, ate and slept rough, and ventured into places no one else went—sometimes at the risk of their lives. They tended to be polarized: one type was extremely superstitious, worshipping gods everywhere, full of taboos; the other type feared nothing at all. Kim Yongjoo was the latter.
+Hunters often traversed mountains and valleys, ate and slept rough, and ventured into places no one else went—sometimes at the risk of their lives. They tended to be polarized: one type was extremely superstitious, worshipping gods everywhere, full of taboos; the other feared nothing at all. Kim Yongjoo was the latter.
 
 Xue Ziliang also found it strange. He was about to order some Special Reconnaissance personnel to accompany Kim when a sentry suddenly reported: Kim O-sun had arrived with urgent news for the Official.
 
-Moreover, Kim Yongjoo's wife, daughter, and son now all worked for the new administration—the whole family were active collaborators. Kim O-sun was young and clever, learning Mandarin far faster than her father. Feng Zongze had given her the title of "Civil Affairs Clerk"—for a time this became "remarkable news" among the Korean population of Jeju City.
+Kim Yongjoo's wife, daughter, and son now all worked for the new administration—the whole family were active collaborators. Kim O-sun was young and clever, learning Mandarin far faster than her father. Feng Zongze had given her the title of "Civil Affairs Clerk"—for a time this became "remarkable news" among the Korean population of Jeju City.
 
 Because she was considered ugly, Kim O-sun had always been mocked and despised. So she harbored an almost adoring fervor toward the Committee members who valued and promoted her. Though her face betrayed nothing, her work enthusiasm astonished everyone who witnessed it.
 
@@ -46,7 +46,7 @@ In the past, walking by, she'd seen people come here to burn incense and kowtow.
 
 Regardless, everyone was attached to the statues, believing them to be local guardians. People came regularly to burn incense and pray. Now the statues' features were suddenly bleeding—far too eerie. She stood aside, listening quietly, not hurrying to speak.
 
-As she was pondering, she suddenly heard an elderly Labor Service worker saying excitedly: "This is terrible—a great calamity is coming! Stone figures bleeding—a terrible omen! Our Jeju is about to suffer a bloodbath!"
+As she pondered, she suddenly heard an elderly Labor Service worker exclaiming: "This is terrible—a great calamity is coming! Stone figures bleeding—a terrible omen! Our Jeju is about to suffer a bloodbath!"
 
 Someone interjected: "Perhaps recent actions have angered the spirits..."
 

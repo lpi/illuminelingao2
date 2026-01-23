@@ -1,145 +1,149 @@
-# Chapter 647 Night Raid
+# Chapter 647 — Night Raid
 
-Under the cover of Light Infantry, the Medical Corps and militia cleaning the battlefield opened the stockade gate and walked out. They first collected and encoffined their own fallen soldiers in front of the earthen dike. Many Fubo Army dead who fell from the earthen dike had their heads cut off, and identity tags hung around their necks were lost; they could only be registered and encoffined one by one by checking names from cloth tags sewn on their clothes. Subsequently, they began to clear the corpses of government soldiers, including dragging out corpses fallen in the trench one by one with hook poles. The weather was already getting hot; dropping so many corpses on the ground would soon cause a plague once they rotted.
+Under the cover of Light Infantry, the Medical Corps and militia cleaning the battlefield opened the stockade gate and emerged. They first collected and encoffined their own fallen soldiers at the foot of the earthen dike. Many Fubo Army dead who had fallen from the dike had been decapitated, and the identity tags worn around their necks were lost; they could only be registered and encoffined one by one by checking the name tags sewn into their clothing. After that, they began to clear the corpses of government soldiers, including dragging out bodies that had fallen into the trench one by one with hook poles. The weather was already hot; dropping so many corpses in place would soon breed plague once they rotted.
 
-Seeing the Hair Bandits opening the stockade gate and coming out in large numbers, the Ming army thought they were launching a counterattack, so they ascended the stockade wall one after another preparing to fight. However, they saw the Hair Bandit infantry stopped and formed arrays after advancing three hundred paces from the stockade. Many people wearing white robes came out from behind, their heads and faces wrapped in white cloth hoods, holding long poles in their hands. They hooked corpses one by one, pulled them together, and then transported them by wheelbarrow to a deep ditch for burial—the Engineering Corps buried a row of explosives and soon blasted out a deep ditch to bury corpses.
+Seeing the Hair Bandits opening the stockade gate and pouring out in large numbers, the Ming army assumed they were launching a counterattack and scrambled up the stockade wall to prepare for battle. But they saw the Hair Bandit infantry halt after advancing three hundred paces and form defensive arrays. Many people wearing white robes emerged from behind, their heads and faces wrapped in white cloth hoods, long poles in their hands. They hooked corpses one by one, pulled them together, and transported them by wheelbarrow to a deep ditch for burial. The Engineering Corps had buried a row of explosives and quickly blasted out a trench deep enough to serve as a mass grave.
 
 Abandoned government soldier wounded were occasionally found among the piles of corpses. As long as they could still move, they were loaded onto wheelbarrows one by one and transported back to the stockade for treatment.
 
-What made He Ming and the Senators regretful was that the government army actually didn't leave behind a single corpse of an officer of Chiliarch rank or above, not to mention wounded ones. Even their personal surname flags were not found much.
+What He Ming and the Senators regretted was that the government army had left behind not a single corpse of an officer of Chiliarch rank or above—let alone any wounded ones. Even their personal surname flags were scarcely found.
 
-He Ming didn't require recovery of swords, spears, and military equipment scattered on the ground, but abandoned army flags were all collected without leaving a single one—these were markers of military merit.
+He Ming did not require recovery of swords, spears, and military equipment scattered on the ground, but every abandoned army flag was collected without exception—these were markers of military merit.
 
-"The Hair Bandits actually don't cut off heads!" The government soldiers watched the enemy's actions curiously; not only did they not cut off heads, but they also took the wounded back. In the army of that time, getting injured in battle meant danger of losing one's life, let alone being unable to walk due to heavy wounds. Generally, when cleaning the battlefield after victory, regardless of friend or foe, heavy wounded were usually finished off on the spot.
+"The Hair Bandits don't even cut off heads!" The government soldiers watched the enemy's actions with curiosity. Not only did they not take heads, but they also retrieved the wounded. In the army of that era, being injured in battle meant danger of losing one's life; being heavily wounded and unable to walk essentially meant death. Generally, when cleaning a battlefield after victory, friend and foe alike—if heavily wounded—were finished off on the spot.
 
-For safety, the Fubo Army's action of collecting corpses and cleaning the battlefield only advanced to a place more than two hundred meters from the earthen dike. This distance was also where most corpses were left.
+For safety reasons, the Fubo Army's corpse collection and battlefield cleaning advanced only to a point more than two hundred meters from the earthen dike. This was also where the densest piles of corpses had accumulated.
 
-Just as the Medical Corps was busy clearing the battlefield, lightning flashed in the originally thick cloud layer, and bursts of dull thunder rolled over. A rainstorm was coming.
+Just as the Medical Corps was busy clearing the field, lightning flashed through the thick cloud layer, and rolls of dull thunder rumbled overhead. A rainstorm was coming.
 
-There were often rainstorms after great battles, especially in such a season with abundant water vapor and dense cloud layers in June and July; large amounts of dust and gunpowder smoke provided sufficient condensation nuclei.
+Rainstorms often followed great battles, especially in such a season of abundant water vapor and dense clouds as June and July. Large amounts of dust and gunpowder smoke provided abundant condensation nuclei.
 
-"Now the corpses will be soaked bloated," Ryan withdrew the Medical Corps which finished hastily, saying with a frown, "Once the sun comes out tomorrow, I feel scared just thinking about the smell on the battlefield."
+"Now the corpses will bloat from soaking," Ryan withdrew the hastily finished Medical Corps and frowned. "Once the sun comes out tomorrow, I feel scared just thinking about the smell on the battlefield."
 
-"Make do for now; deal with it later." He Ming seemed to smell the corpse stench along the road when advancing to Lang Son back then. "Disinfectant must be sprinkled in the camp too."
+"Make do for now; deal with it later." He Ming seemed to catch a whiff of corpse stench from the road to Lang Son, back in those days. "Disinfectant must be sprinkled throughout the camp as well."
 
-Ryan took off his gown emitting heavy smells of disinfectant and blood, throwing it together with oilcloth boots into the brightly burning boiler, which was boiling water to supply the troops.
+Ryan stripped off his gown, which reeked of disinfectant and blood, and threw it along with his oilcloth boots into a brightly burning boiler that was heating water for the troops.
 
-"Infantry 6th Battalion assumes guard duty, pay attention to rain protection! Other troops eat immediately then rest." He Ming ordered loudly, "Tell the Logistics Department to ensure every tent and shed is dry."
+"Infantry 6th Battalion assumes guard duty—pay attention to rain protection! All other units eat immediately, then rest." He Ming ordered loudly. "Tell the Logistics Department to ensure every tent and shed is dry."
 
-"Understood." Xie Shu saluted and trotted away. Roll call sounds rang on the square in the camp. Soon the 3rd and 5th Infantry Battalions reported their vacancies. Killed and wounded officers and NCOs had to be replenished immediately, promoting meritorious soldiers. Soldier vacancies were filled by militia. This way all units could go to the battlefield fully equipped and manned tomorrow.
+"Understood." Xie Shu saluted and trotted away. Roll calls rang out across the camp's square. Soon the 3rd and 5th Infantry Battalions reported their vacancies. Dead and wounded officers and NCOs had to be replenished immediately, with meritorious soldiers promoted to fill the gaps. Soldier vacancies would be filled by militia. This ensured all units could go into battle tomorrow fully equipped and manned.
 
-With a burst of fierce rolling thunder, sparse bean-sized raindrops fell on the ground, kicking up the smell of soil and blood. A gust of cold wind blew, making everyone shiver. A heavy rain poured down, accompanied by roaring thunder. For a time, golden snakes danced wildly between heaven and earth. A white rain curtain shrouded the world. The crashing sound of rain made voices inaudible.
+With a burst of fierce rolling thunder, sparse drops the size of beans struck the ground, kicking up the smell of soil and blood. A gust of cold wind swept through, making everyone shiver. Then the deluge came, accompanied by roaring thunder. For a time, golden serpents of lightning danced wildly between heaven and earth. A white curtain of rain shrouded the world. The crashing rain drowned out all voices.
 
-He Ming's orderly had brought rain gear long ago and draped it on him as soon as it rained. He Ming didn't rush back to headquarters but asked: "Do the wounded have shelter?"
+He Ming's orderly had brought rain gear long ago and draped it over him the instant the rain began. But He Ming did not rush back to headquarters. Instead, he asked: "Do the wounded have shelter?"
 
-"Rain sheds and big tents have already been set up for the wounded."
+"Rain sheds and large tents have already been set up for the wounded."
 
-The thunder gradually faded, but the rain became heavier and heavier. people and objects became unclear ten steps away. He Ming still inspected everywhere once, only walking down to return to headquarters after seeing every place was arranged properly. He instructed to send an officer escorted by the Special Reconnaissance Team to visit the two lurking infantry battalions.
+The thunder gradually faded, but the rain intensified. People and objects became invisible ten steps away. He Ming still made a complete inspection, only walking back to headquarters after confirming every location was properly arranged. He instructed that an officer escorted by the Special Reconnaissance Team be sent to visit the two infantry battalions lying in ambush.
 
-The 1st and 4th Battalions responsible for ambush were both in the wild. Seeing the rain was so heavy, He Ming feared they couldn't camp in the wild or might even encounter danger of flash floods.
+The 1st and 4th Battalions, responsible for the ambush, were both positioned in the wild. Seeing the rain falling so heavily, He Ming worried they might be unable to camp in the open—or worse, encounter flash floods.
 
-"Tell them not only to pay attention to safety but also to concealment!" He Ming instructed the messenger, "Prevent enemy night raids."
+"Tell them to pay attention not only to safety but also to concealment!" He Ming instructed the messenger. "Be on guard against enemy night raids."
 
-However, both Battalion Commanders reported the current campsite was very safe; soldiers didn't encounter flooding and were resting.
+Both Battalion Commanders reported back: the current campsite was very safe. The soldiers had not encountered flooding and were resting.
 
-The Chengmai gate tower was covered in gloomy clouds at this time. The fighting throughout the day showed that the Hair Bandits not only had sharp firearms but also extremely strong combat power. Although exact figures hadn't come out yet, total casualties exceeding two thousand were certain. This was already very serious for an army of more than twenty thousand. Morale in the entire Grand Camp was low. Many people feared being driven to fight Hair Bandits tomorrow and already harbored thoughts of fleeing. Only because of heavy rain and pitch-black darkness outside, large-scale flight didn't happen.
+---
 
-He Rubin ordered reliable troops to control roads and strategic passes while gathering generals for a meeting to comfort them, asking everyone not to be disheartened and wait for the decisive battle tomorrow. Zhao Ruyi also said some words asking generals to serve the country loyally. He also temporarily promoted a few generals, asking them to lead men and horses who lost their main generals. He also transferred those most heavily damaged units to station in the rear, replacing them with fresh men and horses on the front line.
+The Chengmai gate tower was shrouded in gloom. The day's fighting had demonstrated that the Hair Bandits not only possessed sharp firearms but also extraordinary combat power. Though exact figures had not yet been compiled, total casualties exceeding two thousand were certain. This was already very serious for an army of over twenty thousand. Morale throughout the Grand Camp had sunk to its nadir. Many men, fearing they would be driven to fight the Hair Bandits tomorrow, already harbored thoughts of fleeing. Only the heavy rain and pitch-black darkness outside prevented a mass exodus.
 
-He then ordered the beheading of a dozen routing soldiers captured by roving cavalry who attempted to flee to Qiongshan instead of returning to camp, displaying their heads to the whole camp. Following this awe of killing, he sent trusted private secretaries and generals to comfort the most unreliable transport troops and village braves, using both soft and hard tactics to demand they "work together with one heart." After handling all this, he returned to the big tent. Zhao Ruyi was sitting in the tent stroking his beard. He Rubin knew he looked calm but was actually very afraid inside.
+He Rubin ordered reliable troops to control the roads and strategic passes while gathering generals for a meeting, comforting them and urging everyone not to lose heart—the decisive battle would come tomorrow. Zhao Ruyi also spoke, asking the generals to serve the country loyally. He also temporarily promoted a few officers, ordering them to lead the units that had lost their commanding generals. He transferred the most heavily damaged units to station in the rear, replacing them with fresh forces at the front.
+
+He then ordered the beheading of a dozen routing soldiers captured by roving cavalry—men who had attempted to flee toward Qiongshan instead of returning to camp. Their heads were displayed to the entire camp. Following this demonstration of severity, he dispatched trusted private secretaries and generals to comfort the most unreliable elements—the transport troops and village braves—employing both soft and hard tactics to demand they "work together with one heart." After handling all this, he returned to his tent. Zhao Ruyi sat inside, stroking his beard. He Rubin understood that the calm exterior concealed deep fear.
 
 "General Yinzhi, what are the odds of winning tomorrow's battle?" Zhao Ruyi asked.
 
-"Only sixty or seventy percent!" He Rubin said, "Our army suffered a setback today; military morale wavered considerably. Hair Bandit morale is high..."
+"Sixty or seventy percent at best!" He Rubin said. "Our army suffered a setback today. Morale has wavered considerably. Hair Bandit morale is high..."
 
-He didn't continue the rest of the words. People present were clear about the subtext: tomorrow's battle would likely result in more defeat than victory.
+He did not finish the rest. Everyone present understood the implication: tomorrow's battle was more likely to end in defeat than victory.
 
-Zhao Ruyi coughed once and said: "Hair Bandit firearms are sharp and morale is high; our army absolutely cannot fight a wild field battle with them. In the student's opinion, it is better to dig deep trenches and build high walls to consume the Hair Bandits' sharpness."
+Zhao Ruyi coughed once and said: "Hair Bandit firearms are sharp, and their morale is high. Our army absolutely cannot fight a field battle with them. In this student's opinion, it would be better to dig deep trenches and build high walls—to exhaust the Hair Bandits' sharp edge."
 
-He Rubin remained silent. This tactic was useful when dealing with ordinary enemies, or even against the Imperial Court's great enemy, the Eastern Barbarians (Manchus). The government army had many firearms and infantry; digging trenches and establishing stockades to defend firmly with firearms, as long as officers and soldiers were of one mind, they could generally hold. It was a good tactic.
+He Rubin remained silent. This tactic was useful when dealing with ordinary enemies—even against the Imperial Court's great enemy, the Eastern Barbarians. The government army possessed many firearms and infantry; digging trenches and establishing stockades to defend firmly with firearms, so long as officers and soldiers were of one mind, could generally hold. It was a sound tactic.
 
-But the Hair Bandits were different from any enemy the Ming army had fought. Even different from the Red-haired people who resembled Hair Bandits most. The enemy had cannons that shot farther and more accurately than them. Digging trenches to defend firmly would only lead to being slowly shelled by the enemy from a distance. The whole army's morale would collapse before the enemy attacked.
+But the Hair Bandits were different from any enemy the Ming army had ever faced—even different from the Red-haired people who resembled them most. The enemy possessed cannons with greater range and accuracy. Digging trenches and defending firmly would only invite slow destruction by shelling from a distance. The entire army's morale would collapse before the enemy even attacked.
 
-"Lord Zhao, Hair Bandit cannons are far superior to mine. If digging trenches to defend firmly, enemy cannons can reach me, but my cannons cannot reach the enemy. I am the fish and meat on the chopping block driven by others!"
+"Lord Zhao, Hair Bandit cannons are far superior to mine. If we dig trenches and defend firmly, their cannons can reach us, but ours cannot reach them. We become fish and meat on the chopping board, to be carved up at their leisure!"
 
-Zhao Ruyi heard and found it indeed reasonable: "Only attacking again tomorrow, I fear..." He didn't continue, only sighed.
+Zhao Ruyi considered this and found it indeed reasonable. "Then attacking again tomorrow... I fear..." He did not finish, only sighed.
 
-A private secretary said: "Your Excellency need not worry. No matter how far his cannons reach, he has to exit the stockade to deploy cannons. Enemy soldiers are few; relying only on sharp firearms, they may not dare to exit the stockade to deploy cannons."
+A private secretary spoke up: "Your Excellency need not worry. No matter how far their cannons reach, they must exit the stockade to deploy them. Their soldiers are few. Relying only on sharp firearms, they may not dare to exit the stockade and deploy cannons."
 
-At this time, Chang Qingyun interjected: "Your Excellency! The Hair Bandits frustrated our army slightly today; the soldiers must be lazy and generals arrogant, neglecting defense. Tonight heavy rain falls like pouring; enemy firearms absolutely cannot be used. Please send a brave general to recruit several hundred death-sworn soldiers with heavy gold, emulating the Snowy Night Raid on Caizhou; we will surely break the Hair Bandits greatly!"
+At this moment, Chang Qingyun interjected: "Your Excellency! The Hair Bandits thwarted our army only slightly today. The soldiers must now be lazy and their generals arrogant—they will neglect their defenses. Tonight, heavy rain falls like a torrent; enemy firearms absolutely cannot function. Please send a brave general to recruit several hundred death-sworn soldiers with heavy gold, emulating the legendary Snowy Night Raid on Caizhou. We will surely deal the Hair Bandits a great blow!"
 
-He spoke decisively. He Rubin thought secretly: *A scholar's view!* In such heavy rain, sending several hundred people to grope in the dark was difficult enough, not to mention finding the direction accurately.
+He spoke with absolute confidence. He Rubin thought privately: *A scholar's view!* In such heavy rain, sending several hundred men groping blindly through the dark would be challenging enough—never mind finding the correct direction.
 
-But Chang Qingyun's sentence "Heavy rain falls like pouring, firearms absolutely cannot be used" moved him. In his view, today's defeat was still due to the Hair Bandits' powerful firearms.
+But Chang Qingyun's phrase "heavy rain falls like a torrent—firearms absolutely cannot function" struck a chord. In He Rubin's view, today's defeat had been entirely due to the Hair Bandits' overpowering firearms.
 
-*It would be best if it rains tomorrow too.* He Rubin thought secretly.
+*It would be best if it rains tomorrow too,* He Rubin thought.
 
-Zhao Ruyi, however, took great interest in this proposal. Surrounding private secretaries and generals also thought there was a chance—they felt as long as Hair Bandits couldn't fire firearms, they were nothing special. Even if they couldn't break the bandits, making the enemy suffer a big loss and winning back a round was still possible.
+Zhao Ruyi, however, found this proposal quite interesting. The surrounding private secretaries and generals also believed there was a chance—they reasoned that as long as the Hair Bandits could not fire their firearms, they were nothing special. Even if they could not break the bandits entirely, they might inflict a major blow and reclaim some of the day's losses.
 
 "How is the rain outside?"
 
-"Already turned slightly smaller." The junior officer who went out to check reported back.
+"It has lightened slightly," the junior officer who went outside to check reported.
 
-He Rubin got up and stood on the city tower holding the railing to look. The Hair Bandit Grand Camp earthen dike a few *li* away was brightly lit with lanterns, obviously heavily guarded. Hoping to steal the camp was impossible. But if enemy firearms couldn't be used, fighting with white blades might offer a chance for a small victory.
+He Rubin rose and stood on the city tower, gripping the railing and gazing out. The Hair Bandit Grand Camp a few *li* distant was brightly lit with lanterns, obviously heavily guarded. Hoping to steal into the camp was impossible. But if the enemy's firearms could not function, fighting with bare blades might yet offer a chance for a small victory.
 
-*Now the rain is small.* He Rubin thought. *If sending men to raid the camp immediately succeeds, taking the opportunity to rout the Hair Bandit whole army would completely reverse the war situation. If the stockade cannot be broken, a small victory can also boost morale.*
+*Now the rain is lighter,* He Rubin thought. *If we send men to raid the camp immediately and succeed, we can take the opportunity to rout the Hair Bandit army entirely, completely reversing the war's course. If we cannot break the stockade, even a small victory will boost morale.*
 
-So he immediately sent people to find other generals to discuss the camp raid. Everyone thought: after the failed attack today, the Hair Bandits would absolutely not expect the Ming army to raid the camp, let alone during heavy rain. Although moving in the rainy night was inconvenient, this danger was shared by friend and foe. If Hair Bandits couldn't use firearms, they could only fight a chaotic battle. The government soldiers' skill in white blade stabbing could be displayed. Perhaps routing the Hair Bandits was not impossible.
+He immediately summoned other generals to discuss the camp raid. Everyone agreed: after the failed attack today, the Hair Bandits would never expect the Ming army to raid their camp—least of all during heavy rain. Though moving at night in the storm was inconvenient, this hardship would be shared by friend and foe alike. If the Hair Bandits truly could not use their firearms, they could only fight a chaotic melee. The government soldiers' skill in hand-to-hand combat could finally be brought to bear. Perhaps routing the Hair Bandits was not impossible after all.
 
-Immediately it was decided that five hundred men of He Rubin's Town Standard would be the vanguard to brave the rain and seize the ascent. Huezhou Regional Commander Yan Zungao would lead one thousand men to support. If the attack on the stockade went smoothly, fireworks would be the signal, and He Rubin would personally lead the main force to attack fiercely afterward.
+It was immediately decided: five hundred men from He Rubin's Town Standard would form the vanguard, braving the rain to scale the defenses. Huezhou Regional Commander Yan Zungao would lead one thousand men in support. If the assault on the stockade proceeded smoothly, fireworks would serve as the signal; He Rubin would then personally lead the main force in a full-scale attack.
 
-Yan Zungao let everyone eat a full meal, then rolled up flags and silenced drums, moving quietly to the front camp. To facilitate movement in the muddy ground on a rainy day, the five hundred first ascenders took off their armor and didn't bring long spears, only carrying podao (curve-bladed sabers) and small shields. In addition, many light ladders were prepared. All soldiers' shoes were wrapped with straw ropes in several places to avoid slipping and being unable to apply force when climbing. After all units assembled, they set off immediately braving the rain. Town Standard Central Army Garrison Commander, Guerrilla Ye Zhengfang led elite soldiers in front. Yan Zungao led a few guerrillas leading one thousand men ready to support. He ordered everyone not to raise fire or make noise, running quickly towards the enemy camp silently in the rainy night.
+Yan Zungao ordered his men to eat their fill, then silenced drums and rolled up banners, moving quietly toward the front camp. To facilitate movement in the muddy terrain, the five hundred first-ascenders removed their armor and left their long spears behind, carrying only podao curved sabers and small shields. Many light ladders had also been prepared. All soldiers' shoes were wrapped with straw ropes in several places to prevent slipping when climbing. After all units had assembled, they set off immediately, marching through the rain. Town Standard Central Army Garrison Commander and Guerrilla Ye Zhengfang led the elite soldiers at the front. Yan Zungao followed with several other guerrillas, leading one thousand men ready to support. He ordered everyone not to light fires or make noise, running quickly and silently toward the enemy camp through the rainy night.
 
-He Rubin also quietly prepared two thousand men, ready to lead the main force to attack fiercely and break the stockade in one fell swoop once the night raid succeeded.
+He Rubin also quietly prepared two thousand men, ready to lead the main force in a full-scale attack the moment the night raid succeeded.
 
-Ye Zhengfang led men and horses quietly for several *li*. Only the brushing sound of rain was heard in his ears. Although there were lights on the earthen dike, it was pitch black all around. He secretly rejoiced that the enemy's bright lights meant the enemy was in the light and our army in the dark, also pointing out the direction for the attacking team. Otherwise, finding the correct direction in the dark, lampless rainy field would be almost impossible.
+Ye Zhengfang led his men and horses quietly for several *li*. Only the swishing of rain reached his ears. Though there were lights on the earthen dike, the surrounding area was pitch black. He secretly rejoiced—the enemy's bright lights meant they were in the light while his army remained in the dark. Those same lights also served to indicate the correct direction. Otherwise, finding the right path in a dark, lampless field on a rainy night would have been nearly impossible.
 
-Seeing the whole army had quietly groped to the bottom of the earthen dike and follow-up men and horses also came up, Ye Zhengfang couldn't help being overjoyed. During the day, thousands of men and horses left countless corpses to break through this distance. Now they actually groped to the bottom of the earthen dike without losing a single soldier. It seemed the Hair Bandits were indeed slack! He listened quietly for a moment; there was still no movement on the earthen dike, only the hissing sound of torches burning in the rain.
+Seeing the entire force had quietly groped its way to the foot of the earthen dike and that the follow-up troops had also arrived, Ye Zhengfang could not help but feel elated. During the day, thousands of men had left countless corpses just to cross this distance. Now they had crept to the base of the earthen dike without losing a single soldier. It seemed the Hair Bandits were indeed slack! He listened quietly for a moment; there was no movement on the dike, only the hissing of torches sputtering in the rain.
 
-"Set up ladders!" He ordered in a low voice. More than a dozen scaling ladders were erected slowly, leaning against the earthen dike.
+"Set up ladders!" he ordered in a low voice. More than a dozen scaling ladders were slowly erected, leaning against the earthen dike.
 
-The surroundings suddenly became snow-bright. In an instant, the government soldiers thought the sky turned bright in a flash. Just in the instant of their astonishment, a loud voice reached their ears:
+Suddenly the surroundings blazed with blinding light. In an instant, the government soldiers thought the sky itself had turned bright. In the moment of their astonishment, a loud voice reached their ears:
 
 "Fire!"
 
-Volley fire swept through the government soldiers preparing to raid the stockade between bastions in an instant. Intense light beams shone on the government soldiers under the earthen dike, making them dizzy and dazzled. The light of strong stage searchlights swept through the dense rain, making everything around become glaringly white. The stunned government soldiers couldn't even identify the direction to flee for a time, dying under volley fire one after another.
+Volley fire swept through the government soldiers preparing to storm the gap between bastions. Intense beams of light shone down on the men below the earthen dike, dazzling and blinding them. The power of the stage searchlights swept through the dense rain, turning everything around them harsh, glaring white. The stunned government soldiers could not even identify which direction to flee; they fell under the volleys one after another.
 
-"Go!" Ye Zhengfang was still in shock, knowing the Hair Bandits had long taken precautions and daring not stay longer. With a gong sound, government soldiers competed to flee. The white light beams on the earthen dike followed the defeated soldiers closely. Government soldiers were in great chaos for a time, trampling each other in front of the trench, causing many casualties. Fortunately, Yan Zungao's unit behind hadn't crossed the trench yet. Seeing light columns shooting everywhere, they thought the Hair Bandits used some sorcery. Then guns roared. Yan Zungao knew the so-called "firearms are useless in rainy days" was not a truth for Hair Bandits.
+"Go!" Ye Zhengfang's shock had not yet passed, but he knew the Hair Bandits had been fully prepared and that staying was death. With a gong strike, government soldiers scrambled to flee. The white beams on the earthen dike followed the routed soldiers closely. The government forces fell into chaos; men trampled each other in front of the trench, causing many casualties. Fortunately, Yan Zungao's unit behind them had not yet crossed the trench. Seeing the columns of light shooting in all directions, they assumed the Hair Bandits had employed some kind of sorcery. Then guns roared. Yan Zungao understood at once that the adage "firearms are useless in rainy weather" did not apply to Hair Bandits.
 
-Hair Bandit bird guns roared in the heavy rain, but government soldier bows and arrows were hard to use in rainy weather. The one thousand men and horses Yan Zungao brought could neither attack nor support/cover. Seeing white light columns shaking wildly, crossing the trench to shine into his men and horses, before he could order, a chaotic volley was fired, and government soldiers waiting to cross the trench fell in a batch instantly. Others dispersed in a hubbub immediately. Yan Zungao himself was also clustered by personal soldiers and fled.
+Hair Bandit bird guns thundered through the heavy rain while government bows and arrows could barely be used in such conditions. The one thousand men Yan Zungao had brought could neither attack nor provide covering support. Seeing the white beams shake wildly and sweep across the trench to fall on his own men, before he could even issue an order, a chaotic volley rang out. Government soldiers waiting to cross the trench fell in a batch. The rest dispersed immediately in pandemonium. Yan Zungao himself was swept up by his personal soldiers and fled.
 
-Ye Zhengfang fought his way out in the chaos under the protection of personal soldiers and officers. He escaped across the trench with great difficulty. At this time, the volley fire on the earthen dike stopped, only hearing a voice like a huge roar shouting:
+Ye Zhengfang fought his way out of the chaos under the protection of his personal soldiers and officers. He managed to escape across the trench with great difficulty. At that moment, the volley fire on the earthen dike ceased, and a voice like a giant's roar bellowed:
 
-"People below listen! Drop swords and spears! Strip off clothes! Squat down with hands on heads! Otherwise, no one will be left!"
+"People below—listen! Drop your swords and spears! Strip off your clothes! Squat down with hands on heads! Otherwise, no one will be spared!"
 
-The chaotic government soldiers had long been dazzled by searchlights and scared out of their wits by volley fire. They hurriedly dropped weapons in hand one by one, squatting under the earthen dike with hands raised high, daring not look up.
+The chaotic government soldiers had long since been dazzled by searchlights and terrified out of their wits by volley fire. They hastily dropped their weapons one after another, squatting beneath the earthen dike with hands raised high, not daring to look up.
 
-An officer saw he was at the edge of the light column, so he moved a few steps quietly, attempting to hide in the darkness. A gunshot immediately rang out on the earthen dike, instantly killing him on the open ground. Seeing this, who else dared to move half an inch? Everyone dared not move anymore.
+One officer, seeing himself at the edge of the light beam, quietly shifted a few steps, attempting to hide in the darkness. A gunshot immediately cracked from the earthen dike, and he was killed instantly on the open ground. Seeing this, no one else dared move even half an inch. Everyone froze in place.
 
 Three ladders were lowered from the earthen dike.
 
-"Team of ten, climb up team by team. If there are wounded, bring them up without exception!"
+"Groups of ten—climb up one group at a time. If there are wounded, bring them up without exception!"
 
-Stripped stark naked, the government soldiers shivered all over from the heavy rain. A small officer shouted: "Make it convenient up there, lower a few more ladders. Brothers have no cover up and down; this rain is cold..."
+Stripped stark naked, the government soldiers shivered in the heavy rain. A petty officer shouted up: "Make it convenient, up there! Lower a few more ladders. Brothers have no cover, up and down—this rain is cold..."
 
-"Sending troops and horses to serve the Court, paying attention to loyal service to the country. Not afraid of death, yet you are afraid of catching a cold?" Someone on the earthen dike answered with a laugh.
+"Sending troops to serve the Court, paying attention to loyal service for the country—and yet you're afraid of catching cold?" Someone on the earthen dike answered with a laugh.
 
-"Fart 'Loyal Service'! Daddy is here to eat rations and get paid," The small officer saw someone answering above, and his soldier ruffian nature acted up again, "Although everyone serves their own master and swords have no eyes, seeing that we are all wearing uniforms and eating rations, make an exception!"
+"Fart 'Loyal Service'! Daddy is here to eat rations and get paid!" The petty officer, seeing someone actually answering from above, let his soldier-ruffian nature get the better of him. "Although everyone serves their own master and swords have no eyes, seeing that we're all wearing uniforms and eating rations—make an exception!"
 
-"Easy to say! Brother has big guts, may I ask your great name?"
+"Easy to say! Brother, you've got big guts. May I ask your great name?"
 
-"Dare not, small surname is Jiang, humble name Yougong."
+"Dare not claim greatness—small surname is Jiang, humble name Yougong."
 
-"Good, lowering two more ladders right now."
+"Good. Lowering two more ladders right now."
 
-So the surrendered soldiers climbed up shivering in teams of ten along these five ladders. Infantry above supervised with loaded guns. Militia prepared bundles of ropes. Once captives came up, their right arms were tied; ten people tied in a string were then escorted down. Seeing the government soldiers naked, exposing balls and butts, looking miserable being drenched by heavy rain, soldiers and militia couldn't help laughing. The laughter became louder and louder, penetrating the rain curtain and reaching the government soldier Grand Camp. The government soldiers who suffered a setback during the day heard gunshots but didn't know why Hair Bandits laughed like this, and dared not ask, only discussing quietly in the dark. Many middle and low-ranking officers and soldiers realized this expedition against bandits was a complete failure; at least no chance of winning could be seen.
+So the surrendered soldiers climbed up shivering, ten at a time, along these five ladders. Infantry above supervised with loaded guns. Militia prepared bundles of rope. The moment captives came up, their right arms were tied; ten men bound in a string were then escorted down. Seeing the government soldiers naked, balls and buttocks exposed, drenched by rain and looking utterly miserable, soldiers and militia could not help laughing. The laughter swelled louder and louder, penetrating the rain and reaching the government soldiers' Grand Camp. The defeated soldiers who had suffered so bitterly during the day heard gunshots but could not understand why the Hair Bandits were laughing like this. They dared not ask, only whispering quietly in the dark. Many middle and low-ranking officers and soldiers realized this expedition against the bandits was a complete failure—at the very least, no chance of victory was visible.
 
-Teams strung in tens were escorted by bayonets team by team to settle in the POW camp in a corner of the stockade. Many bonfires were lit in bamboo sheds, but clothes were not issued, only letting captives warm themselves by the fire. Wounded were carried away for treatment after simple diagnosis—serious ones.
+Teams tied together in groups of ten were escorted at bayonet point to the POW camp in a corner of the stockade. Many bonfires had been lit in bamboo sheds, but no clothes were issued—they could only warm themselves by the fire. Wounded were examined briefly; serious cases were carried away for treatment.
 
-Jiang Yougong shivered while roasting by the fire. He saw the place detaining them was very simple, exactly a corner of the Grand Camp. Two sides were earthen dikes, the other two sides had ditches dug, filled with sharp bamboo spikes. Lights were bright on all four sides. Hair Bandit soldiers on enemy towers held bird guns with bayonets shining, looking murderous at a glance.
+Jiang Yougong shivered while warming himself by the fire. He saw that the place where they were detained was quite simple—just a corner of the Grand Camp. Two sides were earthen dikes; the other two had ditches filled with sharp bamboo spikes. Lights blazed on all four sides. Hair Bandit soldiers stood on watchtowers, holding bird guns with glinting bayonets, looking murderous.
 
-Dozens of pitch-black iron buckets were carried over, steaming hot, and stacks of wooden bowls were also brought.
+Dozens of pitch-black iron buckets were carried over, steaming hot. Stacks of wooden bowls were also brought.
 
-"Come, everyone take a bowl, prepare to drink soup!" The cook knocked on the iron bucket, shouting loudly.
+"Come, everyone take a bowl—prepare to drink soup!" The cook knocked on an iron bucket, shouting loudly.
 
-(End of Chapter)
+---
+
+*(End of Chapter)*

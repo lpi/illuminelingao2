@@ -8,11 +8,11 @@ Zhang Yingchen tossed aside the cherry stem in his hand and wiped his mouth with
 
 Zhang Yingchen thought it over. "What if I rewrite it?"
 
-Zhang Yingchen's idea was to compile material attacking the Church based on the existing Chinese Bible stories the Church had already produced. Of course, the effect wouldn't be as powerful as Bo Yang's essay.
+His idea was to compile material attacking the Church based on the existing Chinese Bible stories the Church had already produced. Of course, the effect wouldn't be as powerful as Bo Yang's essay.
 
 "Such a pity." He sighed with apparent regret. Then he asked: "Have you finished the pamphlets I asked you to prepare?"
 
-"They're done." Zhao Yingong unclipped a ring of keys from his waist, opened a padlock on a small cabinet in his study, and took out a tightly sealed book parcel, handing it to Zhang Yingchen. These were samples of anti-religious pamphlets printed at Wanbi Bookshop's printing plant. There were two types: one discrediting Catholicism and one discrediting Buddhism—both masterworks of the Grand Library's Truth Office. Zhang Yingchen was preparing to take advantage of this Hangzhou Religious Case to distribute them widely in the area and damage both religions' reputations.
+"They're done." Zhao Yingong unclipped a ring of keys from his waist, opened a padlock on a small cabinet in his study, and took out a tightly sealed book parcel, handing it to Zhang Yingchen. These were samples of anti-religious pamphlets printed at Wanbi Bookshop's printing plant. There were two types: one discrediting Catholicism and one discrediting Buddhism—both masterworks of the Grand Library's Truth Office. Zhang Yingchen was preparing to take advantage of this Hangzhou Religious Case to distribute them widely throughout the area and damage both religions' reputations.
 
 "Take them back and look them over for anything problematic. Once it's finalized, bring them back quickly so I can organize mass printing," Zhao Yingong instructed.
 
@@ -20,7 +20,7 @@ Zhang Yingchen's idea was to compile material attacking the Church based on the 
 
 "No problem. They can't set foot outside Phoenix Mountain Estate now, and their families have all been sent to Lingao." Zhao Yingong smiled. "Unless they've gone mad and don't care about their wives' and children's lives. Once the Religious Case is over, I'll send this batch of craftsmen back to Lingao for Zhou Dongtian to use and recruit a new batch of workers."
 
-Zhang Yingchen slipped out of the city just before the gates closed and quietly returned to Qingyun Temple. He was very careful now whenever entering or leaving Wanbi Bookshop, lest anyone detect his unusual friendship with this Master Zhao.
+Zhang Yingchen slipped out of the city just before the gates closed and quietly returned to Qingyun Temple. He was being very careful now whenever entering or leaving Wanbi Bookshop, lest anyone detect his unusual friendship with this Master Zhao.
 
 Mingqing was waiting for him. Tea and food had been left on the table. He also reported that the gentleman who wanted "to compound the Great Elixir" had sent someone to invite him again today.
 
@@ -54,15 +54,17 @@ After finishing the letter, he encoded it using his codebook—the day after tom
 
 Tomorrow, the storm of the Hangzhou Religious Case would blow even harder. Zhang Yingchen went to bed with a satisfied smile.
 
+---
+
 In the old timeline, the Hangzhou Religious Case had been merely a minor religious dispute. Apart from the Hangzhou Catholic parish's believers and the Buddhists who challenged them, it hadn't stirred up much of a fuss in the city. Overall, it had never exceeded the scope of theological debate between the two sides.
 
 But this Religious Case, instigated and triggered ahead of schedule by the Daoist, had taken a different direction. The waves it raised far exceeded the expectations of Huang Zhen and the others.
 
 As usual, Gao Xuan came to Wanbi Bookshop to read that day—reading the *Complete Collection of Illustrations and Writings* as always. Just as he sat down and took a sip of hot tea, quietly waiting for his sweat to dry a bit, he suddenly heard several scholars in the outer parlor of Wenxi Hall engaged in animated discussion, saliva flying. Gao Xuan initially paid them no mind—these men often argued there, spouting all sorts of nonsense. Gao Xuan knew they were mostly followers of the Wang Yangming school.
 
-But today their topic was different from usual—they seemed to be talking about the Western Cross Religion. The Cross Religion had a temple locally, with several big-bearded Western monks. Quite a few local gentry and scholars followed it. Gao Xuan had heard bits and pieces but had never been very interested.
+But today their topic was different from usual—they seemed to be talking about the Western Cross Religion. The Cross Religion had a temple locally, with several big-bearded Western monks. Quite a few local gentry and scholars followed it. Gao Xuan had heard bits and pieces but had never been particularly interested.
 
-What he heard now, however, was all "colorful" stuff—quite "salacious and violent," one might say. He couldn't help pricking up his ears. Someone was recounting various scandalous practices within the Cross Religion, the speaker relishing every detail, the listeners hanging on every word, occasionally cheering him on.
+What he heard now, however, was all "colorful" material—quite "salacious and violent," one might say. He couldn't help pricking up his ears. Someone was recounting various scandalous practices within the Cross Religion, the speaker relishing every detail, the listeners hanging on every word, occasionally cheering him on.
 
 Gao Xuan had originally wanted to read quietly, but their chatter had stirred an itch in him. He couldn't even focus on his book anymore. Involuntarily, he set it down and strolled over to the side hall.
 
@@ -72,7 +74,7 @@ The man speaking most enthusiastically was a fellow with a round, flat face and 
 
 Gao Xuan, however, knew who he was—a man named Zhuang Haoren. He'd been born into a local prominent family, had read quite a few books in his youth, and after the family fortune declined, had drifted around the city as a "loafer." Allegedly he had tried alchemy to transmute gold and silver—failing to produce any, he'd only managed to singe off part of his whiskers. Later he'd hung around the pleasure quarters, teaching meter and lyrics to the "thin horses," even drawn erotic illustrations for novels sold by bookshops, and of course engaged in the usual gang-fighting and the like. In short, he was a typical "literary degenerate."
 
-Although Zhuang Haoren's conduct was improper, his eclectic knowledge was extensive; he even knew some medicine. He also had insights into Wang Shouren's "School of Mind" and would hold forth when the mood struck him. After Wanbi Bookshop opened, Zhuang Haoren would sometimes come to read and chat. Zhao Yingong treated all readers equally—as long as they observed the bookshop's order, they were welcome.
+Although Zhuang Haoren's conduct was improper, his eclectic knowledge was extensive; he even knew some medicine. He also had insights into Wang Shouren's "School of Mind" and would hold forth when the mood struck him. After Wanbi Bookshop opened, Zhuang Haoren would sometimes come to read and chat. Zhao Yingong treated all readers equally—as long as they observed the bookshop's rules, they were welcome.
 
 "...Come on, let's go see what ox gallstones and dog treasures this Cross Religion has to show!" Seeing the atmosphere was ripe, Zhuang Haoren raised his arm and called out. In a flash, he'd swept the audience along with him. He'd already taken money a few days ago, under instructions to bring some scholars and students to the church at Tianshui Bridge and make trouble, amplifying the commotion.
 

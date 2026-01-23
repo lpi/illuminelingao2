@@ -1,97 +1,101 @@
 # Chapter 1148 - Zheng Zhilong's Ambition
 
-The damage from the typhoon was soon tabulated. Although it looked messy, the actual loss wasn't huge. The main loss was some temporary structures and crops.
+The typhoon's toll was soon tallied. Though the aftermath looked chaotic, actual losses proved modest. Most damage was confined to temporary structures and crops.
 
-Wei Bachi breathed a sigh of relief. "Fortunately, we prepared early."
+Wei Bachi exhaled in relief. "Fortunately, we prepared well in advance."
 
-However, this typhoon also exposed drainage problems in Kaohsiung. Many low-lying areas had severe waterlogging.
+Yet the typhoon had also exposed deficiencies in Kaohsiung's drainage. Severe waterlogging plagued many low-lying areas.
 
-"We must upgrade the drainage system!" Wei Bachi slammed the table at the summary meeting. "I don't want to see Kaohsiung become a water park next time a typhoon comes!"
+"We must upgrade the drainage system!" Wei Bachi slammed his palm on the table at the summary meeting. "I refuse to watch Kaohsiung become a water park the next time a typhoon strikes!"
 
-Shi Dafu and Hong Laojun looked at each other with bitter smiles. "Mayor, labor and materials are tight..."
+Shi Dafu and Hong Laojun exchanged rueful glances. "Mayor, labor and materials are stretched thin as it is..."
 
-"Think of a way! Ask Lingao for support if needed!" Wei Bachi said unreasonably. "I only look at results!"
-
-...
-
-Meanwhile, Anping.
-
-Zheng Zhilong sat in the study, listening to subordinates report on fleet losses.
-
-"Five ships sank, over ten damaged..." Zheng Zhilong frowned. "The loss isn't small."
-
-"Brother, the Australians in Kaohsiung seem to have suffered little loss," Zheng Zhifeng said cautiously. "Their houses are strong, and they have strange machines to help..."
-
-Zheng Zhilong was silent for a moment. "These Australians truly have some skills."
-
-He stood up and paced the room. "Li Siya's words... what do you think?"
-
-"What she said makes sense," Zheng Zhifeng said. "Australian ambition is obvious. If we let them develop, sooner or later they will ride on our heads."
-
-"But turning against them now..." Zheng Zhilong hesitated. "Their firearms and ships are powerful. We might not win."
-
-"We don't need to fight them head-on," Zheng Zhifeng said sinisterly. "As Li Siya said, use the Dutch, use the natives... let them bleed first."
-
-Zheng Zhilong nodded slowly. "Reasonable. Be smart about it. Don't let the Australians catch us red-handed."
-
-"Understood."
-
-"Also, strengthen ties with the Court," Zheng Zhilong instructed. "With the official hat, we have righteousness on our side."
-
-Zheng Zhilong was a smart man. He knew that dealing with a powerful enemy like the Australians required using all available forces: pirates, merchants, the Court, foreigners...
-
-He walked to the window, looking at the distant sea. "This sea belongs to the Zheng family. No one can take it away!"
+"Think of something! Request support from Lingao if necessary!" Wei Bachi was unyielding. "I care only about results!"
 
 ---
 
-In Kaohsiung, restoration work proceeded rapidly.
+Meanwhile, in Anping.
 
-With the help of Westerly and others, the big clock on the Customs Clock Tower was finally installed.
+Zheng Zhilong sat in his study, listening to subordinates report the fleet's losses.
 
-"Ready to test!" Zhong Lishi shouted.
+"Five ships sunk, over a dozen damaged..." He frowned. "Not a small loss."
 
-Workers removed the locking mechanism. The heavy pendulum began to swing slowly. *Tick-tock, tick-tock...* The steady sound of the mechanical movement echoed in the tower.
+"Brother, the Australians in Kaohsiung appear to have suffered little," Zheng Zhifeng ventured cautiously. "Their buildings are sturdy, and they have strange machines to assist them..."
 
-"It moves! It moves!" Westerly cheered quietly.
+Zheng Zhilong was quiet for a moment. "These Australians do possess certain... capabilities."
 
-Zhong Lishi checked the time. "Accuracy needs adjustment. But running is a success."
+He rose and began pacing the room. "Li Siya's words—what is your assessment?"
 
-He patted Westerly's head. "Thanks for your help, young man."
+"There's sense in what she says," Zheng Zhifeng replied. "Australian ambition is plain to see. If we allow them to grow unchecked, sooner or later they'll stand on our heads."
 
-Westerly blushed. "I learned a lot, Dr. Zhong."
+"But to turn against them now..." Zheng Zhilong hesitated. "Their firearms and ships are formidable. Victory would be far from certain."
 
-Huygens also came to watch. He listened to the rhythmic sound of the clock and praised, "A masterpiece. Truly a masterpiece."
+"We needn't confront them directly," Zheng Zhifeng said with a sly edge to his voice. "As Li Siya suggests—use the Dutch, use the natives. Let others bleed first."
 
-"This will be the standard time for Kaohsiung," Zhong Lishi said proudly. "From now on, all activities in the port will follow its rhythm."
+Zheng Zhilong nodded slowly. "Sensible. Proceed carefully. We mustn't let the Australians catch us with blood on our hands."
 
-The completion of the clock tower became a symbol of Kaohsiung's restoration. The melodious bell tolling every hour told people that order had returned.
+"Understood."
 
-Wei Bachi stood on the balcony of City Hall, listening to the bell, feeling satisfied.
+"And strengthen our ties with the Court," Zheng Zhilong added. "With an imperial commission, we hold the moral high ground."
 
-"This is civilization," he said to himself.
+Zheng Zhilong was no fool. He knew that confronting a formidable adversary like the Australians required marshaling every available force: pirates, merchants, the Court, foreigners—all pieces on the board.
 
-However, beneath the calm surface, undercurrents surged.
+He walked to the window and gazed out at the distant sea. "This ocean belongs to the Zheng family. No one will take it from us."
 
-Xu Ke received a new report: Li Siya had left Anping and was coming towards Kaohsiung.
+---
 
-"She's coming again?" Xu Ke sneered. "This woman truly doesn't give up."
+In Kaohsiung, restoration work proceeded at a relentless pace.
 
-He ordered his subordinates: "Keep close watch. See who she contacts and what she does. Any suspicious behavior, arrest immediately!"
+With Westerly's assistance, the great clock atop the Customs Clock Tower was finally installed.
 
-"Yes!"
+"Ready for the test!" Zhong Lishi called out.
 
-Xu Ke knew a shadow war was beginning. On the bright side were construction and diplomacy; in the dark were espionage and conspiracy.
+Workers removed the locking mechanism. The heavy pendulum began its slow, stately swing. *Tick-tock. Tick-tock.* The steady rhythm of the mechanical movement echoed through the tower.
 
-Zhong Xiaoying and Cleadia's friendship also deepened in their daily interaction. Cleadia began to try using chopsticks and learned some simple Chinese phrases. And Zhong Xiaoying learned a lot about Western customs from her.
+"It moves! It moves!" Westerly cheered in a hushed voice.
 
-"When I go back to Europe, I'll write letters to you," Cleadia said.
+Zhong Lishi checked the time against his pocket watch. "Accuracy still needs adjustment. But the mechanism runs—success."
+
+He clapped a hand on Westerly's shoulder. "Thank you for your help, young man."
+
+Westerly's cheeks flushed. "I learned so much, Dr. Zhong."
+
+Huygens arrived to observe. He listened to the clock's rhythmic pulse and nodded in admiration. "A masterwork. Truly a masterwork."
+
+"This will serve as the standard time for Kaohsiung," Zhong Lishi said, a note of pride in his voice. "From now on, every activity in this port will follow its rhythm."
+
+The clock tower's completion became a symbol of Kaohsiung's renewal. Each hour, its melodious bell told the city that order had returned.
+
+Wei Bachi stood on the balcony of City Hall, listening to the chime, a satisfied expression crossing his features.
+
+"This is civilization," he murmured to himself.
+
+---
+
+Yet beneath the calm surface, undercurrents churned.
+
+Xu Ke received a new report: Li Siya had departed Anping and was en route to Kaohsiung.
+
+"She's coming again?" Xu Ke scoffed. "This woman is nothing if not persistent."
+
+He issued orders to his subordinates: "Maintain close surveillance. See whom she contacts and what she does. At the first sign of suspicious behavior—arrest her immediately."
+
+"Yes, Chief!"
+
+Xu Ke understood that a shadow war was beginning. On the bright side lay construction and diplomacy; in the darkness lurked espionage and conspiracy.
+
+---
+
+The friendship between Zhong Xiaoying and Cleadia deepened with each passing day. Cleadia had begun attempting to use chopsticks and learning simple Chinese phrases. In turn, Zhong Xiaoying learned much about Western customs from her.
+
+"When I return to Europe, I'll write to you," Cleadia said.
 
 "Can letters reach here?" Zhong Xiaoying asked.
 
-"Maybe... very slow," Cleadia said somewhat sadly. "But I will write."
+"Perhaps... They would be very slow," Cleadia admitted, a trace of sadness in her voice. "But I will write."
 
-"Me too."
+"And so will I."
 
-The seeds of friendship were sown in the hearts of two girls from different worlds. They didn't know how the future current of times would impact their destinies, but this moment of purity was precious.
+The seeds of friendship had been planted in the hearts of two girls from worlds apart. They could not know how the currents of time would shape their destinies—but this moment of purity was precious.
 
 (End of Chapter)

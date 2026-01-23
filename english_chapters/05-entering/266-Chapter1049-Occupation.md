@@ -1,115 +1,121 @@
 # Chapter 1049: Occupation
 
-"Are official slaves not allowed to marry?" Feng Zongze asked deliberately.
+"Are official slaves forbidden to marry?" Feng Zongze asked, his tone deliberately curious.
 
-"Marriage is allowed, but there are many difficulties. Most can't decide for themselves." Park Deok-hwan, seeing that this "Short-haired (*Kun*)" high official spoke gently and was concerned about him, felt warmth in his heart: they were lowly people, usually ordered around, and even official courtesans (*Gisaeng*) who were slightly favored by officials treated them like servants. He couldn't help but recount the history of his marriage preparation one by one, which unconsciously turned into his complaint: he told the past events of being exiled to the island alone with his younger brother in their youth and suffering all the hardships of the human world, shedding tears as he spoke. Suddenly he realized he had lost his composure—he hurriedly wiped his face with his sleeve.
+"Marriage is permitted, but there are many difficulties. Most cannot decide for themselves." Seeing that this "short-haired" high official spoke gently and showed apparent concern, Park Deok-hwan felt warmth kindle in his chest. They were lowly people, accustomed to being ordered about—even the official courtesans slightly favored by officials treated them like servants. He couldn't help but recount the struggles of preparing for marriage, which unconsciously became a litany of grievances: the exile to this island in their youth, just him and his younger brother, enduring every hardship the world could inflict. Tears streamed down his face as he spoke. Then he caught himself—he had lost his composure before a lord. He hurriedly wiped his face with his sleeve.
 
 "This lowly one has made My Lord laugh."
 
-"So there were so many tortures. It's really not easy for you to live here alone with your younger brother." Feng Zongze nodded secretly; indeed, the human will to survive is very strong. A son of officials used to fine clothes and food, once falling into trouble, enduring humiliation to survive, biting his teeth and suffering all the way, surviving on this Jeju Island, and even raising his young brother to adulthood, could be considered a rare inspirational story. He praised a few words and then asked deliberately:
+"Such torments you've suffered. It truly wasn't easy, surviving here alone with your younger brother." Feng Zongze nodded inwardly—indeed, the human will to live was remarkably strong. A son of officials, accustomed to fine clothes and good food, falling into calamity and enduring every humiliation to survive, gritting his teeth through suffering on this remote island, and even raising his young brother to adulthood—quite an inspirational story. He offered a few words of praise, then asked deliberately:
 
-"Do you and your brother both know characters and can read books?"
+"Do you and your brother both know characters? Can you read?"
 
-"Yes, this lowly one and my younger brother both started learning in childhood, only my younger brother lost the chance to study at a young age and didn't have time to start writing properly. He only recognizes some characters. Since there are neither books nor brush and ink on this island, it's not easy to teach him."
+"Yes. This lowly one and my younger brother both began learning as children. But my brother was too young when we lost our chance—he never had time to learn proper writing. He recognizes some characters. Since there are neither books nor brush and ink on this island, teaching him has proved impossible."
 
-"Oh, so you have studied in the past. You were either *Yangban* or Middle People (*Jungin*). Definitely not lowly Commoners (*Baekjeong*)."
+"Ah, so you were educated. You were either *Yangban* or Middle People. Certainly not common *Baekjeong*."
 
-Speaking of his past identity, Park Deok-hwan shed tears again: "This lowly one disgraced his ancestors; this lowly one was originally a son of Middle People." Speaking of this, it touched the sore spot in his heart. He couldn't bear it anymore and couldn't help lying on the ground wailing loudly.
+Speaking of his former status, Park Deok-hwan's tears flowed again. "This lowly one disgraced his ancestors. This lowly one was originally a son of Middle People." These words touched the sorest wound in his heart. He couldn't bear it any longer and collapsed to the ground, wailing bitterly.
 
-Feng Zongze thought: this is exactly the effect needed. Such people originally sealed up their past due to despair. Now that he opened the seal, the pain gushing out was heart-wrenching.
+Feng Zongze thought: *Exactly the effect I needed.* Such people had sealed away their past in despair. Now that he'd opened the seal, the agony came gushing forth, wracking and raw.
 
-Following that would inevitably be extreme hatred.
+What would follow inevitably was all-consuming hatred.
 
-For revenge, they would even not hesitate to burn themselves.
+For the sake of revenge, they would not hesitate to burn themselves to ash.
 
-Feng Zongze didn't speak, letting him cry bitter tears and vent to his heart's content.
+Feng Zongze said nothing, letting the man weep bitter tears and vent until he was spent.
 
-That night, Feng Zongze had people give the brothers a bath, perform a full purification process, issue brand-new naturalized citizen uniforms, and take them to eat.
+That night, Feng Zongze ordered the brothers bathed and put through the complete purification process, issued brand-new naturalized citizen uniforms, and taken to eat.
 
-Subsequently, Feng Zongze instructed to detain them separately, giving them ample time to digest what he said.
+Afterward, he instructed that they be detained separately, giving each ample time to digest what had been said.
 
-He believed that once the flame of revenge was lit in their hearts, it would not be easily extinguished.
+He was confident that once the flame of revenge ignited in their hearts, it would not easily be extinguished.
 
-Early the next morning, as dawn broke. When the staff brought the Park brothers, whose heads had been shaved completely bald, to the Seongsan base and led them into Feng Zongze's big tent in the base, Feng Zongze already knew they had made up their minds to become collaborators.
+---
 
-"Very good." He nodded appreciatively: "Sit."
+Early the next morning, as the first gray light touched the sky, staff brought the Park brothers—their heads shaved completely bald—to the Seongsan base and led them into Feng Zongze's command tent. Looking at them, Feng Zongze already knew they had resolved to become collaborators.
 
-How *dared* the Park brothers sit? Feng Zongze said: "Since you are purified, you are our comrades. Comrade (*Tongzhi*), people with the same aspirations."
+"Very good." He nodded approvingly. "Sit."
 
-"Willing to be at My Lord's disposal!" Park Deok-hwan said loudly.
+How *dared* the Park brothers sit? Feng Zongze continued: "Since you have been purified, you are now our comrades. *Tongzhi*—people who share the same aspirations."
 
-Subsequently, following the content in the "1631 New Edition Mass Propaganda Manual Korea Work Volume (Consultation Draft)" compiled by the Propaganda Department, he preached some basic concepts about the Transmigration Group to them. Then he inquired about the situation of Jeju City.
+"Willing to be at My Lord's disposal!" Park Deok-hwan declared loudly.
 
-"About Jeju City, we've said everything we know." Park Deok-hwan was a bit embarrassed. Although he was very eager to work for the new master immediately to prove his sincerity, he was an official slave after all. He knew things on the surface, but mostly didn't know things too deep.
+Feng Zongze then proceeded according to the "1631 New Edition Mass Propaganda Manual—Korea Work Volume (Consultation Draft)" compiled by the Propaganda Department, explaining basic concepts about the Transmigration Group. Afterward, he inquired about conditions in Jeju City.
 
-"It doesn't matter. Jeju is just something in our bag; we only need guides." Feng Zongze's eyes fixed on Park Deok-hwan.
+"Regarding Jeju City, we've told everything we know." Park Deok-hwan looked embarrassed. Though he burned with eagerness to prove his worth to his new master, he was merely an official slave. He knew surface-level matters, nothing deeper.
 
-Park Deok-hwan didn't hesitate: "This lowly one is willing to lead the way."
+"No matter. Jeju is already as good as ours. We need only guides." Feng Zongze fixed his gaze on Park Deok-hwan.
 
-Park Deok-maeng was a bit uneasy; "Big Brother!"
+Park Deok-hwan didn't hesitate. "This lowly one is willing to lead the way."
 
-"It doesn't matter." Park Deok-hwan comforted his brother, "We brothers are both willing to lead the way for My Lord! Through water and fire, we will absolutely not frown."
+Park Deok-maeng stirred uneasily. "Big Brother—"
 
-"Good." Feng Zongze slapped the table, "Follow me!"
+"It's nothing." Park Deok-hwan reassured his brother. "We brothers are both willing to guide My Lord. Through water and fire, we will not flinch."
 
-He strode over and opened the tent door facing the sea.
+"Good." Feng Zongze slapped the table. "Follow me."
 
-Feng Zongze's tent was right by the seaside of Seongsan. At this time, the sky was already bright and the sun shone everywhere. On the sparkling sea surface at the foot of Seongsan, masts of over a dozen warships and H800s stood like a forest, gun muzzles gleaming.
+He strode forward and threw open the tent flap facing the sea.
 
-The flapping Morning Star Flag, Navy Ensign, and Iron Fist Flag flew in the morning breeze. Dozens of medium and small motorized boats were ready to go, black smoke rolling. Every boat was filled with soldiers carrying live ammunition. Snow-bright bayonets flashed with dazzling light under the sun.
+Feng Zongze's tent stood directly on Seongsan's shoreline. Dawn had broken; sunlight poured over everything. On the glittering sea beneath Mount Seongsan, the masts of more than a dozen warships and H800 transports rose like a forest, gun muzzles gleaming in the morning light.
 
-The Park brothers were stunned instantly, feeling dizzy and unable to help their legs going soft, kneeling on the ground. Park Deok-hwan trembled for a long while before saying: "This lowly one deserves death, having eyes but no pupils! Actually..." He suddenly realized he had spoken his inner thoughts, scared into silence.
+The Morning Star Flag, the Navy Ensign, and the Iron Fist Banner snapped in the breeze. Dozens of medium and small motorized boats waited at the ready, black smoke rolling from their stacks. Every boat was packed with soldiers carrying live ammunition. Snow-bright bayonets flashed dazzling reflections in the sun.
 
-"Actually thought we were Wokou, pirates, right?" Feng Zongze laughed loudly, pretending to be forthright. He was very proud in his heart: what is the aura of kingly dominance (*Wangba* / Rule by Might)? This is the aura of kingly dominance!
+The Park brothers froze, struck senseless. Dizziness overwhelmed them; their legs gave way, and they dropped to their knees. Park Deok-hwan trembled for a long moment before managing to speak: "This lowly one deserves death—having eyes but failing to see! Actually—" He suddenly realized he had voiced his inner thoughts aloud and fell abruptly silent.
 
-When American battleships and ships covered the sea surface of Okinawa, everyone who saw it had to admit that Americans were qualified to establish a "New World Order."
+"Actually thought we were *Wokou*—pirates—right?" Feng Zongze laughed heartily, affecting a forthright demeanor. Inside, he felt deeply satisfied. *What is the aura of kingly dominance?* he thought. *This. This is kingly dominance.*
 
-Strength is the best kingly dominance.
+When American battleships and transports covered the waters off Okinawa, anyone who witnessed the spectacle had to acknowledge that Americans were qualified to establish a "New World Order."
 
-"Yes, this lowly one is dull..." Park Deok-hwan bowed his waist even lower.
+Strength was the most eloquent form of authority.
 
-"Let's go, we go to Jeju together."
+"Yes... this lowly one is dull..." Park Deok-hwan bowed even lower.
+
+"Come. We go to Jeju together."
 
 "Yes, My Lord—Chief."
 
-It took less than an hour to storm into Jeju City: fifty minutes of preparation, ten minutes of assault. The Public Security Army Japanese Company took the lead again, being the first to ascend the city and seize the gate under rifle fire support.
+---
 
-When Shikawa Shuji led his Battotai rushing into the city wall again with wild shouts, chopping down generals and breaking locks to open the city gate, all resistance inside Jeju City collapsed. Hundreds of Joseon soldiers were routed under the sweep of *tachi* and Southeast Asia Pattern rifles.
+Storming Jeju City took less than an hour: fifty minutes of preparation, ten minutes of assault. The Public Security Army's Japanese Company once again led the charge, first to scale the wall and seize the gate under covering rifle fire.
 
-Judge Yi Dae-ha originally thought the enemy were Wokou and was still waiting for the Jeolla Province Navy to come for reinforcement. Moreover, there was news that the enemy was still lingering around Seongsan, not expecting the enemy to attack suddenly. He originally thought holding Jeju was no problem, but the "Wokou's" firearms were extremely fierce, routing the defenders on the wall in a few shots. After receiving the news that the city gate was seized and the enemy entered the city, he hurriedly led more than a hundred elite Tooth Soldiers (*A-byeong*) to support, preparing to charge the enemy out.
+When Shikawa Shuji led his *Battōtai* screaming up the wall again, hacking down defenders and smashing locks to throw open the gates, all resistance within Jeju City collapsed. Hundreds of Joseon soldiers scattered under the sweep of *tachi* and Southeast Asia Pattern rifles.
 
-Yi Dae-ha's estimate was quite accurate: the enemy was not numerous, winning by bravery and sharp firearms. Now the opponent's charge scattered the ordinary soldiers with little combat power. As long as he could stabilize the formation in time and check the enemy's momentum, the routed soldiers could regroup, and the winner was yet unknown.
+Judge Yi Dae-ha had assumed the enemy were *Wokou* and had been waiting for the Jeolla Province Navy to arrive with reinforcements. Moreover, reports indicated the enemy was still lingering around Seongsan. He hadn't anticipated a sudden assault. He had believed holding Jeju would pose no difficulty, but the "*Wokou*" possessed terrifyingly effective firearms—a few volleys routed the wall's defenders. When word came that the city gate had fallen and enemies were pouring in, he hastily gathered more than a hundred elite Tooth Soldiers and moved to counterattack, intending to drive the enemy out.
 
-Wearing armor and carrying a bow, he didn't ride a horse, directly carrying a Ming army standard border army long saber (*Changdao*), leading the Tooth Soldiers straight to the city gate. Just turning the street corner, he saw head-on Shikawa brandishing a *tachi* rushing in front shouting "Banzai." He immediately drew his bow and nocked an arrow, shooting one out. The dozen Tooth Soldiers behind him also shot a round of arrows simultaneously.
+Yi Dae-ha's assessment was reasonably accurate: the enemy force was small, winning through courage and superior firepower. Their charge had dispersed ordinary soldiers with minimal fighting ability. If he could stabilize his formation in time and check their momentum, the routed men might rally, and the outcome remained uncertain.
 
-Shikawa, rushing in front, screamed and fell to the ground. Screams and groans also erupted from the "Battotai" crowd around him; immediately three or four people were hit by arrows.
+Wearing armor and carrying his bow, he chose not to mount his horse. Instead, he took up a Ming-standard border army long saber and led the Tooth Soldiers directly toward the city gate. Rounding a street corner, he saw Shikawa charging at the head of his men, *tachi* raised, screaming "*Banzai!*"
+
+Yi Dae-ha drew and loosed in one motion. The dozen Tooth Soldiers behind him let fly a volley simultaneously.
+
+Shikawa, leading the charge, screamed and fell. Cries and groans erupted from the *Battōtai* around him—three or four were struck by arrows.
 
 "Fire!"
 
-Dense white smoke spewed from the Southeast Asia rifles in the crowd, and a dozen or so of Yi Dae-ha's Tooth Soldiers were also knocked down. The two sides then lunged together, engaging in a mêlée with sabers, *tachi*, and bayonets.
+Dense white smoke erupted from the Southeast Asia rifles, and a dozen of Yi Dae-ha's Tooth Soldiers crashed to the ground. Then both sides lunged forward, engaging in a mêlée of sabers, *tachi*, and bayonets.
 
-The hand-to-hand combat lasted less than five minutes before Yi Dae-ha's Tooth Soldiers couldn't hold out—hand-to-hand combat tested discipline and training very much. Joseon's Tooth Soldiers were obviously inferior to the Public Security Army in both, not to mention the disparity in equipment and physical strength between the two sides.
+The hand-to-hand combat lasted less than five minutes before Yi Dae-ha's Tooth Soldiers buckled. Close-quarters fighting tested discipline and training severely—and Joseon's elite guards were clearly inferior to the Public Security Army in both, to say nothing of the disparity in equipment and physical conditioning.
 
-Yi Dae-ha was wounded in the mêlée, protected by Tooth Soldiers fighting and retreating. Because the Public Security Army lost a few men, they charged and killed like red-eyed demons. Before long, the Tooth Soldier team disbanded. All Tooth Soldiers around Yi Dae-ha died in battle, and he himself was shot dead by rifle bullets.
+Yi Dae-ha was wounded in the fighting. Protected by his guards, he tried to fight his way clear, but the Public Security Army, having lost several men, attacked with demonic fury. Before long, his Tooth Soldier formation disintegrated. Every guard around Yi Dae-ha died fighting, and he himself was struck down by rifle fire.
 
-The death of Jeju's highest military commander declared the disintegration of the entire resistance. Soldiers dropped weapons and fled in all directions, fleeing towards various city gates in groups, attempting to escape the city. But ambushes were set up outside all city gates, especially snipers of the Special Reconnaissance Detachment, using sniping to intimidate fleeing soldiers and stop them from escaping.
+The death of Jeju's highest military commander shattered all remaining resistance. Soldiers dropped their weapons and fled in every direction, rushing toward various gates in desperate attempts to escape. But ambushes had been prepared outside every exit, and snipers from the Special Reconnaissance Detachment used precision fire to check the fleeing soldiers and stem the exodus.
 
-Jeju Magistrate Yi Jin-gyeong, amid the panic, was protected by his Tooth Soldiers and servants to mount a horse, attempting to open the South Gate and flee. As a result, as soon as he exited the city gate, he was continuously picked off by snipers ambushing outside the city. The guards shielded him with their bodies attempting to rush out. Then a "typewriter" (machine gun) let out a ferocious roar, and Yi Jin-gyeong and all fifteen of his subordinates were killed.
+Magistrate Yi Jin-gyeong, amid the chaos, was hustled onto a horse by his guards and servants, who attempted to break out through the South Gate. The moment he emerged, snipers positioned outside the city began picking off his escort one by one. His guards shielded him with their bodies, trying to force their way through. Then a "typewriter"—a machine gun—let out a ferocious roar. Yi Jin-gyeong and all fifteen of his subordinates were cut down.
 
-Although battles and small-scale chaos occurred inside Jeju City, they didn't last too long. The Public Security Army and Army soldiers soon controlled the entire city.
+Though fighting and localized disorder occurred within Jeju City, none lasted long. The Public Security Army and regular Army soldiers quickly secured control of the entire city.
 
-On January 12, 1632, Jeju City was declared fallen. Since then, all three cities of Jeju had fallen into the hands of the Jeju Island Special Task Force.
+On January 12, 1632, Jeju City was declared fallen. All three cities of Jeju Island now belonged to the Jeju Island Special Task Force.
 
-The commoners of Jeju City hid in their respective small huts with fear, trembling and waiting for disaster to strike: many of them had witnessed or heard from elders about the ferocity of Wokou. Now seeing a group of bald-headed Wokou brandishing big swords charging in and routing the government troops, everyone could only resign themselves to fate.
+The commoners of Jeju City cowered inside their hovels, trembling as they awaited whatever disaster was coming. Many had witnessed or heard from elders about *Wokou* atrocities. Watching this horde of bald-headed pirates charge in brandishing great swords and rout the government troops, they could only resign themselves to fate.
 
-Rounding up routed soldiers, confiscating weapons, taking over warehouses and government offices, clearing corpses, treating the wounded... Entry work proceeded methodically under the management of naturalized citizen cadres who were trained and acted strictly according to the "City Entry Manual."
+Rounding up scattered soldiers, confiscating weapons, securing warehouses and government offices, clearing corpses, treating the wounded—entry operations proceeded methodically under naturalized citizen cadres trained to follow the "City Entry Manual" precisely.
 
-Feng Zongze and Xue Ziliang entered the Jeju Government Office together—this had already been selected as the headquarters of the Jeju Forward Command. In the Government Office compound, a temporary flagpole had been erected, and the Morning Star Flag rose slowly. The two stood at attention and saluted together.
+Feng Zongze and Xue Ziliang entered the Jeju Government Office together. It had already been selected as the headquarters for the Jeju Forward Command. In the compound courtyard, a temporary flagpole had been erected. The Morning Star Flag rose slowly. The two men stood at attention and saluted together.
 
 "Jeju Island is ours," Feng Zongze said.
 
-Although up to this day, they only controlled three cities and the Seongsan base, because the administrative centers on the island had been uprooted, the Joseon Dynasty's rule on the island had been declared over.
+Though as of today they controlled only three cities and the Seongsan base, the island's administrative centers had been uprooted—the Joseon Dynasty's rule was effectively over.
 
-As for the several "Garrisons" not yet uprooted, because they lost command and supply bases, they had actually lost their original function and were ripe fruits that could be picked at any time.
+As for the several garrisons not yet taken, they had lost their command structure and supply bases. Their original function had already been negated. They were ripe fruit, ready to be picked at leisure.
 
 **(End of Chapter)**

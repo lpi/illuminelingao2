@@ -4,11 +4,11 @@ When they considered it, the two indeed had some similarities. Wu Zhixiang sighe
 
 His observation drew nods of agreement from the others. Australian paper, wine, books, sanitary fixtures, all manner of objects—aside from glass and the "soft glass" used for "unbreakable bottles," which of these wasn't something that had existed since ancient times?
 
-"Even glass—didn't our Central Kingdom have it too?" Zhang Dai was widely read, and his "miscellaneous learning" was extraordinarily rich. "Glass is just *liuli* ware. We've had it since the Han dynasties. It's a pity that now it's been reduced to roof tiles."
+"Even glass—didn't our Central Kingdom have it too?" Zhang Dai was widely read, and his "miscellaneous learning" was extraordinarily rich. "*Liuli* is just glass. We've had it since the Han dynasties. It's a pity that now it's been reduced to roof tiles."
 
 Wen Huai found this strange. "Are *liuli* and glass the same thing? I think they're quite different. It seems more similar to porcelain."
 
-The group chatted as they strolled. Along the walls were floor-to-ceiling bookshelves, row upon row, packed with books. The way the books were arranged also differed from Chinese custom: instead of being laid horizontally in book cases, they stood upright in rows. Having seen Australian books the day before, they knew these had spines with titles and authors printed on them—standing them up made them easy to browse at a glance.
+The group chatted as they strolled. Along the walls were floor-to-ceiling bookshelves, row upon row, packed with books. The way the books were arranged differed from Chinese custom: instead of being laid horizontally in book cases, they stood upright in rows. Having seen Australian books the day before, they knew these had spines with titles and authors printed on them—standing them up made browsing at a glance effortless.
 
 Ladders were placed beside the bookshelves—like siege ladders, with iron casters at the base so they could be easily rolled about. One could climb up to browse the upper shelves.
 
@@ -16,7 +16,7 @@ Where there weren't bookshelves there were windows, but from the domed ceiling h
 
 Beyond the bookshelves were massive tables—even larger than the painting desks they used at home—displaying various books. Smaller tables and chairs were set nearby for reading and tea. This arrangement wasn't particularly unusual; the larger bookshops they'd visited had similar setups. But the chairs were distinctively styled: the tables were dainty round ones, and the chairs had backs that tilted slightly rearward, covered with some kind of cushioning material. Sun Chun was the first to sit down. He leaned back and found the chair supported his back, waist, and even his head—indescribably comfortable for reading.
 
-On the round tables were exquisite tea sets: Yixing purple-clay ware, famous porcelains from various kilns, as well as Australian-made all-glass tea sets. Zhang Dai particularly liked the glass ones because they allowed him to observe the "elegant colors" when brewing tea, and he'd paid a high price to acquire several sets.
+On the round tables were exquisite tea sets: Yixing purple-clay ware, famous porcelains from various kilns, as well as Australian-made all-glass tea sets. Zhang Dai particularly liked the glass ones because they allowed him to observe the "elegant colors" when brewing tea; he'd paid a high price to acquire several sets.
 
 But this was not the most remarkable feature. Most remarkable were several groupings of heavy, bed-like furniture in the hall, each consisting of one long piece flanked by two shorter ones. They resembled chairs but also couches, upholstered in fine Western cloth or brocade, with numerous cushion-like objects placed on top. This time, Zhang Dai was first to claim a seat.
 
@@ -30,7 +30,7 @@ No one believed him. Everyone knew iron—it was the hardest, strongest material
 
 The listeners were fascinated. Zhang Dai couldn't help sighing. "I used to think only Heaven's workings could be so marvelous. I never imagined that human artifice could also achieve such wonders!"
 
-As the group chatted on the sofas, the attending clerk dared not interrupt. He quietly reported to Cai Shi. Cai Shi was familiar with the local scene; except when Zhao Yingong went out or sent him on errands, he was in charge of the bookshop. Because everyone knew this was a shop owned by a *xiucai*, and because Zhao Yingong had cultivated the local Catholic literati and secured their goodwill, ordinary street toughs didn't dare cause trouble at the bookshop. Cai Shi's main job was to step forward and cultivate relationships whenever local gentry came in person or sent representatives—and if necessary, to report directly to Zhao Yingong.
+As the group chatted on the sofas, the attending clerk dared not interrupt. He quietly reported to Cai Shi. Cai Shi was familiar with the local scene; except when Zhao Yingong went out or sent him on errands, he was in charge of the bookshop. Because everyone knew this was a shop owned by a *xiucai*, and because Zhao Yingong had cultivated the local Catholic literati and secured their goodwill, ordinary street toughs didn't dare cause trouble here. Cai Shi's main job was to step forward and cultivate relationships whenever local gentry came in person or sent representatives—and if necessary, to report directly to Zhao Yingong.
 
 He'd recognized Zhang Dai immediately. But he hadn't rushed out to greet them—from the way the clerks had been rebuffed, he knew these scholars wanted to look around on their own first. Going out to greet them would serve no purpose.
 

@@ -1,69 +1,69 @@
 # Chapter 814 - Drying the Furnace
 
-"Human sacrifice?" Ma Qianzhu was taken aback. "Old Wen, that's not very scientific."
+"Human sacrifice?" Ma Qianzhu blinked in surprise. "Old Wen, that's hardly scientific."
 
-"Scientific or not, people say casting swords requires jumping into the furnace. For something this big, maybe we need several people?" Wen Desi joked.
+"Scientific or not, they say casting swords requires someone to leap into the furnace. For something this massive, perhaps we'd need several volunteers?" Wen Desi grinned.
 
-The surrounding people chuckled, but the naturalized workers nearby shuddered—the Chief Chief's joke was truly terrifying.
+Laughter rippled through the surrounding crowd, but the naturalized workers within earshot shuddered. The Chief Director's humor was truly terrifying.
 
-At 2:15 PM, the ignition time arrived. Ji Wusheng climbed to the furnace platform and took a torch from a worker. He first raised it high to show the audience below, then shoved it into a tuyere.
+At 2:15 in the afternoon, the moment arrived. Ji Wusheng climbed to the furnace platform and accepted a torch from a waiting worker. He raised it high for the audience below to see, then thrust it into a tuyere.
 
-The dry shavings inside ignited instantly. Flames burst forth. Seeing the fire, workers at other tuyeres also inserted their torches. Soon, flames were roaring at all eight tuyeres.
+The bone-dry shavings inside caught immediately. Flames erupted outward. Seeing the fire take hold, workers at the other tuyeres inserted their own torches. Within moments, all eight tuyeres roared with flame.
 
-"Turn on the blower!" Ji Wusheng ordered.
+"Start the blower!" Ji Wusheng commanded.
 
-The blower began to operate, sending air into the furnace. The fire inside grew fiercer, and white smoke began to pour from the top of the furnace—this was the moisture evaporating.
+The blower hummed to life, forcing air into the furnace. The fire intensified, and white smoke began billowing from the top—moisture evaporating from within.
 
 "Success!"
 
-Applause and cheers erupted from below. Ji Wusheng let out a long breath. The ignition was successful. But this was just the beginning.
+Applause and cheers erupted from the crowd below. Ji Wusheng allowed himself a long, slow breath. The ignition had succeeded. But this was merely the beginning.
 
 "Adjust the blast volume!"
 
-The drying process was slow and tedious. The fire had to be controlled to ensure the temperature rose gradually, drying out the moisture in the lining without cracking it due to rapid thermal expansion.
+The drying process was slow and tedious work. The fire had to be carefully controlled to ensure the temperature rose gradually, drying out the moisture in the lining without cracking it through rapid thermal expansion.
 
-Ji Wusheng stayed on the platform, constantly checking the temperature readings and adjusting the blast. He didn't sleep that night.
+Ji Wusheng remained on the platform, constantly monitoring temperature readings and adjusting the blast. He didn't sleep that night.
 
-By the next morning, the white smoke had turned into blue smoke—the wood and coke were burning well, and the moisture was largely gone.
+By the following morning, the white smoke had shifted to blue—the wood and coke were burning cleanly, and the moisture was largely gone.
 
 "Prepare for the second stage!"
 
-The second stage involved gradually adding charge and increasing the blast volume. This was a critical period. If the charge wasn't added correctly or the blast was too strong or too weak, it could lead to "freezing"—where the molten iron and slag solidified at the bottom, ruining the furnace.
+The second stage involved gradually adding charge while increasing blast volume. This was a critical period. If the charge wasn't added correctly or the blast ran too strong or too weak, it could lead to "freezing"—molten iron and slag solidifying at the bottom, ruining the furnace entirely.
 
-Workers began to hoist skips of coke, limestone, and ore to the top of the furnace. The bell valve opened, and the charge fell into the furnace throat.
+Workers began hoisting skips of coke, limestone, and ore to the top. The bell valve opened, and charge tumbled into the throat.
 
-"Keep an eye on the gas seal!" Ji Wusheng reminded the foreman. The top gas contained a high concentration of carbon monoxide—it was lethal.
+"Keep watch on the gas seal!" Ji Wusheng reminded the foreman. The top gas contained lethal concentrations of carbon monoxide.
 
-The operation continued smoothly. The furnace temperature rose steadily. The molten iron began to accumulate at the bottom.
+Operations proceeded smoothly. The furnace temperature rose steadily. Molten iron began accumulating at the bottom.
 
-Forty-eight hours later, it was time for the first tap.
+Forty-eight hours later, the moment arrived for the first tap.
 
 "Open the taphole!"
 
-A worker used a long iron rod to drill open the clay plug at the taphole. A stream of dazzling, golden-yellow molten iron shot out, flowing down the iron runner into the sand molds prepared on the ground.
+A worker drove a long iron rod through the clay plug sealing the taphole. A stream of dazzling, golden-yellow molten iron shot forth, flowing down the iron runner into sand molds prepared on the ground.
 
 "Iron! It's iron!"
 
-Cheers erupted again. This time, they were even louder and more enthusiastic. The sight of molten iron flowing like water was far more impactful than just smoke and fire.
+The cheers erupted again—louder and more enthusiastic than before. The sight of molten iron flowing like water proved far more impactful than mere smoke and fire.
 
-Senior officers from the Army and Navy watched the flowing iron with greedy eyes—in their view, this wasn't iron, but cannons, rifles, shells, and armored ships!
+Senior officers from the Army and Navy watched the flowing metal with hungry eyes. In their vision, this wasn't merely iron—it was cannons, rifles, shells, and armored ships.
 
-"With this, we can finally expand the army," Dongmen Chuiyu whispered to the officer beside him.
+"With this, we can finally expand the army," Dongmen Chuiyu murmured to the officer beside him.
 
 "And build more ships," the naval officer added.
 
-Wu De watched the scene with relief. The industrial heart of Lingao had finally started beating strongly. With this constant flow of iron, their development would enter a fast lane.
+Wu De observed the scene with profound relief. The industrial heart of Lingao had finally begun beating strongly. With this constant flow of iron, their development would accelerate dramatically.
 
-However, Ji Wusheng knew his work wasn't done. The first tap was just the start. Stabilizing production, improving quality, and extending the furnace's life—these were long-term tasks.
+Yet Ji Wusheng knew his work was far from finished. The first tap marked only the beginning. Stabilizing production, improving quality, extending the furnace's lifespan—these were long-term endeavors.
 
-"Take a sample for analysis," he ordered. He needed to know the composition of the pig iron to adjust the furnace operation.
+"Take a sample for analysis," he ordered. He needed to understand the pig iron's composition to properly adjust furnace operations.
 
-A worker used a long-handled spoon to scoop a bit of molten iron and poured it into a small mold. After it cooled, it would be sent to the lab.
+A worker used a long-handled spoon to scoop a measure of molten iron and poured it into a small mold. Once cooled, it would go to the laboratory.
 
-The first tap produced about 15 tons of pig iron. The quality was decent—slightly high in sulfur, but usable. This was expected for the first batch.
+The first tap yielded approximately fifteen tons of pig iron. The quality was decent—slightly elevated in sulfur, but entirely usable. For an initial batch, this was expected.
 
-"Not bad," Ji Wusheng said to the exhausted shift foreman. "Good work, everyone. The cafeteria has prepared roast pork for you tonight!"
+"Not bad," Ji Wusheng told the exhausted shift foreman. "Good work, everyone. The cafeteria has prepared roast pork for tonight!"
 
-"Long live the Head of State!" the workers cheered. For them, a good meal was the best reward.
+"Long live the Head of State!" the workers cheered. For them, a proper feast was the finest reward.
 
 (End of Chapter)

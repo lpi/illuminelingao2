@@ -1,6 +1,6 @@
 # Chapter 988 - The Southeast Asia Company
 
-The land deed transfer procedures were forged by the Foreign Intelligence Bureau. Among the clerks retained from various county yamen, there were quite a few experts at creating fake documents and fake deeds. After forgery, they were sent to Guangdong, where Lin Baiguang's personnel arranged for several people impersonating "original landlords" to formally process transfer procedures at each county yamen. Local officials generally knew what was going on but mostly turned a blind eye. After all, these lands were already ownerless. They didn't have the courage to embezzle them, nor was it worth being an upright judge over. Better to transfer them to the Australians and still collect some taxes and personal benefits.
+The land deed transfer procedures were forged by the Foreign Intelligence Bureau. Among the clerks retained from various county yamen, there were quite a few experts at creating fake documents and deeds. After forgery, the documents were sent to Guangdong, where Lin Baiguang's personnel arranged for several people impersonating "original landlords" to formally process transfer procedures at each county yamen. Local officials generally knew what was going on but mostly turned a blind eye. After all, these lands were already ownerless. They didn't have the courage to embezzle them, nor was it worth being an upright judge over. Better to transfer them to the Australians and still collect some taxes and personal benefits.
 
 Though some suggested having local agents become "landlords" who would then collect rent, the Foreign Intelligence Bureau felt that placing these local agents wasn't easy and they shouldn't be publicly exposed too early. Additionally, this matter would inevitably cause some civil conflicts and create certain negative impressions. Better to use a disposable cover identity.
 
@@ -16,9 +16,9 @@ But overall, whether collecting reasonable burdens or rent through the Wansheng 
 
 Back during the Pearl River Estuary Campaign, reasonable burdens had been levied lightly to win hearts and minds. Except for a few townships that had resisted more fiercely, many were assessed only symbolically. Even those townships with heavier assessments, following the philosophy of "not harming the poor," still had relatively low quotas.
 
-"...By our calculations, these two sources can accumulate about 20,000 *shi* total. There's also about 20,000 taels worth of cash crops and silver." Guo Yi said. "Collection isn't complete yet, but the figures won't differ much."
+"...By our calculations, these two sources can accumulate about 20,000 *shi* total. There's also about 20,000 taels worth of cash crops and silver," Guo Yi said. "Collection isn't complete yet, but the figures won't differ much."
 
-"Not enough." Si Kaide commented.
+"Not enough," Si Kaide commented.
 
 "Of course it's not enough. So has the Planning Commission made a decision about purchasing grain?"
 
@@ -32,13 +32,13 @@ As for the delegation sent to Southeast Asia, it was purely exploratory in natur
 
 If they waited until after summer ended, once Operation Engine began, timing would become quite tight. The Operation Engine Forward Command stationed in Hong Kong had sent a 12-month grain supply projection indicating that current grain reserves in Hong Kong were still at warning levels.
 
-"So De has made up his mind this time—we're still buying grain locally." Si Kaide said. "The plan is for 100,000 *shi* of grain on hand."
+"So De has made up his mind this time—we're still buying grain locally," Si Kaide said. "The plan is for 100,000 *shi* of grain on hand."
 
 The Planning Commission's instructions to the Guangdong Grain Working Group were "small quantities, multiple batches"—avoiding large one-time purchases of too much grain to prevent the market price from rising too fast.
 
 "What about payment? Where does that come from?" Guo Yi was very concerned about this. The various enterprises under the Guangzhou Station and the station itself all had accounts at Delong. The account balances weren't small—but most of this money would need to be paid out soon. Producing 100,000 taels of silver wouldn't be easy.
 
-Si Kaide said: "Loan from Delong."
+"Loan from Delong," Si Kaide said.
 
 Specifically: purchase funds would be borrowed from Delong Guangzhou Branch in Dachang's name. Dachang would pledge the purchased grain as collateral, borrowing 100,000 taels of silver from Delong Guangzhou Branch for a term of six months.
 
@@ -50,13 +50,15 @@ This arrangement was premised on Lingao's industrial manufactured goods sales be
 
 Guo Yi understood clearly that the Planning Commission couldn't pin their hopes on the manpower brought back—those hundred-thousand-plus people couldn't instantly generate output value. At most they could first be used for unskilled physical labor like road building. The Planning Commission's calculations were based on war spoils from Shandong and Jeju. Especially Dengzhou's spoils. Supposedly Dengzhou's military pay consumed 800,000 taels annually. Over the years, with troop payments, public and private expenditures, and merchant trade, the accumulated public and private wealth locally couldn't be a small amount. Back then, Kong Youde's rampage through Dengzhou-Laizhou had plundered enormous spoils. As for Jeju Island, it should at least yield some profit—the abundant cattle and horses there were also considerable wealth.
 
+---
+
 Two large *guang chuan* [Guangdong-style junks] flying the Morning Star flag and looking somewhat unusual were sailing on the open sea. Their strangeness lay in the masts rigged with gaff sails not found on Chinese sailing vessels—at the time, this type of sail didn't exist on European ships either. It wouldn't appear until the 18th century. Adding this system to traditional Chinese hard sails was the Senate shipyard's latest improvement.
 
 These two sailing junks with over 200 tons displacement were both constructed of ironwood, extremely sturdy. They had originally been pirate ships under Zhu Cailao. After joining Lingao, since the original owner wished to keep the vessel, it had been registered as an investment in the Southeast Asia Company's fleet.
 
-Though called the Southeast Asia Company's merchant fleet, most of the time they were actually under Navy command in coastal waters, serving as transport ships. Ocean trading voyages were rare—for reasons of safety, monsoon timing, and capital, the Southeast Asia Company's voyages to the Philippines, Maluku Islands, Siam, and other places were conducted only once a year. Their main purpose, rather than conducting trade, was maintaining trade networks and gathering commercial intelligence.
+Though called the Southeast Asia Company's merchant fleet, most of the time they were actually under Navy command in coastal waters, serving as transport ships. Ocean trading voyages were rare—for reasons of safety, monsoon timing, and capital. The Southeast Asia Company's voyages to the Philippines, Maluku Islands, Siam, and other places were conducted only once a year. Their main purpose, rather than conducting trade, was maintaining trade networks and gathering commercial intelligence.
 
-Since these were merchant vessels, Lingao Shipyard's modifications to Southeast Asia Company ships were relatively simple. The main improvement was installing a steering wheel system, with no major structural changes, and not installing many guns and weapons. Only two 68-pound carronades were installed for self-defense. Though these were company merchant ships, according to Senate regulations, all seaborne vessel crews were under Navy jurisdiction and could be conscripted for war at any time.
+Since these were merchant vessels, Lingao Shipyard's modifications to Southeast Asia Company ships were relatively simple. The main improvement was installing a steering wheel system, with no major structural changes and not installing many guns and weapons. Only two 68-pound carronades were installed for self-defense. Though these were company merchant ships, according to Senate regulations, all seaborne vessel crews were under Navy jurisdiction and could be conscripted for war at any time.
 
 On the sterncastle of the larger vessel, beside the helmsman stood an Elder in casual dress, speaking with a European beside him. Standing next to johnquark was Ping Qiusheng—a medical graduate who also held first-class constructor certifications in civil and electromechanical engineering, plus a certified accountant qualification. After D-Day he had always worked at the Planning Commission, using his knowledge of East Asian history for various planning projects. This was his first true field mission.
 

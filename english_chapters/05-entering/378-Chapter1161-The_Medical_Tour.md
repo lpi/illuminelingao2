@@ -1,51 +1,47 @@
 # Chapter 1161 - The Medical Tour
 
-Wei Bachi's report on the Vestreling incident took a long time to write. He spent considerable mental effort on how to phrase things. He crossed out and revised repeatedly, deeply regretting that he hadn't taken a course in official document writing or media writing back in his university days.
+Wei Bachi's report on the Vestreling incident proved agonizing to write. He agonized over every phrase, crossing out and revising until his desk was littered with crumpled drafts, silently cursing his university self for never taking a course in official document writing or media communications.
 
-This incident, though not particularly serious in terms of its consequences, left the Senate feeling somewhat embarrassed. Compared to Old Feng at Jeju Island who had "masterminded the crushing of a counter-revolutionary riot" and had the glorious deeds of the Kim O-sun siblings to show for it, Wei Bachi's side really had no bright spots worth highlighting.
+The incident itself wasn't catastrophic in its consequences, but it had left the Senate with egg on its face. Compared to Old Feng on Jeju Island—who had "masterminded the crushing of a counter-revolutionary riot" and could parade the glorious exploits of the Kim O-sun siblings—Wei Bachi's side offered nothing worth celebrating.
 
-After several drafts, Wei Bachi finally decided to adopt the posture of "deep self-criticism." Not only would he not avoid problems, he would emphasize them—whatever thorns those "devils" in the Senate liked to pick, he would point out himself first, then add a "profound self-examination." This would fully "correct his attitude."
+After several false starts, he settled on a strategy of "profound self-criticism." Rather than dodge the problems, he would emphasize them himself. Whatever thorns those devils in the Senate loved to pick, he would point out first, then append a suitably contrite "deep self-examination." This would demonstrate his "correct attitude."
 
-After all, he had personally overseen the construction of Kaohsiung, and so far the city was operating normally—whether in population transfer, urban construction, or economic conditions. He felt that unlike some people in the Senate who would kick even when nothing was wrong, the Executive Committee still valued administrative continuity and stability—especially during this pioneering development phase.
+After all, he had personally overseen Kaohsiung's construction, and the city continued to function normally—population transfers, urban development, economic conditions all proceeding as planned. He believed that unlike certain Senate members who would kick even when nothing was wrong, the Executive Committee still valued administrative continuity and stability, especially during this pioneering phase.
 
-"At worst I'll be roasted at a hearing—even Han Xin once suffered the humiliation of crawling between someone's legs," Wei Bachi consoled himself as he wrote.
+*At worst, I'll be roasted at a hearing,* Wei Bachi consoled himself as he wrote. *Even Han Xin once suffered the humiliation of crawling between another man's legs.*
 
-But merely having a "good attitude" wasn't enough. The reason Feng Zongze had eventually gotten through was inseparable from his major initiatives in horse administration, "land reform," and standardized village construction. He had fully demonstrated his potential as a "capable official." Wei Bachi needed to put on a good show too.
+But a "good attitude" alone wouldn't save him. The reason Feng Zongze had ultimately weathered his own storm was inseparable from his major initiatives in horse administration, land reform, and standardized village construction—he had demonstrated his potential as a capable official. Wei Bachi needed to put on an equally impressive show.
 
-The next day, the "Kaohsiung Second Five-Year Plan" display board in Wei Bachi's office silently disappeared, replaced by another board labeled "Kaohsiung Agricultural Land Development Plan."
+The next day, the "Kaohsiung Second Five-Year Plan" display board in his office quietly vanished, replaced by one labeled "Kaohsiung Agricultural Land Development Plan."
 
-Indeed, after several hours of thought, Wei Bachi had decided to direct his merit-building efforts toward the agricultural issues that the Senate cared about most and found most troublesome.
+Indeed, after hours of deliberation, Wei Bachi had decided to direct his merit-building efforts toward the agricultural issues the Senate cared about most—and found most troublesome.
 
-"China's problems, in the final analysis, are food problems," Wei Bachi said, looking at the fruits of his all-night effort with his personal secretary.
+"China's problems, in the final analysis, are food problems," he declared, surveying his all-night work with his personal secretary.
 
-Neither the Planning Commission nor the Agricultural Committee had given him a set reclamation target. Wei Bachi had originally set his own goal at thirty thousand mu, but now he decided to triple that figure: reclaim one hundred thousand mu within one year.
+Neither the Planning Commission nor the Agricultural Committee had assigned him a reclamation target. Wei Bachi had originally set his own goal at thirty thousand mu, but now he tripled that figure: one hundred thousand mu within a single year.
 
-Wei Bachi wasn't making this decision arbitrarily. In the previous phase, both the reclamation work and the sanitary belt clearing in the Kaohsiung area had progressed fairly smoothly. Though the human cost was high—the dead were all slaves, with minimal losses among refugees. Moreover, the efficiency of the reclamation work had far exceeded his expectations.
-
-He currently had ten thousand permanent residents under his command, plus thirty thousand refugees—even if half of those refugees were still recovering and couldn't be worked at full capacity, they could still do at least some light labor.
+This wasn't arbitrary ambition. In the previous phase, both reclamation work and sanitary belt clearing in the Kaohsiung area had progressed smoothly. The human cost ran high, yes—but the dead were all slaves, with minimal losses among the refugees. Moreover, reclamation efficiency had far exceeded his expectations. He currently commanded ten thousand permanent residents plus thirty thousand refugees. Even if half those refugees were still recovering and couldn't work at full capacity, they could still manage light labor.
 
 ---
 
-Meanwhile, on the emerald waves rolling from west to east across the Qiongzhou Strait, a black paddle steamer sailed steadily forward, belching clouds of steam and smoke while spreading its sails, cutting through the waves at an impressive speed.
+Meanwhile, upon the emerald swells rolling west to east across the Qiongzhou Strait, a black paddle steamer sailed steadily forward. Clouds of steam and smoke billowed from its stack while canvas sails stretched taut above, driving the vessel through the waves at impressive speed.
 
-Though its speed already left all passing ships far behind, the black smoke and white steam puffing from its smokestack weren't dense, and the paddle wheel churning the water wasn't turning fast—indicating that the boiler and steam engine weren't operating at full capacity.
+Yet despite leaving all passing ships in its wake, neither the smoke plumes nor the churning paddle wheel suggested the boiler and engine were working at full capacity—the vessel was merely cruising.
 
-Flying from the mainmast, dancing in the wind, was the striking blue Morning Star flag.
+From the mainmast, dancing in the wind, flew the striking blue Morning Star flag.
 
-This paddle steamer, built entirely of teak, had a standard displacement of 500 tons—large enough to count as a "big ship" along China's 17th-century coast.
+Built entirely of teak with a standard displacement of five hundred tons, this paddle steamer qualified as a "big ship" along seventeenth-century China's coast. Unlike other Senate vessels with their standard light-black hulls, this ship retained the natural color and grain of its teak wood. No gun ports lined its deck. It lacked the austere military aesthetic typical of Senate warships; instead, elaborate ornamental details adorned its structure. Most striking was the octopus figurehead at the bow. Palace-lantern designs on the poop deck added Chinese flair, creating an overall impression of peaceful opulence.
 
-Unlike other vessels under the Senate's flag with their standard coloring of light black, this ship retained the original color and grain of its teak wood. No gun ports lined its deck. It lacked the austere exterior typical of Senate vessels; instead, many of its details featured elaborate decorative elements. The most eye-catching ornament was an octopus figurehead at the bow. The palace-lantern design on the poop deck added Chinese flair, creating an overall impression of "peace."
+This was the *Octopus*—the yacht built by Lingao Shipyard for the Guangzhou Station, specifically designed for Master Guo's "lavish lifestyle" in Guangzhou and to demonstrate the Senate's power.
 
-This was the "yacht" built by the Lingao Shipyard for the Guangzhou Station—the *Octopus*. It was specifically designed for Master Guo's "lavish lifestyle" in Guangzhou and to demonstrate the Senate's power.
+Because the vessel needed to navigate inland waterways, the *Octopus* couldn't be too large. To reduce the workload, it had been designed around the 621-class paddle tug already in production at five hundred tons. Since it would operate primarily in rivers and the Pearl River estuary where high speed wasn't essential, a smaller engine had been installed, shrinking the volume of boiler, steam engine, and coal bunker.
 
-Because the vessel needed to navigate inland waterways, the *Octopus* couldn't be too large. To reduce the workload, it was designed and built based on the 621-class paddle tug ship that Lingao had already been producing at 500 tons. Since it would mainly operate in rivers and the Pearl River estuary, high speed wasn't required, so a smaller engine was installed to reduce the volume of the boiler, steam engine, and coal bunker.
+Aboard this luxurious vessel traveled the medical touring group led by Health People's Commissar Shi Niaoren.
 
-Aboard this vessel—luxurious by contemporary standards—was the medical touring group led by Health People's Commissar Shi Niaoren.
+To expand the Senate's influence across Hainan Island and Guangdong, the Health People's Committee had been organizing mobile medical teams since the beginning of the year. Composed of several Elder physicians and outstanding naturalized citizens, they had begun conducting medical tours throughout Qiongzhou Prefecture's counties.
 
-To expand the Senate's influence across Hainan Island and Guangdong, the Health People's Committee had been organizing mobile medical teams since the beginning of the year. Composed of several Elders from the health department and outstanding naturalized citizens, they had begun conducting medical tours throughout Qiongzhou Prefecture's counties.
+The tour encompassed all of Hainan Island, including Leizhou and Guangzhou. Leizhou needed no explanation—through tireless infiltration by the Leizhou Station, Xuwen and Haikang counties had already been "Lingao-ized." Guangzhou's inclusion served primarily to prepare for the planned campaign against the Pearl River Delta region during the Second Five-Year Plan.
 
-The tour covered the entire Hainan Island region, including Leizhou and Guangzhou. Leizhou needed no explanation; through the tireless infiltration of the Leizhou Station, Xuwen and Haikang counties had already been "Lingao-ized." The reason for including Guangzhou was primarily to prepare for the planned campaign against the Pearl River Delta region during the Second Five-Year Plan period.
-
-Guangzhou was a continuation of this grand tour and its final stop. After the Battle of Chengmai, the Senate's advantages in medicine had spread throughout Guangdong via the wounded Ming soldiers who had received treatment and the spectators who had witnessed the battlefield.
+Guangzhou was both the continuation and final destination of this grand tour. After the Battle of Chengmai, word of the Senate's medical prowess had spread throughout Guangdong via the wounded Ming soldiers who'd received treatment and the spectators who'd witnessed the battlefield firsthand.
 
 (End of Chapter)

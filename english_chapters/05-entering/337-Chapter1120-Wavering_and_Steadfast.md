@@ -1,6 +1,6 @@
 # Chapter 1120 - Wavering and Steadfast
 
-That night, inside Pak Deokhwan's residence, he sat alone drinking, his mood extremely low.
+That night, inside Pak Deokhwan's residence, he sat alone drinking, his mood at its lowest ebb.
 
 Ever since the stone figures had bled, things had not gone well for him. Several times he'd gone to the office to seek audience with Official Feng, but each time he'd been told the Official was "busy"—something that had never happened before. Official Feng's trusted servants had also become cold and distant toward him, without their former warmth.
 
@@ -8,7 +8,7 @@ First came the issue of the gold coins the merchants had "lent" him. He'd been w
 
 What worried him even more was that rumors about the bleeding stone figures and portents were everywhere. Many of the local Labor Service workers and collaborators were visibly unsettled—some had even quietly turned in their armbands and stopped coming to work.
 
-Cho Myeong-gwi had placed his "capable agent" Jang Seong-seol at Pak Deokhwan's side. Ostensibly to cultivate him, covertly to monitor him. Beyond that, there was a second purpose: to turn him when the time came.
+Cho Myeong-gwi had placed his "capable agent" Jang Seong-seol at Pak Deokhwan's side—ostensibly to cultivate him, covertly to monitor him. Beyond that, there was a second purpose: to turn him when the time came.
 
 According to Lord Kim's calculations, first the "bleeding stone figures" would unsettle the populace. Then, over the coming days, arson attacks in and around the city would heighten the atmosphere of terror. Finally, they would welcome the Court's army while the whole island rose in militia rebellion.
 
@@ -18,7 +18,7 @@ However, this person's courage was limited. Counting on him to hack down the cit
 
 Seeing his low spirits lately, Jang Seong-seol had been probing indirectly and had roughly determined that he was deeply troubled by the "bleeding stone figures" incident. Moreover, the Dwarf-Crop-Heads had recently shown signs of distrust toward him. There were also rumors that Official Feng, who had always valued him highly, was preparing a full audit of his accounts during his tenure as "Archery Clerk."
 
-Jang Seong-seol judged that all these things combined had begun to shake him—the time for "turning" had arrived. As she poured wine for Cho Myeong-gwi, she calculated.
+Jang Seong-seol judged that all these things combined had begun to shake him—the time for "turning" had arrived. As she poured wine for him, she calculated.
 
 "Master, why are you drinking alone in gloom?" she asked coquettishly, leaning against him.
 
@@ -60,6 +60,8 @@ Pak Deokhwan started in alarm: "Don't talk nonsense! What do you, a mere woman, 
 
 Just then, a gunshot rang out in the distance, followed by several more. Pak Deokhwan's entire body tensed. He shoved Jang Seong-seol aside and stood up, listening anxiously to the sounds outside.
 
+---
+
 "Alert! Something's happening!" Kim O-sun jumped to her feet and shouted loudly.
 
 The words had barely left her mouth when several figures appeared in the doorway. Kim O-sun immediately challenged: "Who goes there?!"
@@ -68,7 +70,7 @@ Several men in local dress, white cloths wrapped around their heads, brandishing
 
 A woman's sharp challenge from inside the building surprised them; they all froze for a moment. Kim O-sun saw they were all armed with clubs, some with knives. Knowing they meant trouble, she yelled: "Bandits!" and drew the machete at her side, rushing at them. Kim Yuk-sun also drew his machete and charged, slashing at the leader. Another attacker darted in from the side and shoved him hard, knocking him down and sending his blade skittering away. He immediately jumped up, grabbed a bench, and began fighting.
 
-Kim O-sun cut down the first bandit with a single slash. Just as she was about to leap forward and finish off the man writhing in pain on the ground, another bandit rushed in, knocked her machete flying with a club, and knocked her to the ground. She lunged forward and clamped her teeth onto his calf with all her might. The bandit screamed. A companion quickly drew a small knife and stabbed her arm. Just then, Kim Yuk-sun, having battered down his opponent, rushed over and swung the bench with all his strength at the bandit's head. The man died instantly. But then a blade found Kim Yuk-sun—he collapsed in a pool of blood.
+Kim O-sun cut down the first bandit with a single slash. Just as she was about to leap forward and finish off the man writhing in pain on the ground, another bandit rushed in, knocked her machete flying with a club, and knocked her to the floor. She lunged forward and clamped her teeth onto his calf with all her might. The bandit screamed. A companion quickly drew a small knife and stabbed her arm. Just then, Kim Yuk-sun, having battered down his opponent, rushed over and swung the bench with all his strength at the bandit's head. The man died instantly. But then a blade found Kim Yuk-sun—he collapsed in a pool of blood.
 
 Seeing her brother stabbed and fallen, Kim O-sun went nearly mad, snatching up a machete and charging. By now the gunfire outside was intensifying. The lead bandit shouted urgently: "Light the fire! Light the fire!" At his cry, one bandit climbed in through the window, wrapping oil-soaked rags and rope around the iron handwheel and screw mechanism.
 
@@ -82,7 +84,7 @@ In their haste, they hadn't wrapped much cloth around the handwheel and screw. K
 
 Outside the city, all three horse corrals had been attacked simultaneously by "righteous militiamen." Gunfire was intense. Fire arrows flew toward the corrals—but due to the Minié rifles' firepower, the militiamen couldn't get within effective range and began firing wildly. Though the display was spectacular, only some grass and a few outer wooden sheds were ignited. The flames looked fierce but caused little actual damage.
 
-The garrison at the corrals then launched a countercharge. The Japanese Public Security cavalry swept around on the flank while the Transport Cadre trainees fixed bayonets and charged. Because Number One Ranch had been established earliest and had the most complete defenses, Kim Dae-hae had committed only forty to fifty men there. The moment the Public Security cavalry appeared, his force collapsed and fled in all directions. The cavalry, wielding their *tachi*, cut them down relentlessly. The fires from the fire arrows that had ignited the grass and sheds actually exposed the "militiamen," making them perfect targets.
+The garrison then launched a countercharge. The Japanese Public Security cavalry swept around on the flank while the Transport Cadre trainees fixed bayonets and charged. Because Number One Ranch had been established earliest and had the most complete defenses, Kim Dae-hae had committed only forty to fifty men there. The moment the Public Security cavalry appeared, his force collapsed and fled in all directions. The cavalry, wielding their *tachi*, cut them down relentlessly. The fires from the fire arrows that had ignited the grass and sheds actually exposed the "militiamen," making them perfect targets.
 
 In the end, only those with the fastest legs managed to escape into the darkness with their lives.
 

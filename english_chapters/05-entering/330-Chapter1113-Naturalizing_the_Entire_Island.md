@@ -8,23 +8,23 @@
 
 "They're all being run ragged by Nick—I can't get my hands on them at all." The Cavalry Training Cadre and Transport Training Cadre shipped from Hainan spent their days training and handling horse husbandry duties.
 
-Nick had taken over the horse corrals outside Jeju City, then absorbed the corrals and nearby official ranches of the three cities and nine towns. The horses under his control had swelled to over three thousand. For the work of screening, treating, breeding, and raising these horses, not only had most of both training cadres been commandeered, he was also using island inhabitants and former horse-tending government slaves—and still constantly complained about insufficient manpower.
+Nick had taken over the horse corrals outside Jeju City, then absorbed the corrals and nearby official ranches of the three cities and nine towns. The horses under his control had swelled to over three thousand. Between screening, treating, breeding, and raising these horses, not only had most of both training cadres been commandeered, but he was also utilizing island inhabitants and former horse-tending government slaves—and still constantly complained about insufficient manpower.
 
 "...Nick demands people from me every day. He's very dissatisfied with the locals—says he can't communicate with them. He insists on using my soldiers, or at the very least naturalized workers from the agricultural companies. I'm in a difficult spot too."
 
 Despite his aggrieved tone, Nangong Wudi was actually quite willing to let Nick use these units. The reason was simple: he too was eager to see powerful cavalry troops take shape. Ever since the dozen or so former mounted samurai from the Japanese Public Security company had been given horses and upgraded to a cavalry escort, Nangong Wudi had fallen in love with the feeling of being surrounded by horsemen—if only the men, horses, uniforms, and weapons could be more imposing and splendid.
 
-Given all this, troop strength was indeed rather thin. Nangong Wudi's forces were few and miscellaneous. He had all kinds of units, but auxiliary and logistics troops predominated. Apart from the two training cadres, the only usable force was the engineer company—but they were also serving as the core construction team for many building projects.
+Given all this, troop strength was indeed rather thin. Nangong Wudi's forces were few and miscellaneous—all kinds of units, but auxiliary and logistics troops predominated. Apart from the two training cadres, the only usable force was the engineer company—but they were also serving as the core construction team for many building projects.
 
 The actual combat forces amounted to just two infantry companies and one Japanese Public Security company. As for the Navy personnel, they were essentially unavailable—Second Fleet ships shuttled constantly between Jeju and Shandong, and the sailors' physical exertion was immense. Extracting additional forces for land operations would be nearly impossible.
 
-Without the Jeju Agricultural Colonization Corps that had been sent earlier to take on substantial local garrison duties, the Jeju Island Contingent couldn't even have managed the task of occupying key points and holding lines.
+Without the Jeju Agricultural Colonization Corps sent earlier to take on substantial local garrison duties, the Jeju Island Contingent couldn't even have managed the task of occupying key points and holding lines.
 
 It was precisely because of Jeju Island's troop shortage that Zhu Mingxia had brought three hundred militia from Shandong. With these three hundred, they could take over a considerable portion of garrison duties, freeing up forces for mobile operations into the interior.
 
 Though Zhu Mingxia didn't handle political work and was visiting Jeju for the first time, the weekly Jeju Island Intelligence Digest gave him a reasonable understanding of the situation.
 
-The upcoming Jeju Political Conference was essentially a meeting demanding all island factions submit completely and demonstrate their sincerity. Any faction whose performance failed to satisfy the Committee would subsequently be eliminated.
+The upcoming Jeju Political Conference was essentially a meeting demanding that all island factions submit completely and demonstrate their sincerity. Any faction whose performance failed to satisfy the Committee would subsequently be eliminated.
 
 This much was probably clear to many of the island's local strongmen. So although things were currently calm, turmoil would erupt as soon as the conference ended. The next step would be to conduct counter-insurgency operations as circumstances dictated, eliminating "hostile elements" and "destabilizing factors."
 
@@ -40,7 +40,7 @@ Before that, the Northern Expedition Detachment had to ensure the complete subju
 
 Zhu Mingxia and Nangong Wudi discussed troop redeployment plans. Before the conference opened, he needed to prepare sufficient mobile forces: at minimum, a complete infantry company plus artillery support, ready to deploy at any moment. The Japanese Public Security company might also be committed to battle as circumstances warranted.
 
-The newly-organized White Horse Unit had limited combat capability, but was familiar with local conditions and could serve as guides and interpreters.
+The newly-organized White Horse Unit had limited combat capability but was familiar with local conditions and could serve as guides and interpreters.
 
 Viewed this way, overall troop strength was roughly adequate. After all, Jeju Island's area, geography, and social conditions were far simpler than Hainan's. Moreover, the policy of complete island "naturalization" greatly reduced the political work required. Once villages were consolidated, "education" could proceed however they pleased.
 
@@ -52,7 +52,7 @@ Viewed this way, overall troop strength was roughly adequate. After all, Jeju Is
 
 Most of the Cavalry Training Cadre's veterans were serving as reconnaissance cavalry in Shandong. Few personnel on Jeju could perform combat missions, and this group also had to serve as instructors for horses and soldiers.
 
-Zhu Mingxia said: "No matter. They're currently stationed outside Jeju City, so they can serve as garrison troops. Add in the newly-arrived Shandong Public Security company, and we can pull out the entire Japanese Public Security to serve as a reserve—I hear they're quite capable in a fight?"
+"No matter," Zhu Mingxia said. "They're currently stationed outside Jeju City, so they can serve as garrison troops. Add in the newly-arrived Shandong Public Security company, and we can pull out the entire Japanese Public Security to serve as a reserve—I hear they're quite capable in a fight?"
 
 "They are indeed. They don't like using rifles—prefer hand-to-hand combat with blades..." Nangong Wudi sighed. "Unfortunately, the most capable one was crippled. He survived, but can't serve as a soldier anymore."
 
@@ -78,13 +78,13 @@ Zhu Mingxia waited quite a while in the Provincial Administration conference roo
 
 "I understand, I understand. I'll definitely find somewhere very close to the Provincial Administration..." Feng Zongze wore a knowing, subtle smile.
 
-"Don't get the wrong idea," Zhu Mingxia smiled. "It's not that it needs to be close to the Provincial Administration—ideally it should be inside the compound. I have matters to discuss with them frequently."
+"Don't get the wrong idea," Zhu Mingxia smiled. "It's not that it needs to be close to the Provincial Administration—ideally it should be *inside* the compound. I have matters to discuss with them frequently."
 
 So the members of Madam Liu's theatrical troupe were housed in a government building adjacent to the Provincial Administration. Female Korean auxiliary personnel guarded the courtyard, not only preventing them from leaving but forbidding them to converse among themselves—unless in the presence of an Official.
 
 The shaven-headed Liu Yisi—formerly the troupe's principal, Madam Liu—was staring intently at Zhu Mingxia's laptop. She had grown accustomed to this strange device by now. The computer was playing aerobics music—"Youth Charm." Yesterday, the Australian Official had assigned her this task: she was to listen to this music over and over until she could play it herself. The music was completely different from anything she'd ever encountered. Besides *zheng*, flute, and cymbals, there were instruments she'd never come across. The melody was utterly foreign—to her ears, it was practically noise.
 
-She carefully asked Zhu Mingxia what instruments those were. Zhu Mingxia told her she just needed to find similar instruments to substitute.
+She carefully asked Zhu Mingxia what instruments those were. He told her she just needed to find similar instruments to substitute.
 
 This was Zhu Mingxia's personal project. He wanted to train a group of servants who could perform aerobics—servants who would remind Committee members of the old timeline, servants more aligned with modern aesthetics, servants who could become cheerleaders. He could teach the basic movements and routines, and do simple choreography. For anything more complex, he relied on his laptop—he had extensive training and competition videos. With a model to copy, they could learn.
 

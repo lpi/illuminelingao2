@@ -1,6 +1,6 @@
 # Chapter 756 – Party at Sea (Part 5)
 
-"With three thousand Mosin-Nagants, ammunition supply would be even more of a problem." Beiwei knew more about the ammunition situation than they did. Although all the transmigrator collective's munitions had been purchased by the North American Branch, usage and stockpile levels were top-secret, known only to the Executive Committee. Beiwei was not privy to exact figures, but he knew that the Special Reconnaissance Squad Command already divided each ammunition draw into "training" and "combat" allocations. Training rounds were now exclusively black-powder reloads. These smoked heavily and left considerable residue, making cleaning and maintenance a chore.
+"With three thousand Mosin-Nagants, ammunition supply would be even more of a problem." Beiwei knew more about the ammunition situation than the others. Although all the transmigrator collective's munitions had been purchased by the North American Branch, usage and stockpile levels were top-secret, known only to the Executive Committee. Beiwei was not privy to exact figures, but he knew that the Special Reconnaissance Squad Command already divided each ammunition draw into "training" and "combat" allocations. Training rounds were now exclusively black-powder reloads—these smoked heavily and left considerable residue, making cleaning and maintenance a chore.
 
 "Is it hard to make 70-30 brass? Didn't the Metallurgy Division produce zinc-brass hull sheathing? That could serve for cartridge cases too."
 
@@ -8,7 +8,7 @@
 
 Having surveyed the ordnance, the men chatted as they lugged their selected guns and ammunition up to the afterdeck to indulge in a little shooting.
 
-On the foredeck, several women were lounging in the hot tub, enjoying the jet massage. To soft music, they sipped tropical cocktails of rum mixed with fruit-juice soda, utterly at ease.
+On the foredeck, several women were lounging in the hot tub, enjoying the jet massage. Soft music played as they sipped tropical cocktails of rum mixed with fruit-juice soda, utterly at ease.
 
 Salina closed her eyes and immersed herself almost completely. The serene atmosphere felt unreal—as if she had been transported to some resort in the old time-space, and everything since the transmigration had been a dream. Tears suddenly welled up unbidden. She grabbed a towel from the edge, dabbed at her face haphazardly, mumbled that she was going to fetch another drink, and retreated into the upper cabin. Perched on a barstool, she stared out at the sea, letting the tears flow freely.
 
@@ -16,11 +16,11 @@ A hand tapped her shoulder. She turned to find Ai Beibei looking at her with con
 
 "It's all right. Everything will be fine," Ai Beibei said softly. Salina murmured, "Sorry," composed herself, and when she turned again her features had returned to normal—the reflexes of a trained law-enforcement officer. Ai Beibei continued: "You don't need to worry. You've been accepted as a full member—a formal transmigrator. Those opinions can no longer threaten you unless someone wants to defy the authority of the House of Elders."
 
-Salina couldn't help saying, "But you still think I'm different. I don't mean you personally, I mean…"
+Salina couldn't help saying, "But you still think I'm different. I don't mean you personally, I mean..."
 
 Ai Beibei cut in: "I know. Acceptance takes time; we all have to adjust. After we immigrated to America—even after we became citizens—we sometimes felt the same way. But it takes effort from both sides. You should learn to think and act like one of us, rather than treat all this as just a survival strategy. Just as we once had to adapt to the 'American way of life,' now we all have to adapt to the 'transmigrator way of life.'"
 
-Salina had in fact been observing the transmigrators' conduct. In her view, although this band of "elders" copied the organizational model of a socialist state, mimicking the working style of socialist countries and parties, flying distinctly left-wing banners and emblems, they were actually an extreme-right regime unlike any she had ever encountered. The ruling clique openly proclaimed perpetual dictatorship under an elder-republic. This unsettled her deeply—even though she was now an elder herself.
+Salina had in fact been observing the transmigrators' conduct. In her view, although this band of "elders" copied the organizational model of a socialist state—mimicking the working style of socialist countries and parties, flying distinctly left-wing banners and emblems—they were actually an extreme-right regime unlike any she had ever encountered. The ruling clique openly proclaimed perpetual dictatorship under an elder-republic. This unsettled her deeply, even though she was now an elder herself.
 
 Ai Beibei's words sent Salina into reflection. Her old unit, the ATF, did not handle political cases, but in the course of firearms investigations she had frequently encountered various political organizations. Yet she had never seen anything as peculiar as the transmigrator collective. It wasn't that some politically-correct sense of democracy and freedom was flaring up inside her—her concern was simpler self-preservation. Since D-Day, Salina had known she stood on perilous ground. From the first assault on her, the near-rape, to her subsequent long confinement inside the heavily guarded Political Security General Administration compound, a dreadful threat had loomed: at worst, being killed in a purge; at best, ending up as a sex slave.
 
@@ -40,7 +40,7 @@ Salina smiled noncommittally.
 
 "I see." Salina gazed at Xue Ziliang on the afterdeck, lost in thought. "Thank you, Beibei."
 
-On the afterdeck, the men were getting competitive. Beiwei suggested they not use AR-15s and similar weapons. Qian Shuiting understood: he was worried about public criticism. Modern-manufactured ammunition was now a precious commodity, regardless of ownership, and using it frivolously courted accusations of wastefulness. So he proposed shooting clay pigeons with shotguns.
+On the afterdeck, the men were getting competitive. Beiwei suggested they not use AR-15s and similar weapons. Qian Shuiting understood: he was worried about public criticism. Modern-manufactured ammunition was now a precious commodity regardless of ownership, and using it frivolously courted accusations of wastefulness. So he proposed shooting clay pigeons with shotguns.
 
 Shotgun shells used paper hulls; lead shot, black powder, and primers were not Class-1 controlled materials. This should raise no objections.
 

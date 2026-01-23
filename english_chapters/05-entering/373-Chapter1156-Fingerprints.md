@@ -1,14 +1,14 @@
 # Chapter 1156 - Fingerprints
 
-The mahjong tile was sent to a makeshift forensics lab. Though Kaohsiung's facilities were far simpler than Lingao's, they still had basic equipment for lifting fingerprints.
+The mahjong tile was sent to a makeshift forensics lab. Though Kaohsiung's facilities were far simpler than Lingao's, they possessed basic equipment for lifting fingerprints.
 
-The fingerprint lifting process was quite straightforward. A technician carefully dusted the tile with fine carbon powder, then used transparent tape to lift the prints and transfer them to white paper for preservation.
+The process itself was straightforward. A technician carefully dusted the tile with fine carbon powder, then used transparent tape to lift the prints and transfer them onto white paper for preservation.
 
-The tile yielded several sets of fingerprints. Most were smudged and overlapping—the tile had clearly been handled by many people. But there were two clear prints: one on the front, one on the back.
+The tile yielded several sets of fingerprints. Most were smudged and overlapping—the tile had clearly passed through many hands. But two prints remained clear: one on the front, one on the back.
 
-Lei En examined the prints under magnification. "We have two distinct sets of prints here. One set is almost certainly the dead man's—we can verify by comparing to the corpse's fingers. The other set..."
+Lei En examined them under magnification. "We have two distinct sets here. One is almost certainly the dead man's—we can verify by comparing to the corpse's fingers. The other set..."
 
-"The other set belongs to someone else," Xu Ke finished. "Someone who handled this tile—possibly the one who gave it to him."
+"Belongs to someone else," Xu Ke finished. "Someone who handled this tile—possibly the one who gave it to him."
 
 "Exactly. Now the question is: whose prints are these?"
 
@@ -18,15 +18,15 @@ This was an enormous undertaking. Commercial Street saw hundreds of people daily
 
 But it was their only lead.
 
-Over the next two days, the police station and Service Company personnel conducted a systematic fingerprinting operation. They set up checkpoints at the harbor gates, requiring everyone entering or leaving to provide fingerprints. They also visited the taverns and gambling dens, collecting prints from regulars.
+Over the next two days, the police station and Service Company personnel conducted a systematic fingerprinting operation. They set up checkpoints at the harbor gates, requiring everyone entering or leaving to provide fingerprints. They visited the taverns and gambling dens, collecting prints from the regulars.
 
 The operation caused considerable grumbling among the populace, but given the seriousness of the case—a foreign dignitary murdered on Senate territory—no one dared openly refuse.
 
-Meanwhile, Xu Ke had another avenue of investigation. He sent an urgent telegram to Lingao, requesting information on known assassins operating in the Taiwan Strait region. If this was a professional hit, there might be records.
+Meanwhile, Xu Ke pursued another avenue. He sent an urgent telegram to Lingao, requesting information on known assassins operating in the Taiwan Strait region. If this was a professional hit, there might be records.
 
-The response came two days later. The External Intelligence Bureau had files on several known assassination networks operating in the region. Most were connected to either Zheng Zhilong's organization or various pirate groups. One name stood out: a shadowy figure known only as "the Dart"—reputed to use poison-tipped projectiles and known for never leaving witnesses.
+The response came two days later. The External Intelligence Bureau had files on several assassination networks operating in the region. Most were connected to either Zheng Zhilong's organization or various pirate groups. One name stood out: a shadowy figure known only as "the Dart"—reputed to use poison-tipped projectiles and known for never leaving witnesses.
 
-"The Dart" was believed to be a woman of Southeast Asian origin, possibly from the Philippines or Malacca. She was said to work exclusively for the highest bidder and had reportedly completed several high-profile assassinations throughout the South Seas.
+"The Dart" was believed to be a woman of Southeast Asian origin, possibly from the Philippines or Malacca. She reportedly worked exclusively for the highest bidder and had completed several high-profile assassinations throughout the South Seas.
 
 Unfortunately, no one had ever seen her face clearly enough to provide a description.
 
@@ -42,7 +42,7 @@ Xu Ke jumped up. "Who?"
 
 "A dock worker named Li Shun. He works at the fishing boat wharf."
 
-Li Shun. The name meant nothing to Xu Ke, but that was about to change.
+Li Shun. The name meant nothing to Xu Ke yet—but that was about to change.
 
 Within the hour, Li Shun had been brought in for questioning. He was a wiry man in his forties, with the weathered face of someone who had spent his life by the sea. His hands trembled slightly as he sat across from Xu Ke.
 
@@ -56,9 +56,9 @@ And so Li Shun began to talk.
 
 He had arrived in Kaohsiung six months earlier, ostensibly as a migrant worker from Fujian. In reality, he had been sent by a man named Lin Shimao—a gambling den operator in Jinjiang County, near Zheng Zhilong's base at Anping.
 
-His mission was simple: to find local contacts and gather intelligence on the Australians' activities in Taiwan. He wasn't a spy exactly—more of an informant, feeding back observations about ship movements and garrison strength.
+His mission was simple: find local contacts and gather intelligence on the Australians' activities in Taiwan. He wasn't a spy exactly—more of an informant, observing ship movements and garrison strength, feeding his observations back.
 
-But recently, his handler had given him a new task: to help a man named Senkyu Sho—a Japanese ronin—establish himself in Kaohsiung. Li Shun didn't know what Senkyu's mission was. He had provided lodging, introduced him to the gambling dens, and given him that mahjong tile as a token of trust.
+But recently, his handler had given him a new task: help a man named Senkyu Sho—a Japanese ronin—establish himself in Kaohsiung. Li Shun didn't know what Senkyu's mission was. He had provided lodging, introduced him to the gambling dens, and given him that mahjong tile as a token of trust.
 
 "I didn't know he was going to kill anyone!" Li Shun protested. "I swear! I thought he was just here to watch the harbor and report back!"
 
@@ -66,7 +66,7 @@ But recently, his handler had given him a new task: to help a man named Senkyu S
 
 Li Shun's face went pale. "I... I don't know anything about that. I wasn't there. I was at the wharf when it happened."
 
-Xu Ke studied the man's face. He was lying—or at least not telling the whole truth. But whether he actually knew about the second killer or was simply protecting himself was unclear.
+Xu Ke studied the man's face. He was lying—or at least withholding the full truth. But whether he actually knew about the second killer or was simply protecting himself remained unclear.
 
 "Who else was involved? Who else did Lin Shimao send?"
 

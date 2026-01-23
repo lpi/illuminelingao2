@@ -1,139 +1,145 @@
-# Chapter 643 Meeting the Attack
+# Chapter 643 — Meeting the Attack
 
-"Commander-in-Chief, the Hair Bandits have established their camp with the sea at their backs; they are already in a desperate position!" Chang Qingyun said. "They dare to do so only relying on their navy's cover. If our army sends the Water Mine Militia from Xiaoyingchang tonight under the cover of darkness to release *Hun Jiang Long* (Muddy River Dragons), we can destroy their warships..."
+"Commander-in-Chief, the Hair Bandits have established their camp with the sea at their backs—they have placed themselves in a desperate position!" Chang Qingyun declared. "They dare to do so only because of their navy's cover. If Your Excellency sends the Water Mine Militia from Xiaoyingchang tonight under cover of darkness to release *Hun Jiang Long*—Muddy River Dragons—we can destroy their warships..."
 
-He Rubin had indeed recruited and organized a Water Mine Militia of three hundred men before the war and manufactured five hundred *Hun Jiang Long* water mines. Because they were prepared for use when establishing the siege of Bopu, most water mines and sampans for releasing mines were not transported from Baishashui Fortress; only one hundred were brought with the army.
+He Rubin had indeed recruited and organized a Water Mine Militia of three hundred men before the campaign and manufactured five hundred *Hun Jiang Long* water mines. Since these had been prepared for use in the eventual siege of Bopu, most of the mines and the sampans for releasing them had not been transported from Baishashui Fortress. Only a hundred had been brought with the army.
 
-"Without sampans, how to release them?" A private secretary raised a doubt.
+"Without sampans, how would we release them?" a private secretary raised the obvious objection.
 
-Chang Qingyun said confidently: "It doesn't matter. Just send people to lower the water mines at Xiaoyingchang and release them with the current—Student sees Xiaoyingchang protrudes into the sea; releasing water mines will surely be no problem..."
+Chang Qingyun spoke with unfounded confidence: "That poses no problem. We need only send men to lower the water mines at Xiaoyingchang and release them with the current. From what I observe, Xiaoyingchang protrudes into the sea—releasing water mines from there will surely succeed..."
 
-Tang Yunwen finally couldn't help but say: "Mr. Chang! The current in Qiongzhou Strait flows from west to east in these months."
+Tang Yunwen could hold his tongue no longer. "Mr. Chang! The current in Qiongzhou Strait flows from west to east during these months."
 
-Every summer, the Qiongzhou Strait blew a southwest monsoon, and the ocean current followed the wind direction. Water mines released at Xiaoyingchang, east of the Hair Bandit camp, couldn't possibly drift over; they might drift to Qiongshan County instead.
+Every summer the Qiongzhou Strait was swept by southwest monsoons, and the ocean current followed the wind's direction. Water mines released at Xiaoyingchang, which lay east of the Hair Bandit camp, could not possibly drift westward toward the enemy—they would more likely end up near Qiongshan County instead.
 
-"Oh," Chang Qingyun was slightly embarrassed, but immediately said, "It doesn't matter if the current direction isn't right. The militia are mostly Tanka people, skilled in swimming. They can enter the water at night and push the water mines to the Hair Bandit warships."
+"Oh," Chang Qingyun said, slightly embarrassed, but he recovered immediately. "It makes no difference if the current direction is wrong. The militia are mostly Tanka people, skilled swimmers. They can enter the water at night and push the mines toward the Hair Bandit warships themselves."
 
-He Rubin, however, wasn't interested in this suggestion. The enemy gunships merely covered the flank and rear of the Hair Bandit Grand Camp. As long as the enemy camp could be broken tomorrow, those gunships floating on the sea would be useless. Back then, the Dutchmen had so many cannons on their large planked ships, but they could only watch helplessly as the Great Ming army besieged their fortress on Penghu Island without being able to help a bit. As long as his own men and horses didn't foolishly run to the seaside.
+He Rubin, however, found this proposal entirely uninteresting. The enemy gunships merely covered the flank and rear of the Hair Bandit Grand Camp. As long as the enemy camp could be broken tomorrow, those ships floating uselessly on the sea would accomplish nothing. Back in the day, the Dutch had possessed tremendous firepower aboard their great planked vessels, yet they could only watch helplessly as the Great Ming army besieged their fortress on Penghu Island without being able to render any assistance. So long as his own men did not foolishly blunder toward the seaside, the naval threat was irrelevant.
 
-He instructed his subordinate generals to let the soldiers rest well today and prepare for battle tomorrow, and ordered each camp to pay attention to keeping watch to prevent enemy night raids. When descending the gate tower, he saw the enem camp was already brightly lit, with sounds of military drums and bugles echoing each other. It could be seen that the defense was extremely strict, and discipline in the camp was also very good. He couldn't help but harbor great doubts about whether the enemy was a "disorderly mob."
+He instructed his generals to let the soldiers rest well today and prepare for battle tomorrow, and ordered every camp to maintain vigilance against enemy night raids. When descending from the gate tower, he observed that the enemy camp was already ablaze with lanterns, and the sounds of military drums and bugles echoed back and forth. Their defense was clearly strict, and discipline within the camp appeared excellent. He could not help but harbor serious doubts about whether the enemy was truly the "disorderly mob" everyone claimed.
 
-Just as the sky brightened the next day, the reveille in the Fubo Army Grand Camp blew loudly. He Ming got up very early to prepare for battle. After finishing breakfast, the last reinforcement unit arrived from Lingao: the "Sniper Team" composed of Senators. It gathered all Senators skilled in shooting, including gun enthusiasts from the North American Branch and former shooting athletes who had been in the shooting training team before. Although they couldn't charge into battle directly, their skill in precision shooting was unmatched by anyone in this space-time.
+---
 
-The weapons used by these dozen people were varied, but almost all were bolt-action rifles brought by the North American Branch. The Mosin-Nagant, cheap and plentiful in North America, occupied half the territory, while Qian Shui-ting distinctively carried a Swiss-made K31 straight-pull rifle, a high-precision bolt-action rifle. Zhou Weisen carried a Remington 700 rifle. All sniper rifles were equipped with 6x scopes. Along with the Sniper Team came the cameramen of the Propaganda Department, preparing to film a documentary to publicize the Fubo Army's illustrious military achievements.
+Just as the sky brightened the next morning, reveille sounded through the Fubo Army Grand Camp. He Ming rose early to prepare for battle. After finishing breakfast, the final reinforcement unit arrived from Lingao: the "Sniper Team" composed of Senators. This team gathered every Senator skilled in shooting, including gun enthusiasts from the North American Branch and former shooting athletes who had trained with marksmanship teams before the crossing. Although they could not charge directly into battle, their precision shooting skills were unmatched by anyone in this time and place.
 
-The captains of the Special Reconnaissance Team invariably had digital DVs, but they were all home-grade machines. This time Dingding and others brought semi-professional digital video cameras with professional-grade telephoto lenses.
+The weapons these dozen individuals carried were varied, but nearly all were bolt-action rifles brought by the North American Branch. The Mosin-Nagant, cheap and plentiful in North America, occupied half of the arsenal. Qian Shui-ting distinctively carried a Swiss-made K31 straight-pull rifle, a high-precision bolt-action weapon. Zhou Weisen bore a Remington 700. All sniper rifles were fitted with 6x scopes. Accompanying the Sniper Team were cameramen from the Propaganda Department, prepared to film a documentary celebrating the Fubo Army's illustrious achievements.
 
-He Ming instructed to disperse the Sniper Team to various towers, and some were placed in the cannon emplacements on the earthen rampart—a sniper's power wouldn't be lower than a cannon. In addition, three cadets were assigned to each Senator as observers and guards. Unless there were instructions, they could freely choose fire targets—generals and officers were the primary targets.
+The captains of the Special Reconnaissance Team invariably possessed digital DVs, though these were all consumer-grade machines. This time, Dingding and the others had brought semi-professional digital video cameras with professional-grade telephoto lenses.
 
-Although Dingding repeatedly requested to go to the front line for filming, He Ming still didn't send him up the earthen rampart, but arranged for him to set up filming tracks on the command platform where he was.
+He Ming ordered the Sniper Team dispersed to the various towers, with some positioned in the cannon emplacements along the earthen rampart. A sniper's power rivaled that of artillery. Additionally, three cadets were assigned to each Senator as observers and guards. Unless they received specific instructions otherwise, they were free to choose their own targets—though generals and officers were the primary priority.
 
-"I'm not afraid of danger. To shoot this kind of documentary film, one must rush to the front line."
+Dingding repeatedly requested permission to go to the front line for filming, but He Ming refused to assign him to the earthen rampart, instead arranging for him to set up filming tracks on the command platform.
 
-"You'll be in the way at the front." He Ming said unceremoniously. "Also, you just film later, no talking allowed."
+"I'm not afraid of danger. To shoot a proper documentary, you have to be at the front."
+
+"You'll be in the way at the front," He Ming said bluntly. "Besides—just film later. No talking."
 
 "When cleaning the battlefield, I want to go to the front line..."
 
 "I'll arrange for you to go then."
 
-After distributing snipers and cameramen, He Ming gathered all chief officers at the battalion level for a pre-war meeting. The meeting briefed on the movement that the Ming army had occupied Xiaoyingchang last night. Of course, this had no impact on the impending battle.
+After distributing the snipers and cameramen, He Ming gathered all chief officers at the battalion level for a pre-battle meeting. The meeting briefed them on intelligence that the Ming army had occupied Xiaoyingchang the previous night. Of course, this had no impact on the impending battle.
 
-As the meeting was about to end, he looked at the Senator officers assembled in the headquarters: dark circles around many people's eyes; obviously, they hadn't slept well. It was natural for people going onto the battlefield for the first time.
+As the meeting concluded, he surveyed the Senator officers assembled in headquarters. Dark circles rimmed many eyes; clearly, they had not slept well. It was natural enough for people about to step onto a real battlefield for the first time.
 
-"Comrades, the battle is about to begin immediately." He said briefly to everyone. "For this day, everyone has trained bitterly with recruits on the drill ground for two years. Now is the time to embody your training results." He swept a glance at everyone, "Execute according to the pre-set plan! Dismissed!"
+"Comrades, the battle is about to begin." His words were brief. "For this day, everyone has trained alongside recruits on the drill ground for two years. Now is the time to prove your training was worthwhile." He swept a glance across the room. "Execute according to the pre-set plan! Dismissed!"
 
-All officers saluted together.
+All officers saluted in unison.
 
-He Ming stood at attention and returned the salute, finally saying: "Go fight, comrades!"
+He Ming stood at attention and returned the salute. "Go fight, comrades!"
 
-On the ramparts, two infantry battalions had already been brought behind the breastworks, and each company was assigned a combat position. The order to the company commanders was very simple:
+---
+
+On the ramparts, two infantry battalions had already taken position behind the breastworks, each company assigned its combat position. The order to company commanders was simple:
 
 "Fight here to the end!"
 
-Everyone received 200 rounds of ammunition. Five hundred reserve Minié rifles had been sent from the rear a few days ago, in case the battle was too intense and too many guns were damaged leaving no guns available. Soldiers were seizing the last moments to wipe their guns and check ammunition. Officers walked back and forth checking fortifications and soldiers' gear.
+Every soldier received two hundred rounds of ammunition. Five hundred reserve Minié rifles had been shipped from the rear a few days prior, in case the fighting grew so intense that too many guns were damaged. Soldiers seized the last moments to wipe their rifles and check their ammunition. Officers walked back and forth inspecting fortifications and the soldiers' gear.
 
-Wei Aiwen patrolled the dike with his guard, chatting with soldiers occasionally, using a serene and calm attitude to soothe the soldiers' emotions. Actually, he was also very nervous inside. But he tried his best to appear calm and composed.
+Wei Aiwen patrolled the dike with his guard, occasionally stopping to chat with soldiers, using a calm and serene demeanor to steady their nerves. In truth, he was just as tense—but he forced himself to appear composed.
 
-Two Battalion Army Flags were erected on two bastions respectively: Infantry 3rd Battalion Commander You Laohu and Infantry 5th Battalion Commander Fu Sansi. They commanded troops directly on two key bastions. Both men wore brand new uniforms, wearing symbols of all honors they had ever won. You Laohu sat on a chair, hands resting on the Frontier Army Long Saber given by President Wen. Fu Sansi smoked thoughtfully, an SKS with bayonet already unfolded placed by his hand.
+Two Battalion Army Flags were raised on two bastions respectively. Infantry 3rd Battalion Commander You Laohu and Infantry 5th Battalion Commander Fu Sansi commanded their troops directly from those two key bastions. Both men wore brand-new uniforms and bore the symbols of every honor they had ever earned. You Laohu sat on a chair, hands resting on the Frontier Army Long Saber awarded to him by President Wen. Fu Sansi smoked thoughtfully, an SKS with its bayonet already unfolded placed ready at his side.
 
-All cannons, whether from artillery companies or reserve cannons, had been pulled onto the earthen dike without a single one left yesterday, placed in cannon emplacements. Ten "Typewriters" sponsored by the Navy were also placed in some key positions. Several of them were mounted on wheelbarrows for mobile defense. Sailors wearing blue uniforms stood at their positions, a blue and white Navy flag fluttering.
+All cannons—whether from artillery companies or the reserves—had been hauled onto the earthen dike the day before and positioned in cannon emplacements, with not a single piece left behind. Ten "Typewriters" sponsored by the Navy were also placed at key positions; several of these were mounted on wheelbarrows for mobile defense. Sailors in blue uniforms stood at their stations, and a blue and white Navy flag fluttered overhead.
 
-The Field Army's flag fluttered in the center of the camp. He Ming and staff officers had already ascended the high platform in the center of the camp. Wired telephones, walkie-talkies, and telegraphs connected him with all troops.
+The Field Army's flag rippled in the center of the camp. He Ming and his staff officers had already ascended the high platform in the camp's center. Wired telephones, walkie-talkies, and telegraph lines connected him with every unit.
 
-The 6th Infantry Battalion, acting as the army reserve, formed a square formation under the high platform.
+The 6th Infantry Battalion, serving as the army reserve, had formed a square beneath the high platform.
 
-"All sit down!" Zhu Quanxing ordered loudly, then he sat on the ground himself, waiting for the order to enter combat.
+"All sit down!" Zhu Quanxing ordered loudly, then sat on the ground himself, waiting for the order to enter combat.
 
-Company after company, army flag after army flag, 1,800 infantrymen wearing gray uniforms tightly gripped bayoneted rifles in their hands. Behind them were 2,000 militia, all holding spears, ready to join the final slaughter at any time.
+Company after company, flag after flag—1,800 infantrymen in gray uniforms gripped bayoneted rifles in their hands. Behind them stood 2,000 militia, all armed with spears, ready to join the final slaughter if necessary.
 
-It was quiet all around. The entire Field Army camp had quieted down completely. No drums or bugles, no human noise. Except for the occasional messenger hurrying past and sounds of orders, only the flapping sound of army flags was heard.
+The entire camp had grown completely silent. No drums, no bugles, no human noise. Except for the occasional messenger hurrying past and the sounds of orders, only the flapping of army flags could be heard.
 
-Yang Zeng stood on the earthen dike, holding a command saber in his hand. Although the weather wasn't good, he could still clearly see government soldiers constantly pouring out from various camps and lining up in the distance. After men and horses assembled, with a signal cannon sound, the whole army marched towards the seaside. Whether from the perspective of Senators or native officers, the Ming army's array was hard to call orderly, but the momentum was astonishing. A black mass pressing towards here.
+Yang Zeng stood upon the earthen dike, command saber in hand. Though the weather was overcast, he could still clearly see government soldiers constantly pouring out of their various camps in the distance, assembling into formations. After the men and horses had assembled, a signal cannon sounded, and the whole army began marching toward the sea. From the perspective of both Senators and native officers, the Ming army's array was hardly orderly—but the momentum was overwhelming. A black mass pressing inexorably toward them.
 
-The Ming army advanced for a few *li*. With a long horn sound, the marching column stopped three *li* from the Grand Camp. Archers and firearms troops walked to the front row; one row kneeling, one row standing, ready to release arrows and fire guns at any time. Behind were rows of spearmen, with swordsmen on both wings ready to fight.
+The Ming army advanced for a few *li*. With a long horn blast, the marching columns halted three *li* from the Grand Camp. Archers and firearms troops moved to the front row: one rank kneeling, one rank standing, ready to release arrows and fire at any moment. Behind them stood rows of spearmen, with swordsmen on both wings prepared to fight.
 
-*They are as many as black clouds!* Yang Zeng thought, involuntarily tightening his grip on the command saber. *There will be a fierce battle today!*
+*They are as numerous as black clouds!* Yang Zeng thought, his grip tightening involuntarily on the command saber. *There will be fierce battle today!*
 
-The civil and military officials under He Rubin standing on the Chengmai County seat wall also had this premonition. Soldiers filled the Hair Bandit camp's earthen dike, but not a single sound of clamor came over. The other side was extremely quiet, seeming to wait in full battle array to deal a head-on blow to the attacking government army. This feeling made many people unhappy.
+The civil and military officials under He Rubin, standing on Chengmai's city wall, shared this premonition. Soldiers filled the Hair Bandit camp's earthen dike, yet not a single sound of clamor reached them. The enemy was utterly quiet, waiting in battle array to deal a blow to the advancing government army. The feeling made many observers deeply uneasy.
 
-Qian Taichong squeezed among the crowd of private secretaries, craning his neck to look at the distant Hair Bandit camp. He was surprised that a band of sea pirates could build such a large-scale and orderly military camp. He had never seen such a camp construction method—piling earth into a dike no more than a man's height, with many large sharp angles protruding all around. How could such a camp be defended? *Just overseas barbarians after all!* He thought so, but in his mind, he was deliberating on the "Six Chapters on Aftermath" prepared to be presented to Lord Zhao after the war. This article was written by him taking time every night in the last few days. He sorted out various methods of soothing people and aftermath management after military chaos that he read from books and heard from others, then selected and organized them according to the situation in Lingao he heard from Gou Chengxuan, finally listing them into this lengthy discourse. Divided into six chapters: "Soothing the People," "Relief," "Opening Wasteland," "Recruiting Merchants," "Arresting Culprits," and "Comforting the Loyal." Qian Taichong read his article again and again, occasionally praising the exquisite sentences he wrote.
+Qian Taichong squeezed among the crowd of private secretaries, craning his neck to study the distant Hair Bandit camp. He was surprised that a band of sea pirates could construct such a large-scale and orderly military encampment. He had never seen such a design—earth piled into a dike no more than a man's height, with large sharp angles protruding all around. How could such a camp be defended? *Just overseas barbarians, after all!* he thought. Yet even as he thought this, he was already composing the "Six Chapters on Aftermath" he planned to present to Lord Zhao once the war concluded. The article was something he had been writing each night over the past few days, drawing from various methods of soothing the populace and managing the aftermath of military chaos that he had read about in books or heard described. He had selected and organized them according to the situation in Lingao as described by Gou Chengxuan, and arranged them into six chapters: "Soothing the People," "Relief," "Opening Wasteland," "Recruiting Merchants," "Arresting Culprits," and "Comforting the Loyal." Qian Taichong read his article again and again, occasionally praising his own exquisite turns of phrase.
 
-In the South Gate camp, Chiliarch Song Ming was ready to sortie. Tong Yizhen gave him one hundred cavalry. He knew in a while his cavalry would lead the vanguard to probe the enemy camp. This was an extremely dangerous mission because he heard the enemy firearms were very powerful—Chiliarch He's disastrous defeat yesterday proved the rumors were not empty. This probe very likely would be a one-way trip.
+In the South Gate camp, Chiliarch Song Ming was ready to sortie. Tong Yizhen had given him one hundred cavalry. He knew that soon his riders would lead the vanguard to probe the enemy camp. This was an extremely dangerous mission—he had heard the enemy's firearms were devastatingly powerful, and Chiliarch He's disastrous defeat the previous day had proven those rumors true. This probe might very well be a one-way trip.
 
-The hundred cavalry had lined up outside the trench. Each cavalryman carried a bow and arrows, preparing to release arrows to harass the enemy after approaching the camp wall, probing the enemy's defense strength and finding weaknesses in the camp. If enemy cavalry responded, they would retreat immediately.
+The hundred cavalry had already formed up outside the trench. Each rider carried a bow and a quiver of arrows, prepared to loose a harassing volley after approaching the camp wall, probe the enemy's defenses, and search for weaknesses. If enemy cavalry responded, they would retreat immediately.
 
-Three signal cannon shots rang out. He saw a red flag already hung on the city wall. Immediately raising his long spear, he shouted: "Kill!" He spurred his horse out first. Behind were one hundred cavalrymen. The standard-bearer and a dozen personal soldiers followed him closely.
+Three signal cannon shots rang out. A red flag already flew from the city wall. Raising his long spear, Song Ming shouted: "Kill!" He spurred his horse forward. Behind him came one hundred cavalrymen. The standard-bearer and a dozen personal soldiers followed close at his heels.
 
-Instantly hoofbeats shook the ground, killing shouts shook the sky. Men and horses in the camped battalions shouted and beat drums to cheer. The momentum was astonishing. A slight commotion arose on the earthen dike.
+In an instant, hoofbeats shook the earth, and war cries split the sky. Men and horses in the camped battalions beat their drums and shouted to cheer. The momentum was staggering. A slight commotion rippled through the earthen dike.
 
-"Steady! Steady!" Officers on the earthen dike drew command sabers and roared. He Ming ordered: "Artillery hold fire; let them get close and use rifles!"
+"Steady! Steady!" Officers on the dike drew command sabers and roared. He Ming issued his order: "Artillery hold fire—let them get close and use rifles!"
 
-Song Ming's cavalry rushed to the front of the earthen dike in an instant. The enemy didn't send cavalry or infantry to meet the attack, and didn't even fire firearms—if it were the Great Ming's army, firearms troops would be firing wildly when the enemy was still a hundred *zhang* from the stockade wall. Secretly wondering, because he heard Chiliarch He say yesterday that enemy firearms had very long range, he dared not rush too close, preparing to fire a round of arrows quickly after getting slightly closer to the dike and then retreat.
+Song Ming's cavalry reached the front of the earthen dike almost instantly. The enemy sent no cavalry or infantry to meet the attack—and they did not even fire their guns. Had it been the Great Ming's army, the firearms troops would have opened fire wildly while enemies were still a hundred *zhang* from the stockade. Privately puzzling over this, and recalling Chiliarch He's account of the enemy's extreme range, Song Ming dared not draw too close. He prepared to loose one quick round of arrows after getting slightly nearer to the dike, then retreat.
 
-Just as he spurred his horse past two bastions and turned to unslung his bow, gunshots rang in his ears.
+Just as he spurred his horse past two bastions and reached to unsling his bow, gunshots cracked through the air.
 
-Bullets fired from one side of each of the two bastions swept across the entire cavalry team from the left and right flanks simultaneously. More than twenty riders fell in the galloping cavalry instantly. Seven or eight of Song Ming's personal soldiers fell, and the big flag was also pierced with countless holes. He dared not delay, added a whip to the horse's rump, and rushed out immediately.
+Bullets fired from both angles of the two bastions swept across the entire cavalry team from left and right flanks simultaneously. More than twenty riders fell in an instant. Seven or eight of Song Ming's personal soldiers tumbled from their horses, and the big flag was pierced with countless holes. He dared not delay—adding a whip to his horse's rump, he burst away immediately.
 
-He Rubin saw clearly. The enemy Grand Camp was defended very tightly. To attack, troops must break into the space between two protruding angles. Attacking the side of any protruding angle would suffer flanking fire from the adjacent angle. If attacking the front of a protruding angle alone, the front was too narrow to deploy troops at all.
+He Rubin saw everything clearly. The enemy Grand Camp was defended with formidable discipline. To attack, his troops would have to advance into the space between two protruding angles—and any attack on the side of one angle would suffer flanking fire from the adjacent angle. Attacking the front of an angle directly would be futile; the frontage was far too narrow to deploy meaningful strength.
 
-*So the protruding angle fort has such a use!* He Rubin knew the Dutch built forts like this and heard people talk about the benefits of such forts. But he always had some doubts in his heart. Now seeing is believing. When the opponent was an army equipped with superior firearms, the advantage of this kind of fortress was simply too obvious!
+*So this is the purpose of the bastion fort!* He Rubin had known the Dutch built fortifications in this manner, and had heard others speak of the advantages of such designs. But he had always harbored doubts. Now, seeing was believing. When the opponent was an army equipped with superior firearms, the advantage of such a fortress was devastatingly clear!
 
-Now the Hair Bandit cannons hadn't fired yet; just a volley of bird guns showed such power. He Rubin worried secretly. But he didn't reveal any worried expression, still maintaining a cold, solemn, and fearless appearance of a great general. He called Tong Yizhen over:
+The Hair Bandit cannons had not yet fired; a single rifle volley had already demonstrated such power. He Rubin felt a knot of worry tightening in his stomach. But he allowed no worried expression to appear on his face, maintaining the cold, solemn, and fearless demeanor of a great general. He summoned Tong Yizhen:
 
-"General Tong, the time for you to serve the Imperial Court has arrived. Take the whole army to attack the Hair Bandit South Gate!"
+"General Tong, the time has come for you to serve the Imperial Court. Take your entire army and attack the Hair Bandit South Gate!"
 
-Tong Yizhen received the general order and returned to his camp from the gate tower. Song Ming's men and horses had just returned, having lost nearly thirty riders, and many of the remaining ones were injured.
+Tong Yizhen received the order and departed the gate tower to return to his camp. Song Ming's men had just straggled back, having lost nearly thirty riders, with many of the survivors wounded.
 
-Seeing him come, Song Ming hurriedly came over to clasp hands and salute.
+Seeing him approach, Song Ming hurried forward to clasp his hands in salute.
 
-"No need for ceremony. You take the brothers to rest a moment first; there will be more service for the Court in a while!"
+"No need for ceremony. Rest your men for now—there will be more service for the Court shortly!"
 
-Tong Yizhen knew Song Ming was a brave general who extremely didn't fear death. He was always the first in every charge, often acting recklessly regardless of all danger, nicknamed "General Sending-Life" (*Songming*). Seeing him escape with his life after being cross-fired upon in such a dangerous situation, he couldn't help wondering at this person's luck being so big.
+Tong Yizhen knew Song Ming was a brave general who showed absolutely no fear of death. He was always first in every charge, often pushing recklessly ahead regardless of all danger, earning the nickname "General Sending-Life" (*Songming*). That he had escaped with his life after being caught in such devastating crossfire seemed nothing short of miraculous.
 
-"Yes! Your Excellency!" Song Ming said, "Hair Bandit firearms are extremely fierce..."
+"Yes, Your Excellency!" Song Ming said. "Hair Bandit firearms are extremely fierce..."
 
-"This General knows!" Tong Yizhen didn't say much. Wearing iron armor and an iron helmet, he immediately mounted his horse. Shouting: "Lance!"
+"This General knows!" Tong Yizhen wasted no more words. Donning iron armor and an iron helmet, he mounted his horse. "Lance!" he shouted.
 
-A personal soldier immediately handed him a long lance. He looked at the distant camp, raised the lance with a loud roar, and spurred his horse, charging out straight for the South Gate of the Grand Camp. his subordinate Chaozhou soldiers surged forward, while Leilian Lieutenant Colonel Zhao Qiansi led two thousand men and horses charging out from the east of the county seat at the same time, attacking the Hair Bandit Grand Camp from two routes.
+A personal soldier immediately handed him a long lance. He fixed his gaze upon the distant camp, raised the lance with a roar, and spurred his horse forward, charging straight toward the Grand Camp's South Gate. His Chaozhou soldiers surged forward behind him. At the same time, Leilian Lieutenant Colonel Zhao Qiansi led two thousand men charging out from the east of the county seat, attacking the Hair Bandit Grand Camp from a second direction.
 
-For a time drums shook the earth, killing shouts filled the sky. Large and small flags covered the mountains and plains, fluttering in the wind under dark clouds. In the blink of an eye, they had rushed out nearly several hundred meters.
+In an instant, drums shook the earth and war cries filled the sky. Large and small flags billowed across the mountains and plains, whipping in the wind beneath dark clouds. In the blink of an eye, they had advanced several hundred meters.
 
-He Ming picked up the telephone: "Artillery fire!"
+He Ming picked up the telephone: "Artillery—fire!"
 
-Zhang Berlin had been waiting for this order. Hearing this order, he immediately commanded: "Fire!"
+Zhang Berlin had been waiting for the order. The moment he heard it, he commanded: "Fire!"
 
-All cannons had long marked the firing range and loaded ammunition. With one order, battery commanders stood up simultaneously gripping firing lanyards, pulling hard to the rear side.
+Every cannon had already marked its firing range and been loaded. At the single command, battery commanders stood up simultaneously, gripping firing lanyards, and pulled hard.
 
-More than ten cannons facing the enemy's charge direction sprayed long plumes of white smoke. Red cannonballs whistled and flew towards the dense crowd. 12-pounder solid shots flew towards enemies 1000 meters away at an initial velocity of 457 meters per second. Balls of black shadows smashed into the crowd with whistling sounds. Instantly flesh and blood flew. Cannonballs landing on the ground were bounced up by the earth, jumping and rolling backward, ploughing bloody channels in the formation.
+More than ten cannons facing the enemy's charge direction belched long plumes of white smoke. Red cannonballs shrieked toward the dense crowd. Twelve-pounder solid shots flew toward enemies 1,000 meters distant at an initial velocity of 457 meters per second. Black shadows crashed into the masses of men with whistling screams. Flesh and blood erupted into the air. Cannonballs that struck the ground bounced upward, leaping and rolling backward, ploughing bloody furrows through the formation.
 
-The Ming army wasn't stopped by the artillery fire. Soldiers surged forward like a tide. Generals shouted on horseback, galloping back and forth in the ranks to urge soldiers to attack fiercely. The second round of cannonballs flew over again. Rows of soldiers had their heads knocked off, bodies torn open, arms and legs severed by bouncing cannonballs. Blood flew everywhere; broken corpses and screaming wounded were everywhere. Sometimes a cannonball seemed slow enough to be stopped by stepping on it, but it would still mercilessly tear a calf off a person's body.
+The Ming army was not stopped by the artillery fire. Soldiers surged forward like a tide. Generals shouted from horseback, galloping back and forth through the ranks to urge their men forward fiercely. The second volley of cannonballs arced in. Rows of soldiers had their heads torn off, bodies ripped open, arms and legs severed by bouncing shot. Blood flew in all directions; broken corpses and screaming wounded lay everywhere. Sometimes a cannonball appeared to be moving slowly enough to be stopped by stepping on it, yet it would still mercilessly tear a calf from a man's body.
 
-The recoil of the 12-pounder cannon after firing was shockingly large; a cannon recoiled fully six or seven meters. To save the artillerymen's physical strength and avoid exhaustion slowing down the rate of fire later, each cannon was prepared with three "cannon-pushing groups" composed of auxiliary transport soldiers to help take turns pushing the cannon back to position. As soon as the cannon stopped, these people immediately rushed up to push with shoulders and pull with arms to reset the cannon.
+The recoil of the 12-pounder after firing was tremendous—each cannon jumped back fully six or seven meters. To preserve the artillerymen's strength and prevent exhaustion from slowing the rate of fire, each gun was assigned three "cannon-pushing groups" of auxiliary transport soldiers to take turns resetting the cannon. The moment a gun stopped, these men rushed forward, pushing with their shoulders and pulling with their arms to return it to position.
 
-Number 1 gunner holding the sponge immediately inserted the end with the spiral metal rod for cleaning into the bore, stirred forcefully a few times, and hooked out a few pieces of charred and tattered cotton cloth. The cotton cloth wrapping the propellant had been soaked in fuming nitric acid beforehand; theoretically, it should burn away with the propellant when firing, but there was always some residue every time. After clearing the bore, Number 1 gunner reversed the sponge, dipped it in the water bucket, inserted it into the barrel, and began to pump repeatedly to wash the bore.
+The Number 1 Gunner, holding the sponge, immediately inserted the end with the spiral metal rod into the bore, stirred forcefully several times, and hooked out a few pieces of charred, tattered cotton cloth. The cotton wrapping around the propellant had been treated with fuming nitric acid beforehand, and theoretically should have burned away entirely with the charge—but residue always remained. After clearing the bore, the Number 1 Gunner reversed the sponge, dipped it in a water bucket, and inserted it into the barrel, pumping repeatedly to wash the bore clean.
 
 "Bore clearing complete!"
 
-"Load one solid shot, target distance 940 meters!"
+"Load one solid shot—target distance 940 meters!"
 
-(End of Chapter)
+---
+
+*(End of Chapter)*

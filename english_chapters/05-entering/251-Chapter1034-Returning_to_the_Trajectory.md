@@ -1,115 +1,119 @@
 # Chapter 1034: Returning to the Trajectory
 
-"Whether you did it or not, we'll talk about it later." Kong Youde said in a low voice. "Everyone gear up, assemble your men and horses immediately, no unauthorized action. Send people to recall all the brothers from the various battalions who have gone out!"
+"Whether you did it or not, we'll discuss later." Kong Youde's voice was low and dangerous. "Everyone gear up. Assemble your men immediately—no unauthorized movement. Send riders to recall all brothers from the various battalions who have gone out!"
 
-"Yes!" The generals knew something fishy was going on and feared a great change was imminent, so they dared not quibble and answered in unison.
+"Yes!" The generals recognized something sinister was unfolding, sensed that a great upheaval loomed. None dared argue. They answered in unison.
 
-Kong Youde stood up, instructed his personal guards to help him put on his armor, and ordered his personal general to gather his personal guards and household servants, preparing to set out.
+Kong Youde rose, directed his personal guards to help him don his armor, and ordered his personal general to gather his household troops and retainers, preparing to move out.
 
-"No flags, no talking on the way!"
+"No flags. No talking on the march!"
 
-After the personal general left, Kong Youde called back Li Yingyuan who was about to leave:
+After the personal general departed, Kong Youde called back Li Yingyuan, who had been about to leave.
 
 "You come with me."
 
-Li Yingyuan's face instantly went pale, not knowing what idea Kong Youde had.
+Li Yingyuan's face went ashen. He had no idea what Kong Youde intended.
 
-Kong Youde speculated that Li Jiucheng and his son must be involved in this strange event. He feared this was Li Jiucheng's strategy of luring the tiger out of the mountain, planning to coerce the entire army into mutiny as soon as he left. Therefore, he preemptively detained his son to accompany the army's movement.
+Kong Youde suspected Li Jiucheng and his son were involved in this strange affair. He feared this was a stratagem to lure the tiger from its mountain, enabling Li Jiucheng to coerce the entire army into mutiny the moment he departed. Therefore, he preemptively detained Li Jiucheng's son to accompany the army's movement as hostage.
 
-In less than the time it takes to eat a meal, Kong Youde had set out with fifty cavalrymen. He went in person primarily to figure out who exactly was doing this—ever since he arrived in Dongguang, the reconnaissance cavalry that had been tailing the main force endlessly gave him a premonition of imminent danger.
+In less time than it takes to eat a meal, Kong Youde had set out with fifty cavalrymen. He went personally to determine precisely who was responsible. Ever since arriving in Dongguang, the reconnaissance cavalry that had been endlessly tailing his forces had given him a premonition of imminent danger.
 
-"Which group is messing things up inside!" Thinking of this, he involuntarily tightened the reins.
+*Which group is stirring up trouble inside!* The thought made him involuntarily tighten his grip on the reins.
 
-Kong Youde and his cavalry team soon arrived near the river gate. He didn't lead his men straight into the fire scene, fearing misunderstanding. Instead, he ordered the whole army to stop two *li* away from the fire. He himself led a dozen household servants and carefully rode over.
+Kong Youde and his cavalry soon reached the area near the river gate. He did not lead his men directly into the scene of devastation, fearing misidentification. Instead, he halted the entire force two *li* from the fires. Then he himself led a dozen household retainers forward carefully on horseback.
 
-The attackers seemed to have already retreated; there were no sounds of killing or hoofbeats. Many grain boats moored by the riverbank had caught fire, the flames raging and the heat unbearable. The boatsmen were scattering in panic. Some saw this patrol and, thinking they were cohorts of the attackers, all fled to avoid them.
+The attackers seemed to have already withdrawn—no sounds of killing, no hoofbeats. Numerous grain boats moored along the riverbank had caught fire, flames roaring, the heat unbearable even at distance. Boatmen scattered in panic. Some spotted his approaching patrol and, assuming they were cohorts of the attackers, fled to avoid them.
 
-On the riverbank, quite a few corpses lay scattered. by the firelight, one could see they were mostly boatmen from the grain transport boats—Kong Youde drew a sharp breath; this was robbing government boats. Don't look at how rotten the boats were or how beggar-like the boatmen were; they were thoroughly "government boats" and "government soldiers." Attacking grain boats would be a huge crime if escalated.
+Corpses lay scattered along the riverbank. By the firelight, Kong Youde could see most were boatmen from the grain transport boats. He drew a sharp breath. This was robbery of government vessels. Never mind their decrepit condition or the beggar-like appearance of their crews—these were thoroughly "government boats" manned by "government soldiers." Attacking them would constitute a major crime if escalated.
 
-A personal guard used his spear to pick up an arrow from a corpse and presented it to Kong Youde. He took it and looked carefully, recognizing at a glance that it was a "government arrow," and one from Dengzhou at that.
+A personal guard used his spear to retrieve an arrow from a corpse and presented it to Kong Youde. He took it and examined it carefully, recognizing immediately that it was a "government arrow"—and one from Dengzhou at that.
 
-Kong Youde gripped the arrow shaft in his palm, feeling cold sweat on his back. Could this group be from Dengzhou? To dare act so recklessly!
+Kong Youde gripped the arrow shaft, feeling cold sweat slickening his back. Could this group have come from Dengzhou? To act with such reckless abandon!
 
-The grain boats were a mess, with various goods and transport grain scattered on the deck. Kong Youde saw his household servants' eyes lighting up, each eager to try, and hurriedly shouted to stop them.
+The grain boats were in chaos, cargo and transport grain scattered across decks. Kong Youde observed his household retainers eyeing the loot, each one clearly eager. He shouted sharply to stop them.
 
-The street was empty, every house closed and locked, a deathly silence. Only several large mansions near the sluice gate had their doors wide open, with various valuables scattered on the street.
+The street stood empty, every house closed and locked, deathly still. Only several large mansions near the sluice gate had their doors thrown wide, various valuables strewn across the street outside.
 
-Suddenly there was a thud under his horse's hoof; looking closely, it was a human head.
+Suddenly something thudded beneath his horse's hoof. Looking down, he saw a human head.
 
-Looking more carefully, seven or eight headless corpses lay discarded on the street. Their clothes weren't luxurious but were the attire of well-off families. A household servant next to him who had recently served as a scout and been here whispered that these were the residences of the gate officials and gatekeepers.
+Further inspection revealed seven or eight headless corpses discarded along the street. Their clothing was not luxurious but marked them as members of comfortable households. A household servant beside him—recently employed as a scout and familiar with the area—whispered that these were the residences of gate officials and lock-keepers.
 
-Seeing the silk and cloth scattered on the ground and the loose coins with broken strings, one knew how rich these families were. Kong Youde couldn't help but curse secretly: "Damn it!"
+Seeing the silk and cloth scattered on the ground and the loose coins from broken strings, Kong Youde understood immediately how wealthy these families had been. He couldn't help but curse under his breath: "Damn it!"
 
-He pulled the reins, having no heart to look further: although the comers were in a hurry, they were undoubtedly government soldiers.
+He pulled the reins, having no stomach to investigate further. The attackers, though swift, were undoubtedly government soldiers.
 
-As for which group they were, he didn't know and didn't want to know—although internally he was already convinced this was the work of Li Jiucheng and the others.
+As for which unit they belonged to, he didn't know—and didn't want to know. Though inwardly he remained convinced this was Li Jiucheng's handiwork.
 
-"You are forcing me to be Lu Junyi!" Kong Youde hated secretly.
+*You are forcing me to become Lu Junyi!* Kong Youde seethed with silent fury.
 
-However, things having come to this pass, saying more was useless. Kong Youde knew very well that regardless of whether Li Jiucheng sent people to do this, he would have to take the fall—or rather, the original Dongjiang troops would have to take the fall.
+Yet what was done was done. Saying more was useless. Kong Youde understood perfectly that regardless of whether Li Jiucheng had orchestrated this, he would bear the consequences—or rather, the original Dongjiang troops would bear them.
 
-"Fine, you get what you asked for. It's inconvenient for me to block your good deed for my own future anymore!" Kong Youde thought hatefully and shouted the order, "Return!"
+*Fine. You asked for this. It's now inconvenient for me to block your fortunes for the sake of my own future!* Kong Youde thought bitterly. He raised his voice to shout the order: "Return!"
 
-At this moment, he had made up his mind to raise the flag of rebellion. Not only because he currently had no way to explain himself, but also because he realized his control over his subordinates was so poor: Li Jiucheng had pulled most generals and soldiers over without showing off, doing such a big thing behind his back!
+In that moment, he had resolved to raise the flag of rebellion. Not simply because he had no means of explanation now, but because he realized how thoroughly his control over his subordinates had eroded. Li Jiucheng had swayed most generals and soldiers without any overt display, orchestrating an operation of this magnitude behind his back.
 
-If he continued to refuse blindly, he would either be killed by the mutineering soldiers and generals or force to abandon the troops and flee. Of course, given Sun Yuanhua's attitude toward him, he might not be blamed and might even be protected. But thereafter, he would become a commander with only a few dozen personal guards and servants, a general in name only.
+If he continued refusing blindly, he would either be killed by mutineering soldiers and generals, or forced to abandon his army and flee. Given Sun Yuanhua's disposition toward him, he might escape blame—might even receive protection. But thereafter he would become a commander with only a few dozen personal guards and retainers, a general in name alone.
 
-Without soldiers, a military general in this increasingly chaotic era lost his capital. Whether being an official, getting rich, or even settling down and establishing a life, one needed soldiers in hand.
+Without soldiers, a military general in this increasingly chaotic era lost all his capital. Whether seeking official position, wealth, or simply a stable life—one needed soldiers in hand.
 
-To regain control of the men and horses, he had to participate in the rebellion and seize power back in the turmoil. This troop was brought out by Kong personally; they were bewitched by Li Jiucheng and others now only because the future was bleak. He believed that as long as he went with the flow and used his skills well, he would soon regain control of the troops.
+To regain control of his forces, he had to participate in the rebellion and seize back power amid the turmoil. These troops were his creation. They had been bewitched by Li Jiucheng and his cohort only because their prospects appeared hopeless. Kong Youde believed that if he rode the current and applied his skills wisely, he would soon reclaim command.
 
-Although Kong Youde was unwilling to rebel, once a decision was made, he would walk the path to the end. He suddenly reined in his warhorse and ordered his subordinates:
+Though unwilling to rebel, once Kong Youde reached his decision, he would walk the path to its end. He suddenly reined in his warhorse and issued new orders to his subordinates:
 
-"Transmit the order to all battalions immediately, pull out and come here!"
+"Transmit the command to all battalions immediately—pull out and assemble here!"
 
-Since the action had started, regardless of who did this job, it was already counted on his head.
+Since the action had begun—regardless of who actually struck this blow—it was already counted against his name.
 
-In that case, if he was going to do it, he would do it thoroughly!
+If he was to be blamed anyway, he would do it thoroughly.
 
-The market here was prosperous, and many ships were moored. Although the fattest sheep had been slaughtered, the remaining wealth was still substantial. Being able to easily obtain a large amount of grain, wealth, and livestock yielded much more than sneaking around robbing houses and taking out a few villages before.
+The market here was prosperous, with many ships moored. Though the fattest sheep had already been slaughtered, substantial wealth remained. Easy seizure of large quantities of grain, valuables, and livestock would yield far more than sneaking about robbing houses and destroying a few villages.
 
-With this large capital in hand, the army's heart could be stabilized. With grain and pay in hand, the soldiers would be willing to sell their lives for you. With soldiers, one wouldn't need to fear whatever the next step was.
+With this large stake in hand, the army's heart could be steadied. With grain and pay available, soldiers would be willing to stake their lives. With soldiers, one need not fear whatever came next.
 
-Even the imperial court, as long as you had strength, would count on you to sell your life with a sword and gun. They would absolutely not fuss over how many commoners you killed or how much wealth you robbed.
+Even the imperial court—so long as you possessed strength—would count on you to fight with sword and gun. They would absolutely overlook however many commoners you killed or however much wealth you plundered.
 
-Thinking of this, he turned his horse's head and raised his whip toward the direction of the market: "Enter the town!"
+This thought crystallized, and he turned his horse's head, raising his whip toward the market. "Enter the town!"
 
-Chen Sigen stood on a small hill at the edge of the woods a few *li* away, observing the town with infrared binoculars. When he saw groups of cavalry starting to flood into the market and beginning to burn, kill, and loot on the riverbank and streets, his heart still sank. Although their goal of forcing Kong Youde to rebel had been achieved, the innocent commoners of this market had become victims of the Senate's "strategic goals" for nothing.
+---
 
-The initiator, will he have no posterity?
+Chen Sigen stood on a small hill at the edge of a grove a few *li* distant, observing the town through infrared binoculars. When he saw groups of cavalry beginning to flood into the market, commencing their burning, killing, and looting along the riverbank and streets, his heart sank even as his mission succeeded. Their goal of forcing Kong Youde to rebel had been achieved—but the innocent commoners of this market had become victims of the Senate's "strategic objectives" for nothing.
 
-Thinking of this phrase, he couldn't help feeling a heartfelt unease.
+*The initiator, will he have no posterity?*
 
-"Squad leader." The Special Reconnaissance Detachment sergeant called him softly.
+The phrase rose unbidden, carrying a heartfelt unease.
 
-"Hm, what is it?" Chen Sigen turned around.
+"Squad leader." The Special Reconnaissance Detachment sergeant called softly.
 
-"The government army's scouts are starting to come over."
+"Hm, what is it?" Chen Sigen turned.
 
-Chen Sigen secretly praised Kong Youde for being a veteran general; even while unleashing soldiers to loot, he didn't forget to guard the perimeter. It seemed that being able to mix into the position of the Three Feudatory Kings among the forest of surrendering generals in the late Ming was crucially due to outstanding ability, in addition to surrendering early.
+"The government army's scouts are beginning to approach."
 
-"We withdraw!" He ordered, "All units return to base camp."
+Chen Sigen silently praised Kong Youde's professionalism. Even while unleashing his soldiers to plunder, the man hadn't forgotten to guard his perimeter. It appeared that among the forest of surrendering generals in the late Ming, rising to become one of the Three Feudatories required not just early surrender but outstanding competence.
 
-Since Kong Youde had started unleashing soldiers to loot the market, it meant he had determined to rebel. The following matters could be left to the reconnaissance cavalry to stick close to him and watch his movements at all times.
+"We withdraw!" he ordered. "All units return to base camp."
 
-With the Special Reconnaissance Detachment's surprise attack as the trigger, a large army that had long harbored discontent finally raised the flag of rebellion. The anger and resentment suppressed in the hearts of the Dongjiang army for a long time instantly turned into a highly destructive torrent.
+Since Kong Youde had begun releasing soldiers to loot the market, it meant he had committed to rebellion. The subsequent matters could be left to the reconnaissance cavalry, who would shadow him and monitor his movements constantly.
 
-After Kong Youde's unit rose in rebellion, they immediately returned to Wuqiao and launched a surprise attack on it. Because the local magistrate had been alerted—he had heard about the "horse bandit" activities in neighboring Dongguang County—he closed the city gates in time. The county seat was saved for the time being. Seeing he couldn't succeed immediately, Kong Youde didn't entangle himself under the city walls. After wanton burning, killing, and looting in the local area, he immediately waved his troops back to Shandong.
+---
 
-They obtained a large number of livestock, grain, and wealth in Dongguang and Wuqiao. They loaded the wealth and grain onto the looted horses, mules, and donkeys, driving them along with the main force towards Shandong. The dust from men and horses rolled, visible from more than ten *li* away.
+With the Special Reconnaissance Detachment's surprise attack as the ignition point, an army that had long simmered with discontent finally raised the flag of rebellion. The anger and resentment bottled within Dongjiang soldiers for years instantly transformed into a torrential, destructive force.
 
-"Rebellion started!"
+After rising in rebellion, Kong Youde's unit immediately returned to Wuqiao and launched a surprise assault. Because the local magistrate had been alerted—he had heard reports of "horse bandit" activity in neighboring Dongguang County—he closed the city gates in time, saving the county seat temporarily. Seeing he couldn't succeed quickly, Kong Youde refused to waste time besieging walls. After rampant burning, killing, and plundering in the surrounding area, he immediately wheeled his forces back toward Shandong.
 
-The terrible news spread on the main road. Urgent documents from Dongguang and Wuqiao counties began to be passed through the relay stations. However, throughout the vast land of Shandong, apart from the transmigrators in Longkou who were rubbing their fists and waiting in full battle array, no one yet anticipated how the situation would develop. While the scholars and people of Shandong slept, Kong Youde's Liaodong iron cavalry was already rolling in.
+They had obtained vast quantities of livestock, grain, and wealth in Dongguang and Wuqiao. Loading valuables and grain onto plundered horses, mules, and donkeys, they drove the animals alongside the main army toward Shandong. The dust raised by men and horses rolled skyward, visible from more than ten *li* away.
 
-The Qimu Island Trio watched Kong Youde's movements nervously: they had successfully pulled Kong back onto the historical trajectory needed by the Senate. Now, it depended on whether his next direction would be consistent with original history.
+"Rebellion!"
 
-The news from the reconnaissance cavalry relieved them: after sweeping through Wuqiao, Kong Youde advanced rapidly southeast along the route of the modern National Highway 104. The local governments were caught off guard and had no troops to use. Those who reacted quickly could emergency close the city gates and escape disaster. Those who reacted slowly fell one after another. The rebel army successively captured Ling County and Linyi. After capturing a large amount of grain, wealth, and livestock, they followed the route of Provincial Highway 316, capturing Shanghe, then went east from Shanghe, successively crossing the Tuhai River and the Yellow River, capturing Qidong (now called Gaoqing). Afterward, they attacked southeast, capturing Xincheng (should be present-day Huantai).
+The terrible news spread along the main roads. Urgent documents from Dongguang and Wuqiao counties began flying through the relay station system. Yet throughout the vast expanse of Shandong, apart from the transmigrators in Longkou who were rubbing their fists in full battle array, no one anticipated how the situation would develop. While the scholars and common folk of Shandong slept, Kong Youde's Liaodong iron cavalry was already thundering in.
 
-Because his subordinates were almost all cavalry and they had looted a large number of livestock to carry supplies, and didn't get entangled in any single place or city on the way, supplementing the team by looting supplies and livestock as they went, the marching speed was very fast.
+The Qimu Island Trio monitored Kong Youde's movements with nervous intensity. They had successfully pulled Kong back onto the historical trajectory required by the Senate. Now everything depended on whether his next direction would match original history.
 
-In less than a month, on November 22, 1631, the spearhead had arrived under Dengzhou City.
+News from the reconnaissance cavalry brought relief: after sweeping through Wuqiao, Kong Youde advanced rapidly southeast along what would become the route of modern National Highway 104. Local governments were caught utterly unprepared, without troops to respond. Those who reacted quickly managed emergency gate closures and escaped disaster. Those who reacted slowly fell in succession. The rebel army captured Ling County, then Linyi. After seizing large amounts of grain, valuables, and livestock, they followed the route of Provincial Highway 316, capturing Shanghe. From Shanghe they moved east, successively crossing the Tuhai River and Yellow River to capture Qidong—present-day Gaoqing. Afterward, they attacked southeast, taking Xincheng—present-day Huantai.
 
-The rebel army merely swept past Huangxian. Kong Youde did not attempt to attack the county seat—returning to Dengzhou as soon as possible to get the response of the old Dongjiang units and grow his strength was what he cared about most.
+Because his forces consisted almost entirely of cavalry, because they had plundered large numbers of livestock to carry supplies, and because they avoided getting entangled with any single location or city along the way—supplementing the column by looting provisions and animals as they marched—their speed was extraordinary.
+
+In less than a month, on November 22, 1631, their vanguard arrived before Dengzhou City.
+
+The rebel army merely swept past Huangxian. Kong Youde made no attempt to assault the county seat—returning to Dengzhou as swiftly as possible to secure the support of old Dongjiang units and expand his strength was his sole concern.
 
 **(End of Chapter)**
