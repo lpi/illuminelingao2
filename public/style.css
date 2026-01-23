@@ -1,0 +1,112 @@
+
+body {
+    font-family: 'Georgia', 'Times New Roman', serif;
+    line-height: 1.6;
+    color: #333;
+    margin: 0;
+    padding: 0;
+    background-color: #f4f4f9;
+}
+
+.container {
+    max-width: 800px;
+    margin: 0 auto;
+    padding: 20px;
+    background-color: #fff;
+    box-shadow: 0 0 10px rgba(0,0,0,0.1);
+    min-height: 100vh;
+}
+
+h1, h2, h3 {
+    font-family: 'Helvetica Neue', Arial, sans-serif;
+    color: #2c3e50;
+}
+
+h1 {
+    text-align: center;
+    border-bottom: 2px solid #eee;
+    padding-bottom: 10px;
+}
+
+a {
+    color: #3498db;
+    text-decoration: none;
+}
+
+a:hover {
+    text-decoration: underline;
+}
+
+.chapter-list {
+    list-style: none;
+    padding: 0;
+}
+
+.chapter-list li {
+    margin: 10px 0;
+    border-bottom: 1px solid #eee;
+}
+
+.chapter-list a {
+    display: block;
+    padding: 10px;
+    font-size: 1.1em;
+}
+
+.chapter-list a:hover {
+    background-color: #f9f9f9;
+    text-decoration: none;
+}
+
+.navigation {
+    display: flex;
+    justify-content: space-between;
+    margin-top: 40px;
+    padding-top: 20px;
+    border-top: 1px solid #eee;
+}
+
+.nav-btn {
+    display: inline-block;
+    padding: 8px 16px;
+    background-color: #3498db;
+    color: white;
+    border-radius: 4px;
+    font-family: sans-serif;
+    font-size: 0.9em;
+}
+
+.nav-btn:hover {
+    background-color: #2980b9;
+    text-decoration: none;
+    color: white;
+}
+
+.volume-list {
+    display: grid;
+    gap: 20px;
+}
+
+.volume-card {
+    border: 1px solid #ddd;
+    border-radius: 8px;
+    padding: 20px;
+    transition: transform 0.2s;
+}
+
+.volume-card:hover {
+    transform: translateY(-2px);
+    box-shadow: 0 4px 8px rgba(0,0,0,0.1);
+}
+
+.volume-card h2 {
+    margin-top: 0;
+}
+
+/* Markdown Content Styling */
+.content p {
+    margin-bottom: 1.2em;
+    text-indent: 0;
+}
+
+/* Chinese-style paragraph spacing if needed, but English usually prefers margin-bottom */
