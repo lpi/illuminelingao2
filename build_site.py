@@ -285,6 +285,16 @@ def main():
     if os.path.exists(extras_path) and os.path.isdir(extras_path):
         volumes.append('extras')
 
+    # Build a global ordered list of all chapters for cross-volume navigation
+    # Each entry: (vol_dir_name, chapter_filename, chapter_html_path_from_root)
+    global_chapter_list = []
+    for vol_dir_name in volumes:
+        vol_source_path = os.path.join(SOURCE_DIR, vol_dir_name)
+        chapters = sorted([f for f in os.listdir(vol_source_path) if f.endswith('.md')])
+        for chapter_filename in chapters:
+            chapter_html_filename = os.path.splitext(chapter_filename)[0] + ".html"
+            global_chapter_list.append((vol_dir_name, chapter_filename, f"{vol_dir_name}/{chapter_html_filename}"))
+
     # Build main index (homepage)
     main_index_content = """<h1>Illumine Lingao</h1>
 <div class="home-links">
@@ -298,6 +308,8 @@ def main():
 <div class="volume-list">
 """
 
+    global_idx = 0  # Track position in global chapter list
+    
     for vol_dir_name in volumes:
         vol_display_name = get_volume_display_name(vol_dir_name)
         vol_output_dir = os.path.join(OUTPUT_DIR, vol_dir_name)
@@ -328,16 +340,28 @@ def main():
                 
             html_body = markdown.markdown(md_content)
             
-            # Navigation
+            # Navigation - use global chapter list for cross-volume nav
             prev_link = ""
-            if i > 0:
-                prev_file = os.path.splitext(chapters[i-1])[0] + ".html"
-                prev_link = f'<a href="{prev_file}">« Previous</a>'
+            if global_idx > 0:
+                prev_vol, prev_file, prev_path = global_chapter_list[global_idx - 1]
+                # If same volume, use relative link; otherwise use ../ path
+                if prev_vol == vol_dir_name:
+                    prev_href = os.path.splitext(prev_file)[0] + ".html"
+                else:
+                    prev_href = "../" + prev_path
+                prev_link = f'<a href="{prev_href}">« Previous</a>'
             
             next_link = ""
-            if i < len(chapters) - 1:
-                next_file = os.path.splitext(chapters[i+1])[0] + ".html"
-                next_link = f'<a href="{next_file}">Next »</a>'
+            if global_idx < len(global_chapter_list) - 1:
+                next_vol, next_file, next_path = global_chapter_list[global_idx + 1]
+                # If same volume, use relative link; otherwise use ../ path
+                if next_vol == vol_dir_name:
+                    next_href = os.path.splitext(next_file)[0] + ".html"
+                else:
+                    next_href = "../" + next_path
+                next_link = f'<a href="{next_href}">Next »</a>'
+            
+            global_idx += 1
             
             # Get short volume name for nav bar (e.g., "Volume 6")
             vol_short_name = get_volume_display_name(vol_dir_name).split(':')[0]
