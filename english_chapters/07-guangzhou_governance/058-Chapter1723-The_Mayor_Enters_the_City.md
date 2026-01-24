@@ -1,83 +1,89 @@
 # Chapter 1723: The Mayor Enters the City
 
-With those words, his head tilted and he breathed his last.
+With those words, his head lolled to one side and he breathed his last.
 
-Wu Guangzhi was shocked. He had no roots here, and even less influence in the military. He maintained everything with silver. So he had always worried about unstable morale and spared no expense in lavishing silver. Unexpectedly, they still fell into chaos.
+Wu Guangzhi was stunned. He had no roots here, even less influence among the military. He had maintained everything through silver alone, which was why he had always worried about unstable morale and spent lavishly. Yet they had still fallen into chaos.
 
-He knew this must have been instigated by the gentry. These shameless people who would sell out their monarch and father for their own lives and property!
+He knew the gentry must have instigated this. Those shameless men would sell out their monarch and their fathers to preserve their own lives and property!
 
-Since the soldiers had mutinied, the city could no longer be defended. However, he put aside the idea of suicide and decided to die on the battlefield to repay the Emperor's grace. He drew his Japanese saber and shouted: "Everyone, follow me! Today is the day to serve the country with loyalty!"
+Since the soldiers had mutinied, the city could no longer be held. Yet he set aside the thought of suicide. He would die on the battlefield and repay the Emperor's grace. Drawing his Japanese saber, he shouted: "Everyone, with me! Today we give our lives for the country!"
 
-The few trusted family servants beside him had all followed him from Shaanxi. At this moment, they all drew their sabers and charged out after him.
+The handful of trusted servants beside him had followed him all the way from Shaanxi. As one, they drew their blades and charged out behind him.
 
-The defending militiamen and soldiers all rushed towards the county yamen. The small squad of officers and soldiers originally guarding him outside the county yamen collapsed without a fight. Only a few family servants resisted, and in an instant they were killed, their bodies falling at the steps of the main hall.
+The defending militiamen and soldiers were already rushing toward the county yamen. The small squad of officers and soldiers guarding the entrance collapsed without resistance. Only a few of his servants fought back—they were cut down in moments, their bodies falling on the main hall's steps.
 
-Wu Guangzhi, leading a few family servants, hadn't even left the second hall when he engaged in close combat with the mutineers. Although he was a scholar, his swordsmanship was very good, and he had accumulated a lot of combat experience in Shaanxi. Without panic, one slash cut down a soldier, and he smoothly stabbed into the belly of another militiaman. The surging mutineers, seeing how brave he was, didn't dare to come forward. Instead, they were pushed back down the steps.
+Wu Guangzhi, leading his remaining servants, hadn't even cleared the second hall when he met the mutineers in close combat. Though a scholar, his swordsmanship was excellent, honed through considerable combat experience in Shaanxi. Without panic, he cut down one soldier with a single stroke and smoothly drove his blade into another militiaman's belly. The surging mutineers, seeing his ferocity, hesitated to advance. He pushed them back down the steps.
 
-However, the mutineers were numerous, and soon they surrounded the master and servants. In an instant, all his family servants were dead or wounded. Wu Guangzhi had already suffered several wounds and was covered in blood. He refused to surrender and had no intention of suicide, but continued to fight his way through. At this moment, several mutineers thrust at him with long spears. He was stabbed several more times, and blood flowed profusely. Knowing he was done for, he used his saber to support himself on the ground, knelt facing north, and gasped in a hoarse voice: "Your Majesty, your servant is dying for you in loyalty..." Before he could finish his words, he was stabbed through the back of the heart by a spear and fell over, dying in a pool of blood.
+But they were too many. Soon they surrounded master and servants alike. In moments, all his men were dead or wounded. Wu Guangzhi himself had taken several wounds and was drenched in blood. He refused to surrender and would not take his own life—he fought on. Then several mutineers thrust at him with long spears. He was stabbed multiple times; blood poured from him. Knowing he was finished, he used his saber to prop himself up, knelt facing north, and rasped: "Your Majesty, your servant dies for you in loyalty..."
 
-An hour later, Shi Zhiqi received a report from a messenger: Xin'an had been taken.
+Before he could finish, a spear pierced through his back and into his heart. He toppled forward into a pool of his own blood.
 
-"...The magistrate has been killed."
+---
 
-The reason for mentioning this specifically was that according to the "Guangdong Occupation Guidelines," all local officials of the Great Ming who were captured, whether they surrendered or were captured, were to be registered and sent with their families and servants to Hong Kong for concentrated detention. The Military Control Commission required that local officials be seen alive or their bodies found dead; those whose whereabouts were unknown were also to be registered and reported.
+An hour later, Shi Zhiqi received a messenger's report: Xin'an had fallen.
 
-"Did our people have any casualties?"
+"...The magistrate is dead."
 
-"Report, Chief, none!"
+This detail was specifically mentioned because, according to the "Guangdong Occupation Guidelines," all local Ming officials who were captured—whether surrendered or seized—were to be registered and sent with their families and servants to Hong Kong for centralized detention. The Military Control Commission required a detailed accounting: officials should be confirmed alive or their bodies recovered; those whose whereabouts were unknown had to be registered and reported.
 
-"Well done!" Shi Zhiqi said, drawing a blue circle representing "Occupied" on the map over Xin'an County.
+"Did our people suffer any casualties?"
 
-Looking at the progress on the map, less than 12 hours had passed since the operation began. Wherever the Fubo Army went, they encountered almost no resistance. The few sporadic resistances were completely unorganized. Most were just a few people fighting spontaneously. The only organized resistance was in Xin'an County. It seemed that pacifying the region by proclamation was basically a foregone conclusion!
+"Report, Chief—none!"
 
-For the scholars and commoners of Guangzhou and the neighboring counties, this was an unforgettable day. The Australians came from the sea, silently and without bloodshed, seizing the largest city in southern China. By the time the sky was fully bright, the city gates had already been replaced with "Hair-shorn soldiers" wearing blue-gray short uniforms and holding muskets. On the streets, squads of Hair-shorn soldiers in gray uniforms patrolled. The entire city was quiet and orderly, and many shops had opened their doors. The commoners were both shocked and fascinated: just like that, overnight, Guangzhou had changed masters!
+"Well done!" Shi Zhiqi drew a blue circle marked "Occupied" over Xin'an County on his map.
 
-Fortunately, the new masters were not strangers. In recent years, the Australians had been a semi-public presence in Guangzhou. Even those with no business or labor dealings with the Australians had at least bought Australian goods: various kinds of "Australian paper," "Australian matches," "Australian cloth," "Hair-shorn socks"... These small things had long entered the daily lives of the commoners.
+Looking at the progress, less than twelve hours had elapsed since the operation began. Wherever the Fubo Army went, they encountered almost no resistance. The few sporadic incidents were completely unorganized—mostly just a handful of people fighting spontaneously. The only organized resistance had been at Xin'an County. It seemed pacification by proclamation was essentially a foregone conclusion.
 
-In the past, they were merchants traveling with swords. Now, they had openly become the rulers here. No one knew how the Australians would rule this great city.
+---
 
-Rumors about the Australians' governance in Lingao had spread here to some extent. Many people didn't believe them, thinking they were just tales from overseas. There were also those who knew the exact situation and wanted to see if the Australians' methods could be applied in Guangzhou: after all, the population of a single street in Guangzhou exceeded that of the entire Lingao County.
+For the scholars and commoners of Guangzhou and the surrounding counties, this was an unforgettable day. The Australians had come from the sea, silently and without bloodshed, seizing the largest city in southern China. By full daylight, the city gates were manned by "Hair-shorn soldiers" in blue-gray short uniforms carrying muskets. Squads of soldiers in gray patrolled the streets. The entire city was quiet and orderly; many shops had opened their doors. The commoners were both shocked and fascinated: just like that, overnight, Guangzhou had changed masters!
 
-Just as Liu Xiang had said in his speech to the Northward Expedition team members before entering Guangzhou, this was a "major examination" for the Senate. Before this, they had only governed some semi-agricultural small county towns. Even Qiongzhou, the prefectural capital, was a negligible small city by mainland standards. Guangzhou was not only the largest city in Lingnan but also the first and foremost great and famous city in China in this time-space. Lin Baiguang estimated that the resident population here was at least 500,000.
+Fortunately, the new masters were not strangers. In recent years, the Australians had become a semi-public presence in Guangzhou. Even those with no business or labor dealings with them had bought Australian goods: various kinds of "Australian paper," "Australian matches," "Australian cloth," "Hair-shorn socks"... These small items had long become part of daily life.
 
-Governing a city of 500,000 people was not an easy task even in the 21st century. If before they were painting on a blank canvas, now they had to repaint on a canvas already smeared with a kaleidoscope of strange and colorful colors, erasing the flaws while not destroying the exquisite parts. The difficulty could be imagined.
+In the past, they had been merchants who traveled armed. Now they had openly become the rulers here. No one knew how the Australians would govern this great city.
 
-These difficult problems were now circling in the mind of Liu Xiang, who was riding a sedan chair into the city.
+Rumors about their governance in Lingao County had spread here to some extent, though many dismissed them as exotic tales from overseas. Others who knew the actual situation were curious to see if Australian methods could work in Guangzhou—after all, the population of a single street here exceeded that of all Lingao County.
 
-He had originally wanted to ride a service carriage into the city to display the majesty of the Senate. For this purpose, a Red Flag carriage had already been shipped to Wuyang Post Station. However, Lin Baiguang said that carriages couldn't travel in the city. Apart from a few main streets, general streets were very narrow, making carriage passage difficult. Not only that, but the bridges in the city were not designed for vehicle passage at all. They were all steep arch bridges with densely packed steps. In the past, Guangzhou Station had tried to promote rickshaws in Guangzhou City, but it was ultimately dropped due to the bridge problem.
+As Liu Xiang had told the Northward Expedition team members before entering the city, this was a "major examination" for the Senate. Previously, they had only governed semi-agricultural small county towns. Even Qiongzhou, the prefectural capital, was negligible by mainland standards. Guangzhou was not merely the largest city in Lingnan—it was the premier metropolis of China in this era. Lin Baiguang estimated the resident population at no fewer than five hundred thousand.
 
-Although Liu Xiang didn't mind walking into the city, his subordinates all opposed it: first, it was not conducive to protection; second, for the dignified Guangzhou Military Control Commission Chairman and Guangzhou Mayor to walk into the city would diminish the prestige of the Senate.
+Governing a city of half a million was no easy task even in the twenty-first century. If before they had been painting on blank canvas, now they had to repaint one already smeared with a kaleidoscope of strange and brilliant colors—erasing the flaws while preserving what was precious. The difficulty was immense.
 
-Given this reason, the small two-man sedans at the sedan shops near the Great South Gate wouldn't do. Fortunately, there was a ready-made official sedan at Wuyang Post Station. The Postmaster, who had formally surrendered, hurriedly tidied it up and called four sedan bearers to carry the sedan. Eager to please, he found all the various supernatural beings and monsters who lived scattered in the post station outside the Great South Gate.
+These problems now circled through the mind of Liu Xiang as his sedan chair bore him into the city.
 
-"Quick! Go clear the way for the Australian master!"
+He had originally wanted to ride a service carriage to display the Senate's dignity. A Red Flag carriage had been shipped to Wuyang Post Station for this purpose. But Lin Baiguang had pointed out that carriages couldn't travel through the city. Apart from a few main thoroughfares, the streets were too narrow. More problematically, the bridges in the city weren't designed for wheeled vehicles—they were all steep arch bridges with densely packed steps. Guangzhou Station had once tried to promote rickshaws within the city, but ultimately abandoned the idea because of the bridge problem.
 
-When Liu Xiang came out, the full ceremonial arrangement was already in place. The clearing gong, the "Silence" and "Make Way" signs, various flags and ritual implements were all complete and imposing. All kinds of personnel were dressed in official attire, waiting below.
+Though Liu Xiang didn't mind walking, his subordinates objected on two grounds: first, it would complicate security; second, for the dignified Chairman of the Guangzhou Military Control Commission and Mayor of Guangzhou to walk into the city would diminish the Senate's prestige.
 
-Seeing him come out, the Postmaster ran all the way to him and knelt down, saying: "Your Excellency! The ceremonial procession has been arranged. Please mount the sedan!"
+Given these concerns, the small two-man chairs at the sedan shops near the Great South Gate wouldn't suffice. Fortunately, an official sedan was available at Wuyang Post Station. The Postmaster, who had formally surrendered, hurried to prepare it, summoning four bearers and rounding up all the various ceremonial functionaries—spirits and demons alike—who lived scattered around the post station outside the Great South Gate.
 
-Liu Xiang didn't know whether to laugh or cry. The ceremonial pomp of feudal officials was really impressive. He then instructed: "There's no need for so many people. Just prepare one sedan..."
+"Quickly! Clear the way for the Australian master!"
 
-The Postmaster, who had been obedient since the surrender, was very insistent on this point: "Your Excellency's words are wrong. The Great Song has recovered Guangzhou, and Your Excellency is an Imperial Envoy. It is absolutely unacceptable to conduct yourself too simply. Otherwise, it will make the scholars and commoners disrespect the Great Song. In my humble opinion, this ceremonial display is still too small to manifest the majesty of our Great Song."
+When Liu Xiang emerged, the full ceremonial procession was already arranged. The clearing gong, the "Silence" and "Make Way" signs, various flags and ritual implements—all were in place and imposing. The personnel stood in official attire, waiting.
 
-Liu Xiang saw that the naturalized citizen cadres and soldiers around him also showed expressions of agreement. He couldn't help but feel emotional. He said: "These elaborate ceremonial items and flags are all based on the ritual system of the Zhu Ming. How can I use them?"
+Seeing him, the Postmaster rushed over and knelt: "Your Excellency! The procession is ready. Please mount the sedan!"
 
-This was reasonable. The Postmaster thought about it and said: "Since that is so, the clearing procession should still be used. Otherwise, it would be bad if the commoners unknowingly offend the procession."
+Liu Xiang didn't know whether to laugh or cry. The ceremonial pomp of feudal officialdom was certainly impressive. He instructed: "There's no need for all these people. Just prepare one sedan..."
 
-Liu Xiang couldn't refuse further. So he "mounted the sedan" and set off. The gong striker didn't know what rank Liu Xiang was as a Great Song official and didn't dare to strike randomly. He asked a naturalized citizen cadre: "What rank is Master Liu?"
+The Postmaster, obsequious since his surrender, was insistent on this point: "Your Excellency's words are mistaken. The Great Song has recovered Guangzhou, and Your Excellency is an Imperial Envoy. It is utterly unacceptable to present yourself too simply. Otherwise, the scholars and commoners will lose respect for the Great Song. In my humble opinion, even this ceremonial display is too modest to manifest our Great Song's majesty properly."
 
-The naturalized citizen cadre said: "Chief Liu is a Senator, extremely noble. What rank could there be?"
+Liu Xiang noticed the naturalized citizen cadres and soldiers around him nodding in agreement. He felt moved. He said: "These elaborate items and flags are all based on the Ming ritual system. How can I use them?"
 
-The gong striker thought to himself that this was "above all ranks." Generally, that meant a duke or marquis level figure. Anyway, more courtesy was never wrong, so he struck the gong thirteen times.
+This was a fair point. The Postmaster considered, then said: "Since that is so, the clearing procession should still be used. Otherwise, the commoners might unknowingly give offense to the procession."
 
-Amid the gong sounds of "All officials, military, civilian, and others, make way," Liu Xiang's entourage marched majestically towards the city. Behind the clearing gong and the "Silence and Make Way" signs, the Morning Star Flag fluttered in the wind. Thirty guards carrying rifles with fixed bayonets, and in the center, an eight-man sedan, with someone behind the sedan holding up his Senator Eagle Flag. Following the flag were more than ten naturalized citizen cadres. At the end were another twenty fully armed guard soldiers.
+Liu Xiang couldn't refuse further. So he "mounted the sedan" and set off. The gong-striker didn't know what rank Liu Xiang held as a Great Song official and didn't dare strike at random. He asked a naturalized citizen cadre: "What rank is Master Liu?"
 
-Liu Xiang's destination was the Guangzhou Prefecture Yamen. This was the office he was most concerned about. For him as Guangzhou Mayor, the Guangzhou Prefecture and the shelf archives and veteran clerks of the two subordinate counties of Panyu and Nanhai had immeasurable value. Much basic information had to be obtained from these. So when formulating the occupation plan, he specifically requested that the National Army entering Guangzhou should first occupy these places.
+The cadre replied: "Chief Liu is a Senator—supremely noble. What rank could there be?"
 
-Liu Xiang's procession slowly passed through the main streets and alleys. For a time, spectators were packed like a wall—the Guangzhou citizens, who had recovered from the shock of the city's fall in the morning, already knew that the "Guangzhou Prefect" of the Australians was coming. Everyone wanted to see the demeanor of this new "Prefect Lord." The National Army had to be deployed along the route to maintain order. Even the runners from the yamens of one prefecture and two counties in Guangzhou came to offer their attentive services, rushing to clear the way and shout. For a time, the splendor was endless.
+The gong-striker reasoned that this meant "above all ranks"—generally, a duke or marquis. More courtesy was always safer, so he struck the gong thirteen times.
 
-Liu Xiang sat upright in the sedan, watching this scene, his heart full of various emotions. As they say, a great man should live like this, probably meaning this. He was a PhD student who had been kneaded and exploited by his advisor, and now he had become a local grandee sitting in the seat of a high official. How could commoners experience such feelings...
+Amid the gong's proclamation of "All officials, military, civilian, and others, make way!" Liu Xiang's entourage marched majestically toward the city. Behind the clearing gong and the "Silence and Make Way" signs, the Morning Star Flag fluttered in the wind. Thirty guards carrying rifles with fixed bayonets flanked an eight-man sedan, behind which someone held aloft his Senator's Eagle Flag. Following the flag were more than ten naturalized citizen cadres, and at the rear marched another twenty fully armed guards.
 
-Amid the monotonous gong sounds, he arrived at the Guangzhou Prefecture Yamen. He dismounted from the sedan in front of the screen wall. Liu Xiang got off the sedan and stomped his slightly numb legs. In front of him, the screen wall was concave in shape, five meters high and more than twenty meters wide, made of gray bricks. The bricks bore the inscriptions "Guangzhou Prefectural City" and "Guangzhou Prefecture." Looking at the Great Eight Characters Wall in front of the gate opposite, the gray brick walls on both sides each had four stone tablets inlaid. The inscriptions were unknown.
+Liu Xiang's destination was the Guangzhou Prefectural Yamen. This office was his primary concern. As Guangzhou Mayor, the archives and experienced clerks of the Prefecture and its two subordinate counties—Panyu and Nanhai—held immeasurable value. Much essential information had to be obtained from them. So when formulating the occupation plan, he had specifically requested that the National Army entering Guangzhou secure these locations first.
+
+Liu Xiang's procession passed slowly through the main streets and alleys. Spectators packed the route like walls—the Guangzhou citizens, recovered from the morning's shock of the city's fall, knew that the "Guangzhou Prefect" of the Australians was coming. Everyone wanted to see the bearing of this new "Prefect Lord." The National Army had to deploy along the route to maintain order. Even the runners from the yamens of the one prefecture and two counties came to offer their attentive services, rushing to clear the way and shout commands. The splendor was endless.
+
+Liu Xiang sat upright in the sedan, watching this scene, his heart stirring with emotion. As the saying goes, *a great man should live like this*—this was probably what it meant. He had been a PhD student, kneaded and exploited by his advisor, and now he had become a local grandee sitting in the seat of a high official. How could ordinary people experience such feelings...
+
+Amid the monotonous gong sounds, they arrived at the Guangzhou Prefectural Yamen. He dismounted before the spirit wall. Liu Xiang stepped out and stomped his slightly numb legs. Before him, the spirit wall was concave in shape, five meters high and more than twenty meters wide, built of gray brick. The bricks bore the inscriptions "Guangzhou Prefectural City" and "Guangzhou Prefecture." Opposite, on the Great Eight Characters Wall at the gate, gray brick walls on both sides each had four stone tablets inlaid. He couldn't read the inscriptions from here.
 
 Even before entering the yamen, just this entrance already felt imposing.

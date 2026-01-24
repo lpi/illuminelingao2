@@ -8,7 +8,7 @@ After eating the congee his mother had saved for him, Zeng Juan was about to rev
 
 These were his sister's three surviving children. The fourth had been stillborn when she died in childbirth.
 
-Ever since his sister's death, no one had been looking after the three children. Zeng Juan's parents, full of pity for their grandchildren, sent him every ten days or so to check on them and bring a few things.
+Ever since his sister's death, no one had been looking after the three children properly. Zeng Juan's parents, full of pity for their grandchildren, sent him every ten days or so to check on them and bring a few things.
 
 Zeng Juan was not especially eager to go. Since his brother-in-law had remarried, every visit meant enduring the new wife's cold looks and snide remarks. But his mother insisted.
 
@@ -18,11 +18,11 @@ Zeng Juan was not especially eager to go. Since his brother-in-law had remarried
 
 "What do you know? Where there's a stepmother, there's a step-father." His mother had prepared a bundle of summer clothes for the children. "Take these. And put on a bit of an uncle's authority."
 
-Zeng Juan had no choice but to accept. He knew his mother was right: without the maternal family standing behind them, the three children would suffer terribly. He was fond of his nephew and nieces.
+Zeng Juan had no choice but to comply. He knew his mother was right: without the maternal family standing behind them, the three children would suffer terribly. And he was fond of his nephew and nieces.
 
 He left with the bundle and headed down the street. In fact, his sister's husband's place was only two streets away—just a few alley turns and he'd be there.
 
-He arrived at the tea-house door. Business was good; customers filled the tables. It was a modest little establishment, typical of the neighborhood—a tiny two-story building with no more than a dozen tables between both floors. There had once been an awning out front with four or five more tables, which also sold seasonal treats like mooncakes in their time; now it had been dismantled completely. Ever since the illegal-structure demolitions on Chengxuan Street, everyone knew the *kun* people meant business—a few coins slipped to the runners no longer sufficed. Most people hadn't waited for official notice before tearing things down themselves. A few who thought their "backers" were tough enough had had their structures razed by the government and been hauled off to the yamen for a flogging and fines—while their so-called "backers" hadn't so much as uttered a peep.
+He arrived at the tea-house door. Business was good; customers filled the tables. It was a modest little establishment, typical of the neighborhood—a tiny two-story building with no more than a dozen tables between both floors. There had once been an awning out front with four or five more tables, which also sold seasonal treats like mooncakes in their time; now it had been dismantled completely. Ever since the illegal-structure demolitions on Chengxuan Street, everyone knew the Australians meant business—a few coins slipped to the runners no longer sufficed. Most people hadn't waited for official notice before tearing things down themselves. A few who thought their "backers" were powerful enough had had their structures razed by the government and been hauled off to the yamen for a flogging and fines—while their so-called "backers" hadn't so much as uttered a peep.
 
 Zeng Juan's brother-in-law's "backer" was a runner in the Panyu County Quick Class, related by some vague familial tie. For a tea-house or eatery, without someone from official circles to stand behind you, you simply couldn't stay open.
 
@@ -34,7 +34,7 @@ Brother-in-law was at the counter doing accounts. Seeing Zeng Juan approach, his
 
 "Fine, fine, fine." Brother-in-law took the bundle with an expression of distaste and tossed it carelessly behind the counter. "No sickness, no injury—that's 'well.' Is there something else?"
 
-Ever since his sister's death, his brother-in-law's attitude had grown colder by the day. Had it been up to Zeng Juan's temper, he'd have turned and left on the spot. But his mother's admonition still rang in his ears. He said, "I'd like to see the children."
+Ever since his sister's death, his brother-in-law's attitude had grown colder by the day. Had it been up to Zeng Juan's temper, he'd have turned and left on the spot. But his mother's admonition still rang in his ears. "I'd like to see the children."
 
 That kicked the hornet's nest. Brother-in-law's face darkened and he sneered, "Your family's meddling a bit too much, isn't it? They're descendants of the Cao family—what do they have to do with the Zengs? I'm their father, after all! Why must you and your mother poke your noses in every few days? If you ask me, you'd do better to study hard, pass the *xiucai* exam, and save your father from boiling stinking tallow—that would be proper!"
 
@@ -58,15 +58,15 @@ At the sight of him, Mingnu's tears began to fall before she even opened her mou
 
 At the question, Mingnu's lips quivered as if she were about to wail. Zeng Juan hastily covered her mouth. "Don't cry, don't cry. Tell me slowly."
 
-Through sobs, Mingnu explained that the night before, she had broken a teacup while washing dishes, and "Mother" had punished her by making her kneel. She had knelt the whole night until she collapsed on the floor. Even now her knees were swollen; she could barely walk...
+Through her sobs, Mingnu explained that the night before, she had broken a teacup while washing dishes, and "Mother" had punished her by making her kneel. She had knelt the whole night until she collapsed on the floor. Even now her knees were swollen; she could barely walk...
 
-Mingnu was only ten, and being male, Zeng Juan naturally couldn't inspect her himself. But seeing how labored her steps were, he knew she wasn't lying.
+Mingnu was only ten, and being male, Zeng Juan naturally couldn't inspect her injuries himself. But seeing how labored her steps were, he knew she wasn't lying.
 
-"What about your father? Didn't he try to calm things down?"
+"What about your father? Didn't he try to intervene?"
 
 "Father did tell Mother to cool off, said a teacup wasn't worth much. But Mother flew into a rage, saying she must have sinned through eight generations to end up running this household." Mingnu wept as she spoke. "Working herself to the bone in the shop for a pittance, and on top of that having to look after our food and clothes..." She shrank into herself. "She screamed like a madwoman. Father didn't dare say another word."
 
-Zeng Juan's heart ached. He crouched down and gently rubbed her knees. Mingnu bared her teeth—it clearly hurt badly. His eyes stung; he nearly wept. Then he asked, "And Chengzi and Huazi? Are they all right?"
+Zeng Juan's heart ached. He crouched down and gently rubbed her knees. Mingnu bared her teeth—it clearly hurt badly. His eyes stung; he nearly wept himself. Then he asked, "And Chengzi and Huazi? Are they all right?"
 
 "They don't even dare to speak at home now. They're terrified of making Mother angry."
 
@@ -74,7 +74,7 @@ Zeng Juan noticed that Mingnu's clothes were still tidy, just a bit grubby; her 
 
 Mingnu nodded. "There's food, just nothing good. Huazi asked for fish and got slapped across the face. Mother says Father's tea-house doesn't make any money, can't even cover daily expenses..." Suddenly she burst into tears again and threw her arms around his waist. "Uncle! Please, please ask Grandmother to take me home! I heard Mother and Father talking—business is bad, they're short on cash—they want to sell me to a big household as a maid-servant..."
 
-Zeng Juan trembled with rage. Stepmothers abusing their predecessors' children was the way of the world. As long as no one died, no one thought much of it. No matter how indignant or sympathetic he felt, he could only swallow it. But to sell his niece into domestic bondage—that was beyond the pale. He couldn't believe his brother-in-law's family was truly so desperate. This woman was trying to purge his sister's children!
+Zeng Juan trembled with rage. Stepmothers abusing their predecessors' children was the way of the world. As long as no one died, no one thought much of it. No matter how indignant or sympathetic he felt, he could only swallow it. But to sell his niece into domestic bondage—that was beyond the pale. He couldn't believe his brother-in-law's family was truly so desperate. This woman was trying to purge his sister's children entirely!
 
 His sister's flesh and blood, all that remained of her in this world—he couldn't let them be ruined.
 
@@ -84,11 +84,11 @@ Even if they meekly submitted to his scolding, what then? Zeng Juan knew that af
 
 A vast frustration churned in his chest, yet all his anger was futile. In this matter, he was utterly powerless. He could only comfort her: "Don't be afraid. Uncle will go home and think of something. I won't let you become a maid-servant." He rummaged in his sleeve for a long while, then could only sigh helplessly.
 
-On the way back, Zeng Juan kept turning the problem over in his mind—how could he stop this? His family had no money, no powerful "threshold" to lean on as backing—and even if they had, no one dared stick their neck out these days. Lost in these chaotic thoughts, he suddenly heard someone hawking:
+On the way back, Zeng Juan kept turning the problem over in his mind—how could he stop this? His family had no money, no powerful "threshold" to lean on for backing—and even if they had, no one dared stick their neck out these days. Lost in these chaotic thoughts, he suddenly heard someone hawking:
 
 "Fresh Australian paper! Come and have a look..."
 
-He stopped in his tracks. *How could I have forgotten him?* It was the Australians' world now. Why not ask Zhang Yu—a man in favor with the Australians—for help? He'd actually met a real *kun* Chief! One word from an Australian and that dog-couple would be scared witless!
+He stopped in his tracks. *How could I have forgotten?* It was the Australians' world now. Why not ask Zhang Yu—a man in favor with the Australians—for help? He'd actually met a real Australian Chief! One word from an Australian and that dog-couple would be scared witless!
 
 ---
 

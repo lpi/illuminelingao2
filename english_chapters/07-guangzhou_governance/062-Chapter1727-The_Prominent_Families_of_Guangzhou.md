@@ -1,101 +1,103 @@
 # Chapter 1727: The Prominent Families of Guangzhou
 
-This was a solid question, and Lü Yizhong had to treat it seriously. He thought for a moment and said, "As for the number one gentry family in Guangzhou, that would have to be Chen Jisheng's family."
+This was a substantive question, and Lü Yizhong treated it seriously. After a moment's thought, he said: "The foremost gentry family in Guangzhou would have to be the family of Chen Jisheng."
 
-Liu Xiang thought about the materials he had read, and it seemed there was no gentry with this name. He asked again, "Who is this person?"
+Liu Xiang reviewed the materials in his memory, but he couldn't recall any gentry by that name. He asked: "Who is this person?"
 
-"Speaking of this person, he is quite famous," Lü Yizhong said. "The Tanhua of the Jivei year of Wanli, former Right Vice Minister of Rites, and Lecturer before the Emperor..."
+"Speaking of him, he is quite famous," Lü Yizhong said. "The *Tanhua* of the *Jivei* examination year under Wanli, former Right Vice Minister of Rites, Lecturer before the Emperor..."
 
-Liu Xiang said, "Could it be Chen Zizhuang?"
+Liu Xiang said: "Could you mean Chen Zizhuang?"
 
-Lü Yizhong nodded: "It is indeed Mister Qiutao. His style name is Jisheng."
+Lü Yizhong nodded: "Indeed—it is Mister Qiutao. His courtesy name is Jisheng."
 
-Liu Xiang vaguely remembered that the materials said Chen Zizhuang was imprisoned in the Imperial Prison by Chongzhen for "offending the Emperor." Had he been released now? He asked: "I remember he was imprisoned for offending the Ming Emperor."
+Liu Xiang vaguely recalled that the materials had mentioned Chen Zizhuang being imprisoned in the Imperial Prison by Chongzhen for "offending the Emperor." Had he been released? He asked: "I remember he was imprisoned for displeasing the Ming Emperor."
 
-"He returned last year," Lü Yizhong said. "Someone pleaded for him, and it is said that the Empress Dowager also interceded for him. In April last year, he 'redeemed his sentence and returned home.' However, he still has the status of a 'guilty official' and rarely shows his face in the city, living in his villa on Baiyun Mountain all the time."
+"He returned last year," Lü Yizhong said. "Someone pleaded on his behalf, and it's said the Empress Dowager also interceded for him. In April last year, he 'redeemed his sentence and returned home.' However, he still carries the status of 'guilty official' and rarely shows his face in the city, residing permanently in his villa on Baiyun Mountain."
 
-Liu Xiang originally only knew that Chen Zizhuang was one of the "Three Loyalists of Lingnan," but he didn't expect him to be the number one gentry in Guangzhou City! Thinking about it again, no one in Guangzhou City could compare with him in terms of imperial examination honors. He was stripped of his post and reduced to a commoner for not compromising with Wei Zhongxian back then. The year before last, he was beaten at court and imprisoned for "speaking frankly." He was simply a model of the scholar-officials in the late Ming Dynasty. His status and appeal among the gentry could be imagined.
+Liu Xiang had originally known only that Chen Zizhuang was one of the "Three Loyalists of Lingnan"—he hadn't realized he was also the foremost gentry of Guangzhou City! Reflecting further, no one in the city could match his examination honors. He had been stripped of his post and reduced to commoner status for refusing to compromise with Wei Zhongxian. The year before last, he had been flogged at court and imprisoned for "speaking frankly." He was simply a model of the late Ming scholar-official. His status and appeal among the gentry could well be imagined.
 
-This person participated in the anti-Qing movement after the fall of Ming, fighting repeatedly despite repeated defeats. Finally, he was captured but refused to surrender and was executed by the Manchu Qing with cruel torture. Before dying, he even shouted, "Sawing a person requires a wooden board!" His character was extremely unyielding. He probably wouldn't be easy to deal with.
+This man had participated in the anti-Qing resistance after the Ming's fall, fighting repeatedly despite repeated defeats. Eventually captured, he refused to surrender and was executed by the Manchu Qing with cruel torture. Before dying, he had even shouted: "Sawing a person requires a wooden board!" His character was extremely unyielding. He would probably not be easy to deal with.
 
-"Who is next?"
+"Who comes next?"
 
-"That would have to be the Liang family. This family has a deep connection with the Senate..."
+"That would be the Liang family. This family has deep connections with the Senate..."
 
-Liu Xiang knew he was talking about Liang Cunhou's family. The earliest gentry they connected with in Guangzhou City was Liang Cunhou. Later, when setting up the charity hall and recruiting refugees in Guangzhou, the Liang family contributed greatly, and the interactions were quite close. It wasn't until after the Chengmai Campaign that the relationship between the two sides gradually began to cool down. However, the Liang family had always been directors of the charity hall, and they still exchanged courtesies for celebrations and condolences. In short, there was no lack of etiquette. It was just that Liang Cunhou rarely came to Guo Yi's residence anymore.
+Liu Xiang knew he was speaking of Liang Cunhou's family. The earliest gentry they had connected with in Guangzhou was Liang Cunhou. Later, when establishing the charity hall and recruiting refugees in Guangzhou, the Liang family had contributed greatly, and interactions were quite close. Only after the Chengmai Campaign did the relationship between the two sides gradually cool. Nevertheless, the Liang family had always been directors of the charity hall, and they still exchanged courtesies for celebrations and condolences. In short, proper etiquette was maintained—though Liang Cunhou himself rarely visited Guo Yi's residence anymore.
 
-"You mean Liang Cunhou's family, right?"
+"You mean Liang Cunhou's family?"
 
-"Yes. His grandfather was the late Minister of Revenue Liang Renpu, and his father Liang Wendao served two terms as Prefect. The Liang family has a tradition of scholarship and etiquette, with imperial honors in every generation. The family has extensive land and property, and they are extremely particular about their clothing and utensils. They can be called a family of great wealth and nobility." Lü Yizhong said excitedly, " In terms of the ingenuity of gardens and pavilions, the beauty of concubines, the deliciousness of food and drink, and the exquisiteness of clothing and utensils, no second family in Guangzhou City can compare with them."
+"Yes. His grandfather was the late Minister of Revenue Liang Renpu, and his father Liang Wendao served two terms as Prefect. The Liang family has a tradition of scholarship and propriety, with imperial honors in every generation. The family possesses extensive land and property and is extremely particular about their clothing and utensils. They can be called a family of great wealth and nobility." Lü Yizhong spoke with enthusiasm: "In terms of the elegance of gardens and pavilions, the beauty of concubines, the sumptuousness of food and drink, and the refinement of clothing and utensils—no second family in Guangzhou City can compare."
 
-Then he mentioned several other famous gentry families in the city. Liu Xiang roughly summarized that the common characteristics of the leading figures among these gentry were that they had imperial honors for several generations, at least a Juren, and usually had passed the Jinshi examination and held positions in both the central and local governments. By intervening in local administration and organizing charities, they had great discourse power among the gentry and commoners. Their families had vast wealth and held the status of both big landlords and big merchants. Their clans were huge, with numerous children.
+He then mentioned several other famous gentry families in the city. Liu Xiang summarized their common characteristics: the leading figures among these gentry had imperial honors spanning several generations—at minimum a *Juren*, usually a *Jinshi*—and had held positions in both central and local government. By intervening in local administration and organizing charities, they wielded great influence over both gentry and commoners. Their families possessed vast wealth and held the status of both great landlords and major merchants. Their clans were enormous, with numerous offspring.
 
-Liu Xiang thought to himself: This is a combination of gentry power, clan power, and discourse power.
+Liu Xiang thought to himself: *This is a combination of gentry power, clan power, and discursive power.*
 
-The gentry the Senate encountered in Hainan mostly had insignificant imperial honors and low official positions. Even if there were a few gentry like Wang Honghui in Ding'an who were Jinshi and had held high positions, because of Hainan's poor economic situation and small population, their family power was often not large. Wang Honghui rose to the position of Minister of Rites in Nanjing, and his son served as a Prefect, but the Wang family only trained fifty or sixty village braves in Longmei Village. Even if they opposed the Senate, they couldn't make any waves.
+The gentry the Senate had encountered in Hainan mostly had insignificant examination honors and held minor offices. Even when there were a few gentry like Wang Honghui in Ding'an—who were *Jinshi* and had held high positions—because of Hainan's poor economic conditions and small population, their family power was often limited. Wang Honghui had risen to Minister of Rites in Nanjing, and his son had served as a Prefect, yet the Wang family had only managed to train fifty or sixty village militia in Longmei Village. Even opposing the Senate, they couldn't have made much of a disturbance.
 
-Compared to them, the gentry in Guangzhou were like giants. It would not be an easy task to suppress and eliminate them.
+Compared to them, the gentry in Guangzhou were like giants. Suppressing and eliminating them would be no easy task.
 
-Seeing his solemn expression, Lü Yizhong knew that the Australians hated gentry controlling the locality the most, so he hurriedly said: "The gentry and big households are people with families and properties. Even if they didn't know the importance of things in the past and were somewhat arrogant, as long as the Chief points out a clear path for them, shows them power, and cherishes them with virtue, they will naturally bend like grass in the wind."
+---
 
-Liu Xiang nodded and asked again, "So how should this be done?"
+Seeing his solemn expression, Lü Yizhong knew the Australians despised—even resented—gentry controlling localities. So he hastened to say: "The gentry and major households are people with homes and property. Even if they failed to recognize what was important in the past and were somewhat arrogant, as long as the Chief shows them a clear path forward, demonstrates power, and cherishes them with virtue, they will naturally bend like grass in the wind."
 
-"First, we must put them at ease," Lü Yizhong said. "I wonder if the Chief has an order to summon the gentry of this city?"
+Liu Xiang nodded. "So how should this be done?"
 
-"Not yet." Liu Xiang had indeed thought about this. But he felt that this matter was not urgent, so he hadn't handed it over to his subordinates.
+"First, they must be put at ease," Lü Yizhong said. "I wonder—has the Chief issued an order summoning the gentry of this city?"
 
-"This matter should be done quickly. Although the Heavenly Army entered the city without committing any crimes and the city is peaceful, it is a change of dynasty after all. The gentry must be uneasy in their hearts. We must calm their hearts quickly. As long as the gentry are at ease and not chaotic, the common people will not be chaotic either. It also cuts off the thoughts of many people."
+"Not yet." Liu Xiang had considered this, but felt it wasn't urgent enough to delegate to his subordinates.
 
-Liu Xiang was puzzled: "What do you mean by cutting off thoughts?"
+"This matter should be handled quickly. Although the Heavenly Army entered the city without incident and the city is peaceful, it remains a change of dynasty. The gentry must be uneasy. We must calm their hearts quickly. As long as the gentry are at ease and not in turmoil, the common people won't be in turmoil either. It also cuts off many people's thoughts."
 
-"Every big clan has restless children, as well as those with foolish loyalty who just won't get it. Now that the Heavenly Army has suddenly descended, people's hearts are anxious, not knowing what actions the Senate will take. Under suspicion and fear, they fear being incited by others. If the Chief puts their hearts at ease, even if there are a few restless children, they will be suppressed by the patriarchs—how many people are willing to use their lives and property to be 'loyal and unyielding'? At that time, if there really are a few jumping clowns, the Chief won't even need to investigate; people within the clan will come to report them."
+Liu Xiang was puzzled: "What do you mean by 'cuts off thoughts'?"
 
-Liu Xiang smiled: "Good, good, Mister Lü is indeed a talent."
+"Every great clan has restless scions, as well as those with foolish loyalty who simply won't understand. Now that the Heavenly Army has descended suddenly, people's hearts are anxious—they don't know what actions the Senate will take. In their suspicion and fear, they become vulnerable to incitement. If the Chief puts their hearts at ease, even if there are a few restless individuals, the patriarchs will suppress them—how many are truly willing to gamble their lives and property on being 'loyal and unyielding'? At that point, if any jumping clowns remain, the Chief won't even need to investigate; people within their own clans will come forward to report them."
 
-Lü Yizhong hurriedly said: "The Chief praises me too much."
+Liu Xiang smiled: "Good, good. Mister Lü is indeed a talent."
+
+Lü Yizhong hastened to demur: "The Chief praises me too much."
 
 "However, how can we put their hearts at ease?"
 
-Lü Yizhong had a well-thought-out plan and said: "The gentry all have academic degrees from the Ming state and have held offices in the Ming state. Suddenly changing to a new dynasty, they are inevitably a little apprehensive. In my humble opinion, the Senate might as well proclaim to the world: The Great Song recognizes all academic degrees from the Ming state. This will not only calm the hearts of the gentry but also win the hearts of scholars all over the world."
+Lü Yizhong had clearly thought this through: "The gentry all hold academic degrees from the Ming state and have served in its offices. Suddenly changing to a new dynasty, they are inevitably apprehensive. In my humble opinion, the Senate might proclaim to the world that the Great Song recognizes all academic degrees from the Ming state. This will not only calm the hearts of the gentry but also win the hearts of scholars throughout the realm."
 
-Liu Xiang nodded slightly. This move was indeed powerful—the Manchus also used this trick when they entered the pass. It could be called a masterstroke in winning over the hearts of scholars. He hadn't thought of this in his original plan.
+Liu Xiang nodded slightly. This was indeed a powerful move—the Manchus had used the same tactic when they entered the pass. It could be called a masterstroke for winning over scholars. He hadn't thought of this in his original plan.
 
-Once this policy came out, it would inevitably reduce the resistance to the Senate's "pacification by proclamation" in Guangdong.
+Once such a policy was announced, it would inevitably reduce resistance to the Senate's "pacification by proclamation" in Guangdong.
 
-However, the Senate despised and even was hostile towards traditional intellectuals. Would coming up with such a policy get him labeled as a "capitulationist"? He hesitated a bit.
+However, the Senate disdained—even harbored hostility toward—traditional intellectuals. Would proposing such a policy get him labeled a "capitulationist"? He hesitated.
 
-Lü Yizhong was such a clever person. Seeing him silent, he gave a few dry laughs and said: "This is just a humble opinion of this lowly official, a humble opinion."
+Lü Yizhong was perceptive. Seeing Liu Xiang's silence, he gave a few dry laughs: "This is merely a humble opinion of this lowly official—just a humble opinion."
 
-While Lü Yizhong and Liu Xiang were talking, Guo Xi'er came to the rear quarters. The two female family members of Prefect Dong, who had committed suicide, were still here.
+---
 
-Some luggage and items had already been piled up at the courtyard gate, and several National Army soldiers were guarding them. Prefect Dong's servants and family members were still detained here and had not been transferred to Guangxiao Temple—the Planning Institute Special Search Team still needed to find clues to the hidden silver from their mouths.
+While Lü Yizhong and Liu Xiang were talking, Guo Xi'er made her way to the rear quarters. The two female family members of Prefect Dong—who had contemplated suicide—were still there.
 
-Guo Xi'er greeted the guarding soldiers and entered the courtyard. The main room was already empty. She stood at the door of the west wing room and shouted: "Concubine Jiang! Concubine Jiang!"
+Luggage and belongings had already been piled at the courtyard gate, with several National Army soldiers standing guard. Prefect Dong's servants and family members were still detained here, not yet transferred to Guangxiao Temple—the Planning Institute's Special Search Team still needed to extract clues about hidden silver from them.
 
-The door curtain was lifted, and a woman came out of the room. She was only in her early thirties, with plentiful flesh and cloud-like hair, an oval face without makeup, graceful and charming, her charm undiminished. It was just that she had suffered a disaster, her hair was disheveled, and her face was dark and yellow. She came out, shrinking back, lowered her head, stood, and said: "Miss Guo, did you call me? Please come inside to talk."
+Guo Xi'er greeted the guards and entered the courtyard. The main room was already empty. Standing at the door of the west wing, she called out: "Concubine Jiang! Concubine Jiang!"
 
-Guo Xi'er walked in. The east wing also had three rooms, one bright and two dark. The middle one was for living, and the two sides were used as bedrooms. Guo Xi'er came from a poor family and knew very little about the style of big families. But the east wing faced west. It was exposed to the sun in summer and the northwest wind in winter. It was the coldest in winter and hottest in summer. Concubine Jiang and her daughter living here showed their status in the Dong family.
+The door curtain lifted, and a woman emerged. She was only in her early thirties, with a plump figure and cloud-like hair, an oval face without makeup—graceful and charming, her allure undiminished. But she had suffered disaster: her hair was disheveled, her face sallow. She came out hesitantly, lowered her head, and stood: "Miss Guo, did you call for me? Please come inside to talk."
 
-The furnishings in the room were also simple. The arrangement was neat and elegant, showing that a lot of care had been taken.
+Guo Xi'er stepped in. The east wing had three rooms—one bright, two dark—the center for living, the sides for sleeping. Coming from a poor family, Guo Xi'er knew little about the ways of great households. But she understood that the east wing faced west: scorched by sun in summer, exposed to northwest winds in winter—the coldest in winter, hottest in summer. Concubine Jiang and her daughter living here revealed their status in the Dong household.
 
-Concubine Jiang asked her to sit down. Guo Xi'er said, "No need. I'm just here to pass on a message: The Chief said he won't see you. He wants you to be at ease." She repeated what Liu Xiang had said, and comforted her with a few sentences:
+The room's furnishings were simple, but the arrangement was neat and elegant, showing considerable care.
 
-"Although your master is gone, you and your daughter still have to live. Don't take your own lives lightly—the Senate always gives everyone a way out. If you mother and daughter have difficulties, I will naturally report them for you."
+Concubine Jiang invited her to sit. Guo Xi'er said: "No need. I'm just here to relay a message: the Chief said he won't see you. He wants you to be at ease." She repeated Liu Xiang's words and offered a few words of comfort:
 
-The woman was somewhat disappointed and responded in a low voice. Suddenly, the curtain was flung open, and a young girl walked out from inside. She was only fifteen or sixteen years old, wearing a lotus-colored vest with sky-cyan borders and a narrow-sleeved long jacket. She generously curtsied to Guo Xi'er and said: "Blessings to you, Miss! This servant knows that the Australian Master is busy and has no time to pay attention. It's just that this servant has important military intelligence to report. If the Australian Master knows, there will be great benefits."
+"Although your master is gone, you and your daughter still have to live. Don't take your own lives lightly—the Senate always gives everyone a way out. If you mother and daughter have difficulties, I will naturally report them on your behalf."
 
-Guo Xi'er was a bit troubled hearing this. She didn't know what these "great benefits" were, but she understood the weight of "important military intelligence." She didn't know what "important military intelligence" this girl had. If there was nothing important at all, wouldn't the Chief blame her?
+The woman seemed somewhat disappointed and responded quietly. Suddenly, the curtain was flung aside, and a young girl emerged from within. She was only fifteen or sixteen, wearing a lotus-colored vest with sky-blue borders and a narrow-sleeved long jacket. She curtsied generously to Guo Xi'er: "Blessings to you, Miss! This servant knows the Australian Master is busy and has no time for us. It's just that this servant has important military intelligence to report. If the Australian Master learns of it, there will be great benefits."
 
-Originally, she shouldn't have taken on this matter. It was just that seeing the mother and daughter were pitiful, and Concubine Jiang spoke with an accent from her hometown, her heart softened and she agreed.
+Guo Xi'er felt troubled hearing this. She didn't know what these "great benefits" might be, but she understood the weight of "important military intelligence." If this girl had nothing important to say, wouldn't the Chief blame her?
 
-She hesitated and said: "Miss Dong, can you tell me a little about this important military intelligence? The Chief is very busy. If it's nothing important..."
+Ordinarily, she shouldn't have taken on this matter. But seeing the pitiful state of mother and daughter—and recognizing Concubine Jiang's accent as being from her own hometown—her heart had softened and she had agreed.
 
-Miss Dong said: "Go tell your master: I want to see him not for revenge, nor to ask for favors. I know the whereabouts of many high-ranking officials in this Guangzhou Prefecture. As long as he is willing to see me, he will definitely get a great credit before the Emperor of the Great Song."
+She hesitated: "Miss Dong, can you tell me a little about this intelligence? The Chief is very busy. If it's nothing important..."
 
-This surprised Guo Xi'er a bit. First, this girl's father had just committed suicide for the Great Ming. Not only had her status as an official's daughter vanished, but her future was also uncertain: officials dying in office, their families stranded in foreign lands, suffering from poverty and illness, and even falling into the brothel pit, were common occurrences in the past.
+Miss Dong said: "Go tell your master: I don't seek this meeting for revenge, nor to beg favors. I know the whereabouts of many high-ranking officials hiding in this Guangzhou Prefecture. As long as he's willing to see me, he will certainly earn a great merit before the Emperor of the Great Song."
 
-The Jiang mother and daughter could now be said to have both national hatred and family rancor concentrated in their bodies. Such a girl suddenly proposed to help the Australians capture the local "high officials" hiding among the people. Guo Xi'er couldn't wrap her head around it for a moment, not knowing how to answer.
+This startled Guo Xi'er somewhat. This girl's father had just committed suicide for the Great Ming. Not only had her status as an official's daughter vanished, but her future was uncertain: officials dying in office, their families stranded in foreign lands, suffering poverty and illness, even falling into brothels—such fates were common enough.
 
-However, the report just sent did mention that the whereabouts of several provincial officials of the Great Ming in Guangzhou City were unknown. It was not known where they were hiding, and they were being searched for.
+The mother and daughter could now be said to bear both national hatred and family grievance concentrated in their persons. For such a girl to suddenly propose helping the Australians capture local "high officials" hiding among the populace—Guo Xi'er couldn't wrap her head around it. She didn't know how to respond.
 
-(End of this chapter)
+Yet the report sent just earlier had mentioned that several provincial officials of the Great Ming in Guangzhou City were unaccounted for—whereabouts unknown. They were being searched for.

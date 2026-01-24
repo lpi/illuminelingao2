@@ -4,7 +4,7 @@ The banquet was not lavish—with a major campaign imminent, word of feasting wo
 
 What had arrived with him at Guangzhou World was the fruit of his and the Foreign Intelligence Bureau's years of labor: several thick crates containing *A Comprehensive Survey of Guangdong Province*. This compilation included not only materials on key military installations in Guangdong and Guangxi that the Great Library had brought from the future timeline—copies and reorganizations—as well as records of major weather events and earthquakes from the past three years, but also the intelligence they had gathered over these years, ready for immediate reference.
 
-But this was not the main reason he had come to Guangzhou so early. In fact, he bore an even more important mission: to execute a series of "decapitation strikes."
+But this was not the main reason he had come to Guangzhou so early. He bore an even more important mission: to execute a series of "decapitation strikes."
 
 The Foreign Intelligence Bureau had compiled a roster of the commanding officers at every strategic checkpoint and barrier from the Pearl River estuary to Guangzhou. Before the offensive was formally launched, specialists would be sent to "persuade" them to "cooperate" when the time came. The inducements on offer included guarantees of personal and family safety, substantial bribes, and safe escape routes—everything one could wish for.
 
@@ -14,7 +14,7 @@ Based on the intelligence in hand, Lin Baiguang was confident that the Southern 
 
 The two guards at the entrance saw he was a transmigrator, snapped to attention, and saluted. Lin Baiguang said, "I'm just going for a stroll," and descended the stairs slowly toward the topmost observation deck.
 
-On the observation deck, apart from a Lingao-made single-tube telescope, there was only the sentry on duty. Lin Baiguang waved him to be at ease. He stood on the deck and gazed at Guangzhou, not far away. By the standards of this timeline, the city's lights could be called "brilliant"—in many places he had visited, after nightfall only a handful of spots showed any light at all; everywhere else was pitch-dark silence.
+On the observation deck, apart from a Lingao-made single-tube telescope, there was only the sentry on duty. Lin Baiguang waved him to be at ease and stood gazing at Guangzhou, not far away. By the standards of this timeline, the city's lights could be called "brilliant"—in many places he had visited, after nightfall only a handful of spots showed any light at all; everywhere else was pitch-dark silence.
 
 The "brilliant" lights limned the silhouette of Guangzhou's walls and towers as a dark shadow. This was the largest city in southern China—indeed, in all of South Asia—and within its nearly one million inhabitants was accumulated incalculable wealth. Even by future-era standards, it was a dazzling metropolis. Such a tempting prize! And yet the Yuan Council had endured five years, toiling away in silence in a desolate little county, until this day.
 
@@ -28,19 +28,19 @@ To attribute it simply to his "healthy" lifestyle these past years didn't seem e
 
 *Could there be something strange going on?* He lit a cigar.
 
+---
+
 Less than a hundred kilometers offshore from Guangzhou, three H800 transport ships and an escorting patrol boat were sailing in formation. This was part of the 10th Infantry Battalion from Lingao and elements of the army and brigade headquarters units. Tian Liang and his company were aboard one of these ships.
 
-The soldiers had boarded with their rifles, bayonets, and personal gear. Many in the unit had mixed feelings about these familiar ships: it was vessels like these that had carried them out of a living hell, giving them a new life. But the rough voyage and the relatives who had died en route—their bodies thrown directly into the sea—had also left them with somber memories.
+The soldiers had boarded with their rifles, bayonets, and personal gear. Many in the unit had mixed feelings about these familiar ships: it was vessels like these that had carried them out of a living hell, giving them a new life. But the rough voyages and the relatives who had died en route—their bodies thrown directly into the sea—had also left them with somber memories.
 
 Tian Liang inspected each squad's accommodations one by one. The space allotted to the soldiers was minimal. Berths were divided into upper and lower tiers, and once you crawled in you could only sit. Each man had roughly one square meter of space. Setting down personal gear left almost no room; if you wanted to lie down and sleep, you had to use your pack as a pillow and unroll your blanket.
 
-The holds had been scrubbed down before the troop transport, so the conditions were reasonably clean. But the space was cramped and dimly lit. Only the berths near the deck hatches could catch some light through the grated covers; everywhere else had to rely on lanterns hung along the passageways.
+The holds had been scrubbed down before the troop transport, so conditions were reasonably clean. But the space was cramped and dimly lit. Only the berths near the deck hatches could catch some light through the grated covers; everywhere else relied on lanterns hung along the passageways.
 
 Tian Liang supervised the soldiers in stowing their gear. Each squad was issued a lidded tin bucket—the so-called "vomit bucket."
 
 The company medic made rounds distributing anti-nausea medication, ordering the soldiers to lie down and rest to prevent seasickness.
-
----
 
 Tian Liang's quarters were slightly better than the enlisted men's. He and the company's two other officers shared a three-tier bunk and a small fold-down table mounted on the wall.
 
@@ -48,15 +48,15 @@ After inspecting the troops, he went up on deck. At the bow, equipment for trans
 
 Standing on deck, he could see the scenery on both sides of the Qiongzhou Strait clearly. Villages and towns along the coast showed scattered points of light. Overhead, the rigging creaked and groaned, and the sails made a soft *flapping* sound. As the ship advanced, the lights of Bopu Town, shrouded in twilight, gradually receded into the distance. Tian Liang stood by the gunwale, gripping the rope railing tightly. A wave of heat surged in his chest, and he couldn't speak a word. He could only stand there in silence.
 
-The next day Tian Liang woke early. He hadn't slept well in the cramped, pitching ship. He put on his jacket and came up on deck, where quite a few soldiers and officers were already breathing fresh air and attending to bodily needs.
+The next day Tian Liang woke early, having slept poorly in the cramped, pitching ship. He put on his jacket and came up on deck, where quite a few soldiers and officers were already breathing fresh air and attending to bodily needs.
 
-There were, of course, no toilets aboard. Fortunately, a solution had been devised back when the ships were carrying refugees: wooden structures extending beyond the gunwale's outer railing, assembled from sturdy planks. No roof, no walls—just two planks spaced just right for the floor. For safety, a grab-rail was installed nearby, and anyone using the "facilities" had to loop a rope tether around their Y-strap webbing so that if they fell, there was a chance of rescue.
+There were no toilets aboard. Fortunately, a solution had been devised back when the ships were carrying refugees: wooden structures extending beyond the gunwale's outer railing, assembled from sturdy planks. No roof, no walls—just two planks spaced just right for the floor. For safety, a grab-rail was installed nearby, and anyone using the "facilities" had to loop a rope tether around their Y-strap webbing so that if they fell, there was a chance of rescue.
 
 The "latrines" were crude but sanitary—no cleaning required. The drawback was that the concentrated discharge of human waste attracted sharks—so falling overboard meant certain death.
 
-Freshwater aboard was limited, and with so many soldiers crowded on, each man was allotted one tea-cup's worth. Tian Liang first rinsed his mouth, then poured the rest onto a towel and scrubbed his face haphazardly. By then the mess bell was already clanging incessantly.
+Freshwater aboard was limited, and with so many soldiers crowded on, each man was allotted one tea-cup's worth. Tian Liang first rinsed his mouth, then poured the rest onto a towel and scrubbed his face haphazardly. By then the mess bell was already clanging.
 
-The ship's galley crew had begun serving breakfast. The soldiers' meals aboard were provided by the Navy. Tian Liang had expected them to be served "gruel"—the fare he'd eaten on many previous crossings—but to his surprise, what arrived were tinplate mess tins of steamed rice made from quick-cook rice, topped with large slices of fish cake and shredded pickled radish. Hot soybean-paste soup with kelp and radish came in insulated buckets. After finishing the meal, a bowl of soup made one feel warm all over.
+The ship's galley crew had begun serving breakfast. Since the Navy provided the soldiers' meals aboard, Tian Liang had expected "gruel"—the fare he'd eaten on many previous crossings—but to his surprise, what arrived were tinplate mess tins of steamed rice made from quick-cook rice, topped with large slices of fish cake and shredded pickled radish. Hot soybean-paste soup with kelp and radish came in insulated buckets. After finishing the meal, a bowl of soup made one feel warm all over.
 
 Tian Liang didn't get seasick and ate with relish. After breakfast, each man was issued another mess-tin of water to wash his utensils.
 

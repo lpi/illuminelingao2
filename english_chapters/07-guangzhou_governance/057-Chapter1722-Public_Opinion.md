@@ -1,85 +1,95 @@
 # Chapter 1722: Public Opinion
 
-Magistrate Wu knew that he was in a besieged city with no hope of breaking out, so he resolved to defend to the death and wait for reinforcements from the prefectural capital—he did not believe the Hair-shorn thieves' shouts that Guangzhou had already fallen. For such a large prefectural city, even if the Hair-shorn thieves could take it, it would take ten days or half a month. Moreover, from night until now, not a single cannon shot had been heard.
+Magistrate Wu knew he was trapped in a besieged city with no hope of breaking out, so he resolved to defend to the death and await reinforcements from the prefectural capital. He refused to believe the enemy's shouts claiming Guangzhou had already fallen. A city that size—even if the Hair-shorn bandits could take it, surely it would require ten days or a fortnight. Besides, from nightfall until now, not a single cannon shot had been heard from that direction.
 
-However, he also knew that the common people were not of one mind with him. The officers and soldiers were only willing to defend the city because he spent money lavishly without hesitation. So he issued a notice: anyone who dared to secretly collude with the roving bandits outside the city would have their entire family beheaded; their property would be confiscated and rewarded to the soldiers and civilians defending the city. He tried to use this to strengthen the determination of the defending army. At the same time, he strictly prohibited the commoners defending the city from talking to the Righteous Army outside. However, most of the soldiers in the city were acquainted with the commoners and were afraid of retaliation if the city fell, so when they saw commoners on the wall talking to those outside, although they constantly cursed and waved their sabers, they didn't really take action.
+Yet he also knew the common people were not of one mind with him. The officers and soldiers defended the walls only because he spent silver lavishly and without hesitation. So he issued a stern proclamation: anyone caught secretly colluding with the bandits outside would have their entire family beheaded; their property would be confiscated and distributed as rewards to the soldiers and civilians defending the city. He hoped this would stiffen the defenders' resolve. At the same time, he strictly forbade the militia on the walls from speaking with the Righteous Army outside.
 
-When Wu Guangzhi saw the people on and below the city wall chatting, he was afraid that the commoners would be bewitched by the Hair-shorn thieves. Seeing quite a few Hair-shorn thief soldiers approaching the city, he immediately ordered the cannons on the city wall to fire.
+Most soldiers in the city, however, were acquainted with the locals and feared retaliation should the city fall. When they saw people on the wall conversing with those below, they cursed and waved their sabers menacingly—but never actually struck.
 
-The officers and soldiers hesitated and were unwilling to act. Wu Guangzhi flew into a rage: "Fire the cannons quickly!" Then he roared again: "Five liang of silver for each cannon fired!"
+When Wu Guangzhi observed the defenders chatting with the enemy, he worried they would be seduced by Hair-shorn rhetoric. Seeing quite a few enemy soldiers approaching the walls, he immediately ordered the cannons to fire.
 
-This time, the two cannons on the South Pass fired simultaneously. The cannonballs flew out, but the gunners deliberately aimed too high: one fell directly into the river, and the other landed in the mud flat.
+The gunners hesitated, reluctant to act. Wu Guangzhi flew into a rage: "Fire the cannons!" Then he roared again: "Five taels of silver for each shot fired!"
 
-The naval guns on the patrol boats immediately returned fire. Six cannons fired at the same time, aiming at the city wall. Wu Guangzhi saw the flash of fire on the city wall and immediately waved his hand, telling everyone to scatter and duck down to take cover. The cannonballs destroyed two more battlements, cutting three able-bodied men hiding behind them in half. One cannonball flew into the city, destroyed a thatched house, and set it on fire.
+This time, the two cannons on the South Pass discharged together. The cannonballs flew wide—the gunners had deliberately aimed too high. One splashed into the river; the other thudded harmlessly into a mudflat.
 
-At this time, several large tin loudspeakers were set up below the city. A few loud-voiced soldiers shouted there: "Officers, soldiers, gentry, and commoners inside the city, listen: immediately capture the magistrate and open the city to surrender. Otherwise, after we take Xin'an, the entire city will be slaughtered, not even chickens and dogs will be spared!"
+The patrol boats' naval guns answered immediately. Six cannons fired in unison at the wall. Wu Guangzhi saw the muzzle flashes and waved frantically for everyone to scatter and take cover. The barrage destroyed two more battlements and cut three crouching militiamen in half. One ball sailed into the city, demolished a thatched hut, and set it ablaze.
 
-There was a commotion on the city wall. Wu Guangzhi, holding a Japanese saber, stared with bloodshot eyes and roared: "Don't be afraid, everyone! These are empty threats from the Hair-shorn thieves. They only have a few hundred men and a few boats. Don't even think about touching a single hair of our Xin'an! Drive away the Hair-shorn thieves, and every soldier and civilian defending the city will be rewarded fifty liang! Double for those who die in battle!"
+Then, from below the walls, several large tin loudspeakers were set up. Soldiers with powerful voices began shouting: "Officers, soldiers, gentry, and commoners inside—hear this: capture the magistrate immediately and open the gates to surrender! Otherwise, when we take Xin'an, every living thing in this city shall be slaughtered—not even chickens or dogs will be spared!"
 
-Beside him were several dozen soldiers and militiamen who had been fed with silver, and they also roared along, occasionally waving their sabers. They temporarily suppressed the commotion.
+Commotion rippled along the walls. Wu Guangzhi, gripping his Japanese saber with bloodshot eyes, roared: "Don't be afraid! These are empty threats! They have only a few hundred men and a handful of boats. They won't touch a hair on Xin'an's head! Drive off the Hair-shorn bandits, and every soldier and civilian who defends the city will receive fifty taels! Double for those who die in battle!"
 
-Wu Guangzhi saw that the people's hearts were unstable. Glaring, he saw a militiaman not far away sneaking glances outside, seemingly making some kind of gesture. He immediately pointed his saber and roared: "Seize him!"
+The several dozen soldiers and militiamen around him—those he had personally fed with silver—roared along with him, occasionally brandishing their weapons. They temporarily quelled the unrest.
 
-His personal guards rushed over, twisting the militiaman's arms and grabbing his shoulders, pushing him in front of Wu. The militiaman looked bewildered and frightened, shouting repeatedly: "Why are you arresting me?"
+But Wu Guangzhi sensed the wavering morale. Scanning the walls with fierce eyes, he spotted a militiaman not far away sneaking glances outside, apparently making some kind of gesture. He pointed his saber and bellowed: "Seize him!"
 
-Wu Guangzhi said grimly: "I saw clearly. You were just talking and colluding with the Hair-shorn thieves on the city wall, and just now you were making gestures outside. You must be a spy for the Hair-shorn thieves! Come! Behead him!"
+His personal guards rushed over, twisted the man's arms behind his back, and shoved him before the magistrate. The militiaman looked bewildered and terrified, shouting: "Why are you arresting me?"
 
-The militiaman kept crying that he was wronged. The guards on both sides dragged him down the ramp and at the foot of the city wall, they raised their saber and chopped off his head.
+Wu Guangzhi spoke grimly: "I saw everything. You were talking to the Hair-shorn bandits on the wall, and just now you were signaling to them. You must be a spy! Take him and strike off his head!"
 
-"Display the head at the city gate!" Magistrate Wu roared, "Anyone who dares to collude with the Hair-shorn thieves again, anyone who doesn't put effort into defending the city, this is the consequence!"
+The militiaman protested his innocence. The guards dragged him down the ramp, and at the foot of the wall, they raised their blade and severed his head.
 
-Wu Guangzhi killed the man, established his authority, and temporarily suppressed the people. However, at this moment, more than a dozen whistling arrows were shot from outside the city. Notices were attached to the whistling arrows. Wu Guangzhi, afraid that people would pick them up and shake the people's hearts, sternly ordered: "Don't pick up the whistling arrows!" His guards hurried to pick them up, but some were still picked up by quick-footed people.
+"Display it at the city gate!" Magistrate Wu roared. "Let this be the consequence for anyone who dares collude with the enemy or shirk their duty in defense!"
 
-He opened the "Notice" and saw that it was written hastily in ink brush, limiting the soldiers and civilians inside the city to open the gates and surrender within one hour. The Grand Army would not touch a single hair, and all living beings in the city would be preserved. The Grand Army would only execute the magistrate upon entering Xin'an County.
+The execution established his authority and temporarily cowed the populace. But at that moment, more than a dozen whistling arrows arced over the walls with notices attached. Fearing the people would retrieve them and lose heart, Wu Guangzhi sternly commanded: "Don't touch those arrows!" His guards hurried to collect them, but some were snatched up by quicker hands first.
 
-Although he tried his best to suppress the news, the gentry in the city still saw the "Notice," and some soldiers also saw it. Everyone discussed it privately, unable to stop it.
+He opened one of the notices. It had been hastily inked, giving the soldiers and civilians one hour to open the gates and surrender. The Grand Army would not harm a single person, and all lives within the city would be preserved. Only the magistrate would be executed upon the army's entry into Xin'an County.
 
-The gentry and civilians in the city all wanted to surrender and didn't want to fight. The Australians had always had a reputation for not touching a single hair, but they also had a reputation for being cruel and merciless to those who resisted. Therefore, everyone felt that regardless of whether the prefectural capital had fallen, surrendering first to preserve their lives and property was the most important thing. Especially the gentry, who had already been forced to take out large sums of silver to defend the city. Feeling that their interests had been damaged, they no longer wanted to accompany Magistrate Wu in being "loyal."
+Despite his best efforts to suppress the news, the gentry in the city saw the notices, as did some soldiers. Private discussion spread like wildfire.
 
-Wu Guangzhi knew that the people's hearts in the city were unstable, especially the gentry's attitude being ambiguous. This made him very panicked. When he served in Shaanxi, he had defeated "roving bandits" attempting to attack the city more than once, relying precisely on the wholehearted support of the gentry in the county. But the Hair-shorn thieves here seemed different from the roving bandits—neither the gentry nor the commoners had an attitude of hostility or fear towards them.
+---
 
-He summoned several officials in the county to discuss. No one could come up with any ideas. Instead, they advised him to stop defending. The Educational Director of the county school said: The Hair-shorn thieves have always had prestige locally, and the commoners and gentry would not support hard resistance against them. He also said:
+The gentry and civilians all wanted to surrender rather than fight. The Australians had long been known for keeping their word and leaving the submissive unharmed—but they were equally renowned for ruthlessness toward those who resisted. Everyone felt that regardless of whether the prefectural capital had fallen, surrendering now to preserve lives and property was paramount. The gentry felt this especially keenly, having already been forced to contribute large sums for the city's defense. Feeling their interests had been damaged, they had no desire to accompany Magistrate Wu in his martyrdom.
 
-"The Hair-shorn thieves have always been lenient to the submissive and strict to the defiant. Right now, there has been no big battle and no big casualties. If Magistrate Wu surrenders by leaving the city, the Hair-shorn thieves will surely not harm you."
+Wu Guangzhi was acutely aware of the instability within the city, particularly the gentry's ambiguous stance. This alarmed him greatly. During his service in Shaanxi, he had repelled bandit assaults multiple times by relying precisely on the wholehearted support of local gentry. But the Hair-shorn bandits here seemed different—neither gentry nor commoners regarded them with hostility or fear.
 
-Wu Guangzhi ordered them to leave and remained alone in the room, worrying back and forth, unable to think of a good solution. Cannons were firing again from the river. He couldn't help but stamp his feet and sigh, pacing around the pillar, talking to himself:
+He summoned the county's officials to discuss the situation. No one offered useful suggestions. Instead, they urged him to stop resisting. The Educational Director of the county school spoke plainly: the Hair-shorn bandits had long enjoyed prestige locally, and neither commoners nor gentry would support armed resistance. He added:
 
-"Alas, I never expected I would end up like this!"
+"The Hair-shorn bandits have always been lenient to the submissive and harsh to the defiant. As of now, there has been no major battle and no significant casualties. If the Magistrate surrenders by leaving the city, the bandits will surely not harm you."
 
-Near noon, the officials, gentry, and elders in the city came to the county yamen to seek an audience. Wu Guangzhi welcomed everyone into the flower hall. The situation in the hall today was very different from usual. Three months ago, when he first arrived in Xin'an, the gentry and elders held a welcoming banquet for him, and he was very pleased in the hall. Just this morning, he suppressed the Thousand-Household who had tried to mutiny and convened the officials and gentry to discuss strengthening the city defenses. The gentry and elders were also respectful and obedient, calling him a rare "capable official." However, the situation suddenly changed, and the flower hall was full of worried faces.
+Wu Guangzhi dismissed them and remained alone, pacing in anguish, unable to conceive of a solution. Cannons boomed again from the river. He stamped his feet and sighed, circling the pillars, muttering to himself:
 
-After everyone sat down, a leading gentleman spoke first:
+"Alas, I never imagined I would end like this!"
 
-"Now all the officials, gentry, and elders of the city have come to see Magistrate Wu, not for anything else, but just to ask Magistrate Wu to find a way to preserve the lives of all the officials, gentry, soldiers, and civilians of the city."
+---
 
-He understood their intentions in his heart and still wanted to try to persuade them: "I am doing my best to defend. I am prepared to fight the roving bandits to the death. This is to preserve the lives and property of all the officials, gentry, and commoners."
+Near midday, the officials, gentry, and elders of the city came to the county yamen requesting an audience. Wu Guangzhi received them in the Flower Hall. The atmosphere was starkly different from his arrival three months earlier, when the gentry had hosted a welcoming banquet and he had basked in their respect. Just that morning, after suppressing the Thousand-Household's attempted mutiny, he had convened these same men to discuss strengthening the defenses, and they had been deferential, praising him as a "capable official." Now, suddenly, the Flower Hall was filled with anxious faces.
 
-Another gentleman said: "Fighting to the death will never win, and there is no certainty in defending the city. If we persist in defending, not only will we not be able to preserve the lives of the officials, gentry, and commoners, but we will instead suffer the disaster of the city being slaughtered. Has Magistrate Wu thought about this?"
+After everyone was seated, a leading gentleman spoke first:
 
-Wu Guangzhi said: "Surrendering without a fight may indeed allow us to survive for a while, but we will also become fish on the chopping block. After the Hair-shorn thieves enter the city, whether they burn and kill is all in their thoughts—even if they don't slaughter or burn, which of you gentlemen and elders doesn't have a family and property with wives and concubines? If the Hair-shorn thieves want you to contribute military pay and hand over beauties, at that time, gentlemen and elders, will you obey or not? You should know that at that time, you won't have a choice!"
+"We officials, gentry, and elders come before the Magistrate today for one purpose only: to ask that you find a way to preserve the lives of everyone in this city—officials, gentry, soldiers, and commoners alike."
 
-These words were reasonable and persuasive. If it were any other place, these words alone would have been enough. When he was a magistrate in Shaanxi, he repeatedly used such words to encourage the gentry, and they almost always worked. But they didn't work here. A gentleman said: "The Australians have always been true to their word, and they are not greedy for wealth or lustful."
+He understood their intent but still tried to persuade them: "I am doing everything possible to defend this city. I am prepared to fight the bandits to the death. This is how we preserve the lives and property of all."
 
-The gentry knew all about the various deeds of the Australians when they broke into the Pearl River a few years ago. For the market towns and villages that submitted and handed over grain and pay, the Australians did not destroy them, and the "reasonable burden" levied was also very light. They even destroyed many scattered pirates in the area on the way, and public order was temporarily stabilized. Those who organized militia to resist were severely punished, and the local gentry and powerful families were wiped out. The gentry were all afraid of ending up like this, so they strongly advocated opening the city and submitting.
+Another gentleman countered: "Fighting to the death cannot win, and there is no certainty in holding the walls. If we persist, we will not only fail to preserve anyone—we will invite a massacre. Has the Magistrate considered this?"
 
-"Even for your lordship himself, although you were momentarily confused, we will also speak well to the Australians and do our best to protect you."
+Wu Guangzhi replied: "Surrendering without a fight might preserve lives temporarily, but we would become fish on the chopping block. Once the Hair-shorn bandits enter the city, whether they burn and kill is entirely at their whim. Even if they refrain from slaughter—which of you doesn't have a family, property, wives, and concubines? If the bandits demand military contributions and beautiful women, will you comply or refuse? You should understand that by then, you will have no choice!"
 
-Another gentleman hurriedly said: "Even if the Australians don't stay here long, as long as your lordship doesn't accept a false position, the Australians' temperament is to never force you. At this urgent time, you should adapt to circumstances and not cling to a single word of 'loyalty.' After the Australians withdraw, we will still guard the territory for the court. Wouldn't that be the best of both worlds? Even if the court wants to pursue something, the gentry of this county will speak for your lordship."
+His argument was reasonable and persuasive. In any other place, such words would have sufficed. When he had served as magistrate in Shaanxi, similar speeches had repeatedly rallied the gentry to his side. But they carried no weight here.
 
-Wu Guangzhi was furious, secretly cursing "shameless." He restrained his anger and said slowly: "Since I was young and studying, I have read the books of the sages. The words 'loyalty to the monarch and patriotism' have been engraved in my heart since childhood, and I dare not forget them. Having received the Emperor's salary and grace, there is absolutely no reason to surrender."
+A gentleman responded: "The Australians have always kept their word. They are neither greedy for wealth nor lustful."
 
-The Educational Director of the county hadn't wanted to say much, but now the gentry's words had reached a deadlock with Wu Guangzhi, so he had to speak: "I beg Magistrate Wu to reconsider. People nowadays have no steadfast will, and an isolated city without reinforcements will inevitably fall. I am also an official of the court, assigned here, with a responsibility to guard the territory. Does Magistrate Wu have loyalty to the court, and don't I? I am also a Tribute Student, and have received the teachings of Confucius and Mencius. What is at stake now is the safety of a city's people! If your lordship thinks from the perspective of the people, temporarily surrendering to save the people is also a good deed."
+The gentry knew full well what the Australians had done during their previous incursion into the Pearl River. Towns and villages that submitted and handed over grain were left unharmed; the "reasonable contributions" levied were quite light. The Australians had even destroyed scattered pirates along the way, temporarily stabilizing local security. Those who organized militia resistance were severely punished—their gentry and powerful families annihilated. Everyone feared suffering the same fate, so they strongly advocated opening the gates.
 
-Wu Guangzhi sneered: "Since you are a Juuren, a person who has received the grace of the country and eaten the Emperor's salary, how will you face the Emperor in the future? Even if the people understand you, can the laws of the country understand you?"
+"Even for Your Honor personally—though you may have been momentarily misguided—we will speak on your behalf to the Australians and do our utmost to protect you."
 
-The Educational Director said: "Mencius said: The people are the most important, the State is next, and the monarch is the least important. Your lordship, don't sacrifice the lives of a city's people for a single word of 'loyalty'!"
+Another gentleman hastened to add: "Even if the Australians don't remain here long, as long as Your Honor doesn't accept a false position, the Australians will never force you. In this urgent moment, you should adapt to circumstances rather than cling stubbornly to the word 'loyalty.' After they withdraw, we will continue guarding this territory for the court. Wouldn't that be the best of both worlds? Even if the court wishes to investigate, we gentry of this county will speak in your defense."
 
-Everyone echoed in unison. Wu Guangzhi saw that he was very isolated. He fell silent for a while, sighed deeply, and said:
+Wu Guangzhi seethed inwardly, silently cursing them as shameless. He restrained his anger and said slowly: "Since my youth, I have studied the classics. The words 'loyalty to the monarch and love of country' have been engraved upon my heart since childhood, and I dare not forget them. Having received the Emperor's salary and grace, there is absolutely no justification for surrender."
 
-"You all leave for now, let me think first. Rest assured, I, Wu, will never implicate the officials, gentry, and commoners of this city!"
+The Educational Director, who had preferred to stay silent, now felt compelled to speak since the standoff between the gentry and the magistrate had reached an impasse: "I implore the Magistrate to reconsider. Men's hearts today lack steadfast resolve, and an isolated city without reinforcements must eventually fall. I too am a court official, assigned here with responsibility for this territory. Does the Magistrate alone possess loyalty? Am I not loyal as well? I am a Tribute Student who has received the teachings of Confucius and Mencius. What is at stake now is the safety of an entire city's population! If Your Honor thinks from the perspective of the people, a temporary surrender to save them is itself a virtuous act."
+
+Wu Guangzhi sneered: "Since you are a *Juren*, one who has received the nation's grace and eaten the Emperor's salary, how will you face the Emperor afterward? Even if the people understand you, can the laws of the realm?"
+
+The Educational Director replied: "Mencius said: 'The people are the most important; the state comes next; the ruler is the least.' Your Honor, do not sacrifice an entire city for a single word—'loyalty'!"
+
+Everyone echoed his sentiment. Wu Guangzhi saw how isolated he had become. He fell silent for a long moment, then sighed deeply:
+
+"Leave me now and let me think. Rest assured—I, Wu, will never implicate the officials, gentry, and commoners of this city."
 
 "There's not much time left..."
 
-After the meeting, Wu Guangzhi paced back and forth alone in the flower hall, very distressed. The ambition from this morning had already turned to ashes. He had the idea of committing suicide. If he died, he would be worthy of both the people and the Emperor...
+---
 
-However, before his thoughts were complete, there was already a commotion outside the county yamen. One of his servants, covered in blood, stumbled in, fell headlong to the ground, and used his last strength to shout: "Master! It's bad! The soldiers... the soldiers... have mutinied!"
+After the meeting, Wu Guangzhi paced alone in the Flower Hall, deeply distressed. The ambition he had felt that morning had turned to ash. The thought of suicide crossed his mind. If he died, he would be faithful to both the people and the Emperor...
+
+But before he could complete the thought, a commotion erupted outside the yamen. One of his servants, covered in blood, stumbled in, collapsed headlong to the floor, and with his last strength gasped: "Master! It's bad! The soldiers... the soldiers... have mutinied!"

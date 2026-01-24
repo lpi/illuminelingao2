@@ -1,93 +1,95 @@
 # Chapter 1795 - The Missing Wang Daniao
 
-"Perhaps... someone doesn't want us to know that Wang Daniao is already dead," Li Zhenguo said.
+"Perhaps... someone doesn't want us to know that Wang Daniao is already dead," Li Zhenguo suggested.
 
-"In that case, cutting off the head makes sense, but why cut off his genitals?" Wu Xiang still couldn't understand.
+"Then decapitation makes sense—but why castrate him?" Wu Xiang still couldn't understand.
 
-"I think it likely has the same meaning as chopping off his head," Gao Chongjiu muttered to himself for a moment and said, "Captain Wu, do you know how the nickname Wang Daniao (Big Bird Wang) came about?"
+"I think it carries the same meaning as removing the head." Gao Chongjiu considered for a moment. "Captain Wu, do you know how the nickname Wang Daniao—'Big Bird Wang'—came about?"
 
-It turned out this Wang Daniao was "endowed with extraordinary talent", his "instrument was magnificent", and he was extremely fond of women. Colleagues in the yamen then gave him such a nickname. Over time, it actually covered up his real name.
+It transpired that Wang Daniao was "endowed with extraordinary talent," his "instrument magnificent," and he was notoriously fond of women. His colleagues at the yamen had bestowed this sobriquet upon him, and over time it had eclipsed his actual name entirely.
 
-"I used to soak in the bathhouse with him, the size of his thing was indeed quite astonishing." A trace of wretched smile appeared on Gao Chongjiu's face, "This guy Wang Daniao is very lecherous, has several wives and concubines at home, and still messes around with women outside. He is quite famous in the yamen."
+"I used to soak in the bathhouse with him. The size of his equipment was quite astonishing." A crude smile flickered across Gao Chongjiu's face. "This Wang Daniao was tremendously lecherous—several wives and concubines at home, yet still pursuing other women outside. Quite famous for it around the yamen."
 
-This statement made some sense. The criminal police decided to first confirm if the corpse was Wang Daniao's.
+The reasoning held water. The criminal police decided to first confirm whether the corpse was indeed Wang Daniao's.
 
-How to verify? When Wang Daniao fled, it was very hasty, only taking his son and wife. There were still a few female relatives left at home. Finding a few who had bedded Wang Daniao should be able to identify some characteristics.
+How to verify? When Wang Daniao fled, he had departed hastily, taking only his son and primary wife. Several female relatives remained at home. Finding a few who had shared Wang Daniao's bed should allow identification of distinctive characteristics.
 
-Wu Xiang sent several police officers to the Wang family—although the Wang family hadn't been raided, they were under surveillance—and summoned all of Wang Daniao's concubines over.
+Wu Xiang dispatched officers to the Wang residence—though the family hadn't been formally raided, they remained under surveillance—and summoned all of Wang Daniao's concubines.
 
-After identification, it was confirmed that the headless corpse in South Scissors Alley was Wang Daniao!
+After examination, the identification was confirmed: the headless corpse in South Scissors Alley was Wang Daniao.
 
-Several items of clothing found at the scene were also identified by them as Wang Daniao's items.
+The concubines also identified several clothing items found at the scene as Wang Daniao's possessions.
 
-In this way, the possibility that Li Zhenguo deduced—decapitation and castration were to cover up the victim's identity—increased greatly.
+Li Zhenguo's deduction—that decapitation and castration were meant to obscure the victim's identity—now seemed increasingly plausible.
 
-"After tossing and turning for three or four days, we finally stand at the starting point." Wu Xiang said with emotion.
+"After three or four days of circling, we finally stand at the starting point," Wu Xiang remarked with weary satisfaction.
 
-Only by clarifying the victim's identity could the investigation work of the murder case be considered started.
+Only by establishing the victim's identity could a murder investigation truly begin.
 
-With the case developing to this point, the police roughly sorted out the entire process of the crime.
+With the case advanced to this stage, the police assembled a rough reconstruction of the crime.
 
-The victim Wang Daniao had been hiding in Widow Wang's home for more than a month recently. During this period, the murderer frequently came to Widow Wang's home to meet him. This murderer came late and left early, staying overnight at the Wang house, with obvious intent to conceal his identity. Wang Daniao was in danger, yet still met with him frequently and let the murderer stay overnight, indicating the two not only knew each other but had an extraordinary relationship. The two were very likely secretly planning something.
+The victim, Wang Daniao, had been hiding in Widow Wang's home for over a month. During this period, the murderer had frequently visited to meet him, arriving late and departing early, spending nights at the house—clearly intent on concealing his own identity. Despite being in danger, Wang Daniao had met with him repeatedly and permitted overnight stays, indicating not merely acquaintance but an extraordinary relationship. The two were very likely conspiring together.
 
-For some reason, the murderer decided to kill Wang Daniao. The motive for killing was likely to seize a certain item. Wu Xiang believed the thing the murderer wanted was likely the "Drain Map".
+For reasons yet unknown, the murderer had decided to kill Wang Daniao. The motive likely involved seizing something of value. Wu Xiang believed that something was probably the Drain Map.
 
-For Wang Daniao, the most important thing was this Drain Map. When he fled from home, he didn't want gold, silver, or treasures, only taking this Drain Map. Because of its importance, the Drain Map was likely carried on his person.
+For Wang Daniao, nothing mattered more than this map. When fleeing his home, he had left behind gold, silver, and treasures, taking only the Drain Map. Given its importance, he likely kept it on his person at all times.
 
-However, based on existing clues, it remained unclear whether the murderer obtained the Drain Map.
+However, existing evidence could not determine whether the murderer had obtained the Drain Map.
 
-In the process of killing Wang Daniao, Widow Wang played the role of an accomplice. Judging from Wang Xiuzhu participating in the corpse disposal work, she was likely not coerced, but originally in the same gang as the murderer. The murderer silencing her indicated Wang Xiuzhu likely grasped many important situations—at least she knew what the murderer and Wang Daniao were talking about.
+In the course of killing Wang Daniao, Widow Wang had played the role of accomplice. Her participation in disposing of the corpse suggested she was not coerced but had belonged to the murderer's circle from the beginning. That the murderer silenced her indicated she likely possessed critical knowledge—at minimum, she knew what the murderer and Wang Daniao had been discussing.
 
-After discussion, the special task force decided to start screening from the interpersonal relationships surrounding Wang Daniao, Wang Dong, and Wang Xiuzhu. At the same time, try to find Wang Dong's whereabouts—the task force believed Wang Dong likely had another residence in Guangzhou City. For a young man who loved enjoyment like him, he probably wouldn't be content to hibernate in a corner to pass his days. Finding him should be easier.
+After deliberation, the special task force decided to begin screening the interpersonal networks surrounding Wang Daniao, Wang Dong, and Wang Xiuzhu. Simultaneously, they would attempt to locate Wang Dong—the task force believed he likely maintained another residence within Guangzhou City. A young man of his pleasure-seeking disposition would hardly content himself hibernating in some corner. Finding him should prove easier.
 
-Liu Xiang put down the latest issue of "Public Security Brief" sent by Mu Min and said to Lin Baiguang: "It seems things are not simple."
+---
 
-Lin Baiguang nodded: "This is beyond doubt. Wang Daniao's case can be basically confirmed to have political factors." He unhurriedly stubbed out the cigarette in his hand, "Obviously, the murderer taking such great pains to dispose of a labor foreman doesn't make sense. And that Drain Map, it's structurally important, but useless to an individual."
+Liu Xiang set down the latest issue of *Public Security Brief* that Mu Min had sent and addressed Lin Baiguang. "It seems this matter is not straightforward."
 
-"Correct. And this Zhuti Silver, also reveals strangeness." Liu Xiang was somewhat uneasy. Recently the municipal government was intensely preparing for the new currency issuance. The suddenly popping up Zhuti Silver made him somewhat restless.
+Lin Baiguang nodded. "Beyond doubt. Wang Daniao's case almost certainly involves political factors." He unhurriedly extinguished his cigarette. "Obviously, a murderer taking such elaborate pains to dispose of a mere labor foreman makes no sense. And that Drain Map—structurally important, certainly, but useless to any individual."
 
-"This, I'm afraid we can only know the reason after catching the murderer," Lin Baiguang said, "But you don't need to worry too much. This thing won't have too much impact on the new order of the financial market."
+"Correct. And this Zhuti Silver also smells strange." Liu Xiang felt unsettled. The municipal government was deep in preparations for the new currency issuance. The sudden appearance of Zhuti Silver left him restless.
 
-The amount of Zhuti Silver seized wasn't large, and the Great Library's reply was that Zhuti Silver didn't possess the possibility of large-scale inflow into Guangzhou. Even if it flowed in large scale, it didn't matter—Zhuti Silver contained nickel, which the industrial sector welcomed very much. If natives were willing to develop this trade, it should all be purchased.
+"That mystery, I'm afraid, will only be solved after catching the murderer," Lin Baiguang said. "But don't worry too much. This won't significantly impact the new financial market order."
 
-"Ideally so." Liu Xiang said, frowning, "In my view, the work of clearing drains and dredging silt cannot be delayed any longer. We originally pinned out hopes on finding the Drain Map, now it seems the situation is a bit complex. With Wang Daniao dead, the whereabouts of the Drain Map become even more confusing. We start working now."
+The quantity of Zhuti Silver seized remained small, and the Great Library's reply indicated that large-scale inflow into Guangzhou was virtually impossible. Even if it did flow in substantially, it wouldn't matter—Zhuti Silver contained nickel, which the industrial sector welcomed. If natives wished to develop this trade, all supplies should be purchased.
 
-Lin Baiguang nodded: "Good. I'll go arrange it. Also, Lingao proposed they can provide some technical support."
+"Ideally, yes." Liu Xiang frowned. "In my view, the work of clearing drains and dredging silt can wait no longer. We originally hoped to find the Drain Map first, but the situation has grown complicated. With Wang Daniao dead, the map's whereabouts become even more obscure. We must begin work immediately."
 
-"Having support is best, without it we still have to start quickly. It rained a few days ago, and urban waterlogging is quite severe. I went to see the flooded areas, drains don't drain, water bubbling out. The problem is not generally big. But manpower is still a bit insufficient."
- 
-Lin Baiguang smiled: "We now have preliminary grassroots organizations, we must use them. Lack of manpower doesn't matter. Call the Baojia to mobilize. One out of three males, all go to the construction site to open drains and clear silt."
+Lin Baiguang nodded. "Agreed. I'll make arrangements. Incidentally, Lingao has offered technical support."
 
-"Mobilizing so many people, food is a big expense, plus tools..."
+"Support would be excellent, but with or without it, we must start quickly. It rained a few days ago, and urban waterlogging is severe. I inspected the flooded areas—drains that don't drain, water bubbling up. The problems are substantial. But manpower remains insufficient."
 
-"We can start levying a cleaning fee, collected according to housing area and number of permanent residents. Levy extra pollution discharge fees on heavy pollution enterprises." Lin Baiguang said, "Guangzhou doesn't have a scavenger team yet, we can take this opportunity to establish one."
+Lin Baiguang smiled. "We now have preliminary grassroots organizations—we should use them. Manpower shortages don't matter. Mobilize through the *baojia*. One out of every three males to the construction sites, opening drains and clearing silt."
 
-"Good guy, you levying household by household, where do we get so many tax collectors? If handed over to the police bureau to collect, the police will run their legs off."
+"Mobilizing such numbers, food becomes a major expense—plus tools..."
 
-"The cleaning fee can be collected as a surtax." Lin Baiguang said, "This is actually a local tax, we just attach it to the retail link of grain. For every *jin* of grain sold, levy a certain amount of cleaning fee—common people have to eat, to eat they have to buy rice, paying the tax when buying rice. Doing this has another benefit, which is that taxation in the circulation link is relatively hidden. In the 21st century, many people still thought direct tax was the only tax, spouting strange theories like 'most Chinese don't pay tax'. In the 17th century, people who can understand this are even fewer."
+"We can levy a cleaning fee, collected according to housing area and number of permanent residents. Impose additional pollution discharge fees on heavy polluters." Lin Baiguang considered. "Guangzhou lacks any scavenger team. We can use this opportunity to establish one."
 
-"This idea is not bad, but this way wouldn't the grain price go up? You know we originally planned to levy business tax in the grain market."
+"Good heavens, collecting household by household—where do we find enough tax collectors? If we hand it to the police bureau, they'll run themselves ragged."
 
-The document establishing wholesale markets for grain and non-staple food was officially issued a few days ago. Lin Baiguang had been looking for suitable facilities to utilize these days—if not, he had to find a suitable place to build new ones.
+"The cleaning fee can be collected as a surtax," Lin Baiguang explained. "This is actually a local tax. We simply attach it to the retail link of grain. For every *jin* of grain sold, levy a certain amount of cleaning fee—people must eat, and to eat they must buy rice, paying the tax at purchase. This approach has another advantage: taxation in the circulation link is relatively invisible. In the twenty-first century, many people still believed direct tax was the only tax, spouting nonsense like 'most Chinese don't pay taxes.' In the seventeenth century, those who understand this are even fewer."
 
-"This tax amount is very small." Lin Baiguang said, "Small enough that you can ignore it, but the grain consumed by Guangzhou people every month is a massive figure. Adding together it becomes very considerable."
+"Not a bad idea. But won't this drive up grain prices? You know we planned to levy business tax in the grain market."
 
-"Alright, you really have a way." Liu Xiang said, "While clearing drains, also clean up illegal structures and garbage in the city. We have to plan well."
+The document establishing wholesale markets for grain and non-staple food had been officially issued days ago. Lin Baiguang had been scouting for suitable existing facilities—if none could be adapted, they would need to construct new ones.
 
-Clearing drains was just the first step, demolishing illegal structures was also easy. But how to dispose of the massive amount of silt and garbage after clearing drains, and how to settle the residents after demolishing illegal structures, all had to be planned ahead.
+"The tax amount is minuscule," Lin Baiguang assured him. "Small enough to ignore individually. But the grain consumed by Guangzhou's population each month is enormous. Aggregated, it becomes quite considerable."
 
-Cleaning out thousands upon thousands of tons of garbage from a big city with a population of several hundred thousand at once, expecting surrounding villagers to digest it immediately in the form of fertilizer was very difficult. There must be a designated place for stacking. Once the poor living in various illegal structures had their houses demolished and became homeless, they also had to have a place to be accepted. Otherwise, it would cause serious social problems.
+"All right, you really do have a gift for this." Liu Xiang nodded. "While clearing drains, we should also clean up illegal structures and garbage throughout the city. We'll need careful planning."
 
-The two discussed for a good while, making calculations on specific settlement methods and funding sources. Liu Xiang calculated with a pencil for a long time, sighing: "This job is really tedious."
+Clearing drains was merely the first step; demolishing illegal structures was also straightforward. But disposing of the massive quantities of silt and garbage after clearing, and resettling residents after demolitions—all required advance planning.
 
-"You, the one in charge, don't pick at details too finely. Tell Little Zhang to do the specific plan—also give her some opportunities to exercise." Lin Baiguang laughed, "She came to us for an internship, best give her some specific work, don't let her always do paperwork."
+Cleaning out thousands upon thousands of tons of garbage from a city of several hundred thousand at once, expecting surrounding villagers to immediately absorb it as fertilizer, was unrealistic. Designated stacking areas were essential. Once the poor living in illegal structures found their homes demolished and themselves homeless, they too would need places to go. Otherwise, serious social problems would ensue.
 
-"That's fine too." Liu Xiang nodded, picking up another report on the table. This was the meeting minutes sent by Zheng Shangjie regarding the First Plenary Session of the Guangzhou General Chamber of Commerce. Liu Xiang knew the current meeting was basically official red tape—because merchants didn't completely understand what kind of regime the Senate was. Out of the traditional concept of "whoever is Emperor, listen to them", industrialists and merchants inevitably appeared to be at the government's disposal on the surface. Asking them to speak their true hearts was impossible.
+The two discussed at length, calculating specific resettlement methods and funding sources. Liu Xiang worked through figures with his pencil for some time before sighing. "This job is truly tedious."
 
-Although it was official red tape, Liu Xiang still carefully flipped through the minutes. The First Congress used proportional representation, roughly taking into account all aspects. But looking at the speeches, those speaking more were still big merchants and big guilds. Small and medium merchants basically had no speeches. The content of speeches was also relatively empty. Obviously, before the big picture was settled, everyone was unwilling to appear "too active".
+"You, the one in charge, shouldn't get too mired in details. Assign the specific planning to Little Zhang—give her opportunities to develop." Lin Baiguang laughed. "She came to us for an internship. Best give her substantive work rather than endless paperwork."
 
-But this didn't matter. Liu Xiang knew the main purpose of this congress was to establish various trade associations underneath, organizing all industrial and commercial households, to facilitate conveying the Senate's voice and orders to them, and also for the convenience of taxation.
+"That's fair." Liu Xiang nodded and picked up another report on the table. These were the meeting minutes Zheng Shangjie had sent regarding the First Plenary Session of the Guangzhou General Chamber of Commerce. Liu Xiang recognized that the current proceedings were essentially official formalities—merchants still didn't fully understand what kind of regime the Senate represented. Following the traditional notion of "whoever holds power, obey them," industrialists and merchants inevitably appeared compliant on the surface, at the government's disposal. Expecting them to speak their true minds was unrealistic.
 
-Some larger industries, such as silk, grain, sauce and vinegar, printing and dyeing, spices, maritime trade, etc., originally had various guilds, but these guilds were relatively loose in organization. Due to differences in practitioners or conflicts of interest, having multiple guilds in one industry wasn't rare. In addition, the vast number of small merchants and small shops generally found it hard to join guilds, actually remaining outside of guilds.
+Though the proceedings were formal, Liu Xiang still reviewed the minutes carefully. The First Congress used proportional representation, roughly accommodating all constituencies. But examining the speeches, those who spoke most remained the major merchants and powerful guilds. Small and medium merchants barely participated at all, and the speech content was rather empty. Obviously, before the broader situation settled, no one wished to appear "too active."
 
-(End of Chapter)
+But this hardly mattered. Liu Xiang understood the congress's primary purpose: establishing various trade associations underneath, organizing all industrial and commercial households. This would facilitate conveying the Senate's voice and directives while simplifying taxation.
+
+Some larger industries—silk, grain, sauces and vinegar, printing and dyeing, spices, maritime trade—already possessed various guilds. But these organizations remained relatively loose. Due to differences among practitioners or conflicts of interest, multiple guilds within a single industry were common. Additionally, the vast numbers of small merchants and petty shops generally found it difficult to join guilds, remaining effectively outside the system.
+
+*End of Chapter*

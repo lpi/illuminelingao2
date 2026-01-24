@@ -18,7 +18,9 @@ Stamped coins still had to be weighed. One feature of stamped coinage was weight
 
 After discussions between Industry and Finance, it was agreed that with their current technical capabilities, tolerances could be held within 3‰. Coins were weighed on a continuous scale. The scale operated like a balance: as coins landed on the platform, if the counterweight's oscillation stayed within a certain range, the coin passed through to the exit; if it exceeded tolerance, the greater swing opened another gate and ejected the coin.
 
-Stamped coins were inspected again by hand, then wiped clean. Wrapped in mulberry-bark paper, one hundred to a package, sealed with a Ministry of Finance stamp, they were then locked in sturdy money chests and sent to the Central Reserve Bank's vault in Hong Kong to await disbursement.
+Stamped coins were inspected again by hand, then wiped clean. Wrapped in mulberry-bark paper, one hundred to a package, sealed with a Ministry of Finance stamp, they were locked in sturdy money chests and sent to the Central Reserve Bank's vault in Hong Kong to await disbursement.
+
+---
 
 In early spring, Guangzhou still bore traces of winter's chill. A spell of wretched wind and cold rain had just passed, and the sky remained overcast, adding three parts of gloom to the heart.
 
@@ -39,8 +41,6 @@ In the first month of Chongzhen Eight, Gao Yingxiang, Zhang Xianzhong, Old Hui-h
 As floods of refugees, gentry, and wealthy families fled south, Guangzhou's harmonious peace acquired an almost grotesque prosperity. The Yuan Council's enterprises—Ziming Tower, Zicheng Records, Guangzhou World—thrived. At the same time, batches of destitute refugees were shipped to Lingao by sea to enjoy the Yuan Council's benevolence.
 
 The fruit was rotten through. Strike while he's sick—the Yuan Council's launch of the Guangdong Campaign at this juncture was like plunging another knife into a dying man. In his heart, Meng Xian rather pitied the Chongzhen Emperor in the Forbidden City: the agony of knowing the situation was hopeless yet still struggling to hold things together was something ordinary people couldn't appreciate.
-
----
 
 Yet Meng Xian could take no pleasure in it. As president of Delong Bank and concurrently president of the Central Reserve Bank's Guangdong Branch, he was the Yuan Council's financial general in this new territory. Maintaining fiscal and financial stability in the new region was his inescapable responsibility, and he felt the weight of the pressure.
 

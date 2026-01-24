@@ -1,82 +1,82 @@
 # Chapter 1782 - Information
 
-In police work, "small and micro cases" often have low value, yet the manpower and resources required to solve them are not insignificant. Therefore, a strategy of "catching the big and releasing the small" is often adopted: strict investigation of malignant criminal cases like murder and robbery, while paying little attention to low-value theft and pickpocketing cases, or waiting until many cases accumulate and a suspect is caught to "process them together."
+In police work, "small and micro cases" often have negligible value, yet the manpower and resources required to solve them are anything but insignificant. This disparity often breeds a strategy of "catching the big and releasing the small": rigorous investigation of violent crimes like murder and robbery, while petty theft and pickpocketing cases receive scant attention, their files accumulating until a suspect is caught and everything gets "processed together."
 
-While this approach is sometimes a necessary evil due to resource constraints, a long-term lack of resolution for a large volume of small cases inevitably leads to a loss of public trust in the police's ability to maintain order.
+While sometimes a necessary evil born of resource constraints, such chronic neglect inevitably erodes public trust in the police's ability to maintain order.
 
-Once trust is lost, the "Mass Prevention and Mass Cure" system advocated by the Senatorial Council's police institutions becomes water without a source, a tree without roots. Therefore, from the very beginning of his administration of police affairs, Ran Yao specifically emphasized paying attention to the handling of small and micro cases relevant to the people's vital interests. This led to the introduction of various systems such as the Magisterial Court, caning, "catching vagrants," and labor camps. At the same time, through cooperation with the judicial department, police enforcement and on-site disposal powers were legally expanded. Coupled with the police patrol system, the incidence of such cases dropped significantly.
+Once trust is lost, the "Mass Prevention and Mass Cure" system advocated by the Senatorial Council becomes water without a source, a tree without roots. From the very beginning of his administration, Ran Yao had specifically emphasized handling cases that touched the people's daily lives. This led to the introduction of various systems: the Magisterial Court, caning, "vagrant sweeps," and labor camps. Simultaneously, cooperation with the judicial department legally expanded police enforcement and on-site disposal powers. Combined with regular patrols, the incidence of petty crime had dropped significantly.
 
- although this system had been replicated in Guangzhou for less than a month, the rate of such petty crimes had already decreased. With a sense of security, the common people were naturally more willing to provide help to the police.
+Although this system had been running in Guangzhou for less than a month, the rate of such crimes had already declined. With a renewed sense of security, common people naturally felt more willing to assist the police.
 
-Li Ziyu smiled. "This is all what we should do; no need for thanks. Has there been anything happening on the street these past few days?"
+Li Ziyu smiled. "This is simply our duty—no thanks needed. Has anything been happening on the street these past few days?"
 
-"You guys are really long-winded. It's just one street with a few dozen households; how could there be new situations every day? If you insist, yesterday the Liu couple fought again, howling in the middle of the night..."
+"You officers are really long-winded! It's just one street with a few dozen households—how could there be new situations every day?" Sister-in-law Liu sighed theatrically. "If you must know, yesterday the Liu couple fought again, howling in the middle of the night..."
 
-Sister-in-law Liu spoke of these trivial domestic matters with great relish, providing abundant details—one wondered how she knew them all.
+She spoke of these trivial domestic matters with obvious relish, providing abundant details—one wondered how she knew them all.
 
-Li Ziyu listened, nodding repeatedly, while internally cursing a hundred times. He really was bending his waist for five bushels of rice, listening to a middle-aged woman babble! Finally, Sister-in-law Liu mentioned that a man had been seen entering and leaving Widow Wang's house at night recently.
+Li Ziyu listened, nodding repeatedly while silently cursing himself a hundred times over. Here he was, bending his waist for five bushels of rice, listening to a middle-aged woman prattle on. Finally, Sister-in-law Liu mentioned that a man had been seen entering and leaving Widow Wang's house at night recently.
 
-"I hear he's a handsome young man!" Sister-in-law Liu swallowed unconsciously as she spoke. "It seems Widow Wang can't hold out anymore—no wonder, the torment... *Tsk tsk*..." She sighed with empathy, then glanced at Li Ziyu, her eyes watering. "If your Uncle Liu had a physique like yours, it would be fine..." She threw him a flirtatious look.
+"I hear he's a handsome young man!" She swallowed unconsciously as she spoke. "It seems Widow Wang can't hold out anymore—no wonder, the torment... *Tsk tsk*..." She sighed with genuine empathy, then glanced at Li Ziyu, her eyes watering. "If your Uncle Liu had a physique like yours, it would be fine..." She threw him a flirtatious look.
 
-Zhao Gui couldn't help but scratch his crotch, but Li Ziyu got goosebumps all over. Though Li Ziyu was only nineteen and unmarried, he had visited the "willow lanes and flower streets" many times and understood the amorous ways of women. He quickly perfunctored, "Sister-in-law Liu, you joke." He immediately changed the subject: "Is there any new situation with the Dong Mingdang mother and daughter at No. 61?"
+Zhao Gui scratched his crotch. Li Ziyu broke out in goosebumps. Though only nineteen and unmarried, he had visited the "willow lanes and flower streets" often enough to understand the amorous ways of women. He deflected quickly: "Sister-in-law Liu, you joke." He immediately changed the subject: "Is there any new situation with the Dong Mingdang mother and daughter at No. 61?"
 
-Sister-in-law Liu teased, "Just a young lad after all, always thinking about beautiful women..."
+Sister-in-law Liu teased: "Just a young lad after all, always thinking about beautiful women..."
 
-Li Ziyu laughed dryly. "Sister-in-law Liu, don't joke. This is official business..."
+Li Ziyu laughed dryly. "Sister-in-law Liu, please. This is official business..."
 
-After Dong Mingdang and her daughter were received and screened from the Guangdong Examination Hall, they rented a small courtyard here to live with two servants. They were on the "Watch List" issued by the Political Security Bureau. According to regulations, the police bureau had to monitor them and report their situation monthly. So whenever Li Ziyu met the Tithing Heads and activists, he would ask about them as a matter of routine.
+After Dong Mingdang and her daughter had been received and screened at the Guangdong Examination Hall, they had rented a small courtyard here with two servants. They were on the "Watch List" issued by the Political Security Bureau. Regulations required monthly monitoring and reports. Whenever Li Ziyu encountered Tithing Heads or activists, he made routine inquiries.
 
-"Just a mother and daughter; what new situation could there be? Unless they got a wild man," Sister-in-law Liu said. "I see they are quite well-behaved. Lady Dong rarely steps out of the main gate on ordinary days. It's the Dong girl who is rather spirited, often seen taking servants onto the street, sometimes to buy things, sometimes just to stroll. If the world hadn't changed, with her crazy manner, she would have been tricked away by vagrant bachelors long ago!"
+"Just a mother and daughter—what new situation could there be? Unless they got themselves a 'wild man.'" Sister-in-law Liu shrugged. "They're quite well-behaved, from what I can see. Lady Dong rarely steps past the main gate. It's the Dong girl who has more spirit, often taking servants onto the street—sometimes to buy things, sometimes just to stroll. If the world hadn't changed, with her reckless manner, she would have been tricked away by vagrant bachelors long ago!"
 
-"What? Someone has their eyes on them?"
+"What? Someone has designs on them?"
 
-"Ziyu, ah, you really are a young master from a big family, ignorant of worldly ways!" Sister-in-law Liu smiled and tapped Li Ziyu's chest muscle. "Gossip abounds in front of a widow's door. Lady Dong is a widow, and she has such a beautiful daughter at home. If not for their male servant Dong Xiang acting as the pillar of the household, they would have been disturbed endlessly by a gang of vagrant bachelors throwing bricks and tiles. Even so, many people want to take advantage of them... Rumors are already spreading outside: they say Lady Dong was the concubine of Prefect Dong, likely holding quite a bit of wealth. With both beauty and money, how could people not have designs?"
+"Ziyu, you really are a young master from a big family, ignorant of worldly ways!" Sister-in-law Liu smiled and tapped Li Ziyu's chest. "Gossip abounds before a widow's door. Lady Dong is a widow with a beautiful daughter. If not for their male servant Dong Xiang acting as the pillar of the household, they would have been endlessly harassed—bricks and tiles thrown over the walls, that sort of thing. Even so, plenty of people want to take advantage of them. Rumors are already flying: they say Lady Dong was the concubine of Prefect Dong and likely holds quite a bit of wealth. Beauty and money together—how could people not scheme?"
 
-Li Ziyu thought this was indeed a public order issue. Abduction cases involving women and children were "key strike targets" for the police bureau, so he asked a few more questions.
+Li Ziyu recognized this as a genuine public order concern. Abduction cases involving women and children were "key strike targets" for the police bureau, so he pressed for more details.
 
-"...I heard Granny Duan, who sells tea soup in the next alley, say that someone asked her to act as a matchmaker for Lady Dong." Sister-in-law Liu chattered on enthusiastically about such matters. "They say it's the master of a big household who wants to take her as a concubine, promising many benefits. Later, when the Dong girl marries, he's willing to provide a good dowry..."
+"I heard Granny Duan, who sells tea soup in the next alley, say that someone asked her to act as matchmaker for Lady Dong." Sister-in-law Liu warmed to the topic. "They say it's the master of a big household who wants to take her as a concubine, promising many benefits. When the Dong girl eventually marries, he's willing to provide a good dowry..."
 
-"Lady Dong is in her thirties; why would a big household still want her as a concubine?" Li Ziyu shook his head straight. "Sister-in-law Liu, don't joke with me."
+"Lady Dong is in her thirties—why would a wealthy household still want her as a concubine?" Li Ziyu shook his head. "Sister-in-law Liu, don't tease me."
 
-"Oh, listen to you. Lady Dong is still water-fresh, and she was a concubine from a big official's house. You're just a young lad; you don't know the benefits of a woman in her prime..." Sister-in-law Liu threw another flirtatious glance.
+"Oh, listen to you! Lady Dong is still fresh as dew, and she was a concubine from a high official's house. You're just a young lad; you don't know the pleasures of a woman in her prime..." She threw another flirtatious glance.
 
-Li Ziyu hadn't seen Lady Dong, so he naturally didn't know how "water-fresh" she was. But as long as it was matchmaking, it likely had nothing to do with abduction.
+Li Ziyu hadn't seen Lady Dong and couldn't judge how "fresh" she might be. But if this was genuine matchmaking, it likely had nothing to do with abduction.
 
-"Sigh, same people, different fates." Sister-in-law Liu sighed. "Look at Lady Dong. She used to be a Prefect's concubine, enjoyed so much fortune! Now that she's fallen, there are still big households willing to take her as a concubine to eat and drink well. Widow Wang worked hard with her man for ten years and didn't save much family property. Now she can't hold out and has to be sneaky!"
+"Sigh, same people, different fates." Sister-in-law Liu's tone turned wistful. "Look at Lady Dong. She used to be a Prefect's concubine, enjoying such fortune! Now fallen on hard times, yet wealthy households still want to take her as a concubine to eat and drink well. Widow Wang worked hard with her husband for ten years and didn't save much. Now she can't hold out and has to be sneaky about it!"
 
-Li Ziyu replied carelessly, "Being someone's concubine isn't exactly a good thing—if a widow can't endure, she can just remarried. Her family isn't some scholarly big household; what's the point of upholding chastity?" He intended to take his leave, but suddenly remembered something and asked, "Is this wild man from your street?"
+Li Ziyu replied carelessly: "Being someone's concubine isn't exactly a good life—widows who can't endure can just remarry. Her family isn't some great scholarly house; what's the point of upholding chastity?" He moved to take his leave, then suddenly remembered something. "Is this 'wild man' from your street?"
 
-"Probably not." Sister-in-law Liu shook her head, seemingly a bit disappointed. "He always comes right before dark when the street gates are closing and leaves at dawn when they open. Listening to the watchman, he looks like an accountant or advisor type."
+"Probably not." Sister-in-law Liu shook her head, almost disappointed. "He always comes just before dark when the street gates are closing and leaves at dawn when they open. According to the watchman, he has the look of an accountant or advisor."
 
-Li Ziyu noted this in his notebook because his mentor had said: abduction cases involving widows often start with "adultery" between a bachelor and the widow. So he had to keep an eye out.
+Li Ziyu noted this in his book. His mentor had warned him: abduction cases involving widows often begin with "adultery" between a bachelor and the widow. Worth keeping an eye on.
 
-"Help me keep an eye on Widow Wang's house these next few days," Li Ziyu instructed, said goodbye to Sister-in-law Liu, and walked on.
+"Help me watch Widow Wang's house these next few days," Li Ziyu instructed, then said goodbye and walked on.
 
-Zhao Gui, who had been silent during the conversation except for scratching his crotch like a wooden man, suddenly spoke up, mumbling, "Ah Yu, are older women... not... not... not good?"
+Zhao Gui, who had been silent throughout except for his constant crotch-scratching, suddenly mumbled: "Ah Yu, are older women... not... not... not good?"
 
-Li Ziyu hadn't expected the dull and honest Zhao Gui to ask such a question. He was startled, then realized the man was in his thirties and couldn't possibly be a "virgin chicken." He laughed, "Nothing wrong with them. It's just that when big households take concubines, whether for pleasure or heirs, they usually want young and beautiful ones; if it's for 'mining vitality' arts, they want young teenage girls. Who looks for a ripe woman?" He teased, " saying that, you must know the benefits of such women, right?"
+Li Ziyu hadn't expected such a question from the dull and honest Zhao Gui. He was startled, then realized the man was in his thirties and couldn't possibly be a virgin. He laughed: "Nothing wrong with them. It's just that when wealthy households take concubines—whether for pleasure or heirs—they usually want young and beautiful ones. If it's for 'mining vitality' practices, they want teenage girls. Who looks for a ripe woman?" He grinned. "Though speaking of which, you must know the benefits of such women, right?"
 
-Zhao Gui blushed and shook his head. "Me? I haven't tasted a woman yet; how would I know their benefits?"
+Zhao Gui blushed and shook his head. "Me? I haven't tasted a woman yet. How would I know their benefits?"
 
-It turned out Zhao Gui had always hidden a woman in his heart. He used to work short-term jobs in the city, often doing heavy labor for several big households. When there was work, the steward would send someone to call him. He'd work a day or half a day, getting two meals and a few copper coins. Sometimes, with luck, he'd get old clothes or items the household didn't want. Selling them could earn a little extra money.
+It emerged that Zhao Gui had always harbored feelings for a woman. He had spent years doing short-term work around the city, often performing heavy labor for wealthy households. When there was work, the steward would send someone to summon him. He'd toil for a day or half a day, earning two meals and a few copper coins. Sometimes, with luck, he'd receive cast-off clothes or unwanted items from the household. Selling them brought a little extra money.
 
-In one of these households, Master Zhong's home, there was a coarse-work servant woman named Qiao Jie. In her youth, she had been somewhat pretty and had been dallied with by the master. But her luck was bad; after the master played with her for seven or eight years and got bored, he tossed her aside, ignoring her. Lacking any status or title, she was sent by the long-resentful First Madam to the backyard to do rough work.
+In one of these households—the residence of Master Zhong—there was a rough-work servant woman named Qiao Jie. In her youth, she had possessed some beauty and had been dallied with by the master. But fortune had not favored her. After seven or eight years, the master grew bored and cast her aside. Lacking any formal status, she was sent by the long-resentful First Madam to the backyard to do rough work.
 
-Zhao Gui often went there to work and interacted with Qiao Jie frequently. Inevitably, he developed one of the three great illusions of men: "She's interested in me." Sometimes seeing Qiao Jie busy, he would rush to help and offer diligence. Qiao Jie was happy to have help and naturally treated him pleasantly, casually calling him "Brother Gui" a few times. This made Ah Gui so happy he couldn't find North. At night, when lonely and empty doing *that* thing, his mind was full of Qiao Jie.
+Zhao Gui often came there to labor and interacted with Qiao Jie frequently. Inevitably, he developed one of the three great male illusions: "She's interested in me." Seeing Qiao Jie busy, he would rush to help and offer his services. Qiao Jie, happy for the assistance, naturally treated him pleasantly, casually calling him "Brother Gui" on occasion. This simple kindness made Ah Gui so happy he couldn't find north. At night, when lonely and empty and doing *that* thing, his mind was full of Qiao Jie.
 
-But marrying Qiao Jie was a distant dream. Qiao Jie was a slave of the Zhong family—to marry a slave from a big household, one had to pay a redemption price. Qiao Jie was no longer a young girl; a price of three or four taels of silver would suffice. But for Zhao Gui, who had never even held a one-tael silver ingot in his life, where could he find such money?
+But marrying her was a distant dream. Qiao Jie was a slave of the Zhong family—to marry her, one had to pay a redemption price. She was no longer young; three or four taels of silver would suffice. But for Zhao Gui, who had never even held a one-tael ingot in his life, where would such money come from?
 
-As for saving money, that was a fantasy. He and his old mother lived day to day. If there was no work for a day, they would starve.
+As for saving up—that was pure fantasy. He and his old mother lived day to day. If there was no work for a day, they starved.
 
-Days muddled by. His mother had no hope, only wishing he could find a wife so she could hold a grandson before closing her eyes. To outsiders, this was a fool's dream. They often said, "What?! Ah Gui wants a wife? Then I can be the Emperor's son-in-law!"
+Days muddled by. His mother held no hope, wishing only that he might find a wife so she could hold a grandson before closing her eyes. To outsiders, this was a fool's dream. They often mocked: "What?! Ah Gui wants a wife? Then I can be the Emperor's son-in-law!"
 
-Whenever this happened, Ah Gui would flush red and say, "Qiao Jie at Master Zhong's house treats me well! Every time I go to help, she always winks at me."
+Whenever this happened, Ah Gui would flush crimson and say: "Qiao Jie at Master Zhong's house treats me well! Every time I help out, she winks at me."
 
-The crowd would laugh: "Haha, Ah Gui, keep your bragging reasonable. Who doesn't know Qiao Jie is the lover of Advisor Gou in Master Zhong's house!"
+The crowd would roar with laughter: "Haha, Ah Gui, keep your bragging reasonable! Everyone knows Qiao Jie is the lover of Advisor Gou in Master Zhong's household!"
 
-Zhao Gui always treated these words as slander. Clumsy of speech, he didn't refute them, firmly believing Qiao Jie liked him and was waiting for him to scrape together the money to marry her.
+Zhao Gui always dismissed these words as slander. Clumsy of speech, he never refuted them, firmly believing Qiao Jie liked him and was waiting for him to scrape together the money to marry her.
 
-Until one day, he went to work at the Zhong residence, chopping wood in the backyard. Urgently needing to pee, he went to a secluded corner by the woodshed. Hearing Qiao Jie's painful moans of "En en ah ah" from inside, he thought she was sick and rushed in pushing the door open. He saw Qiao Jie pressed onto a broken table by Advisor Gou, her buttocks stickin high, her chest shaking violently with Advisor Gou's thrusts...
+Until one day, he went to work at the Zhong residence, chopping wood in the backyard. Urgently needing to relieve himself, he went to a secluded corner by the woodshed. Hearing Qiao Jie's painful moans emanating from inside—"En en, ah ah"—he thought she was ill and rushed in, pushing open the door. He found Qiao Jie pressed onto a broken table by Advisor Gou, her buttocks thrust high, her body shaking violently with his movement...
 
 ---
 *(End of Chapter)*

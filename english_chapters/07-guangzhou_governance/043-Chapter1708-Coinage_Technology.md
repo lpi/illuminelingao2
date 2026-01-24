@@ -4,7 +4,7 @@ In truth, the State Council, including most people in Finance, largely agreed wi
 
 Once the basic approach was settled, construction of the mint formally began. Previously, the various paper securities issued by Delong had all been printed at the printing works. Now that they would be producing coins, simply adding a workshop to the printing plant as before would not do. A separate facility had to be established.
 
-In Finance's view, the new mint should be located in Hong Kong. Whether for the market where the coins would circulate or the source of the coinage metal, Hong Kong—adjacent to Guangdong—was obviously more suitable than Lingao on Hainan Island. Finance projected that once they landed on the mainland, demand for the new currency would be enormous. If the mint couldn't supply enough nearby, and a currency shortage should arise, it would be deeply embarrassing.
+In Finance's view, the new mint should be located in Hong Kong. Whether for the market where the coins would circulate or the source of the coinage metal, Hong Kong—adjacent to Guangdong—was obviously more suitable than Lingao on Hainan Island. Finance projected that once they landed on the mainland, demand for the new currency would be enormous. If the mint couldn't supply enough nearby and a currency shortage arose, it would be deeply embarrassing.
 
 Though Hong Kong lacked resources, transport was convenient, and transshipment of various materials was easier than from Hainan. As for security, there was nothing to worry about.
 
@@ -24,11 +24,11 @@ Minister of Finance Cheng Dong rose and cleared his throat.
 
 "Comrades! Recently, our new monetary reform plan was approved by the Central State Council and the Yuan Council. The Ministry of Finance solicited opinions from the Industrial Department on manufacturing our own coins. After receiving your affirmative replies, we formalized your proposals into the memorandum you now have before you."
 
-Cheng Dong's gaze swept across the faces of those assembled. Some were listening intently; others were studying the documents in hand. He continued with satisfaction: "With State Council approval, we will now formally commence manufacture of the new coins. Within one month we will have the capacity for mass-producing stamped metal coins and will produce the first batch of coins ready for circulation." A murmur of agreement rose in the conference room.
+Cheng Dong's gaze swept across the faces of those assembled. Some were listening intently; others were studying the documents in hand. He continued with satisfaction: "With State Council approval, we will now formally commence manufacture of the new coins. Within one month we will have the capacity for mass-producing stamped metal coins and will produce the first batch ready for circulation." A murmur of agreement rose in the conference room.
 
 "Below, I will offer a brief explanation of the memorandum. Please raise any questions at this meeting. The mainland offensive is about to begin. As you may already know, our new banknotes are being printed in volume and have already been shipped to Guangdong awaiting issuance. However, without coins to back them up, this paper money will have great difficulty circulating, so we must produce finished coins as quickly as possible."
 
-No one present had ever worked at a mint, but they had a general idea of the coinage process. Strictly speaking, modern coins are not "cast" but "stamped." They are actually produced by stamping metal sheet on steel dies using a punch press—a "cold-working" process. Hence the precise weight and beautiful designs.
+No one present had ever worked at a mint, but they had a general idea of the coinage process. Strictly speaking, modern coins are not "cast" but "stamped." They are produced by stamping metal sheet on steel dies using a punch press—a "cold-working" process. Hence the precise weight and beautiful designs.
 
 Before modern coinage, silver coins—whether Chinese or Western—were "cast," a "hot-working" process. This included the Spanish silver dollars that flooded into China in this timeline: the Cross-and-Shield COB was also a cast coin. The difference was that on Chinese coinage the design and characters were directly cast from the mold, whereas most European coins were first cast as blank discs and then struck with hard dies to impress the pattern—so-called "struck coins."
 
@@ -46,7 +46,7 @@ The reason for issuing a half-fen subsidiary note was that on the current market
 
 The benchmark currency, the one-yuan coin, would be struck from an alloy of 87.5% silver and 12.5% copper, weighing 27 grams with a diameter of 31 mm. The size and fineness roughly matched the Pillar Dollars, Yuan Shikai "Fat Man" dollars, and Mexican Eagle dollars that had circulated widely in China in the original timeline.
 
-As for the half yuan and quarter yuan, in addition to proportionally smaller sizes, silver content was also reduced: 60% for the half yuan and quarter yuan.
+As for the half yuan and quarter yuan, in addition to proportionally smaller sizes, silver content was also reduced: 60% for both denominations.
 
 The reason subsidiary coins had lower silver content was that their minting cost—aside from the metal itself—was about the same as for the one-yuan coin, yet their circulation value was discounted.
 
@@ -56,7 +56,7 @@ The silver and copper used for coinage would be 99% pure material refined by the
 
 On the table lay coin designs drawn by a transmigrator with an art background. The obverse read "One Yuan" in regular script, encircled by a wheat-ear motif, with the year of issue in small Arabic numerals below. The reverse showed the Morning Star shining over the globe. Around the globe ran a ribbon bearing four Latin letters: S.P.Q.M. (*senatus populusque magnus*—"the Great Senate and People").
 
-The other denominations—half yuan and quarter yuan—had identical obverses except for the denomination. On the reverses, the half yuan featured the Holy Ship, while the quarter yuan bore the national emblem that the transmigrators privately called "Iron Fist Bursting Chrysanthemum."
+The other denominations—half yuan and quarter yuan—had identical obverses except for the denomination. On the reverses, the half yuan featured the Holy Ship, while the quarter yuan bore the national emblem the transmigrators privately called "Iron Fist Bursting Chrysanthemum."
 
 "You don't need to worry about the engraving. We have skilled craftsmen for that. We'll make it large first, then use a reducing lathe to scale it down." Although Wang Luobin had become Chairman of the Yuan Council, he still couldn't resist the itch to get involved in technical matters and had come to attend the meeting in person.
 

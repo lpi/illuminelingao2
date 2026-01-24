@@ -1,117 +1,116 @@
 # Chapter 1787 - The Recovered Carrying Pole
 
-He said this, and the people below naturally had nothing to say. But the porter who had lost his carrying pole was still muttering. Old Cui listened impatiently and cursed: "The carrying pole is counted as mine, what are you, a blockhead, still muttering about?"
+The speaker made that claim, and the people below naturally had nothing to add. But one of the porters was still muttering. Old Cui listened impatiently and cursed: "The carrying pole is as good as mine—what are you, a blockhead, still muttering about?"
 
-It turned out that although this porter had obtained the carrying pole for free, the rope and cloth bag on it were gone—these two items were indeed not worth feeling sorry for, but without the rope and cloth bag, he still couldn't do business. Especially his cloth bag, which was an oilcloth bag specifically used for work at the live pig hong...
+It turned out that although this porter had obtained the carrying pole for free, the rope and cloth bag that went with it were gone. These items weren't worth mourning over individually, but without them, he couldn't work. Especially the cloth bag—it was an oilcloth bag specifically used for work at the live pig hong...
 
-Li Zhenguo heard this and suddenly interrupted their conversation, asking the porter to describe the lost items properly. What did they look like? Roughly when were they lost?
+Li Zhenguo's ears pricked up at this. He interrupted their conversation and asked the porter to describe the lost items properly. What did they look like? When approximately were they lost?
 
-The porter said that this set of rope and cloth bag was specially prepared because he worked year-round for the "Fuchangyu" Pig Hong in Scissors Alley. This Fuchangyu Pig Hong was in Central Scissors Alley, next to the river channel. Live pigs from the countryside were transported by boat to the pier behind the pig hong and kept in pens, slaughtered daily and sold to meat stalls, restaurants, and wealthy households.
+The porter explained that this rope and cloth bag set had been specially prepared because he worked year-round for "Fuchangyu" Pig Hong in Scissors Alley. This establishment was located in Central Scissors Lane, next to the river channel. Live pigs from the countryside were transported by boat to the pier behind the pig hong and kept in pens, slaughtered daily for sale to meat stalls, restaurants, and wealthy households.
 
-The pig hong shipped a large amount of pork and pig offal every day, so they employed many porters year-round to deliver meat to customers. If it was a whole side of pork, it could just be hooked with an iron hook and carried. But pig offal and processed meat products couldn't be hung with hooks, so porters carried them in cloth bags. Because they often worked for meat shops, these few porters who regularly worked for the pig hong all had special oilcloth bags.
+The pig hong shipped large quantities of pork and offal every day, employing many porters year-round to make deliveries. For whole sides of pork, an iron hook sufficed for carrying. But pig offal and processed meat products couldn't be hung on hooks, so porters carried them in cloth bags. Because they regularly worked for meat shops, the few porters who served the pig hong all had special oilcloth bags.
 
-Yesterday, they went to work at the pig hong as usual. After the work was finished, they left their tools in the tea shed as usual—this was also an old rule, generally no one would steal them. Most porters were from other counties and often stayed in small chicken-feather inns in Guangzhou, with no place to store tools.
+Yesterday, they had worked at the pig hong as usual. Afterward, they'd left their tools in the tea shed as was customary—generally, no one stole them. Most porters came from other counties and often stayed in small chicken-feather inns around Guangzhou, with nowhere to store their equipment.
 
-Unexpectedly, when they came to work this morning, the tools of others in the tea shed were still there, but his alone was missing.
+Unexpectedly, when they arrived for work this morning, everyone else's tools remained in the tea shed—only his were missing.
 
-Hearing this news, Li Zhenguo's brow relaxed a lot. He asked:
+Hearing this, Li Zhenguo's brow relaxed considerably. He asked: "Where is this tea shed where you wait for work?"
 
-"Where is the tea shed where you wait for work?"
+"No. 11 West Branch Alley, South Scissors Lane."
 
-"No. 11 West Branch Alley, South Scissors Alley."
+"Let's go have a look."
 
-"Let's go and have a look."
+Now Li Ziyu was confused. They had originally planned to inspect Widow Wang's house—according to the clues Old Cui had provided, the mysterious man on Widow Wang's wall was obviously the prime suspect. Li Zhenguo's sudden change of direction left him scratching his head. He knew this tea shed; the station listed such gathering places for manual laborers as key subjects for supervision. It was just a simple bamboo structure built on a plot of abandoned land where a building had collapsed. Inside stood about a dozen tables propped up on broken bricks and armless, legless furniture. Rough porcelain teapots and coarse sand bowls—the whole setup extremely basic.
 
-Now Li Ziyu was a bit confused, because they had originally planned to inspect Widow Wang's house—according to the clues provided by Old Cui, the mysterious man on Widow Wang's wall was obviously the most suspicious. Li Zhenguo's sudden change of mind left him scratching his head. He knew this tea shed—the station listed such gathering places for manual laborers as key subjects for supervision—it was just a simple bamboo shed, built on a piece of abandoned land after a building collapse, inside were a dozen tables propped up with broken bricks and rotten wood missing arms and legs. Rough porcelain teapots and coarse sand bowls, very simple.
+The porters' carrying poles were placed on a bamboo rack to the side. Old Cui explained that each person had a fixed spot—newcomers always stowed theirs at the back, while senior porters ranked further forward, enjoying greater chances of getting work.
 
-The porters' carrying poles were placed on a bamboo rack to the side. Old Cui said that who put theirs where was fixed; newcomers always put theirs at the back, and the more senior ones ranked further forward, having a greater chance of waiting for work.
+Li Zhenguo surveyed the environment. The tea shed didn't even have walls, so "security" was hardly a meaningful concept. But it wasn't completely exposed either, because Old Qiu, who watched over the shed, slept in a reed mat hut beside it.
 
-Li Zhenguo looked at the environment. This tea shed didn't even have walls, so naturally, it couldn't be said to be secure against theft, but it wasn't completely open either, because Old Qiu, who watched the tea shed, slept in a reed mat shed next to the tea shed.
+Old Qiu said he usually slept lightly—not from fear of theft, but because occasionally someone had business at night and needed to summon porters for work, which he arranged. If someone knocked, he had to get up. But last night he had slept uncommonly soundly. He usually rose at the fourth watch to fetch water, chop wood, and boil water, but today he hadn't woken until broad daylight.
 
-Old Qiu said that usually he didn't sleep too soundly: not because he was afraid of things being stolen, but occasionally someone had business at night and needed to call porters for work, which was all arranged by him. If someone knocked on the door outside, he had to get up. But last night he slept exceptionally soundly. Originally he had to get up at the fourth watch to fetch water, chop wood, and boil water, but today he slept until broad daylight before waking up.
+Li Zhenguo sensed something was wrong. He walked into the straw hut where Old Qiu lived and caught a faint scent—unidentifiable but distinctive. Just as he was about to speak, another person burst into the hut and shouted: "Knockout incense!"
 
-Now Li Zhenguo felt even more that there was a problem here. He walked into the straw shed where Old Qiu lived, seemingly faintly smelling a scent, but not very clearly. Just as he was about to speak, suddenly another person burst into the straw shed and shouted:
+It was Gao Chongjiu.
 
-"Knockout incense!"
+Gao Chongjiu had been questioning households door-to-door with the station's household registration police; at that pace, he wouldn't have reached the tea shed until late afternoon. His sudden arrival was due to a new clue.
 
-The person who came was none other than Gao Chongjiu.
+This clue came from the corpse-handlers fishing in the river. They had been working all morning when suddenly the man at the stern grew excited and called to the boatman: "Boss, stop! Got it!"
 
-Gao Chongjiu had originally been questioning households door-to-door with the household registration police from the station, and it would have taken until at least the afternoon to reach the tea shed. He suddenly burst in here because he had obtained a new clue.
+Before this, similar "got it" moments had occurred several times, but each time they'd hooked only riverbed debris. The boss responded without enthusiasm: "Then pull it up."
 
-This clue came from the coroners who were fishing for the corpse. Two coroners had been fishing all morning, suddenly the one at the stern got excited and said to the boatman: "Boss, stop! Got it!" Before this. Similar "got it" moments had happened several times, but what was hooked were all debris from the river bottom, so the boss didn't have much excitement at this moment, just responding perfunctorily: "Then pull it up."
+But the object at the bottom seemed very heavy. The man at the stern struggled alone for a while before finally hauling up—not a corpse, not even other debris—but a carrying pole.
 
-But the weight of the object at the river bottom seemed very heavy. The brother at the stern struggled quite a bit alone. After some effort, what was pulled out of the water was not a corpse, nor even other debris, but a carrying pole.
+A bamboo carrying pole couldn't possibly sink to the river bottom, let alone be heavy enough to require such effort. The reason this one was so heavy was because a stone had been tied to it.
 
-To say a bamboo carrying pole, that was impossible to sink to the river bottom at all, let alone be heavy enough to require exhausting effort to pull up. The reason the carrying pole was particularly heavy was because a stone was tied to it.
+A carrying pole wasn't valuable, and it wasn't contraband. Even if someone no longer wanted it, just tossing it on the street would ensure someone picked it up for firewood. Absolutely no one would specially tie a stone to it and sink it to the river bottom.
 
-A carrying pole, firstly, is not a valuable thing, and secondly, it is not an illegal item. Even if it was useless and unwanted, throwing it on the street would naturally result in someone picking it up to burn for fire. Absolutely no one would specially tie a stone to it and sink it to the river bottom.
+The two corpse-handlers retrieved bodies for the yamen year-round and had seen all manner of cases. One look at this situation told them something was wrong. They rowed back immediately to report to Gao Chongjiu.
 
-The two coroners fished for corpses for the yamen year-round and had seen all kinds of cases. One look at this situation and they knew there was a problem, quickly rowing the boat back to report to Gao Chongjiu.
+Gao Chongjiu was an old bailiff. Hearing the report, he concluded the carrying pole was almost certainly connected to the headless corpse case. Examining the salvaged pole and the rope binding the stone, he recognized them as typical porter equipment. After inquiring at the police station, he headed for the tea shed.
 
-Gao Chongjiu was an old bailiff. Hearing the coroners' report, he immediately concluded that this carrying pole was nine out of ten related to the headless corpse case. He looked at the fished-up carrying pole and the rope tying the stone, felt it looked like something a porter used, inquired at the police station, and came towards the tea shed.
+He hadn't expected to smell knockout incense the moment he entered the hut.
 
-Unexpectedly, as soon as he arrived at the shed, he smelled a scent of knockout incense.
+Li Zhenguo asked urgently: "Is it really knockout incense?"
 
-Li Zhenguo hurriedly asked: "Is it really knockout incense?"
+Gao Chongjiu nodded. "That's right. Someone definitely burned it here last night!"
 
-Gao Chongjiu nodded: "That's right. Someone definitely lit it here last night!"
+Using knockout incense meant either robbery or rape. Old Qiu was a porter—old, poor, unable to work anymore—selling tea and watching the shed. He had neither beauty nor wealth. What were they after? Could someone really go to such lengths to steal a carrying pole?
 
-Using knockout incense, it was either robbery or rape. Old Qiu was a porter who was both poor and old, unable to work anymore and selling tea and watching the shed here. He had neither beauty nor wealth, what were they after? Could it really be to steal a carrying pole?
+The two exchanged case details and felt this was a major discovery. They called the porter who'd lost the carrying pole to identify it; sure enough, it was his.
 
-The two exchanged case details and felt this was a major discovery. They called the porter who lost the carrying pole to identify it, and sure enough, it was the one he lost!
+Someone had gone to such great lengths to steal such a worthless pole—not merely to sink it in the river. This was "destroying the corpse and erasing traces." The two concluded this carrying pole was very likely connected to the headless corpse case.
 
-Someone went to such great lengths to steal such a worthless carrying pole, it couldn't be to sink it to the river bottom. To do this was actually "destroying the corpse and erasing traces". The two judged that this carrying pole was very likely related to the headless corpse case.
+What was its use? Li Zhenguo's heart stirred. Could it have been used to transport the body?
 
-What was the use? Li Zhenguo's heart moved. Could it be used to move the corpse?
+This thought had occurred to everyone present. They involuntarily cast their eyes on the carrying pole.
 
-This thought, not only he had, the several police officers present all had similar thoughts, involuntarily casting their eyes on the carrying pole.
+It was an ordinary bamboo pole. Well-used, shiny and oily, darkened nearly to yellow. It felt not only very smooth but also somewhat greasy—probably from regularly carrying goods for the pig hong. But such a smooth pole, having soaked in water for half a day, would retain no traces. Li Zhenguo examined it from every angle, racking his brain to dig out every trivial detail learned from training and following Mu Min and Wu Xiang, but the pole yielded nothing.
 
-This was an ordinary bamboo carrying pole. A carrying pole used for a long time, shiny and oily, almost dark yellow. It felt not only very smooth but also had a greasy feel, which was probably because the porter often helped the pig hong carry goods. But such a smooth carrying pole with almost a "patina", having soaked in the water for half a day, would leave no traces. Li Zhenguo turned it over and over researching for half a day, racking his brains to dig out all the trivial details learned from training and following Mu Min, Wu Xiang and others, intending to scrutinize it, but couldn't make head or tail of the carrying pole.
+Li Ziyu had been watching carefully from the side. He noticed the stone and rope had been thrown aside, abandoned. He suddenly had an idea and said: "Comrade Li, we haven't examined that bundle of rope yet."
 
-Li Ziyu by the side saw clearly. He saw that the stone and rope were still thrown to the side, suddenly had a brainwave, and said: "Comrade Li, haven't looked at that bundle of rope yet."
+Everyone realized they had overlooked it. Gao Chongjiu quickly picked it up. The rope was dripping wet, woven from hemp mixed with bamboo strips—very strong. Old Cui confirmed it was indeed the type commonly used by porters.
 
-Hearing this, everyone realized they had neglected the rope. Gao Chongjiu hurriedly picked up the rope. The rope was dripping wet, woven from hemp mixed with bamboo strips, very strong. Old Cui said that's right, this is the rope commonly used by porters.
+Though the rope had been fished from the water, it felt greasy to the touch. Obviously, it was the original match for the carrying pole, transformed by years of transporting pork. Li Zhenguo asked the porter who'd lost the pole, and he confirmed this rope was his.
 
-Although the rope was fished out of the water, it felt greasy in the hand. Obviously, this thing was definitely the original match on the carrying pole, becoming like this after years of carrying pork. Li Zhenguo asked the porter who lost the carrying pole, and he said this rope was his.
+The rope had been soaked in lard and bloodstains for so many years it had turned completely black. At first glance, nothing stood out. Li Zhenguo held it up and scrutinized it carefully in the sunlight—and discovered a clue. On the seemingly uniformly black rope were fresh stains. Neither Li Zhenguo nor Gao Chongjiu could be certain whether this was human blood, but the Australians at the Municipal Bureau had methods to identify it. If it was, this was undoubtedly evidence.
 
-The rope had been soaked in lard and blood stains for many years and had turned completely black. At first glance, there was nothing. Li Zhenguo held up the rope and scrutinized it carefully in the sunlight, but discovered a clue. On the seemingly completely black rope, there were fresh stains. Neither Li Zhenguo nor Gao Chongjiu dared to be sure if this stain was human blood, fortunately, the Australians in the Municipal Bureau had ways to identify if this was human blood. If it was, then it was undoubtedly evidence.
+Combined with the missing oilcloth bag... Li Zhenguo's eyes lit up. He asked: "Who else has that kind of oilcloth bag?"
 
-Combining this with the oilcloth bag used by the porter... Li Zhenguo's eyes lit up and asked: "Who else has that kind of oilcloth bag?"
+More than one porter worked for the pig hong, so naturally each had one. Shopkeeper Xie brought one over, saying the appearance and size were about the same. Li Zhenguo spread the oilcloth flat on the ground, examined it, and felt his deduction made even more sense.
 
-There was more than one porter working for the pig hong, so naturally, everyone had one. Right then, Shopkeeper Xie brought one over, saying the appearance and size were about the same. Li Zhenguo spread the oilcloth bag flat on the ground, looked at it, and felt his deduction made even more sense.
+The carrying pole's appearance brought the first glimmer of dawn to an investigation that had been murky all along. The two discussed and decided time was of the essence—they would immediately go to Widow Wang's house for on-site exploration and determine who that man climbing her wall in the middle of the night really was.
 
-The appearance of the carrying pole gave a glimmer of dawn to the investigation that had been blurry all along. The two discussed and decided that time was of the essence, immediately go to Widow Wang's house for on-site exploration, figure out who that person climbing Widow Wang's wall in the middle of the night really was.
+Widow Wang's house wasn't far from the tea shed. They wanted to summon the local Baojia head, but Shopkeeper Xie said there was no need—he knew her situation well, and the distance was short; he would take them himself.
 
-Widow Wang's house was not far from the tea shed. Originally they wanted to call the head of the local Baojia group, but Shopkeeper Xie said there was no need to trouble him, I know her situation very well, and the road is not far, I will take you there.
+Arriving at the door, they saw a very dilapidated house. The frontage was narrow—barely one bay wide. The white lime and mud on the wall were peeling, revealing the broken bricks, tiles, and yellow mud pieced together beneath. The eaves were also very low, about the height of a person. The gate was tightly closed, bolted from the inside. Shopkeeper Xie knocked for a long time with no response.
 
-Arriving at the door, they saw it was a very dilapidated house. The front face was very small, barely even one bay wide. The white lime and mud on the wall were peeling off, revealing the broken bricks and tiles and yellow mud pieced together inside. The eaves were also very low. Only about the height of a person. At this time the gate was tightly closed, bolted from the inside. Shopkeeper Xie knocked on the door from outside for a long time with no movement.
+This struck him as strange. He had seen Widow Wang go out early that morning. If she hadn't returned, the door should be locked from the outside. Since it was bolted from within, someone was home. With the return of the humid south wind, the weather was growing hot and sticky. During the day, every household closed their lattice doors and opened main doors for ventilation. In broad daylight, why was this door bolted?
 
-Now Shopkeeper Xie was strange, because early in the morning he had seen Widow Wang go out. If she hadn't come back yet, then the door should be locked from the outside. Since it was bolted from the inside, it meant someone was inside. Recently it was the return of the south wind (humid weather), the weather gradually becoming hot and humid. During the day, every household closed the lattice door and opened the main door for ventilation. Broad daylight, what was the door bolted for?
+Li Zhenguo and Gao Chongjiu both felt something was wrong. Gao Chongjiu knew various jianghu tricks. He immediately produced a soft bamboo strip, inserted it through the door crack, and slowly worked the bolt aside. It took several minutes, but the door opened. The moment it did, they smelled a peculiar fragrance—exactly the same scent they had detected in Old Qiu's hut, only stronger.
 
-Li Zhenguo and Gao Chongjiu both felt the situation was a bit wrong. Gao Chongjiu knew a thing or two about various tricks in the jianghu. He immediately took out a soft bamboo strip from his person, inserted it through the crack in the door, slowly moved the door bolt aside, spent a few minutes to open the door. As soon as the door opened, they smelled a peculiar fragrance—exactly the same fragrance they smelled in Old Qiu's shed, only stronger.
+Li Zhenguo's expression changed. He cursed silently and crossed the main room in three quick strides. Beyond lay a small courtyard with a crooked old tree—and a person was hanging from it.
 
-Li Zhenguo's face changed, cursing inwardly, crossing the main room in three steps combined into two. Behind was a very small courtyard with a crooked old tree, and a person was hanging from the tree!
+Shopkeeper Xie couldn't help but scream. The figure dangling from the branch was Widow Wang.
 
-Shopkeeper Xie couldn't help but scream: The one hanging was exactly Widow Wang!
+"Quick—get her down!"
 
-"Quick, get the person down!"
+Several officers rushed forward to untie the rope. Li Ziyu cursed his luck inwardly but had to help. Fortunately, Zhao Gui showed no hesitation, standing below to catch her weight. They soon got Widow Wang down.
 
-Several police officers hurriedly went up to untie the rope. Li Ziyu cursed his bad luck in his heart, but had to go up to help. Fortunately, Zhao Gui didn't care too much, standing below to support the person, and soon got Widow Wang down.
+The woman had already stopped breathing, but the body wasn't stiff—she hadn't been dead long. Combined with the fact that Shopkeeper Xie had seen her this morning, her hanging must have occurred in the few short hours between morning and noon.
 
-Upon taking her down, they saw the person had already stopped breathing, but the corpse was not stiff, not dead for long—combined with the fact that Shopkeeper Xie had seen Widow Wang early this morning, it meant her hanging was a matter of the short few hours from morning to noon.
+Though there was no coroner or forensic doctor present, Gao Chongjiu had years of experience. The strangulation mark on Widow Wang's neck was horseshoe-shaped, with a lifting void zone where the ends didn't meet. This distinguished hanging from strangulation; a horseshoe-shaped mark formed by suspension. She hadn't been strangled and then strung up—Wang Xiuzhu had indeed died by hanging.
 
-Although there was no coroner or forensic doctor, with Gao Chongjiu's years of experience, the strangulation mark on Widow Wang's neck was horseshoe-shaped, with a lifting void zone at the end where they didn't intersect. This was the difference between hanging and strangulation; a horseshoe-shaped mark was formed by hanging. It wasn't hung up after being strangled to death, indicating Wang Xiuzhu indeed died by hanging.
+However, both Gao Chongjiu and Li Zhenguo felt that Widow Wang's sudden suicide made no sense emotionally or logically. Combined with the knockout incense they'd smelled upon entering, they couldn't rule out that she'd been drugged unconscious and then "placed" in the noose. Gao Chongjiu had encountered similar cases before—though in those instances, the murderer had used intoxication rather than incense.
 
-However, both Gao Chongjiu and Li Zhenguo felt that Widow Wang's sudden hanging made no sense emotionally or logically. Plus, they smelled knockout incense when they entered the room, not ruling out that she was stunned by knockout incense and then "was hung up". Gao Chongjiu had encountered this kind of case before—only the murderer used the method of getting the victim drunk to commit the crime.
+On-site investigation immediately revealed suspicious points. A stool lay overturned on the stone slab floor beneath the corpse, and the deceased's footprints remained on its surface.
 
-On-site investigation immediately discovered some suspicious points. A stool was overturned on the stone slab floor below the corpse, and the deceased's footprints were left on the stool.
+The first suspicious point concerned this stool. The footprints on its surface struck Li Zhenguo as odd. If Wang Xiuzhu had stepped onto this stool to tie the rope to the tree branch, placed her head in the noose, and kicked the stool over to commit suicide, one would expect friction marks left when the stool was kicked. Yet the front and sides of the stool showed only those clear footprints—no scuff marks whatsoever. Li Zhenguo had Li Ziyu bring an identical stool and performed a simulation test under the tree in the yard—grabbing the branch with his hands, kicking the stool over to suspend his body. The results showed that no matter how lightly one kicked the stool, traces would inevitably be left.
 
-The first suspicious point was discovered on this stool. The pair of footprints on the stool surface made Li Zhenguo feel strange. If one said Wang Xiuzhu stepped on this stool to tie the rope to the tree branch, then put her head into the noose and kicked over the stool to commit suicide, checking it revealed that the marks left on the front and sides of the stool were only that pair of clear footprints, without any friction marks left when kicking over the stool. Li Zhenguo asked Li Ziyu to bring an identical stool and performed a simulation test under the tree in the yard—grabbing the branch with hands, kicking over the stool to suspend the body. The results showed that no matter how light the force used to kick over the stool, traces would definitely be left on the stool.
+Conducting a comprehensive investigation of the scene, they found Widow Wang's residence was a one-story house with three bays of depth and one frontage. Entering by the door was the main room, beside which lay the kitchen. Crossing the small bluestone courtyard led to a bedroom divided into a bright outer chamber and a dark inner room. Beyond the bedroom was a small backyard piled with water vats and sundries. The space was cramped, the rooms low and small, the furniture and items simple—at first glance, clearly a poor person's dwelling. But upon inspection, the police immediately noticed many incongruities.
 
-Conducting a comprehensive investigation of the scene again, Widow Wang's residence was a one-story house with a depth of three bays and one frontage. Entering the door was the main room, next to it was the kitchen. Crossing the small bluestone slab courtyard was a bedroom divided into a bright and a dark room. Going out from the bedroom, behind was a small yard. Piled with some water vats and sundries. The place was very small, the house lowly and small, furniture and items also simple, looking like a poor person's residence at first glance. But upon inspection, the criminal police immediately discovered many incongruous places.
+The bedding was very new, and the quality was good—obviously not typical of lower-class commoner women like Widow Wang. At the head of the bed sat a brand-new dressing box inlaid with mother-of-pearl and fitted with a mirror. This was authentic Australian merchandise from Purple Treasure Studio. The crystal mirror alone was worth a considerable sum; the cheapest cost four taels of silver. The dressing box was open, clearly having been rummaged through; most items were gone, but a pearl and silver ring remained inside—not extraordinarily valuable, but still beyond what such a woman could afford. Similar discrepancies included clothes in the wardrobe—all made of silk, fashioned recently. More direct evidence: the wardrobe contained men's clothes, and more than one set. This man apparently stayed overnight frequently.
 
-The bedding on the bed was very new, and the quality was good, obviously not used by lower-class commoner women like Widow Wang; a brand new mother-of-pearl inlaid dressing box with a mirror was found at the head of the bed—this was authentic Australian goods, goods from Purple Treasure Studio. Just that crystal mirror inside was worth a not small sum, the cheapest one costing four taels of silver. The dressing box was open, obviously having been rummaged through, most things were gone, but a pearl silver ring was left inside—although not too valuable, it was not something a woman like her could afford to wear. Similar items consistent with consumption and status include clothes in the wardrobe—all silk clothes made not long ago. However, the more direct evidence was that there were men's clothes in the wardrobe, and more than one set. It seemed this man often stayed here overnight.
+Obviously, these were all provided by that "wild man." In the kitchen, they discovered more similar traces: a jar of wine half-drunk, unfinished wind-dried chicken and cured meat...
 
-Obviously, these were all provided by that "wild man". In the kitchen, they discovered more similar traces: a jar of wine half drunk. Unfinished wind-dried chicken and cured meat...
-
-(End of Chapter)
+---
+*(End of Chapter)*

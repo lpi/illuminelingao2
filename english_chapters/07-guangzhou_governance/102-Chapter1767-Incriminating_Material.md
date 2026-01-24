@@ -1,6 +1,6 @@
 # Chapter 1767 - Incriminating Material
 
-A merchant beside them interjected angrily: "We grain traders have it a little easier. At least grain is something needed year-round, regardless of season—we just make a bit less. Other merchants, once the *ya* men warehouse their goods, are at their mercy. Not only do they help themselves to whatever they like, they deliberately hold the merchandise and refuse to find buyers. Often traders end up stuck for months, even a year, unable to sell their cargo. Your Excellency, consider: every itinerant merchant has his entire fortune riding on the rise and fall of the market. When the *ya* holds his goods back like that, a hot commodity turns cold. That's a death sentence!"
+A merchant beside them interjected angrily: "We grain traders have it a little easier. At least grain is needed year-round, regardless of season—we just make a bit less. Other merchants, once the *ya* men warehouse their goods, are at their mercy. Not only do they help themselves to whatever they like, they deliberately hold the merchandise and refuse to find buyers. Often traders end up stuck for months, even a year, unable to sell their cargo. Your Excellency, consider: every itinerant merchant has his entire fortune riding on the rise and fall of the market. When the *ya* holds goods back like that, a hot commodity turns cold. That's a death sentence!"
 
 "Oh? What's in it for the *ya* if merchandise loses value?"
 
@@ -20,9 +20,9 @@ Manager Ding counted on his fingers. "We dozen or so are all major traders. The 
 
 Lin Baiguang recalled that the average market price was around 1.3 taels. He nodded. "What Master He says is true. The *ya* system was meant to facilitate both buyer and seller; instead it's become the bane of merchants. We certainly intend to abolish it."
 
-At this, the dozen-odd grain merchants looked stunned. Abolishing the *ya* system was something they had never dared imagine. At most, they'd hoped that with a change of dynasty here in Guangzhou, the *ya*'s arrogance might be humbled a bit—chance to vent some resentment. Perhaps some new *ya*-men would be appointed; a new regime always started out on better behavior, so they might catch their breath.
+At this, the dozen-odd grain merchants looked stunned. Abolishing the *ya* system was something they had never dared imagine. At most, they'd hoped that with a change of dynasty here in Guangzhou, the *ya*'s arrogance might be humbled a bit—a chance to vent some resentment. Perhaps new *ya* men would be appointed; a new regime always started out on better behavior, so they might catch their breath.
 
-They had seen plenty of officials in their time. Whenever commoners petitioned, the typical response was either sharp rebuke, branding them "troublemakers," or else, if the crowd was large enough, vague equivocation—"His Excellency has noted the petition; you may return home; the Court will decide in due course." As for what decision, only heaven knew. Nine times out of ten, nothing ever came of it.
+They had seen plenty of officials in their time. Whenever commoners petitioned, the typical response was either a sharp rebuke, branding them "troublemakers," or else, if the crowd was large enough, vague equivocation—"His Excellency has noted the petition; you may return home; the Court will decide in due course." As for what decision, only heaven knew. Nine times out of ten, nothing ever came of it.
 
 And here the Song's "Second Prefect of Guangzhou" bluntly announced he would abolish the *ya* system—just like that. They could scarcely believe it.
 
@@ -60,11 +60,11 @@ Lin Baiguang saw them out, then summoned a cadre and gave low-voiced instruction
 
 The banquet ran until very late. Zheng Shangjie didn't get back to her suite at Ziming Tower until almost ten o'clock. She went straight to the bathroom for a bath, then, with a maid's help, changed into a dressing-gown before reclining on the sofa, finally at ease.
 
-The banquet that evening had been attended by Guangzhou's leading merchants—including heavyweight figures like Gao Ju. Ever since the liberation of Guangzhou, these tycoons had been on edge, frantically seeking avenues to meet with the Australians. They were worldly men; they knew the Ming was beaten and would never return. They had to figure out the temperament of this new regime's officials as quickly as possible.
+The banquet that evening had been attended by Guangzhou's leading merchants—including heavyweight figures like Gao Ju. Ever since the liberation of Guangzhou, these tycoons had been on edge, frantically seeking avenues to meet with the Australians. They were worldly men; they knew the Ming was beaten and would never return. They needed to figure out the temperament of this new regime's officials as quickly as possible.
 
 Within the second week of entering the city, petitions for audiences had piled high on every desk at the Guangzhou Station. Guo Yi had left, gladly escaping the fuss. Pei Lixiu, fearing she lacked policy acumen and might say the wrong thing, claimed to be "ill" and bowed out. Only Zheng Shangjie—since she had always been in charge of commercial affairs and was confirmed to be staying—had, under Liu Xiang's instructions, "met with old contacts and offered reassurance." So she'd had no choice but to receive some of the more important former clients.
 
-But for the sake of not making mistakes, the meetings were purely ceremonial. Beyond platitudes such as "go about your business in peace" and "the Senatorial Council has always governed by law," the burning questions these merchants wanted answered, she avoided entirely.
+But for the sake of avoiding mistakes, the meetings were purely ceremonial. Beyond platitudes such as "go about your business in peace" and "the Senatorial Council has always governed by law," the burning questions these merchants wanted answered, she avoided entirely.
 
 Her caution was well-founded: Ming urban and commercial society was extremely complex, and some aspects didn't align with the Senatorial Council's expectations.
 
@@ -84,7 +84,7 @@ Because she had been trained from childhood in the full repertoire of personal s
 
 *Should I send her to Lingao for proper schooling sometime?* Zheng Shangjie watched Han Yue pouring water back and forth between two cups to cool it. Suddenly, she felt reluctant to part with her: after all, this sort of attentiveness, trained from childhood, was truly indispensable! Qian Xuanhuang—though her memory of him had faded—and other "modernized" servants never had this kind of intuitive thoughtfulness.
 
-"Any news today?" Despite Guangzhou having been liberated for nearly a month, Zheng Shangjie still couldn't shake the habits she'd acquired in her years at the Guangzhou Station. This troubled her—compared to Liu Xiang and other Senators who had lived in Hainan's "modernized" environment, she felt suddenly out of place, like... like Wang Xifeng crawling out of *Dream of the Red Chamber* into the twenty-first century... What a tangled metaphor...
+"Any news today?" Despite Guangzhou having been liberated for nearly a month, Zheng Shangjie still couldn't shake the habits she'd acquired during her years at the Guangzhou Station. This troubled her—compared to Liu Xiang and other Senators who had lived in Hainan's "modernized" environment, she felt suddenly out of place, like... like Wang Xifeng crawling out of *Dream of the Red Chamber* into the twenty-first century... What a tangled metaphor...
 
 ---
 

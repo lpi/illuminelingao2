@@ -12,11 +12,11 @@ The more someone was a beneficiary of the current court, the less willing they w
 
 Though the Ming forces in Guangdong were not the Guanning Army, the military situation was much the same. Officers at each level seized what they could in proportion to their rank and power, embezzling military pay and exploiting their troops. Apart from maintaining their own personal retainers, they cared nothing for the lives of their subordinates. The army was rotten to the core. Once the Fubo Army launched its attack, it would sweep them away like dead leaves.
 
-But Lin Baiguang and the transmigrators about to take over Guangdong were also well aware that, however rotten the government forces were, they were nevertheless local serpents who had been entrenched for years. Many garrison soldiers came from local military households; they had been born and raised here and had deep attachments to their homeland. Under pressure from a powerful enemy, there was no telling if they might fight to "defend the country" for the sake of "protecting their homes." During the First Opium War, the Eight Banners and Green Standards were already decrepit and collapsed at the first blow from the British, yet when the British attacked Zhenjiang, the local Banner garrison had fought to the death.
+But Lin Baiguang and the transmigrators about to take over Guangdong were also well aware that, however rotten the government forces were, they were nevertheless local serpents entrenched for years. Many garrison soldiers came from local military households; they had been born and raised here with deep attachments to their homeland. Under pressure from a powerful enemy, there was no telling if they might fight to "defend the country" for the sake of "protecting their homes." During the First Opium War, the Eight Banners and Green Standards were already decrepit and collapsed at the first blow from the British, yet when the British attacked Zhenjiang, the local Banner garrison had fought to the death.
 
 Destroying the enemy troops would not be difficult. But wherever the flames of war spread, lives and property would suffer great destruction. Moreover, routed soldiers scattering into the countryside would immediately turn into bandits, causing secondary devastation to rural areas and adding to the Yuan Council's law-and-order burden after taking power.
 
-Therefore, the Military Control Commission's overall policy toward Guangdong's government troops was to use "peaceful" means as much as possible, to induce whole units to defect, and then gradually reorganize and absorb them. At worst, they could be shipped off to Hainan to fill the labor brigades.
+Therefore, the Military Control Commission's overall policy toward Guangdong's government troops was to use "peaceful" means as much as possible—to induce whole units to defect, then gradually reorganize and absorb them. At worst, they could be shipped off to Hainan to fill the labor brigades.
 
 "In inducing them to defect and accept reorganization, genuine willingness is best, but half-heartedness is acceptable too," Wen Desi summarized at the transmigrator meeting of the Military Control Commission. "As long as they accept peaceful reorganization, whether they want to stay or run off, we can let them do as they please. Paying a little bribe is no problem either—buying off a few *baihu* or *qianhu* is cheaper than the military expenses and pension payouts of actual fighting. Once the troops accept reorganization, the rest is out of their hands."
 
@@ -38,7 +38,7 @@ The working conference had proposed "tempering strictness with leniency." Easy t
 
 ---
 
-This proclamation—a symbolic declaration of war—had been drafted by the Great Library with the help of several transmigrators well-versed in classical Chinese. They had originally wanted to have Liu Dalin, that *jinshi* scholar, "review and polish" it, but ultimately decided not to provoke him. If this model figure they had worked so hard to cultivate should take it into his head to commit suicide in a moment of despair, all their prior efforts would have been wasted.
+This proclamation—a symbolic declaration of war—had been drafted by the Great Library with the help of several transmigrators well-versed in classical Chinese. They had originally wanted Liu Dalin, that *jinshi* scholar, to "review and polish" it, but ultimately decided not to provoke him. If this model figure they had worked so hard to cultivate should take it into his head to commit suicide in a moment of despair, all their prior efforts would have been wasted.
 
 "Has it been proofread?" he asked.
 
@@ -48,11 +48,11 @@ This proclamation—a symbolic declaration of war—had been drafted by the Grea
 
 "Yes, Chief."
 
-This was the headquarters of the Guangzhou Intelligence Station. The station was now located inside Guangzhou World. Lin Baiguang and his staff worked around the clock here, directing secret operations across Guangdong Province. The current focus was preparing for the takeover of Guangzhou.
+This was the headquarters of the Guangzhou Intelligence Station, now located inside Guangzhou World. Lin Baiguang and his staff worked around the clock here, directing secret operations across Guangdong Province. The current focus was preparing for the takeover of Guangzhou.
 
 Months earlier, a secret printing facility had been set up here. Various printing plates shipped from Lingao were used to produce the documents, forms, leaflets, pamphlets, notices, and credentials that would be needed by all levels of the Military Control Commission. In the warehouses, "occupation" printed matter was piled high. Even several dozen crates of the soon-to-be-issued new banknotes—"Silver Dollar Reserve Notes"—had been shipped in. According to plan, after the occupation of the Pearl River Delta was complete, the new currency system would be fully implemented.
 
-Before that, Delong Bank had already begun gradually withdrawing the Food Circulation Vouchers in circulation in Guangdong. Of course, this paper currency had never circulated widely anyway; it was mainly used in Guangzhou in small quantities, and primarily by enterprises under the Zizhen label, so the recall work was not difficult.
+Before that, Delong Bank had already begun gradually withdrawing the Food Circulation Vouchers in circulation in Guangdong. Of course, this paper currency had never circulated widely anyway; it was mainly used in Guangzhou in small quantities, primarily by enterprises under the Zizhen label, so the recall work was not difficult.
 
 Economic work was the first priority after the takeover. Public order was closely linked to economic conditions, and issuing the new currency and implementing the new monetary system was the Yuan Council's foremost task after taking over Guangdong.
 
@@ -62,11 +62,11 @@ Once Guangdong was occupied, they would hold the second-largest commodity market
 
 The new currency system would use a silver standard. This decision was made after comprehensively considering local natives' habits, their capacity for acceptance, and the demands of commodity circulation. Silver was a precious metal universally recognized by natives—unlike paper money, it did not require extensive time and effort for promotion and propaganda. Moreover, existing silver stocks were substantial, and coinage material was plentiful. With the Yuan Council's metallurgical and machining capabilities, they could easily produce silver coins that were low in silver content yet exquisitely crafted and looked "genuine." Merely by collecting circulating weighed silver and reminting it, the seigniorage revenue would be considerable.
 
-The Finance Department's proposal to issue silver coins had additional advantages: through the issuance of silver coins, they could also issue bearer notes—that is, so-called "Silver Dollar Reserve Notes." With physical silver dollars as backing, paper money would be more readily accepted, laying the groundwork for an eventual transition to purely fiat currency and full paper-money circulation.
+The Finance Department's proposal to issue silver coins had additional advantages: through the issuance of silver coins, they could also issue bearer notes—so-called "Silver Dollar Reserve Notes." With physical silver dollars as backing, paper money would be more readily accepted, laying the groundwork for an eventual transition to purely fiat currency and full paper-money circulation.
 
-Hundreds of kilometers from Guangzhou, in Lingao, an intense technical meeting was underway. Though most of those present were transmigrators from the machining and metallurgical departments, a few from Finance were speaking at length.
+Hundreds of kilometers from Guangzhou, in Lingao, an intense technical meeting was underway. Though most present were transmigrators from the machining and metallurgical departments, a few from Finance were speaking at length.
 
-The meeting they were holding concerned the long-delayed issue of the new currency.
+The meeting concerned the long-delayed issue of the new currency.
 
 In Lingao, the only consensus reached in the currency debate was that a new monetary system must be adopted to replace the current Food Circulation Vouchers. Beyond that, there had been extensive arguments over whether to use a precious metal standard and what material to use for coinage. The debate had roughly three factions: one advocated a silver standard with silver coins; one firmly demanded abolishing coinage altogether in favor of a pure paper, fiat currency system; and the last advocated coining money from base metals—the so-called "Mithril Faction." However, since the Metallurgy Department could not produce stainless steel or industrially smelted aluminum, this last faction had already faded.
 

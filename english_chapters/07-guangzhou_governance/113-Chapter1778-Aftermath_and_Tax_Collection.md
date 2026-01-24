@@ -16,11 +16,11 @@ However, now that he was in Guangzhou, the complexity of cases grew geometricall
 
 "But I have worries. First, the brokerages have too many bad debts; I fear confiscating their homes won't cover the deficits. Second, itinerant merchants might seize the chance for revenge or profit by fabricating facts—brokers aren't good people, but merchants aren't saints either. We can't give the citizens the impression that we're punishing just for the sake of punishing."
 
-"I agree completely," Liang Xinhu said. "Actually, it's not hard. I intend to implement three principles in the cleanup: First, whoever claims must prove. Those claiming brokers owe payment or need to return goods must provide sufficient evidence; no evidence, no count. Second, the statute of limitations is two years, calculated from our entry into the city. Anything older is ignored, to avoid entanglement in ancient history. Third, insist this is civil/commercial economic behavior; no 'Blue Sky Magistrate' style debt-recovery or redressing of grievances. Actual criminal cases will be transferred to the police. The Aftermath Office won't handle them."
+"I agree completely," Liang Xinhu said. "Actually, it's not hard. I intend to implement three principles in the cleanup: First, whoever claims must prove. Those claiming brokers owe payment or need to return goods must provide sufficient evidence; no evidence, no count. Second, the statute of limitations is two years, calculated from our entry into the city. Anything older is ignored, to avoid entanglement in ancient history. Third, insist this is civil and commercial economic behavior; no 'Blue Sky Magistrate' style debt-recovery or redressing of grievances. Actual criminal cases will be transferred to the police. The Aftermath Office won't handle them."
 
 "Very good." Liu Xiang nodded. "But what if the assets don't cover the debts after cleanup?"
 
-His words implied another layer: *If the deficit is too big, we won't get anything out of it ourselves.*
+His words implied another layer: If the deficit is too big, we won't get anything out of it ourselves.
 
 Guangzhou's fiscal expenditure was counting on this windfall from confiscations.
 
@@ -36,7 +36,7 @@ Liang Xinhu finished, then added, "I've been looking at the situation these days
 
 The greatest fear of the Guangdong natives—especially the gentry and merchants—was their total ignorance of the Senatorial Council's laws and modus operandi. They didn't know what the Council wanted or why it did things.
 
-Even if they knew the Australians valued trust and law, the *manner* of doing so baffled them. They didn't know if they would violate taboos, leading to easy misunderstandings. If the police arrested someone from a certain faction during duty, simply because that person broke the law and not targeting the faction/group/ethnicity, the locals—lacking the concept of equality before the law or understanding why trivial matters (in Ming terms) were punished—would imagine: "Is the Council making an example of me?" "Did I inadvertently offend a Senator?" Eventually, this could evolve into flight or resistance.
+Even if they knew the Australians valued trust and law, the *manner* of doing so baffled them. They didn't know if they would violate taboos, leading to easy misunderstandings. If the police arrested someone from a certain faction during duty, simply because that person broke the law and not targeting the faction, group, or ethnicity, the locals—lacking the concept of equality before the law or understanding why trivial matters (in Ming terms) were punished—would imagine: "Is the Council making an example of me?" or "Did I inadvertently offend a Senator?" Eventually, this could evolve into flight or resistance.
 
 "A few days ago we abolished the brokerages and arrested the ringleaders of the attack on the Haiyang Guild Hall. Director Lin and Chief Mu told me: the Teochew-Swatow merchants in the city are arrogant now. In transactions with Cantonese and Hakka merchants, they're bullying others. Clearly, they misunderstood, thinking we're playing the old game of supporting one faction to hit another. My view is: to explain the Council's laws to the natives, the best way is to print a batch of pamphlets similar to the 'Basic Law,' distributing them cheaply or for free. Use simple words to explain the Council's most basic laws—rights, freedoms, welfare of a citizen; what is forbidden (insulting others, enslaving others, illegal imprisonment). Also, the concept and function of police, enforcement methods, how the Council operates as a polity. This way natives can roughly understand the difference between the Council and the Ming, and our methods. Even if they don't understand the law itself, they'll know what to expect. This plays a major role in stabilizing hearts and implementing national policy."
 
@@ -64,11 +64,12 @@ Now, to scrape up local revenue quickly, Liu Xiang had to restore taxation. Busi
 
 But this wasn't enough to build a modern tax system. These were just raw data, unsummarized and unorganized. Besides, these businesses lacked accounting systems meeting modern standards. Considering the Senatorial Council's own hardware level and personnel quality, a truly modern collection mode was impossible. So Liu Xiang discussed with Chen Ce from the Finance and Tax Department and decided to walk on two legs.
 
-One leg was to reorganize import/export duties, which had relatively clear items, introducing the Council's tax system. Customs duties were the bulk of Guangzhou's commercial tax; reorganizing them promised great returns without costing too much manpower or time.
+One leg was to reorganize import and export duties, which had relatively clear items, introducing the Council's tax system. Customs duties were the bulk of Guangzhou's commercial tax; reorganizing them promised great returns without costing too much manpower or time.
 
 The other leg was utilizing the existing guild system. Almost every sizable trade in Guangzhou had a "public office"—effectively a guild. Assign tax quotas through the guilds. Collection and management would be simpler, especially not requiring masses of tax personnel. Though it had significant side effects, under current circumstances, it was a method to collect taxes quickly.
 
-"Actually, there are many small tax sources we can tap. Like deed tax, stamp duty, etc."
+"Actually, there are many small tax sources we can tap. Like deed tax, stamp duty, and so on."
 
 ---
+
 *(End of Chapter)*

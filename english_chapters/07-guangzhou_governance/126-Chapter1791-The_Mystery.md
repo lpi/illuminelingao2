@@ -1,79 +1,79 @@
 # Chapter 1791 - The Mystery
 
-The murderer was not only meticulous in thought throughout the entire process, but also ingenious in design. His actions were even more composed and self-possessed. He could return to collect the corpse after the patrol officers discovered and abandoned it, continuing with the original plan; even when fleeing in panic, he didn't forget to use the special design of Zhenbo Garden's back door to re-lock it. The audacity of this person was evident.
+The killer's cunning was evident at every turn—meticulous in planning, ingenious in execution, and ice-cold in composure. When patrol officers discovered the corpse only to abandon it, he calmly returned to collect it and proceeded with his original scheme. Even while fleeing, he had the presence of mind to exploit Zhenbo Garden's cleverly designed back door to relock it behind him. Such audacity spoke volumes about his character.
 
-Judging from his methods of hiding the corpse and disguising Wang Xiuzhu's death as suicide, this person was very familiar with the case-handling ideas and methods of traditional government offices. Either he was an old hand in the *jianghu* with a long criminal record, or he himself had once been a constable in the government office.
+His methods of concealing the body and staging Wang Xiuzhu's death as suicide revealed an intimate familiarity with traditional yamen investigative procedures. Either this was a seasoned *jianghu* veteran with an extensive criminal history, or a former constable who had once served in the government offices himself.
 
-Judging from the fact that the murderer didn't touch the silver at Widow Wang's home, this person didn't kill for money. Habitual criminals who kill for money wouldn't painstakingly dispose of the corpse; the various means he adopted were all striving to cover up the case.
+That the murderer left the silver in Widow Wang's home untouched eliminated robbery as a motive. Professional killers who murdered for profit never went to such elaborate lengths to dispose of corpses—every stratagem he employed was aimed at burying the crime itself.
 
-The murderer's familiarity with the route and the Shan-Shaan Guild Hall suggested he should be a local or someone who had lived in Guangzhou for a long time.
+His knowledge of the route and the Shan-Shaan Guild Hall suggested someone local, or at least a long-term Guangzhou resident.
 
-Criminal police roughly sketched the image of the murderer based on various clues they collected: young male, age between 25-30, beardless, scholarly appearance, judging from behavior likely a scholar. Height between 160-165 cm, foot length about 24 cm. Agile, possibly possessing martial arts skills. Speaks Guangzhou Mandarin, familiar with the local situation, very likely lives in Guangzhou.
+From the accumulated evidence, the criminal police assembled a rough profile: a young male between twenty-five and thirty years of age, clean-shaven, scholarly in appearance and demeanor. Height approximately 160 to 165 centimeters, foot length around 24 centimeters. Physically agile, possibly trained in martial arts. Spoke Guangzhou Mandarin, knew the local terrain intimately, and very likely lived within the city.
 
-With only this image, it was naturally impossible to issue a wanted notice for arrest. The criminal police needed more clues. At this time, the coroner's autopsy report was delivered.
+Such a sketch alone was far too vague to issue an arrest warrant. The investigators needed more. It was then that the coroner's autopsy report arrived.
 
-The coroners of Guangzhou's one prefecture and two counties were all retained—although their skills were crude and even full of errors and fallacies, at least they had accumulated experience over hundreds of years. Until their own forensic doctors were trained, they could only rely on these people temporarily.
+The coroners serving Guangzhou's prefecture and two counties had all been retained in their positions. Though their techniques were crude and riddled with errors and superstitions, they possessed centuries of accumulated experience. Until proper forensic doctors could be trained, these men would have to suffice.
 
-Coroners not only belonged to the lowly status of lictors, but because of their work, everyone avoided them like the plague, so basically, the profession was passed down within the family for generations. Experience accumulation existed, but theoretical knowledge basically relied on a book called *Records of Washing Away of Wrongs*. Naturally, it couldn't meet the needs of criminal investigation work. Especially the inability to dissect corpses greatly discounted the effect of corpse examination. For this reason, Liu San had to be invited to act as a forensic doctor to perform the dissection.
+Coroners occupied the lowest rung of the lictor class. Their work made them pariahs whom everyone shunned like plague victims, so the profession invariably passed from father to son. Experience accumulated, but theoretical knowledge relied almost entirely on the ancient text *Records of Washing Away Wrongs*—wholly inadequate for modern criminal investigation. The prohibition against dissecting corpses crippled their examinations most of all. For this reason, Liu San had been specially invited to perform the autopsy as a forensic expert.
 
-The autopsy report delivered now was such a mixed report that had undergone double examination. The conclusion was that the deceased was a middle-aged man, with no clothing remaining on the corpse, age roughly between forty and fifty, short and fat stature, delicate skin on hands and feet, wealthy life, not from a laboring class background. What was most shocking was that the deceased's genitals had actually been cut off completely by someone, the technique clean and neat—the report noted: cut off after death.
+The report that now arrived was a hybrid document reflecting both examinations. Its conclusions: the deceased was a middle-aged male stripped of all clothing, estimated between forty and fifty years old, short and corpulent, with soft skin on hands and feet indicating a life of wealth and leisure rather than labor. Most shocking of all, someone had completely severed the victim's genitals with clean, precise cuts—performed, the report noted, after death.
 
-Wu Xiang was startled when he read this. The deceased even had his genitals cut off—what a great hatred this must be! Looking further down, the cause of death was decapitation. However, the dissection results found a large amount of alcohol remaining in his stomach. Combined with the fact that there was no external trauma on the corpse, he should have been killed after being forced to get drunk.
+Wu Xiang drew a sharp breath when he read this. The victim's genitals, removed entirely—what depth of hatred could drive such an act? Reading further, he learned the cause of death was decapitation. Yet the dissection revealed a large quantity of alcohol remaining in the stomach. Combined with the absence of defensive wounds, the victim had apparently been plied with drink until he was helpless, then slain.
 
-"I see, this is undoubtedly a 'flower case' (sex-related crime)." Gao Chongjiu had no success in pursuing the Tanka boats and rushed back to the bureau after receiving notification that the corpse had been found.
+"I see it now—this is unquestionably a 'flower case,'" Gao Chongjiu declared. His pursuit of the Tanka boats had yielded nothing, and he had rushed back to the bureau upon receiving word the corpse was found.
 
-The murderer cut off the genitals after chopping off the victim's head—if the deceased was a child, it might be that human traffickers cut them off to make medicine for sorcery, but the victim was a middle-aged man. Such behavior had no other reasonable explanation except involving a romantic case.
+If the victim had been a child, the mutilation might suggest human traffickers harvesting organs for sorcery. But for a middle-aged man? The postmortem castration admitted no reasonable explanation except a crime of passion.
 
-Wu Xiang and Li Zhenguo also agreed with his view. The problem was what kind of romantic case could provoke the murderer to first behead and then castrate the deceased. Such deep hatred, perhaps only levels like killing one's father, snatching one's wife, or wiping out one's son would qualify.
+Wu Xiang and Li Zhenguo agreed with this assessment. The question remained: what manner of romantic entanglement could provoke a murderer to first behead, then emasculate his victim? Such profound hatred suggested grievances on the scale of a murdered father, a stolen wife, or a slain son.
 
-"Could it be done by the kin of Wang Xiuzhu's late husband?" Li Zhenguo put forward his view, "We can start from here..."
+"Could this be the work of Wang Xiuzhu's late husband's kinsmen?" Li Zhenguo ventured. "We might start our investigation there..."
 
-"If her late husband still had kin, Wang Xiuzhu would have been married back by someone long ago. Even if she was unwilling, this house would absolutely not be allowed for her to live in."
+"If her late husband still had kinsmen, Wang Xiuzhu would have been remarried off long ago," Gao Chongjiu countered. "Willing or not, she would never have been permitted to remain in that house alone."
 
-In poor families, a wife was also property, let alone she was originally bought. If Wang Xiuzhu's man had died without children, if her man still had brothers in the clan, they would inevitably marry her back to solve the bachelor problem. Even if they didn't marry her, selling or pawning her could always exchange for some money. As for this house, it was even more impossible to leave it to such a lonely and helpless widow like her.
+Among poor families, a wife was property—all the more so one who had been purchased. If Wang Xiuzhu's husband had died without issue but left brothers in his clan, they would inevitably have taken her as a bride to solve the bachelor problem. Failing that, they would have sold or pawned her for whatever money she could fetch. As for the house itself, no clan would ever leave such property to a lone and helpless widow.
 
-"So her late husband couldn't have had clan brothers locally, otherwise would they allow her to live freely alone?" Gao Chongjiu said, "Besides, kin catching adultery is for money, not to the extent of killing the adulterer—and attacking so ruthlessly."
+"So her late husband couldn't have had local kinsmen," Gao Chongjiu concluded. "Otherwise, would they have permitted her to live freely on her own? Besides, when relatives catch an adulteress, they're after money, not blood—certainly not murder executed with such brutality."
 
-Wu Xiang thought for a while and said: "One point can be affirmed, the murderer shouldn't be Wang Widow's lover, or rather, not that lover living in her house."
+Wu Xiang considered for a moment. "One point we can establish: the murderer is not Widow Wang's lover—or rather, not the lover who had been living in her house."
 
-The evidence was obvious. The men's clothes searched from Wang Xiuzhu's house completely didn't match the suspect's body type but were similar to the victim's, indicating these clothes belonged to the victim. Additionally, undigested food was extracted from the victim's stomach through dissection, and many kinds of food were related to the leftovers found at the scene. This indicated the victim had dinner at Wang Xiuzhu's house.
+The evidence was clear. The men's clothing found in Wang Xiuzhu's home didn't match the suspect's build at all, but corresponded closely to the victim's physique—indicating these garments belonged to the dead man. Moreover, undigested food extracted from the victim's stomach matched the leftovers discovered at the scene, proving he had eaten his final meal in that house.
 
-"Sister-in-law Liu said the suspect came late and left early, which indicates the suspect didn't live in Widow Wang's house. Evidence from the scene also proves he didn't live in Wang Xiuzhu's house regularly. But the situation provided by Old Cui indicates someone indeed lived in her house—the one living permanently at the Wang house should be the victim. But the suspect was very familiar with Widow Wang, and it's also a fact he stayed overnight at her house. I think they were likely acquainted or even familiar. As to what exactly the relationship between the three was, I think it's worth exploring."
+"Sister-in-law Liu said the suspect arrived late and departed early, indicating he didn't reside there. Physical evidence confirms he wasn't a regular inhabitant. Yet Old Cui's information establishes that someone was indeed living in the Wang residence—and that permanent resident was almost certainly our victim. But the suspect was clearly familiar with Widow Wang, and clearly spent the night. I believe all three knew each other, perhaps quite well. The exact nature of their relationship merits deeper investigation."
 
-"Could it be 'one woman two husbands', causing jealousy and fighting?" Gao Chongjiu said.
+"Could this be a 'one woman, two husbands' arrangement that bred jealousy?" Gao Chongjiu suggested.
 
-"Fighting out of jealousy is possible, 'one woman two husbands' doesn't quite make sense." Wu Xiang said, "'One woman two husbands' is a last resort method for poor people who can't afford a wife. Neither the victim nor the suspect look like poor people, not to the extent of making do like this. To say Wang Xiuzhu was having it both ways, I think the possibility is also very small. After all, she was a woman of ordinary appearance, not young anymore, where would she get such great charm?"
+"Jealousy is plausible, but 'one woman, two husbands' doesn't fit," Wu Xiang replied. "That arrangement is a desperate measure for poor men who cannot afford wives. Neither the victim nor the suspect appears impoverished—they wouldn't resort to such expedients. And to suppose Wang Xiuzhu was juggling two lovers? A woman of unremarkable appearance and advancing years—where would she acquire such allure?"
 
-Everyone felt Wu Xiang spoke reasonably.
+Everyone acknowledged the logic of his reasoning.
 
-"Our urgent task now is still to figure out who exactly the victim was." When Wu Xiang said this, he had no confidence in his heart. His teacher Chief Mu had said that murder case investigation work was most afraid of encountering corpses found in the wild without a stitch of clothing, because such corpses were very difficult to identify.
+"Our most urgent task remains identifying the victim." Even as Wu Xiang spoke, doubt gnawed at him. His mentor, Chief Mu, had always warned that homicide investigators dreaded nothing more than an unclothed corpse found in the wilderness—such bodies were notoriously difficult to identify.
 
-In the old timeline, police using a series of technological means like household registration, missing persons databases, fingerprint and DNA databases, facial reconstruction, etc., had a great probability of figuring out the specific identity of nameless bones. But in the 17th century, except for the household registration system just established, there was nothing. In this timeline, no one reported missing persons because the yamen didn't manage missing persons cases. To figure out how many people went missing recently, one could only mobilize the Baojia forces to investigate one by one. The workload was huge, and it might not necessarily be found.
+In the old timeline, police could employ household registration systems, missing persons databases, fingerprint and DNA archives, and facial reconstruction technology to identify nameless bones with high probability. But in the seventeenth century, they had nothing beyond a newly established *baojia* registration system. Here, no one reported missing persons because the yamen simply didn't handle such cases. To determine how many people had vanished recently, they would have to mobilize *baojia* networks to investigate household by household—an enormous undertaking with no guarantee of success.
 
-Wu Xiang didn't know so much high technology, but he knew that just in the mortuary set up by the Police Bureau outside the city, there were dozens of corpses with suspicious causes of death waiting to be identified and claimed.
+Wu Xiang was unfamiliar with such advanced technology, but he knew that in the Police Bureau's mortuary outside the city, dozens of suspicious corpses already awaited identification and claiming.
 
-Gao Chongjiu was an old hand at official business, naturally knowing the difficulty inside. He thought for a while and said: "I think we should still start from the items the lover left at Widow Wang's place. Her dressing box is from Purple Treasure Studio, the clerk might remember who bought it. Also that ring, the clothes left behind can all be checked."
+Gao Chongjiu, a veteran of bureaucratic work, understood these difficulties intimately. After some thought, he said, "I believe we should start with the items the lover left at Widow Wang's place. Her dressing box came from Purple Treasure Studio—the clerk might remember who purchased it. The ring too, and the clothing left behind—all can be traced."
 
-Wu Xiang knew this was the only way, and agreed immediately. They divided the work to investigate. Because criminal police manpower was insufficient, Li Ziyu and Zhao Gui were also temporarily transferred to "assist with work".
+Wu Xiang agreed immediately; it was their only viable approach. They divided the work accordingly. With criminal police shorthanded, Li Ziyu and Zhao Gui were temporarily reassigned to assist.
 
-Gao Chongjiu's job was to use his old connections in the lower class to investigate if there were any young people fitting the suspect's characteristics recently. If this person indeed came from "the Jianghu", it was impossible for there to be no news at all among the city foxes and society rats.
+Gao Chongjiu's assignment was to leverage his underworld connections. If anyone matching the suspect's description had appeared recently, surely some word would have circulated among the city's foxes and rats—the petty criminals and informants who knew everything that transpired in the shadows.
 
-Ordinary constables in the government office would master a group of so-called "ears and eyes", which in modern times would be called "informants". Gao Chongjiu had been an old hand at official business for decades and was sworn brothers with the head of the Guan Di Temple (Beggars' Sect/Gangs). He had a very high status in the gray world of Guangzhou City and controlled quite a few ears and eyes under his hand. He sat for a while in the teahouse he often went to, and before long he connected with a few main ears and eyes.
+Ordinary yamen constables always cultivated networks of "ears and eyes"—what modern times would call informants. Gao Chongjiu had worked the streets for decades and was sworn brothers with the head of the Guan Di Temple, the local gang hierarchy. He commanded considerable status in Guangzhou's gray world and controlled numerous informants. He settled into his usual teahouse, and before long, several key contacts had gathered.
 
-Based on his experience, a major case like the one that happened in South Scissors Alley would spread throughout the city in a few days, and there would be some useful news among the city foxes and society rats more or less.
+Experience told him that a case as sensational as the South Scissors Alley murder would spread throughout the city within days. The underworld would inevitably produce some useful intelligence.
 
-However, when he asked about the headless case in South Scissors Alley, these few ears and eyes all said in unison that there was no news.
+But when he inquired about the headless corpse in South Scissors Alley, every informant claimed to know nothing.
 
-This abnormal situation attracted his attention. He asked again if they had heard news of a young man similar to the suspect recently. The ears and eyes again said in unison no. A few said they would go back and ask around, but Gao Chongjiu, having a sharp eye, knew at a glance they were perfunctorily dealing with him.
+This anomaly seized his attention. He pressed further, asking whether anyone had encountered a young man matching the suspect's description. Again, unanimous denials. A few promised to ask around, but Gao Chongjiu's practiced eye recognized hollow gestures when he saw them.
 
-"Could it be Boss Gao issued a gag order?" Gao Chongjiu muttered secretly. This was a rare occurrence. Although the Guan Di Temple people had monstrous power in Guangzhou City, they still adhered to the principle of "not fighting against power". Generally, they didn't do things like murder for money. If the government had a case to pursue, they would cooperate as much as possible. If it really involved important figures of their own family, they would secretly "negotiate terms" with the constables and throw out a few scapegoats—in short, let both the constables and the government save face.
+"Could Boss Gao have issued a gag order?" he muttered to himself. Such occurrences were rare. Though the Guan Di Temple commanded enormous influence in Guangzhou, they adhered to the principle of not opposing authority directly. They generally avoided capital crimes like robbery-murder. When the government pursued a case, they typically cooperated. Even when the matter touched important figures within their own ranks, they would quietly "negotiate terms" with the constables and offer up a few scapegoats—anything to let both sides save face.
 
-Gao Chongjiu realized the complexity of the case—it seemed the matter was not just a simple murder case. He thought about it and decided to use other forces to investigate secretly, to see what tricks Gao Tianshi was playing.
+Gao Chongjiu recognized the growing complexity of this investigation. Whatever was unfolding, it was no simple murder. He resolved to employ other channels, investigating covertly to discover what game Gao Tianshi was playing.
 
-As for Li Ziyu and Zhao Gui, they were assigned the most boring and tedious work, physical evidence screening.
+Li Ziyu and Zhao Gui, meanwhile, drew the most tedious assignment: physical evidence screening.
 
-Screening work wasn't hard, the key was to be careful. After Li Ziyu was assigned the work, the first thing he did was take the silver ingots found in Widow Wang's house to the smelting shop for investigation.
+The work itself wasn't difficult—only meticulous attention was required. Upon receiving his orders, Li Ziyu's first action was to take the silver ingots recovered from Widow Wang's house to the smelting shops for investigation.
 
-Silver ingots were actually not the official currency of the Great Ming, only a fait accompli recognized by officials. Therefore, although official ingots had the best quality and sufficient weight, the government did not monopolize the right to cast them. Any shop or individual could melt and cast silver ingots themselves. But this was professional work after all, so most people still handed this work to smelting shops to do.
+Silver ingots were not, strictly speaking, official Ming currency—merely a de facto medium of exchange that the government tacitly recognized. Although official ingots boasted the finest quality and most accurate weight, the state held no monopoly on their casting. Any shop or individual could melt and cast silver as they pleased. But since the process required specialized skill, most people entrusted this work to the smelting shops.
 
-(End of Chapter)
+*End of Chapter*

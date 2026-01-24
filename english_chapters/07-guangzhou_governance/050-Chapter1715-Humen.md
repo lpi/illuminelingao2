@@ -1,6 +1,6 @@
 # Chapter 1715 - Humen
 
-Zhang Yu ran all the way home. Seeing that Huifu Lane still looked the same as always—shops had taken down their shutters and were leisurely doing business—he saw his own walnut cookie shop was open too. His father was kneading dough in the shop, the oven fire was lit, and the scent of walnut oil wafted out. His parents were busy around the work table.
+Zhang Yu ran all the way home. When he reached Huifu Lane, everything looked the same as always—shops had taken down their shutters and were leisurely doing business. His own walnut cookie shop was open too. His father was kneading dough inside, the oven fire was lit, and the scent of walnut oil wafted out. His parents were busy around the work table.
 
 "Old Bean! Stop working! Close the shop!" Zhang Yu burst in, shouting indiscriminately.
 
@@ -8,7 +8,11 @@ His father's face instantly darkened. Shopkeepers hated the phrase "close the sh
 
 Zhang Yu didn't waste time explaining. He shouted at the top of his lungs: "Up with the boards! Soldiers on the street! The Bald... Bald... Thieves have entered the city! Guangzhou—Guangzhou—has fallen!"
 
-His father was stunned dumb, dropping his rolling pin. "Soldiers passing," "city fallen"—these terrible words drilled into his ears. Since the Jiajing era when Guangzhou built the new city wall to protect the riverside commercial district from rampant Japanese pirates, this area hadn't heard an alarm in over a hundred years, let alone seen the disaster of war. But to the common people of that time, words like passing soldiers and fallen cities were not unfamiliar. Terrifying scenes instantly floated into his parents' minds: streets engulfed in fire, merchants and people running in all directions, soldiers burning, killing, and raping... Their faces turned white. For a long while they couldn't say a word. It was Zhang Yu who reacted fast, urging them repeatedly to hurry and close the door, "up with the boards." The people in the shop woke from their dreamlike state and rushed to put up the shutters. Zhang Yu's mother cried anxiously, "Quick, put out the stove too!"
+His father stood stunned, dropping his rolling pin. "Soldiers passing," "city fallen"—these terrible words drilled into his ears. Since the Jiajing era when Guangzhou built the new city wall to protect the riverside commercial district from rampant Japanese pirates, this area hadn't heard an alarm in over a hundred years, let alone seen the disaster of war. But to the common people of that time, words like passing soldiers and fallen cities were far from unfamiliar. Terrifying scenes instantly floated into his parents' minds: streets engulfed in fire, merchants and people running in all directions, soldiers burning, killing, and raping...
+
+Their faces turned white. For a long while they couldn't say a word. It was Zhang Yu who reacted quickly, urging them repeatedly to hurry and close the door, "up with the boards." The people in the shop woke from their daze and rushed to put up the shutters.
+
+Zhang Yu's mother cried anxiously, "Quick, put out the stove too!"
 
 His father said, "Why put out the stove? The cookies were just put in; they'll be undercooked!"
 
@@ -18,7 +22,9 @@ Ignoring the shop interior, Zhang Yu jumped outside to take down the shop sign. 
 
 The tofu shop's daughter had been leaning against the door selling early morning tofu. Seeing Zhang Yu running back and the cookie shop in chaos, she was craning her neck to watch the novelty. Zhang Yu tilted his head and saw her standing cluelessly in front of her shop watching the show. Anxious, he roared: "Tell your dad to put up the boards! The Bald Thieves are in the city! The soldiers are coming!"
 
-His shout didn't just warn her—the relatively quiet Huifu Lane instantly turned into chaos. In moments, every shop and household was overturned: packing things, putting up shutters, closing doors and windows... Some bumped into things and cried out in pain; some shouted hoarsely in anxiety; some slapped their thighs and started weeping and singing for no reason. The tofu shop girl hadn't recovered her wits before her mother dragged her to the back, smeared her face with ash from the stove, and hid her in the woodshed, forbidding her to come out.
+His shout didn't just warn her—the relatively quiet Huifu Lane instantly turned into chaos. In moments, every shop and household was overturned: packing things, putting up shutters, closing doors and windows... Some bumped into things and cried out in pain; some shouted hoarsely in anxiety; some slapped their thighs and started weeping and wailing for no reason.
+
+The tofu shop girl hadn't recovered her wits before her mother dragged her to the back, smeared her face with ash from the stove, and hid her in the woodshed, forbidding her to come out.
 
 "You hide well! No matter what you hear, don't come out!"
 
@@ -40,35 +46,35 @@ Zhang Yu nodded. "Mother, I understand! I was thinking, should we hang that Spec
 
 "The situation outside is unclear right now. Hanging it out might attract attention instead. Better wait and see."
 
-***
+---
 
-Meanwhile, at the central military yamen in the Humen Fortress, a dozen fully armored squad commanders and extra-numerary officers were gathered. They had been summoned to the yamen for a meeting before dawn, but now that the sky was turning pale with the "fish-belly white" of morning, Thousand-Household Liu still hadn't appeared. They gathered in small groups, whispering.
+Meanwhile, at the central military yamen in Humen Fortress, a dozen fully armored squad commanders and extra-numerary officers were gathered. They had been summoned to the yamen for a meeting before dawn, but now the sky was turning pale with the "fish-belly white" of morning, and Thousand-Household Liu still hadn't appeared. They gathered in small groups, whispering.
 
 Though they didn't know what Thousand-Household Liu wanted to discuss, everyone estimated it had to do with the Bald Thieves.
 
-In recent months, Bald Thief ships had been frequent on the river. Standing on the peak of Wushan on Yaniangxie [Anunghoy] Island, looking out over the river, the situation was clear: tugboats traveling to the Great World were more than double the past number. Though the Bald Thieves let out word that this was cargo and decoration materials for the Great World's opening, military intuition told them something was fishy: these ships weren't carrying ordinary cargo!
+In recent months, Bald Thief ships had been frequent on the river. Standing on the peak of Wushan on Yaniangxie Island, looking out over the water, the situation was clear: tugboats traveling to the Great World were more than double the past number. Though the Bald Thieves had let out word that this was cargo and decoration materials for the Great World's opening, military intuition told them something was fishy—these ships weren't carrying ordinary cargo.
 
-Some said they had seen many booted feet sticking out from under canvas covers; some said cannons had been unloaded at the Great World wharf in the middle of the night; once, an Australian ship travelling on the river suddenly exploded on its own and sank within moments...
+Some said they had seen many booted feet sticking out from under canvas covers. Some said cannons had been unloaded at the Great World wharf in the middle of the night. Once, an Australian ship traveling on the river suddenly exploded on its own and sank within moments...
 
-What the Australians were shipping was a matter of great concern to local officials. The Pearl River was the provincial river of Guangdong; simply intercepting and inspecting ships would reveal what medicine the Australians were selling in their gourd. However, since the Australians arrived at Bai'etan, the Ming had lost the right to inspect Australian ships. Although a few hotheaded or greedy fools had tried to "brave the violence" to "inspect" or "detain" ships flying the Yuan Council flag, the result was either their whole family dying in a fire at night or the whole family joining hands to jump into the river by day. After a few times, naturally no one was willing to do it anymore.
+What the Australians were shipping was a matter of great concern to local officials. The Pearl River was the provincial river of Guangdong; simply intercepting and inspecting ships would reveal what medicine the Australians were selling in their gourd. However, since the Australians arrived at Bai'etan, the Ming had lost the right to inspect Australian ships. Although a few hotheaded or greedy fools had tried to "brave the violence" to "inspect" or "detain" ships flying the Yuan Council flag, the result was either their whole family dying in a fire at night or the whole family joining hands to jump into the river by day. After a few such incidents, naturally no one was willing to do it anymore.
 
-The officers on river defense saw black-smoke-spewing Australian fire-wheel ships passing every day. Privately discussing it, they all felt the Australians were about to make a "major move." But even knowing what the Bald Thieves were up to, what could people like them do? The battle when the Bald Thieves first broke into the provincial river and reached Bai'etan had left too deep an impression—a sense of total powerlessness made most of them lose the will to resist.
+The officers on river defense watched black-smoke-spewing Australian fire-wheel ships pass every day. In private discussions, they all felt the Australians were about to make a "major move." But even knowing what the Bald Thieves were up to, what could people like them do? The battle when the Bald Thieves first broke into the provincial river and reached Bai'etan had left too deep an impression—a sense of total powerlessness made most of them lose the will to resist.
 
-What if they really had to fight? Everyone anxiously pondered this question. It would be nothing but striking a stone with an egg—destruction for jade and stone alike!
+What if they really had to fight? Everyone anxiously pondered this question. It would be nothing but striking a stone with an egg—destruction for jade and stone alike.
 
-In the despair of being unable to win and unable to flee, no one had any plan for the future. With an attitude of mulling through day by day, many secretly accepted "allowances" from the Australians, "renting" their soldiers and ships to the Australians for labor, while they themselves lived a life of drunken dreams in Ziming Tower.
+In the despair of being unable to win and unable to flee, no one had any plan for the future. With an attitude of muddling through day by day, many secretly accepted "allowances" from the Australians, "renting" their soldiers and ships to the Australians for labor while they themselves lived a life of drunken dreams in Ziming Tower.
 
 As the officers whispered, suddenly someone shouted from the back: "Take the hall!" The crowd bustled, lining up according to rank to wait.
 
-They saw Liu Fengsheng, the Humen Fortress Coastal Defense Mobile Corps Thousand-Household, come out from the back fully armored. His expression was cold and murderous—a face that looked ready to kill. The officers were stunned: there was no alarm right now; why did Thousand-Household Liu have this look of going to battle? Did the Australians make a move?
+They saw Liu Fengsheng, the Humen Fortress Coastal Defense Mobile Corps Thousand-Household, emerge from the back fully armored. His expression was cold and murderous—a face that looked ready to kill. The officers were stunned: there was no alarm right now; why did Thousand-Household Liu have this look of going to battle? Had the Australians made a move?
 
 While they were suspicious, suddenly a report came from the Yaniangxie Battery: over twenty Bald Thief warships were moving up the provincial river, approaching the Humen East Channel!
 
 Then a report came from the Upper Hengdang Battery: over ten Bald Thief warships had entered the Humen West Channel, approaching the Upper Hengdang Island battery from the rear flank. Almost simultaneously, inland river vessels flying the Morning Star flag appeared in the Sanmen waterway between Wushan and Humen Fortress.
 
-Before they knew it, the Bald Thief army was at the gates, forming a pincers encampment against Humen Fortress. The officers present felt their hands and feet go cold—many here had personally experienced the Humen Battle years ago and had a deep impression of the ferocity of the Bald Thieves' cannon fire and their soldiers' courage.
+Before they knew it, the Bald Thief army was at the gates, forming a pincers encirclement against Humen Fortress. The officers present felt their hands and feet go cold—many here had personally experienced the Humen Battle years ago and had a deep impression of the ferocity of the Bald Thieves' cannon fire and their soldiers' courage.
 
-Now, this army was at the gates of Humen Fortress again, like iron pincers that could crush the not-very-hard walnut of Humen with a little force.
+Now, this army was at the gates of Humen Fortress again, like iron pincers that could crush the not-very-hard walnut of Humen with the slightest pressure.
 
 In their panic, everyone turned their eyes to the man in charge of Humen Fortress: Liu Fengsheng.
 

@@ -1,91 +1,95 @@
 # Chapter 1730: Dong Mingdang
 
-"He might not necessarily be unusable for us," Lin Zunxiu said. "Now that the court is in trouble, if he steps forward, the court will naturally give him a future."
+"He might not necessarily be unusable," Lin Zunxiu said. "Now that the court is in trouble, if he steps forward, the court will naturally grant him a future."
 
-Liang Cunhou nodded and didn't say anything more, seemingly pondering something. Lin Zunxiu waited respectfully for him to speak. The Lin and Liang families appeared to have only a merchant-client relationship on the surface, but secretly they were deeply connected. The major financial backer behind the restaurant opened by the Lin family was the Liang family. It was a case of "having the reality of master and servant without the name of master and servant."
+Liang Cunhou nodded but said nothing more, seemingly pondering something. Lin Zunxiu waited respectfully for him to speak. On the surface, the Lin and Liang families appeared to share only a merchant-client relationship, but secretly they were deeply connected. The major financial backer behind the restaurant the Lin family operated was the Liang family. Theirs was a case of "possessing the reality of master and servant without the name."
 
-After a long while, Liang Cunhou said, "Let's discuss this matter later. Keep trying to win him over for now. Doesn't he have dealings with the Hair-shorn thieves? You can find out more news about the Hair-shorn thieves through him."
+After a long while, Liang Cunhou said: "Let's discuss this matter later. For now, keep trying to win him over. Doesn't he have dealings with the Hair-shorn bandits? You can learn more about their activities through him."
 
-"This younger brother understands."
+"I understand."
 
-"From now on, just do business and live your life as usual. If there is anything, I will send someone to find you. If you need to see me, go to the Visit Spring Courtyard and ask Yuewan to pass a message, and I will arrange it," Young Master Liang said. "I'm going to live in seclusion for a while."
+"From now on, simply conduct business and live your life as usual. If anything arises, I will send someone to find you. If you need to see me, go to Visit Spring Courtyard and ask Yuewan to relay a message—I will make arrangements." Young Master Liang said. "I intend to live in seclusion for a while."
 
 "Is Miss Yuewan reliable?" Lin Zunxiu was somewhat worried.
 
-Liang Cunhou said, "Her whole family, young and old, are in the palm of my hand." Just as he was speaking, a figure suddenly flashed across the wall. Lin Zunxiu, already harboring a guilty conscience, couldn't help but shout out, "Who is it?"
+Liang Cunhou replied: "Her entire family, young and old, is in the palm of my hand."
+
+Just as he spoke, a figure suddenly flashed across the wall. Lin Zunxiu, already harboring a guilty conscience, couldn't help but cry out: "Who's there?"
 
 "It is the servant girl Suiyu..."
 
-With the voice, a tall and slender maid came in, holding a green jade plate in her hands, which was full of various fruits.
+With the voice came a tall, slender maid, carrying a jade-green plate piled with various fruits.
 
-Liang Cunhou said, "Don't worry. Those who have sought refuge with me in this generation can only serve in the outer coutyard. The inner courtyard uses 'old people' who have received grace for several generations. Those who can enter here are loyal servants who can be entrusted with life and death. Words from outside do not enter, and words from inside do not go out."
+Liang Cunhou said: "Don't worry. Those who have sought refuge with me in this generation can only serve in the outer courtyard. The inner courtyard employs 'old people' who have received grace for several generations. Those permitted to enter here are loyal servants who can be entrusted with life and death. Words from outside do not enter, and words from inside do not go out."
 
-As soon as his voice fell, Suiyu knelt down and kowtowed: "Thank you, Young Master."
+As soon as he finished speaking, Suiyu knelt and kowtowed: "Thank you, Young Master."
 
-Liang Cunhou gestured slightly, and the maid retreated. Lin Zunxiu praised, "Brother Liang indeed manages his family well..." After saying it, he felt that this remark was surprisingly inappropriate. After all, managing the household was a woman's job. Using it to praise a Juren master living at home had a hint of mockery.
+Liang Cunhou made a slight gesture, and the maid withdrew. Lin Zunxiu praised: "Brother Liang indeed manages his household well..." After saying it, he realized the remark was oddly inappropriate. Managing the household was, after all, a woman's duty. Using it to praise a *Juren* master living at home carried a hint of mockery.
 
-Liang Cunhou didn't mind and said indifferently: "Family and state—family and state are actually one body. As the saying goes, if one cannot sweep a room, how can one sweep the world? If one cannot even manage one's own family well, how can one serve the court and the country? I manage my family with military law here, and controlling subordinates involves only two words: one is strictness. Regardless of whether you are a new person or an old person, 'honored' or disgraced, a favorite or a black sheep, if you make a mistake, you will be punished by family law; the second is benevolence. Serving in my residence, the monthly money and rations are more than two or three times higher than those of outside servants. Everyone's family use is abundant; the old are cared for, and the young are educated. Servants who are sick are provided with doctors, and those who pass away are given coffins and graves. Governing the family like this, there is no worry that everyone will not serve you happily and work themselves to death for you."
+Liang Cunhou took no offense. He said calmly: "Family and state—family and state are actually one body. As the saying goes, if one cannot sweep a room, how can one sweep the world? If one cannot even manage one's own household, how can one serve court and country? I govern my household with military discipline. Controlling subordinates requires only two principles: first, strictness. Regardless of whether you are a new person or an old hand, favored or disgraced, if you make a mistake, you will be punished by family law. Second, benevolence. Those serving in my residence receive monthly wages and rations two or three times higher than servants elsewhere. Everyone's family is amply provided for; the old are cared for, the young educated. Servants who fall ill receive doctors; those who pass away are given coffins and graves. Governing the household thus, there is no worry that everyone won't serve willingly and work themselves to the bone."
 
-Lin Zunxiu said, half flattering and half admiring: "Young Master has great talent."
+Lin Zunxiu said—half flattering, half genuinely admiring: "Young Master has great talent."
 
 Liang Cunhou smiled slightly: "You may go."
 
-After sending Lin Zunxiu away, his personal page boy came over and whispered a few words in his ear. Liang Cunhou nodded and said, "It is not suitable for me to come forward in this matter. Tell Master Mai to talk to him."
+After seeing Lin Zunxiu off, his personal page boy came over and whispered a few words in his ear. Liang Cunhou nodded: "It is not suitable for me to come forward in this matter. Tell Master Mai to speak with him."
 
-The Guangzhou Prefectural Yamen—now the Guangzhou Special City Municipal Government—was brightly lit. The staff of the municipal government were working intensely. A gas lamp brought from the old time-space hung in Liu Xiang's office, illuminating the entire room brightly.
+---
 
-The large red sandalwood table, serving as a desk, was piled with documents. Liu Xiang had been insanely busy these few days, arranging takeover matters, setting up various tasks, sorting out takeover asset documents, reviewing endless documents, and meeting endless people. Every day he rose at the fifth watch and slept at midnight, and his face had shrunk a size.
+The Guangzhou Prefectural Yamen—now the Guangzhou Special City Municipal Government—was brightly lit. The staff of the municipal government worked intensely. A gas lamp brought from the old time-space hung in Liu Xiang's office, illuminating the entire room brilliantly.
 
-Hearing the second watch struck on the drum tower outside—at present, Guangzhou City had not yet established a new timekeeping system, and still adopted the system of morning bells and evening drums, firing a cannon at noon, and striking the watches at night. At the same time, a strict curfew was promulgated to prevent anyone from causing destruction under the cover of night. Streetlights and big clocks, two necessities of modern cities, were non-existent in Guangzhou—Liu Xiang put down the red and blue pencil in his hand. Getting up to stretch his body, he had just finished reading Lin Baiguang's "Implementation Plan for Public Security Rectification in Guangzhou."
+The large red sandalwood table serving as his desk was piled with documents. Liu Xiang had been frantically busy these past few days: arranging takeover matters, establishing various operations, sorting through asset documents, reviewing endless paperwork, meeting endless people. Rising at the fifth watch and sleeping at midnight every day, his face had shrunk a size.
 
-As the host of the former Guangzhou City Operation Department, Lin Baiguang knew a lot about the basic situation of Guangzhou. Therefore, after entering the city this time, he was appointed as the Director of the Guangzhou Comprehensive Governance Office. A department that managed almost everything from city appearance and sanitation to public security.
+Hearing the second watch struck on the drum tower outside—at present, Guangzhou City had not yet established a new timekeeping system and still employed the system of morning bells and evening drums, firing a cannon at noon and striking the watches at night. Simultaneously, a strict curfew had been promulgated to prevent sabotage under cover of darkness. Streetlights and large clocks, two necessities of modern cities, were nonexistent in Guangzhou—Liu Xiang set down the red and blue pencil in his hand. Rising to stretch, he had just finished reading Lin Baiguang's "Implementation Plan for Public Security Rectification in Guangzhou."
 
-In this report and the thick appendix accompanying it, Liu Xiang saw many problems listed as "urgently needing solution"—simply all-encompassing. These were also things that the citizens reacted very strongly to, concerning their vital interests. Among them were traffic aspects, sanitation aspects, and also public security aspects. The "big city diseases" of the 21st century could all be seen in similar forms in 17th century Guangzhou. And the original government agencies of one prefecture and two counties in Guangzhou were very negligent in city management, or could even be said to have let things drift. Many problems had persisted for decades or even centuries.
+As the former host of the Guangzhou City Operation Department, Lin Baiguang knew the city's basic situation intimately. Therefore, after entering the city, he had been appointed Director of the Guangzhou Comprehensive Governance Office—a department managing nearly everything from city appearance and sanitation to public security.
 
-"Being a mayor is really not easy," Liu Xiang patted his dizzy head. He decided to meet with Lin Baiguang tomorrow to discuss selecting a few livelihood issues that were relatively simple to handle but could achieve sensational results to solve in one go. On one hand, to show the work efficiency of the new municipal government, and on the other hand, to give the Guangzhou citizens an impression of "a new atmosphere in the new dynasty."
+In this report and its thick appendix, Liu Xiang saw numerous problems listed as "urgently needing solution"—all-encompassing, really. These were also issues the citizens had reacted strongly to, matters concerning their vital interests: traffic problems, sanitation problems, public security problems. The "big city diseases" of the twenty-first century all appeared in similar forms in seventeenth-century Guangzhou. And the original government agencies of one prefecture and two counties had been profoundly negligent in city management—or could even be said to have let things drift. Many problems had persisted for decades, even centuries.
 
-Guo Xi'er walked in: "Chief, supper is ready. Will you have it now?"
+"Being a mayor is really not easy," Liu Xiang said, patting his dizzy head. He decided to meet with Lin Baiguang tomorrow to discuss selecting a few livelihood issues that were relatively simple to address yet capable of producing sensational results. On one hand, this would demonstrate the new municipal government's efficiency; on the other, it would give the Guangzhou citizens an impression of "a new atmosphere in the new dynasty."
 
-"Bring it in." Liu Xiang also felt his stomach was empty. "I'll read documents for a while longer after eating, then rest."
+Guo Xi'er walked in: "Chief, supper is ready. Will you eat now?"
 
-While eating the white porridge brought by Guo Xi'er, he suddenly thought of something: "Has that Dong Mingdang gone to sleep yet? If not, let her come see me."
+"Bring it in." Liu Xiang felt his stomach was indeed empty. "I'll read documents a while longer after eating, then rest."
 
-He had been busy like a spinning top these few days and hadn't had time to see her at all. Finishing work a bit early today, he remembered this matter.
+While eating the white porridge Guo Xi'er brought, he suddenly remembered something: "Has that Dong Mingdang gone to sleep yet? If not, have her come see me."
 
-To be honest, he didn't care much about the "hidden Ming officials" Dong Mingdang wanted to report. Although after inspection, there were indeed a few provincial-level officials who were missing alive or dead, Liu Xiang didn't care too much whether they could be caught—firstly, they were of little use anymore; secondly, he believed that with the level of the Senate's violent organs, as long as they were still in the city, they would be dragged out sooner or later. The upcoming household registration check would be enough to reveal them. But this little woman trying every means to see him aroused his curiosity somewhat.
+He had been spinning like a top these past few days and hadn't found time to see her. Finishing work a bit early today, he recalled the matter.
 
-At this moment, he scrutinized Dong Mingdang who was brought before him. Seeing her come in openly, she first kowtowed to him, then stood up in front of him. Although her gaze was slightly lowered, she didn't have the coyness of a small woman of this time-space bowing her head almost ninety degrees when seeing a strange man. She was not in mourning. Although her clothes were plain-colored, they were also very exquisitely made and beautiful, and her hair was combed neatly. Where was the look of someone whose father had died?
+To be honest, he didn't much care about the "hidden Ming officials" Dong Mingdang wanted to report. Though inspection confirmed that several provincial-level officials were indeed missing—neither confirmed alive nor found dead—Liu Xiang wasn't particularly concerned about whether they could be caught. First, they were of little use anymore; second, he believed that with the Senate's security apparatus, as long as they remained within the city, they would be dragged out sooner or later. The upcoming household registration check would be enough to expose them. But this young woman's persistence in trying every means to see him had piqued his curiosity.
 
-Liu Xiang was surprised in his heart and asked: "You are Dong Mingdang?"
+---
 
-"This servant is." Her voice was crisp and pleasant, and her answer crisp and neat. This gave Liu Xiang a slight favorable impression. He looked carefully; Dong Mingdang wasn't tall, but her figure was very well-proportioned. She had a clean melon-seed face, without makeup, and possessed sixty or seventy percent beauty.
+Now he scrutinized Dong Mingdang, who had been brought before him. He watched her enter openly, first kowtowing to him, then rising to stand before him. Though her gaze was slightly lowered, she lacked the coyness of small women in this era who would bow their heads nearly ninety degrees when encountering a strange man. She wasn't in mourning—her clothes were plain-colored but exquisitely made and beautiful, and her hair was neatly combed. Where was the appearance of someone whose father had just died?
 
-"I heard you want to report the whereabouts of officials in the city," Liu Xiang asked slowly. "Now that you have seen me, tell me everything in full detail."
+Liu Xiang was surprised. He asked: "You are Dong Mingdang?"
+
+"This servant is." Her voice was crisp and pleasant, her answer crisp and neat. This gave Liu Xiang a slight favorable impression. He looked carefully: Dong Mingdang wasn't tall, but her figure was well-proportioned. She had a clean oval face, wore no makeup, and possessed about sixty or seventy percent beauty.
+
+"I heard you want to report the whereabouts of officials in the city," Liu Xiang asked slowly. "Now that you've seen me, tell me everything in full detail."
 
 Dong Mingdang said: "Actually, this servant doesn't know the whereabouts of any hidden officials."
 
-Liu Xiang was stunned, and Guo Xi'er showed an expression of disbelief—no one had dared to deceive a Chief so blatantly yet. The end for many who deceived the Chiefs was either death or being tortured to death slowly in mines more terrible than death. This girl had such gall! She suddenly felt a sour distension in her lower abdomen, a feeling of being unable to hold her urine: deeply regretting her meddling to report for this girl!
+Liu Xiang was stunned. Guo Xi'er wore an expression of disbelief—no one had yet dared to deceive a Chief so blatantly. The fate of many who deceived the Chiefs was either death or being slowly tortured to death in mines worse than death. This girl had such nerve! She suddenly felt a sour distension in her lower abdomen, a feeling of being unable to hold her bladder—deeply regretting her meddling to report on this girl's behalf!
 
-Although Guo Xi'er had been a student at Meadow School for a few years and trained in the maid training class for a few months, she still couldn't help but kneel down with a thump: "This servant deserves to die!"
+Though Guo Xi'er had been a student at Meadow School for a few years and trained in the maid training class for several months, she still couldn't help falling to her knees with a thump: "This servant deserves to die!"
 
-"Get up! None of your business!" Liu Xiang shouted a reprimand, then said to Dong Mingdang, "Since you don't know, why did you say so? This is a matter of military importance, not to be joked about!"
+"Get up! This is none of your business!" Liu Xiang barked, then turned to Dong Mingdang: "Since you don't know, why did you say you did? This is a military matter—not to be joked about!"
 
-"If this servant didn't say there was important military intelligence, how could Your Excellency see a little woman like me?" Dong Mingdang lowered her head and said respectfully.
+"If this servant hadn't claimed to have important military intelligence, how could Your Excellency possibly have seen a little woman like me?" Dong Mingdang kept her head lowered as she spoke respectfully.
 
-Liu Xiang nodded: "You have already seen me. If you have anything important to say, say it. If it is about your father's funeral affairs, you don't need to worry; we will arrange it properly. As for you mother and daughter, you don't need to worry either."
+Liu Xiang nodded: "You have seen me now. If you have something important to say, say it. If it concerns your father's funeral arrangements, you needn't worry—we will handle everything properly. As for you mother and daughter, you needn't worry either."
 
-"Many thanks for Your Excellency's benevolence. This servant sought to see Your Excellency not for this matter. But out of a wish to serve the Great Song." Dong Mingdang said respectfully.
+"Many thanks for Your Excellency's benevolence. This servant didn't seek to see Your Excellency for that purpose—but rather out of a wish to serve the Great Song." Dong Mingdang said with deference.
 
-Liu Xiang hesitated for a moment, wanting to tell her to "say it again," but then thought it unnecessary. Speaking of which, he had seen quite a few men and women actively coming to defect to the Senate over the years. But a situation like Dong Mingdang's was a first.
+Liu Xiang hesitated momentarily, wanting to tell her to "say that again," but then thought better of it. Truth be told, over the years he had seen quite a few men and women actively seeking to defect to the Senate. But a situation like Dong Mingdang's was a first.
 
-"Miss Dong, you have national hatred and family rancor with my Great Song Senate. You now propose to serve us; how can we believe you?"
+"Miss Dong, you bear national hatred and family grievance against my Great Song Senate. Now you propose to serve us—how can we believe you?"
 
-Dong Mingdang nodded: "Your Excellency speaks truly. It is unreasonable both emotionally and logically. Even if it were true, you probably wouldn't dare use such a heartless person. However, Master Dong was not my father."
+Dong Mingdang nodded: "Your Excellency speaks truly. It is unreasonable both emotionally and logically. Even if it were genuine, you probably wouldn't dare employ such a heartless person. However—Master Dong was not my father."
 
-It turned out Dong Mingdang was a "drag-oil bottle" (child from a previous marriage). Her family was originally a small landlord in a certain county in Shandong. When Master Dong was the magistrate in Henan, he coveted her mother's beauty and colluded with bandits to kill her father's entire family. He snatched her mother away as a concubine. She was young at the time, and being a girl, was allowed to be brought along under Concubine Jiang's bitter pleading, counting as Master Dong's adopted daughter.
+It turned out Dong Mingdang was a child from her mother's previous marriage. Her birth family had been small landlords in some county in Shandong. When Master Dong was serving as magistrate in Henan, he had coveted her mother's beauty and colluded with bandits to murder her father's entire family. He had snatched her mother away as a concubine. She had been young at the time, and being a girl, was permitted to accompany her mother—only at Concubine Jiang's bitter pleading—counted as Master Dong's adopted daughter.
 
-Liu Xiang found it somewhat hard to believe; this background was too bizarre. He couldn't help pondering. Dong Mingdang said, "This servant knows Your Excellency naturally won't believe it, and my mother's words probably can't count either. However, most of the Dong family servants are still here. His personal attendant, Dong De, who helped the tyrant in his oppression, is still alive. You can send someone to interrogate him and ask if what this servant said is false."
+Liu Xiang found this somewhat hard to believe; the background was too extraordinary. He couldn't help but ponder. Dong Mingdang said: "This servant knows Your Excellency naturally won't take my word for it, and my mother's testimony probably counts for nothing either. However, most of the Dong household servants are still here. His personal attendant, Dong De—who aided the tyrant in his oppression—is still alive. You may send someone to interrogate him and ask whether what this servant says is false."
 
-Liu Xiang said: "Regardless of whether what you said is false or true, serving the Senate requires going through procedures. It cannot be decided by my word alone." He thought for a moment, "I am not perfunctory with you. My Senate acts differently from the Great Ming; everything has rules and regulations. No single person's word is law. If you really intend to defect to the Great Song, in a few days my Senate will recruit worthy talents in Guangzhou, regardless of gender. As long as you pass the review, you will be a naturalized citizen."
-
-(End of this chapter)
+Liu Xiang said: "Regardless of whether what you've said is true or false, serving the Senate requires going through proper procedures. It cannot be decided by my word alone." He thought for a moment. "I am not being dismissive. My Senate operates differently from the Great Ming—everything has rules and regulations. No single person's word is law. If you truly intend to join the Great Song, in a few days my Senate will recruit worthy talents in Guangzhou, regardless of gender. As long as you pass the review, you will become a naturalized citizen."

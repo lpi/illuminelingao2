@@ -2,7 +2,7 @@
 
 The steward was about to ask what was happening when a sudden uproar erupted outside. Two gatekeepers came stumbling in, one already streaming blood from his head, screaming, "Disaster! They've broken in!"
 
-Everyone at the banquet stiffened. An assault on a guild-hall in broad daylight—these thugs were brazen! The steward hurried to ask, "Who are they?"
+Everyone at the banquet stiffened. An assault on a guild-hall in broad daylight—these thugs were brazen beyond belief! The steward hurried to ask, "Who are they?"
 
 "Guandi Temple muscle!" The gatekeeper clutched a rag to his head, terrified. "I don't know how it happened—a hundred or more came swarming in all at once. They didn't ask for money or food—didn't say a word—just started throwing bricks and rushed in swinging clubs!"
 
@@ -14,21 +14,21 @@ Before he finished, the sound of smashing and crashing erupted outside, and doze
 
 "How dare you act up on Cantonese turf!"
 
-The guild-hall people were not unaccustomed to such things. The late Ming was the heyday of "fighting-gangs"; though Guangzhou had no formal fighting-gangs, hiring similar thugs for brawls was common. Many of the merchants here had done the same. Though alarmed, no one panicked.
+The guild-hall people were not unaccustomed to such things. The late Ming was the heyday of fighting-gangs; though Guangzhou had no formal fighting-gangs, hiring thugs for brawls was common. Many of the merchants here had done the same. Though alarmed, no one panicked.
 
 The steward kept his composure. Frowning, he snapped, "Close the inner gate!" Then he charged forward, and together with the servants, heaved the heavy inner gate shut.
 
-Just as they slammed the bolt home, the attackers were already pounding on the panels—"thud, thud, thud."
+Just as they slammed the bolt home, the attackers were already pounding on the panels—thud, thud, thud.
 
 Manager Ding ground his teeth. "It's the *ya* men who arranged this!"
 
 The steward shouted, "Sound the gong! Everyone grab whatever you can!"
 
-Teochew-Swatow folk were renowned for their regional loyalty, and the region itself was known for its "fierce customs." At the gong's clang, other guests staying in the hall heard the commotion and came running from every corner, some clutching shoulder-poles and clubs they'd grabbed on the fly. Dozens of people quickly gathered in the main hall. When they learned what had happened, faces showed shock and fury; several young men broke into a torrent of curses.
+Teochew-Swatow folk were renowned for their regional loyalty, and the region itself was known for its fierce customs. At the gong's clang, other guests staying in the hall heard the commotion and came running from every corner, some clutching shoulder-poles and clubs they'd grabbed on the fly. Dozens of people quickly gathered in the main hall. When they learned what had happened, faces showed shock and fury; several young men broke into a torrent of curses.
 
 While they were still arguing, the gate panels shuddered violently. The attackers must have brought a battering-ram and were ramming from outside. Everyone started, and hastily dragged the rosewood tables and chairs over to brace the door. The steward signaled for quiet, then bellowed, "Hey! Outside—hold it, hold it! We want to talk!"
 
-He shouted several times, but there was no reply. On the contrary, the ramming and cursing grew more frantic; outside, the smashing and destruction raged.
+He shouted several times, but there was no reply. On the contrary, the ramming and cursing grew more frenzied; outside, the smashing and destruction raged on.
 
 He Gao slammed his fist against the door-frame and roared, "You *ya*-dog bastards, this is too much! If we let them off this time, we Teochew-Swatow men can never show our faces here again! I'll lead—let's go out and finish them!" He snatched up a club and strode over to the steward, glaring at the crowd. "This is our grain merchants' affair. Anyone who doesn't want to be here, leave now."
 
@@ -40,7 +40,9 @@ The steward raised his pole and roared, "All together now, brothers!"
 
 Several dozen merchants charged forward with a battle-cry, weapons swinging.
 
-Beggars and merchants clashed at the inner gate. On the steps, inside and outside the threshold, wounded men littered the ground—kicked and stamped on by both sides, emitting bone-chilling shrieks. Curses, screams, and shouts echoed without end. The space was narrow, and the merchants fought as one; the Guandi Temple forces couldn't gain the upper hand. But their numbers were overwhelming, and they pressed forward relentlessly, step by step forcing the merchants back, until the inner gate was surrendered. More and more beggars flooded into the courtyard, hemming the merchants in. One merchant was cut off; in an instant he was beaten bloody and lay motionless on the ground. Yet the Teochew-Swatow reputation for "loving a fight" was not unearned—though many here were silk-clad, prosperous merchants, once the brawl began they fought with abandon. He Gao, young and strong, wielded a rosewood bench like a flail, the wind whistling with each swing; whoever was struck ended up with a cracked skull or shattered bones. Manager Ding, old and weak, compensated by jabbing with his stick at faces and groins—each thrust brought a scream.
+Beggars and merchants clashed at the inner gate. On the steps, inside and outside the threshold, wounded men littered the ground—kicked and stamped on by both sides, emitting bone-chilling shrieks. Curses, screams, and shouts echoed without end. The space was narrow, and the merchants fought as one; the Guandi Temple forces couldn't gain the upper hand. But their numbers were overwhelming, and they pressed forward relentlessly, step by step forcing the merchants back, until the inner gate was surrendered. More and more beggars flooded into the courtyard, hemming the merchants in.
+
+One merchant was cut off; in an instant he was beaten bloody and lay motionless on the ground. Yet the Teochew-Swatow reputation for loving a fight was not unearned—though many here were silk-clad, prosperous merchants, once the brawl began they fought with abandon. He Gao, young and strong, wielded a rosewood bench like a flail, the wind whistling with each swing; whoever was struck ended up with a cracked skull or shattered bones. Manager Ding, old and weak, compensated by jabbing with his stick at faces and groins—each thrust brought a scream.
 
 Just as the merchants were losing ground, a sharp gunshot rang out from the street, followed by the shrill blast of a whistle—the emergency muster signal for the National Army and police. The beggars dropped their weapons and fled. The Guandi Temple mob, which had been ransacking the hall, receded like a tide.
 
@@ -54,7 +56,7 @@ Because of her objection, the squad ended up in a ruined temple half a street aw
 
 Since the squad couldn't even speak standard Mandarin, let alone Cantonese, Mu Min had also assigned a retained yamen runner to watch the hall entrance and report any trouble to the White Horse Squad.
 
-The runner saw the Guandi Temple mob charge into the hall and ran to sound the alarm. Though they couldn't understand each other, his frantic gestures made Zhang Gengshuo understand. He blew his whistle, mustered his men, and double-timed toward the hall.
+The runner saw the Guandi Temple mob charge into the hall and sprinted to sound the alarm. Though they couldn't understand each other, his frantic gestures made Zhang Gengshuo understand. He blew his whistle, mustered his men, and double-timed toward the hall.
 
 Arriving at the entrance, Zhang Gengshuo was startled. He'd expected a few dozen attackers; instead, the gateway was a sea of people—ragged, filthy figures clutching clubs and poles, a menacing mob.
 
@@ -78,7 +80,7 @@ Zhang Gengshuo saw the beggars utterly ignoring the Senatorial Council's authori
 
 ---
 
-When Lin Baiguang received the emergency report, he was stunned. He had anticipated that the *ya* men, pushed to the wall, might resort to violence; he hadn't expected them to mobilize over a hundred people to assault the Haiyang Guild Hall in an instant. The "guardian" White Horse Squad stationed outside the hall had only one squad. If not for their Nanyang rifles and their corporal's snap decision to open fire, they might never have controlled the scene.
+When Lin Baiguang received the emergency report, he was stunned. He had anticipated that the *ya* men, pushed to the wall, might resort to violence; he hadn't expected them to mobilize over a hundred people to assault the Haiyang Guild Hall in an instant. The guardian White Horse Squad stationed outside the hall had only one squad. If not for their Nanyang rifles and their corporal's snap decision to open fire, they might never have controlled the scene.
 
 Even so, it was ugly. According to police reports, in the chaos more than forty bystanders had been injured in stampedes; over a dozen shops were damaged to varying degrees; seven itinerant peddlers lost their entire stock. Three police and National Army personnel were lightly wounded. Forty-odd people were arrested on the spot; six were shot dead.
 

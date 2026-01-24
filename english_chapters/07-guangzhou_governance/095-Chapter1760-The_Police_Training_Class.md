@@ -2,13 +2,13 @@
 
 Liu Xiang gave a brief overview of Guangzhou's manpower shortage and the recruitment plan that had just been completed.
 
-Pan Jiexin nodded. "A shortage is inevitable. But recruiting a thousand officers all at once does put a lot of pressure on training."
+Pan Jiexin nodded. "A shortage is inevitable. But recruiting a thousand officers all at once does put considerable pressure on training."
 
-Liu Xiang said, "We had no choice. Without police, we can't enforce many of our policies. Right now, just maintaining order in the urban area is consuming a huge amount of effort—we're relying entirely on the National Army to keep the lid on."
+"We had no choice," Liu Xiang said. "Without police, we can't enforce many of our policies. Right now, just maintaining order in the urban area is consuming enormous effort—we're relying entirely on the National Army to keep the lid on."
 
 The National Army would soon be deploying to the countryside for pacification operations; it couldn't remain in the city indefinitely as a police force. After all, securing the rural districts was equally important.
 
-Even within the city, word had spread of how chaotic things were in the suburbs. At more remote gates like the North Gate, bandits and brigands operated just beyond the tollhouses. On the Pearl River, river pirates were rampant; the Coast Guard patrol boats could only secure the stretch from White Goose Pool downstream to Hong Kong. A bit farther—the lower reaches of the West River from Sanshui to Jiangmen—was beyond their capacity to protect.
+Even within the city, word had spread of how chaotic things were in the suburbs. At more remote gates like the North Gate, bandits and brigands operated just beyond the tollhouses. On the Pearl River, pirates were rampant; the Coast Guard patrol boats could only secure the stretch from White Goose Pool downstream to Hong Kong. A bit farther—the lower reaches of the West River from Sanshui to Jiangmen—was beyond their capacity to protect.
 
 "I have a general picture," said Pan Jiexin. "But since we need a thousand officers on the streets all at once and time is tight, we'll have to run an accelerated training. I'd say we compress it to thirty days. What about facilities and logistics?"
 
@@ -40,7 +40,7 @@ After a series of procedures—filling out forms, giving fingerprints—came "pu
 
 Putting on the uniform for the first time felt thoroughly awkward. For someone accustomed to loose, wide-sleeved robes, this outfit was far too tight; the trousers felt constricting too. The shoes were acceptable, but the one-piece puttees wrapped around his calves felt uncomfortably snug.
 
-"Take your things and go to your dormitory—match the room number! One behind the other! No whispering!" The sergeants on loan from the National Army shouted, brandishing bamboo canes. "One at a time!"
+"Take your things and go to your dormitory—match the room number! One behind the other! No whispering!" The sergeants on loan from the National Army shouted, brandishing bamboo canes. "Single file!"
 
 Li Ziyu hadn't expected the Australians' "Quick Class" to operate under military discipline. He groaned inwardly. But having come this far, there was no turning back. Under the shouts and the canes' "guidance," he found his dormitory and bed.
 
@@ -64,7 +64,7 @@ His training schedule called for police skills, physical fitness, and formation 
 
 Since a significant proportion of trainees were illiterate, Pan Jiexin divided them into two tracks: those who could read and write would receive more theoretical instruction and be groomed as future cadres; the illiterate would focus on basic education.
 
-Early the next morning, a brief opening ceremony was held in the main hall—now the assembly hall—of the Wanshou Palace. Both Liu Xiang and Mu Min attended. As Liu Xiang was giving his speech, Pan Jiexin sat on the dais surveying the crooked ranks below and allowed himself a wry smile. The disparity in basic quality was stark: on one side, the sergeants on loan stood in disciplined order; on the other, the "social recruits" displayed every imaginable posture, and a few in the back rows were chattering away.
+Early the next morning, a brief opening ceremony was held in the main hall—now the assembly hall—of the Wanshou Palace. Both Liu Xiang and Mu Min attended. As Liu Xiang gave his speech, Pan Jiexin sat on the dais surveying the crooked ranks below and allowed himself a wry smile. The disparity in basic quality was stark: on one side, the sergeants on loan stood in disciplined order; on the other, the "social recruits" displayed every imaginable posture, and a few in the back rows were chattering away.
 
 Mu Min whispered with a rueful smile, "Discipline clearly needs a lot of work."
 

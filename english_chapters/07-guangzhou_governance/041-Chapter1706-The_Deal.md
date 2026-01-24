@@ -1,8 +1,8 @@
 # Chapter 1706 - The Deal
 
-In the third round, both fighters' tempo clearly quickened. Their range of movement expanded markedly as well—the two men advanced and retreated across the field in great sweeping arcs. Attack and defense alternated between them; the wooden rifles clashed violently; war cries rose one after another in fierce confrontation. Everyone could see that Huang Xiong had stepped up the pace and force of his assault, driving Fu Fu back toward the spectators on one side. It looked as though Fu Fu would soon be stepping on the watching soldiers.
+In the third round, both fighters' tempo clearly quickened. Their range of movement expanded markedly—the two men advanced and retreated across the field in great sweeping arcs. Attack and defense alternated between them; the wooden rifles clashed violently; war cries rose one after another in fierce confrontation. Everyone could see that Huang Xiong had stepped up the pace and force of his assault, driving Fu Fu back toward the spectators on one side. It looked as though Fu Fu would soon be stepping on the watching soldiers.
 
-"Move back, move back—" someone warned the men behind, making room. Suddenly a *crack!* rang out behind like a thunderclap. They spun around to see Fu Fu standing at attention in rifle-ready position at the edge of the field, while Huang Xiong was sitting on the ground, still gripping his rifle—but the rifle tip was gone. The tip lay on the ground, a good foot or more of it.
+"Move back, move back—" someone warned the men behind, making room. Suddenly a *crack!* rang out like a thunderclap. They spun around to see Fu Fu standing at attention in rifle-ready position at the edge of the field, while Huang Xiong was sitting on the ground, still gripping his rifle—but the tip was gone. The broken tip lay on the ground, a good foot or more of it.
 
 Another wave of tremendous applause.
 
@@ -56,7 +56,7 @@ Guangzhou City.
 
 In a private room at the top of the Ziming Tower, the "intimate performance" had just concluded. The half-naked Persian dancer gave a graceful bow and was about to step down to pour wine. He Xin waved her off gently. Understanding that the two gentlemen had business to discuss, she curtseyed again, threw on her cloak, and withdrew.
 
-From somewhere in the room came the languid strains of stringed instruments, complementing the lavishly decorated surroundings—hidden from daylight—and the cloying scent of fruit... It all produced a sense of decadent, dreamlike unreality.
+From somewhere in the room came the languid strains of stringed instruments, complementing the lavishly decorated surroundings—hidden from daylight—and the cloying scent of fruit. It all produced a sense of decadent, dreamlike unreality.
 
 On the wide, soft sofa, a middle-aged man sprawled back with limbs splayed. Though ensconced in this den of drunken frivolity and sensual indulgence, his face showed little sign of enjoyment.
 
@@ -66,13 +66,13 @@ He Xin beamed and reached for the wine pitcher to refill the man's cup. "Command
 
 The man addressed as Commander Liu did not take the cup. He drew a deep breath. "This business... perhaps we should wait and see?"
 
-"Oh, come now." He Xin's smile was obsequious—the practiced look of a pleasure-house hanger-on who made a living toadying to patrons. "This isn't like you picking out a girl, where you can browse at leisure. This is an affair of state—it won't wait..."
+"Oh, come now." He Xin's smile was obsequious—the practiced look of a pleasure-house hanger-on who made a living toadying to patrons. "This isn't like picking out a girl, where you can browse at leisure. This is an affair of state—it won't wait..."
 
 Commander Liu grew irritated. "I know it's an affair of state—and that means heads roll! That's exactly why I said wait and see."
 
 He Xin's smile didn't falter. "Look, I wouldn't presume to comment on the state of the empire at large, but the situation in Guangdong is plain for everyone to see. You've been guarding the gates at Humen these years, and the Australians haven't exactly been stingy with you—though, as you know, they weren't obliged to be generous, were they?"
 
-This Commander Liu was the *qianzhong*—garrison commander—of Humen Fortress. Ever since the Guangzhou campaign when the Fubo Army smashed through Humen and burned the Wuyang Courier Station, the defensive perimeter along the Pearl River estuary had essentially collapsed. When Xiong Wencan took office, he had cast cannons, built ships, recruited soldiers, and rebuilt the Humen Fortress and some of the gun emplacements the Fubo Army had destroyed, patching together what passed for a defensive network from the Pearl River mouth to Baie Tan.
+This Commander Liu was the *qianzhong*—garrison commander—of Humen Fortress. Ever since the Guangzhou campaign when the Fubo Army smashed through Humen and burned the Wuyang Courier Station, the defensive perimeter along the Pearl River estuary had essentially collapsed. When Xiong Wencan took office, he had cast cannons, built ships, recruited soldiers, and rebuilt Humen Fortress along with some of the gun emplacements the Fubo Army had destroyed, patching together what passed for a defensive network from the Pearl River mouth to Baie Tan.
 
 But this defensive system was completely open to the Australians. After experiencing the Battle of the Pearl River Breakthrough, local officials, gentry, and soldiers all knew that their fortifications were paper-and-clay before Australian might. Ships flying the Yuan Council's colors sailed openly up and down the Pearl River unchallenged by any warship or checkpoint. At first only cargo vessels and merchantmen came; then even patrol boats began brazenly cruising up to Baie Tan. Having served several years as commander of Humen Fortress, Commander Liu knew the score.
 
@@ -124,7 +124,7 @@ Commander Liu clenched his teeth and nodded. "I understand! You're right, Brothe
 
 Commander Liu forced a few laughs along with him, but his back was already damp with sweat. If he tried to turn traitor or failed to act when the signal came, whoever delivered that blue flag would be the one to take his head.
 
-At the thought of defecting from the Ming, this old soldier felt rather conflicted. He, too, had won his officer's cap through hard fighting against the Eight Pai Yao. To just throw away his Ming commission and serve the Australians—part of him still regretted it.
+At the thought of defecting from the Ming, this old soldier felt rather conflicted. He too had won his officer's cap through hard fighting against the Eight Pai Yao. To just throw away his Ming commission and serve the Australians—part of him still regretted it.
 
 But the Ming's mandate was clearly exhausted, tottering on the brink. The Australians were rich and formidable in battle. When General He had mobilized the province's entire military strength against them, the result had been catastrophic defeat—and then the Australians had advanced to the walls of Guangzhou, only withdrawing after a negotiated settlement. The balance of power couldn't be clearer. If he insisted on opposing the Australians, he'd be a mantis trying to stop a chariot—it couldn't end well. But if he simply "submitted to the baldies," what did his future hold? He'd heard their ways differed from the Ming...
 

@@ -1,91 +1,95 @@
 # Chapter 1736: Big Threshold
 
-Back at the City Hall, Liu Xiang and Lin Baiguang began to arrange for the demolition of the structures on Chengxuan Street.
+Back at City Hall, Liu Xiang and Lin Baiguang began arranging the demolition of structures on Chengxuan Street.
 
-"Starting to tear them down immediately would be punishment without prior warning. We have to issue a notice giving a deadline for self-demolition," Lin Baiguang said.
+"Starting demolition immediately would be punishment without prior warning. We have to issue a notice giving a deadline for self-demolition," Lin Baiguang said.
 
-"Then give them 24 hours. Deadline is tomorrow for demolition, and then we will go and tear them down," Liu Xiang looked at the latest troop movement schedule. The logistics troops of the South China Army were still assembling on Hong Kong Island. "Xi Yazhou told me that the troops need to act quickly now and cannot spend too much time on a parade. So it was decided to only arrange for the few battalions and army direct units landing later to participate in the entry ceremony. The troops already landed will not enter the city but quickly deploy in their respective directions."
+"Then give them twenty-four hours. Deadline is tomorrow for demolition—after that, we go in and tear them down." Liu Xiang examined the latest troop movement schedule. The South China Army's logistics troops were still assembling on Hong Kong Island. "Xi Yazhou told me the troops need to act quickly and can't spend excessive time on a parade. So it's been decided that only the battalions and army direct units landing later will participate in the entry ceremony. Troops already landed won't enter the city but will deploy rapidly to their respective positions."
 
-"This way our pressure is also a bit less," Lin Baiguang said. "If all troops stay in the outskirts of Guangzhou, arranging logistics is also a complicated matter."
+"This eases our pressure somewhat," Lin Baiguang observed. "If all troops remained in Guangzhou's outskirts, arranging logistics would be quite complicated."
 
-"Let's arrange the urgent things at hand first," Liu Xiang said. "First is to allocate houses, assigning offices and housing to various agencies. This matter is urgent—President Wen's Provincial Committee organs... the Regional organs haven't entered the city yet, and the South China Army Headquarters also needs houses. These are all the responsibility of our Guangzhou Military Control Commission and must be done as soon as possible."
+"Let's handle the urgent matters first." Liu Xiang counted on his fingers. "First: allocate houses—assign offices and housing to various agencies. This is urgent. President Wen's Provincial Committee organs... the Regional organs haven't entered the city yet, and the South China Army Headquarters also needs quarters. All of this falls under our Guangzhou Military Control Commission, and it must be done as soon as possible."
 
-Guangzhou's new urban area was planned to be built on Henan Island. Naturally, now was not the time for large-scale construction. First, the relocated ministries and agencies had to have a place to stay.
+Guangzhou's new urban area was planned for Henan Island. But this wasn't the time for large-scale construction. First, the relocated ministries and agencies needed somewhere to stay.
 
-Lin Baiguang said: "I have already inspected the various yamen inside and outside Guangzhou City. There are enough houses, but many are badly damaged and all need repair. The workload of clearing garbage and cleaning is also not small." As he spoke, he opened the map, "It is roughly arranged like this..."
+"I've already inspected the various yamen inside and outside Guangzhou City," Lin Baiguang said. "There are enough buildings, but many are badly damaged and all need repair. The workload for clearing garbage and cleaning is substantial as well." He opened his map. "My rough arrangement is as follows..."
 
-Besides the Guangzhou Municipal Government clearly occupying the Guangzhou Prefectural Yamen, and the two District Governments occupying the Panyu and Nanhai County Yamens, Lin Baiguang's arrangement was: Guangdong Regional Organs: Guangdong Provincial Administration Commissioner's Yamen; National Army Guangdong Command: Guangzhou Guard Yamen; Court and Procuratorate: Surveillance Commissioner's Yamen; Municipal Police Bureau: Lingnan Circuit Yamen; Monopoly Bureau and Tax Bureau: Salt Tax Office; Propaganda Department: Education Intendant Yamen; Political Security Bureau: Censorate Guangdong Inspecting Censor Yamen.
+Besides the Guangzhou Municipal Government clearly occupying the Guangzhou Prefectural Yamen, and the two District Governments occupying the Panyu and Nanhai County Yamens, Lin Baiguang's arrangement was: Guangdong Regional Organs at the Guangdong Provincial Administration Commissioner's Yamen; National Army Guangdong Command at the Guangzhou Guard Yamen; Court and Procuratorate at the Surveillance Commissioner's Yamen; Municipal Police Bureau at the Lingnan Circuit Yamen; Monopoly Bureau and Tax Bureau at the Salt Tax Office; Propaganda Department at the Education Intendant Yamen; Political Security Bureau at the Censorate Guangdong Inspecting Censor Yamen.
 
-The advantage of this layout was that all agencies were adjacent to Chengxuan Street, making contact convenient.
+The advantage of this layout was that all agencies would be adjacent to Chengxuan Street, making coordination convenient.
 
-Liu Xiang nodded: "I'll tell people to arrange this. There are actually many empty official houses, just a bit dilapidated."
+Liu Xiang nodded. "I'll have people arrange this. There are actually many empty official buildings—just somewhat dilapidated."
 
-"Cleaning is the business of each agency itself. Repairing houses can be contracted to the carpentry shops in the city first. Zijie [Purple Mark/Purple Kee] has been in Guangzhou for so many years; there should be quite a few carpentry shops they deal with."
+"Cleaning is each agency's own business. House repairs can be contracted to carpentry shops in the city first. Zijie has been in Guangzhou for years; there should be plenty of carpentry shops they deal with."
 
-"The second thing is the census. Reasonably speaking, this is a key task." Liu Xiang smiled bitterly, "But we don't have police stations yet. There are Yellow Registers in the Household Department, but the data inside must have problems. The most fatal thing is that there are no house numbers in this city."
+"Second thing: the census. Properly speaking, this is the key task." Liu Xiang smiled wryly. "But we don't have police stations yet. The Household Department has Yellow Registers, but the data inside is certainly problematic. Most critically—there are no house numbers in this city."
 
-"We can do these two things together," Lin Baiguang said. "First find the tithing heads (Paijia) of various places. They are very familiar with the situation in their sections. Let them lead the way to check and register households one by one, and incidentally verify the house numbers and street signs. As for police stations, we don't even have a police bureau yet, so it can be postponed. First build the three police bureaus and manage the broad aspects, then talk about it slowly later."
+"We can do these two things together," Lin Baiguang suggested. "First locate the tithing heads of various areas. They're intimately familiar with their sections. Have them lead the way to check and register households one by one, incidentally verifying house numbers and street signs. As for police stations—we don't even have a police bureau yet, so that can be postponed. First establish the three police bureaus and manage the broad aspects, then proceed gradually."
 
-Although Lin Baiguang expressed unwillingness to be the police chief, he had his own ideas about public security in the city. Setting up police stations was not an urgent task. First, they didn't have so many naturalized citizen police officers. Second, how to locate police stations and the size of their jurisdiction also had a certain scientific basis. Setting them up without detailed population data might not be appropriate.
+Though Lin Baiguang had expressed reluctance to serve as police chief, he had his own ideas about urban security. Setting up police stations wasn't urgent. First, they lacked sufficient naturalized citizen police officers. Second, police station locations and jurisdiction sizes required a scientific basis. Establishing them without detailed population data might prove inappropriate.
 
-"Police work mainly has only two points: maintaining order and checking households," Lin Baiguang said. "Others can be pushed back temporarily. The incorporated Detective Brigade will be led by naturalized citizen police officers to patrol daily. Patrol locations must cover all residential areas, ensuring at least the security inside the city walls and various gate suburbs. Create enough sense of security for the residents."
+"Police work mainly involves only two points: maintaining order and checking households," Lin Baiguang said. "Other matters can be deferred temporarily. The incorporated Detective Brigade, led by naturalized citizen police officers, will patrol daily. Patrol locations must cover all residential areas, ensuring security at minimum within the city walls and various gate suburbs. Create enough sense of safety for residents."
 
-After Lin Baiguang left, Liu Xiang called Zhang Yunmi and handed her a note: "Student Little Zhang, draft a notice for self-demolition within a time limit immediately. The content is mainly these three points."
+---
 
-Zhang Yunmi's current official title was Secretary-General of the Guangzhou Municipal Government, which was actually Liu Xiang's secretary. When notifying Liu Xiang of this appointment, Xiao Zishan specifically reminded him: "Pay attention to the influence; don't have too many ideas."
+After Lin Baiguang left, Liu Xiang called for Zhang Yunmi and handed her a note. "Student Little Zhang, draft a notice for self-demolition within a time limit immediately. The content should center on these three main points."
 
-Zhang Yunmi looked at the note in her hand: "Shouldn't a notice like this be written by Lü Yizhong? I can only write colloquial prose."
+Zhang Yunmi's current title was Secretary-General of the Guangzhou Municipal Government—in practice, Liu Xiang's secretary. When notifying Liu Xiang of this appointment, Xiao Zishan had specifically reminded him: "Pay attention to appearances—don't get any ideas."
 
-"This is for the masses to read; there is no need for archaic classical Chinese. Besides, we also have to let the masses get used to our writing style."
+Zhang Yunmi examined the note in her hand. "Shouldn't a notice like this be written by Lü Yizhong? I can only write colloquial prose."
 
-Zhang Yunmi nodded and went out with the note to draft the document.
+"This is for the masses to read—there's no need for archaic classical Chinese. Besides, we need to let the masses grow accustomed to our writing style."
 
-Lin Baiguang returned to his office, where the main staff of the original Guangzhou City Operation Department were waiting for him. These people were the backbone he selected and trained himself. Through these twenty-something people, he controlled about two hundred staff members of the City Operation Department, as well as hundreds of peripheral "eyes and ears."
+Zhang Yunmi nodded and departed to draft the document.
 
-"Everyone sit down." Lin Baiguang looked at the group of men and women who still maintained their Great Ming attire. They had made indelible contributions to the occupation of Guangzhou, but whether they could adapt to the work under the new system was still unknown. Most of these people were recruited locally in Guangzhou, except for a few naturalized citizens sent from Lingao. Although they had all been sent to Lingao for training, they had worked in Guangzhou for a long time, and their language, behavior, and mentality were very different from the cadres of the Qiongya Detachment. He was very worried about this: he didn't want a repeat of the "Anti-Localism" turmoil caused by the conflict between southbound cadres and local cadres back then.
+---
 
-"Now that the Great Army has entered the city, according to orders from superiors, the Guangzhou Station will be revoked after the transfer of affairs is completed, and our City Operation Department will be disbanded forthwith." Seeing the slightly fearful faces of everyone, Lin Baiguang continued, "Everyone's work achievements are obvious to all. Everyone contributed greatly to the bloodless opening of Guangzhou this time—the Senate also sees it."
+Lin Baiguang returned to his office, where the main staff of the original Guangzhou City Operation Department awaited. These were the backbone he had personally selected and trained. Through these twenty-some people, he controlled approximately two hundred City Operation Department staff, as well as hundreds of peripheral "eyes and ears."
 
-"As for everyone's future work arrangements, most people will be transferred with me to work in the Comprehensive Governance Office. Those originally responsible for intelligence will be responsible to the General Affairs Section 9 of the National Police System in the future. The new Director will arrive in a few days; you will report to him. Old Bi!"
+"Everyone sit down." Lin Baiguang surveyed the group—men and women still maintaining their Great Ming attire. They had made indelible contributions to the occupation of Guangzhou, but whether they could adapt to work under the new system remained uncertain. Most had been recruited locally in Guangzhou; only a few naturalized citizens had been sent from Lingao. Though all had trained in Lingao, years of work in Guangzhou had made their language, behavior, and mentality quite different from Qiongya Detachment cadres. He worried about this—he didn't want a repeat of the "Anti-Localism" turmoil caused by conflicts between southbound cadres and local cadres.
 
-The person called Old Bi hurriedly stood up: "Chief."
+"Now that the Great Army has entered the city, by orders from above, the Guangzhou Station will be revoked after completing the transfer of affairs, and our City Operation Department will be disbanded forthwith." Seeing the slightly fearful faces, Lin Baiguang continued: "Everyone's work achievements are plain to see. Everyone contributed greatly to the bloodless opening of Guangzhou—the Senate recognizes this."
 
-Old Bi's full name was Bi Defan. Originally a "white member" of the Soap Class, he was originally the shopkeeper of a small shop. Because he couldn't bear the extortion of ruffians and runners, he used connections and money to get the status of a runner.
+"As for future work arrangements, most people will transfer with me to work at the Comprehensive Governance Office. Those originally responsible for intelligence will report to General Affairs Section 9 of the National Police System. The new Director will arrive in a few days; you'll report to him then. Old Bi!"
 
-He was honest and belonged to the category of people with a conscience in the clerks' team, so he was spotted and developed by the City Operation Department very early on. He was the main intelligence agent of the City Operation Department in the Soap Class.
+The man called Old Bi hastily stood. "Chief."
 
-"Don't expose the identities of your people. Now Chief Liu has reorganized you into the Detective Brigade. You will continue to work in this capacity, reporting internal movements at any time. The contact location remains unchanged."
+Old Bi's full name was Bi Defan. Originally a "white member" of the Soap Class, he had been a small shopkeeper who, unable to bear the extortion of ruffians and runners, had used connections and money to acquire runner status.
 
-Lin Baiguang did not intend to let these intelligence personnel originally distributed in various industries surface, but arranged for them to continue lying low. According to the resolution made at the Security Joint Conference beforehand, the original intelligence personnel of the Guangzhou City Operation Department and the eyes and ears under their control were to be received by the General Affairs Section 9 of the National Police—General Affairs Section 9 was the department of the National Police counterpart to the Political Security Bureau. Their reception was conducive to intelligence sharing between both sides.
+He was honest—belonging to the category of clerks with a conscience—so the City Operation Department had spotted and recruited him early. He was their main intelligence agent within the Soap Class.
 
-Lin Baiguang then began to arrange the demolition matters. Hearing that the sheds on Chengxuan Street were to be demolished, Bi Defan couldn't help being startled and said: "Chief, this matter is not easy to handle!"
+"Don't expose your people's identities. Chief Liu has now reorganized you into the Detective Brigade. You'll continue working in that capacity, reporting internal developments at any time. Contact location remains unchanged."
 
-"What's not easy to handle? Aren't they just some big thresholds?" Lin Baiguang smiled, "Now it's a change of dynasty. These big thresholds are busy looking after themselves; where do they have the time to look after others!"
+Lin Baiguang didn't intend for these intelligence personnel, originally distributed across various industries, to surface. He arranged for them to remain undercover. According to the Security Joint Conference resolution, the original Guangzhou City Operation Department's intelligence personnel and their "eyes and ears" would be received by General Affairs Section 9 of the National Police—the National Police department corresponding to the Political Security Bureau. Their reception would facilitate intelligence sharing between both sides.
 
-"No, no, there is another reason here," Bi Defan said. "Master must know Wenlan Academy."
+Lin Baiguang then began arranging demolition matters. Hearing that the sheds on Chengxuan Street were to be demolished, Bi Defan couldn't help but start: "Chief, this won't be easy!"
 
-"I know. It's a big academy with many properties. It has achievements in educating people." Lin Baiguang nodded, "Although they have a high reputation among the gentry, they are scholars after all. Can't they understand this bit of reasoning?"
+"What's so difficult? Just some big thresholds?" Lin Baiguang smiled. "It's a change of dynasty now. These big thresholds are busy looking after themselves—where do they have time to look after others?"
 
-"Those are the headmaster and scholars in the academy. They only care about sitting and discussing the Dao. The academy properties are managed by someone else—this person is not to be trifled with."
+"No, no—there's another reason here." Bi Defan hesitated. "The Chief must know Wenlan Academy."
 
-"Oh? Tell me in detail." Lin Baiguang immediately became interested. The Guangzhou Station had little contact with Wenlan Academy, so naturally, they hadn't investigated its background.
+"I know it. A major academy with many properties. Accomplished in educating people." Lin Baiguang nodded. "Though they have high reputation among the gentry, they're scholars after all. Can't they understand simple reasoning?"
 
-Bi Defan said: "The current manager of the academy is called Mo Rongxin. His father was originally a small official in the capital and took a eunuch as his godfather. After retiring and returning home, he relied on the eunuch's power to drive away the academy directors and controlled the academy himself. Because he had the eunuch backing him, this father and son have controlled the academy affairs for decades, embezzling countless academy properties—just the rented fields, sand fields, oyster ponds, and fish ponds under the academy's name amount to several thousand mu, yet the silver handed over to the academy every year is only a mere one hundred taels."
+"Those are the headmaster and scholars in the academy. They only care about sitting around discussing the Dao. The academy's properties are managed by someone else—this person is not to be trifled with."
 
-Lin Baiguang thought, so there is such a big household here! In his few years in Guangzhou, he only knew Wenlan Academy was famous and rich, but didn't expect such a story behind it.
+"Oh? Tell me more." Lin Baiguang's interest sharpened. The Guangzhou Station had had little contact with Wenlan Academy, so they hadn't investigated its background.
 
-He asked: "His father was a godson to a eunuch—this eunuch probably died long ago. Can others do nothing about him?"
+Bi Defan explained: "The current manager of the academy is called Mo Rongxin. His father was originally a minor official in the capital who took a eunuch as his godfather. After retiring and returning home, he used the eunuch's power to drive away the academy directors and seized control himself. Because of the eunuch's backing, father and son have controlled academy affairs for decades, embezzling countless properties. The rented fields, sand fields, oyster ponds, and fish ponds under the academy's name alone amount to several thousand mu—yet the silver handed over annually to the academy is a mere hundred taels."
 
-Bi Defan said: "Both generations of father and son have academic degrees. His father was a Juren, and he himself purchased a Jian-student degree. He counts as a member of the robed class. The Mo family is very good at perfunctory dealings, not only making friends with the gentry but also roping in the scholars in the city, constantly giving small favors. The most important thing is that the Mo family has power to rely on."
+Lin Baiguang thought: so there's such a major player here. In his years in Guangzhou, he had only known Wenlan Academy was famous and wealthy. He hadn't expected such a story behind it.
 
-"What power?"
+He asked: "His father was a godson to a eunuch—but that eunuch must have died long ago. Can no one touch them?"
 
-"It's the Guan Di Temple people."
+Bi Defan said: "Both generations of father and son hold academic degrees. His father was a Juren; he himself purchased a Jian-student degree. He still counts as a member of the robed class. The Mo family excels at flattery and smooth dealing—not only cultivating friendships with gentry but also drawing in the city's scholars, constantly distributing small favors. Most importantly, the Mo family has powerful backing to rely on."
 
-Lin Baiguang nodded. No wonder Bi Defan said it was hard to handle. However, it was truly unexpected that Wenlan Academy would collude with the Beggar Gang.
+"What backing?"
 
-"Mo Rongxin let his youngest son marry the daughter of the Guan Di Temple head, becoming relatives by marriage. So no one dares to move his power in the academy."
+"The Guan Di Temple people."
 
-Hearing this, Lin Baiguang couldn't believe his ears. The manager of a dignified academy actually became relatives by marriage with a beggar head. This was too bizarre. But on second thought, it was also normal. In this time-space, the power and wealth of a beggar head in a big city were far beyond comparison with ordinary big households.
+Lin Baiguang nodded. No wonder Bi Defan said it would be difficult. Yet it was truly unexpected that Wenlan Academy would collude with the Beggar Gang.
+
+"Mo Rongxin married his youngest son to the daughter of the Guan Di Temple head, making them relatives by marriage. So no one dares touch his power in the academy."
+
+Hearing this, Lin Baiguang could scarcely believe his ears. The manager of a dignified academy had actually become relatives by marriage with a beggar chief! Too bizarre. But on second thought, it also made sense. In this era, the power and wealth of a beggar chief in a major city far exceeded those of ordinary great households.
 
 (End of this chapter)

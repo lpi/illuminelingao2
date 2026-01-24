@@ -6,11 +6,11 @@ Han Yue glanced at Zheng Shangjie, saw her nod—her mistress already knew—and
 
 The arrested woman was not one of the recently retained Guangzhou Prefecture officials, but an old hand from the Guangzhou Station.
 
-Zheng Shangjie had already been notified: the Political Security Bureau had raided her residence, uncovering two hundred taels of silver, a quantity of gold jewelry, and several thousand yuan in Circulation Vouchers. Someone had informed that she had privately accepted bribes from several of Guangzhou's major merchants, leaking Senators' itineraries and internal activities.
+Zheng Shangjie had already been notified: the Political Security Bureau had raided her residence, uncovering two hundred taels of silver, a quantity of gold jewelry, and several thousand yuan in Circulation Vouchers. Someone had informed that she'd privately accepted bribes from several of Guangzhou's major merchants, leaking Senators' itineraries and internal activities.
 
 Zheng Shangjie shook her head, feeling helpless.
 
-Sister Ye had attended to the personal needs of Zheng Shangjie, Pei Lixiu, and others inside Ziming Tower—a body-servant to the Senators, by old parlance. Because she worked in such close proximity to Senators, she had been specially dispatched from the General Affairs Office in Lingao. She, too, was a native of Guangzhou Prefecture.
+Sister Ye had attended to the personal needs of Zheng Shangjie, Pei Lixiu, and others inside Ziming Tower—a body-servant to the Senators, in old parlance. Because she worked in such close proximity to Senators, she had been specially dispatched from the General Affairs Office in Lingao. She, too, was a native of Guangzhou Prefecture.
 
 In her mid-thirties, not beautiful but with an amiable face—the kind that "pleased superior eyes." Quick-handed and diligent, skilled at managing fires and food: the late-night snacks, morning breakfasts, and afternoon refreshments for the female Senators had all been prepared by her own hands. She had worked at the Guangzhou Station for over three years and was much liked by the women.
 
@@ -30,7 +30,7 @@ Zheng Shangjie took it and looked. It was a case memorandum: bribes collected, a
 
 She saw a long list of implicated Guangdong tycoons and let out a soft, scornful laugh. "These fools!"
 
-According to the confession, they were intensely curious about what the Senatorial Council intended to do, and were eager to find out why Guo Yi had suddenly been transferred. They were even more keenly interested in the Senators' personal lives and tastes.
+According to the confession, they were intensely curious about what the Senatorial Council intended to do, and eager to find out why Guo Yi had suddenly been transferred. They were even more keenly interested in the Senators' personal lives and tastes.
 
 These Ming-era tycoons simply couldn't fathom the structure of the Lingao regime. The concept of aristocratic republicanism was too remote for them—in both time and space.
 

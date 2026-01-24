@@ -1,99 +1,102 @@
 # Chapter 1790 - The Mortuary
 
-Wu Xiang looked at the surrounding environment. someone had flipped over the wall from the adjacent Zhenbo Garden into the Shan-Shaan Guild Hall! He first climbed the big tree in Zhenbo Garden, then easily flipped over this courtyard wall which was more than *zhang* high. When coming down the wall, he used the protruding lintel of the small door as a step. That was why half a footprint was left.
+Wu Xiang surveyed the surrounding environment. Someone had scaled the wall from adjacent Zhenbo Garden into the Shan-Shaan Guild Hall. He had first climbed the large tree in Zhenbo Garden, then easily vaulted this courtyard wall—more than a *zhang* high. Coming down, he had used the protruding lintel of the small door as a foothold. That was how half a footprint came to be left behind.
 
-Li Zhenguo said: "No wonder we turned South Scissors Alley upside down and didn't find the murderer! It turns out he escaped from here long ago!"
+Li Zhenguo said: "No wonder we turned South Scissors Lane upside down and didn't find the murderer! He escaped through here long ago!"
 
-But Wu Xiang said: "This doesn't make sense. If you say he flipped over the wall from here into the guild hall and escaped, then who locked the back door lock? If you say there was another murderer locking the door outside, then why did someone have to escape and someone stay behind, and why kill Wang Xiuzhu? This doesn't make sense."
+But Wu Xiang said: "This doesn't make sense. If he climbed over from here into the guild hall and escaped, who locked the back door? If there was another accomplice locking the door from outside, then why did one person have to flee while the other stayed behind? And why kill Wang Xiuzhu? It doesn't add up."
 
-Old Qi said: "It doesn't matter, it's possible to lock the door from the inside too."
+Old Qi spoke up: "It doesn't matter—it's possible to lock the door from the inside too."
 
-This was inconceivable to the three policemen. Wu Xiang had seen locks embedded in door panels by Australians which indeed could lock the door from both directions, but how could a padlock be locked from the outside while the person goes inside? Could it be flipping over the wall?
+This was inconceivable to the three policemen. Wu Xiang had seen locks embedded in door panels by the Australians that could indeed lock from both directions, but how could a padlock be fastened from outside while the person went inside? Unless they climbed the wall?
 
-"You'll know when you get there." Old Qi said, "There is a door on the door."
+"You'll understand when you see it," Old Qi said. "There's a door within the door."
 
-Wu Xiang didn't care if there was a door on the door or no door, saying: "Open this door first."
+Wu Xiang didn't care whether there was a door within a door or not. "Open this door first."
 
-Old Qi dared not disobey, used the key to open the door. Pushing the door open to look, inside was a not-so-large courtyard. Although the courtyard had not been repaired for many years, overgrown with weeds and with peeling paint, the elegance of the fine workmanship of the past could still be seen amidst the dilapidated and scattered appearance.
+Old Qi didn't dare disobey. He used the key to unlock it. Pushing the door open, they saw a modest courtyard. Though it hadn't been repaired in many years—overgrown with weeds, paint peeling—the elegance of its fine original workmanship could still be glimpsed amid the dilapidation.
 
-The courtyard was not big. Old Qi led them through a moon gate and entered the garden. The garden was so desolate it was out of shape, not only covered with wild grass and miscellaneous trees, but most of the buildings and rockeries in the garden had also collapsed. Only a small path was barely passable.
+The courtyard wasn't large. Old Qi led them through a moon gate into the garden proper. It was so desolate as to be nearly unrecognizable—covered with wild grass and miscellaneous trees, most of the buildings and rockeries collapsed. Only a narrow path remained passable.
 
-The sun was high in the sky. If on the street, one would probably still be sweating. As soon as entering this garden, although the wind was still and trees motionless, one felt a chill attacking, penetrating the skin and bones. Rotting leaves and grass on the ground were an inch deep. The trees in the garden were all old trees over fifty or sixty years old, their shade covering the sun like a canopy. The flower trees originally planted in vats had shattered the flower vats, covering the mossy green ground with strange black trunks blooming with gorgeous flowers, indescribably eerie.
+The sun hung high in the sky. On the street, one would probably still be sweating. But the moment they entered this garden, though the air was still and the trees motionless, a chill suffused everything, penetrating skin and bone. Rotting leaves and grass lay an inch deep on the ground. The garden's trees were all old specimens, fifty or sixty years at least, their shade blocking the sky like a canopy. Flowering plants originally held in vats had shattered their containers, spreading their strange black trunks across the mossy green ground, blooming with gorgeous flowers—indescribably eerie.
 
-Old Qi dared not look around, only leading the way in front—he said he hadn't come over from the guild hall side for several months.
+Old Qi didn't dare look around, only leading the way ahead. He said he hadn't come through from the guild hall side in several months.
 
-"This place, as soon as it gets dark, even robbers dare not cross—it's unclean."
+"This place—as soon as it gets dark, even robbers won't cross it. It's unclean."
 
-Wu Xiang was in no mood to listen to his chatter. He had already seen many traces of human disturbance on the small path: trampled wild grass, fallen branches... Obviously, someone had passed through here recently.
+Wu Xiang was in no mood for his chatter. He had already noticed many traces of human disturbance along the small path: trampled wild grass, fallen branches... Obviously, someone had passed through here recently.
 
-Crossing the desolate garden and arriving beside a courtyard wall, Old Qi said: "This is it."
+Crossing the desolate garden and arriving at a courtyard wall, Old Qi said: "This is it."
 
-The courtyard gate had long rotted and fallen off. Passing through, they saw the courtyard covered in dead leaves. The mortuary seemed to be converted from the original flower hall. The roofs of the wing rooms on both sides had half collapsed, the roof tiles covered with wild grass. Under the slanting setting sun, groups of bats flew around in midair. The peeling broken wooden lattice doors were half covered and half closed, creaking when blown by the wind.
+The courtyard gate had long rotted and fallen off. Passing through, they found the courtyard covered in dead leaves. The mortuary appeared to have been converted from the original flower hall. The roofs of the wing rooms on both sides had half collapsed, their tiles overgrown with wild grass. Under the slanting late sun, groups of bats flew in circles through the air. The peeling, broken wooden lattice doors were half-open, half-closed, creaking when the wind blew.
 
-Although everyone was bold, seeing such a scene, their hearts inevitably beat like drums, forcing themselves to push the door and enter.
+Though everyone present was bold, seeing such a scene, their hearts inevitably beat like drums. They steeled themselves and pushed open the door.
 
-Stepping into the main hall, they saw seven or eight black lacquered coffins parked inside, resting on long benches, covered in spider webs and dust. In front of the coffins were wooden spirit tablets, each written with the name of the deceased. Some were old, the writing already blurred. A strange smell assaulted the nose in the room, gloomy and deposited, but there was no smell of rot: coffins were customarily packed with limestone paper packets, fastidious families also used fragrant wood ashes and fine scraps, and the outside was coated with layer after layer of lacquer seven or eight times over linen cloth, airtight.
+Stepping into the main hall, they saw seven or eight black-lacquered coffins parked inside, resting on long benches, covered in spider webs and dust. In front of the coffins stood wooden spirit tablets, each inscribed with the name of the deceased. Some were old, the writing already blurred. A strange smell assaulted their noses—gloomy and stale—but there was no scent of rot. Coffins were customarily packed with limestone paper packets; fastidious families used fragrant wood ashes and fine shavings as well. The exterior was coated with layer after layer of lacquer—seven or eight coats over linen cloth—rendering them airtight.
 
-"The door in the back wall is behind this courtyard." Old Qi didn't want to stay here long, so he wanted to lead them to the back.
+"The door in the back wall is behind this courtyard," Old Qi said, not wanting to linger. He moved to lead them onward.
 
-However, Li Zhenguo stopped him: "Don't go. Something's wrong." As he spoke, he pointed to the ground.
+However, Li Zhenguo stopped him. "Wait. Something's wrong." He pointed to the ground.
 
-On the dusty ground, chaotic footprints were clearly left, leading all the way to the side of a coffin.
+On the dusty floor, chaotic footprints were clearly visible, leading directly to one of the coffins.
 
-Old Qi screamed and instantly fainted. This startled the police. Li Ziyu hurriedly helped him up and pinched his philtrum, finally waking him up with great difficulty. Li Zhenguo said: "Old Qi, what are you scared of? This clearly shows someone has been in here!"
+Old Qi screamed and instantly fainted. This startled the police. Li Ziyu hurriedly caught him and pinched his *philtrum*, finally managing to revive him with difficulty. Li Zhenguo said: "Old Qi, what are you frightened of? This clearly shows someone has been in here."
 
-Wu Xiang nodded and said: "Go take a look."
+Wu Xiang nodded. "Let's take a look."
 
-They carefully avoided the footprint traces on the ground and came to the side of the coffin. Wu Xiang circled the coffin a few times and immediately discovered cracks between the coffin lid and the coffin body. There were obvious wear marks on the lacquer surface in several places—someone had opened the coffin!
+They carefully avoided the footprint traces on the ground and approached the coffin. Wu Xiang circled it several times and immediately noticed gaps between the lid and body. In several places, the lacquered surface showed obvious wear marks—someone had opened this coffin.
 
-Calling Old Qi over to look, Old Qi turned pale with fright at a glance. The wooden nails on the coffin lid were broken, obviously having been pried open.
+Calling Old Qi over to look, he turned pale with fright at a glance. The wooden nails sealing the coffin lid were broken—obviously pried open.
 
-This was a terribly big matter. Although the coffin had not been buried yet, privately opening a coffin was equivalent to robbing a grave. In the past, that was a felony. If the bereaved family had some influence, they would definitely not let it go.
+This was a serious matter. Although the coffin hadn't yet been buried, privately opening it was equivalent to grave robbery. In the old days, that was a felony. If the bereaved family had any influence, they certainly wouldn't let it go.
 
-If a fuss was made, he, the miscellaneous worker managing the mortuary, was afraid he would lose this job! He was so anxious he almost cried. Anxiously said: "This, how can this be! This key has never left my person for a moment!"
+If word got out, he—the miscellaneous worker managing the mortuary—might lose his job. He grew so anxious he nearly wept. "How can this be! This key has never left my person for a moment!"
 
-Wu Xiang comforted him: "Old Qi, don't worry. The plan for now is only to open this coffin and take a look, then decide—rest assured: as long as you cooperate with our work, the police will definitely prove your innocence!"
+Wu Xiang reassured him. "Old Qi, don't worry. For now, we need to open this coffin and see what's inside—then decide. Rest assured: as long as you cooperate with our work, the police will prove your innocence."
 
-Old Qi had already lost his wits, now hurriedly said: "Whatever the officers decide."
+Old Qi was already at his wit's end. He hurriedly replied: "Whatever the officers decide."
 
-"Old Li, Little Li, lend a hand together, let's open the coffin." Wu Xiang said, "Old Qi, you come help too."
+"Old Li, Little Li, lend a hand. Let's open the coffin." Wu Xiang turned. "Old Qi, you help too."
 
-Although Old Qi was unwilling in his heart, seeing as things had come to this, he could only listen to the police.
+Though unwilling in his heart, Old Qi saw that things had reached this point. He could only comply.
 
-Four people exerted force together, only hearing a few "creak creak" sounds, the coffin lid had been lifted. Several people looked inside intently, Old Qi screamed "Mother!" again and rolled his eyes back.
+Four men exerted force together. Several creaking sounds later, the coffin lid lifted. They peered inside intently. Old Qi screamed "Mother!" again and collapsed with his eyes rolled back.
 
-This time the three policemen couldn't care about him. Inside the coffin was actually an object wrapped in oilcloth—resembling a human shape. It was spotted with bloodstains. Li Ziyu couldn't help shouting: "It's this!"
+This time, the three policemen couldn't attend to him. Inside the coffin was an object wrapped in oilcloth—shaped like a human figure, spotted with bloodstains.
 
-That's right, inside the coffin was exactly that headless corpse he and Zhao Gui found during the rainy night patrol last night, which later disappeared!
+Li Ziyu couldn't help shouting: "It's this!"
 
-Now the truth was revealed. That headless corpse that flew away without wings was moved into the mortuary by the murderer while they went back to find people, and hidden in the coffin.
+That's right. Inside the coffin was exactly the headless corpse he and Zhao Gui had found during their rainy night patrol—the one that had later vanished without a trace.
 
-The coffins in the mortuary were all used by relatively wealthy people, large in size, putting in two corpses was no problem at all. Unless the coffins in the mortuary were to be transported or buried, no one would ask about them for years. Even if exposed one day, with the passage of time, it would truly become a cold case.
+Now the truth was revealed. The headless corpse that had seemingly grown wings and flown away had actually been moved into the mortuary by the murderer while they went to find help, and hidden inside a coffin.
 
-Although opening a coffin to hide a corpse made quite some noise, Zhenbo Garden had always been known as a "haunted house". Even if there were noises or anomalies late at night, ordinary people wouldn't dare come over to investigate what happened.
+The coffins in the mortuary were all used by relatively wealthy people—large enough to hold two bodies with room to spare. Unless the coffins were to be transported or interred, no one would trouble them for years. Even if exposed someday, with the passage of time, the case would truly become cold.
 
-Li Zhenguo was secretly surprised in his heart. This murderer was really not simple! This person could move a headless corpse in the pitch-black rainy night, quietly enter the "haunted house" deserted for a long time, calmly open the coffin to hide the corpse, then quietly leave to hide in Widow Wang's home. In the morning finding the police patrol net searching, then without hesitation kill Widow Wang who might be his accomplice, calmly arrange a suicide scene, then use the Shan-Shaan Guild Hall as a passage to quietly escape from the dragnet set by the police. Can be called bold and knowledgeable.
+Though opening a coffin to hide a corpse made considerable noise, Zhenbo Garden had always been known as a "haunted house." Even if there were sounds or anomalies late at night, ordinary people wouldn't dare come to investigate.
 
-Since the corpse had been found, Wu Xiang immediately sent Li Ziyu to the Municipal Bureau to notify, at the same time asking the Municipal Bureau to send police and coroners over. To conduct a comprehensive on-site investigation of Zhenbo Garden and Wang Xiuzhu's home.
+Li Zhenguo was secretly impressed. This murderer was truly formidable. He could transport a headless corpse in pitch-black rain, quietly enter this long-abandoned "haunted house," calmly open a coffin to conceal the body, then leave silently to hide in Widow Wang's home. In the morning, finding the police had cast a dragnet, he had killed his accomplice Wang Xiuzhu without hesitation, calmly staged a suicide scene, then used the Shan-Shaan Guild Hall as a passageway to quietly escape the police cordon. Bold and knowledgeable indeed.
 
-As for how the murderer locked the back door and entered Zhenbo Garden, it was not difficult at all. It turned out that on one door leaf of the back door of Zhenbo Garden, a small door was cut, with another small door bolt on it. A person could bow their head and enter. As long as the small door was opened in advance, one could return to the garden after locking the door from the outside, then bolt the small door. It didn't affect opening the lock from the outside.
+Since the corpse had been found, Wu Xiang immediately dispatched Li Ziyu to the Municipal Bureau to notify them, while also requesting police and coroners be sent. A comprehensive on-site investigation of Zhenbo Garden and Wang Xiuzhu's home would follow.
 
-Investigators not only found the headless corpse in the coffin, but also found the discarded knife—a butcher knife used for cutting pork. There was a shop mark on the knife handle, exactly the "Fuchangyu" Pig Hong in Scissors Alley. After the forensic personnel compared the traces on the corpse's wounds, they believed this was the knife used to chop off the head.
+As for how the murderer had locked the back door and re-entered Zhenbo Garden—that proved not difficult at all. In one leaf of the back door of Zhenbo Garden, a small door had been cut, fitted with its own small door bolt. A person could bow through it. As long as the small door was opened in advance, one could return to the garden after locking the main door from outside, then bolt the small door from within. This didn't affect opening the lock from outside.
 
-Although the local police station didn't receive a report, a pig hong losing a knife wasn't a big matter, so it was normal not to report it. To be safe, Li Zhenguo still sent Zhao Gui to inquire if a butcher knife had been lost.
+Investigators not only found the headless corpse in the coffin, but also discovered the discarded weapon—a butcher knife used for cutting pork. The knife handle bore a shop mark, exactly matching "Fuchangyu" Pig Hong in Scissors Alley. After forensic personnel compared the traces on the corpse's wounds, they concluded this was the knife used for decapitation.
 
-Zhao Gui came back very quickly, saying the hong did lose a butcher knife a few days ago. Because the value wasn't great, they didn't make a noise about it.
+Though the local police station hadn't received a report, a pig hong losing a knife wasn't a major matter—not worth reporting. To be thorough, Li Zhenguo still sent Zhao Gui to inquire whether a butcher knife had been lost.
 
-A total of two sets of footprints were extracted from the ground of the mortuary. One set belonged to the same person as the footprint found on the small door of the rear sandwich wall. The other set, judging from the size, should be a woman's footprints. After comparison, they belonged to Wang Xiuzhu's footprints—visible that Wang Xiuzhu was also one of the participants in the murder case.
+Zhao Gui returned quickly, reporting that the hong had indeed lost a butcher knife a few days ago. Since the value wasn't great, they hadn't made a fuss over it.
 
-Investigators discovered fresh bloodstains covered by mud in the wing room of Wang Xiuzhu's home, and found tiny blood spots splattered on the wall and wooden door, confirming this was the scene of the crime and beheading. They also dug out unburnt fragments of silk fabric from the stove hearth. Two unburnt shoe soles were also found.
+A total of two sets of footprints were extracted from the mortuary floor. One set belonged to the same person who had left the footprint on the small door of the rear partition wall. The other set, judging from size, belonged to a woman. After comparison, they matched Wang Xiuzhu's footprints—visible proof that Wang Xiuzhu had also participated in the murder.
 
-It was already the early morning of the second day after the crime when the on-site investigation ended. Wu Xiang led Li Zhenguo and others back to the Municipal Bureau and immediately held a case analysis meeting.
+Investigators discovered fresh bloodstains covered by mud in the wing room of Wang Xiuzhu's home, and found tiny blood spatters on the wall and wooden door, confirming this as the scene of the crime and beheading. They also recovered unburnt fragments of silk fabric from the stove hearth. Two unburnt shoe soles were found as well.
 
-Based on further on-site investigation, they preliminarily deduced the crime process: The murderer and Wang Xiuzhu conspired to kill the victim at Wang Xiuzhu's home and chopped off the victim's head. They stripped off the victim's clothes and stuffed them into the stove hearth to burn. Then they used knockout incense to stun Old Qi, stole the carrying pole and oilcloth, wrapped the corpse with oilcloth and carried it to the back door of Zhenbo Garden which the murderer had scouted beforehand.
+The on-site investigation concluded in the early morning of the second day after the crime. Wu Xiang led Li Zhenguo and the others back to the Municipal Bureau and immediately convened a case analysis meeting.
 
-Unfortunately, during transport, they saw the patrol police carrying lanterns on patrol, panic-stricken they dropped the corpse and fled. However, the police left after finding the corpse, giving them an opportunity. The murderer returned according to the original plan, used the key left by Wang Xiuzhu's late husband to open the back door, and transported the corpse into the mortuary to hide according to the original plan.
+Based on further investigation, they preliminarily reconstructed the crime: The murderer and Wang Xiuzhu had conspired to kill the victim at Wang Xiuzhu's home and decapitate him. They stripped the victim's clothes and burned them in the stove hearth. Then they used knockout incense to stun Old Qiu, stole the carrying pole and oilcloth, wrapped the corpse in oilcloth, and carried it to the back door of Zhenbo Garden—which the murderer had scouted beforehand.
 
-Then they returned to the Wang house. The next morning finding the street blocked and police fully investigating, the murderer believed time was of the essence and must flee as soon as possible. Before fleeing, to silence her, he killed Wang Xiuzhu and arranged it as "suicide". Then found the key, passed through the back door of Zhenbo Garden, and quietly escaped via the Shan-Shaan Guild Hall.
+Unfortunately, during transport, they spotted the patrol police carrying lanterns on their rounds. Panic-stricken, they dropped the corpse and fled. However, the police left after finding the body, giving them an opportunity. The murderer returned according to the original plan, used the key left by Wang Xiuzhu's late husband to unlock the back door, and transported the corpse into the mortuary to hide it as planned.
 
-(End of Chapter)
+Then they returned to the Wang house. The next morning, finding the street blockaded and police fully investigating, the murderer concluded time was of the essence—he had to flee as soon as possible. Before escaping, to silence her, he killed Wang Xiuzhu and staged it as "suicide." Then, having found the key, he passed through the back door of Zhenbo Garden and quietly escaped via the Shan-Shaan Guild Hall.
+
+---
+*(End of Chapter)*

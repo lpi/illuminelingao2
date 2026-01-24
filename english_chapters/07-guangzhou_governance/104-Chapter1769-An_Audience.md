@@ -2,11 +2,11 @@
 
 "Master Gao, is there still no progress in securing an audience with Prefect Liu?" A middle-aged man in an old cocoon-silk robe sat in the guest's seat to Gao Ju's left, beads of sweat on his forehead, his tone urgent. This was He Guirong, boss of the city's largest *ya* brokerage—a hereditary "official broker" family that had been in the trade for generations.
 
-The He clan had originally been Guangzhou military-household people, locals for many generations. It was said they could trace their brokerage permits back to the Chenghua era. In the early days, they had simply worked the docks as middlemen for grain merchants, earning a hard labor's fee. Gradually, they rose to monopolize the rice trade in Guangzhou. Every permit-holder in the city—whether or not their business touched grain—deferred to them.
+The He clan had originally been Guangzhou military-household people, locals for many generations. It was said they could trace their brokerage permits back to the Chenghua era. In the early days, they had simply worked the docks as middlemen for grain merchants, earning a hard laborer's fee. Gradually, they rose to monopolize the rice trade in Guangzhou. Every permit-holder in the city—whether or not their business touched grain—deferred to them.
 
 But right now, no one was more anxious than He Guirong.
 
-The Ming brokerage permits were now worthless paper. And the Song permits? Not a whisper about them yet!
+The Ming brokerage permits were now worthless paper. And Song permits? Not a whisper about them yet!
 
 A *ya* broker had nothing to lean on except a permit stamped with the Ministry of Revenue's great seal. Without that, they were nothing!
 

@@ -1,91 +1,93 @@
 # Chapter 1742: Military Parade
 
-Seeing the customers "recklessly discussing the state polity" and risking inviting disaster, boss Zhang of the tea house hurried to greet them: "Old customers, fresh out of the oven, this is the walnut cookie from the Zhang family. The Australians like it the most. Everyone, come and try the taste." Saying this, he asked the waiter to bring out a plate of walnut cookies for everyone to taste.
+Seeing his customers "recklessly discussing state affairs" and courting disaster, the tea house proprietor hurried to intervene. "Honored patrons! Fresh from the oven—walnut cookies from the Zhang family bakery. The Australians are mad for them. Please, everyone try one." He gestured for the waiter to bring out a plate of golden cookies.
 
-The walnut cookies from Zhang Yu's shop were like most shops in Guangzhou City; they closed for a day on the day the Australians entered the city and opened again in the afternoon of the next day.
+The Zhang family's walnut cookie shop, like most establishments in Guangzhou, had closed for a single day when the Australians entered the city, reopening the following afternoon.
 
-"There's nothing special about these walnut cookies." These were all old tea customers, with mouths as picky as could be.
+"There's nothing special about these cookies." The old tea customers had notoriously discerning palates.
 
-"It doesn't matter if it's special or not. The key is that it's imperially sealed by the golden mouth of the Australians," Boss Zhang said. "Even so, you have to book a few days in advance, or you can't buy it."
+"Special or not doesn't matter. What matters is they've received the golden seal of Australian approval," Boss Zhang replied. "You have to place orders days in advance now—otherwise they're sold out."
 
-"I know this Old Zhang's Walnut Cookie Shop. It's a very small shop, although an old one. Business is just so-so—his family sometimes mixes in stale goods from the previous year into the walnut cookies sold. Only those greedy for cheapness or tea houses use his family's stuff... Don't know how it caught the Short Hairs' discerning eyes."
+"I know Old Zhang's shop. Tiny place, though it's been around forever. Mediocre business—his family used to mix in stale goods from the previous year. Only penny-pinchers and tea houses that didn't know better bought from them." A knowing pause. "However did they catch the Short Hairs' discerning eye?"
 
-"Heard that Shopkeeper Zhang's son went to the Great World of Yifan and became a sworn brother of the Australians..."
+"I hear Shopkeeper Zhang's son went to the Great World of Yifan and became sworn brothers with some of the Australians..."
 
-Everyone showed a "suddenly realized" expression. Someone said: "Nowadays, as long as you are related to the Australians, you can always get good things!"
+Expressions of sudden understanding rippled around the table. "Ah, nowadays anyone connected to the Australians finds good fortune!"
 
 "A new emperor brings his own courtiers."
 
-"Wake up from a sleep, and the world has changed."
+"Fall asleep, wake up, and the whole world has changed."
 
-...While talking, the sound of gongs rang out outside again. This time it was thirteen consecutive beats, "Civil and military officials, soldiers and civilians, all make way." Then came the shouting of the tithing head: "Everyone make way, the Grand Army is passing through the city!"
+Their conversation was interrupted by gongs clamoring outside—thirteen consecutive beats this time, the signal for "Civil and military officials, soldiers and civilians, all make way." The tithing head's voice followed: "Everyone clear the street! The Grand Army is passing through!"
 
-Boss Wang closed his fan: "Okay, let's go look."
+Boss Wang snapped his fan shut. "Well then. Let's have a look."
 
-Currently, the people in the tea house swarmed out, only to see that the streets were already crowded with commoners watching the excitement. The "official errand runners" maintaining order along the white line were now called "Detective Brigade." With their backs to the street and bamboo sticks in hand, they shouted prohibiting people from crossing the line.
+The tea house emptied in moments. Outside, crowds already packed the sidewalks. The "official runners" maintaining order along the white chalk line now wore new uniforms and answered to a new name: the "Detective Brigade." They stood with their backs to the street, bamboo rods in hand, shouting at anyone who drifted too close to the boundary.
 
-Bursts of music came from far and near. This was the "The British Grenadiers" played with military drums and fifes, which the citizens of Guangzhou had never heard before. The sheepskin military drums were intense and high-spirited, and the fifes were melodious and calm.
+Military music swelled from the distance—a tune none of Guangzhou's citizens had ever heard before. The sheepskin drums were bold and stirring, the fifes bright and precise. This was "The British Grenadiers," and it heralded something unprecedented.
 
-Accompanying the drumbeats, a team of flag bearers appeared at the end of the street. The citizens of Guangzhou looked curiously at the blue Morning Star Flag and the red Iron Fist and Gear Flag, discussing what the patterns on them meant. As the eagle flag bearer of the South China Army appeared at the gate of the Great South Gate holding the military flag high, this speculation reached its peak.
+With the drumbeats came a team of standard-bearers at the far end of the street. The citizens craned their necks at the unfamiliar banners: a blue flag bearing the Morning Star, a red flag emblazoned with a gear and iron fist. When the South China Army's eagle standard appeared at the Great South Gate, held high by its bearer, speculation reached a fever pitch.
 
-Appearing with the eagle flag bearer was the Grenadier Company directly under the South China Army. They wore bright red grenadier uniforms, black "Bishop Hats" (mitre caps) decorated with golden cords and shiny brass plates. White canvas armed belts hung with leather cartridge boxes, canvas grenade pouches, and bayonet scabbards. Their tall stature combined with the "Bishop Hats" made each of them look like a giant.
+Marching beneath the eagle came the Grenadier Company, the South China Army's elite. They wore brilliant scarlet uniforms and towering black mitre caps adorned with gold braid and gleaming brass plates. White canvas crossbelts held leather cartridge boxes, canvas grenade pouches, and polished bayonet scabbards. Their imposing height, amplified by those soaring caps, made each soldier look like a giant from legend.
 
-They were merely the advance troops of the terrifying military demonstration. The troops that followed were so strong in military strength and imposing in power that it was almost unbelievable. The troops began passing at seven o'clock. Teams of line infantry wearing brass basin-style steel helmets and blue-grey uniforms were groomed very neatly, faces shaved clean, leather boots polished bright. Bayonets glittered in the sunlight. Four-column formations were serious and tight, appearing strictly disciplined. Next were the light infantry, also in blue-grey uniforms, carrying Hall rifles shining with raven-blue light. Their light military caps had hat bands that could buckle camouflage loops. Behind the light infantry was the Mountain Company, all Li and Miao soldiers conscripted from the mountainous areas of Hainan Island. Hanging machetes at their waists, carrying Nanyang rifles and poisoned crossbows on their backs.
+Yet the grenadiers were merely the vanguard of this overwhelming demonstration of force. What followed defied belief. Starting at seven o'clock, an endless procession of military might poured through the streets. Line infantry in blue-grey uniforms and gleaming brass bowl-shaped helmets marched in tight four-column formations, faces clean-shaven, leather boots polished to mirrors, bayonets catching the morning sun. Their discipline was absolute. Behind them came the light infantry, also in blue-grey, carrying Hall rifles that shone raven-blue. Their field caps were fitted with loops for camouflage. Next marched the Mountain Company—Li and Miao tribesmen recruited from the highlands of Hainan Island. Machetes hung at their waists; Nanyang rifles and poison-tipped crossbows rode on their backs.
 
-"...My goodness, the Wokou (Japanese pirates) are here!" A commotion suddenly arose in the crowd.
+"...Heavens above, the Wokou have come!" A commotion rippled through the crowd.
 
-The Japanese infantry of the Battotai (Sword-drawing Team), all wearing Jinbaori surcoats, bamboo conical hats, with dual swords inserted at their waists and carrying Nanyang rifles on their shoulders. Although short in stature, their whole bodies exuded the violent aura of serving as mercenaries killing for many years. Following closely behind was the Korean White Horse Team wearing white clothes and black big hats. Reasoning up the rear were the combat engineers, wearing rough canvas waistcoats and vests over their uniforms, carrying long-handled engineer axes on their shoulders, tool bags at their waists, and double-barreled shotguns on their backs. Each one was sturdy and powerful.
+The Japanese infantry of the Battotai appeared—sword-drawing mercenaries in jinbaori surcoats and bamboo conical hats, paired katanas thrust through their belts, Nanyang rifles slung over their shoulders. They were short of stature but radiated the brutal aura of men who had killed for pay across many years and many wars. Close behind came the Korean White Horse contingent in white garments and tall black hats. Bringing up the rear were the combat engineers in rough canvas vests layered over their uniforms, long-handled axes on their shoulders, tool bags at their hips, double-barreled shotguns across their backs. Every one of them was built like an ox.
 
-It simply dazzled the onlookers. They were used to the cumbersome and dilapidated "traveling robes" and "vests" of the Imperial Court's officers and soldiers, which were neither grey nor red, rusty armor and messy weapons. Where had they ever seen such new-style troops with neat attire, uniform steps, and high spirits? They couldn't help but secretly cheer: No wonder the Australians are invincible. Where in the world is there such a first-class strong army?
+The spectacle dazzled the crowd into silence. They were accustomed to the threadbare "traveling robes" of the Imperial Court's soldiers, the rusted armor and mismatched weapons, the shambling formations. Where in the empire had anyone seen troops like these—uniform in dress, synchronized in step, radiating confidence and power? A single thought echoed through hundreds of minds: No wonder the Australians are invincible. Where else in the world exists such a first-rate army?
 
-The drums rumbled, and the columns marched along Chengxuan Street. A sound of uniform footsteps, as if anything on the journey would be trampled to pieces.
+The drums thundered on. Columns flowed along Chengxuan Street like a river, each step falling in perfect unison—a sound that made it seem anything in their path would be ground to dust.
 
-The soldiers sang "The British Grenadiers" loudly, advancing and advancing, team after team, more and more. The crowd watching the march was silent, dumbfounded by the vast, endless, and exquisitely equipped nature of this team.
+The soldiers sang "The British Grenadiers" as they marched, ranks following ranks, company after company, the procession seemingly without end. The watching crowd fell mute, overwhelmed by the sheer scale and magnificence of the force passing before them.
 
-What surprised the crowd most was the convoy—the scholars and common people of Guangzhou rarely saw horses, let alone so many horses in the formation.
+But nothing astonished the onlookers more than the convoy. The scholars and commoners of Guangzhou rarely saw horses at all, let alone so many in disciplined formation.
 
-Gun carriages pulled by six horses with limbers, two-wheeled kitchen carts pulled by four horses, two-wheeled and four-wheeled baggage carts, two-wheeled/four-wheeled light carriages for officers... The wheels rolled forward on the stone slab road, sounding like thunder.
+Gun carriages drawn by teams of six horses rolled past with their limbers. Four-horse teams pulled two-wheeled field kitchens. Baggage wagons came in twos and fours, along with light carriages for officers in various configurations. Iron-shod wheels rumbled over the flagstones like continuous thunder.
 
-The massive convoy was mostly for show. They passed through the city and soon unloaded equipment at the newly built wharf of the Joint Logistics Headquarters by the riverside, loading it onto ships—on the march route, ships were the most important means of transport.
+The massive convoy was largely for show. After passing through the city, the wagons would unload at the newly constructed Joint Logistics wharf by the riverside, transferring their cargo to ships—for on the actual campaign routes, watercraft remained the primary means of transport.
 
-The marching columns of the South China Army walked for hour after hour, walking for the whole morning. It was not until nearly eleven o'clock that the last baggage cart left Chengxuan Street under the escort of the rearguard. As the whistle sounded, the "Detective Brigade" maintaining order on the street withdrew their posts, and the common people also dispersed in a hubbub.
+The South China Army's columns continued for hour after hour, filling the entire morning. Not until nearly eleven o'clock did the final baggage cart roll off Chengxuan Street under escort of the rearguard. A whistle shrilled; the Detective Brigade withdrew from their posts. The crowds dispersed in a buzzing haze of wonder.
 
-Boss Wang, Mad Cow, and the others stood for half a day, having long digested the char siu bao and raw boiling congee. At this moment, their stomachs were empty again. Since one matter doesn't trouble two masters, they entered the tea house again to continue "drinking tea."
+Boss Wang, Mad Cow, and the others had been standing for half the morning. Their earlier char siu bao and congee had long since digested. With stomachs growling again and the entertainment concluded, they filed back into the tea house. No sense in troubling two establishments when one would suffice.
 
-"I've long heard that the Australian soldiers are strong and horses are sturdy. Seeing is truly believing!" Little Boss Li asked the tea master to brew a new pot of Pu'er and praised.
+"I've long heard that the Australians field strong soldiers and sturdier horses," Young Master Li remarked, calling for a fresh pot of Pu'er. "But seeing truly is believing."
 
-Mad Cow said: "This counts for nothing. The Australians haven't taken out all their belongings yet. Just those fire-wheel gunboats that can't come ashore, one coming out would scare people to death—as big as a mountain! The masts are taller than the tallest tree!"
+"This is nothing," Mad Cow scoffed. "The Australians haven't shown half of what they have. Those fire-wheel gunboats that can't come ashore—just one of those would scare you to death. Big as mountains! Masts taller than the tallest trees!"
 
-"The Australians' ships are sturdy and cannons are sharp, this has long been spread. just didn't expect their land forces to be so strong too. Truly first-class strong soldiers!" Little Boss Li sighed, "Just this spirit and energy, the government troops and Tartars are not opponents!"
+"The Australians' ships are solid and their cannons sharp; everyone knows that." Young Master Li shook his head in wonderment. "But I never expected their land forces to match. These are truly first-class soldiers! The government troops and the Tartars alike—they don't stand a chance against this spirit and discipline."
 
-"If the government troops were opponents, how could the whole army be wiped out in Chengmai back then..." Fat Shu said, "At that time, the Australians didn't have many troops yet."
+"If the government troops were any match, they wouldn't have been annihilated at Chengmai back then," Fat Shu added. "And in those days, the Australians didn't even have that many men."
 
-"I see this Guangdong of ours is going to become the territory of this 'Australian' Song."
+"I believe we're watching Guangdong become the territory of this 'Australian' Song dynasty."
 
-...
+---
 
-Everyone talked for another half an hour or so, and finally dispersed one after another. The fat man strolled a few blocks shaking his white paper fan and entered a small shop with the sign "North and South General Goods." The assistant greeted him enthusiastically. "Boss is back."
+The conversation wound on for another half-hour before the group finally dispersed. The fat man strolled a few blocks, white paper fan flicking lazily, and entered a small shop beneath a sign reading "North and South General Goods." The assistant greeted him warmly. "Boss is back."
 
-"Mm." The fat man sat on the counter and lit a pipe. "Did today's stuff come yet?"
+"Mm." The fat man settled onto a seat behind the counter and lit his pipe. "Did today's package arrive?"
 
-"It's at the old place."
+"At the usual place."
 
-The fat man opened the fourth drawer under the counter and took out an unsigned and undated letter. After opening the letter, he counted, nodded with satisfaction, and then put the circulating notes in the letter into his bosom.
+The fat man slid open the fourth drawer beneath the counter and withdrew an unsigned, undated letter. He opened it, counted the contents with satisfaction, then tucked the circulating notes into his robe.
 
-After the demolition of Chengxuan Street and the "Military Parade," Liu Xiang suddenly felt the work in his hands was much smoother. Countless visiting cards were piled on his desk, all from the local gentry and big households seeking an audience. Some who felt they were not qualified enough to seek an audience also sent a full card with heavy gifts to show solemnity.
+---
 
-The gifts sent under the corridor of the central courtyard of the original Guangzhou Prefectural Yamen, ranging from bolts of silk and satin, white rice and flour, to small packages of dim sum and fruits, various cultural relics, calligraphy and paintings, jewelry and jade articles... and sealed silver, were all guarded by special personnel from the Planning Commission, piled all over the corridor, looking exactly like a general merchandise trading warehouse about to ship goods. Liu Xiang asked the people from the Planning Commission to register them into the warehouse. For some things, a sum was allocated on the account and given to the Guangzhou Municipal Government for use—he really needed these things for expenses now.
+After the demolition of Chengxuan Street and the military parade, Liu Xiang found the work in his hands suddenly flowing much more smoothly. Visiting cards piled on his desk in mounting stacks—all from local gentry and wealthy households seeking an audience. Those who felt themselves insufficiently important to request a meeting directly sent elaborate gift boxes with formal cards enclosed to demonstrate the seriousness of their intent.
 
-However, the key lay in who to see and who not to see. Liu Xiang was now so busy that he wished he could clone himself, so naturally he wouldn't meet them immediately. He asked Zhang Yunmi to organize the sent cards, separating them into four categories: "See immediately," "See in the near future," "Can see," and "Don't see." As for the basis, it was the "Guest Book" transferred from the Guangzhou Station. It listed in detail the specific situation, closeness of relationship, depth of cooperation, and size of contribution to the Guangzhou Station of the gentry and big households who had dealings with Purple Kee Enterprise on ordinary days. Also used as reference materials were some background data on Guangzhou gentry and big households provided by Lin Baiguang.
+The corridor of the former Guangzhou Prefectural Yamen's central courtyard had become a warehouse. Bolts of silk and satin, sacks of white rice and fine flour, dainty packages of dim sum and fresh fruit, antique curios, calligraphy scrolls, jewelry and jade—and of course, sealed parcels of silver—were all guarded by personnel from the Planning Commission and piled in towering heaps. The hallway looked exactly like a wholesale warehouse preparing to ship goods. Liu Xiang ordered the Planning Commission staff to register everything and deposit it in storage. A portion was allocated on the books and transferred to the Guangzhou Municipal Government for operational expenses—he genuinely needed the resources.
 
-"Little Zhang, just categorize the cards according to these materials. There are special people to write the reply cards, you don't need to worry. If there is anything you don't understand, ask Sister Zheng Ah..."
+The more pressing question was whom to see and whom to refuse. Liu Xiang was stretched so thin he wished he could split himself in two, so immediate meetings were impossible. He instructed Zhang Yunmi to organize the cards into four categories: "See immediately," "See in the near future," "Can see," and "Don't see." The basis for classification was the "Guest Book" transferred from the Guangzhou Station, which catalogued in meticulous detail the circumstances, relationship closeness, depth of cooperation, and contributed value of every gentry family and wealthy household that had ever dealt with Purple Kee Enterprise. Additional reference materials came from Lin Baiguang's background files on Guangzhou's prominent families.
 
-"Okay..." Zhang Yunmi said okay, but actually looking at the pile of big red full cards and accompanying gift lists on the table, she decisively sucked in a breath of cold air. How many are there! Moreover, she was already bad at traditional characters and classical Chinese reading at Fangcaodi School, especially these 17th-century traditional characters made her even more confused.
+"Little Zhang, categorize the cards according to these materials. Other staff will draft the reply cards; you don't need to worry about those. If anything confuses you, ask Sister Zheng..."
 
-Liu Xiang could originally have given this matter to Lü Yizhong, but he suspected that Lü Yizhong would have personal goals when classifying, so he didn't dare to fully entrust him at this critical node. It was more reassuring to hand it to one of their own.
+"Understood..." Zhang Yunmi agreed, but as she surveyed the mountain of crimson cards and their accompanying gift inventories, she sucked in a sharp breath. So many! Worse, she had never been good with classical Chinese or traditional characters back at Fangcaodi School, and these seventeenth-century manuscripts left her thoroughly confused.
 
-After Liu Xiang assigned the new task to Little Zhang, he turned his attention to the household census work.
+Liu Xiang could have assigned this task to Lü Yizhong, but he suspected that man would apply his own agenda when classifying the visitors. At this critical juncture, Liu Xiang didn't dare fully entrust him. Better to give it to one of their own.
 
-The household census was more difficult than imagined. The Great Ming not only had no such thing as house numbers, but also no perfect street naming system. The main streets and alleys were okay. Many back streets and humble alleys had no names. Although there were tithing heads and runners familiar with the local situation to lead the way, entering households for registration still encountered many difficulties. Liu Xiang had to concurrently serve as the "Place Name Committee" work himself.
+With Little Zhang's new assignment settled, Liu Xiang turned his attention to the household census.
+
+The census was proving more difficult than anticipated. The Great Ming had no system of house numbers, nor any comprehensive scheme for naming streets. The main thoroughfares and major lanes had proper designations, but countless back alleys and humble passages had none at all. Though tithing heads and local runners familiar with the neighborhoods served as guides, actually entering homes and registering households still encountered endless obstacles. Liu Xiang found himself forced to serve concurrently as a one-man "Place Names Committee."
 
 (End of this chapter)

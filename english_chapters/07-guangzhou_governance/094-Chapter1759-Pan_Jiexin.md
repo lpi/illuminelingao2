@@ -1,14 +1,14 @@
 # Chapter 1759 - Pan Jiexin
 
-Emerging from the Provincial Surveillance Commission Yamen, the sun was already slanting westward. The three young friends walked down the street, each with a different mood in his heart.
+Emerging from the Provincial Surveillance Commission Yamen, the sun was already slanting westward. The three young friends walked down the street, each carrying a different mood in his heart.
 
 Zeng Juan's face was pale. He had never experienced anything like the "one-thousand-meter" run. From the moment he'd entered the community school, decorum had been everything—running about and roughhousing were strictly forbidden, subject to the teacher's reprimand. He had no concept of how long five minutes was, only that time had never passed so slowly. By the time he finished, he had barely stopped before his stomach heaved and he vomited up his entire breakfast. Even now, he hadn't recovered.
 
-After all that suffering, he'd still exceeded the time limit. Zeng Juan was bitterly disappointed. He had assumed that when he came to "throw in with the *kun*," even if he was a year or two underage, as a community-school student who could already compose essays—well, he hadn't dared hope the Australians would "rush out to greet him with sandals on the wrong feet," but surely passing an exam for what was essentially a petty constable's post would be child's play.
+After all that suffering, he'd still exceeded the time limit. Zeng Juan was bitterly disappointed. He had assumed that when he came to "throw in with the Australians," even if he was a year or two underage, as a community-school student who could already compose essays—well, he hadn't dared hope the Australians would "rush out to greet him with sandals on the wrong feet," but surely passing an exam for what was essentially a petty constable's post would be child's play.
 
 The result was utterly unexpected. The Australians had made it quite clear: *You don't qualify.*
 
-The blow to his pride was severe. Before he'd come, his inner struggle had been "Should I throw in with the *kun* or not?"—not "Can I pass the exam?" And now the Australians had answered: *You're not good enough.*
+The blow to his pride was severe. Before he'd come, his inner struggle had been "Should I throw in with the Australians or not?"—not "Can I pass the exam?" And now they had answered: *You're not good enough.*
 
 His self-esteem was badly wounded, and his plan to use Australian influence to deal with his brother-in-law had come to nothing as well.
 
@@ -20,7 +20,7 @@ Li Ziyu and Zhang Yu chatted animatedly. It was only after they'd walked a long 
 
 Zhang Yu knew the real reason for his low spirits. "A-Juan, you may not have passed, but Ziyu did. Now there's someone on the inside. If anything comes up, just ask him to help out."
 
-Li Ziyu caught on at once. He thumped his chest. "A-Juan! We're brothers. Your business is my business! Don't worry—your nephews are my nephews. I won't let them be mistreated!"
+Li Ziyu caught on at once. He thumped his chest. "A-Juan! We're brothers. Your business is my business! Don't worry—your nephew and nieces are my concern too. I won't let them be mistreated!"
 
 Zeng Juan hesitated. "But—"
 
@@ -34,7 +34,7 @@ Zeng Juan's heart warmed. "Ziyu! A-Yu, thank you both for your concern." His eye
 
 ---
 
-Liu Xiang had originally been cautiously skeptical about whether the police recruitment would fill its quota. After all, they still wore the labels of "overseas bald pirates" and "rebels." Guangzhou Prefecture wasn't the starving, ruined Central Plains; how many "good citizens" would actually "throw in with the *kun*"? He really wasn't sure.
+Liu Xiang had originally been cautiously skeptical about whether the police recruitment would fill its quota. After all, they still wore the labels of "overseas bald pirates" and "rebels." Guangzhou Prefecture wasn't the starving, ruined Central Plains; how many "good citizens" would actually "throw in with the Australians"? He genuinely wasn't sure.
 
 But the turnout exceeded all expectations. On the first day alone, five or six hundred people registered. Though two-thirds were eliminated at the medical and fitness screening stages, the full quota of one thousand patrol officers was filled within a week.
 
@@ -56,7 +56,7 @@ Mu Min had come to discuss the configuration and deployment of the police appara
 
 ---
 
-According to Mu Min's proposal, the police apparatus in Guangzhou would for the time being have only the Municipal Bureau, without the originally planned Nanhai and Panyu sub-bureaus. The Municipal Bureau would directly oversee the police stations. The police system's jurisdiction would be limited to the urban districts and the adjacent suburbs.
+According to Mu Min's proposal, the police apparatus in Guangzhou would for the time being have only the Municipal Bureau, without the originally planned Nanhai and Panyu sub-bureaus. The Municipal Bureau would directly oversee the police stations. The police system's jurisdiction would be limited to the urban districts and adjacent suburbs.
 
 "We lack middle-tier police officials capable of handling precinct-level work, and we don't have enough qualified administrative and technical personnel to staff multiple layers. So we're taking the simplest approach: concentrating resources at the Municipal Bureau and having it handle all specialized police functions." Mu Min elaborated. "The stations will handle only household registration and grassroots governance."
 
@@ -70,7 +70,7 @@ Each station would have assimilated police officers from Hainan serving as stati
 
 "Do we have enough people as it is?"
 
-"Director Lin and I did the calculations. We do—barely. The veteran assimilated police officers are a bit stretched, though." Mu Min sighed and tilted her head. "It does feel like we're pulling at a coat that's too short."
+"Director Lin and I ran the calculations. We do—barely. The veteran assimilated police officers are a bit stretched, though." Mu Min sighed and tilted her head. "It does feel like we're pulling at a coat that's too short."
 
 Lin Baiguang said, "Right now the night-watch and gate crews are still operating as before. I suggest we leave them alone for the time being. Once we've dealt with the Guandi Temple gang, we can reorganize them. At least for now they're still serving a purpose."
 

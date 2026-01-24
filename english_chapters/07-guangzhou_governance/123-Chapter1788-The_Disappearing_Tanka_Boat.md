@@ -1,87 +1,88 @@
 # Chapter 1788 - The Disappearing Tanka Boat
 
-Judging from the food, utensils, and clothes discovered, the man was quite particular about his food, clothing, and daily expenses, and should be a wealthy person.
+Judging from the food, utensils, and clothes discovered, the man was quite particular about his lifestyle—and should be a person of wealth.
 
-Next, a second suspicious point was also discovered. Widow Wang's home was cleaned spotlessly. According to Shopkeeper Xie, Wang Xiuzhu was a person who loved cleanliness, and although her family was poor, she would clean the house once every morning when she got up. If a person wanted to commit suicide, it was unlikely she would still care so much about environmental hygiene. Moreover, the vegetable basket and a few hundred *wen* of copper coins were placed on the table in the main room—obviously, she had originally planned to go buy vegetables.
+Next, a second suspicious point came to light. Widow Wang's home was cleaned spotlessly. According to Shopkeeper Xie, Wang Xiuzhu was fastidious about cleanliness; though her family was poor, she swept the house every morning upon waking. If a person intended to commit suicide, would she still care so much about environmental hygiene? Moreover, a vegetable basket and several hundred *wen* of copper coins sat on the table in the main room—clearly, she had originally planned to go shopping for vegetables.
 
-Connecting the medical examiner's conclusion with the two suspicious points discovered earlier, the criminal police believed: Wang Xiuzhu died of homicide!
+Connecting the medical examiner's conclusion with these two suspicious points, the criminal police concluded: Wang Xiuzhu had died by homicide.
 
-"I think the murderer was looking for something," Gao Chongjiu said.
+"I believe the murderer was searching for something," Gao Chongjiu said.
 
-"Valuables?" Li Ziyu said cautiously. After all, the things in the dressing box were gone.
+"Valuables?" Li Ziyu offered cautiously. After all, the items in the dressing box were gone.
 
-"Not necessarily valuables." Gao Chongjiu frowned, "There were clearly five ten-tael silver ingots in the chest behind the bed. There were also some scattered broken silver pieces in the drawer—none were taken."
+"Not necessarily valuables." Gao Chongjiu frowned. "There were clearly five ten-tael silver ingots in the chest behind the bed. The drawer also contained scattered broken silver—none was taken."
 
-Both places had obvious traces of disturbance. The murderer clearly saw the silver but didn't take it, indicating what he was looking for was not money or jewelry. Traces of disturbance were present throughout the house, only the murderer was very careful when rummaging in order to leave a false impression of "suicide".
+Both locations showed obvious signs of disturbance. The murderer had clearly seen the silver but hadn't taken it. Whatever he sought wasn't money or jewelry. Traces of disturbance were present throughout the house, though the murderer had been careful while rummaging, clearly hoping to leave an impression of "suicide."
 
-By now, whether it was Gao Chongjiu, Li Zhenguo, or Li Ziyu, they all knew this case ran "deep". It was also basically certain that Wang Xiuzhu's death was related to that "headless corpse" whose whereabouts were still unknown. The man climbing the wall seen by Old Cui was a major suspect.
+By now, whether Gao Chongjiu, Li Zhenguo, or Li Ziyu, they all understood this case ran deep. It was also virtually certain that Wang Xiuzhu's death was connected to that "headless corpse" whose whereabouts remained unknown. The man climbing the wall, as seen by Old Cui, was a prime suspect.
 
 Since there was a second victim, the case had a new direction for investigation.
 
-The murderer killed Wang Xiuzhu and then disguised it as suicide, obviously to silence her. Wang Xiuzhu was very likely a participant or an important knowledgeable person in the "Headless Corpse Case".
+The murderer killed Wang Xiuzhu and then staged it as suicide—obviously to silence her. Wang Xiuzhu was very likely a participant or an important witness in the "Headless Corpse Case."
 
-Li Zhenguo immediately decided to start screening the people around Wang Widow, focusing on finding out who Wang Xiuzhu's lover was.
+Li Zhenguo immediately decided to begin screening the people around Widow Wang, focusing on identifying her lover.
 
-Although Wang Xiuzhu was an outsider, she had settled in South Scissors Alley for ten years. There were many acquaintances around. Neighbors didn't have any special impression of her, only saying she was diligent and capable. In the past when her husband's family was still around, they hadn't heard of any discord with her husband's family or finding a lover outside.
+Although Wang Xiuzhu was originally from elsewhere, she had settled in South Scissors Alley for ten years. She had many acquaintances here. Neighbors held no special impression of her, saying only that she was diligent and capable. In the past, when her husband's family was still intact, no one had heard of discord with in-laws or lovers outside.
 
-In short, Wang Xiuzhu was an ordinary housewife of a small commoner family in Guangzhou City, too ordinary to be any more ordinary.
+In short, Wang Xiuzhu was an ordinary housewife of a small commoner family in Guangzhou—utterly unremarkable.
 
-As for the matter of her recently finding a lover, many neighbors knew about it, but they mostly learned it from "street loudspeakers" like Sister-in-law Liu and Old Cui; almost no one had truly seen this "wild man".
+As for the matter of her recently taking a lover, many neighbors knew about it, but most had learned from "street loudspeakers" like Sister-in-law Liu and Old Cui. Almost no one had actually seen this "wild man."
 
-After a round of screening, the materials they grasped regarding Wang Xiuzhu's lover were still only those contents Sister-in-law Liu told Li Ziyu yesterday.
+After a round of screening, the materials they possessed regarding Wang Xiuzhu's lover remained only what Sister-in-law Liu had told Li Ziyu yesterday.
 
-Thus, the reconnaissance work fell into a deadlock again. Not only did they not find much information about the "wild man", but a key link of the case: the headless corpse was also not found.
+Thus, the investigation fell into deadlock again. Not only had they failed to find much information about the "wild man," but a crucial element of the case—the headless corpse—also remained missing.
 
-"Comrade Li..." Li Ziyu hesitated a bit. He had been running with the criminal police all morning, had some thoughts in his mind, but never had the chance to say them—according to the rules, a rookie like him who just got on the job was not qualified to speak. But Li Ziyu was an honor student in the first term at Longevity Palace, his skill in rote memorization was first-class, reciting several training textbooks fluently. These few books all had case studies. He could be considered to have seen a glimpse and known a thing or two about the Australian way of handling cases.
+"Comrade Li..." Li Ziyu hesitated. He had been running with the criminal police all morning and had formed some thoughts, but never found the opportunity to speak—according to established practice, a rookie just starting out wasn't permitted to voice opinions. But Li Ziyu had been an honor student in the first term at the Palace of Ten Thousand Longevities, his rote memorization skills first-rate. He had recited several training textbooks fluently, all containing case studies. He could be considered to have glimpsed the Australian way of handling cases.
 
-"...I have an idea," Li Ziyu mustered up his courage and said, "Could the corpse not have been thrown into the river, but loaded onto a Tanka boat?"
+"...I have an idea," Li Ziyu mustered his courage. "Could the corpse not have been thrown into the river, but loaded onto a Tanka boat?"
 
-This line of thought made Gao Chongjiu and the others' eyes light up. Both secretly cursed themselves for being muddled. There were no street gates on the river channel. The murderer put the corpse on a Tanka boat and easily transported it out along the river. They could turn South Scissors Alley upside down and it would be useless!
+This line of reasoning made Gao Chongjiu and the others' eyes light up. They silently cursed themselves for being muddle-headed. There were no street gates on the river channel. The murderer could have put the corpse on a Tanka boat and easily transported it out along the waterway. They could turn South Scissors Lane upside down and it would be futile.
 
-However, when they came to survey the scene early in the morning, they didn't see any small boats on the river, which added a few points of possibility to this reasoning.
+Moreover, when they had come to survey the scene early that morning, they hadn't seen any small boats on the river—adding several points of plausibility to this hypothesis.
 
-A few people divided the work. Gao Chongjiu went to investigate the whereabouts of these two small boats, while Li Zhenguo and Li Ziyu continued screening and surveying in South Scissors Alley.
+The group divided their work. Gao Chongjiu went to investigate the whereabouts of the small boats, while Li Zhenguo and Li Ziyu continued screening and surveying in South Scissors Alley.
 
-Involving Tanka people (boat people), this matter was a bit tricky. Gao Chongjiu couldn't help but have a headache. It wasn't that Tanka people had any "political sensitivity", but that Tanka people were basically "people outside of civilization". The Great Ming ignored Tanka people. Theoretically, Tanka people also had household registration, but their registration was managed by the local River Police Office (*Hebo Suo*), for the purpose of collecting fishing taxes.
+Involving Tanka people—the boat dwellers—this matter proved somewhat tricky. Gao Chongjiu couldn't help but have a headache. It wasn't that Tanka people held any "political sensitivity," but that they were essentially "people outside of civilization." The Great Ming had ignored them. Theoretically, Tanka people maintained household registration, but their records were managed by the local River Police Office (*Hebo Suo*), primarily for the purpose of collecting fishing taxes.
 
-Over the years, the government became lazy. The River Police Office only sought to extort fishing taxes and completely ignored the true household registration situation of the Tanka people. These household registrations were basically no different from the Yellow Registers in the county and prefecture yamens. Or even more ridiculously wrong.
+Over the years, the government had grown lax. The River Police Office only sought to extort fishing taxes and completely neglected accurate registration of the Tanka population. These records were essentially as unreliable as the Yellow Registers in the county and prefecture yamens—perhaps even more absurdly wrong.
 
-Tanka people lived on the water on weekdays, drifting uncertainly, having their own special language and customs, with deep estrangement from the people on shore, and rarely communicated. So the government knew practically nothing about the situation of the Tanka people.
+Tanka people lived on the water, drifting uncertainly. They had their own special language and customs, maintained deep separation from shore dwellers, and rarely interacted. The government knew practically nothing about them.
 
-Gao Chongjiu went out from the street gate, circled to the street opposite the river channel, and found the river pier Li Ziyu mentioned without much trouble. The river pier was very small, also at the bottom of a branch alley. The difference was that there were many residents in this branch alley, often using this river pier to wash rice, vegetables, and clothes. Tanka boats also often docked here to sell river fresh produce to residents. Over time, they all got to know each other. According to residents, there were three or four Tanka boats that came here often, and indeed two docked at the river pier overnight last night. One owner was called "Ah Shui", and the other everyone called "Ah Qiu". But shortly after dawn today, these two small boats were gone.
+Gao Chongjiu exited through the street gate, circled to the street opposite the river channel, and found the river pier Li Ziyu had mentioned without difficulty. The pier was very small, also at the bottom of a branch alley. The difference was that this branch alley had many residents who often used the pier to wash rice, vegetables, and clothes. Tanka boats frequently docked here to sell fresh river fish to residents. Over time, they had become familiar. According to locals, three or four Tanka boats came here regularly, and indeed two had docked at the pier overnight. One owner was called "Ah Shui," the other everyone called "Ah Qiu." But shortly after dawn today, both boats had vanished.
 
-Apart from knowing they were called "Ah Shui" and "Ah Qiu", and there were several men, women, old and young on the boats, the residents couldn't provide any more clues: ordinary people and Tanka people rarely interacted. The small boats had been doing business at this river pier for seven or eight years, yet no one knew exactly what their names were.
+Apart from knowing they were called "Ah Shui" and "Ah Qiu," and that several men, women, old, and young lived aboard the boats, residents couldn't provide more clues. Ordinary people and Tanka people rarely interacted. The boats had been doing business at this pier for seven or eight years, yet no one knew their actual names.
 
-Gao Chongjiu pondered that it was unlikely the Tanka boats transported the corpse out of the city—because leaving the city must pass through the water gate. In the past, there were customs officials guarding the water gate, now it was also managed by the police. Whether in the past or now, for a small boat to enter or leave Guangzhou, there simply had to be an inspection at the water gate: the main purpose of the water gate was to collect taxes, so inspections had always been relatively strict. There was no place on a small boat to hide a corpse, so mostly likely it was dumped halfway.
+Gao Chongjiu reasoned it was unlikely the Tanka boats had transported the corpse out of the city—because leaving required passing through a water gate. In the past, customs officials had guarded the water gates; now the police managed them. Whether then or now, for a small boat to enter or leave Guangzhou, inspection at the water gate was mandatory. The primary purpose of water gates was collecting taxes, so inspections had always been relatively strict. There was no place on a small boat to hide a corpse. Most likely, it had been dumped midway.
 
-However, since they were small boats frequently entering the city, the people at the water gate would definitely have an impression. Maybe it was possible they knew a thing or two.
+However, since these boats frequently entered the city, the people at the water gates would definitely have taken note. Perhaps they knew something.
 
-There were 10 water gates in the entire Guangzhou city. As long as one was willing to take a detour, any water gate could be used to leave the city. Moreover, they might not have left the city, docking at some river pier inside the city. Gao Chongjiu thought about it. Going to inquire at each water gate one by one was too slow, better to go to the River Police Office—now called the Water Police Station to ask.
+There were ten water gates in all of Guangzhou. As long as one was willing to detour, any gate could serve as an exit. Moreover, the boats might not have left the city at all—they could be docked at some other pier inside. Gao Chongjiu considered his options. Inquiring at each water gate one by one would take too long. Better to visit the River Police Office—now called the Water Police Station—and ask there.
 
-While Gao Chongjiu went to investigate the Tanka boats, Li Zhenguo led Li Ziyu and the others to continue the dizzying screening and questioning in South Scissors Alley. Tossing and turning until the sun was about to set in the west, they still came up empty-handed. Just as they were feeling disappointed, Wu Xiang arrived.
+While Gao Chongjiu investigated the Tanka boats, Li Zhenguo led Li Ziyu and the others in dizzying rounds of screening and questioning throughout South Scissors Alley. They worked until the sun began slanting westward, still coming up empty-handed. Just as disappointment was settling in, Wu Xiang arrived.
 
-Wu Xiang originally didn't plan to interfere in this case, but after busying himself all day and returning to the bureau, he saw the newly issued "Case Brief". The working conditions of the Senate's police system were extremely poor. Except for Lingao, most places didn't have telephones for contact at any time. But the mission they undertook required the Municipal Bureau, sub-bureaus, police stations, and resident stations, as well as between police stations, to exchange information as soon as possible. So they adopted the local method from the 1950s of the old timeline: each sub-bureau and police station manually reported various cases occurring within their jurisdiction in the past twenty-four hours to the Municipal Bureau at 12 noon every day. The Municipal Bureau would then quickly organize the case situations reported by various sub-bureaus and stations into a brief, print it, and distribute it to all sub-bureaus and stations before 2 pm. Ensuring everywhere could get the latest case information as soon as possible.
+Wu Xiang hadn't originally planned to involve himself in this case. But after a busy day, returning to the bureau, he saw the newly issued "Case Brief." The working conditions of the Senatorial Council's police system were extremely poor. Except for Lingao, most places lacked telephones for real-time contact. But the mission required the Municipal Bureau, sub-bureaus, police stations, and resident stations—as well as stations among themselves—to exchange information as quickly as possible. So they had adopted a local method from the 1950s of the old timeline: each sub-bureau and police station manually reported various cases occurring within their jurisdiction in the past twenty-four hours to the Municipal Bureau at noon every day. The Municipal Bureau would then quickly compile the case reports into a brief, print it, and distribute it to all sub-bureaus and stations before two in the afternoon—ensuring everyone could access the latest case information as soon as possible.
 
-Not only was the headless corpse in South Scissors Alley missing, but a case of "disguised suicide" also popped up, which aroused Wu Xiang's interest. He immediately rushed to South Scissors Alley again, just in time to meet the burnt-out Li Zhenguo.
+Not only had a headless corpse gone missing in South Scissors Lane, but a case of "disguised suicide" had also emerged. This aroused Wu Xiang's interest. He immediately headed back to South Scissors Lane, arriving just in time to meet the burnt-out Li Zhenguo.
 
-Listening to Li Zhenguo's report, Wu Xiang fell into deep thought.
+Listening to Li Zhenguo's report, Wu Xiang fell into thought.
 
-So far, Gao Chongjiu and Li Zhenguo's judgments had no problems, including the pursuit of the Tanka boats being a breakthrough direction. But Wu Xiang felt there must be some detail they hadn't noticed.
+So far, Gao Chongjiu and Li Zhenguo's judgments had been sound, including the pursuit of the Tanka boats as a breakthrough direction. But Wu Xiang felt certain there must be some detail they had overlooked.
 
-Judging from the currently available clues, the murderers in the nameless corpse case were very likely two people, because to use a carrying pole to move the corpse, two people must cooperate—Wang Xiuzhu was very likely one of them. For a young and strong woman from a rural background like her, carrying a load of one or two hundred *jin* was nothing. It would be even easier to carry a corpse with someone else.
+Judging from available clues, the murderers in the nameless corpse case were very likely two people, because using a carrying pole to transport a body required two-person cooperation. Wang Xiuzhu was very likely one of them. For a young, strong woman of rural background like her, carrying a load of one or two hundred *jin* was nothing. Carrying a corpse with a partner would be even easier.
 
-Carrying poles and ropes were found in the river, but the oilcloth sheet alone was missing. Why didn't the murderer sink it into the river together? Wu Xiang estimated that nine out of ten the murderer wrapped the corpse with oilcloth—only this could explain why there were no bloodstains along the way, only bloodstains at the entrance of East Branch Alley 8 where they dumped the corpse...
+The carrying pole and rope had been found in the river, but the oilcloth sheet alone was missing. Why hadn't the murderer sunk it together? Wu Xiang estimated that nine times out of ten, the murderer had wrapped the corpse in oilcloth—only this could explain why there were no bloodstains along the route, only bloodstains at the entrance of East Branch Alley 7 where they had dumped the body...
 
-Wu Xiang suddenly thought: This is a headless corpse! Since it is a headless corpse, where is the head?
+Wu Xiang's thoughts suddenly sharpened: This was a headless corpse! Since it was headless, where was the head?
 
-The murderer deliberately chopped off the head before moving the corpse. This kind of case is generally due to deep hatred with the victim, so the human head is specially taken away. The purpose is firstly to let the deceased end up with an incomplete body, and secondly to use as a sacrifice for worship.
+The murderer had deliberately decapitated the victim before moving the body. Such cases typically stemmed from deep hatred toward the victim—the head specifically taken away, firstly to ensure the deceased ended up with an incomplete body, and secondly to use as a sacrificial offering for worship.
 
-It's impossible to go too far carrying a bloody human head. It's easy to be exposed after dawn.
+One couldn't travel far carrying a bloody human head. Exposure after dawn would be too easy.
 
-Whether it is the murderer or the corpse divided into two pieces, obviously they are still hidden somewhere in this block.
+Whether it was the murderer or the corpse divided into two pieces, both were obviously still hidden somewhere in this block.
 
-Wu Xiang pondered again and again, saying: "Let's go, walk along the known crime route again. See if we can find any new clues."
+Wu Xiang pondered again and again, then said: "Let's go walk the known crime route once more. See if we can find any new clues."
 
-Li Ziyu thought to himself, how many times have we walked back and forth? Short of scraping off the wall skin and digging out the paving stones. What fresh tricks can be seen? No matter how capable the Australians are, they can't create something out of nothing. But he also admired this carefulness and meticulousness of the Australians—if it were the government of the past, firstly they wouldn't file a case without a corpse. Even if Widow Wang died, it wouldn't bring out so many twists and turns, they would just directly conclude it as "suicide" and be done with it. They definitely wouldn't look for trouble and painstakingly solve the case and apprehend the murderer.
+Li Ziyu thought to himself: how many times have we walked back and forth already? Short of scraping off the wall plaster and digging up the paving stones, what's left? No matter how capable the Australians are, they can't create something from nothing. But he also admired this carefulness and meticulousness—if this had been the government of old, firstly they wouldn't have filed a case without a corpse. Even if Widow Wang had died, they wouldn't have made such a thorough effort. They would have simply concluded it as "suicide" and been done with it. They certainly wouldn't have labored so painstakingly to solve the case and apprehend the murderer.
 
-(End of Chapter)
+---
+*(End of Chapter)*

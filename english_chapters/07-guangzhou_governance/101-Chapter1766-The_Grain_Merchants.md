@@ -1,6 +1,6 @@
 # Chapter 1766 - The Grain Merchants
 
-Most of what arrived was rice and cloth. Salt had low value and was in less demand than the first two. Lin Baiguang knew that most of this rice came from Siam and the East Indies. Vietnam's position as a rice supplier had been overtaken by the latter—the civil war between North and South had drained too many peasants from the fields, and Vietnamese grain output was much diminished. The Dutch had seized the opportunity to fill the gap, shipping boatload after boatload of East Indies rice in exchange for white sugar and silk. Because the Australians were willing to import rice in almost unlimited quantities, the Dutch East India Company had for the first time escaped the chronic drain of silver in its China trade, achieving a rare trade balance. The cost was merely a great many empty return voyages: rice was of such low value that several shiploads were needed to exchange for a single cargo of sugar and silk. But achieving trade equilibrium was a resounding success in the eyes of the Batavia Council. The Dutch were now using every means to squeeze rice out of the entire East Indies to supply the Australians—whose appetite for rice seemed infinite.
+Most of what arrived was rice and cloth. Salt, with its low value, was in less demand than either. Lin Baiguang knew that most of this rice came from Siam and the East Indies. Vietnam's position as a rice supplier had been overtaken by the latter—the civil war between North and South had drained too many peasants from the fields, and Vietnamese grain output had diminished considerably. The Dutch had seized the opportunity to fill the gap, shipping boatload after boatload of East Indies rice in exchange for white sugar and silk. Because the Australians were willing to import rice in almost unlimited quantities, the Dutch East India Company had for the first time escaped the chronic drain of silver in its China trade, achieving a rare trade balance. The cost was merely a great many empty return voyages: rice was of such low value that several shiploads were needed to exchange for a single cargo of sugar and silk. But achieving trade equilibrium was a resounding success in the eyes of the Batavia Council. The Dutch were now using every means to squeeze rice out of the entire East Indies to supply the Australians—whose appetite for rice seemed infinite.
 
 *Thank heavens we control East Asian international trade,* Lin Baiguang thought. *Otherwise we couldn't pull off this currency-reform spectacle.*
 
@@ -18,13 +18,13 @@ Seeing him enter, the group swarmed forward in a disorderly chorus of greetings.
 
 "No need for such ceremony. Please, sit." Lin Baiguang waved a hand. Because of the crowd, several long benches had been set out in the office. Lin Baiguang took the central seat and motioned for everyone to sit.
 
-For these grain merchants, this was the first time any had been summoned by an Australian—quite unexpected. Since the change of regime, everyone in Guangzhou's commercial circles had been scheming for ways to gain access to the Australians, yet so far not one had succeeded. Even a well-connected tycoon like Gao Ju had been granted only a brief tea's worth of audience with Governor Liu—already considered a tremendous honor.
+For these grain merchants, this was the first time any of them had been summoned by an Australian—quite unexpected. Since the change of regime, everyone in Guangzhou's commercial circles had been scheming for ways to gain access to the Australians, yet so far not one had succeeded. Even a well-connected tycoon like Gao Ju had been granted only a brief tea's worth of audience with Governor Liu—already considered a tremendous honor.
 
 To think that they—long-haul rice traders stuck at their guild-halls—should be the ones summoned by an Australian! And according to Manager Zhu, this one was an authentic "Second Prefect of Guangzhou"! What an honor indeed.
 
 Even more surprising: the man didn't put on airs but invited them to sit together and had tea served. That was treatment reserved for distinguished guests. Astonishment and delight mingled among the merchants.
 
-Zhu Fuyuan introduced the merchants one by one. All were so-called "itinerant traders"—engaged in long-distance grain transport. Lin Baiguang said:
+Zhu Fuyuan introduced them one by one. All were so-called "itinerant traders"—engaged in long-distance grain transport. Lin Baiguang said:
 
 "I've asked you here today for one purpose: to discuss Guangzhou's grain trade." He lit a cigar. "You're all grain merchants, so I needn't explain how vital grain is. This concerns the people's livelihood. I hope everyone will speak frankly—tell me everything you know."
 
@@ -44,7 +44,7 @@ Part of the cargo was unloaded at Foshan and distributed across the Delta; part 
 
 "How much grain do you bring into Guangdong each year, and how much to Guangzhou specifically?"
 
-"The grain shipped out of Wuzhou is almost beyond counting. It's on the order of a million *shi*," the old man said. "Those of us here transport roughly two hundred thousand *shi* a year from Wuzhou to Guangzhou."
+"The grain shipped out of Wuzhou is almost beyond counting—on the order of a million *shi*," the old man said. "Those of us here transport roughly two hundred thousand *shi* a year from Wuzhou to Guangzhou."
 
 ---
 
@@ -52,7 +52,7 @@ Lin Baiguang did a quick mental calculation: two hundred thousand *shi* was abou
 
 "That's no small business."
 
-"It's big, all right—otherwise who'd endure such hardship!" The old man sighed. "From Wuzhou downstream, the West River is teeming with pirates, and the boatmen are crafty. You have to pay for safe passage. Even so, if you run into a storm and lose a boat—that's your whole capital gone!"
+"It's big, all right—otherwise who'd endure such hardship!" The old man sighed. "From Wuzhou downstream, the West River is teeming with pirates, and the boatmen are crafty. You have to pay for safe passage. Even so, if a storm hits and you lose a boat—that's your whole capital gone!"
 
 A merchant in his thirties chimed in: "And even if you arrive safely in Guangzhou, it's still no sure thing you'll make money! We're outsiders, itinerant traders. From the officials down to the street rats, every 'god' has to be fed incense! And after you've burned incense for all the gods, the ordeal isn't over—you still have to suffer the *ya* brokerages..."
 
@@ -62,7 +62,7 @@ He spoke gently: "Why stop? The *ya* brokers must be hard to provoke. But rest a
 
 At these words, the merchants remained hesitant. Lin Baiguang added: "Surely you know the Senatorial Council's way of doing things: first, credibility; second, we don't forget old friends; third, we use people to their full potential. The *ya* brokers' misdeeds are well known to me. Speak freely. The Senatorial Council is waging a revolution of King Tang and King Wu here in Guangzhou—even a Ming emperor's kin would be worth nothing here, let alone a bunch of *ya* men holding Ming-issued permits!"
 
-The young merchant had been itching to talk. Now he spoke up loudly: "Manager Ding is right! However high and mighty those *ya* men act, their permits come from the Ming. Guangzhou is Song territory now! What's to fear?"
+The young merchant had been itching to talk. Now he spoke up loudly: "Manager Ding is right! However high and mighty those *ya* men act, their permits come from the Ming. Guangzhou is Song territory now! What's there to fear?"
 
 At that, the merchants who had been silent seemed suddenly enlightened. They grew eager to speak. Lin Baiguang smiled. "Don't rush. One at a time." He looked at the young merchant. "What is your honored name?"
 
@@ -76,15 +76,15 @@ At this, the merchants' faces went pale. The *ya* system had been used by govern
 
 Lin Baiguang said, "I've heard of the *ya* men's evil reputation. But set that aside for now. Tell me your grievances."
 
-He Gao shook his head and sighed. "It's not just us grain merchants—any trader dealing in bulk long-haul goods has been preyed on by the *ya* brokerages. We put up capital and toil through innumerable hardships to transport goods here. The *ya* system was originally meant to help us outsiders—they'd act as matchmakers; we'd sell our goods and profit; we'd pay them a commission; all fair. But now buying and selling is controlled by the *ya*. Without going through a *ya* firm, you can neither buy nor sell. And those *ya* bosses, flaunting their government permits, not only collect fat margins—they torment us outsiders at will. Take us grain merchants: the moment our cargo arrives in Guangzhou, it has to go into the *ya*'s warehouse. Private wholesale is forbidden. Grain always sells—everybody knows that. The *ya* batches it out to local rice dealers, collects the payment—and then won't pay us. Often they hold the money for months on end..."
+He Gao shook his head and sighed. "It's not just us grain merchants—any trader dealing in bulk long-haul goods has been preyed on by the *ya* brokerages. We put up capital and toil through innumerable hardships to transport goods here. The *ya* system was originally meant to help us outsiders—they'd act as matchmakers; we'd sell our goods and profit; we'd pay them a commission; all fair. But now buying and selling is controlled by the *ya*. Without going through a *ya* firm, you can neither buy nor sell. And those *ya* bosses, flaunting their government permits, not only collect fat margins—they torment us outsiders at will. Take us grain merchants: the moment our cargo arrives in Guangzhou, it has to go into the *ya*'s warehouse. Private wholesale is forbidden. Grain always sells—everybody knows that. The *ya* batches it out to local rice dealers, collects the payment—and then won't pay us. Often they hold our money for months on end..."
 
-"If the goods have been sold, why withhold the payment? Don't they just collect a commission?"
+"If the goods have been sold, why withhold payment? Don't they just collect a commission?"
 
-"Your Excellency doesn't know. As long as they haven't settled accounts, the grain is still counted as theirs in the warehouse—and they continue charging us storage and brokerage fees. On top of that, with money in hand, they can turn it around for interest. Meanwhile, the cost of being stuck in Guangzhou is entirely on our shoulders..."
+"Your Excellency doesn't know. As long as they haven't settled accounts, the grain is still counted as theirs in the warehouse—and they continue charging us storage and brokerage fees. On top of that, with money in hand, they can turn it around for interest. Meanwhile, the cost of being stuck in Guangzhou falls entirely on our shoulders..."
 
 "Wait," Lin Baiguang said. "How does the *ya* collect the payment at all? A broker is supposed to introduce buyers and sellers and collect a commission; the transaction should be between you and the local rice dealer."
 
-"Your Excellency is unaware—old-timers say that's how it used to be. Somewhere along the line, this outrageous rule took over. They're called brokers, but they don't introduce us to customers. What they actually do is take our grain and resell it wholesale to buyers. We endure countless hardships, brave storms and pirates to ship our rice here—and they sell it for us, pocketing both sides! They grab the lion's share of the profit, yet we still owe them a commission! And getting our own payment back is next to impossible."
+"Your Excellency is unaware—old-timers say that's how it used to be. Somewhere along the line, this outrageous rule took over. They're called brokers, but they don't introduce us to customers. What they actually do is take our grain and resell it wholesale to buyers. We endure countless hardships, brave storms and pirates to ship our rice here—and they sell it for us, pocketing profits from both sides! They grab the lion's share, yet we still owe them a commission! And getting our own payment back is next to impossible."
 
 ---
 

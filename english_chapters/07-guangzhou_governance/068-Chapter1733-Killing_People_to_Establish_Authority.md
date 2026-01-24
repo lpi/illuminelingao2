@@ -1,93 +1,101 @@
 # Chapter 1733: Killing to Establish Authority
 
-Liu Xiang sneered: "The peace of Guangzhou is guarded by my Senate. You, a city fox and society rat, a scum in the public gate, dare to say you keep the peace of a region? Go tell that to the King of Hell and the people killed by you. Take him down!"
+Liu Xiang's voice cut like ice. "The peace of Guangzhou is guarded by my Senate. You—a city fox and social rat, scum of the public gate—dare claim you keep the peace? Go tell that to the King of Hell and the people you've killed. Take him down!"
 
-Since ancient times, clerks and runners have always been ruthless and fickle people. Hearing Liu Xiang's words, Zhao Xian hesitated no more and immediately shouted: "Master Bi, sorry about this!" After speaking, he threw the chain over his head, locked Bi Wusu, and dragged him down the hall.
+Since ancient times, clerks and runners have been ruthless and fickle by nature. Hearing Liu Xiang's words, Zhao Xian hesitated no longer and immediately shouted: "Master Bi, sorry about this!" He threw the chain over Bi Wusu's head, locked it, and dragged him from the hall.
 
-Bi Wusu struggled with all his might, watching his disciples and grand-disciples either keeping silent like cicadas in winter or standing dumbstruck like wooden chickens. Not a single one stood up for him. Looking at the Japanese samurai in the bright red surcoat grinning at him, revealing a mouthful of uneven teeth, as if smiling at him—he just felt a chill rise from his spine and spread throughout his body. Seeing himself being dragged closer and closer to the public desk, when this rash young man shouted: "Drag him down and behead him!" no one in Guangzhou City would dare to plead for him! He suddenly realized how insignificant he was; without the Great Ming, he was nothing. In an instant, as if waking from a dream, shaking like a sieve all over, he knelt down with a thump, cold sweat and tears streaming down his face, and said incoherently: "I beg... beg Your Excellency to look at... look at... look at..." He said "look at" several times, but found that he had no friendship with this Lord Liu at all. It counted as his brain being quick, "...Look at the sake of this lowly one serving Shopkeeper Guo in the past, rais... raise your noble hand high... This lowly one has eyes but no pupils and offended Your Excellency's tiger prestige. I deserve to die ten thousand times."
+Bi Wusu struggled with all his might, watching his disciples and grand-disciples either keep silent as winter cicadas or stand frozen like wooden chickens. Not a single one rose to defend him. He caught the eye of a Japanese samurai in a bright red surcoat, grinning at him with a mouthful of uneven teeth—as if mocking him. A chill rose from his spine and spread throughout his body. He saw himself being dragged ever closer to the public desk. When this rash young man shouted "Drag him down and behead him," no one in Guangzhou City would dare plead for him! The realization hit like awakening from a dream: without the Great Ming, he was nothing. In an instant, shaking like a sieve, he dropped to his knees with a thump. Cold sweat and tears streamed down his face as words tumbled out: "I beg... beg Your Excellency to look at... look at... look at..." He said "look at" several times before realizing he had no friendship with Lord Liu to invoke. His mind raced. "...Look at the sake of this lowly one serving Shopkeeper Guo in the past. Raise... raise your noble hand high... This lowly one had eyes but no pupils and offended Your Excellency's tiger prestige. I deserve to die ten thousand times."
 
-The clerks present were in another commotion. Bi Wusu was usually tyrannical, sinister, and ruthless, treating murder for money as a common meal. He could be called a person with a heart of iron and stone. Now, locked by chains but kneeling on the ground, begging for his life with tears and snot running down. This contrast was too great!
+Another stir rippled through the clerks. Bi Wusu—usually tyrannical, sinister, ruthless, treating murder for money as routine—was now bound in chains, kneeling on the ground, begging for his life with tears and snot streaming. The contrast was staggering.
 
-Liu Xiang smiled: "Shopkeeper Guo doesn't need your concern." He shouted sternly, "Take him down!" Several runners from the Detective Brigade, having lost their fear after his crying and begging, immediately pounced like wolves and tigers, tied Bi Wusu up firmly with ropes, and stuffed a hemp gag into his mouth. He was pressed down under the eaves to await disposal.
+Liu Xiang smiled coldly. "Shopkeeper Guo doesn't need your concern." His voice turned stern. "Take him down!"
 
-Lü Yizhong watched with palpitating heart, knowing that Liu Xiang was "killing the monkey to scare the chickens." He thought to himself that this was the only way to rectify this bunch of "cunning clerks." He gathered his spirits and read out the names one by one.
+Several Detective Brigade runners, their fear dispelled by his pathetic display, pounced like wolves and tigers. They bound Bi Wusu firmly with rope and stuffed a hemp gag into his mouth. He was pressed down under the eaves to await disposal.
 
-"Zhu Huifei!", "Zhai Shini!", "Zhang Dejin!", "Gao Chenfeng!"... With Lü Yizhong's modulating chant, the Detective Brigade arrested people by name, pulling them out of the queue one by one, binding them with ropes, and gagging them with hemp nuts. They knelt densely under the corridor eaves.
+Lü Yizhong watched with pounding heart, understanding that Liu Xiang was "killing the monkey to scare the chickens." This was the only way to rectify such "cunning clerks." Gathering himself, he read out the names one by one:
 
-The air in the yamen suddenly solidified. These more than a thousand runners usually shouted and bossed people around, acting tyrannically. Who had ever seen such a battle array? Seeing people being pulled out of the queue one by one and tied up, everyone was so scared that their calves cramped and their faces were completely bloodless. Some simply fainted from fright.
+"Zhu Huifei! Zhai Shini! Zhang Dejin! Gao Chenfeng!"... With each name Lü Yizhong chanted, the Detective Brigade arrested by name, pulling them from the queue, binding them with rope, gagging them with hemp. They knelt in dense rows under the corridor eaves.
 
-There were more than a hundred people on the list. Most were caught. For those who didn't come to the roll call, the Detective Brigade sent people to catch them. Reports came in one after another; some were caught, some not. Liu Xiang didn't ask questions, only ordered those not caught to be listed as wanted in red.
+The atmosphere in the yamen solidified. These thousand-plus runners normally shouted and bossed people around, acting like petty tyrants. None had ever witnessed such a display. Seeing people pulled from the queue one by one and bound, everyone felt their calves cramp and blood drain from their faces. Some simply fainted from terror.
 
-At this time, several detective team members returned. It was Wu Duoduo who led people to arrest the Fast Class runner Bu Dailu—this person had done much evil, colluding with "Great Sky Twos" (bandits) outside the city to commit countless kidnappings and obtaining countless wealth. Knowing his crimes were heinous, he dared not come to answer the roll call this time.
+More than a hundred people were on the list. Most were caught. For those who hadn't appeared for roll call, the Detective Brigade sent teams to find them. Reports came in one after another—some caught, some not. Liu Xiang didn't inquire about details, only ordered those still at large to be listed for red warrants.
 
-Wu Duoduo came up and reported: "Your Excellency, Bu Dailu is not at home. His family says he went out last night and hasn't returned. His whereabouts are unknown."
+At this point, several detective team members returned. Wu Duoduo led a team to arrest the fast-class runner Bu Dailu—a man of many crimes who had colluded with bandits outside the city in countless kidnappings, accumulating vast wealth. Knowing his guilt was severe, he hadn't dared attend roll call.
 
-Liu Xiang nodded and said: "I actually know his whereabouts."
+Wu Duoduo approached and reported: "Your Excellency, Bu Dailu is not at home. His family says he went out last night and hasn't returned. His whereabouts are unknown."
 
-As soon as these words came out, Wu Duoduo and the others all trembled. Two National Army soldiers pushed Bu Dailu, who was tied up firmly, out from behind.
+Liu Xiang nodded. "I actually know his whereabouts."
 
-Wu Duoduo and the others turned pale with fright, instantly collapsed on the ground, and kowtowed like pounding garlic.
+At these words, Wu Duoduo and his men all trembled. Two National Army soldiers pushed Bu Dailu, bound tightly, out from behind.
+
+Wu Duoduo and the others went pale with fright, collapsed to the ground, and kowtowed frantically.
 
 "Come! Search!"
 
-With Liu Xiang's order, several bailiffs hurriedly went over and pinned them to the ground. In a short while, several Delong bank notes were searched out from Wu Duoduo and another runner, Lu Rui, totaling fully five hundred taels.
+At Liu Xiang's order, several bailiffs hurried over and pinned them down. In moments, several Delong bank notes were found on Wu Duoduo and another runner named Lu Rui—totaling a full five hundred taels.
 
-Liu Xiang looked at them, nodded and sighed: "I have long heard of the wealth of clerks; it is shocking to hear. I know how it works now—really fishing for money even in a pot of oil." He said to Wu and Lu who were kowtowing and begging for mercy below, "I originally thought that you two didn't commit much evil in your usual duty and still had some conscience left. It seems I didn't have the eyes to judge people. Mister Lü!"
+Liu Xiang examined them, nodded, and sighed. "I've long heard of clerks' wealth—shocking to hear, astonishing to see. Now I understand how the saying goes: fishing for money even in a pot of oil." He addressed the kowtowing Wu and Lu below. "I originally thought you two had committed little evil in your usual duties and still retained some conscience. It seems I lacked the eyes to judge people. Mister Lü!"
 
-Lü Yizhong knew he was going to kill someone to establish authority, so he hurriedly got up and responded: "This lowly official is here!"
+Lü Yizhong knew lives were about to be taken to establish authority. He hurried up and responded: "This lowly official is here!"
 
-"What are the crimes committed by Wu Duoduo and others according to the 'Counter-Insurgency Law'?"
+"What crimes have Wu Duoduo and the others committed according to the 'Counter-Insurgency Law'?"
 
-"Replying to the Chief: Accepting bribes and privately releasing wanted criminals, a capital crime!"
+"Replying to the Chief: accepting bribes and privately releasing wanted criminals—a capital crime!"
 
-"Wu Duoduo and Lu Rui accepted bribes to buy release. The two who went with them didn't know, so they are exempted from punishment."
+"Wu Duoduo and Lu Rui accepted bribes to secure release. The two who accompanied them were unaware of this and are exempted from punishment."
 
-"Where is the executioner?!" He suddenly shouted sternly. The surrounding bailiffs felt a chill in their hearts and responded in unison almost as a conditioned reflex: "Summon the executioner!"
+"Where is the executioner?!" His sudden shout made the surrounding bailiffs' hearts skip. They responded in unison, almost as conditioned reflex: "Summon the executioner!"
 
-The executioners of the Prefectural Yamen responded and came out. They naturally had various "customary fees" in their daily lives, but the words "committed many evils" didn't apply to them. Priding themselves as "technical personnel," they thought they should be fine. So they weren't too panicked. Now hearing Lord Liu wanted to carry out a red duty (execution), they hurriedly gathered their spirits to answer the duty.
+The yamen executioners stepped forward. They naturally had their own "customary fees" in daily life, but the words "great evil" didn't apply to them. Considering themselves "technical personnel," they had assumed they'd be fine. Now, hearing Lord Liu wanted to carry out an execution, they gathered their focus and answered the summons.
 
-"Push Wu Duoduo and Lu Rui out to be beheaded, execute on the spot!"
+"Push Wu Duoduo and Lu Rui out to be beheaded. Execute on the spot!"
 
 "Yes!"
 
-The executioners responded in unison, pulled Wu and Lu up from the ground, tied them up in an instant, and pushed them out. These two people were "Detective Team Members" newly promoted by the Senate just now, and in an instant, they turned into death row prisoners. Wu, Lu, and the others cried towards heaven and hit the earth, repeatedly begging "Shouldn't have been blinded by silver, beg Your Excellency to give a chance to turn over a new leaf."
+The executioners responded in unison, pulled Wu and Lu from the ground, bound them in an instant, and pushed them out. These two had been "Detective Team Members" newly promoted by the Senate mere moments ago—now transformed into condemned prisoners. Wu, Lu, and the others cried to heaven and earth, begging repeatedly: "Shouldn't have been blinded by silver! Beg Your Excellency for a chance to reform!"
 
-Liu Xiang was unmoved: "I already gave the opportunity." In the atmosphere of extreme terror, he slowly said, "Execute!"
+Liu Xiang was unmoved. "I already gave the opportunity." In the atmosphere of extreme terror, he spoke slowly: "Execute!"
 
-Only three cannon shots were heard outside. After a while, the executioner held two human heads on a tray to the bottom of the steps, half-knelt and raised them: "Your Excellency, please verify the execution!"
+Three cannon shots sounded outside. After a while, an executioner entered holding two human heads on a tray. He half-knelt at the bottom of the steps and raised them: "Your Excellency, please verify the execution!"
 
-Liu Xiang glanced at the dripping bloody heads. He felt a wave of nausea. Looking away to regulate his breath and calm his mind, seeing the clerks and runners below were all scared pale, he slowly said: "Hang them outside the gate as a warning!"
+Liu Xiang glanced at the dripping bloody heads. Nausea washed over him. Looking away to regulate his breathing and calm his nerves, he saw the clerks and runners below were all deathly pale. Slowly, he said: "Hang them outside the gate as a warning!"
 
-Watching the heads being taken out, Liu Xiang breathed a sigh of relief and slowly said: "Since you all have pledged loyalty to the Great Song and the Senate, you must work hard and not harbor any selfish thoughts. Otherwise, Wu and Lu are your examples!"
+Watching the heads carried out, Liu Xiang breathed a sigh of relief. "Since you have all pledged loyalty to the Great Song and the Senate, you must work diligently and harbor no selfish thoughts. Otherwise, Wu and Lu are your examples!"
 
-The clerks below were dizzy and dazzled by this series of changes, already scared out of their wits, their three souls and seven spirits not in place, unaware of pain or itch. At this moment, a soft question made them tremble together like autumn grass attacked by a sudden wind. In a palpitation and a tremble, the people in front knelt down with a thump, muttering something unknown. Seeing the people in front kneeling, the people behind also knelt down, and instantly a black mass of people were all kneeling on the ground.
+---
 
-Liu Xiang saw that this round of arresting and killing had achieved the effect. He announced that all arrested persons were to be imprisoned pending interrogation—the Planning Institute still wanted to make a fortune from them—as for the others, from today on, they were considered subordinates of the Australians.
+The clerks below, dazed by this cascade of events, had been scared witless—their three souls and seven spirits scattered, numb to all sensation. When a soft question came, they trembled together like autumn grass struck by sudden wind. In a palpitation and shudder, those in front dropped to their knees with a thump, muttering indistinctly. Seeing them kneel, those behind followed suit, until a black mass of people were all prostrate.
 
-"Tomorrow the Great Army enters the city. You all perform your duties wholeheartedly. Let me see who is the most eager to please." Liu Xiang smiled, "Promotions will be inevitable in the future."
+Liu Xiang saw this round of arrests and executions had achieved its desired effect. He announced that all arrested persons would be imprisoned pending interrogation—the Planning Institute still wanted to extract value from them—and as for the others, from today forward they were subordinates of the Australians.
 
-Below, a hundred responses echoed one call: "Thank you, Your Excellency!"
+"Tomorrow the Great Army enters the city. Perform your duties wholeheartedly. Let me see who is most eager to please." Liu Xiang smiled. "Promotions will follow in due course."
 
-After the roll call ended, Liu Xiang instructed that notices be posted everywhere in the city, ordering the runners and clerks of various yamens who didn't come to report to report within three days. Those not reporting would be considered "hiding," and after being caught, they would be treated as "enemy spies."
+Below, a hundred voices echoed as one: "Thank you, Your Excellency!"
 
-Those who came to report registered on the spot. First fill out the "Former Personnel Registration Form," then take a photo for the file. This registration used cameras newly developed and manufactured by the Ministry of Science and Technology. Because magnesium powder was not easy to process, several photography lights were specially equipped to ensure the effect of the photos.
+---
 
-After photographing and registering, they were asked to write a self-statement. Those who were illiterate had others write for them, ensuring everyone had a file to check. After the filing was completed, their intentions were asked. Those unwilling to continue serving signed and fingerprinted the pre-printed "Letters of Resignation from Service" on the spot, and were then issued a certificate to become commoners.
+After roll call ended, Liu Xiang instructed that notices be posted throughout the city, ordering any runners and clerks who hadn't reported to do so within three days. Those failing to report would be considered "in hiding," and once caught, treated as "enemy spies."
 
-Because serving as a runner had the benefit of tax exemption, quite a few people spent money to buy a "white member" status but didn't actually serve. Now most of this group resigned and quit.
+Those who came forward registered on the spot. First they filled out "Former Personnel Registration Forms," then had their photos taken for the files. This registration used cameras newly developed by the Ministry of Science and Technology. Because magnesium powder was difficult to process, several photography lights had been specially equipped to ensure photo quality.
 
-Those willing to continue serving, whether regulars or white members, first read the oath of allegiance to the Senate; then shaved their hair. After shaving, they were assigned to various departments according to their usual duties.
+After photographing and registration, they were asked to write self-statements. Those who were illiterate had others write for them, ensuring everyone had a documented file. After filing was complete, their intentions were solicited. Those unwilling to continue serving signed and fingerprinted pre-printed "Letters of Resignation from Service" on the spot, then received certificates to become commoners.
 
-The Three Classes personnel were received by the city and county police bureaus. These people were not given police ranks but were uniformly incorporated into the Detective Brigade as auxiliary security personnel. Household Department clerks, grain runners, river office ambassadors, and tax collectors were mostly assigned to the tax department... Those who really didn't know where to assign were first assigned to the Comprehensive Governance Office for use.
+Since runner status carried tax exemption benefits, quite a few people had purchased "white member" status without actually serving. Most of this group now resigned.
 
-According to the policy formulated by Liu Xiang, all levels of officials of the new Guangzhou Municipal Government were assumed by naturalized citizen cadres from the Northbound Detachment, and important positions were also held by naturalized citizen cadres. Surrendered personnel only acted as auxiliary personnel. The surrendered clerks uniformly wore old Great Ming public uniforms, but changed to wearing brownish-yellow copper basin hats—pressed from mixed paper pulp—and wore a blue armband on their arms, with the department name written in Song typeface. On the chest and back, like soldiers, a large character "Assist" (Xie) was written in Song typeface.
+Those willing to continue serving, whether regulars or white members, first recited an oath of allegiance to the Senate, then had their heads shaved. After shaving, they were assigned to various departments according to their previous duties.
 
-Liu Xiang required all personnel, whether formal cadres served by naturalized citizens or "auxiliary personnel" served by surrendered clerks, to be issued work IDs. The IDs must have photos and fingerprints.
+Three Classes personnel were received by the city and county police bureaus. They weren't given police ranks but uniformly incorporated into the Detective Brigade as auxiliary security personnel. Household Department clerks, grain runners, river office ambassadors, and tax collectors were mostly assigned to the tax department... Those who truly didn't fit anywhere were first assigned to the Comprehensive Governance Office for general use.
 
-Having dealt with the whereabouts of the old personnel, the next step was to establish their own new institutions. Although the clerks of the old Guangzhou's one prefecture and two counties were accepted, the Senate didn't intend to follow the organizational structure of the prefectural and county yamens in setting up government departments. This kind of structure was too simple and completely unsuited to the ruling needs of the Senate.
+According to Liu Xiang's policy, all positions in the new Guangzhou Municipal Government were filled by naturalized citizen cadres from the Northbound Detachment, with important posts also held by naturalized citizen cadres. Surrendered personnel served only as auxiliaries. They uniformly wore old Great Ming public uniforms but switched to brownish-yellow copper basin hats—pressed from mixed paper pulp—and wore blue armbands on their arms with department names written in Song typeface. On their chests and backs, like soldiers, a large character "Assist" was printed in Song typeface.
 
-The newly established Guangzhou Municipal Government was located in the Great Ming Guangzhou Prefectural Yamen, with two districts under it: Nanhai District and Panyu District, and the administrative divisions were roughly the same.
+Liu Xiang required all personnel—whether formal cadres or "auxiliary personnel"—to be issued work IDs with photos and fingerprints.
 
-Because it was a startup stage, the institutional setup under the municipal government was very simple, only setting up the Municipal Government Office, Police Bureau, Tax Bureau, Civil Affairs Bureau, and a Comprehensive Governance Office that managed everything. The district government setups of Nanhai and Panyu were also roughly similar.
+---
+
+Having addressed the old personnel's whereabouts, the next step was establishing new institutions. Though the Senate had accepted the clerks of old Guangzhou's one prefecture and two counties, they had no intention of following the prefectural and county yamen's organizational structure. That system was too simple and wholly unsuited to the Senate's governing needs.
+
+The newly established Guangzhou Municipal Government was located in the Great Ming Guangzhou Prefectural Yamen, with two districts beneath it: Nanhai District and Panyu District. Administrative divisions remained roughly the same.
+
+Given the startup phase, the institutional setup under the municipal government was deliberately simple: only the Municipal Government Office, Police Bureau, Tax Bureau, Civil Affairs Bureau, and a Comprehensive Governance Office handling miscellaneous matters. The district governments of Nanhai and Panyu were structured similarly.
 
 (End of this chapter)
