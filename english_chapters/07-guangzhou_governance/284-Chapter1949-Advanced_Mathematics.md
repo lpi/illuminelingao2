@@ -1,0 +1,61 @@
+# Chapter 1949 - Advanced Mathematics
+
+Today was another day for teaching Feng Shan discrete mathematics. Set theory, graph theory, mathematical logic, Boolean algebra, group theory... all the way to automata theory at the end—Feng Nuo hadn't studied these subjects well in his original timeline. He'd even failed abstract algebra back in the day, and now, more than a decade later, trying to pick it up again and teach someone else was extremely difficult.
+
+But no matter how difficult, he had to grit his teeth and teach it himself. Although there were a few other transmigrators with computer science backgrounds in the Executive Committee, he could hardly send Feng Shan off to someone else to learn. First, his own professional competence would be seriously questioned; second, Feng Nuo genuinely suspected that their abilities in this area might not be any better than his own; and third, sending Feng Shan alone to receive one-on-one tutoring from some pudgy IT otaku transmigrator... Feng Nuo quickly shook his head, driving the unpleasant image from his mind.
+
+In the end, he spent several weeks gnawing through several undergraduate-level discrete mathematics foundation courses, then considered the sequencing and structure of these courses and prepared a training program.
+
+A few days ago, Dr. Zhong had come by and proposed a new card-reading mechanism and an independent digit wheel scheme driven by electric/escapement forks. The new digit wheel scheme would enable the tabulating machine to perform statistics on multi-digit numbers while ensuring carry accuracy.
+
+He also proposed that the top and bottom of the cards should have positioning holes, like 80-column printer paper with holes. Using a pair of pressed rollers as the card-contact mechanism, with metal contacts arranged on the rollers—this would ensure proper alignment of the card holes with the contacts through the positioning holes at both ends. Since the card would be in rolling contact with the rollers, subject to pressure and slight friction rather than scraping against the contact-area mechanisms, it would be beneficial for the lifespan of both cards and contacts. This would avoid the embarrassing situation where frequently tabulated/queried cards were extremely prone to damage—like what happened during last month's intensive tabulating machine tests.
+
+While they were deep in discussion, Feng Shan had been waiting at the door all along. Zhong Lishi found this strange and, upon asking Feng Nuo, learned that he had already started giving Feng Shan private discrete mathematics lessons, and this was supposed to be class time. So Dr. Zhong sat in with great interest to observe one of Feng Nuo's lessons.
+
+Unexpectedly, after listening to the class, he became quite animated. Not only did he praise it highly, but he also said this was an important exploration in higher education for the new timeline, and asked Feng Nuo to organize his thoughts and related materials for preparing these courses. Finally, Dr. Zhong emphasized that current higher education must combine cutting-edge topics in scientific and technological restoration when setting up majors, and asked Feng Nuo to keep this point in mind when sharing his experience—he stressed the characters for "science and technology" very heavily.
+
+It was indeed true that Feng Shan was one of the very few naturalized citizens to have contact with higher education level material. From this perspective, Feng Nuo's work was indeed exploratory. As for whether this pace was suitable for ordinary naturalized citizens' abilities, he didn't intend to consider that. For at least the next twenty or thirty years, only the brightest naturalized citizen prospects would have any chance of accessing higher education. Each of these people would be the elite of the elite, and there was basically no need to worry about whether they could keep up. Take Feng Shan—her speed and ability to learn knowledge was astounding. If she didn't understand something, she would study and think about it day and night. This was nothing like when Feng Nuo was in college, where playing came first and studying second.
+
+This astonishing receptivity made Feng Nuo's preparation for these more theoretical courses extraordinarily arduous. Often, each hour of class required 7-8 hours of preparation. Some theorems that he simply couldn't prove had to be glossed over or temporarily skipped; occasionally they could even be assigned as homework—perhaps she could understand the proofs herself.
+
+Interspersed with all this were endless other annoyances. A typical example was the conventionally established names of theorems.
+
+In slightly advanced mathematics and physics subjects, theorems and formulas named after people were everywhere, and explaining their origins was a big problem. This issue wasn't obvious in the Executive Committee's current national school basic education and there was no systematic solution yet. However, the several transmigrators teaching Feng Shan calculus were already complaining bitterly, and had mentioned it to Feng Nuo several times during "academic exchanges." Now Feng Nuo was experiencing this annoyance himself.
+
+Completely renaming everything was obviously impossible—the transmigrators were generally muddle-headed about these theorems and formulas to begin with. If the names were changed beyond recognition, these disciplines would probably be lost entirely. So the Executive Committee's general policy was to claim as much as possible that these people were all "Australian sages." The Truth Office had issued a general guideline requiring that "professional terms with personal names that cannot be changed" should, wherever possible, claim those that looked like Chinese names actually were Chinese people.
+
+But no transmigrator had the energy to systematically sort this out—most of the main transmigrators in education were actually just elementary and middle school teachers by background, which was also why Dr. Zhong was pushing so hard to bring higher education under the Science and Technology Ministry system. As a result, the several transmigrators teaching Feng Shan advanced mathematics would often make things up on the spot.
+
+One time, Feng Nuo heard Feng Shan say that the lecturing transmigrator had told her that Lagrange was Mongolian; Euler's original surname was Ouyang and he was a descendant of Ouyang Xiu; Cauchy was the third of four brothers, and he also had a second brother who was a criminal detective... Feng Nuo was immediately furious and nearly took his student to confront them.
+
+But now he himself could only start making things up. Today he was planning to say that Cantor's surname was Kang, and Russell's surname was Luo.
+
+As for why some names were peculiar and didn't resemble Chinese ones—fortunately there was the Truth Office's "Great Song Australian Provisional Capital Historical Guidance Notes" with its "Guidelines for Explaining Foreign Personnel Names in Various Materials" document for guidance, so there wouldn't be any slip-ups.
+
+Feng Shan, Qian Yuzhi, Li Jianai, and two young transmigrators from the Academy were now seated before the small blackboard in the office.
+
+After news of his systematic teaching of some discrete mathematics foundation courses was spread by Dr. Zhong, the Academy specifically assigned two young transmigrators with "mathematical talent" to attend these courses. This suddenly made Feng Nuo realize that he had been cooped up in the machine room for so long that he'd had too little contact with naturalized citizens. And he himself was also a "Doctor"—at this level, in the future transmigrator empire, there should be at least three or four schools of thought named after him. It would be such a pity if there were no successors.
+
+So he thought of Qian Yuzhi and Li Jianai, these two recent graduates. Although their backgrounds were a bit lacking—one from a vocational school, one from the Liberal Arts Academy—they were still rare talents properly cultivated through the timeline's formal education. He began to think about taking on two disciples.
+
+The two weren't very old, so there should still be room for molding. Moreover, Li Jianai was quite perceptive and could be cultivated toward software theory; Qian Yuzhi was also diligent and might be able to learn something about system architecture and applied technology. He had Feng Shan catch them up on some upper primary and middle school courses in her spare time, and whenever he taught Feng Shan, he tried to have them sit in as well. But Feng Nuo knew in his heart that discrete mathematics was still far too early for them—for the most part, it would be like playing music to cows.
+
+Reality wasn't far from Feng Nuo's estimate. After attending this class, Li Jianai felt that her brain was in complete chaos.
+
+She and Qian Yuzhi also now addressed Feng Nuo as "Teacher." Feng Nuo even said that after the New Year, he would discuss with the Tiandihui about possibly officially transferring them over. Qian Yuzhi was still somewhat confused, not understanding the significance, but Li Jianai knew this was an excellent opportunity.
+
+Being transferred to a transmigrator's side and becoming a transmigrator's "student"—this kind of status was the best prospect outside of becoming a transmigrator's "life secretary"!
+
+However, after attending several classes, she understood that being this kind of student wasn't so easy. And now the classes the teacher gave them separately were the so-called "different kind of mathematics."
+
+This mathematics was indeed strange—it didn't involve much calculation. After a class, the blackboard was covered with odd scribbles. Senior Sister Feng Shan said those characters that looked like pinyin were called Latin letters, just without tones; there were other characters that looked like ghost drawings, called Greek letters; and there were many, many other symbols she'd never seen before.
+
+That was one thing, but at the beginning the content still seemed understandable, and it didn't even use the decimals, fractions, and multi-digit multiplication and division that she found somewhat difficult. One time the teacher earnestly explained that among 13 people, at least two must have been born in the same month, and she nearly laughed out loud—this counted as mathematics?
+
+But then the teacher immediately assigned a homework problem: "101 Fubo Army soldiers stand in a row. Then at least 11 soldiers can be made to step forward and form a line arranged by height from shortest to tallest, or form a line arranged by height from tallest to shortest."
+
+She was immediately stumped, having no idea how to even approach the problem. Fortunately, Senior Sister Feng Shan couldn't solve it either, to say nothing of that dummy Qian Yuzhi. They all looked at the teacher, who proved this proposition in just a few minutes. Afterward, Li Jianai spent an hour going over her notes before finally understanding the proof.
+
+Another time, the teacher explained that a Pseudo-Ming map could be colored with at most 5 colors to distinguish all the provincial administration offices, and proved it cleanly and decisively. Under their admiring gazes, Transmigrator Feng seemed to get a bit carried away, claiming that actually he could also prove that 4 colors would suffice—it's just that this blackboard was too small to write the proof on.
+
+But recently, what the teacher taught had become increasingly outlandish. During class, she only felt like she was lost in clouds and mist, and after class she couldn't remember much. In this class, she only vaguely remembered the teacher talking about something about a barber who did or didn't shave himself. He also seemed to say the set of natural numbers was a countably infinite set. What a joke—if it's infinite, how can it also be countable? The instructor at the training class had said that the Executive Committee's power was infinite, and when some trainees asked what infinite meant, the instructor answered that infinite meant having no end, being too many to count. The teacher also made up some nonsense about natural numbers and integers being equally numerous—anyone who'd been to primary school knew that integers clearly had many more negative numbers than natural numbers!

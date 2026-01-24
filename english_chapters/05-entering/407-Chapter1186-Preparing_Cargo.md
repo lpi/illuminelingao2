@@ -1,0 +1,59 @@
+# Chapter 1186 - Preparing Cargo
+
+Master Lu's bold moves were practically invisible amid Shandong's chaotic situation. In troubled times, such petty warlords were as common as weeds. Once the Dengzhou-Laizhou rebellion erupted, bandits setting up shop and grabbing territory appeared everywhere—attacking villages and forts, terrorizing commoners on all sides. Some even grew bold enough to combine forces and assault county towns. But under pressure from both the rebels and Lu Wenyuan, they found it hard to hold their ground. Neither the rebels nor the Senate liked others taking food from their mouths. Zhu Mingxia continuously led newly formed militia units to sweep away bandits—both to train the militia and to capture more prisoners and seize booty to supplement their forces.
+
+For the court, the exploits of Master Lu on his little island were beyond notice. One shocking piece of news followed another. The newly appointed Shandong Governor Xu Congzhi, as in history, was killed by concentrated Red Barbarian cannon fire during the subsequent see-saw battles. Liu Yulie's disastrous defeat and Xu Congzhi's death in battle became excellent pretexts for a new round of factional strife. Political figures from various factions took the stage, attacking each other. Shandong Touring Censor Wang Daochun, who had broken out of Laizhou to Qingzhou to coordinate the various armies, came under fierce attack from censorial officials—like Liu Yulie, he was savaged from all sides over the Sha River defeat.
+
+By the eighth day of the fifth month in the fifth year of Chongzhen, after tumultuous debate, a new supreme commander finally arrived: former Tianjin Military Superintendent Zhu Dadian received orders to serve as Governor of Shandong, based in Qingzhou to coordinate operations. This series of major defeats demanded someone to bear responsibility. Sun Yuanhua was holding out inside Laizhou city; Xu Congzhi had already died in battle. So Wang Daochun, who had originally broken out of the city to Qingzhou to oversee coordination, inexplicably lost his position even earlier than in history. Filled with grief and indignation, he returned home brimming with complaints. Fortunately, Liu Yulie kept him company in disgrace—he too had been dismissed earlier than in history.
+
+Upon taking office, Zhu Dadian immediately began reorganizing the routed troops, stockpiling grain and firearms, and deploying suppression operations. Now Lü Zeyang, who had been stationed at Laizhou's South Gate all along, could no longer remain so relaxed. Zhu Dadian was renowned as a capable minister—it was under his command that the Dengzhou mutiny would ultimately end. Lü knew that according to historical progression, the rebels would not last many more months. In the coming months, their operating area would be continuously compressed, and Laizhou city would soon be relieved.
+
+The telegram was terse, but Zhao Yingong knew that behind it lay untold bloodshed. He could not help sighing. At the end of the telegram was a proposal Lü Zeyang had submitted under the Elder military-political proposal system: dispatch the Special Recon Team to assassinate Zhu Dadian, extending the chaos throughout Dengzhou.
+
+Under this system, once someone submitted a complete proposal, the Senate Standing Committee would solicit opinions from all Elders, including those posted abroad.
+
+Zhao Yingong frowned. He felt assassination was somewhat unnecessary. But he had heard that Zhu Dadian was known as a capable minister, and from historical records knew he was also a scholar-official of considerable nationalistic integrity. If he took charge of suppression and succeeded, he would become Shandong Governor—clearly quite inconvenient for Master Lu, who sought to establish local separatist power in Shandong. From this angle, assassination was indeed an option worth considering.
+
+Next came various letters and reports, which he read one by one and provided written instructions. Then he began writing letters to the management personnel at Wanyou's Shanghai headquarters.
+
+Wanyou, as the dedicated commercial enterprise within the Mountain-Sea Two Routes system, besides earning profits through its own trade, mainly undertook the Senate's commodity sales and materials procurement tasks.
+
+Of course, Zhao Yingong generally did not appear at Wanyou, instead issuing directives through written orders.
+
+Wanyou was the "Jin Division" within the Mountain Route, with Lin Quan'an personally stationed at the Yangzhou headquarters managing operations. According to the Mountain-Sea Two Routes operating model, Wanyou's logistics and financial services were outsourced to Qiwei Depot and De Long Bank respectively. It focused purely on commercial operations, enjoying great advantages from the efficient logistics system and flexible, ample fund mobilization. Combined with Zhao Yingong's cultivation of the Xu family and Revival Society, operations achieved twice the results with half the effort—both sales volume and profit margins were climbing steadily. Last year's dividend amount had left Lin Quan'an grinning for days—though according to Wanyou's company charter, there were no dividends for the first three years. Zhao Yingong had seen surveillance reports describing how he "walked with dust swirling in his wake, spoke with a voice like a great bell."
+
+"Hmph—if we hadn't lacked startup capital back then, how would you have gotten rich?" Zhao Yingong thought. Sooner or later, he would need to raise this at a Senate meeting: dilute and adjust Wanyou's share capital, or simply start fresh—this fat prize of Great Ming trade should not have such a large chunk simply given away.
+
+For this Japan trade, Zhao Yingong did not intend to let Wanyou participate directly—its only role would be to assemble commodities per his instructions. Specific cargo preparation funds would be drawn from the foreign trade company under the Colonization and Trade Ministry. In this era, maritime trade did not necessarily require a corporate entity.
+
+It was now early summer—exactly when Zheng Zhilong's fleet rode the southeast monsoon from Fujian to Japan. Shen Tingyang's sand junks could not depart Shanghai in this season—sand junks left Shanghai in November. They still had ample time to prepare cargo.
+
+Japan at this time, like other East and Southeast Asian countries, suffered severe shortages of daily necessities. Anything shipped there for sale would sell easily: from high-end textiles and raw silk to the most common iron pots, coarse porcelain bowls, and sewing needles—there was virtually nothing that would not sell.
+
+The most important export, of course, was raw silk. In this timeline, raw silk generally only appeared on the market in the seventh and eighth lunar months. Zheng Zhilong's fleet, needing to depart in summer, naturally could not wait for the new crop—so the silk he sold in Japan had to be last year's stored old silk.
+
+By comparison, his sand junk fleet departing in winter could leisurely purchase better-quality current-year silk. In quality alone, this would already be a notch above Zheng Zhilong's offerings.
+
+Zhao Yingong's ambitions did not stop there. Zhejiang produced China's finest cocoons. If he used more advanced reeling technology to produce silk, the quality would be unmatched in this timeline. Especially this year, with Zhejiang still suffering drought, cocoon production would surely drop sharply, pushing market prices up. For a new purchaser like Wanyou, it would be impossible to match other silk houses in purchasing networks, so purchase prices would inevitably run higher. Producing premium-grade silk could dramatically increase value-added, giving it sufficient competitiveness.
+
+His instruction to Wanyou: buy up raw silk and cocoons without limit. Especially cocoons. He had already written a letter to the Planning Commission, exploring the possibility of establishing a mechanized or semi-mechanized silk reeling factory in Hangzhou.
+
+The idea of a reeling factory had been long-considered—in Zhejiang, one of the nation's main cocoon-producing regions, not considering this would be unthinkable. On this issue, he had already communicated with the Planning Commission, Industry and Energy Committee, and Light Industry Ministry. Reeling factories were relatively simple technologically and did not require large power equipment. According to the Industry and Energy Committee's proposal, construction would basically follow the model of Chen Qiyuan's Jichang Long Silk Factory. Strictly speaking, Jichang Long was not a truly mechanized reeling factory—more like semi-mechanized production. But it required low investment, built quickly, and the new equipment would produce a quantum leap in silk quality. This fit perfectly with Zhao Yingong's current material base and surrounding conditions.
+
+The reeling factory project had largely been approved and only awaited final Executive Committee authorization. Zhao Yingong estimated the project had a good chance of passing—after all, raw silk was currently a flagship export product. Merely relying on partners to collect on the mainland was not only expensive, but domestic silk production scale by modern industrialized standards was simply too small. Just satisfying Europeans' enormous appetite made this project worth launching.
+
+In the 17th century, besides China, Japan, Italy, North Africa, and Central Asia also produced silk. But none could match China's production scale. Once Zhao Yingong's new-method silk from improved strains was available—with its superior quality, massive output, and powerful shipping capacity—it could directly crush all these regions' silk industries, creating enormous monopoly profits.
+
+Besides silk and cocoons, he also wanted Wanyou to purchase various daily sundries, especially to source everyday porcelain from Jiangxi—a major porcelain province whose quality and quantity far exceeded the Kraak ware that Fujian fired specifically for export. Getting Jiangxi porcelain to Fujian was extremely difficult, but shipping it to Shanghai was not—Jiangxi had a developed inland river transport network.
+
+Beyond this, he also submitted an application to the Planning Commission requesting a batch of Lingao small hardware products for Japan export. Only after finishing all these letters did Zhao Yingong finally relax. He handed all the letters to the confidential courier waiting outside.
+
+Next came waiting for news from the Japan side. The Colonization and Trade Ministry's Japan channel should already be open. Once November winds rose and four large sand junks arrived in Nagasaki or Hirado, they would surely cause a sensation. Never mind anything else—just the current year's new silk alone was something no ship of Zheng Zhilong's or any other Chinese merchant could bring.
+
+Zhao Yingong laughed coldly several times. By then, the Jiangnan gentry begging Shen Tingyang to let them in on the Japan fortune would be wearing down old Shen's doorstep. They might even need to assemble several dozen large sand junks to dump goods in Japan together—filling up Japanese merchants' warehouses and emptying all their silver. Once the Zheng family's Japan route was destroyed, they would not last much longer—without economic foundation, everything was empty talk.
+
+No matter how capable Zheng Zhilong was, no matter how much Xiong Tingbi trusted him, he surely did not have the audacity to provoke the Jiangnan gentry—late Ming's most powerful force in both court and countryside. By then, either he would desperately seek a decisive battle—which was exactly what the Senate wanted—or he would silently weaken and bleed to death.
+
+Zhao Yingong thought: this is what's called "subduing the enemy without fighting." Let them see that even without powerful ships and sharp cannons, we can achieve decisive victory from a thousand li away.
+
+(End of Chapter)

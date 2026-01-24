@@ -1,0 +1,65 @@
+# Chapter 1324 - A Visit to Fangcao Di: The Scholars' Anxieties
+
+Though Director Wang felt momentary satisfaction at having suddenly grasped something clearly, he soon tumbled back into anxiety:
+
+"This is precisely what troubles me!" Wang Ci suddenly lowered his voice with urgent intensity. "Consider, Headmaster: the Australians have already defeated the court's regular armies. Given how the court appears now, I fear there'll be no reckoning for eight or ten years. The pir—Australians may not have declared independence, but they're certain to become at least regional warlords of the Great Ming. I'm not ignorant of current affairs: the realm is now in turmoil, with the people unable to make a living. If someone could step forward to stabilize the country and secure the nation, allowing people and court to live in peace, that would naturally be ideal. Even rewarding them with a prefecture or several counties wouldn't be excessive. But the Australians are at the zenith of their power, and with so many secret methods at their command, I fear they may harbor ambitions toward the throne."
+
+These words were extraordinarily blunt. If not for the Late Ming's chaotic portents appearing one after another, which had long since accustomed scholars to such discourse, this speech alone would constitute the crime of high treason.
+
+Liu Dalin stroked his beard in silence for a long while before finally releasing a soft sigh. "We who have received the nation's grace are not disloyal or unfilial people. But fate has its seasons, which human effort cannot counter. My former classmates and examination colleagues have been writing to me frequently of late, many inquiring about the inner workings of the Australians. Speaking of the current situation at court and throughout the realm—it's too rotten to describe. Even if His Majesty wishes to govern diligently, I fear he can do nothing about it! I fear that before ten years are out, there will be... events too painful to witness..."
+
+Director Wang started with surprise, nearly dropping his chopsticks: "So you mean—"
+
+"I only hope this is merely my needless worrying." His expression had grown very grave. He continued: "Since ancient times, the changing of dynasties has been the natural course of events. The Australians have arrived bearing secret techniques and governed diligently here. I fear they have long harbored ambitions to compete for the realm."
+
+This view was no longer particularly unconventional among Lingao's gentry and commoners, but hearing it spoken for the first time from Liu Dalin's lips, its weight was naturally different. Wang Ci couldn't help shivering.
+
+"So the Headmaster has long held this view as well—"
+
+"I fear those in this county who don't think this way are already very few." Liu the Successful Candidate smiled slightly, though the smile held traces of bitterness. Although years of exposure had gradually and imperceptibly transformed his view of the Australians—they were even his life-saving benefactors—he still felt he had received the grace of the Great Ming. Truly "bathed in imperial favor"—even though he perceived the future clearly, he couldn't help feeling reluctance and sorrow for this dynasty that had given him grace and glory.
+
+Wang Ci pressed on urgently: "Headmaster, since ancient times the will of Heaven cannot be defied. I have no intention of acting against Heaven. Yet since antiquity, no matter how dynasties have changed, what has never changed is 'the court rules the realm together with the scholar-gentry.' Now, although these Australians may deserve the phrase 'teaching without discrimination,' the books they teach and schools they run have nothing whatsoever to do with the sages' classics. Yet somehow they have governed Lingao extraordinarily well. I often ponder: when these students complete their studies someday, they will surely become the Australians' right-hand men, and they will surely build factories and railways for them. But if so, how are the gentry and scholars to position themselves? What the future will resemble—I, your student, dare not imagine, cannot imagine, and cannot fathom!"
+
+These were sentiments he had contemplated for a long time. Deep in the heart of this frustrated minor official, the life or death of the Great Ming was not the most crucial matter. What was crucial was that the pirates were introducing an entirely new system of learning. Under this system, all the old learning and knowledge that he and the scholars possessed would become worthless. The thing that allowed them to receive at least basic respect from common people even in their most impoverished moments would turn to ashes. This was what he feared and worried about most.
+
+What use was he, a Director of Education, to the pirates? Director Wang knew that the reason he could still collect over a hundred *liuntongjuan* from the county office that had long become a sinecure was entirely because the Australians hadn't yet decided to shed the Great Ming's skin. If someday they truly resolved to "change skins," then he, the Director of Education of Lingao County under the Great Ming, would either have to pack up and return to his hometown, or else go teach the *Hundred Family Surnames* and *Three Character Classic* in refugee camps for a living. In this respect, he suffered far more anxiety than the detached Liu the Successful Candidate.
+
+These words seemed to have somewhat moved Liu the Successful Candidate. Seeing him nod slightly, Wang Ci hastily pressed forward:
+
+"My purpose in coming here is partly to probe the Australians' hidden secrets and techniques—though I'm useless; even sitting in Australian classrooms, reading Australian books, I still can't comprehend anything. On the other hand, if the Australians can truly follow the great trend, I also wish to persuade them to turn their hearts toward civilization and not rely solely on brute force. I hope the Headmaster will lend me his assistance."
+
+Wang Ci spoke with mounting agitation, his tone growing increasingly urgent. Were it not for the surroundings, he might have prostrated himself before Liu Dalin. As it was, he still managed to clasp his hands and bow toward Liu Dalin.
+
+Liu the Successful Candidate of course grasped the meaning embedded in these words. But he knew in his heart this would not be easily accomplished—the pirates were unlike the Sixteen Kingdoms of the Five Barbarians or the Mongol Yuan, savages who originally possessed no writing. They were a group with their own ideology and values. Their daily conduct somewhat resembled the Legalist school yet also the Mohist school, mixed with various other strains of thought—viewed from any angle, it was a great amalgamation. Wanting them to "turn their hearts toward civilization" would be as difficult as ascending to heaven. With their power, they were more likely to "transform the civilized into barbarians" in the future.
+
+Liu Dalin was deep in thought, about to speak, when he was interrupted by a commotion from students in the distance: several female students were laughing and watching two large boys arm-wrestling, cheering "jiā yóu, jiā yóu" as they observed. Sunlight fell upon those faces brimming with youth. For a moment, Liu Dalin and Wang Ci found themselves at a loss for words, conscious only of how aged and powerless they themselves had become.
+
+Huang Bingkun paid no heed to the commotion in the cafeteria. He was seated across from a transmigrator teacher, eating his meal. The Australians had been ashore for several years and accomplished so many earth-shaking feats, yet this was Huang Bingkun's first time sitting face-to-face with a pirate. This was Teacher Dong who had taught on the first day. He appeared to be a man of about thirty, with dark skin and well-developed arm muscles, looking strong and capable. But their knowledge lay beyond Huang Bingkun's comprehension. The Australian across from him seemed to be watching him with amusement while eating. This made Huang Bingkun eat very uncomfortably. He wished to say something to the man, yet felt there was nothing appropriate he could say.
+
+That morning he had risen especially early to observe the entire school's six thousand students performing their morning run. Two hundred residence groups of thirty people each appeared simultaneously on campus, proceeding in strict formations along prescribed routes, weaving past each other without interference. It was a breathtaking spectacle. It also raised questions: if the pirates were using education as cover to secretly train crack troops, most of these students were too young to be deployed within two or three years. Rather than expending such effort drilling such young children, wouldn't it be more sensible to directly recruit young adult men to train as soldiers—among the thousands upon thousands of northern refugees who had recently arrived, there were plenty of able-bodied young men available for service. Moreover, judging by the enormous investment the pirates made in these students, these fake-pirate students would surely become the backbone under Australian command in the future, absolutely not to be expended as cannon fodder.
+
+Investing such capital, employing Australian learning to educate so many children—what exactly were they scheming? Huang Bingkun felt he was beginning to glimpse the Australians' true designs.
+
+Though Young Master Huang didn't perceive matters as clearly as Director Wang and Liu the Successful Candidate, he clearly understood that Fangcao Di's students would surely become the pirates' trusted confidants in the future. Besides soldiering and laboring, they would inevitably become officials—"cadres"—to govern the common people. For families like his own, not only would advancement in Lingao prove difficult in the future, but merely the mention of the "old affair" when his father had led troops to besiege the pirates would be sufficient to bring the Huang family considerable trouble.
+
+At present, the pirates were merely displaying appeasement by permitting them to participate in the County Consultative Bureau as committee members because they weren't yet firmly established! Once their wings were fully fledged, the day of reckoning for the Huang family would arrive. Huang Bingkun brooded darkly.
+
+"Not hungry, Mister Huang?"
+
+Somehow, the person across from him had initiated conversation. Huang Bingkun hastily collected himself to respond.
+
+"No, merely feeling slightly unwell, so my appetite is poor." By now, Huang Bingkun had learned to speak serviceable "Australian Mandarin." Though not standard, he could communicate adequately with transmigrators.
+
+"You should participate more in physical exercise. That way your body will be healthy and your appetite will improve." Transmigrator Dong advised.
+
+Actually, Huang Bingkun came from a farming and scholarly family. Normally he not only led his hired hands and tenants into the fields himself, but also practiced martial arts in his spare time—he was by no means one of those who never lifted a finger. But he had no desire to explain himself at the moment, and merely murmured "yes" several times.
+
+"There's a ball game this afternoon. You should come watch. I hear your Huang Family Stockade has plenty of people—you could start playing for recreation. When we organize a league later, you could field a team and compete."
+
+Transmigrator Dong's enthusiasm actually stemmed from "selfish motives." Like most male transmigrators, Transmigrator Dong was quite keen on sports competitions like football and basketball. Although conditions after D-Day hadn't permitted football, basketball, or volleyball, English-style rugby and baseball, which had relatively simple equipment requirements, had been developed. As a committee member of the "Rugby Grand League," Transmigrator Dong was enthusiastic about recruiting teams and organizing leagues. He was determined to expand the league's scale. Currently, industry teams within the naturalized citizen system had been mostly organized, and development was now extending to various villages and towns. The Huang Family Stockade was a substantial settlement, and its militia had always been known for "fighting ability," so he wished to recruit the Huang Family Stockade into this league system.
+
+"Ball game?" Huang Bingkun vaguely recalled hearing Huang Ping mention ball games—something about a sport with very intense confrontation. The Great Ming possessed no athletic competition events—such things were generally classified as "performances." Now hearing this Transmigrator Dong personally invite him to observe, it seemed to be something the pirates considered rather important, so he readily agreed: "Of course I must go watch."
+
+"It's at the athletic field, starting at one o'clock this afternoon." Transmigrator Dong eagerly promoted. This man was the Huang family's second young master and held an influential position at the Huang Family Stockade. If he could win him over, securing the Huang Family Stockade's participation in fielding a team would be considerably easier.
+
+(End of Chapter)

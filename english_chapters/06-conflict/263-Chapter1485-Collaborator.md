@@ -1,0 +1,57 @@
+# Chapter 1485 - Collaborator
+
+"But we absolutely cannot underestimate this man. He is a thorough pragmatist. Look at the contact fuze he designed," Lin Shenhe said. Weiss had managed to bribe some Spanish officers to pilfer several shell fuzes manufactured by Hale under the guise of scrap, then had the *Haiqi* specially transport these dangerous goods back to Lingao for disassembly and analysis. "The structure is terrifyingly simple; apart from a setback spring, there is no safing-and-arming mechanism. The key is that it doesn't require complex craftsmanship or a host of skilled artisans—perfectly suited to the production level of that half-baked factory in Manila. At least it fires with reasonable reliability. Compared to the standard Type Liu-1 fuze produced by Bopu Factory, the effective rate tested on medium-hardness soil was only eight percent lower—a respectable performance. As for safety—excluding our own products—what grenade fuze in the seventeenth century even needs to consider safety?"
+
+The atmosphere in the room turned grave once more. Xu Ke, who had not spoken, now opened his mouth: "Based on import material data combined with intelligence from other channels, it can be essentially confirmed that Philippine authorities do not currently possess the capacity for self-produced pig iron." He located several photographs from the documents. "Data from the Great Library indicates that early Philippine iron smelting was closely tied to technology spread by Chinese immigrants. Until the early twentieth century, blast furnaces used locally were still the trumpet furnaces that appeared in Fujian in the late Ming. However, according to the Manila Station report, neither Hale's factory nor any other location has revealed similar equipment."
+
+"If personnel who infiltrated Hale's factory melting workshop observed correctly—" Xu Ke dug out additional pictures: sketches drawn by the Intelligence Bureau based on Ji Mide's descriptions— "pig iron ingots and scrap iron are off-loaded from ships at the port directly to the factory wharf along the river. Melting equipment includes a crude ground furnace. Chinese workers employ the traditional Chinese puddling method to produce wrought iron, supplying the forging and rolling machines. There are also two cupolas for casting special pieces—very common in contemporary Europe. The core of the casting workshop consists of three reverberatory furnaces. According to Manila Station's description, some may be used to melt copper, but the primary purpose is melting iron."
+
+"There is a relatively small reverberatory furnace where workers are often seen using tongs to extract red-hot clay pots and pour molten metal from the pots into trough molds. Intelligence agents observed workers loading weighed iron filings, crushed iron blocks, charcoal granules, and cut iron bars into each clay pot before placing it in the furnace—twelve pots per loading. We infer this is crucible steel production; the process appears close to Krupp's method. But output is not large. The primary function of these reverberatory furnaces is still refining pig iron from sources of greatly varying quality. Because Hale's factory cannot produce its own pig iron, it makes sense that he would place particular value on this process."
+
+"Please note: the reverberatory furnace design shown in the sketch is essentially consistent with the unfinished dual-chamber reverberatory furnace belonging to the Zheng clique that was discovered on Xiamen Island. Hollow iron-cast furnace nozzles capable of water-cooling were even found at the Xiamen foundry site. If Hale uses similar nozzles at the Manila factory, then his reverberatory furnaces should incorporate heat-exchange chambers, improving production efficiency through hot blast. At the very least, within this casting workshop, Hale's reverberatory furnace is the item most deserving the label of 'black technology'—technology ahead of its era. As for the rest—green sand molds, iron mold casting and the like—they count for little."
+
+"Doesn't that make him Amaterasu descended to earth?" someone retorted. "Leaving aside that this Little Jap is supposedly a weapons expert *and* a chemistry expert, now he's also a metallurgy expert?"
+
+"We know far too little about him. But since he is Japanese and skilled in weapons manufacturing, I would guess he may have conducted relatively deep research into his own country's military-industrial history. After all, modern Japanese military industry began by building reverberatory furnaces to cast cannons in Nirayama and Kagoshima. From the materials I've consulted, some refining reverberatory furnaces in the Bakumatsu and early Meiji periods did indeed employ structurally similar hollow water-cooled nozzles."
+
+"The Philippines has very rich metal mineral deposits everywhere. Could the following situation occur?" Wu Mu asked. "Hale, to confuse us—or simply out of caution—on one hand requests the Spanish Governor to import metals, while on the other he engages in indigenous blast-furnace smelting of iron and copper in other regions of the Philippines, then transports the product to the Manila factory for further processing. I do not deny the achievements of Comrade Lando and Manila Station, but the scope they've managed to penetrate extends at most to the outskirts of Manila. Inevitably there are gaps."
+
+"I concur," Jiang Shan said. "I recommend immediately dispatching a long-range resource exploration mission in cooperation with Manila Station to investigate major mineral sites in the Philippines—particularly the current state of Philippine mineral extraction and processing—ensuring we grasp first-hand intelligence. Given the danger of this mission, I request assistance and support from comrades in the Army and Navy departments as well as the Special Reconnaissance Team."
+
+"Furthermore, we have recognized this man Hale's talent. Now we need even more to clarify his purpose in racking his brains to serve the Spanish colonial authorities. Is his attitude toward us friendly, or is he attempting hostility? If the latter, how do we eliminate him and the adverse effects he brings? To resolve this, Comrade Lando must manage active contact with him. That also carries certain risks and will require everyone's assistance. We must begin formulating various contingency plans—preparing for everything from peaceful contact to total war."
+
+---
+
+On the coastline of one of the countless uninhabited islands in Manila Bay, a lantern lit up in the morning mist. It flashed rhythmically.
+
+As the light blinked, a light two-masted Guangzhou ship gradually materialized through the dense sea fog. It cruised carefully along the shoreline, keeping distance from the land. Light signals flashed in response from the ship's mast.
+
+After a few exchanges of signals with the shore, the Guangzhou ship's tiller shifted. The bow swung around, coming toward the small island.
+
+Jagged rocks lined the coast; dense thickets and wild grass extended almost onto the rocks. The shoreline was desolate. But in this small bay—devoid of any trace of human habitation—a wooden pier had been built. Judging from the rotting of wood stubble and the density of barnacles clinging to its pilings, the pier was of recent construction.
+
+Though wild grass had grown sturdily on the compacted gravel surface, one could still discern that the ground along the coast near the pier had been leveled.
+
+The Guangzhou ship approached the wharf carefully. On the bow and poop, several brawny men wearing bamboo hats and black clothing held Japanese muskets, bows and arrows, and lit slow matches, keeping careful watch on the surroundings.
+
+Silence reigned over sea and island alike; only the sound of waves striking rock echoed. The Guangzhou ship gradually drew alongside the pier. As sailors on the bow threw heaving lines, a whistle sounded on shore, breaking the stillness. Several gaunt Malay sailors emerged from the trees, caught the thrown cables, and deftly secured them to the bollards. A few words were exchanged in Hokkien, and a gangplank was quickly set in place.
+
+Marcos appeared on the pier, gesturing a welcome to the arriving guest.
+
+Neither party stood on ceremony. Marcos led the visitor directly toward a straw shed in the jungle.
+
+Hale was already waiting for Zheng Zhifeng inside the shed.
+
+He was not dressed as an "old sea dog" this time, as he had been when he last met Zheng Zhifeng—instead he wore a friar-style black robe. Apart from that, he looked no different from when they had met on Xiao Liuqiu.
+
+By contrast, the graceful and poised temperament of a noble son that Zheng Zhifeng had once possessed had vanished. His face was haggard, his air one of mental and physical exhaustion at a glance.
+
+*I hadn't expected him to look this worn!* Hale was secretly surprised, and could not help a pang of regret.
+
+Anping had fallen. Hale was the first in Manila to receive the news. The destruction of Anping-Xiamen and the death of Zheng Zhilong in battle had been a devastating blow to the Zheng clique—and for Hale, it was no less than a club to the skull. He had originally hoped the Zheng clique would serve as a stable supplier of Chinese goods, while he extracted financial resources from them in exchange for the firearms they desperately needed, thereby upgrading his own workshops. Meanwhile, improving Zheng family armaments would enhance their combat power and pin down Australian operations. Hale had counted on the Zheng clique dragging the Australians into an endless war of attrition along the Chinese coast, leaving them no leisure to look south.
+
+But the Australian strike on Xiamen-Anping had shattered his plan entirely. True, the Zheng family had not been completely annihilated, and their territory along the Fujian coast remained intact in substance. Yet the Zheng clique had disintegrated in spirit. Remnant factions had splintered; their collective strength was far less than before. This year, they had not even dispatched Anhai ships to Manila. Spies he had sent to the Chinese coast and Japan reported that the Anhai ships sent to Japan by Zheng family remnants had suffered severe losses there: Ming merchants had crossed the sea ahead of schedule, during winter months when Chinese merchant ships did not normally arrive, sailing an unknown route and transporting massive quantities of Chinese goods. Moreover, it was rumored that large amounts of merchandise had been transshipped through Korea. As a result, when Anhai ships arrived, they found Chinese goods already abundant and market prices depressed. They had been forced to sell at steep discounts. Worse still, spies reported that although the Anhai ships owned by the various Zheng factions had rapidly recovered to considerable numbers, many were hastily built from green timber—typical disposable trade vessels of very poor quality.
+
+What worried Hale most was this: the current fracturing of the Zheng clique severely weakened their strength, making them ever more insignificant on the strategic level. And the split rendered them powerless to resist erosion by other forces. Liu Xiang's group, compressed into the Chaoshan area, was restless with Dutch support. The Dutch bargained among the various Zheng factions, seeking maximum benefit. The Australians had turned a blind eye to the shifting situation in Weitou Bay—yet they had swallowed in one gulp the foundation in Tainan that the Zheng clique had painstakingly built over years.
+
+*(End of Chapter)*

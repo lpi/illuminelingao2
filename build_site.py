@@ -10,6 +10,12 @@ except ImportError:
     print("Error: 'markdown' library not found. Please run: pip install markdown")
     exit(1)
 
+try:
+    from ebooklib import epub
+except ImportError:
+    print("Error: 'ebooklib' library not found. Please run: pip install ebooklib")
+    exit(1)
+
 SOURCE_DIR = "english_chapters"
 OUTPUT_DIR = "public"
 CSS_FILE = "style.css"
@@ -23,6 +29,10 @@ HTML_TEMPLATE = """<!DOCTYPE html>
     <link rel="stylesheet" href="{root_path}style.css">
 </head>
 <body>
+    <header>
+        <a href="{root_path}index.html" class="site-title">Illumine Lingao (English Translation)</a>
+        <a href="https://discord.gg/69ryTJuXZN" class="discord-btn">💬 Discord</a>
+    </header>
     <div class="container">
         {content}
     </div>
@@ -31,9 +41,9 @@ HTML_TEMPLATE = """<!DOCTYPE html>
 """
 
 NAV_TEMPLATE = """
-<div class="navigation">
+<div class="chapter-nav">
     {prev_link}
-    <a href="index.html" class="nav-btn">Volume Index</a>
+    <a href="index.html">{volume_name} Index</a>
     {next_link}
 </div>
 """
@@ -49,119 +59,199 @@ def clean_title(filename):
         return match.group(1)
     return name
 
+def get_volume_display_name(vol_dir_name):
+    """Extract a clean volume name like 'Volume 6' from directory name."""
+    # Handle special folder names
+    if vol_dir_name == '00-preface':
+        return 'Preface'
+    if vol_dir_name == 'extras':
+        return 'Extras'
+    
+    title = clean_title(vol_dir_name)
+    # Try to extract volume number and name
+    match = re.match(r'(\d+)\s*(.*)', vol_dir_name)
+    if match:
+        vol_num = int(match.group(1))
+        vol_name = match.group(2).replace('_', ' ').replace('-', ' ').strip()
+        if vol_name:
+            return f"Volume {vol_num}: {vol_name.title()}"
+        return f"Volume {vol_num}"
+    return title
+
+def get_chapter_title_from_content(md_content, fallback_title):
+    """Extract chapter title from the first line of markdown content.
+    
+    Expects format like: # Chapter 1275: Chemical Talk on the Commuter Train
+    Returns the title without the leading '# ' prefix.
+    """
+    lines = md_content.strip().split('\n')
+    if lines:
+        first_line = lines[0].strip()
+        # Check if it's a markdown header
+        if first_line.startswith('# '):
+            return first_line[2:].strip()
+        elif first_line.startswith('#'):
+            return first_line[1:].strip()
+    return fallback_title
+
 def generate_css():
     css_content = """
+/* Radial gradient background with blue/purple vignette effect */
 body {
-    font-family: 'Georgia', 'Times New Roman', serif;
+    font-family: Arial, Helvetica, sans-serif;
     line-height: 1.6;
     color: #333;
     margin: 0;
     padding: 0;
-    background-color: #f4f4f9;
-}
-
-.container {
-    max-width: 800px;
-    margin: 0 auto;
-    padding: 20px;
-    background-color: #fff;
-    box-shadow: 0 0 10px rgba(0,0,0,0.1);
+    background: radial-gradient(ellipse at center, #e8f0ff 0%, #b8c8e8 60%, #8898c8 100%);
     min-height: 100vh;
 }
 
-h1, h2, h3 {
-    font-family: 'Helvetica Neue', Arial, sans-serif;
-    color: #2c3e50;
+/* Persistent header bar */
+header {
+    background-color: #e0e0e0;
+    padding: 10px 20px;
+    display: flex;
+    justify-content: space-between;
+    align-items: center;
+    border-bottom: 1px solid #ccc;
 }
 
-h1 {
-    text-align: center;
-    border-bottom: 2px solid #eee;
-    padding-bottom: 10px;
-}
-
-a {
-    color: #3498db;
+.site-title {
+    font-size: 1.3em;
+    font-weight: bold;
+    color: #333;
     text-decoration: none;
 }
 
-a:hover {
+.site-title:hover {
     text-decoration: underline;
 }
 
-.chapter-list {
-    list-style: none;
-    padding: 0;
-}
-
-.chapter-list li {
-    margin: 10px 0;
-    border-bottom: 1px solid #eee;
-}
-
-.chapter-list a {
-    display: block;
-    padding: 10px;
-    font-size: 1.1em;
-}
-
-.chapter-list a:hover {
-    background-color: #f9f9f9;
-    text-decoration: none;
-}
-
-.navigation {
-    display: flex;
-    justify-content: space-between;
-    margin-top: 40px;
-    padding-top: 20px;
-    border-top: 1px solid #eee;
-}
-
-.nav-btn {
-    display: inline-block;
-    padding: 8px 16px;
-    background-color: #3498db;
+.discord-btn {
+    background-color: #5865F2;
     color: white;
+    padding: 6px 12px;
     border-radius: 4px;
-    font-family: sans-serif;
+    text-decoration: none;
     font-size: 0.9em;
 }
 
-.nav-btn:hover {
-    background-color: #2980b9;
-    text-decoration: none;
-    color: white;
+.discord-btn:hover {
+    background-color: #4752C4;
 }
 
+/* Main content container with white background and blue glow */
+.container {
+    max-width: 800px;
+    margin: 30px auto;
+    padding: 30px 40px;
+    background-color: #fff;
+    box-shadow: 0 0 40px rgba(100, 120, 180, 0.4);
+    min-height: calc(100vh - 150px);
+}
+
+/* Typography */
+h1 {
+    font-size: 1.8em;
+    margin-bottom: 20px;
+    color: #333;
+}
+
+h2 {
+    font-size: 1.4em;
+    margin-bottom: 15px;
+    color: #333;
+}
+
+/* Standard blue links */
+a {
+    color: #0000EE;
+    text-decoration: underline;
+}
+
+a:visited {
+    color: #551A8B;
+}
+
+a:hover {
+    color: #0000EE;
+}
+
+/* Yellow disclaimer box */
+.disclaimer {
+    background-color: #FFF8DC;
+    border: 1px solid #DDD8BC;
+    padding: 15px;
+    margin: 20px 0;
+    font-size: 0.9em;
+    line-height: 1.5;
+}
+
+/* Homepage links section */
+.home-links {
+    text-align: center;
+    margin-bottom: 20px;
+}
+
+.home-links a {
+    margin: 0 10px;
+}
+
+/* Volume list on homepage */
 .volume-list {
-    display: grid;
-    gap: 20px;
+    margin-top: 20px;
 }
 
-.volume-card {
+.volume-list a {
+    display: block;
+    margin: 8px 0;
+    font-size: 1.1em;
+}
+
+/* Chapter list on volume pages */
+.chapter-list {
+    list-style: none;
+    padding: 0;
+    margin: 0;
+}
+
+.chapter-list li {
+    margin: 4px 0;
+}
+
+.chapter-list a {
+    font-size: 0.95em;
+}
+
+/* Chapter navigation bar */
+.chapter-nav {
+    background-color: #f0f0f0;
+    padding: 8px 15px;
+    margin-bottom: 20px;
+    text-align: center;
     border: 1px solid #ddd;
-    border-radius: 8px;
-    padding: 20px;
-    transition: transform 0.2s;
 }
 
-.volume-card:hover {
-    transform: translateY(-2px);
-    box-shadow: 0 4px 8px rgba(0,0,0,0.1);
+.chapter-nav a {
+    margin: 0 15px;
 }
 
-.volume-card h2 {
-    margin-top: 0;
+/* Chapter content */
+.content {
+    text-align: left;
 }
 
-/* Markdown Content Styling */
 .content p {
-    margin-bottom: 1.2em;
-    text-indent: 0;
+    margin-bottom: 1em;
+    text-align: justify;
 }
 
-/* Chinese-style paragraph spacing if needed, but English usually prefers margin-bottom */
+/* Back link styling */
+.back-link {
+    margin-top: 30px;
+    display: block;
+}
 """
     with open(os.path.join(OUTPUT_DIR, CSS_FILE), 'w') as f:
         f.write(css_content)
@@ -186,30 +276,43 @@ def main():
     
     for entry in entries:
         vol_path = os.path.join(SOURCE_DIR, entry)
-        if os.path.isdir(vol_path) and not entry.startswith('.'):
+        # Skip hidden directories, "unresolved", "characters" (empty), and "extras" (added at end)
+        if os.path.isdir(vol_path) and not entry.startswith('.') and entry not in ('unresolved', 'characters', 'extras'):
             volumes.append(entry)
+    
+    # Add extras folder at the end if it exists
+    extras_path = os.path.join(SOURCE_DIR, 'extras')
+    if os.path.exists(extras_path) and os.path.isdir(extras_path):
+        volumes.append('extras')
 
-    main_index_content = "<h1>Illumine Lingao - English Translation</h1>\n<div class='volume-list'>"
+    # Build main index (homepage)
+    main_index_content = """<h1>Illumine Lingao</h1>
+<div class="home-links">
+    <a href="downloads/illuminelingao.epub">Download EPUB</a>
+    <a href="https://discord.gg/69ryTJuXZN">Join Discord</a>
+</div>
+<div class="disclaimer">
+    Disclaimer: This is an unofficial fan translation of the Chinese original novel "临高启明" (Illumine Lingao) by 吹牛者 (Boaster). The translations were generated using Opus 4.5.<br><br>
+    You can read the original Chinese version <a href="https://www.69shuba.com/book/6418/">here</a>.
+</div>
+<div class="volume-list">
+"""
 
     for vol_dir_name in volumes:
-        vol_title = clean_title(vol_dir_name)
+        vol_display_name = get_volume_display_name(vol_dir_name)
         vol_output_dir = os.path.join(OUTPUT_DIR, vol_dir_name)
         os.makedirs(vol_output_dir)
         
-        main_index_content += f"""
-        <div class="volume-card">
-            <h2><a href="{vol_dir_name}/index.html">{vol_title}</a></h2>
-        </div>
-        """
+        main_index_content += f'<a href="{vol_dir_name}/index.html">{vol_display_name}</a>\n'
 
         # Process chapters within volume
         vol_source_path = os.path.join(SOURCE_DIR, vol_dir_name)
         chapters = sorted([f for f in os.listdir(vol_source_path) if f.endswith('.md')])
         
-        vol_index_content = f"<h1>{vol_title}</h1>\n<ul class='chapter-list'>"
+        # Volume index page
+        vol_index_content = f"<h1>{vol_display_name}</h1>\n<ul class='chapter-list'>\n"
         
         for i, chapter_filename in enumerate(chapters):
-            chapter_title = clean_title(chapter_filename)
             chapter_html_filename = os.path.splitext(chapter_filename)[0] + ".html"
             
             # Generate Chapter Page
@@ -218,6 +321,10 @@ def main():
             
             with codecs.open(in_file_path, 'r', 'utf-8') as f:
                 md_content = f.read()
+            
+            # Extract title from markdown content (first line), fallback to filename
+            fallback_title = clean_title(chapter_filename)
+            chapter_title = get_chapter_title_from_content(md_content, fallback_title)
                 
             html_body = markdown.markdown(md_content)
             
@@ -225,50 +332,133 @@ def main():
             prev_link = ""
             if i > 0:
                 prev_file = os.path.splitext(chapters[i-1])[0] + ".html"
-                prev_link = f'<a href="{prev_file}" class="nav-btn">← Previous</a>'
+                prev_link = f'<a href="{prev_file}">« Previous</a>'
             
             next_link = ""
             if i < len(chapters) - 1:
                 next_file = os.path.splitext(chapters[i+1])[0] + ".html"
-                next_link = f'<a href="{next_file}" class="nav-btn">Next →</a>'
+                next_link = f'<a href="{next_file}">Next »</a>'
+            
+            # Get short volume name for nav bar (e.g., "Volume 6")
+            vol_short_name = get_volume_display_name(vol_dir_name).split(':')[0]
             
             nav_html = NAV_TEMPLATE.format(
                 prev_link=prev_link,
-                next_link=next_link
+                next_link=next_link,
+                volume_name=vol_short_name
             )
             
             full_page = HTML_TEMPLATE.format(
-                title=chapter_title,
+                title=chapter_title + " - Illumine Lingao",
                 root_path="../",
-                content=f"<div class='content'>{html_body}</div>{nav_html}"
+                content=f"{nav_html}<div class='content'>{html_body}</div>{nav_html}"
             )
             
             with open(out_file_path, 'w', encoding='utf-8') as f:
                 f.write(full_page)
             
             # Add to Volume Index
-            vol_index_content += f"<li><a href='{chapter_html_filename}'>{chapter_title}</a></li>"
+            vol_index_content += f"<li><a href='{chapter_html_filename}'>{chapter_title}</a></li>\n"
 
-        vol_index_content += "</ul>"
-        vol_index_content += f'<div style="margin-top: 30px;"><a href="../index.html" class="nav-btn">← Back to Main Index</a></div>'
+        vol_index_content += "</ul>\n"
+        vol_index_content += '<a href="../index.html" class="back-link">« Back to Main Index</a>'
         
         with open(os.path.join(vol_output_dir, "index.html"), 'w', encoding='utf-8') as f:
             f.write(HTML_TEMPLATE.format(
-                title=vol_title,
+                title=vol_display_name + " - Illumine Lingao",
                 root_path="../",
                 content=vol_index_content
             ))
             
-    main_index_content += "</div>"
+    main_index_content += "</div>\n"
     
     with open(os.path.join(OUTPUT_DIR, "index.html"), 'w', encoding='utf-8') as f:
         f.write(HTML_TEMPLATE.format(
-            title="Illumine Lingao",
+            title="Illumine Lingao - English Translation",
             root_path="./",
             content=main_index_content
         ))
 
     print(f"Site generated successfully in '{OUTPUT_DIR}'")
+    
+    # Generate EPUB
+    generate_epub(volumes)
+
+def generate_epub(volumes):
+    """Generate EPUB file from all chapters."""
+    book = epub.EpubBook()
+    
+    # Set metadata
+    book.set_identifier('illumine-lingao-en')
+    book.set_title('Illumine Lingao (English Translation)')
+    book.set_language('en')
+    book.add_author('吹牛者 (Boaster)')
+    book.add_metadata('DC', 'description', 'An unofficial fan translation of the Chinese novel 临高启明')
+    
+    # CSS for EPUB
+    epub_css = '''
+    body { font-family: Georgia, serif; line-height: 1.6; }
+    h1 { font-size: 1.5em; margin-bottom: 1em; }
+    h2 { font-size: 1.3em; margin-bottom: 0.8em; }
+    p { margin-bottom: 0.8em; text-align: justify; }
+    '''
+    css_item = epub.EpubItem(uid="style", file_name="style/main.css", media_type="text/css", content=epub_css)
+    book.add_item(css_item)
+    
+    all_chapters = []
+    toc = []
+    
+    for vol_dir_name in volumes:
+        vol_display_name = get_volume_display_name(vol_dir_name)
+        vol_source_path = os.path.join(SOURCE_DIR, vol_dir_name)
+        chapter_files = sorted([f for f in os.listdir(vol_source_path) if f.endswith('.md')])
+        
+        vol_chapters = []
+        
+        for chapter_filename in chapter_files:
+            in_file_path = os.path.join(vol_source_path, chapter_filename)
+            
+            with codecs.open(in_file_path, 'r', 'utf-8') as f:
+                md_content = f.read()
+            
+            fallback_title = clean_title(chapter_filename)
+            chapter_title = get_chapter_title_from_content(md_content, fallback_title)
+            
+            # Convert markdown to HTML
+            html_body = markdown.markdown(md_content)
+            
+            # Create EPUB chapter
+            chapter_id = os.path.splitext(chapter_filename)[0]
+            epub_chapter = epub.EpubHtml(
+                title=chapter_title,
+                file_name=f'{vol_dir_name}/{chapter_id}.xhtml',
+                lang='en'
+            )
+            epub_chapter.content = f'<html><body>{html_body}</body></html>'
+            epub_chapter.add_item(css_item)
+            
+            book.add_item(epub_chapter)
+            all_chapters.append(epub_chapter)
+            vol_chapters.append(epub_chapter)
+        
+        # Add volume section to TOC
+        if vol_chapters:
+            toc.append((epub.Section(vol_display_name), vol_chapters))
+    
+    # Set TOC and spine
+    book.toc = toc
+    book.add_item(epub.EpubNcx())
+    book.add_item(epub.EpubNav())
+    book.spine = ['nav'] + all_chapters
+    
+    # Create downloads directory
+    downloads_dir = os.path.join(OUTPUT_DIR, 'downloads')
+    os.makedirs(downloads_dir, exist_ok=True)
+    
+    # Write EPUB
+    epub_path = os.path.join(downloads_dir, 'illuminelingao.epub')
+    epub.write_epub(epub_path, book, {})
+    print(f"EPUB generated: {epub_path}")
 
 if __name__ == "__main__":
     main()

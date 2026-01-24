@@ -1,0 +1,59 @@
+# Chapter 1310 - Glass Dry Plates
+
+Ge Xinxin changed into woven grass slippers and took off her jacket. The wooden floor beneath her feet made her aching ankles feel lighter. She first went to the bathroom to brush her teeth and wash her face, set the alarm clock for 12:30 a.m., then wrapped herself in a blanket on a rattan rocking chair and fell asleep.
+
+*Ring...* The old mechanical alarm clock she had brought with her needed frequent adjustment, but its one advantage was that it was loud enough to wake an elephant. Ge Xinxin straightened her clothes, washed her face with cold water, and returned to the laboratory.
+
+Once again leaving only the red light from a flashlight, she removed the silver bromide gelatin she had prepared earlier. She first poured off the surface water, then wrapped some gelatin in a piece of white cloth that had been boiled and dried. Like squeezing cream onto a cake, she repeatedly squeezed all the gelatin through the cloth into a large 3-liter beaker filled with distilled water. She gently swirled the beaker, waited a few minutes, then poured out the water and added 2 liters of fresh distilled water. After repeating this five times, she drained the water. She heated the gelatin again until it melted, stirred for 10 minutes, let it stand briefly, then poured off the surface water.
+
+With this step completed, Ge Xinxin let out a long breath. This was the most tiring of all the steps; after this, the difficulty diminished considerably. She took out a simple coating apparatus she had made herself—essentially two parallel guide rails 30 centimeters apart plus a glass rod polished to prevent scratching hands. Carefully holding the edge with her fingers, she took out a 15×20 centimeter glass plate that had already been cut, washed ten times in distilled water, then soaked in ethanol for a day. She placed it between the guide rails and fixed it in position.
+
+These glass plates had been specially ordered in the laboratory's name a few days ago and had just arrived. The glass factory had a workshop dedicated to making custom glass instruments and consumables for the laboratory, to meet requirements for high precision and high purity. These plates were manufactured to the highest uniformity achievable. However, Ge Xinxin didn't entirely trust the glass factory's quality control. She had instructed an apprentice experimenter to use a micrometer to individually measure whether each piece was uniform in thickness.
+
+A total of one hundred glass plates had been delivered. The apprentice experimenter had measured each one with great patience and meticulous care, selecting forty-three for use according to Ge Xinxin's standards.
+
+The thickness variation of these 43 plates was all within acceptable range. However, today she only planned to make 20. She checked the spirit level on the table to confirm it was level, then scooped up a spoonful of gelatin and poured it evenly along one edge of the glass plate, using the glass rod to spread the gelatin along the guide rails. In this manner, she made 20 glass plates coated with silver bromide gelatin. She carefully placed the slotted wooden box filled with glass plates over desiccant at the bottom and covered it, then put it in the cabinet along with the beaker of gelatin—the cabinet had also been checked with a spirit level and adjusted beforehand.
+
+What she was making were photographic glass dry plates. Though the flatness achieved by spreading with a glass rod was limited, as long as the glass plates met standards there wouldn't be much problem. Unlike film emulsion at the micron level, glass dry plate emulsion was generally 0.5-1 millimeter thick; a little variation wasn't critical. What mattered was that after coating, they had to remain absolutely level while drying. Though gelatin's fluidity wasn't great, any tilt would still cause it to flow, immediately creating problems.
+
+Finally, Ge Xinxin shook out her aching arms, turned on the lights, tidied up, and left the laboratory. By then, the eastern sky was already lightening with fish-belly white.
+
+---
+
+Two nights later, Ge Xinxin brought a small leather suitcase from her dormitory. From it she removed a Technica 3000 and two plate holders. After carefully drawing the curtains tight, she worked under the red-filtered flashlight, using her own glass cutter to cut 2 glass dry plates to 4×5 inch size and load them into the plate holders. The remainder she put back in the wooden box and covered. She then put the camera and plate holders back in the suitcase and locked it in the Lingao-made safe in the laboratory.
+
+The next day happened to be sunny. In the afternoon, Ge Xinxin took out the camera body from the suitcase, attached the P65+, set the sensitivity to 50, mounted an APO Lanthar 210mm f/4.5, and set the aperture-shutter to f/8. Then she adjusted shutter speed incrementally from 1/25 up to 1/200. Next, she swapped the back for a film holder and took one shot each at shutter speeds of 1/12 and 1/25 before putting away the camera, back, and plate holders. She placed the plate holder alone in the laboratory's storage cabinet and locked the suitcase back in the safe.
+
+Back in the laboratory, Ge Xinxin opened the locked drawer at the bottom of the chemical cabinet and took out several reagent bottles wrapped in black paper. When she removed the wrapping, the labels—clearly bearing the 21st-century "Sinopharm" logo—revealed their origin: precious chemicals from the old timeline. Some of these weren't impossible for Lingao's chemical department to manufacture, but they couldn't achieve analytical grade purity. To be safe, Ge Xinxin decided to use these old-timeline backups. She picked out sodium thiosulfate, metol, hydroquinone, and sodium sulfite, then put the remaining reagents back. From the upper part of the chemical cabinet she found borax and placed it on the experiment bench as well.
+
+"The only comfortable thing about being here is probably having someone else wash the beakers," she muttered to herself as she fetched a 1-liter beaker. She added 750 milliliters of distilled water and heated it over a gas burner. Then she entered the balance room, turned on the precision electronic balance, and carefully weighed out 2.5 grams metol, 6 grams hydroquinone, and 2.5 grams borax. Using a platform balance, she weighed 125 grams sodium sulfite and poured it into the beaker, stirring carefully until the liquid temperature rose to 50°C, then stopped heating. She added 500 milliliters cold distilled water, stirred until uniform, poured it into a 1.25-liter Coca-Cola bottle, carefully squeezed out the air above the liquid, capped it, and labeled it "Developer."
+
+Next she weighed 300 grams sodium thiosulfate on the platform balance, likewise dissolved it in 750 milliliters hot water, added 500 milliliters cold water, poured it into a Coke bottle, squeezed out the air, capped it, and labeled it "Fixer." She placed both bottles in a cold water bath.
+
+Afterward, Ge Xinxin put all the reagents back in their places and cleaned the electronic balance. After powering it off, she placed it under a glass bell jar with desiccant. Then she called in her apprentice experimenter, had her tidy up all the instruments, and instructed her to prepare a large basin of warm water.
+
+"The flasks must be cleaned spotlessly!" Ge Xinxin repeated this phrase tirelessly. She had no particular mentor-student affection for the two girls assigned to her. Apart from giving them standards to work by and teaching them how to work, she never showed them any warmth.
+
+With all this done, she took off her lab coat and once again boarded the commuter train to Bairren for dinner—this time she planned to try the Farm Teahouse. She'd heard they had added some "Western food": Indian flying bread, Spanish seafood fried rice, and such. She decided to try something different.
+
+---
+
+After eating, she returned to the transmigrator residential area in Bairren City. She had also purchased an apartment here as per policy—the smallest floor plan. Since she mainly slept at the dormitory, this was essentially a storage room filled with personal belongings: luggage she had brought originally, plus various things purchased in this timeline. These were mainly items bought at war spoils auctions, including quite a few European sundries she was fond of—authentic handmade products from the German states, France, Spain, and the Italian states. If she could take some back to the old timeline and post them on Weibo, imagine how many girls would look on with envy.
+
+But her main reason for returning to the apartment was to take a proper bath—the laboratory dormitory building only had public showers. After bathing, Ge Xinxin applied a little of her self-extracted herbal essential oil—a habit left over from her time studying in France—then boarded the train back to the laboratory. Spring temperatures in Hainan in the old timeline were often already above 20°C, but in the 17th century during the Little Ice Age, clear nights were only around 15°C. The evening breeze carried moisture, and she suddenly felt a bit cold.
+
+"Not being able to use a hair dryer is really quite troublesome." Thinking of the hair dryer that had been sleeping idle since D-Day, used only a handful of times, she couldn't help but complain. Recently the industrial sector was undertaking "save power to build power," and transmigrator personal electricity use had been drastically reduced.
+
+Ge Xinxin pushed her hair back behind her ears and gazed out the train window. Despite the factories in the industrial zone working hard to pollute with their orders-of-magnitude "advantage" over the rest of the world, the 17th-century night sky still had a splendor rarely seen in the 21st century. Sirius in the southern sky proclaimed its status as a magnitude -1.47 bright star with dazzling brilliance.
+
+"Just wait—in a year I'll be recording your spectra again," she murmured softly. She picked up her handbag and rang the cord to the driver's compartment to signal the driver to stop at the upcoming chemical factory passenger platform.
+
+---
+
+Back at the laboratory, Ge Xinxin took out a cleaned rectangular shallow glass tray, poured 1 centimeter of developer solution into it, and placed it in a freshly prepared 22°C water bath. She similarly poured a tray of fixer and placed it in the water bath. She also prepared a tray of 5% acetic acid and a large beaker of distilled water.
+
+After retrieving the plate holder from the storage cabinet, she once again set up the darkroom and, under the red-filtered flashlight, opened the dark slide. She took out the glass negative and gently placed it in the developer tray, noting the time. After gently rocking the tray for 5 minutes, she removed the plate and placed it in 5% acetic acid for 10 seconds, quickly removed it and rinsed it briefly in distilled water, then placed it in the fixer tray. After similarly rocking the tray for 5 minutes, she removed the plate, rinsed it in distilled water, and inserted it in a plate rack.
+
+After developing the other plate in the same manner, Ge Xinxin turned on the lights, poured the used developer and fixer into dedicated collection bottles, and put the fresh solutions back in the light-proof cabinet. She summoned the apprentice experimenter on duty to tidy up the instruments while she signed the log book and left the laboratory.
+
+(End of Chapter)
