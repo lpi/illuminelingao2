@@ -1,19 +1,33 @@
 #!/usr/bin/env python
 # coding: utf-8
 
-
+# 📚 Library Imports
 from pathlib import Path
 import wave
 import numpy as np
 from pocket_tts import TTSModel
 import re
+import scipy.signal
 
+# 📌 Constants
 voice_name = 'azelma'
 BASE_DIR = Path("../").resolve()
 english_dir = BASE_DIR / "english_chapters"
 audio_base_dir = english_dir.parent / "speeched_english_chapters"
 chapter_re = re.compile(r"\d\d-[a-z]+([-_][a-z]+)*")
 file_re = re.compile(r"\d{3}-[^.]+\.md")
+target_speed = 1.2
+
+# 🤝 Helper Functions
+def change_speed(audio_array, speed=1.0):
+    # We change the sample rate and then resample back to the original rate
+    # to maintain pitch while changing tempo.
+    num_samples = int(len(audio_array) / speed)
+    return scipy.signal.resample(audio_array, num_samples)
+
+# ------------- #
+# 🔁 Main loop #
+# ------------- #
 
 # Load the model and voice state
 tts_model = TTSModel.load_model()
@@ -37,6 +51,9 @@ for path in english_dir.iterdir():
                 # Generate
                 print(f"Generating audio for {md.name} with voice: {voice_name}...")
                 audio = tts_model.generate_audio(voice_state, text)
+                audio_data = audio.numpy().squeeze() # Convert to 1D numpy array
+                if target_speed != 1.0:
+                    audio_data = change_speed(audio_data, speed=target_speed)
 
                 # Normalize and convert to 16-bit PCM
                 audio_data = audio.numpy()
