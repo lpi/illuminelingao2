@@ -1,0 +1,6 @@
+name = "illuminelingao"
+compatibility_date = "2024-01-01"
+
+# Cloudflare Pages configuration
+# The pages_build_output_dir is the directory to deploy
+pages_build_output_dir = "public"
