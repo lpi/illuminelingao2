@@ -1,57 +1,59 @@
 # Chapter 2000 - Two Elders Concerned With Naturalized Marriage
 
-"But surely with so many prisoners under Fu Youdi's jurisdiction, there must be some suitable ones," Du Yibin asked, unwilling to give up.
+"But surely, among all the prisoners under Fu Youdi's jurisdiction, there must be some suitable candidates?" Du Yibin pressed, unwilling to concede.
 
-"If we look, there'll definitely be some who match your conditions, but the number is probably far from enough—especially under your plan: two... even three wives per person..." Ran Yao was frankly rather surprised reading this clause.
+"If we search, we'll certainly find some who match your criteria. But the number would fall far short of what you need—especially given your plan: two... even three wives per person..." Ran Yao was frankly astonished upon reading this clause.
 
-With the current gender ratio of the population under the Council of Elders' control, never mind two wives—even one wife per person couldn't be achieved. This Elder Du was being quite generous, giving out two at once! Not only did the prisons simply not have enough "eligible female inmates," even if they did, there was no way to arrange things this way.
+Given the current gender ratio of the population under Senate control, never mind two wives—even one wife per person remained unachievable. This Elder Du was being remarkably generous, handing out two at once! Not only did the prisons lack sufficient "eligible female inmates," but even if they did, there was simply no way to arrange matters like this.
 
-"There's another way—get the Portuguese to go to Goa and buy Indian women over. Even in the twenty-first century, Indian women's status was very low, never mind the seventeenth century. Worst case, we just spend more money!"
+"There's another approach—have the Portuguese go to Goa and purchase Indian women. Even in the twenty-first century, Indian women's status was extremely low, let alone in the seventeenth century. Worst case, we simply spend more money!"
 
-Going overseas to "buy wives" for naturalized citizens had been proposed by different Elders on various occasions. These "Human Complementation Plans" had all failed to pass due to enormous costs. The most critical issue was that slave trading required local agents with generous profit margins.
+The notion of going overseas to "purchase wives" for naturalized citizens had been proposed by various Senators on multiple occasions. These "Human Complementation Plans" had all failed to pass due to their enormous costs. The most critical obstacle was that slave trading required local agents who demanded generous profit margins.
 
-Beyond economic reasons, some argued this would artificially create "mixed blood," causing the second generation of naturalized citizens to become impure "descendants of Huaxia"—in short, considerable controversy.
+Beyond economic considerations, some argued this would artificially create "mixed blood," causing the second generation of naturalized citizens to become impure "descendants of Huaxia"—in short, the controversy was considerable.
 
 "...Also, the widows from Guangzhou's Qingjie Hall—remaining widowed wastes resources! We should mobilize all of them to remarry."
 
-Ran Yao frowned: "Many naturalized citizens don't even have wives. Assigning two or three at once to these disabled people—the optics really won't be good."
+Ran Yao frowned. "Many naturalized citizens don't even have a single wife. Assigning two or three at once to these disabled personnel—the optics would be terrible."
 
-"That's why I hope for small-scale, non-public weddings."
+"That's precisely why I'm hoping for small-scale, non-public weddings."
 
-Du Yibin's rambling speech made Ran Yao laugh. He thought this young man had commendable courage but was too idealistic.
+Du Yibin's rambling discourse drew a laugh from Ran Yao. He found this young man's courage commendable but his thinking far too idealistic.
 
-"Being this generous, the Planning Committee will devour you." Ran Yao shook his head. "Finding wives for disabled soldiers was done in the fifties for disabled Korean War veterans. They didn't give each of them two wives either."
+"Being this generous, the Planning Committee will devour you alive." Ran Yao shook his head. "Finding wives for disabled soldiers was done in the fifties for disabled Korean War veterans. Even they didn't receive two wives apiece."
 
-"Well, times are different—a few wives doesn't matter..."
+"Well, times are different now—a few extra wives hardly matters..."
 
-"Take out the clause about two wives per person—it's too divorced from reality. Doing it your way turns it into something secretive. We're promoting 'one husband, one wife' after all."
+"Remove the clause about two wives per person. It's completely divorced from reality. Doing things your way turns this into something clandestine. We're promoting 'one husband, one wife' after all."
 
-"What about costs?" Ran Yao said. "This would be huge. Right now disabled naturalized citizens' wages are enough for personal subsistence, but raising a family would be hard. This economic situation simply can't keep a wife around!"
+"What about the costs?" Ran Yao continued. "They would be staggering. Right now, disabled naturalized citizens' wages barely cover personal subsistence—raising a family would be extremely difficult. This economic situation simply cannot keep a wife household!"
 
 "But this would win hearts and minds..."
 
-"Winning hearts and minds also has costs." Ran Yao laughed. "I can co-sign a proposal for overseas purchasing. But forget about female prisoners. As for Qingjie Hall women—talk to Liu Xiang."
+"Winning hearts and minds also has costs." Ran Yao laughed. "I can co-sign a proposal for overseas purchasing. But forget about female prisoners. As for the Qingjie Hall women—discuss that with Liu Xiang."
 
-Ran Yao watched him leave and lit up the Chuqing-edition cigar. "This IT guy has quite a lot of gimmicks. Eyeing up the female prisoners is just to save money."
+Ran Yao watched Du Yibin depart and lit the Early Sunny Edition cigar. *This IT fellow has quite a few tricks up his sleeve. Setting his sights on female prisoners—that's just to save money.*
 
-Du Yibin ran around Guangzhou for days. Clear responses were few. In the end, only an Elder named Wang Jun responded to his call.
+---
 
-This Elder Wang was one of several marginal Elders dispatched to Guangzhou during the Two Guangs offensive. His most important title was "Chief Engineer, Ministry of Machinery"—a title for engineering Elders without administrative positions.
+Du Yibin spent days running around Guangzhou. Clear responses proved scarce. In the end, only a Senator named Wang Jun answered his call.
 
-Elder Wang's presence in Lingao was quite low. His specialty was automotive electronics construction and maintenance—too disconnected from current productive forces. During the steam engine era, there was no business for him. He knew nothing about high voltage. He'd become a jack-of-all-trades in machinery, currently maintaining the vehicles and equipment brought through the crossing, while learning to repair steam engines.
+This Senator Wang was one of several marginal Senators dispatched to Guangzhou during the Two Guangs offensive. His most important title was "Chief Engineer, Ministry of Machinery"—an honorific given to engineering Senators who held no administrative positions.
 
-After the Two Guangs offensive began, he was dispatched to Guangzhou for mechanical maintenance at the temporary shipyard on Henan Island.
+Senator Wang's profile in Lingao was quite low. His specialty was automotive electronics construction and maintenance—far too disconnected from current productive capabilities. During the steam engine era, there was no business for him. He knew nothing about high voltage systems. He'd become a jack-of-all-trades in the machinery sphere, currently maintaining the vehicles and equipment brought through the crossing while simultaneously learning to repair steam engines.
 
-This work was demanding and important. Elder Wang felt stuck in a "forgotten corner," pondering whether to start some "project" to demonstrate his presence.
+After the Two Guangs offensive began, he was dispatched to Guangzhou for mechanical maintenance duties at the temporary shipyard on Henan Island.
 
-Du Yibin's memorandum arrived—distributed to all Elders in Guangdong regardless of relevance.
+The work was demanding and important, yet Senator Wang felt consigned to a "forgotten corner." He'd begun pondering whether to initiate some "project" that might demonstrate his presence.
 
-Elder Wang, like other Elders, "always attached importance" to solving naturalized citizens' marriage problems, but wasn't impressed with Elder Du's specific solutions.
+Du Yibin's memorandum arrived—distributed to all Senators in Guangdong regardless of relevance.
 
-"Female prisoners, female prisoners—where would you get so many?" Wang Jun thought. "Buying foreign women is more realistic."
+Senator Wang, like his colleagues, "always attached great importance" to solving naturalized citizens' marriage problems. However, he remained unimpressed with Elder Du's specific proposals.
 
-He'd always found it strange: why was Quark Qiong's slave-trading activity in Southeast Asia limited to males? Women were equally good laborers—using them to solve naturalized citizens' marriage problems would kill two birds with one stone.
+*Female prisoners, female prisoners—where would you find so many?* Wang Jun mused. *Purchasing foreign women is far more realistic.*
 
-Suddenly, he recalled shipyard workers mentioning that local natives were quite interested in naturalized workers, often asking about their income and marital status.
+He'd always found it peculiar: why did Quark Qiong's slave-trading operations in Southeast Asia focus exclusively on males? Women made equally capable laborers—using them to address naturalized citizens' marriage problems would kill two birds with one stone.
 
-"Right—we should solve this locally after all!"
+Suddenly, he recalled something shipyard workers had mentioned: local natives were quite interested in the naturalized workers, frequently inquiring about their income and marital status.
+
+*That's it—we should solve this locally after all!*

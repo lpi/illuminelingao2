@@ -1,91 +1,101 @@
-# Chapter 1992 - New Australian Tricks Continued Again
+# Chapter 1992 - New Australian Tricks (Continued Again)
 
-"Good, good, of course it makes sense. Truly God of Wealth, much better than the Health Committee which is both stingy and has many problems."
+"Wonderful, wonderful—of course it makes sense. A veritable God of Wealth! So much better than the Health Committee, which is both stingy and endlessly troublesome."
 
-"Not just your family, it is said Chief Zheng, you know the one managing the Physics and Chemistry Lingao? Ah no, Industrial and Commercial Federation, and the Customs at Guangzhou and Xiangshan Ao wharves, Health Committee all have..."
+"And it's not just your Bureau. I've heard Chief Zheng—you know, the one who oversees Physics and Chemistry in Lingao? No, wait, the Industrial and Commercial Federation. Anyway, they're involved, along with the Customs offices at Guangzhou and Xiangshan Ao wharves, even the Health Committee..."
 
-The "Collection by Agent / Entrusted Collection" plan originally planned by Zhang Xiaoqi successfully freed the Finance and Tax Bureau from the dilemma of tax farming, but there was no follow-up later, until the second quarter when it began to be implemented gradually. This was certainly because the plan needed refinement, but more importantly, after investigation they found the actual situation in Guangzhou was even worse than the worst they had imagined. After considering the quantity and quality of their naturalized cadres, the trio of the Finance and Tax Bureau determined the idea of "Grasping the Big, Grasping the Consolidated, Grasping the Easy."
+---
 
-The so-called "Grasping the Big" was taking the big households in the city as the main targets of collection; "Grasping the Consolidated" was directly collecting heavy taxes on bulk goods using the new wholesale markets formed under government organization after knocking out the牙 hang (broker/commission agencies). This part of tax collection was entrusted to Zheng Shangjie's Industrial and Commercial Federation. The Finance and Tax Bureau sent two people to be stationed at each market in rotation to be responsible for management supervision and accepting reports. Similarly, the Customs collected taxes on export goods as an agent. At the end of the year, the Finance and Tax Bureau would allocate handling fees of 5% of the total entrusted tax collected from its own office funds to each entrusted collection unit.
+The "Collection by Agent / Entrusted Collection" plan that Zhang Xiaoqi had originally devised successfully extricated the Finance and Tax Bureau from the pitfalls of tax farming. However, implementation stalled until the second quarter, when it finally began rolling out in phases. Part of this delay stemmed from the need to refine the plan itself, but the larger issue was what their investigations uncovered: Guangzhou's actual situation proved even worse than their most pessimistic projections. After assessing both the quantity and quality of their naturalized cadres, the Finance and Tax Bureau's trio of leaders settled on a guiding principle: "Grasp the Big, Grasp the Consolidated, Grasp the Easy."
 
-For taxpayers with fixed quota tax assessment, they were classified into two categories according to the idea of "Grasping the Easy." Among them, Level 2 fixed quota taxpayers were basically the middle class between big households and small households. This part of merchants operated relatively single industries, and their overall strength had a relatively large gap with true big households. They had no independent accounting ability or low ability, but generally had relatively stable operating income and fixed assets of not low value. Regarding this situation, Wang Qiyi believed they should be assessed fixed quotas according to Business Tax and Property Tax respectively, and required them to go to the hall to declare and pay tax by themselves to facilitate the Finance and Tax Bureau strengthening daily management.
+"Grasping the Big" meant targeting the city's major households as primary collection subjects. "Grasping the Consolidated" involved levying substantial taxes directly on bulk goods through the new wholesale markets that had formed under government organization after eliminating the *yahang*—the traditional broker and commission agencies. This portion of tax collection was entrusted to Zheng Shangjie's Industrial and Commercial Federation. The Finance and Tax Bureau stationed two rotating officials at each market to handle management, supervision, and receive complaints. Similarly, Customs collected taxes on export goods as an authorized agent. At year's end, the Finance and Tax Bureau would allocate handling fees equal to five percent of total entrusted collections from its own operating funds to each partnering agency.
 
-Level 1 taxpayers could be said to be the bottom layer in the business circle. Operating income was mostly limited to maintaining livelihood, and fixed assets were even less worth mentioning, but the quantity was huge. Similar to later generations' individual households, "Husband and Wife Shops." The operating status of such shops was uncertain, opening and closing frequently. Let alone specific operating conditions, even grasping the exact quantity was a difficult problem.
+For taxpayers assessed under the fixed-quota system, the principle of "Grasping the Easy" divided them into two categories. Level Two fixed-quota taxpayers essentially constituted the middle class—neither major households nor small operators. These merchants typically ran single-industry businesses and possessed considerably less overall strength than true commercial magnates. They had either no independent accounting capability or only rudimentary skills, but generally maintained stable operating income and held fixed assets of meaningful value. Given these circumstances, Wang Qiyi recommended they be assessed fixed quotas separately for Business Tax and Property Tax, with mandatory self-declaration and payment at the tax hall. This arrangement would facilitate the Finance and Tax Bureau's daily oversight.
 
-In Wang Qiyi's eyes, these small flies were used to solve social problems. The cost of collecting tax from these people was far higher than the revenue; "scraping meat from fly legs" was not worth the loss.
+Level One taxpayers represented the commercial world's bottom stratum. Their operating income barely sustained a livelihood, and their fixed assets hardly warranted mention—yet their numbers were vast. Like the "individual households" and "husband-and-wife shops" of later generations, such establishments existed in constant flux, opening and closing with alarming frequency. Tracking their specific business conditions was challenging enough; determining their exact quantity verged on impossible.
 
-However, most Senators including Liu Xiang believed that taxation was not only a money problem but also represented the ruling power of a state. To whom to pay tax was a major issue of right and wrong concerning people's hearts. So they compromised and determined that these Level 1 taxpayers only paid tax symbolically.
+In Wang Qiyi's view, these small fry served primarily to address social problems. The cost of collecting taxes from them far exceeded any revenue gained—"scraping meat from fly legs" yielded nothing but losses.
 
-According to the decision discussed by the few in the Finance and Tax Bureau: this tax rate should be low to the extent that the burden was negligible, urging taxpayer households to pay tax actively, reducing the inspection and collection cost of tax departments.
+However, most Senators—including Liu Xiang—maintained that taxation was never purely a monetary matter. It represented state sovereignty itself. To whom one paid taxes was a fundamental question touching on popular loyalty and political legitimacy. A compromise emerged: Level One taxpayers would pay only symbolic amounts.
 
-The tax quota was a one-size-fits-all by industry. Each industry assessed a total quota containing all tax types (actually only Business Tax and Property Tax). All Level 1 merchants in this industry paid tax according to this quota. The quota was determined based on the principle of being slightly lower than the average revenue and total assets of this industry (for example, catering industry like Dong Family Shop was 1 yuan quota per year, equivalent to the monthly basic salary of a Guangzhou civil servant). Then the Industrial and Commercial Federation and the Finance and Tax Bureau would come forward, according to industry division, designate one household Agent Collection and Payment Taxpayer responsible for tax collection work in each industry.
+According to the Bureau leadership's deliberations, this tax rate should be set so low as to constitute a negligible burden, encouraging taxpayer households to pay proactively while minimizing inspection and collection costs.
 
-For fixed quota taxpayers who had paid tax in the wholesale market, they were allowed to deduct tax. The basic principle was, if their turnover in the wholesale link did not exceed the upper limit of the current graded turnover, then according to the "Levy First Refund Later" mode, after paying the current period fixed quota tax, provided the agent collection and payment tax payment certificate issued by the wholesale market management office to the Finance and Tax Bureau to apply for tax deduction/refund. Considering the high inter-bank lending interest in the new spacetime, Zhang Xiaoqi stipulated that the Finance and Tax Bureau Tax Collection Hall should complete audit and refund within three days (not three working days) after receiving application, or deduct from next period tax with taxpayer's consent. For taxpayers whose turnover in the wholesale link exceeded the upper limit of the current graded turnover, the Tax Assessment Division and Management Office would jointly inspect on site. If exceeding the upper limit for two consecutive declaration periods, their grading level would be adjusted upward or collection method changed.
+Tax quotas were standardized by industry. Each trade was assigned a total quota encompassing all applicable taxes—in practice, only Business Tax and Property Tax. All Level One merchants in a given industry paid according to this uniform quota. The amount was calculated to fall slightly below the industry's average revenue and total assets. For example, catering establishments like Dong's Shop faced an annual quota of just one yuan—equivalent to a Guangzhou civil servant's monthly base salary. The Industrial and Commercial Federation and Finance and Tax Bureau would then jointly designate one "Agent Collection and Payment Taxpayer" per industry, responsible for collecting taxes from fellow merchants in their trade.
 
-Li Ziyu listened to Zeng Juan's ceaseless introduction with a smile on his face, but a stream of cold air rose from the soles of his feet. Since entering the police force, from patrolling streets to solving cases, then to advanced studies in Lingao, his deepest feeling was the Senate's "Omnipotence." This omnipotence was not only reflected in their "Strange Techniques and Excessive Ingenuity"—this was nothing much, more was their strong desire to control everything. The key was, they not only had this desire, but also had endless "Strategies"—in front of the Senate, there seemed to be no difficult situation to cope with.
+Fixed-quota taxpayers who had already paid taxes at wholesale markets could claim deductions. The basic principle operated as follows: if their wholesale-level turnover did not exceed the upper limit for their current grade, they could apply for tax deduction or refund under a "Levy First, Refund Later" arrangement. After paying the current period's fixed-quota tax, they would present the agent collection certificate issued by the wholesale market management office to the Finance and Tax Bureau. Given the high interbank lending rates in this era, Zhang Xiaoqi stipulated that the Tax Collection Hall must complete audits and issue refunds within three days—not three working days—of receiving applications. Alternatively, with the taxpayer's consent, the amount could be deducted from the following period's tax. For taxpayers whose wholesale turnover exceeded the upper limit for their current grade, the Tax Assessment Division and Market Management Office would conduct joint on-site inspections. Two consecutive periods of excess would trigger an upward grade adjustment or a change in collection method.
 
-As a claw and tooth of the Senate, he was both proud of this system at all times, and often involuntarily trembling with fear.
+---
 
-The matter in Zhang Yu's company was "Routine Business." So Zhang Yu had full grasp of propriety regarding the arrival of these two "Old Friends." From beginning to end, there was not half a sentence of "Brother," "Old Friend" or similar addresses, only using polite addresses commonly used for greeting public servants, and even less half a sentence of private talk—what should be said was said days ago. Zhang Yu had confidence in his heart now, naturally didn't fear. He followed what Zeng Juan exhorted, answered one for one asked, spoke truth. Very quickly completed all procedures.
+Li Ziyu listened to Zeng Juan's ceaseless explanations with a smile fixed on his face, even as a chill crept upward from the soles of his feet. Since joining the police force—from walking beats to solving cases to advanced studies in Lingao—his most profound impression had been the Senate's seeming omnipotence. This power manifested not merely in their "strange techniques and excessive ingenuity"—that was almost trivial. What truly struck him was their insatiable desire to control everything. More importantly, they didn't simply harbor such desires; they possessed endless "strategies" to fulfill them. Before the Senate, no situation seemed beyond their capacity to manage.
 
-Finally, he originally wanted to chase a question: "Then what about the land contract?" This matter was his heart disease. If the transaction was completely voided, he had to look for land again—this wasn't something accomplishable in two or three days! And the machines ordered in Lingao waited for no one, let alone machines needed installing, debugging, workers needed training. Although the dates on Joint Logistics orders were loose, once delayed delivery he still had to pay compensation.
+As one of the Senate's claws and teeth, he felt perpetual pride in serving this system—even as he often found himself trembling with involuntary fear.
 
-Delay in any link, he had the possibility of bankruptcy. However hesitating again and again he still didn't ask out—Zeng Juan didn't explain this matter to him, probably already had arrangements. Asking too much himself might provoke some trouble on the contrary. Anyway with Ah Juan looking after, he trusted!
+---
 
-Lights were bright in the Deputy Director's Office of Guangzhou Finance and Tax Bureau. Wang Qiyi was reading the basic situation investigation report on "Custom Industry" just delivered, preparing for the upcoming "Flower Donation" collection.
+The matter at Zhang Yu's company proved to be "routine business." Zhang Yu therefore maintained perfect composure throughout the visit from his two "old friends." From start to finish, not a single "brother" or "old friend" passed his lips—only the polite forms of address customarily used when greeting public servants. Nor did he engage in any private conversation; whatever needed saying had been said days ago. With matters now clear in his mind, Zhang Yu felt no fear. Following Zeng Juan's prior instructions, he answered each question directly and honestly. The procedures concluded quickly.
+
+At the end, he nearly asked the question burning in his chest: "What about the land contract?" This remained his deepest worry. If the transaction were voided entirely, he would need to find new land—hardly something accomplishable in two or three days. Meanwhile, the machines he'd ordered from Lingao waited for no one. Equipment required installation and debugging; workers required training. Though the delivery dates on his Joint Logistics orders were generous, delays meant compensation payments.
+
+Any breakdown in any link could spell bankruptcy. Yet after much hesitation, he held his tongue. Zeng Juan hadn't explained this matter—probably because arrangements were already in place. Asking too many questions might only invite trouble. With Ah Juan looking after things, he trusted everything would work out.
+
+---
+
+Bright lights filled the Deputy Director's Office at the Guangzhou Finance and Tax Bureau. Wang Qiyi was reviewing a newly delivered investigation report on the "custom industry," preparing for the upcoming "Flower Donation" collection.
 
 "Report!"
 
-"Come in! ...Oh, Team Leader Zeng."
+"Enter! ...Ah, Team Leader Zeng."
 
-"Report Director Wang, the matter you arranged has been handled. Zhang Company agreed to void contract, supplement tax after re-signing contract. Old Shop Zhang and supplement contracts signed with other merchants also notified them to void together."
+"Report, Director Wang. The matter you assigned has been handled. Zhang Company agreed to void the contract and pay supplemental tax upon re-signing. The supplemental contracts that Old Shop Zhang signed with other merchants have also been voided as notified."
 
-"Oh, did they have any emotions?"
+"I see. Did they express any... discontent?"
 
-Although Zhang Yu's family wasn't naturalized citizens within the system, they were heavily promoted by Senator Hong, and set up as typical "Collaborators" by Guangzhou Industrial and Commercial Federation. In specific execution Director Wang still had to pay attention to methods and ways.
+Though Zhang Yu's family weren't naturalized citizens within the system, they had been heavily promoted by Senator Hong and established as model "Collaborators" by the Guangzhou Industrial and Commercial Federation. Director Wang still needed to handle execution with appropriate care.
 
-"No, Zhang Yu and his father were very cooperative, fully supporting our Finance and Tax Bureau work. Just they wanted to know when they can re-sign contract. Zhang Company has ordered large batch of equipment and machines from Lingao; without land cannot start construction of factory buildings. And they also accepted large amount of orders from Joint Logistics..."
+"None at all. Zhang Yu and his father were completely cooperative, fully supporting our Bureau's work. They only wanted to know when they could re-sign the contract. Zhang Company has ordered a large shipment of equipment and machinery from Lingao; without land, they cannot begin factory construction. They've also accepted substantial orders from Joint Logistics..."
 
-"This query is very reasonable. He must have pressed a very large sum of money on this; loan interest is enough for him to suffer. But no need to worry. Noble Gathering side won't move for now. After Team Leader Yao goes to issue Punishment Decision Notification today give him a few more days of peaceful life. We should look for a big fish. You notify Zhang Company to grasp these few days to re-sign contract and complete tax payment. Land transaction is still valid."
+"A reasonable concern. He must have considerable capital tied up in this—the loan interest alone must be painful. But there's no need to worry. We won't touch Noble Gathering for now. After Team Leader Yao delivers the Punishment Decision Notification today, we'll give him a few more days of peace. We're fishing for bigger prey. Notify Zhang Company to use these days to re-sign the contract and complete tax payment. The land transaction remains valid."
 
-"Yes!"
+"Understood!"
 
-"Alright, you go back. Remember to write a log about today's matter."
+"Very well. Dismissed. Remember to write up today's activities in your log."
 
-......
+---
 
-"Report"
+"Report!"
 
-"Come in"
+"Enter."
 
-"Report Chief, the matter of issuing Punishment Notification to Noble Gathering today completed successfully. Encountered no obstruction. Involved party very cooperative. Report finished!"
+"Report, Chief. Today's Punishment Notification for Noble Gathering was delivered successfully. No obstruction encountered. The involved party was fully cooperative. Report concluded!"
 
-"Cough cough... Team Leader Yao, don't always hold airs like this. Relax a bit."
+"Ahem... Team Leader Yao, you don't need to be quite so formal. Relax a little."
 
-"Yes!"
+"Yes, sir!"
 
-"........................"
+"..."
 
-"Chief Wang, there is another thing I feel should report."
+"Chief Wang, there's one additional matter I believe warrants reporting."
 
-"You say."
+"Go ahead."
 
-"On the way back today, Team Leader Tian from Police Bureau who went with me said his family is relatives around bends with Shopkeeper Luo of this Noble Gathering. He said this Noble Gathering actually can't count as Luo family's at all. This Old Master Luo had submitted to Liang family when alive. Now this Luo Zhixiang is completely a fop. Noble Gathering surviving till today relies entirely on Advisor Liao [Liao Shiye] managing."
+"On the way back today, Team Leader Tian from the Police Bureau—who accompanied me—mentioned that his family has distant connections to Shopkeeper Luo of Noble Gathering. He says Noble Gathering can't really be considered Luo family property at all. Old Master Luo had subordinated himself to the Liang family while alive. The current heir, Luo Zhixiang, is nothing but a wastrel. Noble Gathering's survival to this day depends entirely on Advisor Liao's management."
 
-"So saying this Advisor Liao is a honest and kind person."
+"So this Advisor Liao must be quite the honest and capable fellow."
 
-"Strange is strange here. This Advisor Liao isn't an old person of Noble Gathering, but came to Luo family suddenly after Old Master Luo passed away years ago, and became a person whose words are final once entered Luo family. Saying as true shopkeeper is not exaggeration."
+"That's what's strange. Advisor Liao isn't an old hand at Noble Gathering. He appeared at the Luo household suddenly, years ago, shortly after Old Master Luo passed away. Yet from the moment he arrived, his word became law. To call him the true shopkeeper would be no exaggeration."
 
-"Interesting, interesting." Wang Qiyi stood up from behind desk, walking carelessly to Yao Yulan's side.
+"Interesting. Most interesting." Wang Qiyi rose from behind his desk and strolled casually toward Yao Yulan's side.
 
-"I feel this Advisor Liao, he, his body has big article," Wang Qiyi stood too close. Yao Yulan seemed able to hear his heartbeat. She dared not look up, could only maintain looking straight ahead. Eyes happened to fall on Wang Qiyi's collar. Don't know why face started burning, speaking also somewhat stuttering.
+"I sense this Advisor Liao may have... quite a story behind him." Wang Qiyi had drawn uncomfortably close. Yao Yulan could almost hear his heartbeat. She dared not look up, keeping her gaze fixed straight ahead. Her eyes fell upon Wang Qiyi's collar. For reasons she couldn't explain, her face began to burn, and her words came out halting.
 
-"Mm, as a Political Security cadre your judgment has very much professional quality. We wait and see." Wang Qiyi said salt-less bland-less walking away from Yao Yulan. Just when Yao Yulan wanted to breath out a long breath, suddenly felt shoulder patted three times not lightly not heavily by someone.
+"Mm. For a Political Security cadre, your judgment shows considerable professional instinct. We shall see how this develops." Wang Qiyi's tone was perfectly neutral as he stepped away from Yao Yulan. Just as she was about to exhale in relief, she felt three measured pats on her shoulder—neither light nor heavy.
 
-"My big daughter's matter, many thanks for your help. But in future still need to do own job well first." Wang Qiyi leaned down from behind unexpectedly, whispering sticking to Yao Yulan's ear.
+"Regarding my eldest daughter's matter—thank you for your assistance." Wang Qiyi had leaned down unexpectedly from behind, his whisper brushing against her ear. "But in future, focus on doing your own job well first."
 
-"Yes! For Senate... Yes! Chief Wang!"
+"Yes! For the Senate—I mean, yes, Chief Wang!"
 
-"Okay, you go back. Remember to write work log."
+"Very well. Dismissed. Remember to write your work log."
 
-Sending away Yao Yulan, Wang Qiyi paced back slowly behind desk again, sitting into chair with a plop. He raised left hand towards sun, clenched fist, released, clenched fist again, released. Suddenly smashed left hand on table fiercely three times. "Pat, pat, you pat a head [what the hell]."
+After seeing Yao Yulan out, Wang Qiyi slowly paced back behind his desk and dropped heavily into his chair. He raised his left hand toward the sunlight, clenched his fist, released it, clenched again, released. Then, suddenly, he slammed his palm against the desk three times, hard.
+
+"Pat, pat, pat—you *patted her*. What the hell were you thinking?"

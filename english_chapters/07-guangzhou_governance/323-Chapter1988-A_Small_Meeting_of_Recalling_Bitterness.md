@@ -1,91 +1,93 @@
 # Chapter 1988 - A Small Meeting of Recalling Bitterness
 
-"Yes! Chief!"
+"Yes, Chief!"
 
-"This set again!" Wang Qiyi was very unenthusiastic about this "Militarized Management." He could never understand some Senators' obsession with etiquettes like "heel clicking" and "nodding," always feeling uncomfortable. "I'm leaving first. You chat and get familiar."
+"Not this again!" Wang Qiyi harbored profound unenthusiasm for this "Militarized Management" protocol. He could never comprehend certain Senators' obsession with etiquettes like heel-clicking and formal acknowledgments—the rituals always felt uncomfortable. "I'm departing first. You chat and familiarize yourselves."
 
-Wang Qiyi left, but Zeng Juan's worries came. Obviously Wang Qiyi's instruction just now commanded him to manage things during tonight. He didn't understand why the Chief arranged this for him, a buck private who shouldn't be in turn regardless of seniority or background. Just because his seat was close to the Chief?
+Wang Qiyi's departure brought Zeng Juan's anxieties to the fore. The Chief's instruction had clearly delegated authority to him for tonight—but why? Regardless of seniority or background, command shouldn't fall to a buck private. Simply because his seat was positioned closest to the Chief?
 
-"Slurp slurp... Oh mom, suffocated me just now." Before Zeng Juan pondered carefully, a soup-drinking sound broke the silence in the office.
+"*Slurp slurp*... Ah, I was suffocating just now!" Before Zeng Juan could ponder carefully, soup-drinking sounds shattered the office silence.
 
-"Comfortable!" Xu Zhewei banged the empty bowl on the table, rolled up sleeves and wiped mouth. "Look at what? Never seen a man drink soup?"
+"Comfortable!" Xu Zhewei banged the empty bowl on the table, rolled up his sleeves, and wiped his mouth with evident satisfaction. "What are you staring at? Never seen a man drink soup properly?"
 
-"Haha... What kind of master [Lao Ye - also man/husband] are you!"
+"Haha... What kind of *laoye* are you!"
 
-"Aiya, Brother Xu, how badly were you suffocated just now? Not to this extent right."
+"Brother Xu, were you truly suffocating that badly just now? It couldn't have been that extreme."
 
-"Who says not to extent. I always drank soup like this. Today dining with Chief, I saw you all taking small bites. I don't know that, could only chew dry rice, didn't dare drink a mouthful of soup."
+"Who says not extreme? I always drink soup like this. During dinner with the Chief, I observed you all taking delicate sips. I don't know that refinement—could only chew dry rice, didn't dare drink one mouthful of soup."
 
-"Brother Xu looks like a straightforward person at first glance." Zeng Juan turned to ladle a spoon of soup from the soup bucket for Xu Zhewei.
+"Brother Xu appears a straightforward person at first glance." Zeng Juan turned to ladle soup from the bucket for Xu Zhewei.
 
-"I'll do it myself... Team Leader Zeng too polite."
+"I'll manage myself... Team Leader Zeng is too polite."
 
-"It's nothing; this bucket is close to me. Hearing Brother Xu's accent, a Northerner?"
+"It's nothing—this bucket sits close to me. Hearing Brother Xu's accent, you're a Northerner?"
 
-"Mm mm, I am from Shandong, Changyi County of Laizhou Prefecture." Xu Zhewei shoveled rice in bowl without lifting head, obviously hungry.
+"Correct, I'm from Shandong, Changyi County of Laizhou Prefecture." Xu Zhewei shoveled rice without raising his head, clearly ravenous.
 
-"Laizhou? That's three or four thousand li from this Guangzhou Prefecture right." Zeng Juan put down chopsticks somewhat surprised looking at Xu Zhewei. Thanks to reading Pirate Studies magazines well back then, he knew a bit about Chinese geography. Not only knew Laizhou was in Shandong, but also knew this was where Kong Youde rebelled. However, he wasn't surprised at this, but another question hidden in heart for long: Chiefs all came from Qiongzhou further south than Guangzhou, why were there so many Northerners especially Shandong people among cadres?
+"Laizhou? That's three or four thousand *li* from Guangzhou Prefecture." Zeng Juan set down his chopsticks, regarding Xu Zhewei with some surprise. Thanks to thorough reading of Pirate Studies magazines back then, he possessed reasonable knowledge of Chinese geography. He knew not only that Laizhou was in Shandong, but also that this was where Kong Youde had launched his rebellion. However, that wasn't what surprised him. Another question had lain dormant in his heart for years: The Chiefs originated from Qiongzhou, further south than Guangzhou—why were there so many Northerners, particularly Shandong natives, among the cadres?
 
-"Traveling all the way from Shandong must be not easy."
+"Traveling all the way from Shandong must have been arduous."
 
-"Okay. Rode Senate's big ship. Although a bit seasick, didn't suffer much sin. Peacefully arrived in Qiongzhou."
+"Manageable. Rode the Senate's ships. Though seasickness plagued me somewhat, I didn't suffer excessively. Arrived peacefully in Qiongzhou."
 
-"Riding ship?" Zeng Juan involuntarily widened eyes. Although Guangzhou had many foreign merchants, basically every family in this city had some connection with sea business, in most, no, should be everyone's eyes, running ships on sea was a business of nine deaths one life. Whether people or goods could be gone instantly. These Chiefs actually dared to use ships to pick people from Shandong to Qiongzhou, and picked so many! How much sin suffered along this way.
+"By ship?" Zeng Juan's eyes involuntarily widened. Though Guangzhou hosted numerous foreign merchants and virtually every family maintained some connection to maritime commerce, in most—no, in everyone's—eyes, ocean shipping constituted a nine-deaths-one-life enterprise. People or cargo could vanish instantly. These Chiefs actually dared employ ships to transport people from Shandong to Qiongzhou, and transported so many! How much suffering endured along that passage.
 
-"Riding ship on sea fear many discomforts. Could elderly and children in family bear it?"
+"Ocean voyages must involve considerable discomforts. Could elderly and children in your family endure it?"
 
-"Family? Long gone. Originally not wealthy family, hungry a meal full a meal. Once soldier chaos rose, starved starved, frozen frozen, remaining killed by rebel soldiers. Originally had a wife, fell behind running for life, also spoiled to death. Only I ran out alone." Xu Zhewei still shoveled rice without lifting head. "Grandma's really can't get used to this rice. Still mantou satisfying, gnawing one in each hand!"
+"Family? Long gone. Originally not a wealthy household—hungry one meal, full the next. Once soldier chaos erupted, what wasn't starved or frozen to death got killed by rebel soldiers. I originally had a wife—she fell behind during our flight, was violated to death. Only I escaped alone." Xu Zhewei continued shoveling rice without raising his head. "Damn it, truly can't get accustomed to this rice. *Mantou* are satisfying—gnawing one in each hand!"
 
-Zeng Juan felt a bit embarrassed instantly. He remembered before the Senate liberated Guangzhou, he and partners debated this Shandong pacification strategy when strolling outside city, debating how to quell rebellion fastest. At that time according to Australian magazine report: Rebel Army and Great Ming Government Army see-sawed around Laizhou, both sides suffering heavy casualties. Four people stood on earth mound guiding country with vigor, very proud of their own strategies. Now a living Shandong person, a person whose family broken and barely escaped from rebel hands, made him feel pointing at rivers and mountains back then was too ridiculous.
+Zeng Juan felt instant embarrassment. He recalled how before the Senate liberated Guangzhou, he and his companions had debated this Shandong pacification strategy while strolling outside the city walls, arguing methods to quell rebellion fastest. At that time, according to Australian magazine reports, Rebel Army and Great Ming Government Army see-sawed around Laizhou, both sides suffering heavy casualties. The four of them had stood on an earth mound guiding the country with vigor, quite proud of their strategic brilliance. Now confronting a living Shandong survivor—a person whose family had been broken, who barely escaped rebel hands—made that finger-pointing at rivers and mountains seem utterly ridiculous.
 
-"What?" Xu Zhewei put down bowl looking at Zeng Juan who didn't know how to answer. "Nothing! Dead cannot resurrect. That son of a bitch Kong Youde had head chopped by Senate, avenging us. I'll follow Senate for life... What did Chief Wei say? Fight across Yangtze River to liberate all China!"
+"What?" Xu Zhewei set down his bowl, looking at Zeng Juan, who didn't know how to respond. "Nothing! The dead cannot resurrect. That son of a bitch Kong Youde had his head chopped by the Senate—avenged us. I'll follow the Senate for life... What did Chief Wei say? *Fight across the Yangtze River to liberate all China!*"
 
 "Hahaha..."
 
 "Giggle giggle..."
 
-"What are you laughing at?"
+"What's so amusing?"
 
-"Then you didn't go be a soldier, ran here to play abacus."
+"You didn't go become a soldier—ran here to play with abacuses instead."
 
-"Sister Chu, don't laugh. Not me boasting, with my physique I was mobilized to join army just entering factory." Xu Zhewei stuck chest unconsciously straightening clothes. "Who knew a Senator said playing abacus has more air [qi/strength?] than holding gun—they let me go to vocational school to learn finance and tax."
+"Sister Chu, don't laugh. Not to boast, but with my physique I was mobilized to join the army immediately upon entering the factory." Xu Zhewei unconsciously thrust out his chest, straightening his clothes. "Who knew some Senator declared playing abacuses has more *qi* than holding guns—they sent me to vocational school to study finance and tax."
 
-Actually Xu Zhewei's physical exam result was "Grade C." According to standard Grade A "Qualified for Enlistment," Grade B "Reserve Enlistment Qualified," Grade C was "Unsuitable for Queue Service." Not only unsuitable for queue service, even factory apprentice training didn't want him. Finally because he learned abacus for a few years, he entered accounting vocational class.
+Actually, Xu Zhewei's physical examination result had been "Grade C." According to standards, Grade A meant "Qualified for Enlistment," Grade B "Reserve Enlistment Qualified," and Grade C was "Unsuitable for Queue Service." Not only unsuitable for queue service—even factory apprentice training didn't want him. Finally, because he'd learned abacus work for several years, he entered the accounting vocational class.
 
-But he was young and looked very robust. Being brushed down by physical exam felt very losing face, so strictly claimed being mobilized to study.
+But he was young and appeared quite robust. Being rejected by the physical examination felt profoundly shameful, so he strictly claimed having been mobilized to study.
 
-"Sister Chu? You are Guangzhou local right, how come simply came to this Finance and Tax Bureau? I heard you have a daughter studying in Lingao?"
+"Sister Chu? You're a Guangzhou local, correct? How did you simply come to this Finance and Tax Bureau? I heard you have a daughter studying in Lingao?"
 
-"Like you, fell into distress." Smile on Chu Xiaoran's face disappeared instantly, lowering head picking a kale chewing slowly.
+"Like you—fell into distress." The smile on Chu Xiaoran's face vanished instantly. She lowered her head, picking at kale and chewing slowly.
 
-To Chu Xiaoran, her pain wasn't displacement, nor death of husband and daughter, but over twenty years of kinship being like thin paper before money, a hole blown by a breath.
+For Chu Xiaoran, her pain wasn't displacement, nor the deaths of husband and daughter, but rather over twenty years of kinship proving thin as paper before money—a hole blown through with a single breath.
 
-"Sister Chu, don't be sad. I shouldn't have shot off my mouth..." Seeing her expression, Xu Zhewei said hurriedly.
+"Sister Chu, don't be sorrowful. I shouldn't have spoken carelessly..." Seeing her expression, Xu Zhewei said hurriedly.
 
-"Nothing, a bit of old matter in past. Stifled in heart for long, saying it out is nothing."
+"It's nothing—old matters from the past. Stifled in my heart for years; saying it aloud is nothing."
 
-Her father was an old Tongsheng (child student/candidate). Family circumstance though not good, loved her very much, teaching her reading words since young. After marriage family was well-off, husband singing wife following. Though only gave birth to two daughters in ten-plus years of marriage, husband didn't mind. Family of four was harmonious. Who knew heaven didn't fulfill wish. Husband suddenly caught malignant cold, dragged taking medicine for over half year, finally let go and left. Meager family property sold empty, only a house left, yet fancied by mother-in-law and brother-in-law. Excuse she had no son and would definitely remarry in future, drove her mother and daughter out of house right after First Seven Days.
+Her father had been an old *Tongsheng*—a child student. Though family circumstances weren't good, he'd loved her dearly, teaching her to read since childhood. After marriage, the household was prosperous—husband singing, wife harmonizing. Though ten-plus years of marriage produced only two daughters, her husband hadn't minded. The family of four was harmonious. Who knew heaven wouldn't fulfill wishes. Her husband suddenly contracted malignant cold, lingered taking medicine over half a year, finally let go and departed. Meager family property sold away completely, only one house remaining—yet coveted by her mother-in-law and brother-in-law. Excusing that she had no son and would definitely remarry in future, they drove her and her daughter from the house immediately after the First Seven Days.
 
-"...In-laws refused to keep me, originally nothing—expected. Unexpectedly satisfying returning to maiden home, my sister-in-law was also this ruthless. Let alone keeping, even a meal refused to give." Chu Xiaoran said, "Usually I thought maiden home was always a reliance. Whenever had things, never lacked a share for my brother and nephew. Whatever difficulty they had, always helped if could—Unexpectedly ended up in such a state!"
+"...In-laws refusing to keep me was expected—nothing surprising. What I never anticipated: returning to my maiden home proved equally futile. My sister-in-law was equally ruthless. Forget about keeping us—she refused even one meal." Chu Xiaoran said, "I'd always thought maiden home was perpetual reliance. Whenever matters arose, my brother and nephew never lacked shares. Whatever difficulties they faced, I always helped if possible—who expected such outcome!"
 
-Chu Xiaoran had no one to turn to. Elder daughter suffered fright, body hot talking nonsense after few days walking. Plus lacking clothes and food, despite Chu Xiaoran crying dry tears, didn't keep her; died in inn. With this tossing, only bit of soft goods on body spent clean. Drove out of inn, reduced to beggar.
+Chu Xiaoran had nowhere to turn. Her elder daughter suffered fright; after days traveling her body burned hot, she spoke nonsense. Plus lacking clothes and food—despite Chu Xiaoran crying her tears dry, she couldn't keep the girl. The child died in an inn. This tossing consumed the last soft goods on her person. Driven from the inn, she was reduced to begging.
 
-"...Speaking of suffering, that was truly bitter. Dead end wanting to beg—unexpectedly being beggar wife also needs money." Chu Xiaoran never willing to say this usually. "Big Bone doesn't let register without money. Without registration going out to beg would be beaten. Maybe kidnapped by flower-patter [kidnapper]... That was truly calling heaven no answer..."
+"...Speaking of suffering—that was truly bitter. Desperate to beg, yet even becoming a beggar's wife required money." Chu Xiaoran rarely disclosed this normally. "Big Bone wouldn't permit registration without payment. Without registration, going out to beg meant beatings. Perhaps kidnapping by flower-patters [kidnappers]... That was truly *calling heaven with no answer*..."
 
-Yao Yulan nodded sympathetically: "I know this." Like Chu Xiaoran, she also had experience of whole family falling into distress and displacement. Despair of dead end was deeply realized.
+Yao Yulan nodded sympathetically. "I understand this." Like Chu Xiaoran, she too possessed experience of entire family falling into distress and displacement. Despair at dead ends was deeply familiar.
 
-"...At that time my daughter hungry till eyelids barely opened. I was disheartened completely, simply found a grass rope binding myself and child together—seen whole family jumping into river several times, never expected turn to myself."
+"...At that time my daughter was so hungry her eyelids barely opened. I was utterly disheartened—simply found grass rope, bound myself and child together. I'd witnessed entire families jumping into rivers multiple times; never expected my own turn."
 
-Yao Yulan wiped tears with handkerchief, thinking of past events of those years again. Especially being withdrawn marriage by fiancé, making her still full of resentment upon thinking till now.
+Yao Yulan wiped tears with her handkerchief, past events from those years flooding back. Especially her fiancé's withdrawal of betrothal—thinking of it even now filled her with resentment.
 
-"...Unexpectedly daughter awakened by water shock, shouting help, saying she didn't want to die—my heart softened and didn't die... Thinking again, since not even fearing death, still fear living? Thinking here I went back from water. Dragging daughter, seeing a big restaurant by roadside simply barged in. Beating me I didn't go, scolding me I didn't go... Finally a Fat Young Master had good heart, gave us mother and daughter a big bowl of meat rice, and instructed waiter to send us to Cihui Hall—Sigh, pity muddled at that time, didn't even ask benefactor's name!"
+"...Unexpectedly my daughter was shocked awake by water, shouting for help, saying she didn't want to die—my heart softened and I didn't die... Thinking again: since I didn't even fear death, why fear living? Thinking this, I returned from the water. Dragging my daughter, seeing a large restaurant by the roadside, I simply barged in. Beating me, I didn't depart; scolding me, I didn't depart... Finally some Fat Young Master showed kind heart, gave us mother and daughter a large bowl of meat rice, and instructed the waiter to send us to Cihui Hall—sigh, pity I was so muddled then, didn't even ask our benefactor's name!"
 
-"Sister Chu, you are now returning home in glory too. This benefactor, might as well verify slowly." Zeng Juan was quite awkward in conversation, because those present were basically "Bitter Big Hate Deep," "Fell into Distress" saved by Senate. Although his family circumstance before exam wasn't good, far from words falling into distress. Thus having no resonance and feeling a kind of exclusion awkwardness. He wasn't like Huang Ping, serious Fangcaodi background. So wanted to integrate into group specially. Caught chance to interject at this moment: "Although his name unknown, since eating in that restaurant, must be regular customer—Waiters in restaurants are all human spirits, definitely know his name. We go ask when free, definitely will know..."
+"Sister Chu, you're returning home gloriously now. This benefactor—might as well verify slowly." Zeng Juan felt quite awkward in conversation, because those present were basically "Bitter Big Hate Deep," "Fell into Distress" cases saved by the Senate. Though his family circumstances before examinations weren't good, they fell far short of genuine distress. Thus he had no resonance and felt a kind of exclusionary awkwardness. Unlike Huang Ping, who possessed genuine Fangcaodi [refugee camp] background, he wanted specially to integrate into the group. Catching this chance, he interjected: "Though his name's unknown, since he ate at that restaurant, he must be a regular customer—restaurant waiters are all human spirits, definitely know his name. When we're free, we'll inquire—certainly we'll discover..."
 
-"This is a method!" Yao Yulan's gossip heart erupted. "I see do just so! Busy finished this matter we go find person for Sister Chu!"
+"That's a method!" Yao Yulan's gossip heart erupted. "I think we should do precisely that! Once we finish this matter, we'll go find the person for Sister Chu!"
 
-"Right! That sister-in-law and in-laws of yours, must also fix them up properly! Let them Dog Eyes Look People Low!" Xu Zhewei was filled with righteous indignation. "If opening shop, investigate to death! If having real estate, check his Deed Tax! I don't believe they can be innocent [One Poor Two White]! Find an excuse, fine them to bankruptcy, then put inside to eat lawsuit!"
+"Correct! That sister-in-law and those in-laws of yours—they must also be fixed up properly! Let them experience *Dog Eyes Look People Low*!" Xu Zhewei brimmed with righteous indignation. "If they operate shops, investigate to death! If they possess real estate, examine their Deed Tax! I don't believe they can be completely innocent! Find some excuse, fine them to bankruptcy, then put them inside to eat lawsuits!"
 
-"Ai ai, this is passed, passed." Huang Ping didn't speak just now, shaking head at moment. "We must act according to law, cannot enforce law starting from venting private anger—Chiefs' good scriptures, we can't read askew."
+"Wait, wait—this is excessive, excessive." Huang Ping hadn't spoken previously; now he shook his head. "We must act according to law, cannot enforce from positions of venting private anger—the Chiefs' good scriptures, we can't read askew."
 
-Huang Ping's status was higher; everyone naturally inconvenient to refute him. Only saying if bumped into hand absolutely not spare, to vent anger for Sister Chu. Group spoke excitedly, Chu Xiaoran just ate rice silently alone.
+Huang Ping's status was higher; everyone naturally found refutation inconvenient. They only declared that if the parties bumped into their hands, they absolutely wouldn't spare them—venting anger for Sister Chu. The group spoke excitedly. Only Chu Xiaoran ate her rice silently alone.
+
+**(End of Chapter)**

@@ -31,7 +31,10 @@ HTML_TEMPLATE = """<!DOCTYPE html>
 <body>
     <header>
         <a href="{root_path}index.html" class="site-title">Illumine Lingao (English Translation)</a>
-        <a href="https://discord.gg/69ryTJuXZN" class="discord-btn">💬 Discord</a>
+        <div class="header-links">
+            <a href="https://github.com/lpi/illuminelingao2" class="github-btn">📚 GitHub</a>
+            <a href="https://discord.gg/69ryTJuXZN" class="discord-btn">💬 Discord</a>
+        </div>
     </header>
     <div class="container">
         {content}
@@ -126,6 +129,24 @@ header {
 
 .site-title:hover {
     text-decoration: underline;
+}
+
+.header-links {
+    display: flex;
+    gap: 10px;
+}
+
+.github-btn {
+    background-color: #333;
+    color: white;
+    padding: 6px 12px;
+    border-radius: 4px;
+    text-decoration: none;
+    font-size: 0.9em;
+}
+
+.github-btn:hover {
+    background-color: #555;
 }
 
 .discord-btn {
@@ -299,11 +320,12 @@ def main():
     main_index_content = """<h1>Illumine Lingao</h1>
 <div class="home-links">
     <a href="downloads/illuminelingao.epub">Download EPUB</a>
+    <a href="https://github.com/lpi/illuminelingao2">GitHub Repository</a>
     <a href="https://discord.gg/69ryTJuXZN">Join Discord</a>
 </div>
 <div class="disclaimer">
     Disclaimer: This is an unofficial fan translation of the Chinese original novel "临高启明" (Illumine Lingao) by 吹牛者 (Boaster). The translations were generated using Opus 4.5.<br><br>
-    You can read the original Chinese version <a href="https://www.69shuba.com/book/6418/">here</a>.
+    You can read the original Chinese version <a href="https://lgqm.halu.lu/">here</a>.
 </div>
 <div class="volume-list">
 """

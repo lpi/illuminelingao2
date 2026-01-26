@@ -1,79 +1,83 @@
 # Chapter 1986 - Economic Crime Investigation Division
 
-"Think about it, Salina is a professional. In the past because she was a foreigner, she wasn't heavily used, always in roles like consultant or instructor. The so-called General Guard Bureau is also just a guard role. Now she is to be entrusted with heavy responsibility. Can we not utilize her skills well? Senator protection work is too waste of talent. Isn't proposing her to concurrently hold an economic crime investigation job fully exerting her specialty? Moreover with the Senate's nature, maybe they will combine two functions into one—isn't the Yankee Secret Service also a law enforcement unit of the Treasury Department? We also make a Treasury Secret Service; this law enforcement power will be secure."
+"Consider this: Salina is a trained professional. Previously, her foreign status limited her utilization—she's been relegated to consultant and instructor roles. This so-called General Guard Bureau position? Another glorified bodyguard assignment. Now she's supposedly being 'entrusted with heavy responsibility.' Can we honestly claim we're utilizing her skills optimally? Senator protection work wastes her talents egregiously. Proposing her for concurrent economic crime investigation duties would actually deploy her specialty. Besides, given the Senate's organizational tendencies, they might consolidate both functions—doesn't the American Secret Service operate as a Treasury Department law enforcement unit? We create a Treasury Secret Service, and the law enforcement authority becomes secure."
 
-Zhang Xiaoqi said: "Are you forgetting someone. If not listing him as candidate, will he have ideas?"
+"You're forgetting someone," Zhang Xiaoqi observed archly. "If we don't list him as a candidate, won't he have... opinions?"
 
 "Who?"
 
-"National Police's; you really don't know?"
+"National Police. Don't tell me you've genuinely forgotten?"
 
-"Hehe." Wang Qiyi knew his wife referred to Pan Jexin who currently hosted police training work in Guangzhou. He was Director of National Police Criminal Investigation Division, said to have resigned to join transmigration because dissatisfied with work in old timeline. But dealing with him, Wang Qiyi could always feel this person had considerable understanding of economic problems. But what did this matter? Wang Qiyi felt his wife worried too much. "We don't care what he did before. Even assuming he came from Economic Investigation, so what? Coming to new timeline for so many years, he didn't mention past profession at all, obviously planning to hide it. Naturally won't jump out to drag hind legs on our plan."
+"Ah." Wang Qiyi understood immediately—his wife referenced Pan Jexin, currently hosting police training operations in Guangzhou. As Director of the National Police Criminal Investigation Division, Pan had purportedly resigned and joined the transmigration because of dissatisfaction with old timeline work conditions. Yet in Wang Qiyi's interactions with the man, he'd consistently detected considerable sophistication regarding economic matters. But what did that signify? Wang Qiyi felt his wife worried excessively. "We don't concern ourselves with his previous career. Even assuming he came from Economic Investigation originally—so what? After years in this new timeline without mentioning his former profession, he's obviously chosen to conceal that background. He won't suddenly emerge to sabotage our initiative."
 
-"Then Salina? Do you think she is willing to come?" Wang Qiyi worried a bit.
+"And Salina?" Wang Qiyi voiced his real concern. "Do you think she'll actually accept?"
 
-"Hard to say. But I think compared to her current idle state in General Guard Bureau, she should like our Economic Crime Investigation Division more. After all very similar to IRS Criminal Investigation Division," Zhang Xiaoqi said.
+"Difficult to predict. But I suspect compared to her current idle status in the General Guard Bureau, she'd prefer our Economic Crime Investigation Division—it closely resembles the IRS Criminal Investigation Division," Zhang Xiaoqi said.
 
-"I just worry we spread the stall too big at once." Ai Zhixin always felt this plan was hard to get agreed by Soy Sauce crowd who had no awareness of being superiors.
+"My worry is we're spreading ourselves too thin too quickly." Ai Zhixin remained skeptical the plan could gain approval from Soy Sauce constituents lacking any managerial awareness.
 
-"How to say," Wang Qiyi wrung his hands, "Reasonably speaking, what we apply do is what no one does now; no problem of snatching other departments' power. Otherwise waiting for accident to happen then panic? Of course, actually..."
+"Reasonably speaking," Wang Qiyi wrung his hands thoughtfully, "what we're proposing addresses functions no one currently performs—no question of usurping other departments' authority. Otherwise what—wait for disasters before panicking? Though actually..."
 
-"Actually, you aren't particularly confident either, right." Zhang Xiaoqi smiled while lifting teacup. "I saw it from that Tax Farming time. These people are like: I don't understand nor learn, I have no solution, anyway just curse. Technical details he can't beat you, he goes online [political/moral high ground] talking big principles. Big principles can't beat you, he simply acts rogue, saying anyway I am Senator, if not for doing whatever I want who comes to this broken place."
+"Actually, you're not particularly confident either, correct?" Zhang Xiaoqi smiled while lifting her teacup. "I observed this during the Tax Farming debates. These people follow a pattern: *I don't understand, won't learn, have no solutions, but I'll curse anyway.* Can't beat you on technical details? They retreat to political high ground spouting grand principles. Can't prevail on principles? They simply act like hooligans, declaring *I'm a Senator—if not to do whatever I want, why would I come to this broken place?*"
 
-"Donglin Faction style!" Ai Zhixin said hatefully.
+"Donglin Faction behavior!" Ai Zhixin spat with disgust.
 
-"Then what do you think? No way, this is reality." Wang Qiyi obviously didn't like this topic.
+"So what do you propose? No alternative—this is reality." Wang Qiyi clearly disliked this conversational direction.
 
-"I think our article is written too bureaucratic. Those few in Administration Council who understand are fine. Others, estimate will oppose without even looking," Zhang Xiaoqi said.
+"I think our document reads too bureaucratically. The few Administration Council members who understand will be fine. The others? They'll oppose without even reading," Zhang Xiaoqi said.
 
-"Could it be..."
+"Could it be that we need to..."
 
-"When I was at the hall before, during festivals people also gave some small shopping cards. A few hundred yuan isn't much, nor asking you to do illegal things, just begging for smooth tax reporting, looking after small flaws..." Zhang Xiaoqi rolled eyes at husband, "Transmigrated and not Chinese anymore?"
+"Back when I worked the hall, during festivals people would slip me shopping cards. A few hundred yuan—nothing excessive, not requesting illegal favors, just hoping for smooth tax reporting, overlooking minor flaws..." Zhang Xiaoqi rolled her eyes at her husband. "Did transmigration somehow make you not Chinese anymore?"
 
-Running Ministries, actually they all understood. Senate system was Center Grasping All. Doing any project required applying to "Center." So since Administration Council and Planning Academy were set up, Running Ministries became the only way for Senators wanting to do projects.
+*Running the Ministries*—they all understood the euphemism. Senate structure centralized all power. Any project required application to "Central Authority." Consequently, since the Administration Council and Planning Academy's establishment, Ministry Running had become the inevitable path for Senators pursuing initiatives.
 
-"This matter is a bit big. Institution setting isn't one department's matter," Wang Qiyi rubbed chin, "Departments to run are many, also involving many Senators' stance and attitude. This probably isn't a matter of few hundred yuan shopping cards..."
+"This matter's considerably larger. Institutional establishment isn't a single department's concern," Wang Qiyi rubbed his chin. "We'd need to engage multiple departments, involving numerous Senators' positions and attitudes. This probably exceeds the scope of a few-hundred-yuan shopping card operation..."
 
-The three understood the tricks inside, but these words were truly taboo right now. Previous stage Senate just passed anti-corruption document in Second Plenary Session, so Cheka was very busy. Although Political Security Bureau hummed and hawed, black materials in hand were plenty—naturally, everyone knew Political Security Bureau didn't do "Senator Reconnaissance," didn't do "Profile of Hundred Officials." But monitoring whether naturalized citizen cadres were "loyal" was its main work. If Senator had movement, nearby naturalized citizen cadres would always be touched. As long as investigation filed, Senator would also get messy.
+The three understood the implications perfectly, but such discourse remained profoundly taboo. The Senate had only recently passed anticorruption measures at the Second Plenary Session—Cheka was operating overtime. Though the Political Security Bureau maintained plausible deniability, their black material archives were substantial. Naturally, everyone understood Political Security didn't conduct "Senator Reconnaissance" or compile "Profiles of Hundred Officials"—officially. But monitoring naturalized citizen cadres' "loyalty" constituted their primary function. When Senators made moves, nearby naturalized cadres inevitably got touched. Once investigations opened, Senators found themselves entangled.
 
-"This matter, I see only few hundred yuan shopping cards..." Ai Zhixin silenced for long time, said, "Investing too much isn't worthwhile."
+"This matter," Ai Zhixin declared after prolonged silence, "I assess requires only modest shopping card investments. Excessive expenditure isn't justified."
 
-Ai Zhixin set the tone. Wang Qiyi couple said no more, even secretly sighed in relief.
+Ai Zhixin's pronouncement set the tone. The Wang Qiyi couple said nothing further, privately sighing with relief.
 
-Ten-plus days later, Ai Zhixin brought back Administration Council's formal approval document from Lingao. Plan was changed seven bits and eight pieces. Wang Qiyi knew roughly from Ai Zhixin's telegram early on. Fortunately Cheng Dong coordinated with key Police and Legal bigwigs Ran Yao and Ma Jia in advance, satisfying their modification requests on part authority, and asked support from Wu De who had good relation. Plus aspect of strengthening social management fit Secretary of State Ma's taste. Modified plan passed with shock but no danger.
+___
 
-However in formal approval document, Economic Crime Investigation Division's authority scope was narrowed to key striking four items: disturbing economic management order, financial fraud, endangering tax collection and management, obstructing normal management of companies/enterprises. Striking manufacturing/trafficking counterfeit currency and smuggling were changed to cooperating with Police, Customs work.
+Ten days later, Ai Zhixin returned from Lingao bearing the Administration Council's formal approval document. The plan had been modified extensively. Wang Qiyi had received preliminary details via Ai Zhixin's telegram. Fortunately, Cheng Dong had coordinated in advance with key Police and Legal heavyweights Ran Yao and Ma Jia, accommodating their modification requests on partial authorities while securing Wu De's support given their positive relationship. The initiative's alignment with strengthening social management appealed to Secretary of State Ma's preferences. The modified plan passed—barely.
 
-In authority, Investigation Division possessed all powers of tax administrative investigation and tax criminal investigation, entitled to exercise all investigation rights. But in mandatory power, changed from originally can summon suspects and witnesses, arrest criminal suspects, to 24-hour summoning and interrogation right. Arrest right Ran Yao and Ma Jia both insisted could only belong to police. Of course considering backward communication and tight manpower in this plane, temporarily County/City level Police Bureau where Investigation Division located would issue serial-numbered blank arrest documents for Investigation Division to use anytime, but must report to same-level Police Bureau afterwards. Wait until timing mature then adopt case-by-case application method.
+However, the formal approval document narrowed the Economic Crime Investigation Division's authority scope to four key targets: disturbing economic management order, financial fraud, endangering tax collection and management, and obstructing normal company/enterprise management. Striking counterfeit currency manufacturing/trafficking and smuggling were revised to "cooperation with Police and Customs operations."
 
-As for execution right, Investigation Division entitled to decide search, seizure, sealing of involved houses, goods, transport tools etc. movable and immovable properties, but no disposal right of confiscation and auctioning movable/immovable properties.
+Regarding authority, the Investigation Division retained all powers pertaining to tax administrative investigation and tax criminal investigation, entitled to exercise comprehensive investigation rights. But mandatory powers shifted from the original "can summon suspects and witnesses, arrest criminal suspects" to "24-hour summoning and interrogation rights." Ran Yao and Ma Jia both adamantly insisted arrest authority could only belong to police. Acknowledging this timeline's backward communications and tight manpower, County/City level Police Bureaus where Investigation Divisions operated would temporarily issue serial-numbered blank arrest warrants for Division use as needed—but subsequent reporting to equivalent-level Police Bureaus was mandatory. When circumstances matured, the system would transition to case-by-case application protocols.
 
-Cases needing judicial prosecution must be transferred to Procuratorate to handle. Considering Procuratorate only had one Senator Shen Ruiming now, suggested Finance and Tax Bureau dispatch professional cadres to hang post in Procuratorate specifically dealing with economic cases.
+As for execution rights, the Investigation Division could decide searches, seizures, and sealing of involved houses, goods, transport vehicles, and other movable/immovable properties—but possessed no confiscation or auctioning disposal rights for movable or immovable properties.
 
-"Authority narrowed a bit. But we have few people. Counterfeit currency and smuggling cases, fear can't bear in short time. Better be a consultant role."
+Cases requiring judicial prosecution must be transferred to the Procuratorate. Considering the Procuratorate currently employed only Senator Shen Ruiming, the recommendation suggested Finance and Tax Bureau dispatch professional cadres for concurrent posts in the Procuratorate, specifically handling economic cases.
 
-Anyway, institution was built finally. Ai Zhixin encouraged everyone to look forward, pay attention to work methods. Plan passing this time was largely because they low-key limited Economic Crime Investigation Division to internal organ of Finance and Tax Bureau secondary unit. Finance and Tax Bureau as department with independent personnel organization right, according to Third Plenary Senator Conference resolution details, establishing secondary unit only needed filing to Administration Council. Cheng Dong specifically coming to Administration Council to apply approval was already giving considerable importance (after all filing and approval differed much in efficacy when dealing later), no need to tear face with vast Soy Sauce crowd at General Assembly.
+"Authority's somewhat narrowed. But we have limited personnel. Counterfeit currency and smuggling cases—we couldn't shoulder those burdens short-term anyway. Better serving consultant roles."
 
-"These aren't key. Now Administration Council approved doesn't mean no one tears with you later. Administration Council ultimately listens to Senator General Assembly. We will continue briefing everyone on this issue. Premier Cheng told me before leaving, want us to quickly bring out that Senator Foundation plan discussed before, letting those guys know backdoors are opened early for them leaving enough immunity. Save them always feeling a supervision organ targets them," Ai Zhixin said.
+Regardless, the institution had finally been established. Ai Zhixin encouraged everyone to look forward, emphasizing work methodology. The plan's passage owed largely to their deliberately low-key positioning of the Economic Crime Investigation Division as an internal Finance and Tax Bureau secondary unit. As a department with independent personnel organization authority, per Third Plenary Senator Conference resolution details, the Finance and Tax Bureau only needed to file secondary unit establishment with the Administration Council. Cheng Dong's personal Administration Council appearance to request approval already demonstrated considerable importance—filing and approval differed substantially in efficacy when navigating future challenges. No need to antagonize the vast Soy Sauce constituency at General Assembly.
 
-"This is easy to say. Director?"
+"These aren't the critical considerations. Administration Council approval today doesn't preclude future confrontations. The Administration Council ultimately answers to the Senator General Assembly. We'll continue briefing stakeholders. Premier Cheng instructed me before departure—wants us to expedite that Senator Foundation plan we discussed previously, letting those people understand backdoor immunity provisions were established early. Otherwise they'll perpetually feel a supervision organ targets them personally," Ai Zhixin said.
 
-"I talked with Ming Lang of Organization Division. He said no more position restrictions on Salina now. As long as she is willing she can serve. He will help us hand relevant documents to Salina personally for confirmation."
+"Easy enough to discuss. What about the Director position?"
 
-"You say will she accept?"
+"I spoke with Ming Lang from the Organization Division. He says no position restrictions apply to Salina now. If she's willing, she can serve. He'll personally deliver relevant documents to Salina for confirmation."
 
-"Why not?" Ai Zhixin asked back with assurance. "Being idle for so many years, now having a serious job able to exert talent, can she be unhappy?"
+"Do you think she'll accept?"
 
-"Hard to say, my Director Ai." Wang Qiyi shook head. "Why promoted her to General Guard Bureau Director initially? Plainly speaking wasn't it because she leaned on no side? Everyone felt safe. She leaves, swap who to be this guard? Even if she wants to come, above may not agree."
+"Why wouldn't she?" Ai Zhixin asked with evident confidence. "Idle for years, now offered serious employment deploying her talents—how could she be unhappy?"
 
-Ai Zhixin stunned for a while, said: "Talk later. Anyway I proposed the candidate. If they disagree, find another one. Someone must go up."
+"Difficult to predict, my Director Ai." Wang Qiyi shook his head. "Why was she promoted to General Guard Bureau Director initially? Bluntly speaking—wasn't it because she's aligned with no faction? Everyone felt secure. She departs—who replaces her as guard? Even if she wants the transfer, those above may not consent."
 
-Sure enough, this matter of Salina taking office had no follow-up after report went up. This Investigation Division temporarily had to be led by Wang Qiyi. The glorious task of this Guangzhou Number One Tax Case fell on his shoulders.
+Ai Zhixin paused, then said: "We'll address that later. Regardless, I've proposed the candidate. If they disagree, we'll find another. Someone must assume the position."
 
-Although with Wang Qiyi's depth, this case probably wasn't too complex. But his years of cultivation told him things wouldn't be so simple.
+Indeed, Salina's appointment generated no follow-up after the report's submission. The Investigation Division temporarily fell under Wang Qiyi's leadership. The glorious responsibility for Guangzhou's Number One Tax Case landed squarely on his shoulders.
 
-Since ancient times, using big cases to strike dissidents was a consistent method. The Senate naturally couldn't be exempt from vulgarity. Back then Mao Family case was used to strike a large batch of big households inside and outside city. Now Noble Gathering case, from grasped materials, might involve many gentry inside and outside Guangzhou city.
+Though Wang Qiyi's expertise suggested this case probably wasn't excessively complex, his years of experience warned him matters wouldn't prove so simple.
 
-Whether oneself should just do official business, or engage in wide implication. This depended on Grand Magistrate Liu and others' "Temple Calculation." Wang Qiyi pondered again and again, decided to meet Liu Xiang first, fully listening to his opinion.
+Since antiquity, employing major cases to strike dissidents had been consistent methodology. The Senate naturally couldn't transcend such vulgarities. The Mao Family case had eliminated numerous prominent households inside and outside the city. Now the Noble Gathering case—from gathered intelligence—might implicate many gentry throughout Guangzhou.
 
-"Help me appoint meeting with Mayor Liu, also Director Lin, Chief Mu." He said to Office Secretary. "Right, and Director Wu."
+Whether to simply conduct official business or pursue extensive implication depended on Grand Magistrate Liu and others' "Temple Calculations." Wang Qiyi deliberated extensively before deciding to meet Liu Xiang first, fully absorbing his perspective.
+
+"Arrange meetings with Mayor Liu, also Director Lin and Chief Mu," he instructed the Office Secretary. "Oh, and Director Wu as well."
+
+**(End of Chapter)**

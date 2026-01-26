@@ -1,87 +1,87 @@
 # Chapter 1983 - Yin-Yang Contract
 
-Although the Zhang Family Old Shop changed to "Zhang Family Old Shop Food Company" and bought another house, changing the "home and shop in one" state, centuries-old habits were not so easily changed. Zhang Yu's parents always felt uneasy not living in the shop. So the newly bought residence was just half an alley away from the old shop. Could be said to arrive upon lifting a leg.
+Though the Zhang Family Old Shop had rebranded as "Zhang Family Old Shop Food Company" and purchased a separate residence—ending centuries of "home and shop combined" living—old habits proved stubborn. Zhang Yu's parents remained uneasy without the shop's proximity. Their new house sat barely half an alley away, close enough to reach "upon lifting a leg," as the saying went.
 
-The new residence was larger and newer than the old one. Master Zhang was an old-school businessman. Although business grew, he didn't go for empty scenes. Besides more staff eating and sleeping at home and hiring two women for laundry and cooking, there was no other ostentation. Zhang Yu came back late, so he just made do with leftovers.
+The residence itself was larger and newer than their previous quarters. But Master Zhang remained an old-fashioned businessman at heart—even as prosperity grew, he disdained ostentation. Beyond hiring additional staff for lodging and meals, plus two women for laundry and cooking, the household maintained its modest character. When Zhang Yu returned late,  as he often did, leftover rice sufficed.
 
-It was already lit when Zeng Juan ran to the Zhang family. Zhang Yu had returned from outside the city and was eating dinner. Seeing Zeng Juan arrive, he was about to invite him to eat together.
+Lamps were already lit when Zeng Juan arrived at the Zhang residence that evening. Zhang Yu had just returned from outside the city walls and was settling into his dinner. Seeing his visitor, he immediately moved to invite him to the table.
 
-"No need," Zeng Juan burned with anxiety, "I ate. You eat quickly; I have things to ask you!"
+"No need," Zeng Juan cut him off, practically vibrating with urgency. "I've eaten. You finish quickly—I need to ask you about something important!"
 
-Zhang Yu was startled, not knowing what this "old friend" came to find him for so nervously. He suddenly remembered the counterfeit money encountered when paying the bill at the gathering a few days ago—could there be some trick inside? But that cashier himself said confiscating the fake money ended the matter.
+Zhang Yu startled, uncertain what could drive his "old friend" to such agitation. His mind jumped to the counterfeit bill incident from the Purple Light Pavilion gathering days ago—could there be some hidden complication? But the cashier had assured him that confiscating the fraudulent note concluded the matter.
 
-He stammered: "Ah Juan, is it about the fake money? I don't know where that fake money came from..."
+He stammered out the question. "Ah Juan, is this about the fake money? I truly don't know where that note came from..."
 
-Zeng Juan paused: "What fake money?"
+Zeng Juan blinked. "What fake money?"
 
-"Just last time we went to eat at Purple Light Pavilion..." He recounted the process once. "Is there some important procedure to handle?"
+"From the other day at Purple Light Pavilion..." Zhang Yu recounted the entire episode. "Is there some procedure I need to handle?"
 
-Hearing this, Zeng Juan sighed in relief: "Counterfeit currency is the Police Bureau's business. I'm talking about Tax! Tax!"
+Hearing this, Zeng Juan exhaled with relief. "Counterfeit currency falls under Police Bureau jurisdiction. I'm here about taxes! Taxes!"
 
-"What about tax again?" Hearing it wasn't about fake money, Zhang Yu sighed in relief. If it was a tax problem, he felt assured instead—he had long asked Zhang Ting and others to handle the second period tax payment, and relevant vouchers were brought back. He asked himself he had a clear conscience regarding tax, doing everything according to Australian rules item by item, not shorting the Tax Bureau a copper.
+"What about taxes?" The shift in topic reassured Zhang Yu considerably. If this concerned tax matters, he felt confident—he'd already instructed Zhang Ting and the others to handle the second quarter payments, and all relevant receipts had been properly filed. He'd maintained scrupulous compliance with Australian regulations, following every requirement to the letter. The Tax Bureau couldn't possibly find fault with his accounts.
 
-"We paid taxes on time and schedule? Tax declaration had no concealment either; you know all..."
+"We paid on time and in full. Our tax declarations concealed nothing—you know that yourself..."
 
-"I know! But today this is very suspicious; if not careful, your whole family might be dragged in!" Zeng Juan looked solemn. "You just eat. After eating, quickly bring account books and contract drafts for me to see!"
+"I know!" Zeng Juan's expression remained grave. "But what I uncovered today is deeply suspicious. If you're not careful, your entire family could be implicated!" He gestured sharply. "Just eat. When you're finished, bring me your account books and contract drafts immediately!"
 
-Seeing him speak seriously, Zhang Yu dared not delay. He hurriedly finished the meal in a few bites, then took him to the shop.
+The seriousness in his tone jolted Zhang Yu into action. He wolfed down the remaining food in hasty bites, then led Zeng Juan to the shop.
 
-Account books and contract drafts were in the accounting room. Now although the Zhang family split, setting up separate account books and cashiers, the accountant was still one—after all, not many accountants could use Australian bookkeeping. So account books and contract drafts of both companies were kept in the old shop's accounting room.
+The accounting room housed both ledgers and contract documents. Though the Zhang family businesses had split, establishing separate books and cashiers, they still shared a single accountant—trained professionals in Australian bookkeeping methods remained scarce. Consequently, records for both companies resided in the old shop's accounting office.
 
-"Bring out the contract draft of land trading between you and Noble Gathering, and all vouchers involving this item." Zeng Juan turned the kerosene lamp flame to maximum.
+"Bring out the contract draft for your land transaction with Noble Gathering," Zeng Juan instructed, turning the kerosene lamp to maximum brightness. "And all vouchers related to that purchase."
 
-Contract texts, relevant receipts, and account books were stored by category. Zhang Yu quickly found the desired file from the shelf—all organized neatly, labels pasted carefully with paste.
+Contract texts, receipts, and ledgers were organized by category. Zhang Yu quickly located the requested file from the shelves—everything neatly arranged, labels carefully affixed with paste.
 
-Zeng Juan looked through the draft Zhang Yu gave him, his face becoming uglier and uglier. Although the original land trading contract wasn't there, the final draft was enough. Zhang Yu watched him flip through page by page with a solemn expression, wondering why this brother demanded the land buying document from days ago urgently without even greeting upon meeting. He had paid full tax according to the trading amount on the document and pasted stamps; didn't miss anything.
+As Zeng Juan examined the draft, his expression grew increasingly dark. Though the original contract wasn't present, the final draft revealed enough. Zhang Yu watched his friend flip through the pages with mounting unease, wondering why he'd demand these documents so urgently without even a proper greeting. He'd paid full tax based on the documented transaction value and affixed all required stamps—nothing had been overlooked.
 
-After a long time, Zeng Juan finally spoke:
+Finally, after what felt like an eternity, Zeng Juan spoke.
 
-"Ah Yu, I ask you. So this land of the Luo family counts as given to you at fair price?"
+"Ah Yu. Tell me honestly—did the Luo family sell you this land at fair market price?"
 
-When Zeng Juan heard Zhang Yu say this land's asset registration was 300 yuan, he felt the matter was big.
+When Zhang Yu revealed the land's registered asset value was 300 yuan, Zeng Juan's heart sank.
 
-"Ah Juan, are you joking? Is Master Luo so easy to get along with? 300 yuan is on the surface; actually added 25% interest. This is relying on my hat of Senate Special Supplier; otherwise he wouldn't dare..."
+"Ah Juan, are you joking?" Zhang Yu's laugh held genuine incredulity. "Is Master Luo such an easy mark? The 300 yuan is the surface price—the actual terms include twenty-five percent interest. I only secured those terms by leveraging my status as Senate Special Supplier. Otherwise he wouldn't have dared..."
 
-"Confused! Confused! Zhang Yu, you are seeking death!" Zeng Juan slapped the table and jumped up. "This is a Yin-Yang Contract! Off-book accounts! Do you really think the Finance and Tax Bureau are all past clerks? Do you know according to collection and management norms, how to punish..."
+"Fool! Absolute fool!" Zeng Juan slammed his palm on the table and shot to his feet. "This is a yin-yang contract! Off-book accounts! Do you honestly think the Finance and Tax Bureau employs the same corrupt clerks as the old regime? Do you realize what penalties the collection and management regulations prescribe for this—"
 
-Zhang Yu was obviously scared by Zeng Juan's reaction, sitting there blankly watching him yelling, only reacting when hearing he would be punished.
+Zhang Yu visibly recoiled from the outburst, sitting frozen until the mention of punishment finally penetrated his shock.
 
-"Ah Juan, Ah Juan, listen to me, listen to me!" Zhang Yu pushed Zeng Juan forcefully onto the chair, moved a small stool to sit close himself, then handed the cup to Zeng Juan. Seeing him drink water and calm down a bit, he started speaking.
+"Ah Juan, Ah Juan, please—let me explain!" Zhang Yu forcibly pushed his friend back into the chair, then dragged a small stool close and pressed a teacup into his hands. Once Zeng Juan had drunk and calmed somewhat, he continued. "Of course I wouldn't engage in such schemes. We're all Senate people—do you think I don't understand basic propriety? Master Luo and I made a separate arrangement for that twenty-five percent. No cash changes hands. You know my Great World shop is operating at full capacity producing military rations. Only this old shop can manufacture those Australian delicacies—'Cookies,' 'Cakes,' and such. Demand far exceeds our production. Master Luo targeted precisely that product line from this old shop. He provided me a list of establishments, requesting regular-price supply to those shops to offset the payment. Nothing improper in that arrangement, surely?" Zhang Yu raised his eyes hopefully.
 
-"Of course I wouldn't do that. We are all Senate people; can we not understand this bit? Master Luo and I made another deal, that is, for this 25%, no cash given. You know, my Great World shop is going all out to make military rations. Only this old shop can make those 'Cookies,' 'Cakes' and such Australian dim sum originally; can't make enough to sell at all. This Master Luo aimed at the Australian dim sum in this old shop. He gave me a list, saying supply goods to the shops above at regular prices to offset payment. This has nothing improper, right." Zhang Yu lifted his eyes looking at Zeng Juan.
+"Seems... not..." Zeng Juan sensed something amiss but couldn't quite articulate it. "You have a contract for this as well?"
 
-"Seems... no..." Zeng Juan felt something was wrong somewhere but couldn't pinpoint it. "There is also a contract?"
+"Naturally." Zhang Yu thumped his chest with confidence. "My father's contract was also my work. If you need to examine it, I can retrieve it. But the contract isn't with Master Luo—it's with each individual shop."
 
-"Of course," Zhang Yu patted his chest loudly. "My old man's contract was also made by me. If you want to see, I can get it. But the contract isn't with Master Luo, but with each shop."
+"With each shop?"
 
-"Hmm? With each shop?"
+"Correct. The ones the old shop supplies—we signed separate documents with each establishment. Master Luo insisted on this arrangement. He even reduced the interest by half a percent. As the buyer, I could hardly object." Seeing Zeng Juan's face begin to redden again, Zhang Yu hastily added, "Ah Juan, rest assured—all those documents bear proper stamps! Not a cent less in Senate taxes." He rose to fetch the contracts and tax receipts.
 
-"Yes, the ones the old shop supplies. Sign a document with each one. Master Luo insisted on doing this. Besides, he yielded half a percent interest. Being the buyer I could only comply." Seeing Zeng Juan about to flare up again, Zhang Yu hurriedly declared, "Ah Juan, rest assured, these documents all have sufficient stamps pasted! Not a cent less of Senate tax." Saying so, he simply got up to find contracts and tax receipts.
+"Only stamp taxes?" Zeng Juan examined the documents Zhang Yu retrieved.
 
-"Only stamps?" Zeng Juan flipped through the brought contracts and tax receipts.
+"Of course? What else would there be?" Zhang Yu looked genuinely confused. "Land purchases only require Stamp Tax, don't they?"
 
-"Yeah? What else do you want?" Zhang Yu looked blank. "Buying land doesn't only have Stamp Tax?"
+"But you're supplying goods to shops—that constitutes sales activity. Where's the Circulation Tax?"
 
-"But you supplied goods to shops; this is sales behavior. No Circulation Tax?"
+"Ah Juan, what are you saying!" The suggestion that he should pay Circulation Tax on the land purchase clearly rankled. "I'm the buyer—the *buyer*! My goods offset the payment; they're not sold for profit. Whoever profits pays tax. Master Luo selling the land should pay tax on this transaction. What logic demands the land buyer pay as well? Besides..." Seeing Zeng Juan prepare to argue, Zhang Yu snatched the contract back and jabbed at specific clauses. "Look carefully. This document contains not a single phrase indicating my goods are sold for money. Even if you wanted to collect my tax, on what basis?"
 
-"Ah Juan, what are you doing!" Hearing buying land required paying Circulation Tax himself, Zhang Yu immediately became unhappy. "I am the Buyer, Buyer! My family's goods are for offsetting payment, not selling. Whoever makes money pays tax. Master Luo selling land should pay tax on this deal. Where is the logic for me, the land buyer, to pay tax? Besides..." Seeing Zeng Juan about to refute, Zhang Yu snatched the contract and pointed out item by item to him. "Ah Juan, look carefully. On this document, not a single clause says my family's goods are sold for money. Even if you want to collect my tax, collect based on what?"
+Zeng Juan took the contract and read each clause with painstaking attention. The document stipulated Zhang Family Old Shop's supply quantities, timing, frequency, quality standards—but indeed, not one sentence referenced pricing or payment offset. Truly cunning work. Under the glow of the Australian oil lamp, Zhang Yu's unconvinced expression gave Zeng Juan pause. He wasn't certain whether his silent curse targeted Master Luo or his friend.
 
-Zeng Juan took the contract and read carefully item by item again, finding the whole contract only stipulated Zhang Family Old Shop's supply quantity, times, frequency, quality, etc. Indeed not a sentence mentioned price or offsetting payment meanings. Truly cunning. Looking at Zhang Yu with an unconvinced face under the Australian oil lamp, Zeng Juan wasn't sure if he was cursing Master Luo or this brother of his.
+But friendship demanded honesty. Zeng Juan felt obligated to explain the situation properly. In truth, Master Luo had executed this scheme with considerable brilliance. Under the old system, such arrangements would certainly have passed undetected, convenient for all parties. Small wonder Zhang Yu had missed the trap—when it came to financial manipulation, who could match the cunning of accountants serving wealthy households?
 
-But his brother was his brother after all. Zeng Juan felt he should explain clearly to Zhang Yu properly. Speaking of which, Master Luo indeed did this quite brilliantly. In the past, that would definitely fool through and be convenient for both parties. It was normal for Zhang Yu to get confused—when it comes to money tricks, who can be shrewder than those money dogs under big households!
+Yet Zeng Juan knew Director Ai was looking to "catch a chicken" for the Inspection Bureau to practice on. Given his understanding of the Senate's methods, matters had progressed too far—with documentation this concrete, even if Zeng Juan didn't report it, subsequent audits would inevitably ensnare Zhang Yu. The recognition settled his nerves somewhat. He took a long draught of water, soothing his anxiety-parched throat, before speaking slowly. "Ah Yu, if you consider me your brother, don't hide anything. Whose idea was this arrangement?"
 
-But he, Zeng Juan, knew Director Ai was thinking about catching a chicken for the Inspection Bureau to practice hands. With Zeng Juan's understanding of the Senate, things reached this stage, documents concrete; even if he didn't report, follow-up checks would definitely send Zhang Yu in very quickly. Thinking of this layer, he settled his heart instead. He drank a big mouthful like an ox, moistening the throat dry from anxiety just now, before slowly starting to speak to Zhang Yu: "Ah Yu, if you treat me as a brother, don't hide from me. Whose idea is this?"
+"Ah Juan, you know my family's background—small business, barely keeping our heads above water. Where would we acquire such sophistication? This was all arranged by Noble Gathering's accountant, Advisor Liao. Why—is there a problem?" Zeng Juan's change in tone made Zhang Yu distinctly nervous.
 
-"Ah Juan, you know my family's background. Small business where water doesn't cover instep; where do we have this ability. This was done by Master Luo family's accountant, Advisor Liao. Why, problem?" Seeing Zeng Juan change tone, Zhang Yu felt uneasy instead.
+"Finance and Tax Bureau regulations: income from transactions conducted at prices obviously below fair market value cannot be used as the tax basis. Your old shop providing goods without charge still constitutes sales and should be taxed  based on prevailing market prices..."
 
-"Finance and Tax Bureau regulations: income from transactions you make at obviously lower than fair market prices cannot be used as tax basis. The old shop providing goods free is still deemed sales, should levy tax based on general market price as tax basis..."
+"No, no, Ah Juan, listen—I'm buying land. The old shop's goods represent the interest payment. I truly receive not a penny for those supplies. The one profiting is Noble Gathering... Did he set me up?!"
 
-"No, no, Ah Juan listen to me. I am buying land. The old shop's goods are the interest there. I really don't receive a penny for supply. The one making money is Noble Gathering... He calculated me?!!"
+"Not exactly..." Zeng Juan doubted Luo Zhixiang would dare deliberately trap someone bearing the Senate Special Supplier designation. Besides, the offense's exact nature remained undetermined—no need to terrify his friend excessively. "He signed separate documents purely to reduce expenses, pay less tax. An old trick!"
 
-"Not exactly..." Zeng Juan felt Luo Zhixiang shouldn't have such big guts to deliberately calculate Zhang Yu who wore the Senate Special Supplier hat. Besides, the nature of this matter wasn't determined; no need to scare his old friend too much. "He signed documents separately just to save money, pay less tax. Old routine!"
+Zeng Juan had studied the *Ming Dynasty Tax Data Compilation* in the Finance and Tax Bureau library and listened to veteran clerks reminisce. He recognized this as the customary yin-yang contract scheme. That Luo Zhixiang had listed the transaction at parity value actually showed considerable respect for the Senate—traditional Ming practice would consider one-tenth the actual price generous in a contract.
 
-Zeng Juan had read the Ming Dynasty Tax Data Compilation in the Finance and Tax Bureau library and listened to old clerks in the division brag. He knew this was the customary Yin-Yang Contract. This time Luo Zhixiang trading at parity in the contract was already giving enough face to the Senate. According to Great Ming custom, having one-tenth in contract price would be very good.
+"Then what do I do?" Zhang Yu's panic was palpable. Just days ago he'd pledged absolute loyalty to the Senate—sworn to be their faithful running dog, though he'd phrased it more diplomatically as "subject." Now here he was, unwittingly undermining Senate finances. Losing money on back taxes was negligible; forfeiting the Senators' trust could destroy everything. Zhang Yu's entire fortune depended on that relationship.
 
-"Then what to do?" Zhang Yu panicked upon hearing. Two days ago he vowed to be a loyal running dog, oh no, subject of the Senate. Today he was digging the Senate's wall corner. Paying tax and losing money was small; losing Senators' trust was huge. Zhang Yu's life and fortune all depended on this.
+*What to do indeed?* On the surface, Luo Zhixiang's intent was straightforward tax evasion through separated contracts—a tactic rendered useless under Senate governance. But in practical terms, because Zhang Yu's family had registered the new and old shops separately, the current fiscal system actually complicated matters in his favor. If the two shops shared ownership, Zeng Juan reflected, they could simply attach the old shop's contract as an appendix to the primary document. Combining them would barely qualify as market-price trading—at worst, the old shop's transaction price could be deemed inadequately specified. But Zhang Family's two establishments didn't even share the same legal representative. Zhang Yu, in his scrupulous honesty, had let his father sign and seal the old shop's contract. That avenue was closed.
 
-What to do? On the surface, Luo Zhixiang intended to evade tax by establishing contracts separately. This routine was useless under Senate rule. In actual operation, because Zhang Yu's family registered new and old shops separately, under current fiscal system, he pitied Zhang Yu along. According to Zeng Juan's thought, if Zhang Yu's two shops weren't registered separately, then attaching the old shop's contract as an appendix would be fine. Merging the two could barely explain as trading at market price; at most count as old shop transaction price not clearly agreed. Now Zhang Family's two shops didn't even have the same legal person. Zhang Yu was very honest to let his old dad sign and seal the old shop contract. This trick couldn't be played.
+**(End of Chapter)**

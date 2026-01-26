@@ -6,11 +6,11 @@ Then he said, "If each switch is a proposition—closed is 'true,' open is 'fals
 
 "Yuzhi, what kind of circuit is this? I explained it to you last time."
 
-Qian Yuzhi scratched his head and answered, "A series circuit."
+Qian Yuzhi scratched his head. "A series circuit."
 
 "Good, now modify this circuit so that 'the bulb lights when either switch is closed.'" Feng Nuo continued.
 
-Qian Yuzhi thought for a moment, removed both switches from the circuit, connected the two ends of both switches together with wires, then connected them to the light bulb and battery circuit. Then he spoke up: "Connecting the two switches in parallel achieves this effect."
+Qian Yuzhi thought for a moment, removed both switches from the circuit, connected the two ends of both switches together with wires, then connected them to the light bulb and battery circuit. "Connecting the two switches in parallel achieves this effect."
 
 "The two switches now have an 'OR' relationship!" Li Jianai chimed in eagerly.
 
@@ -24,9 +24,9 @@ Qian Yuzhi thought for a moment, removed both switches from the circuit, connect
 
 "I see! So if we add several more rollers to each reading unit and connect them in parallel, we can control the relay to push out cards where any one of those holes is punched—equivalent to the 'OR' of the simple propositions represented by multiple hole positions!" Qian Yuzhi seemed to have discovered a new world and spoke happily.
 
-"Exactly. Tomorrow we'll modify it this way—install 10 rollers on each reading unit, connected in series with each other." Feng Nuo was quite satisfied. Qian Yuzhi seemed to have had quite an awakening recently.
+"Exactly. Tomorrow we'll modify it this way—install ten rollers on each reading unit, connected in series with each other." Feng Nuo was quite satisfied. Qian Yuzhi seemed to have had quite an awakening recently.
 
-This way, as long as the query problem could be expressed as a disjunctive normal form with "no more than 10 conjunctive terms, and each conjunctive term containing no more than 10 simple propositions," the sorting machine could handle it—much more powerful functionality than before.
+This way, as long as the query problem could be expressed as a disjunctive normal form with "no more than ten conjunctive terms, and each conjunctive term containing no more than ten simple propositions," the sorting machine could handle it—vastly more powerful functionality than before.
 
 He glanced at his watch. It was almost dinner time.
 
@@ -40,17 +40,19 @@ He glanced at his watch. It was almost dinner time.
 
 Feng Nuo's gaze swept over his three students below. Seeing their expectant eyes, a radiant smile appeared at the corners of his mouth. He turned around and wrote a line at the top of the blackboard.
 
-"There are 10 kinds of people in the world: those who understand binary, and those who don't."
+**"There are 10 kinds of people in the world: those who understand binary, and those who don't."**
+
+---
 
 A few days later, the machinery factory's conference hall was abuzz with voices. This was where the Industrial Sector held its regular meetings, and the Planning Commission had organized a symposium on the punch card computer system here—essentially a briefing session. The purpose was to introduce the system's functions to the ministries and commissions under the State Council as well as powerful departments, so that each unit could go back, study the matter, propose specific application requirements, and then consider procurement plans.
 
-The Executive Committee had an extremely urgent need for data collection, management, and utilization, so once the meeting notice went out, transmigrators and high-level naturalized citizens from many departments attended the briefing, including the Planning Commission itself, as well as Land Administration, Civil Affairs, Finance, Taxation, Audit, Police, Finance, Political Security, and the Fubo Army.
+The Executive Committee harbored an extremely urgent need for data collection, management, and utilization, so once the meeting notice went out, transmigrators and high-level naturalized citizens from many departments attended the briefing, including the Planning Commission itself, as well as Land Administration, Civil Affairs, Finance, Taxation, Audit, Police, Finance, Political Security, and the Fubo Army.
 
-Although Ma Qianzhu was the main leader pushing this project, he didn't attend in person and just sent a congratulatory letter. The Executive Committee's meeting style was very concise. Wu De, who was presiding over the briefing, used just one minute to briefly introduce the project's background and progress, then let Feng Nuo take the stage to explain the entire system and answer questions.
+Although Ma Qianzhu was the main leader pushing this project, he didn't attend in person and merely sent a congratulatory letter. The Executive Committee's meeting style was very concise. Wu De, presiding over the briefing, used just one minute to briefly introduce the project's background and progress, then let Feng Nuo take the stage to explain the entire system and answer questions.
 
 At this moment, Feng Nuo was overwhelmed with emotion, his eyes stinging slightly. Unlike the "fishing" he had originally envisioned, he had crossed multiple disciplines to personally create this machine with his own hands—it felt like his own child.
 
-The punch card computer system had never been domestically produced or imitated in the old timeline China, and Chinese-language materials were extremely scarce. Abroad too, only a handful of manufacturers like IBM existed, and users tended to be large enterprises and government agencies, so not much information had been made public. Its principles and design were scattered piecemeal across various documents—in fact, there was no complete documentation available for copying or imitation.
+The punch card computer system had never been domestically produced or imitated in old timeline China, and Chinese-language materials were extremely scarce. Abroad too, only a handful of manufacturers like IBM existed, and users tended to be large enterprises and government agencies, so not much information had been made public. Its principles and design were scattered piecemeal across various documents—in fact, there was no complete documentation available for copying or imitation.
 
 To design this system, the project team had searched through virtually all electronic materials in the Grand Library, finding every piece of information related to this primitive computer—even if just a few words—and reorganized and combined them. The reference booklets compiled from these materials alone would stack to eye level.
 
@@ -64,9 +66,11 @@ Thinking of this, Feng Nuo's heart surged, and he nearly shed tears.
 
 He collected himself, walked to the speaker's position, and began introducing the functions and performance parameters of each component of the punch card computer system...
 
+---
+
 At the back of the hall, Li Jianai quietly slipped out—it was once again time for her regular contact.
 
-She felt somewhat strange. Jia Ben was clearly at a workshop not far away, yet each time she still had to go to a specific contact point. "It's going to be quite odd if it's always like this," she thought to herself, not noticing that the "organization" arranging two "hidden assets" in such a small area was itself quite strange.
+She felt somewhat strange. Jia Ben was clearly at a workshop not far away, yet each time she still had to go to a specific contact point. *It's going to be quite odd if it's always like this*, she thought to herself, not noticing that the "organization" arranging two "hidden assets" in such a small area was itself quite strange.
 
 "You've done good work this past year. Keep up the effort." This was Jia Ben's first sentence after they met.
 
@@ -93,3 +97,5 @@ Li Jianai's face reddened further, but she still didn't answer, stubbornly looki
 Jia Ben felt somewhat helpless. He stuffed the envelope into his pocket. "Alright, by the rules, you have this right. However, you should know that given your status, even though that Qian Yuzhi kid is a martyr's dependent and has a pretty high political rating, getting this application approved will take a very long time."
 
 "Thank you." Li Jianai's voice was as soft as a mosquito's. "It's alright. I'm willing to wait."
+
+**(End of Chapter)**

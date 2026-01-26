@@ -1,99 +1,101 @@
 # Chapter 1980 - Small Reunion
 
-After three rounds of wine, the few were slightly tipsy.
+After three rounds of wine, the group was slightly tipsy.
 
-"Ah Xin," Zhang Yu raised his cup, "I must toast you this cup. Without your recommendation back then, let alone my shop growing so big, I fear it wouldn't have survived a year."
+"Ah Xin." Zhang Yu raised his cup. "I must toast you this cup. Without your recommendation back then, forget my shop growing this large—I fear it wouldn't have survived a year."
 
-Everyone agreed loudly. Zeng Juan said: "Without Ah Xin recommending Ah Yu back then, perhaps our fortunes would be different from today, and we probably couldn't gather here like today. These two words 'Fortune' are truly wonderful beyond words..."
+Everyone voiced loud agreement. Zeng Juan said, "Without Ah Xin recommending Ah Yu back then, perhaps our fortunes would differ vastly from today, and we likely couldn't gather here as we do now. These two characters 'Fortune' are genuinely wonderful beyond articulation..."
 
-Hearing him say this, everyone felt the same. The experiences of the four in this past year seemed related to Chen Shixin being appreciated by Chief Hong initially.
+Hearing this, everyone felt the same. The four's experiences over this past year seemed intimately connected to Chen Shixin initially gaining Chief Hong's appreciation.
 
-"Ah Yu, you exaggerate. We are brothers. Besides, if your family's walnut cakes didn't catch Senator Hong's eye, my recommendation would be useless..."
+"Ah Yu, you exaggerate. We're brothers. Besides, if your family's walnut cakes hadn't caught Senator Hong's notice, my recommendation would have been useless..."
 
-"In my opinion, since we four are brothers, we should do what brothers should do. Things we can do, we do naturally without you asking. Things we can't do, not only we don't do, but also persuade you not to do. What need for so much nonsense, drink this cup!"
+"In my assessment, since we four are brothers, we should act as brothers ought. Things we can accomplish, we do naturally without being asked. Things we cannot accomplish, not only do we refrain, but we also persuade you against attempting. What need for such elaborate discourse? Drink this cup!"
 
-"Ziyu is right, cheers!"
+"Ziyu speaks correctly. Cheers!"
 
 "Cheers!"
 
-After recounting old friendship, gossip hearts inevitably surged. Zhang Yu knew early on that Li Ziyu and Dong Mingdang had some small ambiguity, so he teased:
+After reminiscing about old bonds, gossip instincts inevitably surged. Zhang Yu knew from early on that Li Ziyu and Dong Mingdang shared some minor ambiguity, so he teased:
 
-"Eh? Ziyu, heard you have quite deep friendship with that Miss Dong—"
+"Eh? Ziyu, I heard you maintain quite deep friendship with that Miss Dong—"
 
-"Which Miss Dong?" Li Ziyu played dumb. Actually, he didn't like others mentioning this matter.
+"Which Miss Dong?" Li Ziyu feigned ignorance. Actually, he disliked others raising this matter.
 
-Dong Mingdang was indeed beautiful as a flower, but this flower wasn't for ordinary people to pick. Having contacted Miss Dong for a long time, he understood quite well. Moreover, her hat of "Former Ming Prefect's Daughter" was certainly beneficial for her business, but for him, a "Senate Cadre," it was another matter.
+Dong Mingdang was indeed beautiful as a flower, but this flower wasn't meant for ordinary people to pluck. Having interacted with Miss Dong extensively, he understood quite clearly. Moreover, her designation as "Former Ming Prefect's Daughter" was certainly advantageous for her commerce, but for him, a "Senate Cadre," it constituted an entirely different matter.
 
-"Just pretend. It's that one from former Prefect Dong's family. Don't you like to wander around her shop entrance when free? Just us brothers here, what are you afraid of? Speak openly."
+"Stop pretending. That one from former Prefect Dong's household. Don't you habitually wander around her shop entrance when free? It's only us brothers here—what are you afraid of? Speak candidly."
 
-"No, no. Looking after her shop initially was just a favor along the current: her shop is in my jurisdiction, passing by every day..."
+"No, no. Watching over her shop initially was merely convenient duty—her shop falls within my jurisdiction. I pass by daily..."
 
-Everyone laughed and said they didn't believe it, insisting Li Ziyu "confess honestly." Making Li Ziyu unable to parry, he hurriedly begged for mercy: "Aye aye aye, brothers spare this old brother. Can we talk about something else?"
+Everyone laughed and declared disbelief, insisting Li Ziyu "confess honestly," rendering Li Ziyu unable to parry, forcing him to beg for mercy. "Aye, aye, aye, brothers spare this old brother. Can we discuss something else?"
 
 "No!" Everyone spoke in unison.
 
-With no other choice, Li Ziyu had to say seriously: "Brothers, Miss Dong is a good girl, upright, good-looking, and capable. But I'll also say a heartfelt word between brothers: she is not a creature of the pond. I can't hold her, nor dare to hold her!" Seeing the brothers didn't quite understand, he chuckled, "Besides, she is after all a daughter of a former Ming Prefect, not on the same path as us."
+With no alternative, Li Ziyu had to respond earnestly. "Brothers, Miss Dong is an excellent woman—upright, attractive, and capable. But I'll also voice a heartfelt sentiment between brothers: she's not a creature of the pond. I cannot hold her, nor dare I attempt!" Seeing the brothers didn't quite comprehend, he chuckled. "Besides, she remains ultimately a daughter of a former Ming Prefect—not on the same path as us."
 
-Chen Shixin understood immediately and hurriedly changed the topic: "Ziyu makes sense! Ah Yu. I heard you split family with the old master?"
+Chen Shixin understood immediately and hastily changed subjects. "Ziyu makes sense! Ah Yu, I heard you formally split the family with the old master?"
 
-"Correct. The old shop in the city was given to my old man." Zhang Yu nodded. "This time it's a complete split. Even accounts and business licenses are opened independently, just using the same brand name—even specially signed a brand trademark authorization agreement."
+"Correct. The old shop in the city was transferred to my father." Zhang Yu nodded. "This time it's a complete division. Even accounts and business licenses were opened independently, merely using the same brand name—we even specially signed a brand trademark authorization agreement."
 
-"Why is this? If you want to be the head, the old man definitely won't stop you. The shop is fine; why split family—causing a stir outside."
+"Why this? If you desired to be household head, the old man definitely wouldn't obstruct you. The shop functioned fine. Why split the family—causing commotion outside?"
 
-"Ah Juan's idea. He told me this is a matter of time—has benefits, no harm."
+"Ah Juan's idea. He informed me this was inevitable—beneficial, no harm."
 
-Zeng Juan nodded, putting down the wine glass: "When I was training in the Finance and Tax Bureau, the Australian Chief, Director Zhang, talked about tax items. Like now, it's unreasonable for Ah Yu's business and my family's incense shop to pay tax at one ratio. In the future, tax items will definitely be determined according to different industries with different tax rates. I asked Chief Zhang then: if a shop does many businesses simultaneously, like Ah Yu's family, now besides food also doing high-end gifts and supplying military rations, how to calculate. She said separate accounting would do. Looking back, I pondered it wouldn't work. With our current accounting and management ability, how can we separate? Later once I followed Director Wang on inspection and asked him. He said what's difficult about this; if can't separate, levy from the high..."
+Zeng Juan nodded, setting down his wine glass. "When I trained at the Finance and Tax Bureau, the Australian Chief, Director Zhang, discussed tax categories. Like presently, it's unreasonable for Ah Yu's business and my family's incense shop to pay taxes at identical ratios. In the future, tax categories will definitely be determined according to different industries with varying tax rates. I asked Chief Zhang then: if a shop conducts multiple businesses simultaneously, like Ah Yu's family—now besides food also handling premium gifts and supplying military rations—how to calculate? She said separate accounting would suffice. Reflecting later, I pondered it wouldn't function. With our current accounting and management capacity, how can we separate? Later once I accompanied Director Wang on inspection and posed the question to him. He said what's difficult about this—if unable to separate, levy from the higher..."
 
-"Speaking of ways to make money, Chiefs are indeed steady, accurate, and ruthless."
+"Discussing revenue extraction methods, Chiefs are truly steady, accurate, and ruthless."
 
-"Chief Zhang also cited an Australian example called something like 'Cold Rice Affair Subject Body Flavor' [Laissez-faire/Transfer Pricing? - likely misheard/mistranslated phrase by character]. I heard it sounded like this Purple Light Pavilion, but things sold inside are separated from other enjoyments because tax on selling things is cheap. So I figured some things of Ah Yu's family should be left to the old shop, and the new shop in Great World should simply do new business. This way isn't it clear? Also heard in Australia, wanting to pay less tax requires not only clear accounts but also independent accounting shops, because the book said Australian local governments often give subsidies to stores paying tax locally to attract everyone to do business. Think about this Guangzhou, Great World was built by the Senate brick by brick; can they not give something later? If you are one family with the old shop in the city, fear you won't meet standards. Chiefs can't let you take money here to subsidize shops in the city. Anyway, splitting has no harm but likely benefits."
+"Chief Zhang also cited an Australian example called something like—" Zeng Juan fumbled for the term. "I heard it involved this sort of Purple Light Pavilion arrangement, but merchandise sold inside separated from other services because tax on selling goods is cheaper. So I calculated some of Ah Yu's family operations should remain with the old shop, while the new shop at Great World should purely pursue new business. This way isn't it transparent? Also heard in Australia, desiring reduced taxes requires not merely clear accounts but also independent accounting establishments, because the ledger indicated Australian local governments frequently provide subsidies to stores paying taxes locally to attract commerce. Consider this Guangzhou—Great World was constructed by the Senate brick by brick. Can they not provide incentives later? If you remain unified with the old city shop, I fear you won't meet criteria. Chiefs can't permit you taking funds here to subsidize shops in the city. Regardless, splitting carries no disadvantages but probable benefits."
 
-"Ah Yu can split then; it's still timely. Why so early?"
+"If Ah Yu can split, it's still timely. Why so early?"
 
-"Early? Not early. What does our Finance and Tax Bureau do? In Chief Wang's words, we are money grabbers. When Chiefs really make you split... we are all people who know the Senate, hmm? Need I say more?"
+"Early? Not early. What does our Finance and Tax Bureau do? In Chief Wang's words, we're money collectors. When Chiefs genuinely mandate your separation... we all comprehend the Senate, hmm? Need I elaborate further?"
 
-"Haha, understood, understood. Ah Juan, you must be careful; don't say such words again."
+"Haha, understood, understood. Ah Juan, exercise caution—don't voice such statements again."
 
-"Understood. I only say this among us brothers; definitely won't speak recklessly outside."
+"Understood. I only speak thus among us brothers. Definitely won't speak recklessly outside."
 
-Everyone nodded, indicating they wouldn't speak casually either.
+Everyone nodded, indicating they wouldn't speak carelessly either.
 
-"Ah Yu, I heard the things used in your shop, the secret methods used, are all given by Chiefs?"
+"Ah Yu, I heard the items utilized in your shop, the proprietary methods employed, are all provided by Chiefs?"
 
-"Yes, all are. Those secret method booklets are beautiful like real things. Have you seen them? Shixin?"
+"Yes, entirely. Those proprietary method manuals are exquisite like authentic artifacts. Have you seen them? Shixin?"
 
-"Seen... Some simple drawings in these manuals were drawn by me..."
+"Seen... Some simple illustrations in these manuals were drawn by me..."
 
-"Truly amazing!"
+"Genuinely remarkable!"
 
-"Actually nothing much. I was an assistant, drawing some simple things; teachers drew complex fine ones. Sometimes doing color drafts, I just filled colors or something. There were a few foreigners, they drew truly well! Even Chiefs said good. But when it came to printing small booklets in batches, foreigners looked at the printing house and clicked tongues in wonder too."
+"Actually nothing extraordinary. I served as assistant, drawing simple elements. Teachers drew complex refined ones. Sometimes producing color drafts, I merely filled colors or similar tasks. There were several foreigners—they drew truly magnificently! Even Chiefs praised them. But when it came to printing small manuals in batches, foreigners observed the printing facility and clicked their tongues in amazement too."
 
-"Sigh... What do you say Chiefs are after? These secret methods, whether painting or making food, which isn't a craft to settle down and get on with life? Giving to us just like that, not even asking for money. Two days back I went to the Dong Family Shop..."
+"Sigh... What do you suppose Chiefs pursue? These proprietary methods, whether painting or food preparation—which isn't a craft to establish livelihood and advance in life? Giving to us just like that, not even requesting payment. Two days past I visited the Dong Family Shop..."
 
 "Whoa..."
 
-"Shut up! Talking business. The shop changed greatly, added several kinds of food, heard all from that whatever Chief. Ah Juan, what's your female Chief's surname?"
+"Shut up! Discussing business. The shop transformed dramatically, added several food varieties—heard all from that particular Chief. Ah Juan, what's your female Chief's surname?"
 
 "Zhang."
 
-"Right, heard all taught hand-in-hand by that Chief Zhang. Afterwards, she even taste-tested herself and planned improvements with Miss Dong. Truly unexpected, unexpected. What do you say she is after?"
+"Correct. Heard all taught personally by that Chief Zhang. Afterwards, she even taste-tested herself and strategized improvements with Miss Dong. Genuinely unexpected, unexpected. What do you suppose she pursues?"
 
-"After happiness, I guess. What do Chiefs not know? What can't they do? Need to bicker with us mortals? What leaks from their fingers is enough for us to eat for a lifetime. Ziyu, you better care if Ah Yu expanding business scope will squeeze Miss Dong's shop to close."
+"Pursues satisfaction, I'd guess. What don't Chiefs comprehend? What can't they accomplish? Need to compete with us mortals? What leaks from their fingers suffices for us to consume lifetimes. Ziyu, you'd better concern yourself whether Ah Yu expanding business scope will squeeze Miss Dong's shop into closure."
 
-"How could it be, how could it be." Zhang Yu was already somewhat drunk, waving hands repeatedly. "Speaking of this matter, I really want to hear brothers' views."
+"How could that be, how could that be." Zhang Yu was already somewhat intoxicated, waving hands repeatedly. "Speaking of this matter, I genuinely desire hearing brothers' assessments."
 
-Zhang Yu's earliest plan for his own shop was to leverage the Australians' momentum to expand walnut cakes, learn ancestral skills from his old man to stabilize family business. Who knew with "thermometors," "test papers," and other fresh gadgets provided by Chief Hong, Zhang Yu found as long as using these Australian tools and comparing with those Saracen numbers, even without learning skills from the old man, he could make food not inferior at all, even ensuring taste wasn't off by a hair no matter how much made—note that even the old man himself would miss once every few days. Later Zhang Yu opened a new shop in Great World and luckily received partial South China Army military supply orders. Looking at the volume of thousands and tens of thousands on the order, Zhang Yu's chin almost dropped. Even without eating, drinking, or resting, this couldn't be finished. Fortunately, coming with orders were various strange-shaped Australian machines and thicker "Australian Secret Method" books. Under the guidance of technicians from Lingao, individual rations on the semi-mechanical assembly line were like endless rivers; even Zhang Yu who boasted of mastering Banditology was dumbfounded. Since then, Zhang Yu became a fanatic believer in "Technology Omnipotence."
+Zhang Yu's earliest plan for his own shop had been leveraging the Australians' momentum to expand walnut cake production, learning ancestral skills from his father to stabilize family enterprise. Who anticipated that with "thermometers," "test papers," and other novel implements provided by Chief Hong, Zhang Yu discovered that as long as employing these Australian tools and comparing with those Arabic numerals, even without learning skills from the old man, he could produce food not inferior whatsoever, even ensuring taste didn't deviate by a hair regardless of volume produced—note that even the old man himself would err once every few days. Later Zhang Yu opened the new shop at Great World and fortunately received partial South China Army military supply orders. Observing the volumes of thousands and tens of thousands on orders, Zhang Yu's jaw nearly dropped. Even without eating, drinking, or resting, this couldn't be completed. Fortunately, accompanying the orders came various oddly-shaped Australian machines and thicker "Australian Proprietary Method" books. Under technicians' guidance from Lingao, individual rations on semi-mechanical assembly lines flowed like unceasing rivers. Even Zhang Yu, who boasted mastering "Banditology," was dumbfounded. Since then, Zhang Yu became a fanatic believer in "Technology Omnipotence."
 
 "I plan to mortgage the old shop, new shop, plus residence to Delong for a loan..."
 
-"Ah Yu, are you crazy? How long has your family lived a stable life, taking this risk!" For these urban petit bourgeois, "loan" had immense risk—commercial loans in medieval times were invariably usury. Sixty percent annual interest plus various weird exploitation means; debt meant a precursor to "family ruin and death."
+"Ah Yu, have you lost your mind? How long has your family enjoyed stability—taking this risk!" For these urban petty bourgeois, "loans" carried immense peril. Commercial loans in medieval times invariably constituted usury—sixty percent annual interest plus various bizarre exploitation mechanisms. Debt signified a precursor to "family ruin and death."
 
-"Exactly, what business needs you to bet your entire family fortune?"
+"Precisely! What business requires you wagering your entire family fortune?"
 
-"Brothers, let me speak slowly—First, this loan follows Australian rules, annual interest 1.2 fen [12%?], no rule of interest rolling on interest; second, I plan to use this money to buy land to build a factory, right behind Great World, buying in while land price hasn't risen yet. Third is to order more machines from Lingao."
+"Brothers, permit me to explain slowly. First, this loan follows Australian regulations—annual interest twelve percent, no compounding interest rule. Second, I plan utilizing these funds to purchase land constructing a factory, immediately behind Great World, acquiring while land prices haven't risen yet. Third is ordering additional machines from Lingao."
 
-"Opening a big factory to make food, can you sell it all? Are there so many people to eat?"
+"Opening a substantial factory producing food—can you sell it all? Are there sufficient people to consume it?"
 
-"Ah Juan, why do ordinary families buy little or none? Things are expensive, people poor. Take my walnut cake; ordinary commoners in Guangzhou city can't afford it! At least families with some spare money who can afford teahouses eat it. Now the Senate liberated Guangzhou. Look at the street; just in a short year, heaven and earth turned upside down. Civil servants, police recruited by thousands, recruiting workers everywhere. By then which family won't have two spare coins? Chiefs are formidable! Speaking of things, simply take this paper; why did Chiefs' paper sweep our local ones clean? Besides quality, it's cheap. I asked Chief Hong and calculated myself; using machines, this cost is low..."
+"Ah Juan, why do ordinary families purchase little or none? Items are expensive, people impoverished. Take my walnut cakes—ordinary commoners in Guangzhou can't afford them! At minimum families possessing spare funds who can afford teahouses consume it. Now the Senate liberated Guangzhou. Observe the streets—in merely one short year, heaven and earth inverted. Civil servants, police recruited by thousands, recruiting workers everywhere. By then which family won't possess spare coins? Chiefs are formidable! Discussing merchandise, simply take this paper—why did Chiefs' paper sweep our local varieties clean? Beyond quality, it's inexpensive. I inquired with Chief Hong and calculated myself—utilizing machines, these costs are minimal..."
 
-"Ah Yu, food becomes cheap, but like you said, once machines move, it's making thousands and tens of thousands. How many commoners in total in Guangzhou? You don't think everyone will eat your walnut cakes as dry rations, right?"
+"Ah Yu, food becomes cheap, but as you stated, once machines operate, you're producing thousands and tens of thousands. How many commoners total inhabit Guangzhou? You don't anticipate everyone consuming your walnut cakes as daily rations, correct?"
+
+**(End of Chapter)**

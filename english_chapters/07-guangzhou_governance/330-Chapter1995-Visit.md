@@ -1,87 +1,95 @@
 # Chapter 1995 - Visit
 
-Wang Qiyi shook body gently with bumps in sedan, calculating revenue forecast of third quarter in heart. Coming to Guangzhou for over a year, tax collection framework basically turned, fiscal system construction also pushed forward step by step. Only this "Striking Local Tyrants" heard from Lingao to Guangzhou, himself had not a bit action, really somewhat unjustifiable.
+Wang Qiyi swayed gently with the bumps of the sedan chair, calculating the third quarter's revenue forecast in his mind. After more than a year in Guangzhou, the tax collection framework had essentially stabilized, and the fiscal system's construction was advancing step by step. Yet this "Striking Local Tyrants" business—which he'd heard about from Lingao to Guangzhou—had seen not a single action from him personally. It was becoming somewhat untenable.
 
-"Looks like 'Confiscation Revenue' on third quarter report will look very good lo." Wang Qiyi breathed a sigh of relief, slanted eyes glancing at Inspection Division Director Li Fulai opposite who flipped files out again.
+*The 'Confiscation Revenue' line on the third quarter report is going to look very good,* Wang Qiyi thought with relief. He glanced sidelong at Inspection Division Director Li Fulai, who sat opposite, flipping through his files yet again.
 
-"What, Director Li? Forgot bringing things?" Li Fulai was seven or eight years younger than Wang Qiyi, biggest among Guangzhou Finance and Tax Bureau "Hainan Gang" naturalized cadres. But Wang Qiyi called his title for public and private matters instead of calling him "Little Li" like calling others. No other, this Li Fulai was "Basic Team" Ai Zhixin brought from Qiongshan. Originally he was an inconspicuous small accountant in Qiongzhou Prefecture City. Not long after Senate took Qiongshan "Came to submit with hair bun [traditional hairstyle]."
+"What is it, Director Li? Forget to bring something?"
 
-Not that his consciousness high, knowledge wide, could see Senate was "General Trend." Truly without submitting to Bandits no rice to eat—put plainly called forced by circumstances. So-called "Poor till showing balls."
+Li Fulai was seven or eight years younger than Wang Qiyi—the most senior among the "Hainan Gang" of naturalized cadres at the Guangzhou Finance and Tax Bureau. Yet Wang Qiyi addressed him by title in both public and private matters, rather than calling him "Little Li" as he did others. The reason was simple: Li Fulai belonged to the "Basic Team" that Ai Zhixin had brought from Qiongshan. Originally an unremarkable small accountant in Qiongzhou Prefecture City, he had "submitted with hair bound" shortly after the Senate took Qiongshan.
 
-Li Fulai was Guangdong native, read few years books, apprenticed. Also worked as accountant for others. Literate and knew account books. Person also very clever. Not long stood out among Grain Collection Bureau naturalized cadres. Became person in charge of Qiongshan County Grain Collection Bureau in few years. Even then Qiongshan County Office Director Liu Xiang praised him. Whenever County Office meeting involved tax matters called him to attend. Few children all studying in Qiongshan Primary School. Wife also entered County Clothing Factory Liu Xiang organized to work. Whole family counted as standard Roots Red Seedlings Upright. When Guangzhou City Finance and Tax Bureau just opened, Ai Zhixin mentioned work ability and "Loyalty" regarding Senate of several naturalized cadres intentionally or unintentionally. This Li Fulai Wang Qiyi heard most. As a cadre hung post in old timeline this bit of political sensitivity existed. Moreover as Wang Qiyi observed Li Fulai indeed had two brushes. Thus "Basic Team" matching "Basic Chassis," Li Fulai was appointed as Inspection Division Director very naturally.
+It wasn't that his consciousness ran particularly high, or that his vision was broad enough to recognize the Senate as the "Great Trend." The truth was simpler: without submitting to the Bandits, there was no rice to eat. Put plainly, circumstances had forced his hand. As the saying went, "Poor until your balls are showing."
 
-"No." Li Fulai immediately put away files corrected body sitting posture. "Director Wang, I feel checking again is more assuring. Don't know what situation encountering later. Didn't you say grinding spear before battle, not sharp also shiny."
+Li Fulai was a Guangdong native who'd studied for a few years, served an apprenticeship, and worked as an accountant. He was literate, knew his ledgers, and was undeniably clever. Before long, he'd distinguished himself among the Grain Collection Bureau's naturalized cadres, becoming head of Qiongshan County's Grain Collection Bureau within a few years. Even Liu Xiang, the County Office Director at the time, had praised him—whenever County Office meetings touched on tax matters, Li Fulai was summoned to attend. His children all studied at Qiongshan Primary School; his wife had found work at the County Clothing Factory that Liu Xiang organized. The whole family qualified as textbook "Red Roots, Upright Seedlings." When the Guangzhou City Finance and Tax Bureau first opened, Ai Zhixin had made a point of mentioning—sometimes overtly, sometimes subtly—the work abilities and "loyalty" of several naturalized cadres. Li Fulai's name came up most frequently. Wang Qiyi possessed the political sensitivity one expected from a cadre who'd held positions in the old timeline. Moreover, his own observations confirmed that Li Fulai genuinely had skills. Thus, "Basic Team" matched to "Basic Chassis," and Li Fulai's appointment as Inspection Division Director proceeded quite naturally.
 
-"Haha, correct. But gentry like Liang Family, Director Li should not be unfamiliar right."
+"No, I have everything." Li Fulai immediately stowed his files and corrected his posture. "Director Wang, I just feel more assured checking again. We don't know what situation we'll encounter. Didn't you say 'sharpening the spear before battle—if not sharp, at least shiny'?"
 
-"Yes, Director Wang. I know one or two about such families." With Li Fulai's shrewdness easy to hear this was talking about his past working as accountant in Hai Shuzu Hai Family. But he didn't mind. He wasn't the only one abandoning Master leaving back then. "I worked in Master Hai's home in Qiongshan back then. Later rumored Master Hai's big ship running ocean was robbed not only capital lost but also owed much. People demanding debt blocked door. Advisors and Big Accountants all left. I naturally dispersed in uproar not even counting as Second Accountant."
+"Haha, correct. But gentry families like the Liangs—you shouldn't be unfamiliar with them, Director Li?"
 
-Actually after resigning from Hai Family hastily back then, Li Fulai hadn't found next home. Days lived tight. Later heard Hai Family prospered again. Several times asked acquaintances to speak, planning to return. Unexpectedly Master Hai "Declined Not Accepting" all those staffs servants unable to "Share Adversity" initially. Watching Hai Family climbing Australian relationship oiling fire with oil, adding flowers on brocade. Self fell to state almost selling wife selling children let alone, still pointed behind back scolded "Betraying Master" "Deserve It."
+"That's right, Director Wang. I know a thing or two about such households." With Li Fulai's shrewdness, it was easy to recognize this as an allusion to his past employment as an accountant in the Hai Shuzu Hai family. But he didn't mind—he hadn't been the only one who "abandoned the master and turned his back" that year. "I worked in Master Hai's household in Qiongshan once. Later, word spread that Master Hai's ocean-going vessel had been robbed—not only was his capital lost, but he'd also incurred heavy debts. Creditors blocked his door. The advisors and chief accountants all departed. As a mere second accountant, I naturally scattered with the rest."
 
-So after Li Fulai arrived at Finance and Tax Front, combat power especially strong, stance especially firm. Towards figures like gentry big households always "Merciless," hand ruthless. This related to his unbearable looking back past.
+What Li Fulai didn't mention was what happened after he'd hastily resigned from the Hai household. He'd failed to find another position, and his circumstances grew increasingly desperate. Later, when he heard the Hai family had recovered its prosperity, he'd asked acquaintances on multiple occasions to speak on his behalf, hoping to return. But Master Hai had "declined without accepting" every one of those former staff and servants who had failed to "share adversity" with him during the crisis. Li Fulai had watched the Hai family climb ever higher on their Australian connections—oil adding to fire, flowers embroidered upon brocade—while he himself sank nearly to the point of selling wife and children. And still people pointed at him behind his back, cursing him as a "Betrayer of Masters" who "deserved it."
 
-"True too, human nature. Must find a mouthful of rice for wife children. Since you are familiar with ways of these gentry, then you say how will they cope with us?"
+Thus, after Li Fulai arrived at the Finance and Tax front, his combat effectiveness ran especially high and his stance stood especially firm. Toward figures like gentry and major households, he showed neither mercy nor restraint. His unpalatable past had much to do with this.
 
-"This I feel Director Wang you conversely need not worry."
+"That's true—human nature. A man must find a mouthful of rice for his wife and children. Since you're familiar with how these gentry operate, tell me: how will they try to cope with us?"
 
-"Why?"
+"This, I feel Director Wang, is something you need not worry about."
 
-"Methods of these gentry big households, speaking of brilliant are truly brilliant. If counting one by one fear can't say a small half till we get off car. But this brilliance is only brilliance under old system..." Li Fulai paused slightly. "So-called Great Skill No Craft. Under my Senate rule, Chiefs conquering their ten thousand methods with just one sentence 'Must Abide by Law.' My Great Song Senate stresses Law most, also understands Law most..."
+"Why not?"
 
-Hehe, Wang Qiyi thought in heart this horse-patting [flattery] skill is enough. Draft you handled compiling had nearly twenty households, now only remaining seven or eight. Whether "According to Law" you Li Fulai opening eyes telling lie Senate "Must Abide by Law," truly no number [idea] in heart?
+"The methods of these gentry and major households—brilliant, truly brilliant, if one counts them individually. I fear I couldn't finish listing them by the time we arrive. But this brilliance is only brilliance under the old system..." Li Fulai paused briefly. "As the saying goes, 'Great Skill Appears Artless.' Under our Senate's rule, the Chiefs conquer their ten thousand methods with a single sentence: 'All Must Abide by Law.' Our Great Song Senate emphasizes law above all else—and understands law better than anyone..."
 
-Although knowing it was flattery lie, heart still accepted it comfortably.
+*Hehe,* Wang Qiyi thought. *That's quite enough flattery.* The draft you helped compile listed nearly twenty households—now only seven or eight remain. Whether that was truly "According to Law"... Li Fulai, opening his eyes and spouting lies about the Senate "Abiding by Law"—does he really have no sense of the irony?
 
-"Director Wang, Liang Family arrived."
+Yet even knowing it was flattery, Wang Qiyi found himself accepting it comfortably.
 
-Guard following outside car opened car door. Wang Qiyi stepped down car ladder unhurriedly seemingly casually stamped feet. Also put on act dusting uniform sleeves. Wearing stock brought from old timeline today. Not only custom made but shoulder badges chest tags all complete. But because conflicting with existing CI design, shoulder badges and emblems above were removed. Changed to products customized from Lingao Shop 82. Although real gold white silver, fine work detailed making, after all somewhat dissonant with this old timeline uniform.
+"Director Wang, we've arrived at the Liang residence."
 
-Police already deployed defense around Liang Residence gate. Gate wide open. Several servants stood with hands down serving. Wang Qiyi just got off sedan, before stepping up stairs, an elder inside gate rushed forward hurriedly. A deep bow upon meeting. Scared Wang Qiyi a big jump.
+The guard riding outside opened the sedan door. Wang Qiyi descended the vehicle ladder without haste, casually stamping his feet before making a show of brushing dust from his uniform sleeves. Today he wore stock he'd brought from the old timeline—not only custom-made, but complete with shoulder badges and chest tags. However, because they conflicted with existing CI design, the original badges and emblems had been removed and replaced with products customized from Lingao's Shop 82. Though crafted from genuine gold and silver with fine workmanship, they looked somewhat incongruous against the old-timeline uniform.
 
-"Old Man Liang Wendao, seeing Director Wang."
+Police had already deployed a perimeter around the Liang residence gate. The gate stood wide open. Several servants waited with hands at their sides, ready to serve. Wang Qiyi had barely stepped from the sedan—he hadn't yet mounted the entrance stairs—when an elderly man rushed forward from within the gate and performed a deep bow. The gesture startled Wang Qiyi considerably.
 
-"Don't... Master Liang why need perform such big rite." Seeing such an elder one generation older than himself bowing in front, Wang Qiyi still couldn't pass psychological pass brought from old timeline. Held Liang Wendao at once. After he stood straight, Wang Qiyi sized up this Jinshi [Imperial Scholar] said to have been Prefect for two terms carefully. Saw him in green robe plain clothes body thin. Three strands of clear beard under jaw. Eyes carrying smile but not servile. A look of asking not worldly affairs cultivating true cultivating immortal. Unknown how much higher than Fatty Cui.
+"This old man, Liang Wendao, greets Director Wang."
 
-"Old Man since returning home idle, illness on body. Movement inconvenient. Son not striving, failed to visit personally. Hope Director Wang forgive."
+"Please—Master Liang, why such formality?" Seeing such an elderly man, a full generation his senior, bowing before him, Wang Qiyi still couldn't overcome the psychological barrier ingrained from the old timeline. He steadied Liang Wendao at once. After the elder straightened, Wang Qiyi studied this *jinshi*—reputedly a two-term prefect—with care. He observed a thin figure in a plain green robe, three strands of white beard beneath his chin. His eyes held a smile without servility, projecting an air of one who had withdrawn from worldly affairs to cultivate the Way. The contrast with Fatty Cui was immeasurable.
 
-"Master Liang need not be so. Cihui Hall helping poor saving difficult. Usurper Ming starting war recklessly, Senate properties in Guangzhou City also troubled Liang Family to preserve much. Saying so should be me coming to visit Master Liang first."
+"Since this old man returned to retirement, illness has made movement difficult. My son lacks initiative and failed to pay you a personal visit. I hope Director Wang can forgive this oversight."
 
-"Dare not be, dare not be. This truly killing Old Man. Director Wang, please."
+"Master Liang, please—there's no need for such apologies. Cihui Hall has aided the poor and those in distress throughout. When the Usurper Ming recklessly started his war, the Liang family helped preserve many Senate properties in Guangzhou City. By that logic, it's I who should have visited Master Liang first."
 
-"Please..."
+"I dare not accept such praise—truly, Director Wang, you're embarrassing this old man. Please, come in."
 
-Big households with Jinshi in two generations like Liang Family were first class gentry in Guangzhou city. Not only flag pole at gate. After entering gate, saw eaves heavy heavy, magnificent magnificent.
+"After you..."
 
-Liang Wendao invited their group to Main Hall "Serving Tea." After seating Wang Qiyi looked around. Decorations in room sparse and elegant. From calligraphy painting on wall, to antique ornaments on table, all revealing "Scholarly Elegant Interest" of this family.
+Major households with *jinshi* degrees in two generations, like the Liang family, ranked among Guangzhou's first-class gentry. Beyond the ceremonial flagpole at the gate, the estate revealed itself—eaves layered upon eaves, magnificent and imposing.
 
-Guests Hosts sat settled. Another round of serving tea greeting inevitable. Dawdled for nearly half hour before Wang Qiyi cut into main topic.
+Liang Wendao invited the group into the Main Hall for tea. Once Wang Qiyi took his seat, he surveyed the room. The décor was sparse yet elegant. From the calligraphy and paintings on the walls to the antique ornaments on the tables, everything bespoke the "scholarly elegance" of this family.
 
-"Master Liang, coming today is also routine business. One is listening what opinions our taxpayers have on our Finance and Tax Bureau; two is seeing if dealing account books are complete. Just coincidental I am in this group. You Old need not worry about other meanings."
+Guests and hosts settled into their seats. Another round of tea service and pleasantries proved unavoidable. Nearly half an hour dawdled by before Wang Qiyi cut to the main topic.
 
-"Where where," Liang Wendao arched hand towards Wang Qiyi with smile in eye corner. "Director Wang words heavy. Whatever requirement Old Man family must answer every plea. Just..."
+"Master Liang, today's visit is routine business. First, we wish to hear what opinions our taxpayers have regarding the Finance and Tax Bureau. Second, we need to verify whether the account books are in order. It's merely coincidence that I'm in this inspection group. Please don't read any other meaning into it."
 
-Wang Qiyi eyelid jumped. This is wanting to play move?
+"Of course, of course." Liang Wendao clasped his hands toward Wang Qiyi, a smile crinkling the corners of his eyes. "Director Wang speaks too heavily. Whatever requirements you have, this old man's family will certainly comply. It's just..."
 
-"Master Liang speak straight if having difficulty."
+Wang Qiyi's eyelid twitched. *Is he about to make a move?*
 
-"Sigh—" Liang Wendao patted armrest sighing deeply. "Director Wang knows not. Old Man body became more unsupported these years. Big small affairs in family all handed to legitimate son to manage. Not hiding from Chief, Old Man I obtained this son only after thirty. Spoiled too much since small. Causing him often having willful acting arbitrary actions. Now deeply fear him handling things not considerate, touching Great Song's rules."
+"Master Liang, please speak frankly if you're facing difficulties."
 
-"Master Liang referring to Liang Cunhou, Young Master Liang?"
+"Sigh—" Liang Wendao patted the armrest with a deep sigh. "Director Wang doesn't know. This old man's health has deteriorated badly these past years. Large and small matters in the household have all been handed to my legitimate son to manage. I won't hide it from you, Chief—I obtained this son only after thirty. I spoiled him too much from childhood. Now he often acts willfully and arbitrarily. I deeply fear his handling of matters may prove inconsiderate, perhaps touching upon the Great Song's regulations."
 
-"Exactly that Unworthy Son."
+"You're referring to Young Master Liang Cunhou?"
 
-"Haha, Master Liang you worried too much. Young Master Liang public-spirited righteous. I heard early when in Lingao. Since mostly he managing in family, then trouble Master Liang calling him here to chat. I can also know well." Wang Qiyi spoke awkwardly half literary half vernacular for a pause. Liang Wendao heard awkwardly too. But after all meaning was clear. Immediately expressed Liang Cunhou was in study. Sent person to call immediately.
+"That unworthy son, exactly."
 
-Tea cup on desk moved not a bit. Servants wanting to add water change tea several times were driven out by Liang Cunhou. Just sent away Lin Zunxiu, obtained news Bandits wanting to come door checking account books. This made Liang Cunhou heart thump. True Bandit coming out personally this time, looks like my Liang Family still has some weight. Liang Cunhou involuntarily smiled wryly. Folding fan in hand also opened closed following thoughts. Month Temple of Guan Yu personnel disappeared, father talked with him by candle light several times. Words still by ear then.
+"Haha, Master Liang, you worry too much. Young Master Liang's public spirit and righteousness are well known—I heard of them even back in Lingao. Since he manages most household affairs, would you trouble yourself to summon him? I'd welcome the chance to speak with him and understand matters better."
 
-"Son, I asked not worldly affairs these years. Family big small affairs all handed you to manage. Seeing you co-founding Charity Hall with Australians, climbing friendship. Then when Australians burned Five Rams Station city big households flocking to fawn, drifting apart from Australians day by day. In this near and far, your mind father knows all..."
+Wang Qiyi's speech fell awkwardly between literary and vernacular, prompting a pause. Liang Wendao found it awkward to hear as well. But the meaning was clear enough. He immediately indicated that Liang Cunhou was in his study and sent a servant to fetch him at once.
 
-"Father..."
+---
 
-"Father knows. My Liang Family received Imperial Grace for generations. Emotionally reasonably shouldn't live ignobly like this. You chest having resentment is also natural..."
+The teacup on his desk had not been touched. Servants had attempted several times to add water or change the tea, only to be dismissed by Liang Cunhou each time. He had just seen off Lin Zunxiu when news arrived that the Bandits themselves intended to come and inspect the account books. The report made his heart pound. *So the Bandits are coming in person this time. My Liang family still carries some weight, it seems.* Liang Cunhou permitted himself a bitter smile. The folding fan in his hand opened and closed in rhythm with his racing thoughts. Just a month ago, after those people had vanished from the Temple of Guan Yu, his father had spoken with him by candlelight on several occasions. Those words still echoed in his ears.
 
-......
+*"Son, I have asked not of worldly affairs these years. Large and small matters in the household I've handed entirely to you. I watched you co-found the Charity Hall with the Australians, cultivating their friendship. Then, when the Australians burned Five Rams Station and the city's major households flocked to curry favor, you began distancing yourself from them day by day. In this drawing near and pushing away, your mind—your father knows it all..."*
 
-"Son, have you read Zhi Du old matter?" Liang Wendao hand stroking knee seemed having ten million thoughts. Said with heavy voice: "Father knows you worry this Australian walking not only path of changing dynasty, but also digging root of Teaching of Names. But World Trend vast and mighty. Those obeying prosper those resisting perish. Australians already said clearly enough. Father fear days remaining not many. Other day you be Family Head. Painting one stroke and clan hundreds of lives which light which heavy. Must weigh clearly."
+*"Father..."*
 
-"Pa" a sound closed folding fan in hand. Liang Cunhou gaze like torch. As if determined ten thousand resolutions. Tidied clothes and cap slightly. Then went towards Main Hall hands behind back.
+*"Father knows. Our Liang family has received Imperial grace for generations. By reason and by sentiment, we should not live so ignobly. That you carry resentment in your heart is only natural..."*
+
+*......*
+
+*"Son, have you read of the old matters at Zhidu?"* Liang Wendao's hand stroked his knee, as if weighted by ten thousand thoughts. His voice grew heavy. *"Father knows you fear these Australians walk not merely the path of changing dynasties, but of digging up the very roots of the Teaching of Names. But the world's great trend flows vast and mighty—those who follow prosper; those who resist perish. The Australians have made their intentions clear enough. Father fears he hasn't many days remaining. When that day comes, you will be Family Head. One stroke of your brush, the lives of our entire clan numbering in the hundreds—which weighs more, which weighs less. You must weigh this clearly."*
+
+*Pa*—the folding fan in his hand snapped shut.
+
+Liang Cunhou's gaze hardened to steel, as if he had resolved upon ten thousand determinations. He adjusted his clothing and cap, then walked toward the Main Hall with hands clasped behind his back.

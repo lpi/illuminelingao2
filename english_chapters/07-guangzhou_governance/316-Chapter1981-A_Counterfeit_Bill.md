@@ -1,91 +1,99 @@
 # Chapter 1981 - A Counterfeit Bill
 
-"Mm... Brother Yu, you thought wrong. How could I not know how much food can be sold in this Guangzhou city. The big head is in our Fubo Army..."
+"Ah, Brother Yu, you misunderstand me." The speaker waved his cup genially. "You think I don't know how much grain this Guangzhou market can swallow? The real business is with our own Fubo Army."
 
 "Military supplies?!"
 
-"Exactly. Not hiding from brothers, since my Great World shop opened, goods for the street actually decreased. Some old customers even said I'm unkind, deliberately hiking prices. Actually no, just Chief Hong's orders almost stuffed me to death..."
+"Precisely. I won't hide it from you, brothers—since opening the Great World shop, my street trade has actually declined. Some old customers even grumble that I've grown heartless, deliberately inflating prices. But the truth is far simpler: Senator Hong's orders alone nearly overwhelm my capacity."
 
-"Hahaha... Good! Stuffed to death is better than starved to death. Drink one!"
+"Hahaha! Better to be overwhelmed with prosperity than starve in poverty. Drink up!"
 
-"Cheers!" "Cheers!" "Cheers!"
+The cups clinked in unison. "Cheers!" "Cheers!" "Cheers!"
 
-"Fubo Army eats walnut cakes too? Dear me, this treatment..."
+One of the men set down his cup with a puzzled expression. "The Fubo Army eats walnut cakes? Good heavens, what kind of extravagant rations are these?"
 
-"Not at all," Zhang Yu shook his head, "Walnut cakes have lard, white flour, walnuts, and sugar... none cheap. Soldiers eating a few as reward is fine; satisfying hunger every day is something even Senator Hong can't afford... The orders are for military rations, things soldiers eat as dry rations usually. Not as exquisite as tea refreshments, emphasizing satisfying hunger and not spoiling. Recipes also came from Senator Hong. But producing this, capital consumption is too heavy. Not only building factory needs loans, this production also relies on loans to turn over."
+Zhang Yu shook his head. "Not quite what you imagine. Walnut cakes require lard, refined flour, walnuts, and sugar—none of them cheap. The soldiers might enjoy a few as rewards, but feeding them such delicacies daily would bankrupt even Senator Hong." He paused to refill his cup. "The real orders are for military rations—field provisions designed for long campaigns. Nothing as refined as tea cakes. These must keep hunger at bay without spoiling, even in harsh conditions. Senator Hong himself provided the recipes. But producing them? The capital requirements are crushing. Not only did I need loans to build the factory, I'm running the entire production on borrowed funds just to maintain cash flow."
 
-"Capital consumption so heavy, does relying on loans for turnover work?" Zeng Juan understood some economics and was a bit worried.
+Zeng Juan frowned, his knowledge of economics surfacing. "Such heavy capital consumption—is it sustainable to operate entirely on credit?"
 
-"I plan this way. With the Senate's spirit, going north and south to expand territory is a sure thing. Troops and horses haven't moved, food and grass go first. Chief Hong said more than once that opening factories is for oneself and also for the Senate. Convenient for both public and private; Australian saying is Win-Win. I thought buying land and machines also needs hiring masters from Lingao to teach. That Australian Secret Method book, called something 'Standard,' is much thicker than the Civil Servant Exam Guide I gave Ah Juan. I also begged Chief Hong to help find an accountant knowing Australian bookkeeping from Lingao. The current accounting room is completely incompatible with this set and Australian secret methods. Right now military supplies are tight; Chief Hong allowed me to use goods to offset payments. Brothers, I calculated privately; deducting everything, there's about 0.5 fen [5%] profit left..."
+"I've thought it through carefully." Zhang Yu leaned forward, his eyes bright with conviction. "Given the Senate's ambitions, expansion north and south is inevitable. As the saying goes, before troops march, provisions must move. Senator Hong has told me repeatedly that building these factories serves both personal profit and the Senate's interests—what the Australians call 'win-win.' Setting up required purchasing land and machinery, then hiring master craftsmen from Lingao to manage production. There's even an Australian manual for this—something called 'Standard Operating Procedures'—thicker than the Civil Service Examination Guide I gave Ah Juan. I've also begged Senator Hong to send me an accountant trained in Australian bookkeeping methods. Our current accounting office is hopelessly incompatible with their systems."
 
-"Ah Yu, then aren't you working for free?"
+He took a long drink before continuing. "With military supplies so urgently needed, Senator Hong has allowed me to offset payments with delivered goods. I've calculated privately—after deducting all costs, I'm left with perhaps half a *fen* in profit. Five percent."
 
-"No, I told Chief Hong, I'll drop again. Just want 0.2 fen profit. Just allow me to print my family brand on the inner packaging."
+"Ah Yu, at that rate you're practically working for free!"
 
-"0.2 fen for this?" Everyone felt it was somewhat not worthwhile.
+"Not quite. I told Senator Hong I'd reduce it further—down to two-tenths of a *fen*. A mere two percent profit. In exchange, he permits me to stamp the Zhang family brand on every inner package."
 
-"Ah Juan told me, Chiefs' books state clearly: Brand is also money, and big money. We are not ignorant of this logic. Old saying calls it 'Gold Lettered Signboard,' and there's the story of the manager saving the signboard first when an old shop catches fire. Isn't it this logic?"
+The others exchanged skeptical glances. "Two percent for a stamp? Brother, that hardly seems worthwhile."
 
-"Right! We all heard of this. Said to be a matter in the Capital!"
+Zhang Yu's smile broadened. "Ah Juan taught me something from the Australian texts: a brand is money, and big money at that. This isn't an alien concept—we've always known it. The old saying speaks of the 'Golden Signboard,' and who hasn't heard the story of the shop manager who saved the signboard first when fire consumed his establishment? It's the same principle."
 
-"But here, we only know 'Wine fragrance fears no deep alley,' guarding the gold signboard waiting for customers. Don't know how to use this signboard to make big money—Chief Hong said there's a big brand in Australia called 'Cola.' Wherever Australian troops are, there are his drinks. Although sold extremely cheap, a losing business, as long as where Australian troops pass, the trend of drinking 'Cola' rises locally. Compared to those capitals spent supplying troops cheaply, don't know how many times it earns back. I want to be this Huaxia's 'Cola'; wherever Fubo Army is, there is my Zhang Brand!"
+"True! I've heard that tale—happened in the capital, didn't it?"
 
-"Ah Yu, ambitious. But your entire life and fortune are in this one bet; isn't it too risky."
+"Exactly. But traditionally, we merchants simply guard our golden signboards and wait for customers, trusting that 'good wine needs no bush.' We've never understood how to leverage that reputation to build true wealth." Zhang Yu's voice took on an almost reverent tone. "Senator Hong told me about an Australian brand called 'Cola.' Wherever Australian troops deploy, this drink follows. Though sold dirt cheap—often at a loss—wherever the Australian forces pass, the local population develops a taste for Cola. The profits from that cultural footprint dwarf whatever capital was spent subsidizing the troops. That's what I want to become: China's Cola. Wherever the Fubo Army marches, there will be Zhang Brand!"
 
-"Hehe, Ziyu don't laugh. I'm just coincidental and thanks to Ah Xin's blessing to have the current situation. Every time I look back, this year passed like a dream. Even if truly lost, treat it as waking from a dream. Not that I belittle myself, Ah Juan, tell the truth, how do I compare with Master Gao?"
+"Ambitious words, Ah Yu. But you're wagering your entire fortune on this single gamble. Isn't that dangerously reckless?"
 
-"Your momentum is strong, but looking at the whole board, still worse than Gao Ju by more than a little."
+"Hehe, don't laugh at me, Ziyu." Zhang Yu's expression turned thoughtful. "I've been fortunate—blessed by my marriage to Ah Xin—to reach my current position. When I look back on this past year, it feels like a dream. And if I should lose it all? I'll simply treat it as waking from that dream." He paused, then looked directly at Zeng Juan. "I'm not being falsely modest, but tell me honestly, Ah Juan—how do I compare to Master Gao?"
 
-"More than a little? Simply cloud and mud difference! What am I, Zhang Yu? Look at Master Gao, representing Chiefs in Guangzhou since the Senate first appeared in Lingao, selling goods locally, mediating in official circles for Chiefs... exerted great effort. Saying he is the Senate's Number One Meritorious Official in Guangzhou is not excessive. Me? Just a second generation of an unrated small shop. Family had no money, studying didn't work. Regarding ancestral shade, seniority, connections, assets, etc., which one can compare to big merchants like Master Gao? Only one thing: though my seniority is shallow, I was cultivated by Chiefs single-handedly. As long as I follow the Senate wholeheartedly, working for the Senate dead set, I can surpass old big households like Gao Ju who rely on wealth, keeping distance, seeming close yet far!"
+Zeng Juan considered his words carefully. "Your momentum is impressive, but viewing the whole landscape? You still fall considerably short of Gao Ju."
 
-"Right, the Senate never treats its own people unfairly, never. Ah Yu, formidable! Seeing through clearly. Come, brothers toast Ah Yu a cup!"
+"Considerably short? The gap between us is like heaven and earth!" Zhang Yu laughed without bitterness. "What am I, after all? A second-generation shopkeeper from an unranked family. Now look at Master Gao—he's represented the Senators in Guangzhou since they first appeared in Lingao. Selling their goods locally, smoothing their dealings with the bureaucracy... his contributions have been extraordinary. Calling him the Senate's foremost meritorious official in Guangzhou would be no exaggeration. And me? I come from nothing. No money, failed at my studies. In ancestral prestige, seniority, connections, capital—which of these can compare with great merchants like Gao Ju?"
 
-The brothers ate and drank, making merry. Until the sky was turning dark, the waiter came to deliver fruits with an excuse, tactfully reminding them: "Night session is about to open; do masters want to extend the hour?" Only then did they scatter.
+He refilled his cup with steady hands. "But there's one crucial difference: though my roots are shallow, I've been cultivated by the Senators from the very beginning. As long as I follow the Senate with absolute loyalty, working for them without reservation, I can surpass those established households—merchants like Gao Ju who rely on their wealth while maintaining careful distance, seeming close yet remaining fundamentally apart."
 
-Several people fought to pay the bill. Zhang Yu laughed: "Agreed I'm the host; how can I let you spend money!" Saying so, he forcefully shooed them to the main gate, waving a hand slightly tipsily.
+"Well said! The Senate never treats its own people poorly—never. Ah Yu, you see things clearly. Come, brothers, let's toast to Ah Yu's vision!"
 
-The Spaniard at the door understood the situation at a glance, hurriedly leaned up asking: "Want cars?"
+The gathering continued in high spirits until dusk began to settle. A waiter appeared bearing a fruit platter, using the delivery as pretense to tactfully inquire: "The evening session will soon begin, gentlemen. Do you wish to extend your reservation?" Only then did the party acknowledge the hour.
 
-"Right! Three!" Zhang Yu shouted unconsciously loud.
+Everyone reached for their purses to settle the account, but Zhang Yu laughed and waved them off. "We agreed I'm the host! I won't hear of you spending your silver!" He practically herded them toward the entrance, slightly unsteady on his feet, gesturing with wine-flushed enthusiasm.
 
-"Doesn't Your Excellency want a car for yourself?"
+The Spanish doorman read the situation instantly. "Carriages, sir?"
 
-"I... no need! My home isn't far! Walking back..."
+"Yes! Three!" Zhang Yu's voice came louder than he intended.
 
-Seeing his face red with intoxication, the Spaniard knew he had wine in him. Saying no more, he called three "Venus Zero Type" rickshaws from the wall base immediately.
+"And for yourself, Your Excellency?"
 
-Zhang Yu helped brothers onto rickshaws one by one, paid the fare, then walked unsteadily back to the service desk in the lobby, preparing to settle the bill.
+"I don't... no need! My home isn't far. I'll walk..."
 
-The bill was already copied clearly item by item in small script, summing up the total price. Although Purple Light Pavilion's prices were high, it emphasized "clearly marked prices." What item, what service, what price, all were marked one by one. Although some prices were "outrageous" in the eyes of market commoners, they absolutely wouldn't ask random prices.
+The Spaniard noted the redness in his patron's face and wisely said nothing more, immediately summoning three "Venus Zero Type" rickshaws from their station along the wall.
 
-Those willing to consume in Purple Light Pavilion naturally could afford this premium.
+Zhang Yu assisted each of his companions into their respective rickshaws, paid the drivers, then turned somewhat unsteadily back toward the service desk to settle his bill.
 
-Zhang Yu scanned the end of the bill—it was within his expectation. He took out several Silver Dollar Circulation Notes from his pocket. Handed onto the table.
+The account had already been transcribed in neat columns of small script, each item, service, and price meticulously documented, with the total sum calculated at the bottom. Though Purple Light Pavilion commanded premium prices, the establishment prided itself on complete transparency. Every charge was itemized precisely. While some prices might seem "outrageous" to common market-goers, the establishment never haggled or adjusted rates on a whim.
 
-The cashier clerk took them in hand. Just about to put them in, suddenly his face changed, whispering: "This Master... your money, is not right."
+Those who chose to patronize Purple Light Pavilion could afford such luxury.
 
-"What?!" Zhang Yu had some wine rush, momentarily didn't understand what was going on: What's wrong with money?
+Zhang Yu scanned to the final sum—within his expectations. He extracted several Silver Dollar Circulation Notes from his inner pocket and laid them on the counter.
 
-"This money! Has problem." The clerk handed one of the bills to his eyes. "This is fake! The paper quality is also wrong."
+The cashier clerk collected the bills, but as he was about to file them, his expression changed. He leaned closer, speaking in a low, urgent whisper: "Master... this currency... there's something wrong."
 
-"Fake?!" Zhang Yu sobered up completely now. Losing one yuan was nothing to him now, but he understood the weight of the four words "Using Counterfeit Currency"—especially now when the Senate was promoting new currency, taking counterfeit currency matters very seriously. Days ago, people were sent specifically to preach to merchants everywhere to pay attention to counterfeit currency. Unexpectedly, he spent one himself, and at this place, Purple Light Pavilion!
+"What?!" The wine fog in Zhang Yu's head made comprehension slow. "What's wrong with the money?"
 
-"This, this, I don't know where it came from..." Zhang Yu hurriedly explained, "I didn't mean it! Really!"
+"This note—it has a problem." The clerk held one bill up to the lamplight. "It's counterfeit. The paper quality is completely wrong."
 
-Seeing his nervous face, the clerk hurriedly comforted: "One who doesn't know is not guilty; you didn't mean it either. This counterfeit bill can't be returned to you—according to rules, it must be confiscated and turned in. You also have to register—this is also the regulation of the police!"
+"Counterfeit?!" The word struck like cold water, sobering Zhang Yu instantly. The loss of one yuan meant nothing to him now, but he understood perfectly well the gravity of those four words: "Using Counterfeit Currency." Especially now, when the Senate was actively promoting its new monetary system and treating counterfeiting with utmost severity. Officials had been dispatched throughout the merchant districts warning everyone to watch for fraudulent notes. And now he had unwittingly spent one—at Purple Light Pavilion, of all places!
 
-Zhang Yu was uneasy in his heart. After finishing procedures, sitting on a rickshaw, he started calculating: where exactly did this fake money come from?
+"I—I don't know where it came from..." Zhang Yu stammered, the words tumbling out. "It wasn't intentional! I swear it!"
 
-Since the Australians started issuing Silver Dollars and Silver Dollar Circulation Notes in Guangzhou, Zhang Brand was one of the earliest shops to accept and use them. Because they started using checks for business payments long ago, many customers were still used to using cash, especially at the retail counter. The amount of Silver Dollars and Circulation Notes entering and leaving daily was not small. According to custom, he didn't handle this cash. It was counted and accounted for by the accountant and cashier daily, then deposited into the bank account. If there was a problem, it would have been discovered in finance.
+Seeing the genuine alarm on his face, the clerk's expression softened. "Ignorance carries no guilt, Master. You clearly didn't know. But the counterfeit note cannot be returned—by regulation, it must be confiscated and reported to the authorities. You'll need to register your information as well. Police procedure, I'm afraid."
 
-Speaking of spending in his hands, the accountant wrote checks monthly—expenses on accounts were first "salary," second "entertainment expenses." Both fees were withdrawn directly from the bank with checks he wrote; there wouldn't be counterfeit currency. if counterfeit currency came to his hand, it could only be when getting change. But this one-yuan circulation note was the largest denomination bill; it couldn't be obtained from change...
+Zhang Yu's heart hammered as he completed the required paperwork. Sitting in the rickshaw afterward, his mind churned through possibilities: where exactly had this fraudulent note entered his possession?
 
-"Strange, where did this fake money come from?" Zhang Yu wondered secretly.
+Since the Australians began issuing Silver Dollars and Circulation Notes in Guangzhou, Zhang Brand had been among the earliest establishments to accept them. Having long since adopted checks for major business transactions, many customers still preferred cash, especially at the retail counter. The daily flow of silver currency through his shop was substantial. But by custom, Zhang Yu never handled this cash directly—it was tallied and recorded by his accountant and cashier each day before being deposited into his bank account. Any problem with those funds would have been detected during the financial reconciliation.
 
-Midday in early summer Guangzhou, the blazing sun was like fire. Pedestrians on the streets were sparse; even beggars without a tile over their heads had to find cool shade. Now there were no beggars in the Australians' Guangzhou city. The Police Bureau promoted "Catching Drifters" normalized management. Vagrants and beggars discovered were taken in, sent to labor centers—this was the Police Bureau's standard operating procedure. Every week a dedicated personnel transport ship sailed to the "Labor Purification Camp" set up in Hong Kong.
+As for his personal spending, the accountant issued monthly checks for two primary categories: salary and entertainment expenses. Both were withdrawn directly from the bank using checks he'd personally written—there was no possibility of receiving counterfeit currency through that channel. If a fraudulent note had somehow reached his hands, it could only have come as change from some transaction. But the one-yuan circulation note was the largest denomination in common use—it couldn't possibly have been received as change from a larger purchase...
 
-Zeng Juan, Tax Administrator of Great Song Guangzhou Special City Finance and Tax Bureau, walked swiftly with his team against the heat wave, attracting whispers from shop assistants watching shops on the roadside. These Australians were truly harsh to subordinates; in such hot weather, not even allowing a breath of rest, not even a cool sedan chair. What's the point of being this Senate official?
+"Strange," Zhang Yu muttered to himself as the rickshaw bumped along the cobblestones. "Where on earth did this fake note come from?"
 
-Wiping sweat beads already flowing to eyelashes randomly, Zeng Juan involuntarily raised the document file in his right hand to fan twice. The bag in his hand was very light, containing only a few receipts and declaration copies. This was the main target of Zeng Juan's household investigation today, Master Luo's Noble Gathering.
+___
 
-After Huang Ping transferred away at the beginning of the year, Zeng Juan acted as team leader for a period with the identity of deputy team leader. In the month following the successful conclusion of the first quarter collection work, he was officially appointed as team leader. This appointment was both unexpected and reasonable. Unexpectedly, Zeng Juan was just a new civil servant and an old scholar, yet was promoted to the team leader position almost monopolized by Lingao naturalized citizens in just over half a year, which was rare. Reasonably, with Australians' nature of testing everything, as a "study tyrant" ranking top three in both the resumption big exam and the first-quarter business exam, plus the seniority of deputy team leader, sitting in this position wasn't abrupt.
+The early summer sun hammered down on midday Guangzhou with merciless intensity. The streets lay nearly deserted, pedestrians sparse. Even the beggars who owned nothing but the rags on their backs had sought whatever shade they could find. Though in truth, there were no longer any beggars in the Australian-administered sections of Guangzhou. The Police Bureau had instituted what they called "Vagrant Management Protocols"—wanderers and beggars were systematically rounded up and sent to labor centers. Standard operating procedure. Each week, a dedicated transport vessel departed for the "Labor Purification Camp" established in Hong Kong.
+
+Zeng Juan, Tax Administrator for the Great Song Guangzhou Special City Finance and Taxation Bureau, strode through the heat with his team, drawing murmurs from the shop assistants idling in doorways. "These Australians are truly merciless to their subordinates," the whispers went. "Such weather, and they permit neither rest nor even a sedan chair. What's the point of becoming a Senate official if this is the treatment?"
+
+Swiping at the sweat streaming toward his eyes, Zeng Juan unconsciously raised the document folder in his right hand, fanning himself twice. The satchel he carried was surprisingly light, containing only a handful of receipts and declaration copies. These few documents represented his primary target for today's household investigation: Master Luo's Noble Gathering establishment.
+
+Following Huang Ping's transfer at the year's beginning, Zeng Juan had served as acting team leader while maintaining his official title of deputy. Then, in the month after successfully concluding the first quarter's collection work, he'd been formally appointed team leader. The promotion was simultaneously unexpected and entirely reasonable. Unexpected because Zeng Juan remained a new civil servant and a traditional scholar—yet here he was, elevated to a team leader position that had been almost exclusively monopolized by Lingao naturalized citizens, and in barely half a year at that. Such rapid advancement was rare. Yet it was also reasonable: given the Australian obsession with measurable performance, and with Zeng Juan ranking in the top three for both the restoration examination and the first quarter's business assessment, combined with his existing seniority as deputy team leader, his appointment to the position was hardly outlandish.
+
+**(End of Chapter)**

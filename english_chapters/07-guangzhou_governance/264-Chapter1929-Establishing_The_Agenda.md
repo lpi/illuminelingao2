@@ -1,30 +1,28 @@
 # Chapter 1929 - Establishing The Agenda
 
-## Chapter 1933 - Establishing The Agenda
-
 "Do you mean that bringing too many theoretical and technical materials will cause the naturalized students we train to rely too much on existing routes and lack innovation?"
 
-Feng Nuo nodded, "For decades, we don't need to worry about the technical materials we brought becoming outdated. But it takes ten years to grow trees and a hundred years to rear people. We 500-plus people actually can't claim to have cutting-edge research abilities. Will we, accustomed to the technology development strategy of restoring 'black technology' and the team of naturalized scientific and technical workers trained by relying on ready-made technical materials for decades, cause them to lack true research capabilities?"
+Feng Nuo nodded. "For decades, we don't need to worry about the technical materials we brought becoming outdated. But it takes ten years to grow trees and a hundred years to cultivate people. We five hundred-plus people actually can't claim to have cutting-edge research abilities. Will this technology development strategy of restoring 'black technology,' along with the team of naturalized scientific and technical workers trained by relying on ready-made materials for decades, cause them to lack true research capabilities?"
 
-"...There doesn't seem to be a need to be so pessimistic. In the past, not to mention domestically, even in European and American research institutions, how many groups were really doing influential research? One in a hundred, arguably. but countless small improvements and repeating others' work, discussing, meeting, reviewing, and bickering with each other, eventually slowly pushed technology forward. Before the 20th century, doing technology indeed relied on geniuses, but now that we've formed a system of 'mediocre research' in advance, it might not be that bad. There will always be some good seedlings left."
+"There doesn't seem to be a need for such pessimism. In the past, not to mention domestically, even in European and American research institutions, how many groups were really doing influential research? One in a hundred, arguably. But countless small improvements, repeating others' work, discussing, meeting, reviewing, and bickering with each other eventually slowly pushed technology forward. Before the 20th century, doing technology indeed relied on geniuses, but now that we've formed a system of 'mediocre research' in advance, it might not be that bad. There will always be some good seedlings."
 
 Zhong Lishi nodded, seeming unconvinced.
 
 "This time for the naturalized citizen project application, I plan to let Feng Shan apply for one too," Feng Nuo said.
 
-Zhong Lishi was a bit wary. He had been slightly touched by Feng Nuo's previous thinking, but now suddenly felt this kid wasn't just pulling a project for himself but also pulling a project for his maid immediately after.
+Zhong Lishi was slightly wary. He had been somewhat touched by Feng Nuo's previous thinking, but now suddenly felt this fellow wasn't just pulling a project for himself but also pulling one for his maid immediately after.
 
-This practice of accumulating qualifications for one's maid/student/apprentice... bad already quietly started among some "more ambitious" Elders. These Elders mostly engaged in technical work and knew the importance of qualifications deeply. Therefore, while teaching everything they knew, they began to list these close naturalized personnel as members of the research group. Some were purely nominal, some actually participated in the project work—of course, just doing odd jobs.
+This practice of accumulating qualifications for one's maid, student, or apprentice had already quietly started among some "more ambitious" Elders. These Elders mostly engaged in technical work and understood the importance of qualifications deeply. Therefore, while teaching everything they knew, they began to list these close naturalized personnel as members of the research group. Some were purely nominal; some actually participated in the project work—of course, just doing odd jobs.
 
 Even Dr. Zhong himself couldn't be exempt from vulgarity. Of course, as the head of the science and technology department, he still had to consider the impact of some things. So he didn't openly list Zhong Xiaoying in various research groups, only "guiding" her to participate in publishing a few papers—as second author, of course.
 
-"Of course, she doesn't have any ideas yet. Aside from math, she's just at a middle school level in other aspects. It would be good if she could drum up a topic at the level of past middle school science and technology competitions. I asked her to discover or think of a problem herself, forbidding her from looking up materials in the data center, and then figure out a solution." Feng Nuo spoke in a parent's tone as a matter of course.
+"Of course, she doesn't have any ideas yet. Aside from mathematics, she's just at a middle school level in other aspects. It would be good if she could develop a topic at the level of past middle school science competitions. I asked her to discover or think of a problem herself, forbidding her from looking up materials in the data center, and then figure out a solution." Feng Nuo spoke in a parental tone as a matter of course.
 
-"Your 'Hikaru Genji Plan' style is really weird enough. What kind of girl are you trying to raise..." Zhong Lishi noticed Feng Shan looking at Feng Nuo with a mix of 'worship' and 'respect'... and suddenly felt a bit grotesque.
+"Your 'Hikaru Genji Plan' style is really weird enough. What kind of girl are you trying to raise..." Zhong Lishi noticed Feng Shan looking at Feng Nuo with a mix of worship and respect, and suddenly felt a bit grotesque.
 
-Feng Nuo laughed. He had worn the "Hikaru Genji" hat in the Senate for several years and didn't care anymore.
+Feng Nuo laughed. He had worn the "Hikaru Genji" label in the Senate for several years and didn't care anymore.
 
-"At most, I count as picking up a girl and turning her into a wife. Unlike you, picking up a girl and turning her into a daughter. If your Little Ying is interested, it would be more appropriate for her to propose a topic and let them team up to solve it. Actually, I still hope Feng Shan uses her math foundation well and eventually turns to the field of solving practical application problems, rather than drilling into mathematical theory. I think math talents will be the first category of scientific and technological talents to explode among naturalized citizens. After all, math can be played without any experimental facilities. Domestically during the Republic of China and even for a long time after liberation, the only science that really had a place in the world was math. So one less of her doesn't matter..."
+"At most, I'm picking up a girl and turning her into a wife. Unlike you, picking up a girl and turning her into a daughter. If your Little Ying is interested, it would be more appropriate for her to propose a topic and let them team up to solve it. Actually, I still hope Feng Shan uses her math foundation well and eventually turns to the field of solving practical application problems, rather than drilling into mathematical theory. I think mathematics talents will be the first category of scientific and technological talents to explode among naturalized citizens. After all, mathematics can be pursued without any experimental facilities. Domestically during the Republic of China and even for a long time after liberation, the only science that really had a place in the world was mathematics. So one less of her doesn't matter..."
 
 Dr. Zhong gave a dry chuckle, thinking he was really an optimistic person.
 
@@ -70,4 +68,4 @@ Ma Qianzhu hung up the phone and rang the bell. Hou Wenyong walked in. He was mu
 
 "Arrange 2 hours of meeting time for me next Wednesday afternoon."
 
-(End of Chapter)
+**(End of Chapter)**

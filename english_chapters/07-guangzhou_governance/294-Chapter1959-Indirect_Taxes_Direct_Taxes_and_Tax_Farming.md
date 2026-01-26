@@ -28,9 +28,9 @@ Agricultural tax was a special category within property tax. In terms of specifi
 
 For agricultural tax collection, there was already a fairly mature mechanism in Hainan, so Ai Zhixin didn't need to worry much—just follow the existing regulations.
 
-The second major tax category was circulation tax—
+---
 
-Essentially the likin, customs duties, market inspection fees, consumption taxes, and so on.
+The second major tax category was circulation tax—essentially the likin, customs duties, market inspection fees, consumption taxes, and so on.
 
 It was divided into two main rates: The first was a basic market entry sales tax similar to customs duties, collected at checkpoints established at city gates, ferry crossings, bridges, and other transportation chokepoints.
 
@@ -40,9 +40,13 @@ The second was special ad valorem taxes on major commodity wholesale markets for
 
 The cumulative circulation tax paid on general commodities was capped at no more than 20% of the local price. Tax checkpoints and markets all provided relevant tax receipts as proof of payment to prevent double taxation. Livelihood shops whose market supply was scarce would enjoy tax exemptions and low rates.
 
+---
+
 The third major tax category was stamp duty. Stamp duty was actually also a direct tax, but the tax burden was relatively less painful—the problem was that the collection amount couldn't be too high. Ai Zhixin planned to collect license stamp duties: shops with sales licenses would pay a fixed annual stamp duty, and paying the license fee would allow them to sell relevant goods while accepting supervision. This tax would temporarily be collected on behalf by trade associations, with a portion returned to the associations after collection as operating expenses, while also being responsible for supervision.
 
 Various business permits, licenses, land deeds, property deeds, contracts... all required paying stamp duty either once or annually, strengthening the concept of contract law.
+
+---
 
 Ai Zhixin's plan was primarily based on circulation tax. Circulation tax was an indirect tax with low collection costs, low tax burden pain, and low requirements for collection personnel—consistent with the Executive Committee's current technical and human resource conditions. Direct tax collection was complex, with high collection costs and high tax burden pain, potentially intensifying social conflicts, but had social benefits in adjusting wealth between rich and poor, so a portion still needed to be levied.
 
@@ -56,6 +60,8 @@ Refunds would include a certain amount of interest, paid in legal tender, primar
 
 To cultivate the mindset of tax obligation, all adults 18 and over, regardless of gender, were required to pay a poll tax. The poll tax amount was very low; taxpayers would purchase tax stamps themselves and affix them to the back of their identification documents. If no tax stamp was found when documents were inspected, it constituted tax evasion.
 
+---
+
 Ai Zhixin knew his tax system, simplified again and again, still had major problems, especially in specific implementation where many details needed to be standardized. After thinking about it, he decided to bring this matter up at Guangzhou's transmigrator council meeting—after all, collective wisdom in practice was better than working behind closed doors.
 
 He was very clear that what he was about to do would be considered "shocking" by old timeline standards. The wealthy households of Guangzhou especially—one could readily imagine their expressions after learning of the tax plan; they would truly want to "eat his flesh and sleep on his skin." Even the shopkeepers of small shops who had been freed from various extortions because of the "change of dynasty" would probably cry for their parents saying they couldn't survive anymore when they saw these tax items one by one.
@@ -65,6 +71,8 @@ After a few months of implementation, there would inevitably be merchants in Gua
 Once the new tax system was fully rolled out, social conflicts in Guangzhou would inevitably intensify to some degree, and the generally "harmonious and happy" atmosphere between the Executive Committee and Guangzhou's citizens since entering the city probably wouldn't exist anymore.
 
 However, both the central and local governments were currently spending money like water. Mayor Liu had recently made a fortune from "confiscation" due to the abolition of the brokerage houses and the witchcraft case. Although the subsequent plague had caused considerable financial losses, there was still some surplus at the moment, so Ai Zhixin had some buffer time to gradually implement and rectify taxation. Since this milk cow Guangzhou had fallen into the Executive Committee's hands, there was no reason not to give it a good milking. According to the estimates of the Five Avenues bigwigs, Guangzhou's tax potential was quite substantial indeed.
+
+---
 
 However, what Ai Zhixin found even more difficult was the areas outside Guangzhou—because in addition to being Director of the Guangzhou Municipal Finance and Tax Bureau, he was also the Tax Commissioner for the Guangdong Region.
 
@@ -77,3 +85,5 @@ After much consideration, Ai Zhixin thought of implementing a tax farming system
 The so-called tax farming system meant the state contracted its tax collection activities to the highest bidder, who only needed to pay the state a fixed rent in advance and could keep the rest of the tax revenue. Tax farming had a long history and was the primary tax collection mechanism used by many countries before the 19th century. Under this system, tax farming actually allowed the state to obtain relatively high tax revenue at lower administrative costs.
 
 However, even Ai Zhixin himself felt this proposal was somewhat risky. Because within the Executive Committee, tax farming was considered an evil system—it placed the fate of taxpayers in the hands of rapacious tax farmers. Moreover, history was replete with examples of the greed and rampant exploitation of tax farmers causing terrible consequences. In virtually all history books, tax farming was a target of denunciation and criticism.
+
+**(End of Chapter)**

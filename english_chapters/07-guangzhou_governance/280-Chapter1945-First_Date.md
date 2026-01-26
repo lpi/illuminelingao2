@@ -1,87 +1,87 @@
 # Chapter 1945 - First Date
 
-During this period, although losing contact with the organization once made her panic-stricken all day, over time, it opened a door named "freedom" in her heart, allowing her to experience the joy of having no pressure and tasks. This didn't mean the work was easy; in fact, the work was very tiring. Feng Nuo used her like an adult male worker. Rather, it was a change in mood: she began to have the opportunity to think about what to do after work tomorrow, what new products the coop would sell next month, whether she could ask Chief Feng to formally transfer her from the Tiandihui next year when new graduates arrived... Also, what to buy when wages were paid?
+During this period, though losing organizational contact had initially left her panic-stricken, time had gradually opened a door in her heart—one labeled "freedom"—allowing her to experience the joy of existing without pressure or assigned tasks. This didn't imply the work was easy; far from it—the labor proved exhausting. Feng Nuo deployed her like an adult male worker. Rather, a fundamental shift in mindset had occurred: she'd begun contemplating what tomorrow's post-work hours might hold, what new products the cooperative would stock next month, whether she might ask Chief Feng to formally transfer her from the Tiandihui next year when fresh graduates arrived... Also, what to purchase when wages arrived?
 
-"Hmm, I'll just buy a pair of shoes for that fool Qian Yuzhi, and treat him to a meal at East Gate Market. Consider it a little compensation for ordering him around during this time, and also to thank him for introducing me here."
+*Hmm, I'll buy that fool Qian Yuzhi a pair of shoes and treat him to a meal at East Gate Market. Consider it minor compensation for commandeering him these past weeks, and also thanks for introducing me here.*
 
-Qian Yuzhi didn't quite understand why they suddenly had to go to East Gate Market to eat together today, although as long as Li Jianai came to work, they would generally eat together and then go home together.
+Qian Yuzhi couldn't quite fathom why they suddenly had to dine together at East Gate Market today, though whenever Li Jianai came to work, they generally ate together before returning home in tandem.
 
-According to Qian Yuzhi's little life experience in the "old society," if a young woman was willing to do this, she basically planned to marry him. But in the "new society," this just meant the other party had some good feelings for you. Wanting to marry, that was out of the question—not to mention a "Senate disciple" from the College of Arts and Sciences like Li Jianai, even an ordinary young woman graduated from junior primary school working as a worker or clerk in farms, factories, or agencies was not something a newly entered factory apprentice like Qian Yuzhi could reach. At least he had to wait until he was assessed to a certain level and his wages reached a certain degree before he would be considered by the other party.
+According to Qian Yuzhi's limited life experience in the "old society," when a young woman willingly engaged in such behavior, she basically intended to marry you. But in the "new society," this merely indicated the other party harbored some favorable sentiments toward you. Marriage? Out of the question—let alone a "Senate disciple" from the College of Arts and Sciences like Li Jianai. Even an ordinary young woman possessing junior primary school credentials and working as a laborer or clerk in farms, factories, or agencies lay beyond a newly inducted factory apprentice like Qian Yuzhi's reach. At minimum, he'd need assessment to a certain grade level and wages reaching a certain threshold before she'd consider him viable.
 
-However, going to East Gate Market for a meal this time was a bit solemn. He secretly speculated on what the other party was thinking, and who would "treat" this meal—his wages were a bit low, and he didn't dare to spend the rent paid by Li Jianai casually. His sister's marriage and his own wife-seeking in the future both required spending.
+However, this particular East Gate Market meal carried a certain solemnity. He secretly speculated on her intentions, and who would "treat" for this meal—his wages were rather meager, and he dared not casually spend the rent Li Jianai paid. His sister's marriage and his own future bride-seeking both demanded financial reserves.
 
-However, facing the girl's invitation with sparkling eyes, he involuntarily agreed. Although he had become accustomed to Li Jianai's command these days, he still vaguely felt this was different, and his heart beat faster.
+Yet facing the girl's sparkling-eyed invitation, he involuntarily agreed. Though he'd grown accustomed to Li Jianai's commands these recent days, he vaguely sensed this differed somehow, and his heart accelerated.
 
-Li Jianai seemed to be in a very good mood. She had heard classmates from the College of Arts and Sciences say that there was a shop specially for drinking at East Gate Market and had always been very curious. Today was just right to go see it with Qian Yuzhi.
+Li Jianai seemed in exceptionally high spirits. She'd heard College of Arts and Sciences classmates mention a specialized drinking establishment at East Gate Market and had long nursed curiosity about it. Today presented the perfect opportunity to investigate with Qian Yuzhi.
 
-The shop wasn't big, with dim lighting. A long counter where the shopkeeper poured wine and cooked dishes inside. The outer edge of the counter was a long tabletop with several round stools. Against the wall were small tables with high backrests, a bit like seats on the small train—Li Jianai said this was called a "booth." When fully occupied, probably only twenty-some people could sit.
+The shop wasn't large, with dim lighting. A long counter housed the proprietor's wine-pouring and dish-cooking operations. The counter's outer edge formed an extended tabletop lined with several round stools. Against the wall stood small tables with high backs, somewhat resembling train seats—Li Jianai called them "booths." At capacity, perhaps twenty-odd people could be accommodated.
 
-This was a husband-and-wife shop. The one selling wine at the stove was the proprietress, said to be a former waitress at Nanhai Coffee House. The man worked at East Gate Restaurant. The couple had both been influenced by "Australian dining." After getting married, they both resigned and opened this roadside small shop selling both food and wine.
+This was a husband-wife enterprise. The woman selling wine at the stove was the proprietress, reportedly a former Nanhai Coffee House waitress. The man worked at East Gate Restaurant. Both had been influenced by "Australian dining culture." After marrying, they'd both resigned to open this roadside establishment selling food and drink.
 
-Although the shop was small, the decoration and utensils were completely "Australian style." Every item looked fresh, yet good-looking and easy to use, and the arrangement was very comfortable. In the evening when lanterns were first lit, the light of gas lamps inside shone through the bamboo curtains. Not to mention eating and drinking, just going in and sitting down felt comfortable.
+Though modest in scale, the décor and implements embodied thoroughly "Australian style." Every item appeared fresh yet attractive and functional, the arrangement remarkably comfortable. During the evening's lamp-lighting hour, gaslight from within shone through bamboo curtains. Forget eating and drinking—merely entering and sitting brought comfort.
 
-It sold "Australian style" wine and food, not too expensive. Customers were mainly naturalized citizens working in Senate enterprises and agencies. Especially young people without family burdens; coming here on the way off work to eat a set meal and drink a glass of kvass or beverage became a rare relaxation after a tired day.
+It offered "Australian style" wine and fare, reasonably priced. Clientele consisted mainly of naturalized citizens employed in Senate enterprises and bureaus—especially unburdened young people. Stopping here after work to consume a set meal and drink kvass or beverages had become a cherished respite after exhausting days.
 
-It wasn't too late yet, and the shop was very deserted. The two found a round table in a corner and sat down, ordering two set meals and two bottles of kvass. They were used to eating together in the canteen. Now eating while chatting casually about work and life, Qian Yuzhi felt that chatting in this environment was really nice. He guessed ninety-nine percent it was that Australian tone coming from the Chiefs again.
+The hour wasn't particularly late, and the shop remained quite empty. They located a corner round table and seated themselves, ordering two set meals and two bottles of kvass. They habitually dined together in the canteen. Now, eating while casually conversing about work and life, Qian Yuzhi found chatting in this environment genuinely pleasant. He surmised ninety-nine percent certainty it was that Australian sensibility emanating from the Chiefs again.
 
-The set meal portion was large, but for people like them who labored all day, it wasn't worth mentioning. Qian Yuzhi ordered a large fried fish cake set. Two large golden fried fish cakes were placed on shredded vegetables—this kind of vegetable didn't exist in Hainan in the past. It was brought by the Chiefs and initially planted in the Nanhai Demonstration Farm. Everyone called it "Kun Cabbage," but Australians called it cabbage.
+The set meal portions were substantial, though for people laboring all day like them, hardly excessive. Qian Yuzhi ordered the large fried fish cake set. Two generous golden fried fish cakes rested atop shredded vegetables—this particular vegetable hadn't existed in Hainan previously. The Chiefs had introduced it, initially cultivating it at the Nanhai Demonstration Farm. Everyone called it "Kun Cabbage," though Australians termed it cabbage.
 
-A layer of thick sauce was poured over the fish steak, carrying a stimulating spicy aroma that whetted the appetite. It came with a large bowl of white rice and oyster mushroom vegetable soup.
+A thick sauce layer was drizzled over the fish steak, carrying a stimulating spicy aroma that awakened appetite. It came with a large bowl of white rice and oyster mushroom vegetable soup.
 
-Li Jianai came from the College of Arts and Sciences. Although her labor volume wasn't small, she knew the importance of "healthy diet" and "keeping fit," so she ate lighter: vegetable stir-fried shrimp meat over rice with seafood clear soup.
+Li Jianai, being from the College of Arts and Sciences, understood the importance of "healthy diet" and "fitness maintenance" despite her considerable labor output, so she ate lighter fare: stir-fried shrimp with vegetables over rice, accompanied by clear seafood soup.
 
-These dishes were all brought by the Australians. If the Chiefs hadn't come to Lingao and conquered this small piece of the world here, he, Qian Yuzhi, would never have gathered such a delicious fish steak in the Ming Dynasty in his lifetime—let alone enjoying delicious food, being able to eat a meal of fine grain a few years ago would have been a great joy for him.
+These dishes had all arrived with the Australians. Had the Chiefs not come to Lingao and conquered this small corner of the world, he, Qian Yuzhi, would never have sampled such delicious fish steak in the Ming Dynasty throughout his lifetime—forget enjoying fine cuisine, managing a meal of quality grain a few years prior would have constituted great fortune.
 
-This is all fate. Qian Yuzhi was in a trance for a moment. Everything around him seemed to become incredibly strange, as if it were a dream.
+This is all fate. Qian Yuzhi experienced a momentary trance. Everything surrounding him seemed to become incredibly foreign, dreamlike.
 
-"What's wrong? Spaced out?"
+"What's wrong? Spacing out?"
 
-Li Jianai interrupted his trance.
+Li Jianai interrupted his reverie.
 
-"Nothing, just feel this place is really nice." He said, picking up shredded cabbage to wipe, wiping off the sauce and fish cake crumbs sticking to the plate, and eating it in big mouthfuls with rice.
+"Nothing, just feeling this place is truly wonderful." He replied, retrieving shredded cabbage to wipe the plate clean of sauce and fish cake remnants, consuming it in large mouthfuls with rice.
 
-"You really have a good appetite." Li Jianai said with an appreciative expression, "This is an Australian-style restaurant—the place I chose isn't bad..."
+"You really possess a healthy appetite," Li Jianai observed with appreciative expression. "This is an Australian-style restaurant—the place I selected isn't bad..."
 
-Suddenly she saw a figure flash at the door, seeming to glance inside, then quickly left.
+Suddenly she glimpsed a figure flash past the entrance, seemingly glancing inside before quickly departing.
 
-Professionalism made her immediately realize that the figure just now was someone she knew.
+Professional instinct made her immediately recognize the figure as someone she knew.
 
 Who was it?
 
-"Not bad, not bad." Qian Yuzhi didn't know her discovery and nodded. Although admitting this place was "not bad," he couldn't figure out why the girl suddenly wanted to invite him here for a meal.
+"Not bad, not bad." Qian Yuzhi, oblivious to her discovery, nodded agreement. Though acknowledging the place as "not bad," he couldn't deduce why the girl had suddenly wanted to invite him here for a meal.
 
-Could it be she really is interested in me? Qian Yuzhi started letting his imagination run wild.
+Could she genuinely be interested in me? Qian Yuzhi's imagination began running wild.
 
-"Of course the place I chose won't be bad, let you broaden your horizons..." Li Jianai answered perfunctorily. She already knew in her heart: the one who flashed past just now was Feng Shan.
+"Of course the place I chose won't disappoint—broadening your horizons..." Li Jianai answered perfunctorily. She'd already identified the passerby: Feng Shan.
 
-She came to East Gate Market too? Li Jianai was slightly strange. Because Feng Shan's life was basically two-point-one-line, and although nominally a Living Secretary, she actually rarely did Living Secretary work. More like Chief Feng's student.
+She came to East Gate Market too? Li Jianai felt mildly curious. Feng Shan's life followed essentially a two-point-one-line pattern, and though nominally a Living Secretary, she rarely performed such duties—functioning more as Chief Feng's student.
 
-But her curiosity stopped there. After all, East Gate Market wasn't a secret place. Her attention returned to Qian Yuzhi.
+But her curiosity extended no further. After all, East Gate Market was hardly clandestine. Her attention returned to Qian Yuzhi.
 
-Kvass contained a slight amount of alcohol. One bottle down, the two naturally talked more. From initial politeness, they gradually started talking about their respective life experiences, and unknowingly started drinking the second and third bottles.
+Kvass contained slight alcohol content. One bottle consumed, their conversation naturally expanded. From initial politeness, they gradually broached their respective life experiences, unknowingly progressing to second and third bottles.
 
-Qian Yuzhi chattered about his childhood, the encouragement of the Chief who came to comfort the family after his father sacrificed, and bragged with slight pride about how beautiful his sister was and how excellent her grades were...
+Qian Yuzhi chattered about his childhood, the encouragement from the Chief who'd come to console the family after his father's sacrifice, and boasted with slight pride about his sister's beauty and excellent academic marks...
 
-Speaking of his sister, he was silent for a while before continuing that he must pass the Class A diploma and then the technician exam, but he was too stupid and always made the master angry. Fortunately, he could serve the Chief now... and why he didn't live in the dormitory, how much money he could save monthly by living at home, how much money he could collect from renting the house, how much he earned and spent monthly... He had to prepare a large sum of betrothal gifts to marry a wife, and also spend money on his sister's marriage; later when having children, they would go to Fangcaodi National School—if they couldn't enter the selection group and get a scholarship, he would have to raise tuition for further studies...
+Discussing his sister, he fell silent briefly before continuing that he absolutely must pass the Class A diploma and subsequently the technician examination, but he was too dull and constantly frustrated his master. Fortunately, he could serve the Chief now... and why he didn't reside in the dormitory, how much money monthly home-living saved, how much he collected from house rental, his monthly earnings and expenditures... He needed to prepare substantial betrothal gifts for marriage, plus finance his sister's wedding; later with children, they'd attend Fangcaodi National School—if they couldn't enter the selection group and secure scholarships, he'd need to raise tuition for advanced studies...
 
-Li Jianai saw him unconsciously steal a glance at her when saying "marry a wife," and felt it funny. However, these drunken ravings like "idiots talking about dreams" were full of longing and hope, which moved her somewhat.
+Li Jianai noticed him unconsciously stealing a glance at her when mentioning "marry a wife," and found it amusing. However, these intoxicated ravings resembling "idiots recounting dreams" brimmed with longing and hope, stirring something within her.
 
-She remembered what the Chief who trained them said when she attended the Political Security Bureau training class: "You will be very lonely, you will make sacrifices, but your task is extraordinary. It is to protect the safety and property of the Senate and the people, to protect the future and hope of the Senate and the people."
+She recalled what the Chief who trained them had declared during Political Security Bureau instruction: "You will experience profound loneliness, you will make sacrifices, but your mission is extraordinary. It is to safeguard the security and property of the Senate and the people, to protect the Senate and the people's future and hope."
 
-This somewhat clumsy big boy turned out to be the object of her protection too.
+This somewhat clumsy large boy was, it turned out, among those she protected.
 
-Li Jianai suddenly felt very amused, but her eyes felt sour.
+Li Jianai suddenly felt profoundly amused, yet her eyes stung.
 
-This feeling is really strange, she thought, must have drunk too much kvass.
+This sensation is truly strange, she thought. Must have consumed too much kvass.
 
-The two stayed in the small shop until very late, drinking a table full of empty kvass bottles, and finally forgot about buying shoes for Qian Yuzhi.
+They remained in the small shop until quite late, amassing a table full of empty kvass bottles, ultimately forgetting entirely about purchasing shoes for Qian Yuzhi.
 
-That night Qian Yuzhi had a very strange dream. He dreamed that he ate many, many snacks called "small cakes" sold in that shop. Soft, fragrant, sweet, with a cherry on top, also sweet and sour. He ate one after another, as if he could never be full... Suddenly, a large amount of kvass seemed to leak from the ceiling, pouring on his head.
+That night Qian Yuzhi experienced an exceedingly peculiar dream. He dreamed of consuming countless servings of the snacks called "small cakes" that shop sold. Soft, fragrant, sweet, crowned with a cherry—also sweet and tart. He ate one after another, as though insatiable... Suddenly, massive quantities of kvass seemed to leak from the ceiling, cascading onto his head.
 
-He woke up and saw Li Jianai standing before the bed with a face like ice holding a cup, and his face was all water.
+He woke to find Li Jianai standing before his bed with an ice-cold countenance, holding a cup—his face thoroughly drenched.
 
-"Get up and go to work! Look what time it is!" She said this sentence, then turned and walked out of the room.
+"Get up and report to work! Look at the time!" She delivered this pronouncement, then turned and exited the room.
 
-Qian Yuzhi scratched his head and sat up. His head still hurt. He seemed to have dreamed of something delicious just now, but the wonderful taste he repeatedly experienced in the dream faded rapidly with the clarity of his mind, becoming more blurred the more he recalled, until he couldn't remember it anymore.
+Qian Yuzhi scratched his head and sat upright. His head still throbbed. He seemed to have dreamed of something delicious just moments ago, but the wonderful taste he'd repeatedly experienced in the dream faded rapidly with mental clarity, growing increasingly blurred with each attempted recollection until it vanished completely.
 
-Next were the unchanging days. Qian Yuzhi still did various miscellaneous chores, sometimes a transporter, sometimes a laborer, sometimes a mechanic, sometimes a painter. Slowly he exercised some skills. Jia Ben occasionally nodded seeing his work. Feng Nuo frequently met and discussed with Senators from the Ministry of Science and Technology, electrical department, and mechanical department, compiling some materials when free; Feng Shan's study and work became busy again, only able to come help at night; Li Jianai still spent two or three days a week doing Tiandihui work, and came to work part-time for the rest of the time.
+Next came unchanging days. Qian Yuzhi continued performing various miscellaneous chores—sometimes transporter, sometimes laborer, sometimes mechanic, sometimes painter. Gradually he developed certain competencies. Jia Ben occasionally nodded approvingly at his work. Feng Nuo frequently conferred with senators from the Ministry of Science and Technology, electrical department, and mechanical department, compiling materials during spare moments. Feng Shan's studies and responsibilities intensified again, permitting her only evening assistance. Li Jianai still devoted two or three days weekly to Tiandihui obligations, working part-time the remainder.

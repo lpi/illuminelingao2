@@ -31,6 +31,24 @@ header {
     text-decoration: underline;
 }
 
+.header-links {
+    display: flex;
+    gap: 10px;
+}
+
+.github-btn {
+    background-color: #333;
+    color: white;
+    padding: 6px 12px;
+    border-radius: 4px;
+    text-decoration: none;
+    font-size: 0.9em;
+}
+
+.github-btn:hover {
+    background-color: #555;
+}
+
 .discord-btn {
     background-color: #5865F2;
     color: white;

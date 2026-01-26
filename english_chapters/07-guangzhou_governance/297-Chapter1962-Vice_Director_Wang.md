@@ -1,81 +1,85 @@
 # Chapter 1962 - Vice Director Wang
 
-"They're finally here!" Ai Zhixin gulped down his meal in three mouthfuls, threw aside his lunchbox, and walked out of the Harbor Treasury's temporary office to look out over the dock.
+"They're finally here!"
 
-Finally, after looking forward to it as if waiting for the stars and moon, the H800 carrying the Finance and Tax Bureau team docked at the Da Shijie wharf.
+Ai Zhixin swallowed his meal in three hasty gulps, tossed aside his lunchbox, and strode from the Harbor Treasury's makeshift office toward the dock.
 
-Under Ai Zhixin's ceaseless urging and Cheng Dong's enthusiastic "concern," Wang Qiyi had finally arrived in Guangzhou with the cadres who had completed rotation training in Qiongshan and Chengmai, as well as some students from the Lingao Vocational School's finance and tax class.
+After what felt like an eternity—waiting as one might for the stars and moon—the *H800* bearing the Finance and Tax Bureau contingent glided into berth at the Great World wharf.
 
-"I've been looking forward to your arrival." Ai Zhixin stood on the dock, beaming with joy, firmly shaking Wang Qiyi's hands. "How was the journey? Our ships aren't exactly known for stability."
+Under Ai Zhixin's relentless pressure and Cheng Dong's enthusiastic "concern," Wang Qiyi had at last arrived in Guangzhou, accompanied by cadres who'd completed rotation training in Qiongshan and Chengmai, along with students from the Lingao Vocational School's finance and taxation program.
 
-"It was okay, it was okay." Wang Qiyi, a landlubber, was a bit wilted from seasickness. "Here, 47 people. 25 from the rotation training class, 22 students from the finance and tax class. We've really emptied our pockets for this—the finance and tax class at Fangshaodi has lost half its students."
+"I've been counting the days." Ai Zhixin stood at the dock, radiating satisfaction as he clasped Wang Qiyi's hands firmly. "How was the crossing? Our vessels aren't renowned for their smooth sailing."
 
-"Our finance and economics department really should have its own school. Always squeezing in with Fangshaodi isn't a long-term solution; we're at too much of a disadvantage."
+"Tolerable," Wang Qiyi managed, looking somewhat diminished by seasickness. The landlubber rallied enough to report: "Forty-seven in total. Twenty-five from rotation training, twenty-two from the finance and tax class. We've truly scraped the bottom of the barrel—Fangshaodi's program just lost half its enrollment."
 
-Wang Qiyi knew that splitting up wouldn't help right now—even the Army and Navy Academies, the Political Security School, and the Central Police Academy's preparatory classes, which had formally separated, remained at Fangshaodi. There was no other reason than being able to borrow Fangshaodi's classrooms, teachers, and related equipment.
+"Our finance and economics department desperately needs its own institution. Perpetually sharing space with Fangshaodi is untenable—we're operating at a crippling disadvantage."
 
-Ai Zhixin watched the group next to them preparing to disembark from the naturalized citizen channel, squeezing together with bags big and small. Each person had a standard rattan suitcase and a canvas backpack, with a rattan helmet-style hat on their head. Most looked weary, and some had faces even worse than Wang Qiyi's. Fortunately, a glance showed they were all young people around eighteen or twenty, the age of stamina and capability; a good sleep would bring them around. Suddenly, he noticed a problem.
+Wang Qiyi knew separation wouldn't help matters. Even the Army and Navy Academies, the Political Security School, and the Central Police Academy's preparatory programs—all formally independent—still operated from Fangshaodi. The reason was simple: access to classrooms, instructors, and equipment.
 
-"Why are there so few women? Didn't Director Cheng say before I left that he would specifically ask Hu Qingbai for female students?"
+Ai Zhixin's gaze drifted to the group disembarking through the naturalized citizen channel, a cluster of bodies laden with bags and bundles. Each carried a standard rattan suitcase and canvas backpack, crowned with a rattan sun helmet. Most appeared exhausted, some even more haggard than Wang Qiyi. Fortunately, they were all young—eighteen, twenty at most—possessing that resilient vitality of youth. A good night's sleep would restore them. Then he noticed something amiss.
 
-"My wife hasn't finished her training yet. You were pushing so hard, so the ones coming with me now are all students who have just completed one year since enrollment last year." Wang Qiyi thought to himself, *What are you plotting? Treating the Finance and Tax Bureau as your harem or something?*
+"Where are the women? Didn't Director Cheng promise before I left that he'd specifically request female students from Hu Qingbai?"
 
-"Good, good, good..." Hearing there were reinforcements coming, Ai Zhixin was in excellent spirits. "Old Wang, so you're taking up your post as a bachelor this time too? No one to take care of you?"
+"My wife hasn't completed her training yet. You were in such a rush, so I brought only the students who finished their first year last cycle." Wang Qiyi thought privately, *What are you scheming? Planning to turn the Finance and Tax Bureau into your personal harem?*
 
-"No one!" Wang Qiyi thought this guy really knew how to rub salt in wounds. *If you hadn't pushed so hard, would I have needed to come separately from my wife?*
+"Excellent, excellent..." Learning reinforcements were still coming lifted Ai Zhixin's spirits considerably. "So you're arriving solo this time as well, Old Wang? No one to look after you?"
 
-"Haha, perfect, perfect, don't worry about it. Let's go, brother will treat you to a meal first. Take a look at this Guangzhou Da Shijie—then we'll go to the Purple Light Pavilion for a bath."
+"No one!" Wang Qiyi bristled inwardly. This man certainly knew how to twist the knife. *If you hadn't been so demanding, would I have needed to come separately from my wife?*
 
-Hearing this, Wang Qiyi hurriedly refused: "I can wash up at the Da Shijie guesthouse. I've never been into that 'grand health care' style..."
+"Perfect, perfect—don't give it another thought. Come, let me treat you to a proper meal first. Take in the sights of Guangzhou's Great World, then we'll visit the Purple Clarity Pavilion for a bath."
 
-Ai Zhixin laughed upon hearing this: "Not at all, not at all. I know you're a married man, how would I dare cause family conflicts for you? It's just a bath and massage, nothing else—just enjoy a good relaxation. We have plenty to be busy with coming up. Let's go, let's go, eat first!"
+Wang Qiyi recoiled. "I can wash at the Great World guesthouse. I've never been one for that 'comprehensive wellness' business..."
 
-The transmigrator restaurant was located on the top floor of Da Shijie. Pushing open the windows offered a panoramic view of the entire Da Shijie. Since it was afternoon, there weren't many people in the restaurant. Ai Zhixin asked for a private room and ordered some light, palatable dishes—partly to eat, and partly to discuss work while they were at it.
+Ai Zhixin laughed. "Nothing of the sort! You're a married man—how could I possibly create domestic trouble for you? Just a bath and massage, nothing more. A chance to properly relax. We've got plenty of work ahead. Come on, let's eat first!"
 
-He was anxious to know Wudaokou's attitude toward his tax policies, because several of his friends had mentioned in personal letters that his tax policies had caused significant controversy in the Executive Committee. In particular, the tax farming system had been excoriated, and some had even proposed a thorough investigation into his "ideological route."
+The transmigrator restaurant occupied the Great World's top floor. Open windows offered sweeping views of the entire complex. Being afternoon, the dining room was sparsely populated. Ai Zhixin secured a private room and ordered light, easily digestible dishes—partly for sustenance, partly to facilitate a working discussion.
 
-Putting that aside, Ai Zhixin was most concerned about how Wudaokou commented on it. After all, the views of experts were more important than those of laymen.
+He was anxious to gauge Wudaokou's stance on his tax policies. Several colleagues had mentioned in private correspondence that his proposals had sparked considerable controversy within the Executive Committee. The tax farming system had drawn particular censure, with some even calling for a formal investigation into his "ideological orientation."
 
-Dishes prepared for transmigrators were naturally the most exquisite. Considering Transmigrator Wang had just gotten off the ship and had a poor appetite, the chef prepared only a few refreshing, delicate side dishes accompanied by a bowl of porridge made from japonica rice.
+Politics aside, Ai Zhixin cared most about Wudaokou's professional assessment. Expert opinion carried far more weight than amateur criticism.
 
-However, Wang Qiyi's mind wasn't on eating or drinking either. From the day he boarded the ship, he had been considering the specific arrangements to discuss with Ai Zhixin.
+The dishes prepared for transmigrators inevitably represented the kitchen's finest work. Cognizant that Transmigrator Wang had just disembarked with a delicate stomach, the chef had prepared only a few refreshing side dishes accompanied by a bowl of japonica rice porridge.
 
-Ai Zhixin had already completed the top-level design of the Finance and Tax Bureau and tax system in Guangzhou. Tax categories, rates, scope, and even the general collection methods had been determined. Relying on the naturalized citizen cadres he brought and the retained old clerks he absorbed, the Finance and Tax Bureau's organization could barely be said to exist—of course, this system hadn't actually started operating yet. So his, Wang Qiyi's, job was to solidify these things and make the machine of the Finance and Tax Bureau truly run.
+Yet Wang Qiyi's thoughts were elsewhere. Since boarding the ship, he'd been mentally rehearsing the arrangements he needed to discuss with Ai Zhixin.
 
-Additionally, he had opinions on Ai Zhixin's current position. This opinion wasn't about who ranked higher or lower, but about issues in the current organizational structure of the Finance and Tax Bureau.
+Ai Zhixin had completed the high-level architecture of Guangzhou's Finance and Tax Bureau and tax system. Categories, rates, scope, even general collection methodologies had been established. Leveraging the naturalized cadres he'd recruited and the retained Ming clerks he'd absorbed, the Bureau's organizational framework nominally existed—though the machinery had yet to actually function. Wang Qiyi's task, therefore, was to operationalize these structures, to transform the Finance and Tax Bureau from blueprint to functional reality.
 
-The blame for this problem naturally couldn't be placed on Ai Zhixin—it was all caused by "institutional streamlining" under personnel shortages. One could say there were "unavoidable" aspects, but Wang Qiyi felt such "expedient measures" should be minimized. Otherwise, it would be hard to explain clearly in the future when facing scrutiny. As a colleague, he felt obligated to remind Ai Zhixin.
+Additionally, he harbored concerns about Ai Zhixin's current arrangements. These weren't matters of hierarchy or precedence, but structural flaws in the Bureau's organization.
 
-After eating and drinking their fill, Ai Zhixin and Wang Qiyi didn't immediately return to Guangzhou city but went directly to the small lounge next door to talk work.
+The blame couldn't reasonably fall on Ai Zhixin—it was all consequence of "institutional streamlining" necessitated by personnel shortages. One might call it "unavoidable," but Wang Qiyi believed such expedients should be minimized. Otherwise, explanations would prove difficult when facing future scrutiny. As a colleague, he felt duty-bound to raise the issue.
 
-"Now that you're here, I can truly rest easy." Ai Zhixin lit a cigar for himself. "You don't know, these past few months being here alone, honestly, was damn nerve-wracking. Want one?"
+After they'd eaten their fill, Ai Zhixin and Wang Qiyi forgent an immediate return to the city proper, retiring instead to the adjacent lounge for a working discussion.
 
-"No thanks." Wang Qiyi didn't stand on ceremony with Ai Zhixin and opened his portable notebook. "Shall I start directly?"
+"Now that you're here, I can breathe easier." Ai Zhixin lit a cigar. "You can't imagine—these past months alone here were genuinely nerve-wracking. Care for one?"
 
-"Sure."
+"No, thank you." Wang Qiyi dispensed with formality and opened his portable notebook. "Shall I begin?"
 
-"Director Ai, I've read all the plans and reports you sent to Lingao. I agree with the tax structure you've determined, centered on property tax, turnover tax, and stamp duty. This effectively captures major tax sources and fits the current professional level of our ordinary cadres. As for the poll tax, to be honest, I don't quite agree. This tax is not easy to collect. Although I know your purpose is to cultivate tax-paying consciousness, if collected strictly, it inevitably requires sufficient manpower and material resources, and the input-output ratio is too low; if collected loosely, it loses its original intent—moreover, once loopholes appear in this kind of direct tax, it immediately causes a counter-effect in social psychology. The simplistic personal income tax in the old timeline had similar problems: those making big money had ten thousand ways to avoid tax, while those paying were ordinary wage earners—because their income was clearest and collection easiest. As a result, the so-called wealth adjustment of 'income tax' became empty talk and instead became a target of criticism."
+"Please."
 
-Ai Zhixin's expression didn't look too good—because this "Head Tax" was his "original creation," and now Wang Qiyi had criticized it as soon as he arrived. However, Ai Zhixin knew that since Wang Qiyi said this, it likely represented the opinion of Wudaokou or even the State Council. Besides, Wang Qiyi's comments were well-founded.
+"Director Ai, I've reviewed all the plans and reports you forwarded to Lingao. I concur with your tax framework centered on property tax, turnover tax, and stamp duty. It effectively captures major revenue sources while accommodating our cadres' current skill levels. Regarding the poll tax, however, I must express reservations. This levy presents collection challenges. While I understand your intent to cultivate taxpaying consciousness, strict enforcement inevitably demands substantial manpower and resources, yielding poor input-output ratios. Lax enforcement, conversely, defeats the original purpose. Moreover, once
 
-He thought for a moment and said, "The matter of the poll tax can be discussed further—it was just a draft anyway, intended for everyone to brainstorm."
+ loopholes appear in direct taxation of this nature, immediate adverse social psychology follows. The old timeline's simplistic personal income tax suffered similar problems: the wealthy possessed countless avoidance mechanisms, while wage earners—whose incomes were most transparent and accessible—bore the burden. Consequently, the purported wealth redistribution function of 'income tax' became hollow rhetoric and a target for public criticism."
 
-Wang Qiyi nodded and continued, "Regarding tax items and rates, before coming here, Zhang Xiaoqi and I discussed them. The vast majority are very appropriate. There are a few individual areas we think need further consideration. This is too detailed, so I won't talk about it now; I'll report to you separately when needed. As for the collection method you set, including the plan of 'collect first, refund later,' Zhang Xiaoqi feels that since our enterprise income tax worked this way in the old timeline, we might as well try it now. She supports the thinking."
+Ai Zhixin's expression soured—the "Head Tax" was his brainchild, and here was Wang Qiyi dismantling it upon arrival. Yet Ai Zhixin recognized that Wang Qiyi's position likely reflected Wudaokou's assessment, possibly even the State Council's. Besides, the critique was well-reasoned.
 
-The Wang couple actually had quite a few ideas of their own about Ai Zhixin's plan. His wife had even said some things that were inconvenient to say publicly. However, Wang Qiyi wasn't willing to talk too much about this—after all, the State Council was anxious to push forward Guangzhou's financial and tax work and see results. There was no need to get too serious about inconsequential details. After all, Ai Zhixin's plan had no principled errors, and unity in the leadership team often determined the success or failure of the entire work. "Then below I'll talk about the opinions our couple discussed regarding concrete implementation..."
+After a moment's consideration, he replied, "The poll tax remains open for discussion. It was merely a draft, intended to stimulate collective brainstorming."
 
-The Wang couple's plan didn't contain anything that surprised Ai Zhixin. It was nothing more than being task-oriented, leaving traces at every step, ensuring everything was auditable, and having checks and balances between posts. It was basically following the tax procedures of the old timeline, just merging or simplifying some parts. Although it was easy to say, if Ai Zhixin had to go through the entire process himself, he could barely manage by flipping through books. But to explain clearly the twists and turns of these dozen or twenty posts and over a hundred links, and to identify which could be simplified or merged based on the current level of naturalized citizens, was truly beyond his capability.
+Wang Qiyi nodded, continuing, "Regarding specific tax items and rates, Zhang Xiaoqi and I discussed these before my departure. The vast majority are highly appropriate. A few isolated areas merit further consideration—too granular for present discussion. I'll report separately as needed. As for your collection methodology, including the 'collect first, refund later' approach, Zhang Xiaoqi notes that enterprise income tax functioned this way in the old timeline. She supports experimenting with the concept now."
 
-Because it involved specific work, Wang Qiyi had only covered a little more than half by dinner time. Ai Zhixin stated that health is the capital of revolution and proposed returning to the Finance and Tax Bureau to settle down, eat, and rest first. They would continue talking at the bureau tomorrow.
+The Wang couple harbored numerous thoughts regarding Ai Zhixin's plan. His wife had articulated observations better left unspoken in public. However, Wang Qiyi saw no value in dwelling on minutiae—the State Council was eager to advance Guangzhou's fiscal and tax operations toward tangible results. No need to obsess over inconsequential details. Ai Zhixin's plan contained no fundamental errors, and leadership cohesion often determined an endeavor's ultimate success or failure. "Let me now address the implementation framework my wife and I developed..."
 
-In the evening, Wang Qiyi took a sedan chair to the Finance and Tax Bureau—like many newly arrived transmigrators, he had originally insisted on "walking into the city" to demonstrate an "approachable" image. But upon seeing the mess everywhere at the Great East Gate enclosure, the piles of rubble, and the sludge dug out emitting foul odors... he compromised.
+The Wangs' proposal held no surprises for Ai Zhixin. Task-oriented processes, comprehensive documentation, full audit trails, positional checks and balances—essentially transplanting old timeline tax procedures with judicious simplification and consolidation. Easy enough to describe, and Ai Zhixin could probably stumble through the basics with reference materials. But explaining the intricacies of a dozen-plus positions and over a hundred procedural links, then determining which could be streamlined based on naturalized citizens' capabilities—that exceeded his expertise entirely.
 
-Carried all the way back to the Finance and Tax Bureau, Wang Qiyi was quite satisfied seeing the dormitory arrangement—this was much more comfortable than the transmigrator-exclusive tube-shaped apartment building in Lingao. Comrade Ai Zhixin had been very thoughtful; for instance, the bedroom was specially prepared with a double bed, and even the pillows were a pair. Considering the Wang couple's daughters might also come sightseeing, two guest rooms in the small courtyard had been specially renovated.
+Given the technical specificity, Wang Qiyi had covered barely half by dinnertime. Ai Zhixin invoked the revolutionary maxim that health is capital and proposed returning to the Finance and Tax Bureau to settle in, dine, and rest. They'd resume tomorrow at the Bureau.
 
-"What about the cadres who came together?"
+That evening, Wang Qiyi traveled by sedan chair to the Finance and Tax Bureau. Like many newly arrived transmigrators, he'd initially insisted on "walking into the city" to project an approachable image. But upon witnessing the chaos at the Great East Gate compound—rubble heaps everywhere, excavated sludge reeking to high heaven—he'd reconsidered.
 
-"All arranged," Ai Zhixin said. "The dormitories are all newly renovated, sanitary, safe, and healthy."
+Borne directly to the Finance and Tax Bureau, Wang Qiyi found the dormitory arrangements quite satisfactory—far more comfortable than Lingao's transmigrator-exclusive tube apartments. Comrade Ai Zhixin had been remarkably thoughtful. The bedroom featured a double bed with matching pillows. Anticipating potential visits from the Wang daughters, two guest rooms in the small courtyard had been specially renovated.
 
-"This cityscape of Guangzhou is really something to behold..."
+"And the cadres who accompanied me?"
 
-"That's why our Mayor Liu is digging everywhere—the cost inside this is enormous..." Ai Zhixin shook his head. "Fortunately, our non-tax fiscal revenue for the first few months was quite good. The State Council allocated a large sum to Liu Xiang for urban construction fees."
+"All accommodated," Ai Zhixin assured him. "The dormitories are newly renovated—sanitary, secure, and comfortable."
+
+"Guangzhou's streetscape is quite something..."
+
+"Hence Mayor Liu excavating everywhere. The costs are astronomical..." Ai Zhixin shook his head. "Fortunately, our non-tax fiscal revenue these first months proved substantial. The State Council allocated Liu Xiang a generous sum for urban infrastructure."
