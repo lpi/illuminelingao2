@@ -4,15 +4,15 @@
 
 "Come in!"
 
-The three of them turned to see Nan Wan'er enter carrying a woven rattan case in her left hand with a satchel draped over it, and a paper bag balanced in her right.
+The three of them turned to see Nan Wan'er enter, carrying a woven rattan case in her left hand with a satchel draped over it and a paper bag balanced in her right.
 
-"Director Ai, Director Wang, Director Zhang..." After pausing at the doorway to greet each leader in turn, Nan Wan'er placed everything on the coffee table in front of the sofa at Zhang Xiaoqi's gesture. "This case was kept in Chu Xiaoran's dormitory room. The satchel was in her office." With that, Nan Wan'er opened the paper bag, revealing a notebook and some miscellaneous documents. "These were found in her office."
+"Director Ai, Director Wang, Director Zhang..." After pausing at the doorway to greet each leader in turn, Nan Wan'er placed everything on the coffee table in front of the sofa at Zhang Xiaoqi's gesture. "This case was kept in Chu Xiaoran's dormitory room. The satchel was in her office." She opened the paper bag, revealing a notebook and miscellaneous documents. "These were found in her office."
 
 "Chu Xiaoran should also have a notebook in the tax service window drawer, used for work records. I didn't have time to get it yet given the rush..."
 
 "No need—thank you. You may go." Hearing Nan Wan'er refer to Chu Xiaoran by name rather than the usual "Sister Chu" or "Comrade Chu," Wang Qiyi couldn't help but glance at her.
 
-"This is a book for tracking expenses, plus some daily trivia..." Zhang Xiaoqi opened the notebook, glanced at the first page, then hesitated and set it down again.
+"This is a book for tracking expenses, plus some daily notes..." Zhang Xiaoqi opened the notebook, glanced at the first page, then hesitated and set it down again.
 
 "Come on now, Director Zhang! Don't go bringing privacy protections into this era. The person's dead—we need to figure out why, and fast!" Ai Zhixin grabbed the notebook, about to flip through it, when Zhang Xiaoqi stopped him again. "Respect for the dead—even as Elders, isn't it improper for us to just paw through her personal privacy like this..."
 
@@ -22,23 +22,23 @@ Only then did Zhang Xiaoqi relent. Wang Qiyi said, "How about this—Sister Zhan
 
 "Alright."
 
-Ai Zhixin opened the notebook and flipped through page by page for quite a while before tossing it back on the table in disappointment. "...Utterly useless." Wang Qiyi picked it up to look. It was a diary-style daily planner. Chu Xiaoran came from a scholarly family and could read and write. The notebook was written in small, elegant calligraphy.
+Ai Zhixin opened the notebook and flipped through page by page for quite a while before tossing it back on the table in disappointment. "...Utterly useless." 
 
-She was clearly a meticulous person—the contents were extremely detailed. Not only did it record daily work arrangements and key points, but also a running account of income and expenses. There wasn't actually much personal emotional content. Wang Qiyi flipped from beginning to end—apart from occasional gaps and the last few days before the suicide being left blank, the entries were largely the same.
+Wang Qiyi picked it up to look. It was a diary-style daily planner. Chu Xiaoran came from a scholarly family and could read and write. The notebook was written in small, elegant calligraphy. She was clearly a meticulous person—the contents were extremely detailed. Not only did it record daily work arrangements and key points, but also a running account of income and expenses. There wasn't actually much personal emotional content. Wang Qiyi flipped from beginning to end—apart from occasional gaps and the last few days before the suicide being left blank, the entries were largely uniform.
 
-Meanwhile, Zhang Xiaoqi first checked the satchel. Inside were just a few tax booklets, some documents and promotional materials, and some stationery. Nothing special. From the bag, she also retrieved a package claim stub from the "Guangzhou Postal Bureau": two days ago, Chu Xiaoran had sent a package to her daughter studying at Fangcaodi. The contents were listed as "clothes and food."
+Meanwhile, Zhang Xiaoqi first checked the satchel. Inside were just a few tax booklets, some documents and promotional materials, and some stationery. Nothing special. From the bag, she also retrieved a package claim stub from the Guangzhou Postal Bureau: two days ago, Chu Xiaoran had sent a package to her daughter studying at Fangcaodi. The contents were listed as "clothes and food."
 
-She then opened the case—it was a small woven rattan travel case manufactured by the Lingao Luggage Factory. Appropriate in size and very sturdy and durable, many naturalized cadres had purchased them. It was practically standard equipment for naturalized cadres in Guangzhou. Inside were just a few changes of undergarments and two sets of publicly issued "cadre uniforms." Nothing special. Digging to the bottom layer, she finally touched a round object, hard to the feel.
+She then opened the case—it was a small woven rattan travel case manufactured by the Lingao Luggage Factory. Appropriate in size and very sturdy, many naturalized cadres had purchased them. It was practically standard equipment for naturalized cadres in Guangzhou. Inside were just a few changes of undergarments and two sets of publicly issued cadre uniforms. Nothing special. Digging to the bottom layer, she finally touched a round object, hard to the feel.
 
-Pulling it out, she saw it was wrapped tightly in cloth. Zhang Xiaoqi unwrapped the cloth bundle to find it further wrapped in newspaper and cloth scraps. Growing more curious, she opened everything to discover a large bowl, quite exquisite. After studying it for a moment, she suddenly noticed three characters fired into the rim: "Yuyuan Lou."
+Pulling it out, she saw it was wrapped tightly in cloth. Zhang Xiaoqi unwrapped the bundle to find it further wrapped in newspaper and cloth scraps. Growing more curious, she opened everything to discover a large bowl, quite exquisite. After studying it for a moment, she suddenly noticed three characters fired into the rim: "Yuyuan Lou."
 
 Zhang Xiaoqi's eyelid twitched. She knew Yuyuan Lou—it was right by the Pearl River, a famous large restaurant locally. Most critically: Yuyuan Lou was Lin Zunxiu's family property!
 
 Lin Zunxiu was one of the main suspects implicated in the Guangzhou tax case, yet Chu Xiaoran had treasured a bowl from a restaurant under his name!
 
-The care with which she'd kept it among her clothing spoke volumes about its importance to her. Yet the bowl itself, though fine, wasn't particularly valuable—clearly, it carried some emotional significance as a memento of some event or person. Could it be...
+The care with which she'd kept it among her clothing spoke volumes about its importance. Yet the bowl itself, though fine, wasn't particularly valuable—clearly, it carried emotional significance as a memento of some event or person. Could it be...
 
-Zhang Xiaoqi didn't dare continue that line of thought. She'd originally assumed this young mother was pure as a blank sheet, a victim of the old society. And in Chu Xiaoran's daily work and life, she'd appeared completely serious, even devoid of personal feelings. Zhang Xiaoqi had felt entirely at ease about her. But clearly, things weren't so simple. She couldn't bear to see another Han Yue incident. Not only had that affected the Tax Bureau's work, but it had also cast an extremely negative shadow on the Elders' view of women.
+Zhang Xiaoqi didn't dare continue that line of thought. She'd originally assumed this young mother was pure, a victim of the old society. And in Chu Xiaoran's daily work and life, she'd appeared completely serious, even devoid of personal feelings. Zhang Xiaoqi had felt entirely at ease about her. But clearly, things weren't so simple. She couldn't bear to see another Han Yue incident. Not only had that affected the Tax Bureau's work, but it had also cast an extremely negative shadow on the Elders' view of women.
 
 She hesitated, set the bowl aside, and continued searching—when suddenly she discovered two letters.
 
@@ -98,4 +98,4 @@ With that, he threw the letter heavily onto the coffee table, stood up, put his 
 
 Next update: Volume 7 - Two Guangs Campaign Section 167
 
-(Chapter End)
+**(End of Chapter)**

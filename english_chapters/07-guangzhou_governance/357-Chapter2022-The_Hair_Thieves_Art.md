@@ -1,85 +1,81 @@
 # Chapter 2022 - The Hair-Thieves' Art
 
-Li Suiqiu knew that if he didn't do as told, he would inevitably be "summoned"; that would be a complete loss of dignity. He had long heard from servants that the Australians prided themselves on "iron-faced fairness," treating "scholars and commoners as one." Anyone arrogantly relying on their status and showing the slightest disrespect or non-compliance to their administration would be publicly humiliated. The parties involved would either have to swallow their shame and kneel to comply or face the Australians' "iron fist of dictatorship"—either labeled with various crimes and executed, or "exiled overseas"—which, in the eyes of locals, was no different from execution.
+Li Suiqiu understood perfectly well that refusal would mean a summons—and that would constitute a complete loss of face. His servants had long reported the Australians' reputation for what they called "iron-faced fairness," treating scholars and commoners alike. Anyone who presumed upon their status or showed the slightest defiance toward the new administration faced public humiliation. The recalcitrant either swallowed their pride and submitted, or encountered the Australians' "iron fist of dictatorship"—executed on fabricated charges, or "exiled overseas," which in local eyes amounted to the same thing.
 
-The Australians wanted to re-register households; it wasn't a major issue, neither harming his integrity nor his family.
+This household re-registration posed no great obstacle. It neither compromised his integrity nor endangered his family.
 
-"Since it is so, just report the household. Let the steward accompany you to handle it—he knows the family situation best."
+"Very well. Report the household details. Have the steward accompany you—he knows the family situation best."
 
-"Thank you, Master, for your understanding." The Paijia bowed again but didn't withdraw, saying, "There is one more thing..."
+"I thank the master for his understanding." The paijia bowed again but did not withdraw. "There is... one more matter."
 
-"Say it all; if it can be done, I won't make it difficult for you." Li Suiqiu was becoming displeased.
+"Out with it. If it can be done, I won't make difficulties for you." Li Suiqiu's patience was wearing thin.
 
-"I'm just passing a message," the Paijia smiled apologetically. "The Great Song Tax Bureau sent a notice: this year's general tax census is starting again—Master wasn't home a while ago, so it wasn't done, dragging on until now. Now that Master is back, this tax reporting can't be delayed. Please arrange for the accountant to set a time, and the Tax Bureau's commissioner will come for on-site service..."
+"I merely convey the message, master." The paijia's smile remained apologetic. "The Great Song Tax Bureau has issued notice: this year's general tax census has begun again. Since the master was absent previously, the matter was deferred. Now that you have returned, the tax declaration cannot be further delayed. Please have your accountant set an appointment—a commissioner from the Tax Bureau will provide on-site service."
 
-Li Suiqiu was greatly displeased and sneered: "Since ancient times, imperial grain and national taxes have been fixed; how much my family pays is clearly recorded in the Household Registry Office. Why this superfluous action? If the Council of Elders wants money, just give me a number; I, Li Suiqiu, will bankrupt my family to pay."
+Li Suiqiu's displeasure erupted into open scorn. "Since antiquity, imperial grain and national taxes have been fixed levies. How much my family owes stands clearly recorded in the Household Registry Office. Why this redundant exercise? If the Council of Elders requires money, simply name the sum. I, Li Suiqiu, will bankrupt my household to comply."
 
-Hearing this, the Paijia bent lower, continuing to smile apologetically: "Master, please don't be angry. These Australians follow the Great Song's tax laws, different from the Great... Ming Kingdom. I am also acting under orders. If you are unwilling to make an appointment, I will just report back to the Tax Bureau superiors..."
+The paijia bent even lower, smile unwavering. "Please do not anger yourself, master. These Australians follow Great Song tax laws, quite different from the Great... Ming Kingdom. I too act under orders. If you are unwilling to arrange an appointment, I shall simply report back to the Tax Bureau superiors..."
 
-Li Suiqiu thought of the recent special report on "Cracking Down on Tax Evasion" in *Sheep City Express* and felt discouraged—now the whole family was in Guangzhou; truly, man was the chopping block and I the fish. Even if he didn't care for himself, he had his mother and concubine-mother above, wife and brothers in the middle, and children and nephews below. What use was fighting over this petty grievance? Even to serve the court, it wasn't about this moment; making this meaningless struggle would only waste lives. He swallowed his pride: "I never ask about such miscellaneous matters; just go discuss it with the steward."
+Li Suiqiu recalled the recent *Sheep City Express* exposé on "Cracking Down on Tax Evasion" and felt his resistance crumble. The whole family now resided in Guangzhou—he was the fish, they the chopping block. Even if he cared nothing for himself, above him stood his mother and concubine-mother, beside him his wife and brothers, below him his children and nephews. What purpose could this petty defiance serve? Even were he to serve the court someday, that moment was not now. To waste lives on meaningless gestures of resistance... He swallowed both pride and resentment. "I never involve myself in such trivial matters. Discuss it with the steward."
 
-"Yes! Thank you, Master, for understanding. It's official business for me too..." The Paijia bowed and backed out as he spoke. Li Suiqiu was full of displeasure, secretly cursing "truly a despicable vile character," ruining half the good mood of returning home. No wonder friends said Australian rule was "rites collapsed and music spoiled."
+"Yes! I thank the master for his understanding. It is merely official business, you understand..." The paijia backed toward the door, bowing continuously. Li Suiqiu seethed with displeasure, silently cursing the man as a "despicable character." Half the joy of homecoming had soured. Small wonder his friends complained that Australian rule amounted to "the collapse of rites and the corruption of music."
 
-After brooding at home for a few days, having no heart for study or eight-legged essays, nor interest in composing poetry, he found most of his poetry friends remained in Guangzhou. However, since the voodoo case implicated many gentry and wealthy households, they rarely held poetry or literary gatherings—partly to avoid arousing the hair-thieves' suspicion, partly to avoid slips of the pen bringing disaster.
+He brooded at home for several days afterward, his heart unfit for classical studies or eight-legged essays, his mind too heavy for composing poetry. Most of his literary circle remained in Guangzhou, yet since the sorcery accusations had implicated so many gentry and wealthy households, they rarely convened poetry gatherings or literary salons—partly to avoid arousing the hair-thieves' suspicion, partly to prevent careless words from bringing catastrophe.
 
-However, small gatherings between friends were not taboo. After returning to the city, Li Suiqiu met with friends a few times. For discretion, only five or six people were present each time. Banquets weren't held in restaurants or tea houses, but in private residences or villas. Besides drinking and reminiscing, the topic was always the "Australian Situation."
+Small gatherings among friends, however, remained acceptable. Since returning to the city, Li Suiqiu had met with companions several times. For discretion's sake, no more than five or six gathered at once. They avoided restaurants and teahouses, meeting instead in private residences or suburban villas. Beyond wine and reminiscence, conversation invariably turned to the "Australian Situation."
 
-Living in seclusion in the countryside, though he generally knew the situation in the city, he lacked detail. Now at the wine table, without needing to ask much, many people naturally recounted the fresh events since Guangzhou's fall one by one.
+His rural seclusion had provided general knowledge of conditions within the city, but lacked granular detail. Now, at banquet tables heavy with wine, companions volunteered accounts of all that had transpired since Guangzhou's fall.
 
-The most discussed topic was the "Civil Service Exam."
+The most debated topic remained the so-called "Civil Service Examination."
 
-Most of them didn't consider this an "Australian-style" imperial examination. Although the form was similar to the Ming exams, the number admitted was huge, yet the positions granted were merely "petty clerks." forget about "high and pure officials" like Hanlin academicians; even positions like magistrates didn't exist. Reportedly, the top scorer was merely sent to the Tax Bureau to collect taxes—in the Ming, that wouldn't even count as a "clerk," barely a "runner."
+Few present regarded it as any genuine Australian equivalent of the imperial examinations. Though the format superficially resembled the Ming system, the sheer number admitted—and the paltry positions granted—rendered it farcical. These were mere clerical posts. Forget the "high and pure offices" of Hanlin academicians; even county magistracies were nowhere to be found. The top scorer, rumor claimed, had been dispatched to the Tax Bureau to collect revenue—a position that in the Ming wouldn't qualify as "clerk," scarcely even "runner."
 
-Everyone agreed this was just the Australians acting like "monkeys wearing hats," using the examination form to win hearts and recruit a batch of destitute scholars for their use. Incidentally powdering their own faces to vie for "legitimacy."
+The consensus held this as yet another instance of Australians playing "monkeys in scholars' caps," using examination trappings to win hearts and conscript destitute scholars into service, while simultaneously powdering their own faces in pursuit of "legitimacy."
 
-"Most admitted were mere licentiates (students), some not even that. Just studied a few years in community schools and know a few characters—even shop assistants were admitted in large numbers. It's said as long as one can write and use an abacus, they count as Australian talents."
+"The vast majority admitted were mere licentiates," one friend scoffed. "Some not even that—just boys who studied a few years in community schools and know their characters. Shop assistants were admitted in droves! They say so long as one can write and manipulate an abacus, one qualifies as Australian talent."
 
-"They say the top scorer of that Civil Service Exam was the young manager of an incense and candle shop! At least these hair-thieves have some shame and didn't parade him through the streets; otherwise, it would truly shame Sheep City and sweep dignity into the dust!"
+"The top scorer of this Civil Service Examination," another added, "was supposedly the young manager of an incense and candle shop! At least these hair-thieves possessed sufficient shame not to parade him through the streets—though that would have been fitting, sweeping Sheep City's dignity entirely into the gutter."
 
-"A great cry for the Examination Hall!"
+"The Examination Hall itself must weep!"
 
-...
+The litany of mockery continued. As though venting the accumulated bitterness of Guangzhou's loss, the assembled friends adopted a uniform tone of disparagement toward the Australians. Li Suiqiu found himself drawn into the chorus. Yet after three rounds of wine, reflection set in. If these Australians were truly so "frivolous and unlearned," how had Guangzhou fallen with such ease? How did they administer the city with such apparent competence, surpassing even past Ming governance?
 
-As if to vent the bitterness of losing Guangzhou, friends all adopted a similar tone of deprecating and mocking the Australians. Li Suiqiu couldn't avoid it either. But reflecting after three rounds of wine, if these Australians were so "frivolous and unlearned," how could Guangzhou fall so easily? How could they manage Guangzhou city so impressively, surpassing the past?
+All present were well-read men of broad experience, not pedantic scholars trapped in doctrine. Judging by results rather than prescriptions, comparing Australian administration directly with the Ming—the hair-thieves clearly demonstrated superior capability.
 
-They were all well-read and widely traveled people, not pedantic scholars. Comparing the hair-thieves' administration with the Ming's, judging by results not prescriptions, clearly the hair-thieves were much more brilliant.
+The company dismissed certain achievements—demolishing lean-tos, dredging sewers, suppressing the Guandi Temple gang—as requiring no particular "ability." First, they borrowed the overwhelming "military might" of an occupying army. Second, as "overseas barbarians," they had no need to navigate complex webs of interest and obligation, acting simply with "decisive brutality."
 
-In their view, demolishing lean-tos, dredging channels, and banning the Guandi Temple gang didn't count as "ability." Firstly, they borrowed the "military might" of the pressing army; secondly, hair-thieves were "overseas barbarians" with no need to consider complex interest relationships, merely acting with "decisive killing."
+What truly demonstrated Australian competence, in universal agreement, was their handling of the plague. The response had been nearly flawless. Beyond halting the epidemic's spread swiftly and at relatively modest cost, every decree issued throughout the crisis had been executed thoroughly and immediately, moving as smoothly as directing one's own arm. Those four characters—"orders executed, prohibitions obeyed"—far surpassed anything the Ming had achieved.
 
-What truly demonstrated Australian ability, by common consensus, was handling the plague—the Australian response was almost flawless. Not to mention stopping the plague's spread quickly at a relatively small cost, every government order issued during the entire plague period was executed thoroughly and swiftly, like directing one's arm. The four words "orders executed, prohibitions obeyed" far surpassed the Ming.
+"The hair-thieves possess methods for managing clerks," observed Qu Huairui, one of the Twelve Masters of the Southern Garden. "I've heard they govern clerks according to military law. Salaries are generous, but discipline extraordinarily harsh. The slightest error means heads roll, with families implicated alongside."
 
-"The hair-thieves have methods in managing clerks," said Qu Huairui, one of the Twelve Masters of Southern Garden. "I heard they govern clerks with military law. Clerks are paid generously but controlled extremely strictly. Any slight mistake means heads roll, even implicating family members."
+"Now there's a clever method," someone remarked. "If our dynasty could implement such measures, we too could break the plague of corrupt clerks!"
 
-"That is a clever method," someone commented. "If our dynasty could do this, it could also break the harm of corrupt clerks!"
+Though the assembled company represented Guangzhou's upper echelons, even they could not escape perfunctory dealings with yamen clerks. During festivals, when functionaries came to "beat the autumn wind"—demanding customary gifts—they inevitably parted with silver. The annoyance might be minor as a skin rash, but it festered nonetheless.
 
-Although those present were Guangzhou's "upper class," facing clerks, they couldn't help but be perfunctory on the surface. During festivals, when clerks came to "beat the autumn wind" (extort gifts), they inevitably had to spend some money. Though just a scabies-like annoyance, it was unpleasant after all.
+"You speak incorrectly," another countered. "This method is mere Legalist technique—what novelty does it possess? The Violent Qin was mighty, yet collapsed within two generations. I view the Australians' actions as no different from the Violent Qin's tyranny."
 
-"This statement is wrong. This method is merely Legalist technique, what's fresh about it? The Violent Qin was strong, but fell in two generations. I view the Australians' actions as no different from the Violent Qin..."
+The observation resonated widely. Australian measures upon entering the city—affixing house numbers, establishing the baojia system, rectifying household registration, organizing police patrols day and night—these anyone versed in history recognized as hallmarks of "Legalist rule."
 
-This remark resonated with many. Australian measures after entering the city: nailing house numbers, establishing Baojia, rectifying household registration, organizing police for day and night patrols... Anyone who read history knew this was "Legalist rule."
+"In my estimation," Li Suiqiu interjected, breaking his silence, "the hair-thieves' statecraft transcends simple Legalism. Their governance philosophy might be captured in a single line: Elevate the rights of commoners, protect the wealth of the middle classes, suppress the power of the mighty."
 
-"In my view, the hair-thieves' statecraft is not Legalist either," Li Suiqiu, who hadn't spoken, said. "The hair-thieves' rule, in one sentence: Raise the rights of commoners, protect the wealth of the middle class, suppress the power of the mighty."
+The pronouncement fell like thunder, instantly clarifying what had seemed like "viewing flowers through fog." Connecting Australian actions since entering the city with news gathered over months, everything aligned with these three principles.
 
-This sentence was deafening, instantly sobering the scholars who originally felt like "viewing flowers in fog" regarding Australian administration. Connecting Australian actions after entering the city and various news heard previously, everything followed these three principles.
+"Brother Li speaks truth! The hair-thieves operate precisely according to these three maxims!"
 
-"Brother Li is right! The hair-thieves act exactly by these three principles!"
+"Remarkable—Brother Li secluded himself in the countryside yet perceives city affairs with such clarity."
 
-"Unexpectedly, Brother Li lived in seclusion in the countryside yet saw city affairs so clearly."
+Li Suiqiu waved away the compliments. Despite his prolonged residence in Banqiao, he had in fact remained keenly informed of events both within and beyond the city walls. This included the *Sheep City Express*, delivered thrice monthly by the old servant. He read each issue meticulously—every news item, every report, even the advertisements—determined to decipher the Australians' art of "bewitching hearts."
 
-...
+In Li Suiqiu's assessment, the Australians' "powerful ships and devastating cannon," their "ingenious devices"—these were all "minor arts." What proved truly formidable was their talent for winning hearts. It approached sorcery.
 
-Li Suiqiu waved his hand. Despite living long in Banqiao, he was actually clear about everything happening inside and outside the city. Including the *Sheep City Express* delivered three times a month by the old servant, which he read carefully. He read every news item, every report, even advertisements repeatedly, aiming to decipher the Australians' art of "bewitching hearts."
+From their initial landing on Hainan to their occupation of Guangzhou, scarcely ten years had elapsed. Yet Qiongzhou was reportedly already "greatly governed." Not merely destitute commoners clamored to cross the strait, but even prosperous merchants purchased land in Lingao, constructing mansions and pleasure estates. Li Suiqiu had initially failed to comprehend how a band of overseas barbarians could so bewitch hearts as to entice multitudes toward the desolate wastes of Qiongzhou—willing to build roads and bridges, to labor in fields and workshops, to march into battle for the hair-thieves. Not only creating an enviable "small paradise" of peace and prosperity, but transforming common folk who had followed bandits into formidable soldiers who charged fearlessly into combat.
 
-In Li Suiqiu's view, the Australians' "strong ships and sharp cannons" and "ingenious skills" were all "minor arts." What was truly formidable was their art of winning hearts—almost like sorcery.
+To attribute this solely to "luring with profit" proved far too simplistic. The Ming possessed forces "rewarded with heavy gold" as well—the Guanning official army in Liaodong, for whom the court annually expended millions in silver and grain. Yet these vast expenditures purchased no victories. Instead, the Eastern Barbarians drove them back step by relentless step, nearly to Shanhai Pass itself, repeatedly breaching the border wall to plunder at will.
 
-From their first landing in Hainan to occupying Guangzhou, less than ten years had passed. It was heard Qiongzhou was already "greatly governed." Not only did destitute commoners vie to cross the sea to go there, but even many local rich merchants went to Lingao to buy land and build houses, constructing nests of pleasure. Li Suiqiu originally couldn't understand how a band of overseas barbarians could bewitch hearts, enticing everyone to run determinedly to the desolate land of Qiongzhou. Willing to build bridges and roads, work and farm, and fight in battle for the hair-thieves. Not only building an enviable "little paradise" of peace and work, but also turning commoners who followed thieves into strong soldiers, charging into battle without fear.
+During his seclusion in Banqiao, through rumor and through newspapers, Li Suiqiu had gradually penetrated the secret of how the Australians won hearts.
 
-To summarize it merely as "luring with profit" was too simple. Speaking of groups "rewarded with heavy gold," the Ming had them too: the Guanning official army in Liaodong, for whom the court spent millions of taels of silver and grain annually, yet didn't buy victory. Instead, they were pushed back step by step by the Eastern Barbarians (Manchus), almost retreating to Shanhai Pass, not to mention having the border wall breached multiple times and being plundered.
+Consider the Sorcery Case—police sparing no effort to trace the whereabouts of missing girls. In times past, the yamen would not have bothered investigating such matters, would scarcely have deigned to listen. This exemplified "elevating the rights of commoners." Common people, struggling daily for mere survival, powerless and without influence, found themselves only exploited and abused when misfortune struck. That the hair-thieves stood willing to champion their cause, to let them raise their heads with dignity—this was elevating commoner rights.
 
-During his seclusion in Banqiao, hearing rumors and reading newspapers, he gradually comprehended the secret of Australians winning hearts.
+"Protecting the wealth of the middle classes": The Guandi Temple gang, yamen clerks, and their ilk habitually preyed upon the populace through extortion and protection rackets. Destitute commoners possessed no wealth worth extracting; those truly vulnerable to harassment and exploitation were middle-class households—merchants and the moderately prosperous. By suppressing and eliminating these predators, the hair-thieves won middle-class allegiance as well.
 
-The Voodoo Case, sparing no police effort to track the whereabouts of Ming girls. In the past, the yamen wouldn't bother managing such things, or even listening—this is "raising the rights of commoners." Common people, struggling for livelihood daily, powerless and influential, were only exploited and bullied when things happened. The hair-thieves were willing to stand up for them, letting them hold their heads high. This is "raising the rights of commoners."
-
-"Protecting the wealth of the middle class": The Guandi Temple gang, yamen clerks... these people were accustomed to harassing commoners and racketeering. Small commoners had no wealth or property, yielding little money; those bullied and exploited, unable to bear the harassment, were middle-class families like merchants. The hair-thieves suppressed and eliminated them, winning their hearts too.
-
-Finally, "suppressing the power of the mighty." The Australians were now doing this step by step. The Voodoo Case merely harvested the always lawless "bad gentry," and the subsequent "tax rectification" was the knife drawn against the gentry and wealthy households.
+Finally, "suppressing the power of the mighty." The Australians pursued this objective methodically. The Sorcery Case had merely culled the most egregiously lawless among the "bad gentry." The subsequent "tax rectification" represented a blade drawn explicitly against the scholar-gentry class and wealthy households at large.

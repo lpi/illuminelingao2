@@ -2,7 +2,7 @@
 
 Mu Min was in a bad mood today.
 
-After months of exhaustion, she'd finally gotten a day with nothing urgent, a day to rest and get together with the female Elders in Guangzhou—though they affectionately called themselves "sisters," Mu Min knew perfectly well they were just plastic sisters at best.
+After months of exhaustion, she'd finally gotten a day with nothing urgent, a day to rest and get together with the female Elders in Guangzhou—though they affectionately called themselves "sisters," Mu Min knew perfectly well they were plastic sisters at best.
 
 But even plastic sisters could have a wonderful time. Especially when someone really knew how to host. There was no doubt that Pei Lixiu's "tea party" at Ziming Tower today would be the height of indulgence.
 
@@ -16,11 +16,11 @@ The case was absurdly straightforward and required no "solving," but Mu Min knew
 
 Just as she was pondering how to write up this case, Political Security sent another notification: Steward Mai Dami of the Liang family had accidentally fallen to his death while sightseeing at Yuexiu Mountain. They requested the Police Bureau pay close attention to anything suspicious during processing.
 
-Climbing a mountain in this heat when it's not even a holiday! Mu Min tossed the note into her file box. She stood up in irritation and paced around her office a few times before returning to her desk and pulling out her personal Glock 17 to clean. Over the years, she'd developed this habit to ward off bad moods.
+*Climbing a mountain in this heat when it's not even a holiday!* Mu Min tossed the note into her file box. She stood up in irritation and paced around her office a few times before returning to her desk and pulling out her personal Glock 17 to clean. Over the years, she'd developed this habit to ward off bad moods.
 
 Having been in policing for years, Mu Min had long since become numb to death. From officially taking up her post in Guangzhou, through public order rectification, the witchcraft case, the Guan Di Temple incident—one major case after another, and every one eventually required her to countersign an execution order. If she could handle ordering deaths, what were two people who'd died on their own?
 
-Still, this Chu Xiaoran... Mu Min thought again of the woman who'd taken her own life. She sighed. Didn't you know that hanging leaves an ugly corpse? Didn't you know your death would bring trouble on your three directors? You'd already become an Executive Committee cadre with good days ahead—what could you possibly not work through? Why earn yourself a "criminal" label?
+Still, this Chu Xiaoran... Mu Min thought again of the woman who'd taken her own life. She sighed. *Didn't you know that hanging leaves an ugly corpse? Didn't you know your death would bring trouble on your three directors? You'd already become an Executive Committee cadre with good days ahead—what could you possibly not work through? Why earn yourself a "criminal" label?*
 
 If her death was personal rather than work-related, Mu Min calculated on Zhang Xiaoqi's behalf—should she suggest privately asking Dean Deng for a medical certificate of long-term depression for Chu Xiaoran? As shrewd as Dean Deng was, doing a favor for the Finance Gods wouldn't be a losing deal. The only trouble was that handwritten letter—now in the investigators' hands. To remove it would require exercising her "command authority." Though exercising command authority needed no specific reason beyond "for the benefit of the Executive Committee and the People," the exercise itself left a record.
 
@@ -40,7 +40,9 @@ Slowly pressing the ejected rounds back into the magazine, Mu Min felt herself g
 
 "Yes!"
 
-As the sedan chair entered the Tax Bureau gates, Mu Min spotted Zhang Xiaoqi standing in front of the office building, apparently somewhat anxious as she spoke with someone beside her.
+---
+
+As the sedan chair entered the Tax Bureau gates, Mu Min spotted Zhang Xiaoqi standing in front of the office building, apparently anxious as she spoke with someone beside her.
 
 "Xiaoqi." Mu Min jumped down before the carriage had fully stopped and took Zhang Xiaoqi's hand. "Everything alright?"
 
@@ -88,6 +90,8 @@ Hearing Ai Zhixin's proposal, both Mu Min and Wu Mu's expressions flickered mome
 
 "Interrogation isn't our forte. We'll join Director Mu in sealing up the Shi family first." Ai Zhixin stood and handed a cup to Wu Mu and Mu Min, one in each hand. "The evidence against the Luo and Lin families is solid—no need to wait; we can proceed directly with property seizure. Director Mu, let's commence operations."
 
+---
+
 The seizure operation was led by the two women, Mu Min and Zhang Xiaoqi—Wang Qiyi had been kept behind by Ai Zhixin to discuss "more pressing matters." The operation went smoothly. The Shi and Lin families seemed to have anticipated this; the entire household, including servants and maids, remained silent. The only noise came during the Guiren Ju seizure when Master Luo Zhixiang shouted a few phrases like "I am a law-abiding citizen of the Great Song" and "I've done business with the Executive Committee."
 
 Lin Zunxiu stood at the foot of the steps and raised his eyelids slightly. The two female short-hairs at the main hall entrance were tall and sturdy with fair skin, their features carrying an air of propriety. Though small, exquisite "Australian revolvers" hung at their waists, they didn't look like brutish thugs. Young Master Lin had seen and heard plenty about court officials handling cases, but today, with it happening to his own family, things felt quite different. The two female short-hairs stood with feet together, expressionless, neither speaking to each other nor making small talk—as if each was weighed down by heavy thoughts.
@@ -96,7 +100,7 @@ Just as he was pondering, the sound of a carriage came from outside the main gat
 
 In the distance, voices clamored. Lin Zunxiu strained his ears but could only barely make out Grand Prefect Liu loudly saying "Good, good, good" three times and some nauseating flattery.
 
-Hearing this, Young Master Lin couldn't help but sneer inwardly. A grown man, master of an entire city, having to fawn so on two women—these short-hair bandits weren't just uncouth, they were beyond the pale!
+Hearing this, Young Master Lin couldn't help but sneer inwardly. *A grown man, master of an entire city, having to fawn so on two women—these short-hair bandits weren't just uncouth, they were beyond the pale!*
 
 Beyond contempt, Young Master Lin was also quite baffled by the short-hairs' approach today. He was someone who'd seen much of the world. By common sense, the day of property seizure should be the day of ruin. Yet these two female short-hairs had only ordered their subordinates to seal things up—no moving of valuables, no digging up the entire property. How peculiar. Could there still be room for a turnaround?
 
@@ -104,10 +108,4 @@ Beyond contempt, Young Master Lin was also quite baffled by the short-hairs' app
 
 Next update: Volume 7 - Two Guangs Campaign Section 168
 
-Due to an update refresh error, today's update of Volume 7 - Guangzhou Governance Section 441 was duplicated.
-
-Due to system limitations, the duplicate chapter cannot be deleted. Content has now been updated to Section 442.
-
-Those who have already subscribed, please re-read.
-
-(Chapter End)
+**(End of Chapter)**

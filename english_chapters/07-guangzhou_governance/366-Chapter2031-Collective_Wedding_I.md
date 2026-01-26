@@ -1,97 +1,95 @@
 # Chapter 2031 - Collective Wedding (I)
 
-"This Daoist has plenty of enjoyment! No need for your flattery. You bald head, you're quite the clever one!" Cui Hantang laughed.
+"Oh, this Daoist needs no flattery—he has pleasures enough of his own!" Cui Hantang laughed. "But you, bald head, you're a sharp one indeed."
 
-Shi Tong'an knew that though he called him "bald head," he actually quite enjoyed the flattery. Feeling pleased, he smiled along: "The Daoist Master is one who has attained the Dao in Australia, naturally above such enjoyments. But if there's anything needed, just instruct this poor monk."
+Shi Tong'an knew the epithet masked genuine approval. Pleased, he smiled along. "The Daoist Master has attained the Way in Australia and risen above such earthly concerns. Still, should you require anything, you need only instruct this poor monk."
 
-Cui Hantang laughed heartily: "Fine, fine. If I need anything, I'll certainly tell you first."
+Cui Hantang's laughter rang out. "Fine, fine. When I have need, you'll be the first I call upon."
 
-After seeing Shi Tong'an off, the dejection Cui Hantang had felt over failing to sway Li Suiqiu was swept away—just a Li Suiqiu, what's the big deal? When the Tax Bureau swallows you down to the bone, we'll see if you're still so arrogant! But among Li Qiushui's group, there were several clever ones—worth considering taking in. After all, Li Suiqiu's days were still comfortable, while these scholars were all quite poor...
+After Shi Tong'an departed, the sting of Li Suiqiu's refusal faded from Cui Hantang's mind. Just a Li Suiqiu—what was he in the grand scheme? When the Tax Bureau ground him down to the marrow, they'd see how arrogant he remained. Still, among Li Qiushui's circle, several showed promise. Worth considering for recruitment, perhaps. After all, Li Suiqiu enjoyed comfortable circumstances, but these scholars were universally poor...
 
-The fundraising campaign was a great success under Cui Hantang's management. Though he "skimmed off" quite a bit, through everyone's efforts, funds for the collective wedding and renovating the newlyweds' housing were secured. Everyone was satisfied.
+The fundraising campaign flourished under Cui Hantang's stewardship. Though he skimmed liberally from the proceeds, collective effort secured sufficient funds for both the wedding ceremony and renovations to the newlyweds' housing. All parties departed satisfied.
 
-According to the standard collective wedding procedure, there would typically be a "city parade" first. However, parading through Guangzhou's streets wasn't feasible—after all, the streets were too narrow for carriages, and using rickshaws would be too shabby. So "Pearl River cruising" would substitute.
+According to standard procedure, collective weddings traditionally featured a "city parade." But Guangzhou's cramped streets made this impractical—too narrow for carriages, and rickshaws would appear shabby. Instead, they would cruise the Pearl River.
 
-During parades, couples would typically take commemorative photos at churches, city halls, or certain landmark spots. Local conditions didn't permit this, so Fang Fei eliminated this step. Instead, after the boats reached the dock, the newlyweds would take group photos at Great World Plaza. Then the wedding would begin right there.
+Typically, couples photographed themselves at churches, city halls, or other landmark sites during such parades. Local conditions prohibited this, so Fang Fei eliminated the step entirely. After the boats docked, the newlyweds would assemble for group photographs at Great World Plaza, where the wedding itself would commence.
 
-The wedding venue was set at Great World's outer plaza—the city was still too cramped, lacking spaces for large-scale public gatherings. This location could accommodate several thousand observers, and was easy to secure and evacuate. Crucially, it had the sound amplification and lighting equipment necessary for mass gatherings and performances.
+The ceremony would take place at Great World's outer plaza. The city proper remained too congested for large-scale public gatherings, but this venue could accommodate several thousand spectators and offered straightforward security and evacuation protocols. Most importantly, it possessed the sound amplification and lighting equipment essential for mass events and performances.
 
-As for the wedding ceremony, they rejected the "Chinese style" proposed by the Huaxia Society, also turned down the "Western style" proposed by Wu Shimang and others, and finally vetoed the "revolutionary style" proposed by the Spartacus Society. In the end, they adopted the so-called "Australian style," which was actually a simplified version of old-timeline wedding company practices. The cultural performance would be self-funded by the Plaid Skirt Club—Wu Ciren had specially come to Guangzhou for this, allegedly to "inspect Guangdong's transportation and public safety situation."
+For the ceremony itself, they rejected the "Chinese style" advocated by the Huaxia Society, declined the "Western style" proposed by Wu Shimang and others, and vetoed the "revolutionary style" championed by the Spartacus Society. They settled at last on the so-called "Australian style"—in truth, a simplified iteration of commercial wedding practices from the old timeline. The Plaid Skirt Club would self-fund the cultural performances. Wu Ciren had traveled to Guangzhou specifically for the occasion, ostensibly to "inspect Guangdong's transportation and public safety infrastructure."
 
-As for the ceremony itself, several "leaders" would naturally need to give speeches and serve as officiants. Liu Xiang was quite willing to be the officiant, but Fang Fei ultimately decided to ask Wen Desi to officiate—not because he was the "highest official," but because Fang Fei thought his name was auspicious. "Desi" could be interpreted as "gaining heirs," and even its literal meaning was excellent—a tremendous good omen for newlyweds.
+Several "leaders" would naturally deliver speeches and serve as officiants. Liu Xiang expressed willingness to preside, but Fang Fei ultimately requested Wen Desi instead—not for his official rank, but for his auspicious name. "Desi" could be interpreted as "gaining heirs," and even its literal meaning conveyed excellence—a tremendous omen for newlyweds.
 
-After the ceremony would come the wedding banquet. Seventy-six couples plus congratulating relatives and friends and wedding guests from all sectors added up to roughly five hundred people. At eight per table, that meant sixty tables. Neither the Ziming Restaurant nor local restaurants could handle such scale; they'd need to hire cooks specializing in wedding and funeral catering. They'd also need to specially erect tents, build stoves, and hire waiters—very troublesome, with hygiene and various other problems. Finally, Fang Fei made the call: buffet!
+The ceremony would culminate in a wedding banquet. Seventy-six couples, plus congratulatory relatives, friends, and guests from all sectors totaled roughly five hundred attendees. At eight per table, that required sixty tables. Neither the Ziming Restaurant nor local establishments could manage such scale; they'd need to hire specialized catering cooks, erect tents, build stoves, recruit waiters—tremendously troublesome, with hygiene concerns and myriad complications. Fang Fei rendered his judgment: buffet service.
 
-The biggest advantage of a buffet was requiring fewer service personnel. Mu Min was quite worried about gathering so many guests for the collective wedding. If arranged as eight-person tables, cooks, helpers, and waiters alone would number one to two hundred. Maintaining order would be very stressful.
+The buffet's greatest advantage lay in minimal staffing requirements. Mu Min harbored considerable anxiety about managing so many guests. Traditional table arrangements would demand one to two hundred cooks, assistants, and servers—maintaining order would prove enormously challenging.
 
-Fang Fei was run off his feet, and Liu Yikun, head of Great World, was equally overwhelmed. For a while, the entire Guangzhou Municipal Government seemed to revolve around the collective wedding. Even the commoners in the streets and alleys were touched by this festive atmosphere—newspapers and posters had spread the news throughout the city. Those merchants and wealthy households who had "donated" or "offered meritorious contributions" through various channels were puffing out their chests, boasting about supposed "inside information" they didn't actually know—actually just hearsay combined with their own imagination.
+Fang Fei worked himself ragged, while Liu Yikun, head of Great World, fared no better. For a time, Guangzhou's entire municipal apparatus seemed to orbit the collective wedding. Even common citizens in streets and alleys felt the festive atmosphere—newspapers and posters had broadcast the news citywide. Those merchants and wealthy households who had "donated" or "rendered meritorious service" through various channels now strutted with chests puffed, boasting of "inside information" they didn't actually possess—merely hearsay embellished by imagination.
 
-Amid this joyous atmosphere, the day of the collective wedding finally arrived: September 1st, 1636—Liu Xiang joked this was the start of school.
+Within this joyous atmosphere, the day of the collective wedding finally dawned: September 1st, 1636. Liu Xiang joked it marked the start of school.
 
-"That's right, married life is also learning," Fang Fei smiled. "Family is a school. We've come here not only to change the old marriage system but also to change old family life."
+"Precisely," Fang Fei smiled. "Marriage is also education. The family is a school. We've come not only to transform the old marriage system but to revolutionize family life itself."
 
-Early in the morning, the women preparing to marry who were gathered at the "Guangdong Province Temporary Shelter" got up—they had already bathed the night before and changed into completely new undergarments and outerwear. The wedding clothes had been custom-made in Lingao, sponsored by the Huaxia Society: red dresses with hanfu elements, following the traditional women's hanfu style of upper jacket and lower skirt, using modern tailoring techniques for a more fitted, movement-friendly design.
+That morning, the women gathered at the "Guangdong Province Temporary Shelter" rose early. They had bathed the previous night and changed into completely new undergarments and outer clothing. Their wedding attire had been custom-tailored in Lingao, sponsored by the Huaxia Society: red dresses incorporating hanfu elements, following the traditional style of upper jacket and lower skirt but employing modern tailoring techniques for superior fit and mobility.
 
-They had already had their hair trimmed beforehand—to reduce styling time while also promoting the "new woman," all hairstyles were simple modern cuts without traditional buns. Just for this wedding, each woman had a specially-made red velvet flower tucked by her temple. Looking both gorgeous and elegantly simple.
+Their hair had been trimmed beforehand. To reduce styling time while promoting the "new woman" ideal, all wore simple modern cuts without traditional buns. Each bride had a specially crafted red velvet flower tucked beside her temple—simultaneously gorgeous and elegantly restrained.
 
-When the bridal clothes were brought out, the brides exclaimed in amazement—when had they ever seen such beautiful garments? Not only were the cutting and decoration gorgeous, but the fabric was top-quality silk. In their former days selling smiles at doorways, their best clothes had been nothing more than crude cocoon-silk garments.
+When the bridal garments emerged, the brides gasped in wonder. When had they ever encountered such beautiful clothes? The cutting and ornamentation dazzled, but the fabric itself was premium silk. In their former lives selling smiles at doorways, their finest garments had been crude cocoon-silk at best.
 
 "So beautiful!"
 
-"These must be Australian clothes—I've never seen anything like this..."
+"These must be Australian—I've never seen anything like them!"
 
-"I never thought I'd wear a red skirt—I could die content now."
+"I never imagined I'd wear a red skirt. I could die content now."
 
-"Don't talk about dying on such a happy day—how annoying!"
+"Don't speak of dying on such a happy occasion—how inauspicious!"
 
-...
+The brides clustered around the garments, laughing and comparing. Though the styles were identical save for sizing, they continued lifting and examining each piece, holding them against their bodies. Several mirrors circulated frantically. Gasps of amazement punctuated bursts of laughter.
 
-The brides chattered around the clothes, laughing and comparing. Though the styles were identical with only size differences, they kept picking up and putting down, holding each piece against themselves. Several mirrors were grabbed and passed around. Exclamations of amazement arose constantly, punctuated by bursts of laughter.
+"Everyone, stop comparing—they're all the same design. Hurry and dress. We're running short on time."
 
-"Everyone stop comparing, they're all the same style. Hurry and get dressed. Time waits for no one."
+He Xiaoyue urged the brides forward. She too wore new clothes today, though still the standard "female cadre uniform"—naturally pale beside the brides' splendor. As usual, she carried a bag containing the day's schedule and procedural documents. He Xiaoyue bore heavy responsibility today. Though not prettily dressed, she served effectively as "bridesmaid" to all seventy-six brides, accompanying and guiding them throughout. This marked her first independent assignment, and nervousness ran high.
 
-He Xiaoyue urged the brides on. She too had changed into new clothes today, though still the "female cadre uniform"—naturally paling beside the splendidly dressed brides. As usual, she carried a bag containing today's wedding schedule and arrangement documents. He Xiaoyue had a heavy responsibility today—though not dressed prettily, she was effectively the "bridesmaid" for all seventy-six brides, accompanying and guiding them throughout. This was her first time handling work independently, and she couldn't help being highly nervous.
+Because of the numbers involved, professional makeup artists from Ziming Restaurant couldn't accommodate them all. Each bride received a small personal pouch containing a simple cosmetics kit for self-application—though "cosmetics" meant merely powder, rouge, and lipstick.
 
-Because there were too many people, having Ziming Restaurant's professional makeup artists do their makeup wasn't possible. Each person was simply given a small personal pouch containing a simple makeup kit to do their own—though calling it makeup, it was just powder, rouge, and lipstick.
+Yet even such rudimentary makeup rendered the brides radiant. After all, smiles born of genuine joy are the most beautiful cosmetic of all.
 
-But even this simple makeup was enough to make the brides radiant—after all, smiles from the heart are the most beautiful.
+Under He Xiaoyue's prodding, the brides finally finished dressing and departed the shelter, escorted by staff and police.
 
-Under He Xiaoyue's urging, the brides finally finished dressing, then left the shelter escorted by staff and police.
-
-The area in front of the gate had been swept clean. As they exited, strings of ten-thousand-character firecrackers were lit on both sides, while musicians hired from the city played all the way. The few residents near this desolate, dilapidated temple came to see what the noise was about, curiously watching this grand wedding.
+The area before the gate had been swept immaculate. As they emerged, strings of ten-thousand-character firecrackers ignited on both sides while musicians hired from the city played ceaselessly. The few residents near this desolate, dilapidated temple emerged to investigate the commotion, watching the grand procession with curiosity.
 
 "So many brides! Whose wedding is this?"
 
-"Marrying so many wives! Or concubines?"
+"Marrying so many at once! Wives or concubines?"
 
-In this era, there was no concept of collective weddings. Even taking concubines, one wouldn't take two simultaneously. These elegantly dressed brides streaming endlessly from the gate bewildered many people.
+This era possessed no concept of collective weddings. Even when taking concubines, one never took two simultaneously. The elegantly dressed brides streaming endlessly from the gate bewildered many onlookers.
 
-"What nonsense—this is the collective wedding the Australians are holding! Collective wedding! Dozens of couples getting married together!" explained someone who had read the papers or heard "announcements" at the teahouse.
+"Nonsense—this is the collective wedding the Australians are hosting! A collective wedding! Dozens of couples marrying together!" explained someone who had read newspapers or heard "announcements" at the teahouse.
 
-"I see, these Australians really like to make a fuss, always coming up with new things."
+"I see. These Australians certainly love spectacle, always inventing novelties."
 
-"Not even wearing veils—and these clothes are too immodest!"
+"Not even wearing veils—and those clothes are far too immodest!"
 
-"Australians like this style. Haven't you seen those female cadres? Those pants are so tight—you can even see their buttocks."
+"Australians favor this style. Haven't you seen their female cadres? Those trousers are so tight you can discern their buttocks."
 
-Vulgar laughter erupted from the crowd.
+Vulgar laughter rippled through the crowd.
 
-"I heard many of them used to be prostitutes?"
+"I heard many used to be prostitutes?"
 
-"Shh! You want to die? Watch out or the police will arrest you!"
+"Shh! Do you want to die? The police will arrest you!"
 
-"Prostitutes or not, the Australians don't mind, so why are you worried?"
+"Prostitutes or not, if the Australians don't mind, why should you worry?"
 
-"Prostitutes are good—skilled, haha."
+"Prostitutes are excellent—experienced, haha."
 
-...
+Though considerable crude and indecent commentary arose from the onlookers, He Xiaoyue paid it no mind. She held her head high and called out: "Everyone stay calm, watch your footing, ignore the outsiders' talk."
 
-Though there was quite a bit of crude, indecent commentary among the onlookers, He Xiaoyue paid no attention. She held her head high and called out: "Everyone don't worry, watch your step, ignore what outsiders say."
+In the canal before Huanghua Temple, five newly decorated "dragon" speedboats lay moored. The brides boarded one by one, bound for the "cruise ship" waiting on the Pearl River.
 
-In the canal in front of Huanghua Temple, five newly decorated "dragon" speedboats were already moored. The brides boarded one by one, to be taken to the "cruise ship" at the Pearl River.
+The cruise ship was the *Octopus*. Originally assigned as a Joint Logistics transport vessel for personnel and materiel between Guangzhou and Wuzhou, it had been specially allocated for this cruise. After simple repairs and modifications, it had been festooned entirely with fresh flowers. Guangzhou had long been famous for its flower markets; since the Ming Dynasty, Henan District had served as the primary flower farmers' quarter. Fang Fei had commissioned vast quantities of fresh flowers and plants from Henan's farmers, all deployed to decorate both venue and vessels.
 
-This cruise ship was the *Octopus*. It had originally been assigned as a Joint Logistics transport passenger ship specifically for personnel and material transport between Guangzhou and Wuzhou. This time it was specially allocated for the cruise, and after simple repairs and modifications, it was completely decorated with fresh flowers. Guangzhou had always been famous for its flower markets; since the Ming Dynasty, Henan District had been the main gathering place for flower farmers. Fang Fei had ordered large quantities of fresh flowers and plants from the flower farmers of Henan District, all used to decorate the venue and ships.
+The *Octopus* gleamed with fresh paint, its formerly removed decorations reinstalled, restoring its former glory as Guo Yi's yacht. Today, further adorned with flowers, it rested at Tianzi Wharf, drawing countless citizens to spectate.
 
-The *Octopus* had been freshly painted, the various decorations that had been removed were reinstalled, restoring its former glory as Guo Yi's yacht. Today, further festooned with flowers, it was moored at Tianzi Wharf, drawing countless commoners to watch.
+Tianzi Wharf itself had been freshly decorated with flowers. Police maintained order while National Army troops stood guard in formation. Folk music troupes assembled from throughout Guangzhou Prefecture played their instruments. The atmosphere at the wharf was nothing short of magnificent.
 
-Tianzi Wharf itself was also freshly decorated with flowers. Not only were police maintaining order, but National Army troops had come to stand guard in formation. Folk music troupes gathered from throughout Guangzhou Prefecture played their instruments. The atmosphere at the wharf was grand and lively.
+**(End of Chapter)**

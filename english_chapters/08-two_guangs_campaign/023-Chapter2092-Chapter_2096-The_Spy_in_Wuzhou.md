@@ -1,81 +1,81 @@
 # Chapter 2092 - The Spy in Wuzhou
 
-Having heard that enemies would "cut the grass and dig up the roots," Luo Yangming had fled with his family overnight to Guangzhou. Along the way, family members were lost or separated; by the time they reached Guangzhou, only his aged mother remained—and she had contracted the epidemic, hovering near death. At his wit's end, Luo Yangming was fortunate to be taken in by the Guangzhou Station, which was everywhere recruiting manpower. His mother received treatment; both mother and son settled in Lingao.
+Having heard the old saying that enemies would "cut the grass and dig up the roots," Luo Yangming had fled with his family overnight toward Guangzhou. Along the chaotic journey, family members were lost or separated in the crush of refugees; by the time they finally reached Guangzhou, only his aged mother remained—and she had contracted the epidemic, hovering near death. At his wit's end and nearly destitute, Luo Yangming was fortunate to be taken in by the Guangzhou Station, which was then recruiting manpower from among the displaced. His mother received medical treatment; both mother and son eventually settled in Lingao.
 
-Luo Yangming was literate, had studied for several years, and had helped his father manage their rice shop. Fresh out of the quarantine camp, he caught the eye of several departments. Ultimately, he was selected to work at the Foreign Trade Committee for a year, where his business talents emerged and drew high praise from Sikkert, Li Mei, and others. But Luo Yangming's ambitions lay elsewhere. He was consumed by vengeance, and the transmigration group's constant ideological conditioning had deepened his hatred of the Ming government. When he learned by chance that the External Intelligence Bureau was recruiting trainees, he resolutely abandoned his promising career at the Foreign Trade Committee and submitted an application to the Intelligence Bureau, hoping to return to the mainland and exact revenge on that rotten Ming bureaucracy.
+Luo Yangming was literate, having studied for several years and helped his father manage their rice shop. Fresh out of the quarantine camp, he caught the attention of several departments. Ultimately, he was selected to work at the Foreign Trade Committee, where he served for a year. His business acumen quickly emerged and drew high praise from Sikkert, Li Mei, and other senior officials. But Luo Yangming's ambitions lay elsewhere. He was consumed by thoughts of vengeance, and the transmigration group's constant ideological conditioning had deepened his hatred of the Ming government and its rot. When he learned by chance that the External Intelligence Bureau was recruiting new trainees, he resolutely abandoned his promising career at the Foreign Trade Committee and submitted an application, hoping to return to the mainland and exact revenge on that decaying Ming bureaucracy.
 
-In training, he studied diligently and trained hard, always ranking near the top. He was among the outstanding graduates of his class of intelligence trainees. After graduation, Jiang Shan had hoped Luo Yangming would stay at headquarters, but Luo refused and volunteered for frontline work.
+During training, he studied with fierce dedication and trained relentlessly, consistently ranking near the top of his cohort. He graduated as one of the outstanding members of his intelligence trainee class. After graduation, Jiang Shan had hoped Luo Yangming would remain at headquarters in a staff position, but Luo refused and volunteered for frontline field work instead.
 
-Before departure, Jiang Shan asked him: "Frontline work is extremely dangerous. If you're captured, you'll certainly be executed as a spy—the Center won't have time to rescue you. Have you thought this through?"
+Before his departure, Jiang Shan asked him directly: "Frontline work is extremely dangerous. If you're captured, you'll certainly be executed as a spy—the Center won't have time to mount a rescue. Have you thought this through carefully?"
 
-"I have. I want to serve the Council of Elders wherever they need me most," Luo Yangming replied.
+"I have," Luo Yangming replied without hesitation. "I want to serve the Council of Elders wherever they need me most."
 
-So Luo Yangming was dispatched to Wuzhou, posing as a Guangzhou merchant, to go underground in the city. To facilitate his work, with Qiwei's help, the Intelligence Bureau eventually located his wife and sister, who had been sold during the flight. Only his son—sold to a passing merchant—could never be found.
+So Luo Yangming was dispatched to Wuzhou, posing as a Guangzhou merchant, to establish deep cover in the city. To facilitate his work and provide proper background cover, the Intelligence Bureau—with Qiwei's assistance—eventually located his wife and sister, both of whom had been sold during the desperate flight from Guangzhou. Only his young son, sold to a passing merchant, could never be found despite their searches.
 
-He brought his family to Wuzhou and opened a grain warehouse. Jiang Shan had not assigned him a dedicated assistant. His instructions to Luo were simple: "Be self-sufficient like a true merchant." Aside from a monthly courier, he had no contact with "the Center." Beyond initial startup funds, the Center provided no further financial support or operational expenses—only permitting him to keep and use the profits from his grain trade.
+He brought his recovered family members to Wuzhou and opened a grain warehouse. Jiang Shan had not assigned him a dedicated assistant or handler. His instructions to Luo were succinct: "Be self-sufficient like a true merchant." Aside from a monthly courier who passed through on scheduled routes, he maintained no contact with "the Center." Beyond initial startup capital, the Center provided no further financial support or operational expenses—only permitting him to keep and use the profits generated from his grain trading business.
 
-During his years in Wuzhou, Luo Yangming cultivated connections with the government and built good business relationships with many local merchants. Through these networks, he gathered substantial intelligence on Wuzhou and even the entire Guangxi Province, which flowed continuously back to Lingao via the courier network. For his achievements in intelligence work, Luo Yangming had received commendations from the External Intelligence Bureau.
+During his years operating in Wuzhou, Luo Yangming cultivated valuable connections within the government bureaucracy and built solid business relationships with many local merchants. Through these carefully developed networks, he gathered substantial intelligence on Wuzhou and even the broader Guangxi Province, which flowed continuously back to Lingao via the courier network. For his achievements in intelligence collection and network development, Luo Yangming had received multiple commendations from the External Intelligence Bureau.
 
-About ten days ago, he had received instructions via courier: The Fubo Army would soon launch operations against Wuzhou; he should take care of his safety. The instructions added: if the situation became critical, he could evacuate from Wuzhou to the outskirts temporarily. After Wuzhou's liberation, he should return to the city and contact the Fubo Army's Joint Logistics Department, supplying the grain in his warehouse for military provisions—this would be his final assignment in Wuzhou.
+About ten days ago, he had received new instructions via courier: The Fubo Army would soon launch major operations against Wuzhou; he should prioritize his personal safety and that of his family. The instructions added that if the situation became critical, he was authorized to evacuate from Wuzhou to the surrounding countryside temporarily. After Wuzhou's liberation, he should return to the city immediately and contact the Fubo Army's Joint Logistics Department, arranging to supply the grain in his warehouse for military provisions—this would be his final assignment in Wuzhou before returning to regular service.
 
-He had no intention of leaving the city. After all, his business and home were here. If he fled to the countryside, looters might take advantage of the confusion during the city's capture, causing losses he couldn't explain to the Center. Moreover, his family were mostly women and children; there was no suitable refuge in the countryside—they'd be even more vulnerable to rural bandits.
+He had no intention of abandoning the city. After all, his entire business and home were here. If he fled to the countryside, looters might take advantage of the confusion during the city's capture, causing catastrophic losses he couldn't possibly explain to the Center. Moreover, his family consisted mostly of women and children; there was no suitable safe refuge in the war-torn countryside—they'd be even more vulnerable to rural bandits and deserters out there than staying put in the city.
 
-The Fubo Army rarely conducted prolonged sieges; typically, they took a city in half a day to a day. He just needed to wait calmly in the city for them to arrive.
+The Fubo Army rarely conducted prolonged sieges; typically, they took a city in anywhere from half a day to a single day. He simply needed to wait calmly inside the city for them to arrive and restore order.
 
-He went over his accounts for a while, calculated receivables and payables, and checked the warehouse's cash and grain figures. Though he had managed this grain business for years, it was the Council's property. In another ten-odd days, he would hand it over completely to the Council.
+He returned to reviewing his accounts, calculating receivables and payables, double-checking the warehouse's cash reserves and grain inventory figures. Though he had managed this grain business successfully for years, building it from nothing into a thriving enterprise, it remained the Council's property. In another ten days or so, he would hand it over completely to the Council's logistics apparatus.
 
-His wives and sister probably didn't know this estate wasn't his. Thinking back to when he'd recovered his wife—after they'd embraced and wept together, the delighted expression on her face when she saw the "fortune" he'd supposedly earned... If she knew it wasn't really his, what expression would she wear then?
+His wives and sister probably didn't realize this entire estate wasn't actually his own. He thought back to when he'd finally recovered his wife from bondage—how after they'd embraced and wept together with relief and joy, her face had lit up with delight when she saw the apparent "fortune" he'd supposedly earned through his own talents. If she knew the truth—that none of it truly belonged to him—what expression would cross her face then?
 
-As for what he'd do after returning the business, Luo Yangming had never considered. Perhaps he'd return to a commercial department. He understood the Intelligence Bureau's personnel principles clearly: once an operative was used, even if their identity wasn't blown, they wouldn't be used a second time.
+As for what he would do after returning the business to the Council, Luo Yangming had never seriously considered. Perhaps they'd assign him back to a commercial department somewhere. He understood the Intelligence Bureau's personnel principles with perfect clarity: once an operative's cover had been used in the field, even if their identity wasn't blown or compromised, they would never be deployed in the same capacity a second time. It was simply too risky.
 
-Just then, a woman's voice came softly from the counting-room door: "Master! Master!"
+Just then, a woman's voice came softly from just outside the counting room door. "Master! Master!"
 
-It sounded like his wife. Luo Yangming said: "What is it? Come in and speak."
+It sounded like his wife. Luo Yangming glanced up from his ledgers. "What is it? Come in and speak."
 
-In walked a young woman of about twenty-seven or twenty-eight, hair done up in a paojia bun, face lightly powdered. She wore a lotus-pink narrow-sleeved vest and a patterned plain-colored long skirt, already half-worn. Her features weren't striking, but she had regular features, fair skin, and was reasonably attractive.
+Through the door walked a young woman of about twenty-seven or twenty-eight, her hair done up in a paojia bun, face lightly powdered in the modest style of merchant wives. She wore a lotus-pink narrow-sleeved vest over a patterned plain-colored long skirt, both garments already showing considerable wear. Her features weren't particularly striking, but she possessed regular features, fair skin, and a certain quiet attractiveness.
 
-His wife was surnamed Ding, known as A-Tao. Her birth family had been small merchants in Sanshui—now long since ruined. During their flight, short on travel money, Luo had pawned her to a wealthy household as a secondary wife. Though he'd later redeemed her, she'd already borne a child in that household.
+His wife was surnamed Ding, known as A-Tao. Her birth family had been small merchants in Sanshui—now long since ruined by war and displacement. During their desperate flight years ago, short on travel money and facing starvation, Luo had been forced to pawn her to a wealthy household as a secondary wife. Though he'd later redeemed her when his fortunes improved, she'd already borne a child while in that household.
 
-By custom, children born to pawned wives belonged to the receiving family; when the term expired or the woman was redeemed, she couldn't take the children with her.
+By longstanding custom, children born to pawned wives belonged permanently to the receiving family; when the pawn term expired or the woman was redeemed, she couldn't take her children with her.
 
-She longed for the child she'd borne while pawned, and was haunted by that "shameful" period of belonging to another man. So her face always wore a melancholy expression, as if some heavy burden weighed on her brow.
+She longed ceaselessly for the child she'd borne while pawned, and remained haunted by that "shameful" period of belonging to another man. Her face therefore always wore a faintly melancholy expression, as if some invisible burden weighed perpetually on her brow.
 
-"Well? Have all the doors been secured?"
+"Well? Have all the doors been properly secured?"
 
-"All secured," A-Tao said. Like young wives from "scholarly families," she was gentle and quiet, never speaking loudly. "The workers have barred the doors as you ordered, and piled straw bales and stones against them. Only the side door is still open, also barred."
+"All secured," A-Tao confirmed. Like young wives raised in so-called "scholarly families," she was gentle and quiet, never speaking loudly or drawing attention. "The workers have barred all the main doors as you ordered, and they've piled straw bales and stones against them as additional fortification. Only the side door remains passable, and that's also barred from inside."
 
-Before he could ask more, A-Tao continued: "I've checked our food stores. Rice—naturally we have plenty. Salted vegetables and dried fish too. Just a little short on firewood."
+Before he could ask further questions, A-Tao continued her report. "I've checked our food stores as well. Rice—naturally we have plenty of that. Salted vegetables and dried fish too, enough for weeks. We're just a little short on firewood for cooking."
 
-Luo Yangming nodded. "Has A-Chun returned?"
+Luo Yangming nodded approvingly. "Has A-Chun returned yet?"
 
-A-Chun was the young shop hand—an orphan he'd taken in, only fifteen years old. He ran errands and did odd jobs around the house and warehouse. Early this morning, Luo had sent him out to gather news.
+A-Chun was their young shop hand—an orphan Luo had taken in out of pity, only fifteen years old. The boy ran errands and did various odd jobs around the house and warehouse. Early that morning, Luo had sent him out into the city to gather news and observe the situation.
 
-Because of the "pirates'" approach, Wuzhou was tense. A grain warehouse was a prime target for both the government and mobs during wartime. So for several days, Luo had kept the doors closed—fortunately the warehouse dealt in bulk trade, not retail; closing didn't cause public panic.
+Because of the "pirates'" imminent approach, all of Wuzhou was tense with apprehension. A grain warehouse represented a prime target for both government requisitions and mob violence during wartime. For several days now, Luo had kept the warehouse doors firmly closed to outsiders—fortunately, the business dealt primarily in bulk wholesale trade rather than retail, so the closure didn't cause public panic or draw unwanted attention.
 
-"Just got back."
+"Just got back a few minutes ago."
 
-"Any news from the streets?"
+"Any significant news from the streets?"
 
-A-Tao shook her head gloomily. "They say only the north and south gates opened today; the other gates stayed shut. Some say the pirates' fast boats have already left Fengchuan..."
+A-Tao shook her head with a gloomy expression. "He says only the north and south gates opened today; all the other city gates stayed shut tight. Some people are saying the pirates' fast boats have already departed Fengchuan and are heading upriver..."
 
-She sat down with a sigh: "How can we survive in times like these! We barely managed a few peaceful years, and now these accursed pirates! Seizing Qiongzhou wasn't enough—they have to take all of Guangdong too!"
+She sat down heavily with a deep sigh. "How can ordinary people survive in times like these! We barely managed a few peaceful years of prosperity, and now these accursed pirates arrive! Seizing Qiongzhou wasn't enough for them—now they have to conquer all of Guangdong too!"
 
-She cursed the pirates through gritted teeth. Luo Yangming smiled faintly and comforted her: "Don't be afraid. Everyone says the Australians love their people like children, have strict discipline, and never loot or burn. Wuzhou will probably be fine."
+She cursed the pirates through gritted teeth, her fear and frustration evident. Luo Yangming suppressed a faint smile and gently comforted her. "Don't be so afraid. Everyone says the Australians love their people like their own children, maintain strict military discipline, and never engage in looting or burning. Wuzhou will probably be perfectly fine when they arrive."
 
-"Even if the pirates are as good as you say—you run a rice warehouse. War means grain requisitions. What if the government comes for grain? What if there's a siege and mobs come to plunder?... Alas..." The woman's brow furrowed; she couldn't say more.
+"Even if the pirates are as virtuous as you claim—you run a rice warehouse, husband. War inevitably means grain requisitions from whichever side controls the city. What if the government comes demanding our grain before they flee? What if there's a prolonged siege and hungry mobs come to plunder the warehouse? What then?..." The woman's brow furrowed deeply with worry; she couldn't articulate all her fears.
 
-Her worries were reasonable, but for Luo Yangming these weren't concerns. He consoled her: "Don't worry. The Australians take cities lightning-fast. In three to five days, this place will be under Great Song rule."
+Her concerns were perfectly reasonable for an ordinary merchant's wife, but for Luo Yangming—who knew the operational timetable—none of these scenarios posed genuine threats. He consoled her patiently. "Don't worry yourself sick over possibilities. The Australians capture cities with lightning speed. In three to five days at most, this entire place will be under Great Song rule and order will be restored."
 
-"But I keep worrying... A-Chun says: quite a few wealthy families left the city today with their households."
+"But I can't help worrying constantly... A-Chun mentioned something else: quite a few wealthy families left the city today with their entire households in tow."
 
-"Probably fleeing to fortified villages in the countryside."
+"Probably fleeing to fortified clan villages in the surrounding countryside."
 
-"But government offices have lost many people too. The city granaries are shipping grain out. Could Governor Xiong be preparing to abandon the city and flee...?"
+"True, but he also said government offices have been losing people—officials and clerks abandoning their posts. And the city granaries have been shipping grain out all day. Could it be that Governor Xiong is preparing to abandon the city entirely and flee to the interior...?"
 
-Luo Yangming started: "What did you say?"
+Luo Yangming's head snapped up, his relaxed demeanor vanishing instantly. "What did you just say?"
 
-"A-Chun says soldiers are moving grain outside the city—the docks are piled high with it..."
+"A-Chun says government soldiers have been moving grain outside the city since dawn—the riverside docks are piled high with sacks of it..."
 
-"Bring him here—I need to question him myself!"
+"Bring him to me immediately—I need to question him myself about exactly what he saw!"
 
-*(End of Chapter)*
+**(End of Chapter)**

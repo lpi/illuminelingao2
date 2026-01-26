@@ -1,83 +1,91 @@
 # Chapter 2005 - The Selected Objects
 
-She turned head back. Said to Lu Weijia: "Send messenger to City Political Security Bureau. Says here has reactionary element conducting instigating propaganda!"
+Lu Cheng turned her head back and said to Lu Weijia: "Send a messenger to the City Political Security Bureau. Tell them there's a reactionary element conducting instigating propaganda here!"
 
-Mao Xiuyu was retained personnel. Not very understanding meaning of this sentence. But Lu Weijia and Du Yibin watching coldly aside knew this girl prepared to lay black hand.
+Mao Xiuyu, being retained personnel, didn't fully understand the weight of this statement. But Lu Weijia and Du Yibin, watching coldly from the side, knew this girl was prepared to lay down a heavy hand.
 
-Lu Weijia had heart wanting to persuade a few sentences—Arriving Political Security Bureau. That isn't a meal of rattan stripe can finish. Even if investigated "No Evidence" finally. Also must peel a layer of skin. But Lu Cheng is City Women Federation Director. To Ji Liang Suo is only "Squatting Point." Discussion administrative rank much far than her.
+Lu Weijia had the urge to offer a few words of persuasion. Being sent to the Political Security Bureau wasn't something that could be settled with a meal of rattan stripes. Even if the investigation ultimately found "no evidence," the person would still be flayed alive. But Lu Cheng was the City Women's Federation Director, only "on assignment" to the Jiliang Institute. In administrative rank, she was far above him.
 
-Moreover this Bian Cuibao's spicy energy he also experienced usually. He thought. Giving this woman a bit lesson also good. Didn't speak either.
+Moreover, he'd experienced Bian Cuibao's spiteful energy himself. He thought: giving this woman a bit of a lesson might actually be good. So he didn't speak.
 
-Mao Xiuyu was retained personnel tucking tail being human. Naturally only had share of "Correct Correct Correct" "Good Good Good." Where dare expressing objection.
+Mao Xiuyu, being retained personnel tucking his tail between his legs, naturally could only nod and say, "Correct, correct, correct," "Good, good, good." He didn't dare voice any objection.
 
-Two police in institute came over. One twisted one arm of Bian Cuibao reversing back. Pain made her screaming Ow Ow. Two police were both retained personnel in Fast Squad in past. Tying people was family passing Kung Fu. Three down five divide two tied Bian Cuibao like Zongzi [rice dumpling] pulled out. Workshop instantly quiet. A cough not heard.
+Two police from the institute came over. Each twisted one of Bian Cuibao's arms back. The pain made her scream. Both police were former members of the Fast Squad—tying people up was ancestral kung fu. In three moves, they had Bian Cuibao trussed like a rice dumpling and dragged her out. The workshop fell instantly silent—not even a cough could be heard.
 
-Du Yibin brows frowned. Feeling over head. Bian Cuibao such behavior indeed should be punished heavily. But buckling a big crime name "Unwarranted" to rectify her also inappropriate.
+Du Yibin's brow furrowed. He felt things had gone too far. Bian Cuibao's behavior certainly warranted severe punishment, but pinning an unwarranted "big crime" label on her to rectify her was inappropriate.
 
-He had heart wanting to stop. But turning thought again. This moment he must stand on Lu Cheng side. Must awe these female students with thought not transformed well. If self stopped. Then these former prostitutes would be more unbridled. Not saying they no qualification marrying naturalized citizens. Even if marrying naturalized citizens. Regardless disabled or not wouldn't be bullied dead by them. That time naturalized citizens definitely complain Senator and Senate. This black pot absolutely cannot carry.
+He had the impulse to intervene. But upon further thought, he realized that at this moment he had to stand on Lu Cheng's side. He had to awe these female students whose thinking hadn't yet been transformed. If he stopped this now, these former prostitutes would become even more unbridled. Not only would they be unqualified to marry naturalized citizens, but even if they did marry—disabled or not—wouldn't they bully their husbands to death? Then the naturalized citizens would lodge complaints with Senators and the Senate. This was a black pot he absolutely could not carry.
 
-Coming out from workshop. Du Yibin then said: "You did very well. But this matter need not alarm Political Security Bureau."
+---
 
-Lu Cheng originally had heart utilizing this to handle a case. Beating Bian Cuibao into "Reactionary Element." Ruthlessly killing crooked wind evil air in Ji Liang Suo. But Chief said so. She naturally shouldn't refute. Then pushed boat with current said: "I am also scaring scaring them—This little matter troubling Scout Comrade is also unjustified."
+Upon leaving the workshop, Du Yibin said: "You handled that very well. But this matter doesn't need to alarm the Political Security Bureau."
 
-"You said correct." Du Yibin said. "We still focus on Curing Disease Saving People. She again shameless. Didn't do anything harming society either. Moreover keeping her still useful. You confine her okay. But cannot tying confining her ten days. Having half day time is about enough—Time long easy having accident..."
+Lu Cheng had originally intended to use this incident to make an example, to beat Bian Cuibao into a "reactionary element" and ruthlessly stamp out the crooked winds and evil airs in the Jiliang Institute. But since the chief said so, she naturally shouldn't refute him. She went with the flow, saying: "I was just scaring them—troubling the security comrades over such a small matter would be unjustified."
 
-"This they all know." Lu Cheng to this Senator Du truly Grandma Mouth [nagging]. "Several police in institute are all Old Public Affair. Tying her a while giving some bitterness first. Avoid her feeling we executing humanitarianism is good to bully."
+"You're right," Du Yibin said. "We should still focus on curing the disease and saving the patient. No matter how shameless she is, she hasn't actually harmed society. Moreover, keeping her around is still useful. You can confine her, but you can't tie her up for ten days. Half a day is about enough—any longer and accidents might happen..."
 
-Du Yibin felt wind of this Ji Liang Suo very bad. Involuntarily somewhat hesitated to next step matter. But obvious matter was. "Students" here were marriage resource most possible to utilize currently. If giving up here. Following all matters no way to do.
+"We all know that." Lu Cheng found this Senator Du to be quite a nag. "The police in the institute are all old hands at public affairs. Tying her up for a while gives her a taste of bitterness first. This way she won't think our humanitarianism is easy to bully."
 
-"You feel like Bian Cuibao such in Ji Liang Suo... Mm..."
+Du Yibin felt the atmosphere of this Jiliang Institute was quite poor. He involuntarily hesitated about the next step. But the obvious fact was that the "students" here represented the marriage resource most likely to be utilized currently. If he gave up here, all subsequent matters would have no way forward.
 
-"Female Bare Stick [Female Bachelor/Rogue]." Mao Xiuyu seeing him unable to think out adjective temporarily. Hurried coming to supplement.
+"Do you feel like... Bian Cuibao types in the Jiliang Institute... um..."
 
-"Right. Female Bare Stick. Such type prost... Student many or not?"
+"Female bachelors," Mao Xiuyu, seeing him temporarily unable to think of the adjective, hurried to supplement.
 
-"Actually not many." Lu Cheng said. "But influence of these people in students very big. We also established some fast progressing pacesetters. But their influence all inferior to people like Bian Cuibao! These Female Bare Sticks have prestige in institute!"
+"Right. Female bachelors. Are such types of prost—students numerous?"
 
-Du Yibin asked again: "Then what situation is ordinary mass?"
+"Actually not many." Lu Cheng said. "But the influence of these people among the students is very great. We've also established some fast-progressing pacesetters. But their influence is all inferior to people like Bian Cuibao! These female bachelors have prestige in the institute!"
 
-"Most students mainly worry for future." Lu Cheng said. "Speaking of pitiable. Truly a group of pitiable people. Almost all sold here. Parents family either died. Or unknown where going. Mixed in brothel so many years. Beaten humiliated. Hand has no savings either. So most worrying is 'How to do later'. Happen this matter..." Lu Cheng originally had opinion on prostitute outlet arrangement. Because till now. Civil Affairs Mouth only very generally wanted Ji Liang Suo: "Transform body and mind. Cultivate appropriate labor skill. Preparing for returning normal society." Specific how to settle not mentioning a word.
+Du Yibin asked again: "Then what's the situation of the ordinary masses?"
 
-So doing. Lu Cheng a group of cadres working in Ji Liang Suo very passive. Prostitute "Students" and those "Chaste Women" different. "Chaste Women" always lived in Pure Chaste Hall. Working self support. As long as Pure Chaste Hall not closing door. Always have a mouth of rice eating. Need not considering "Outlet" problem; But students since not being prostitute. And no family to rely. Later must feed self. While Civil Affairs Mouth didn't mention a direction of outlet. They couldn't even "Draw Big Cake." This was also a reason Ji Liang Suo wind consistently not good.
+"Most students are mainly worried about the future." Lu Cheng said. "Speaking of pitiable, they're truly a group of pitiable people. Almost all were sold here. Their parents and families either died or went whereabouts unknown. Mixed up in brothels for so many years—beaten, humiliated, no savings. So most are worrying: 'What do we do later?' About this matter..." Lu Cheng had always had opinions about the prostitutes' resettlement arrangements. Because until now, Civil Affairs had only very generally told the Jiliang Institute to "transform body and mind, cultivate appropriate labor skills, and prepare for returning to normal society." They hadn't mentioned a word about specific settlement plans.
 
-Lu Cheng told own thought to Du Yibin one by one. Said again: "...Now only saying wanting them labor. Yet not allowing them free activity. Just about same as prisoner. Those students homeless. Also don't know what we want to do. One by one very hesitant. Rumor flying full sky. Some say want selling them to Ghost Fellow exchanging money. Also some say want sending them to overseas desert island opening wasteland farming... Actually even saying later sending them to Lingao allocating to workers soldiers as wives also good ah. Good or bad let them have a hope..."
+This made Lu Cheng and the cadres working at the Jiliang Institute quite passive. The prostitute "students" were different from the "chaste women." The "chaste women" had always lived in Chastity Halls, working and supporting themselves. As long as the Chastity Halls didn't close their doors, they'd always have a bowl of rice to eat. They didn't need to consider the "future" problem. But the students, since they were no longer prostitutes and had no families to rely on, would have to feed themselves later. Yet Civil Affairs hadn't mentioned a direction for their future. They couldn't even "paint rosy pictures." This was also a reason why the atmosphere at the Jiliang Institute had consistently been poor.
 
-"Wait. You say they willing to be wives for soldiers?" Du Yibin suddenly spirit came. Asked.
+Lu Cheng told her thoughts to Du Yibin one by one, then said again: "...Now we only tell them we want them to labor, yet we don't allow them free activity. It's just about the same as being prisoners. Those students are homeless and don't know what we want to do. Every one of them is very hesitant. Rumors fly all over. Some say we want to sell them to foreigners for money. Others say we want to send them to overseas desert islands to open wasteland and farm... Actually, even saying that later we'll send them to Lingao to be allocated to workers and soldiers as wives would be good! At least it would give them a hope..."
 
-"Yes." Lu Cheng somewhat puzzled. "Actually not only soldiers. Also police and our cadre staff... They all feel quite good. Wearing decent. Also clean neat. Also can earn money. All say able to marry such man as wife is good."
+"Wait. You're saying they'd be willing to be wives for soldiers?" Du Yibin suddenly perked up and asked.
 
-"Correct." Mao Xiuyu helped tune said. "Just say our Senate people. One by one both majestic and can earn money raising family. Don't say several pros—Students. Even 'Chaste Women' didn't they move heart!"
+"Yes." Lu Cheng was somewhat puzzled. "Actually not only soldiers—also police and our cadre staff... They all feel they're quite good. They wear decently, are clean and neat, and can earn money. They all say being able to marry such a man would be good."
 
-Du Yibin originally heard prostitute students "Loving Leisure Hating Labor." Still somewhat distracted. Thinking these people heart spirit very high. Unwilling to marry naturalized citizens. Unexpectedly their requirement actually not high. He recalled "Marrying Han Marrying Han. Eating Rice Wearing Clothes" Wang Jun said. Couldn't help dumbfounded. Self substituted 21st Century standard over again.
+"That's right." Mao Xiuyu chimed in. "Just talking about our Senate people—every one both imposing and able to earn money to support a family. Not to mention the pros—students—even the 'chaste women' have been moved!"
 
-"Actually coming today. I am also coming to solve this problem." Du Yibin mood good much this time. "Go. We go office to talk."
+Du Yibin had originally heard that the prostitute students "loved leisure and hated labor" and had been somewhat distracted, thinking these people had very high standards and would be unwilling to marry naturalized citizens. Unexpectedly, their requirements were actually quite modest. He recalled Wang Jun's words about "Marrying a man means food and clothes" and couldn't help feeling dumbfounded. He'd substituted twenty-first-century standards once again.
 
-In office. Du Yibin told "Solving Naturalized Citizen Marriage Plan" roughly. Three people just understood why this Chief Du once arriving Shelter. Other all not looking. Only staring women. Originally actually had such an article!
+"Actually, coming today, I'm also here to solve this problem." Du Yibin's mood improved considerably. "Come. Let's go to the office to talk."
 
-Lu Cheng etc. happy naturally separate discussion. Mao Xiuyu heart was also warm: Australian truly kind person! Even Widower Widow Disabled people need to cater! Busy said: "Chief. This is Heaven Big Good Thing. Don't say these students. Even single women also grateful without end..."
+---
 
-"Matter I already told everyone. But here still some problems." Du Yibin said. "Because purpose of this plan mainly is for solving disabled naturalized citizen soldier and staff marriage problem. So Candidate must grasp well—They all people sacrificed for Senate. Body not convenient again. Senate cannot sorry to them. So must find some heart fine. Kind and capable women for them."
+In the office, Du Yibin roughly explained the "Solving Naturalized Citizen Marriage Plan." Only then did the three people understand why Chief Du, upon arriving at the shelter, hadn't looked at anything else and had only stared at the women. So there had been such a scheme all along!
 
-"Yes. We definitely select carefully." Lu Cheng promised immediately.
+Lu Cheng and the others were naturally happy to discuss this separately. Mao Xiuyu's heart warmed: *The Australians are truly kindhearted people! Even widowers, widows, and the disabled need to be catered to!* He busily said: "Chief, this is a heavenly great deed. Not to mention these students—even the single women would be endlessly grateful..."
 
-"You select a batch from former students and widows first. Making list to me. I give you three days time. Specific condition. Under 40. Body healthy. Hardworking capable. Only such people have qualification marrying naturalized citizen." Du Yibin said. "As for people like Bian Cuibao. Then let her transform more years. As for other some wavering elements. You can hold meeting to master self. Adding or not adding. You decide yourself. Anyway politics must pass."
+"I've already told everyone about the matter. But there are still some issues here." Du Yibin said. "Because the purpose of this plan is mainly to solve the marriage problem of disabled naturalized citizen soldiers and staff, the candidates must be carefully selected. These are all people who sacrificed for the Senate. Their bodies are already inconvenienced. The Senate cannot wrong them. So we must find some women with kind hearts who are capable. Only such people are qualified to marry naturalized citizens."
 
-"We understood. Definitely complete mission!"
+"Yes. We'll definitely select carefully." Lu Cheng immediately promised.
 
-Du Yibin finished issuing instruction left. Lu Cheng group picked up a burden. One by one somewhat worried. Selecting wives for naturalized citizens. This naturally extremely good. But if person selected wrong. Trouble happens after marriage. They person responsible for drafting list would eat hanging fall [be blamed].
+"You select a batch from the former students and widows first. Make me a list. I'll give you three days. Specific conditions: under forty, healthy body, hardworking and capable. Only such people are qualified to marry naturalized citizens." Du Yibin said. "As for people like Bian Cuibao, let her transform for a few more years. As for some other wavering elements, you can hold a meeting to decide for yourselves—whether to add them or not, you decide. In any case, they must pass politically."
 
-Three people took all lists over. Also concerned people moving Reward Punishment Archive. Work Log over. Student adding Single Woman. Fully small eight hundred people. Who also didn't have such good memory remembering every person specific situation.
+"We understand. We'll definitely complete the mission!"
 
-"I see. Selecting wives for disabled naturalized citizens cannot select from students... Should select all from widows." Mao Xiuyu reversing past convention of not asking not opening mouth in discussion. Proposing suggestion actively.
+---
+
+After Du Yibin finished issuing instructions and left, Lu Cheng's group picked up this burden, each one somewhat worried. Selecting wives for naturalized citizens was naturally extremely good. But if they selected the wrong people and troubles arose after marriage, they—the ones responsible for drafting the list—would be blamed.
+
+The three pulled out all the lists, along with the reward and punishment archives and work logs of relevant personnel. Between students and single women, there were a full eight hundred people. No one had such a good memory as to remember every person's specific situation.
+
+"I think selecting wives for disabled naturalized citizens shouldn't select from the students... they should all be selected from the widows." Mao Xiuyu, reversing his past habit of not asking and not speaking during discussions, actively proposed a suggestion.
 
 "Why?"
 
-"Didn't Chief say just now? Disabled naturalized citizens all suffered for Senate. Senate cannot sorry to them. This word heavy. We selecting person cannot have a bit mistake." Mao Xiuyu unhurriedly said. "Students are all lower class brothel prostitute background—Two probably don't know. Able to mix through in such place. Are not ordinary people..."
+"Didn't the chief just say? Disabled naturalized citizens all suffered for the Senate. The Senate cannot wrong them. This statement carries weight. We can't make even the slightest mistake in selecting people." Mao Xiuyu spoke unhurriedly. "The students all have lower-class brothel prostitute backgrounds. You two probably don't realize—to be able to survive in such a place, they're not ordinary people..."
 
-Lu Cheng and Lu Weijia both felt same.
+Lu Cheng and Lu Weijia both felt the same.
 
-"...Although these months two Directors wasted heart effort leading everyone educating them 'Self Resilience. Start Being Person Again.' But mixed there so many years. How so easy change bad habit? If ordinary man. Maybe can control them. Disabled people isn't it manipulated by them? Moreover marrying disabled person. Where has willing. That time heart regret. Acting demon terrible. Maybe making out human life!"
+"...Although these past months you two directors have wasted your hearts and efforts leading everyone and educating them to 'stand on their own feet and start being human again,' they've mixed in those places for so many years. How easy is it to change bad habits? If it's an ordinary man, maybe he can control them. But a disabled person—won't he just be manipulated by them? Moreover, who'd be willing to marry a disabled person? When the time comes they'll regret it in their hearts, act out terribly—maybe even cause deaths!"
 
-"You said right." Lu Weijia was soldier background. Knew among injured retired soldiers quite a few were limb incomplete. Life could only barely self care. "Such woman cannot want!"
+"You're right." Lu Weijia had a soldier background. He knew that among the injured and retired soldiers, quite a few had incomplete limbs and could barely care for themselves. "We can't want such women!"
 
-"Saying again. Disabled naturalized citizens all established merit for Chief. Although body disabled. Can't get a prostitute background wife either. Even if this wife virtuous again. Speaking out not good hearing. Also easy let outsider discuss. Hurting Good Life Virtue of Senate."
+"Furthermore, disabled naturalized citizens all established merit for the chief. Even though their bodies are disabled, they can't get wives from prostitute backgrounds. Even if such wives are virtuous, it doesn't sound good when spoken of. It would also make outsiders gossip, hurting the good reputation of the Senate."
+
+**(End of Chapter)**

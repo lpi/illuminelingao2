@@ -4,21 +4,21 @@
 
 "That hasn't happened yet. But as our military shipping increases, similar incidents may well occur." Hong Huangnan said, "Currently we're transporting ammunition and weapons separately. Though it can't one hundred percent prevent losses, at least it minimizes the consequences of any loss."
 
-"So bandit suppression is still essential." Xi Yazhou said. All along this journey, the military pressure hadn't been great; every concern focused on "security." "What's the pirate situation on the West and North Rivers? What do you know?"
+"So bandit suppression is still essential." Xi Yazhou said. All along this journey, the military pressure hadn't been great. Every concern focused on "security." "What's the pirate situation on the West and North Rivers? What do you know?"
 
 "River pirates are as thick as fur," Hong Huangnan said. "And the situation is complicated."
 
-The river pirates of the West and North Rivers were dominated by the Xu, Zheng, Shi, and Ma clans of the boat-dwelling Tanka people. Their power extended throughout the West and North River basins; their followers and vessels were numerous. They could control and influence many Tanka boat folk throughout the region—their reach was sky-high.
+The river pirates of the West and North Rivers were dominated by the Xu, Zheng, Shi, and Ma clans of the boat-dwelling Tanka people. Their power extended throughout the West and North River basins. Their followers and vessels were numerous. They could control and influence many Tanka boat folk throughout the region—their reach was sky-high.
 
 "Basically, anyone in this trade at any scale, whether Tanka-born or not, has to attach themselves to one of these four surnames and pay regular tribute," Hong Huangnan said. "Boat operators also have to pay them tribute—otherwise they'll end up with their boats destroyed and lives lost."
 
 When the Fubo Army liberated Guangzhou and pursued the enemy through the Pearl River Delta, that had been the river pirates' "golden age." Crowds of officials and gentry fleeing the Delta's prefectures and counties, dragging families and loaded with valuables, had scrambled toward Zhaoqing and elsewhere. The river pirates enjoyed an unprecedented "feast"—every sortie brought back women, treasure, and silk. Even the boat operators carrying the refugees had openly and covertly made tidy profits through theft and robbery.
 
-"...When we first arrived at Sanshui, the river surface and sandbars were covered with corpses—all victims who'd gotten the 'knife-noodle dumpling treatment.' The pirates had made their fortunes; the boat crews saw red and started robbing their own passengers. Anyone who resisted got thrown in the river... Hearts in troubled times..." Hong Huangnan shook his head as he spoke of these events.
+"When we first arrived at Sanshui, the river surface and sandbars were covered with corpses—all victims who'd gotten the 'knife-noodle dumpling treatment.'" Hong Huangnan's voice grew heavy. "The pirates had made their fortunes. The boat crews saw red and started robbing their own passengers. Anyone who resisted got thrown in the river... Hearts in troubled times..." He shook his head.
 
-Still, since the Fubo Army reached Sanshui, pirate activity in this area had dropped sharply—not only because Joint Logistics ships had strong hulls, powerful guns, and tight security, but mainly because once warfare erupted, merchants stayed home, and the flow of people and goods ceased. Without business to conduct, boat operators had nothing to do. When pirates roamed the riverways now, they could at most rob a few fishing boats or ferries—slim pickings.
+Still, since the Fubo Army reached Sanshui, pirate activity in this area had dropped sharply—not only because Joint Logistics ships had strong hulls, powerful guns, and tight security, but mainly because once warfare erupted, merchants stayed home and the flow of people and goods ceased. Without business to conduct, boat operators had nothing to do. When pirates roamed the riverways now, they could at most rob a few fishing boats or ferries—slim pickings.
 
-"...Though activity has decreased, their strength remains intact. If someone incites them to become 'political bandits' and launch deliberate waterborne attacks against us, our escort forces will be stretched thin."
+"Though activity has decreased, their strength remains intact. If someone incites them to become 'political bandits' and launch deliberate waterborne attacks against us, our escort forces will be stretched thin."
 
 Currently, Joint Logistics' cargo transport was guarded mainly by its own security personnel and vessels dispatched by the Navy's Pearl River Squadron. Generally, one or two armed medium or small landing craft escorting a convoy was enough to ensure safe passage. Encountering scattered pirates, a few shots would drive them off. But escort forces weren't strong.
 
@@ -28,7 +28,7 @@ Hong Huangnan said: "River pirate suppression should really recruit some locals 
 
 Hong Huangnan then briefed him on the supply convoys he'd organized. Besides some standardized vessels brought from Hong Kong, the transport ships currently sailing the West and North Rivers were mainly locally requisitioned from boat operators at Sanshui—minimizing vessel redeployment.
 
-For the East River basin's supply, Joint Logistics used vessels requisitioned in Guangzhou. Guangdong's boat operators were concentrated primarily in Sanshui and Guangzhou; both places had large numbers of transport vessels.
+For the East River basin's supply, Joint Logistics used vessels requisitioned in Guangzhou. Guangdong's boat operators were concentrated primarily in Sanshui and Guangzhou. Both places had large numbers of transport vessels.
 
 "So we're not short of ships or sailors. But as I just said, these people have long existed in a 'gray area.' Untransformed, they carry heavy old habits and are very hard to discipline."
 
@@ -76,10 +76,6 @@ The cost of requisitioned vessels was merely the daily food consumption of sailo
 
 "If they didn't, I'd find that strange. But that's the past. We won't pursue it. For the future, you'd better keep a close eye on things—and start building up your own fleet. Joint Logistics can't always depend on Navy vessels."
 
-Hong Huangnan's expression brightened slightly: "You're right, General. Inland river shipping is heavy on tasks, complicated in operations, and highly specialized. It really needs a dedicated organization to manage it."
+Hong Huangnan's expression brightened slightly. "You're right, General. Inland river shipping is heavy on tasks, complicated in operations, and highly specialized. It really needs a dedicated organization to manage it."
 
----
-
-*PS: Tomorrow's update—Volume Seven, Guangzhou Governance Arc, Section 265*
-
-*(End of Chapter)*
+**(End of Chapter)**

@@ -1,97 +1,99 @@
 # Chapter 2024 - Seeking the True Baldies
 
-"So that's how it is." Li Suiqiu nodded. He thought secretly, these Australians really have many tricks.
+"I see." Li Suiqiu nodded. Inwardly, he thought: these Australians possess no shortage of tricks.
 
-The collective wedding matter he had already seen reported in the newspaper—a full page. He rarely read closely articles where hair-thieves praised themselves, but roughly knew the Australians played "official matchmaker," matching a batch of "chaste widows" and reformed prostitutes with husbands.
+The collective wedding had already received extensive coverage—a full newspaper page. He rarely read articles where the hair-thieves praised themselves, but he understood the general outline: the Australians were playing "official matchmaker," pairing a cohort of "chaste widows" and reformed prostitutes with husbands.
 
-"Widows remarrying" had stirred debate in Guangzhou's scholarly circles, with some approving and some cursing. Li Suiqiu was indifferent either way—since ancient times keeping chastity was never easy. Wanting to remarry simply meant inability to maintain it; better to let nature take its course.
+"Widow remarriage" had sparked debate throughout Guangzhou's scholarly circles, drawing both approval and condemnation. Li Suiqiu remained indifferent. Maintaining chastity had never been easy since ancient times. Those wishing to remarry simply lacked the fortitude to preserve it. Better to let nature take its course.
 
-Li Suiqiu knew Australians always loved capitalizing on major social events to glorify themselves. This collective wedding was probably the same. The Zhang family stepping forward to hold this ritual was just joining the excitement. This was within reason.
+He knew the Australians loved capitalizing on major social events to glorify themselves. This collective wedding doubtless served the same purpose. That the Zhang family stepped forward to sponsor this ritual merely represented joining the festivities—well within reason.
 
-But to participate and give offerings at a ritual, one normally had to be friends and relatives of the host family. Zhang's was just a small shop owner in the past, with no connection to his family whatsoever, let alone friendship. Why would they suddenly come to invite his family to "participate"?
+Yet to participate and offer donations at a ritual, one normally required friendship or kinship with the host family. Zhang's establishment had been merely a small shop in years past, sharing no connection whatsoever with his household, much less friendship. Why would they suddenly extend invitations for his family to "participate"?
 
-Qing Jing probably saw his puzzlement and smiled: "This isn't Master Zhang's idea. Our abbot Daoist Cui dispatched this humble Daoist. This is a joyous occasion for the whole world to celebrate; we invite everyone to participate, share in the blessing..."
+Qing Jing evidently perceived his puzzlement and smiled. "This isn't Master Zhang's initiative. Our Abbot Cui dispatched this humble Daoist. This constitutes a joyous occasion for all the world to celebrate; we invite everyone to participate, to share in the blessing..."
 
-Speaking to this point, the meaning was quite clear. This was the Australians' idea; they just weren't saying it openly.
+The meaning had grown unmistakable. This represented the Australians' idea; they simply refrained from stating it openly.
 
-Li Suiqiu cursed inwardly: truly skilled at amassing wealth! He knew clearly: given the current situation, how many wealthy households in the city were eager for any opportunity to forge even the slightest connection with the hair-thieves. This Qing Jing had wide social circles and was acquainted with all gentry and wealthy households in the city. By the time he made one round of visits, forget a mere few hundred taels of silver—even ten thousand taels was easily achievable.
+Li Suiqiu cursed inwardly: truly skilled at amassing wealth! The calculation stood transparent—given current circumstances, how many wealthy households throughout the city hungered for any opportunity to forge even the slightest connection with the hair-thieves? Qing Jing maintained wide social circles, acquainted with every gentry household and wealthy family in the city. By the time he completed one circuit of visits, forget mere hundreds of taels—even ten thousand could be readily collected.
 
-Thinking of this, he "hehe'd" and said: "Seems this Daoist Cui is quite skilled at amassing wealth. Since you came to my residence, you didn't come in vain?"
+Thinking thus, he chuckled coldly. "It seems this Daoist Cui proves quite adept at accumulating wealth. Since you've called at my residence, surely you haven't departed empty-handed?"
 
-Qing Jing heard the unfriendly meaning in these words and hurriedly bowed apologetically: "What is Master Li saying! Participating in rituals is by fate; the amount is just karmic connection. This humble Daoist absolutely dare not haggle."
+Qing Jing detected the unfriendly implication and hurriedly bowed with apologies. "What does Master Li suggest! Participation in rituals follows fate; the amount represents karmic connection. This humble Daoist would absolutely never presume to haggle."
 
-Qing Jing dared not continue being perfunctory with him and hurriedly said "excuse me" before rushing out.
+Qing Jing dared not continue his evasions and hurriedly excused himself, rushing out.
 
-Li Suiqiu felt troubled inside; after seeing his mother, he returned to the outer study. His personal servant was already waiting for him.
+Li Suiqiu felt troubled within. After visiting his mother, he returned to the outer study where his personal servant already awaited him.
 
-After returning to the city, Li Suiqiu mostly maintained a "secluded" lifestyle, never going out except for small gatherings with teachers and friends and social occasions with relatives. He rarely lingered on the streets. But he cared deeply about news from the streets; every day there were designated servants going out to buy newspapers, copy proclamations, and bring back various market rumors and privately circulated "flyers."
+Since returning to the city, Li Suiqiu had largely maintained a "secluded" existence, venturing out only for small gatherings with teachers and friends or social obligations with relatives. He rarely lingered on the streets. Yet he cared deeply about street news; each day designated servants went forth to purchase newspapers, copy proclamations, and gather various market rumors and privately circulated "flyers."
 
-Today the servant brought much news as usual. Li Suiqiu first flipped through *Sheep City Express*; nothing much new. Local news continued reporting on matchmaking and the collective wedding. Besides that, it was "Our valiant Fubo Army achieved great victory at such-and-such place again, killing XXX bandits..."
+Today the servant brought the usual abundance. Li Suiqiu first perused *Sheep City Express*—nothing particularly novel. Local news continued reporting on matchmaking and the collective wedding. Beyond that: "Our valiant Fubo Army achieved great victory at such-and-such location, eliminating XXX bandits..."
 
-Domestic news was rather interesting. From this newspaper, Australians seemed to know the Ming's situation like the back of their hand. Not only were court affairs known in detail, but large and small events from various places were also known precisely. They could even quote original passages from official communiqués, court gazettes, memorials, and various documents. This most puzzled Li Suiqiu and others—even if Australians had many spies in Beijing and "telegraph" to transmit messages instantly, how could they have spies throughout the two capitals and thirteen provincial administrations? Especially for matters involving bandits, news was even more detailed than the court's.
+The domestic news section proved more intriguing. From this newspaper, the Australians appeared to know Ming affairs like the backs of their hands. Not merely court matters in granular detail, but large and small events throughout the realm with remarkable precision. They could even quote verbatim from official communiqués, court gazettes, memorials, and various documents. This most perplexed Li Suiqiu and his circle—even granting the Australians possessed numerous spies in Beijing and "telegraph" capabilities for instantaneous transmission, how could they maintain informants throughout both capitals and all thirteen provincial administrations? Particularly regarding bandit activity, their intelligence often exceeded the court's own knowledge.
 
-Although Li Suiqiu had no way to verify that everything in the newspaper was correct, he instinctively felt the hair-thieves' mastery of information was extremely powerful; major news from across the nation took them only three to five days.
+Though Li Suiqiu possessed no means of verifying every detail's accuracy, he instinctively sensed the hair-thieves' information mastery approached formidable levels. Major national news reached them within a mere three to five days.
 
-After reading a few domestic news items, he couldn't bear to continue—the entire page was bad news. Floods, droughts, locusts, plagues, bandits swarming everywhere.
+After reading several domestic items, he could stomach no more—the entire page consisted of calamity. Floods, droughts, locusts, plagues, bandits swarming in every direction.
 
-Never imagined the national situation had deteriorated to this extent! Li Suiqiu sighed inwardly. Previously, without access to Australian newspapers, he only had a vague sense of the overall situation. He had been to the capital and many places, witnessing conditions along the way, knowing the national strength was declining. But he'd never realized the Ming's crisis was so widespread and severe. Now with newspapers frequently publishing disaster reports from everywhere, not only detailed text but also various woodcut illustrations, depicting the misery vividly.
+He had never imagined the national situation had deteriorated to such extent. Li Suiqiu sighed inwardly. Previously, without access to Australian newspapers, he had maintained only vague impressions of the broader picture. He had traveled to the capital and many locations, witnessing conditions along the way, understanding that national strength declined. Yet he had never grasped how widespread and severe the Ming's crisis had grown. Now, with newspapers publishing disaster reports from all quarters—not merely detailed descriptions but woodcut illustrations depicting misery with vivid immediacy—the daily accumulation of such images left him increasingly uncertain about the Ming's future.
 
-This day-after-day impact made Li Suiqiu feel increasingly lost about the Ming's future. What was the Ming's fate?
+What fate awaited the Ming Dynasty?
 
-There could be no answer. Li Suiqiu vaguely sensed he had already seen the future, yet deep in his heart he utterly rejected this answer.
+No answer existed. Li Suiqiu vaguely sensed he had already glimpsed the future, yet deep within his heart he utterly rejected that answer.
 
-With this melancholic mood, he put down the newspaper and picked up a pile of messy paper scraps. These were various "tabloids" sold privately on the streets. This trade wasn't run by Australians but by vendors who used clay movable type and soot-water on coarse paper to reprint court gazettes. The various tabloids sold published mostly crudely written, vulgar vernacular novels and story collections. Li Suiqiu had seen servants read such stories in their spare time before and didn't mind. But recently he discovered these crude things actually contained a different universe!
+In this melancholic mood, he set aside the newspaper and retrieved a pile of miscellaneous paper fragments. These comprised various "tabloids" sold privately on the streets—not Australian productions, but vendors' work using clay movable type and soot-water on coarse paper to reprint court gazettes. The tabloids published mostly crudely written, vulgar vernacular novels and story collections. Li Suiqiu had previously observed servants reading such tales during leisure hours and paid them no mind. Recently, however, he had discovered these crude productions actually contained a different universe.
 
-This different universe began with a serialized novel called *Tales of Australian Heroes* in a tabloid. A few days ago he accidentally saw the opening passage on his servant; though the characters were blurry and language crude, the content immediately caught his attention.
+This different universe commenced with a serialized novel titled *Tales of Australian Heroes* appearing in one tabloid. Days earlier he had accidentally glimpsed the opening passage while his servant read; though characters proved blurry and language crude, the content immediately captured his attention.
 
-This *Tales of Australian Heroes*, though the whole story obviously alluded to hair-thieves and was entirely "false history," the imitation of *Water Margin*'s prologue fabricating the Australians' origins was quite thought-provoking.
+This *Tales of Australian Heroes*, though clearly alluding to the hair-thieves through "false history," imitated *Water Margin*'s prologue in fabricating the Australians' origins—quite thought-provoking.
 
-At the end of the Southern Song, loyal ministers and righteous warriors protected the Song and resisted the Yuan. When all failed, they threw themselves into the sea to show their resolve.
+At the Southern Song's conclusion, loyal ministers and righteous warriors defended Song against Yuan. When all efforts failed, they cast themselves into the sea to demonstrate their resolve.
 
-Immortals pitied them, opened the gates of the celestial realm, sent iron ships to save them, carried them back to the Earthly Immortal Realm, and placed them in the Great Ao of the Eastern Sea.
+Immortals, moved by compassion, opened the celestial gates, dispatched iron ships for rescue, bore them to the Earthly Immortal Realm, and placed them within the Great Ao of the Eastern Sea.
 
-They taught them immortal arts; after nine generations, there were over five hundred descendants, all learning immortal techniques.
+There they taught immortal arts. After nine generations, over five hundred descendants emerged, all versed in immortal techniques.
 
-One day the immortals said:
+One day the immortals proclaimed:
 
-"You are originally mortals, saved by our great iron ship in an apocalypse. Now another apocalypse comes; without completing karma, you cannot approach the Great Dao. You should go again with the great iron ship to save the people, complete this karma, and attain the Great Dao."
+"You are originally mortals, rescued by our great iron ship during one apocalypse. Now another apocalypse approaches. Without completing karma, you cannot approach the Great Dao. You should depart again aboard the great iron ship to rescue the people, complete this karmic debt, and attain the Great Dao."
 
-Thus they reopened the celestial gates, and five hundred people departed on the great iron ship.
+Thus they reopened the celestial gates, and five hundred souls departed aboard the great iron ship.
 
-Praised thus: Loyal ministers and righteous warriors repay the sovereign's grace; when heaven's gates open, the Song house survives. Five hundred exiled immortals save the great tribulation; wherever the iron ship arrives, sun and moon are renewed.
+The poem praised: *Loyal ministers and righteous warriors repay sovereign grace; when heaven's gates open, the Song house endures. Five hundred exiled immortals rescue from great tribulation; wherever iron ships arrive, sun and moon renew.*
 
-As a Confucian disciple, Li Suiqiu naturally didn't believe Australians were "immortals," but he understood the meaning behind this story—they were painting their usurpation of rivers and mountains with the cosmetics of "divine mandate" and "heavenly destiny."
+As a Confucian disciple, Li Suiqiu naturally rejected any notion that Australians constituted "immortals." Yet he grasped the story's underlying meaning—they were painting their usurpation of rivers and mountains with cosmetics of "divine mandate" and "heavenly destiny."
 
-He recalled prophecies from the streets that his servant had recently brought.
+He recalled prophecies his servant had recently conveyed from the streets.
 
-"A purple cloud rises from the South Sea; the First Emperor frequently digs at Ma'an Mountain. The dragon energy of a thousand ages can't be dug to death; the Great Song opens again in Southern Guangdong."
+*A purple cloud rises from the South Sea; the First Emperor frequently excavates at Ma'an Mountain. The dragon energy of a thousand ages cannot be dug to death; the Great Song opens again in Southern Guangdong.*
 
-This was extremely plain and had been circulating since years ago; needless to say, it was secretly fabricated and spread by hair-thieves.
+Exceedingly transparent, this had circulated for years—doubtless secretly fabricated and disseminated by the hair-thieves.
 
-"Solar eclipse—heaven collapses; lunar eclipse—earth cracks; eclipse of both sun and moon—extinction."
+*Solar eclipse—heaven collapses; lunar eclipse—earth cracks; eclipse of both sun and moon—extinction.*
 
-This passage was more meaningful. Since the first year of Chongzhen, celestial phenomena had been changing. There was a solar eclipse in the first year of Chongzhen, followed by solar eclipses in the second, fourth, and fifth years; until the seventh year of Chongzhen, there were continuous solar eclipses in the third, seventh, and tenth months. Though Li Suiqiu didn't understand astronomy, he was a believer in "correspondence between heaven and man." These continuous "abnormal phenomena" had long made him uneasy.
+This passage carried greater weight. Since Chongzhen's first year, celestial phenomena had been shifting ominously. A solar eclipse during Chongzhen's inaugural year, followed by eclipses in the second, fourth, and fifth years. By the seventh year of Chongzhen, continuous solar eclipses occurred in the third, seventh, and tenth months. Though Li Suiqiu lacked astronomical expertise, he believed firmly in "correspondence between heaven and man." These continuous "abnormal phenomena" had long stirred unease within him.
 
-He recalled a gathering at the end of Tianqi, when someone mysteriously mentioned an astronomical phenomenon in the seventh month of Tianqi's fourth year: "Five Planets in Conjunction; the Emperor Star lost position; a guest star transited the sun; the Imperial Star dimmed."
+He recalled a gathering at the Tian
 
-Previously they only saw this as an omen of Emperor Xizong's short lifespan—which later proved true. But recently, street talk said this was a portent of the Ming's imminent fall and change of dynasty.
+qi era's conclusion, when someone mysteriously mentioned an astronomical occurrence from Tianqi's fourth year, seventh month: "Five Planets in Conjunction; the Emperor Star lost position; a guest star transited the sun; the Imperial Star dimmed."
 
-Even as a disciple of the sage's teaching, facing these prophecies, Li Suiqiu couldn't help but waver inwardly—was the Ming really going to fall?
+Previously they had interpreted this solely as portending Emperor Xizong's brief reign—which subsequent events confirmed. But recent street talk reframed it as heralding the Ming's imminent collapse and dynastic change.
 
-He painfully bowed his head, no longer reading these distressing papers. He was well-read in history; from the Founding Ancestor to now was over two hundred sixty years. Since the First Emperor unified China, no dynasty except the glorious Han and Tang and the Great Song surviving on half its territory had lasted so long. Like a person entering old age, the various symptoms of the dynasty's decline had appeared.
+Even as a disciple of the sage's teachings, facing such prophecies, Li Suiqiu could not prevent inner wavering. Was the Ming truly destined to fall?
 
-"When a nation is about to fall, there must be monsters"—this phrase suddenly flashed in his mind. Indeed! Weren't these Australians who came on iron ships precisely the "monsters"? Even the Eastern Barbarians (Jurchen/Manchu) had traceable origins; only these hair-thieves, besides claiming Song lineage and physical appearance, had no resemblance to Chinese whatsoever. Even their origins were concealed, never clarified.
+He painfully bowed his head, unable to continue reading these distressing papers. He possessed broad historical knowledge—from the Founding Ancestor to the present spanned over two hundred sixty years. Since the First Emperor unified the realm, only the glorious Han and Tang, and the Great Song surviving on half its territory, had endured so long. Like a person entering old age, the dynasty exhibited every symptom of decline.
 
-You may fool ignorant commoners, but you can't fool me!
+"When a nation approaches its end, there must be monsters"—the phrase flashed suddenly through his mind. Indeed! Were not these Australians arriving aboard iron ships precisely the "monsters"? Even the Eastern Barbarians possessed traceable origins. Only these hair-thieves, beyond claiming Song lineage and possessing human appearance, resembled Chinese in no particular. Even their origins remained concealed, never clarified.
 
-Thinking of this, Li Suiqiu suddenly felt filled with fighting spirit—he would properly contend with these hair-thieves falsely claiming Song descent!
+You may deceive ignorant commoners, but you cannot deceive me!
 
-But after this excitement came a wave of emptiness: how to contend? Li Suiqiu wasn't a feeble scholar; he mastered the "Six Arts" and was quite skilled with the sword, a cultured and martial Confucian. In the history of the old timeline, he led troops to rescue Ganzhou and died fighting there. But at this moment, he wasn't thinking of martial combat or assassination, but of understanding the Australians' inside story and finding corresponding methods.
+Thinking thus, Li Suiqiu suddenly felt filled with fighting spirit. He would properly contend with these hair-thieves falsely claiming Song descent!
 
-The Jade Source Society run by Young Master Liang specialized in researching "Baldy Studies." Li Suiqiu had some knowledge of it. But he had little contact with the Liang family. Since the Voodoo Case implicated the Liang family and they were punished in the tax rectification, the Jade Source Society had scattered. Though Liang Mansion wasn't raided, it had become a deserted place with few visitors. This was naturally somewhere he couldn't go.
+Yet this excitement quickly gave way to emptiness: how to contend? Li Suiqiu was no feeble scholar. He had mastered the "Six Arts" and possessed considerable sword skill—a cultured and martial Confucian. In the old timeline's history, he would lead troops to rescue Ganzhou and perish fighting there. But at this moment, his thoughts turned not toward martial combat or assassination, but toward understanding the Australians' inner workings and discovering corresponding countermeasures.
 
-Moreover, the method of merely collecting materials and listening to others recount experiences felt like scratching an itch through boots.
+The Yuyuan Society operated by Young Master Liang specialized in researching "Baldy Studies." Li Suiqiu possessed some knowledge of it. Yet he maintained minimal contact with the Liang household. Since the Sorcery Case had implicated the Liang family and they suffered punishment during the tax rectification, the Yuyuan Society had scattered. Though the Liang mansion escaped confiscation, it had become a deserted estate with few callers. This naturally represented somewhere he could not visit.
 
-If only he could directly interact with Australians! At least he could get first-hand news from them.
+Moreover, the method of merely collecting materials and hearing others recount experiences felt like scratching an itch through one's boot.
 
-But although there were many true baldies in Guangzhou city, he had no connection to any. Li Suiqiu racked his brains for a long time but couldn't think of anyone who could introduce him.
+If only he could interact directly with Australians! At minimum he might obtain first-hand intelligence from them.
+
+Yet though numerous true baldies occupied Guangzhou, he shared connections with none. Li Suiqiu wracked his brain at length without identifying anyone capable of providing introduction.

@@ -6,29 +6,29 @@ Though this engagement was little different from the Humen operation several yea
 
 In the great hall of Longhua Temple, Zhu Mingxia studied the sand-table model of Zhaoqing and its surroundings on the desk before him. Frankly, the Zhaoqing campaign required no elaborate tactical maneuvers—indeed, the continuous mountain terrain made large-scale maneuvering nearly impossible. The most straightforward approach was simple: embark the entire force, force passage through the Three Gorges, and strike directly at Zhaoqing's prefectural seat.
 
-Since ancient times, Guangdong attacking Guangxi was hard; Guangxi descending on Guangdong was easy. The West River flowed from Guangxi toward Guangdong. Guangxi armies needed only to ride the current downstream; once they broke through the Little Three Gorges at Zhaoqing, they could pour directly into Guangdong's heartland, the Pearl River Delta. Guangdong armies attacking Guangxi had to sail upstream—without trackers hauling on towlines, boats could scarcely pass through the Little Three Gorges at all.
+Since ancient times, Guangdong attacking Guangxi was hard; Guangxi descending on Guangdong was easy. The West River flowed from Guangxi toward Guangdong. Guangxi armies needed only to ride the current downstream. Once they broke through the Little Three Gorges at Zhaoqing, they could pour directly into Guangdong's heartland, the Pearl River Delta. Guangdong armies attacking Guangxi had to sail upstream—without trackers hauling on towlines, boats could scarcely pass through the Little Three Gorges at all.
 
 For the Fubo Army, however, the natural barrier of the Little Three Gorges posed no obstacle. Motor-powered vessels could sail upstream without difficulty, and the gorges' water depth allowed river gunboats to steam right up to Zhaoqing's walls.
 
-According to reconnaissance reports, Zhaoqing's Ming forces included a naval battalion—but with a total strength of only about 1,200 men, and a fleet of just over a hundred vessels, mostly small hundred-ton-class craft suited to inland waters. In a head-on clash with the Fubo Army's river flotilla, they would certainly be crushed.
+According to reconnaissance reports, Zhaoqing's Ming forces included a naval battalion—but with a total strength of only about 1,200 men and a fleet of just over a hundred vessels, mostly small hundred-ton-class craft suited to inland waters. In a head-on clash with the Fubo Army's river flotilla, they would certainly be crushed.
 
 So then, what methods would the Ming employ to intercept them? Zhu Mingxia knew Zhaoqing was a critical strongpoint for Ming forces in the Two Guangs. Losing Zhaoqing meant losing Guangdong. If Xiong Wenchan hoped to answer to the court, he had to hold this place—otherwise not only would his official cap be forfeit, but his very head would be in jeopardy.
 
 He recalled the report Thorpe and Cummings had written after their staff tour the year before, which specifically mentioned that Xiong Wenchan's advisory staff included a legal secretary who had participated in the Chengmai campaign and been a prisoner of the Council of Elders. With such a person present, Xiong Wenchan would hardly be ignorant of the Fubo Army's capabilities and operational characteristics. He would certainly adopt countermeasures.
 
-Honestly? He was rather looking forward to it—Zhu Mingxia found himself thinking this way.
+Honestly? He was rather looking forward to it. Zhu Mingxia found himself thinking this way.
 
 If warfare continued to be so devoid of challenge, the army they had personally built, carefully trained, and meticulously armed would soon degenerate into nothing more than a security force. Zhu Mingxia thought with some concern: without intense, large-scale battlefield confrontation, soldiers would grow ever more lax about war. Before long, they'd be incapable of handling high-intensity combat.
 
 As a commander, he was quite willing to fight a few hard-knock battles—real battles—to temper the troops, rather than this near-parade-march style of "operations."
 
-Still, the Ming forces at Zhaoqing numbered only a few thousand at most. Xiong Wenchan couldn't quickly redeploy the anti-Yao garrison commanders' forces from Guangxi or the Eastern and Western Mountains. The troops directly under his command amounted to no more than the 1,200 officers and men of the Zhaoqing Naval Battalion, his own Governor's Banner guard of three or four hundred, plus the Zhaoqing Guard garrison troops. This Guard nominally had over 3,300 banner soldiers, but they were spread across counties under Zhaoqing Prefecture; around the prefectural seat itself, there were only the garrison's Left Battalion at Caowan and the Right Battalion's villages at Yanqian. These garrison banner soldiers were utterly decrepit, with rampant desertion. Mustering one or two hundred would be considered excellent.
+Still, the Ming forces at Zhaoqing numbered only a few thousand at most. Xiong Wenchan couldn't quickly redeploy the anti-Yao garrison commanders' forces from Guangxi or the Eastern and Western Mountains. The troops directly under his command amounted to no more than the 1,200 officers and men of the Zhaoqing Naval Battalion, his own Governor's Banner guard of three or four hundred, plus the Zhaoqing Guard garrison troops. This Guard nominally had over 3,300 banner soldiers, but they were spread across counties under Zhaoqing Prefecture. Around the prefectural seat itself, there were only the garrison's Left Battalion at Caowan and the Right Battalion's villages at Yanqian. These garrison banner soldiers were utterly decrepit, with rampant desertion. Mustering one or two hundred would be considered excellent.
 
 "Brigade Commander, Third Battalion Commander Zhu Quanxing is here," a guard reported.
 
 "Show him in."
 
-Zhu Quanxing strode into the hall and saluted: "Brigade Commander—"
+Zhu Quanxing strode into the hall and saluted. "Brigade Commander—"
 
 Zhu Mingxia waved him to dispense with formalities.
 
@@ -52,7 +52,7 @@ Still, Zhu Mingxia wasn't reassured and had dispatched the brigade's reconnaissa
 
 "However, during their reconnaissance, our scouts discovered the enemy plans to use fire-ships." Zhu Mingxia picked up a pointer and indicated the sand-table. "The scouts report that the enemy has assembled over a hundred small civilian vessels at the eastern mouth of Dading Gorge, all loaded with straw and tung oil."
 
-Zhu Quanxing's brow furrowed slightly. Fire-ships would indeed pose a threat. The gorge's river surface was narrow, the current swift—and crucially, the enemy's fire-ships would drift downstream while their own vessels were sailing upstream, with poor maneuverability. Using motor boats to tow fire-ships clear would be much more difficult.
+Zhu Quanxing's brow furrowed slightly. Fire-ships would indeed pose a threat. The gorge's river surface was narrow, the current swift—and crucially, the enemy's fire-ships would drift downstream while their own vessels were sailing upstream with poor maneuverability. Using motor boats to tow fire-ships clear would be much more difficult.
 
 "This isn't like our old battles on the Pearl River—calm water, wide river," Zhu Quanxing said. "The enemy is upstream, and the current in the gorge is so fast..."
 
@@ -74,8 +74,4 @@ Zhu Quanxing's brow furrowed slightly. Fire-ships would indeed pose a threat. Th
 
 "Better to have it and not need it. Consider it practice for them. And the troops need more experience with infantry-artillery coordination attacks."
 
----
-
-*PS: Tomorrow's update—Volume Seven, Guangzhou Governance Arc, Section 266*
-
-*(End of Chapter)*
+**(End of Chapter)**

@@ -80,10 +80,4 @@ Wang Qiyi nodded firmly, flipped over the paper in his hand, and began writing a
 
 Next update: Volume 7 - Guangzhou Governance Section 442
 
-Due to a refresh error, today's update of Volume 7 - Guangzhou Governance Section 441 was duplicated.
-
-Due to system limitations, the duplicate chapter cannot be deleted. Tomorrow's content will be Section 442.
-
-Those who have already subscribed, please re-read tomorrow.
-
-(Chapter End)
+**(End of Chapter)**

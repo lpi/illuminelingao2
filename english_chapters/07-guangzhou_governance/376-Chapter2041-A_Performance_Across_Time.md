@@ -1,111 +1,111 @@
 # Chapter 2041 - A Performance Across Time
 
-"Do you think Yunmi will come today?" a girl suddenly asked.
+"Do you think Yunmi will come today?" one of the girls asked suddenly.
 
-Since the Plaid Skirt Club was established, Zhang Yunmi had always been the team's CENTER, occupying the central position in every song. This continued until two years ago when she left Lingao for Guangzhou. After that, Lin Aili took her place.
+Since the founding of the Plaid Skirt Club, Zhang Yunmi had occupied the center position in every performance—the coveted "center" spot reserved for the troupe's star. That had continued until two years ago when she departed Lingao for Guangzhou, and Lin Aili inherited her place.
 
-"She hasn't been on stage for two years. How could she?"
+"She's been off stage for two years. Why would she?"
 
-"Two years off stage doesn't matter, but Yunmi is a big official now—could she dance with us?"
+"The time away doesn't matter, but Yunmi's a senior official now. Would she really dance with us?"
 
-"Why not? Before, she didn't have a position but was still an Elder."
+"Why not? She was already an Elder before, wasn't she?"
 
-"That's different. Back then, she was an idle Elder without a post. Though her status was noble, few people knew her. Now it's different—she's a senior cadre in Guangzhou and the principal of the Cadre Training School—among the naturalized citizen cadres here today, probably many are her students."
+"That was different. Back then she was an idle Elder without portfolio—her status was high, but few people recognized her. Now she's a senior cadre in Guangzhou, the principal of the Cadre Training School. Half the naturalized officials here today are probably her students."
 
-"That's true. Dancing in front of students in a skirt like this..." The girls looked at their skirts—calling them skirts, they didn't even cover the knees. Though they had all received new-style education from childhood and were mostly orphans without parents instilling ideas, the relatively conservative social atmosphere still put great pressure on them. Even in Lingao, the "most advanced" place, many naturalized citizens still pointed and whispered about them behind their backs.
+"You're right. Dancing in front of her own students in a skirt like this..." The speaker glanced down. The performance costumes could barely be called skirts—they didn't even reach the knee. Though all of them had received modern-style education from childhood, and most were orphans unburdened by parental strictures, the relatively conservative social atmosphere still weighed on them. Even in Lingao, the most "progressive" city in the realm, naturalized citizens still pointed and whispered behind their backs.
 
-No matter how much the Elders affirmed them, how many honors they gave, how many examples female Elders set for them, the girls still felt an inexplicable sense of shame about their performances.
+No matter how much the Elders affirmed them, no matter how many honors they bestowed or how many female Elders set examples, the girls still carried an inexplicable sense of shame about their performances.
 
-Suddenly the curtain lifted. Everyone looked up and it was none other than Zhang Yunmi. She wore a newly made performance costume, looking radiant.
+The curtain lifted abruptly. Everyone looked up to see Zhang Yunmi herself, radiant in a newly tailored performance costume.
 
-"Yunmi!" The girls all crowded around her.
+"Yunmi!" The girls swarmed around her.
 
-"You look so beautiful in this!"
+"You look beautiful!"
 
-"Are you going to perform too?"
+"Are you performing with us?"
 
-"If we're performing, we haven't rehearsed..."
+"But we haven't rehearsed together—"
 
-"We've danced 'Journey of Love' so many times, we don't need to rehearse to know it."
+"We've danced 'Journey of Love' a hundred times. We don't need rehearsal."
 
-Having been separated from them for two years, Zhang Yunmi's mindset was very different from before. She'd originally had no intention of performing. This appearance was half in response to requests from the Plaid Skirt Club's Elder sponsors, and also because Municipal Government Elders all suggested she reprise her role, contributing to the effort to change customs.
+After two years apart, Zhang Yunmi's mindset had evolved considerably. She'd had no intention of performing originally—this appearance was half at the behest of the Plaid Skirt Club's Elder sponsors, half at the suggestion of several Municipal Government Elders who believed she should lend her prestige to the campaign for cultural reform.
 
-"Is everyone doing well?" Zhang Yunmi asked with a smile. These two years of experience had made her more worldly.
+"How has everyone been?" Zhang Yunmi asked with a smile. Two years of experience had sharpened her social polish.
 
-"Yes, yes, everyone's good." Lin Aili had always been the team's number two, only becoming Center after Zhang Yunmi left. Now she clutched Zhang Yunmi's hand, unwilling to let go. "We've all been hoping you'd come back..."
+"Good, everyone's been good!" Lin Aili had always been the troupe's deputy, only ascending to center after Zhang Yunmi left. Now she clutched Zhang Yunmi's hand tightly, unwilling to release it. "We've been hoping you'd come back..."
 
-"Coming back is impossible," Zhang Yunmi laughed. "But a guest appearance is no problem."
+"Coming back permanently is impossible," Zhang Yunmi laughed. "But a guest appearance? No problem."
 
-"With you as Center, we feel more at ease during performances." A girl said, "Aili's voice is too soft—feels unreliable."
+"With you as center, we all feel more confident," another girl said. "Aili's voice is too soft—it doesn't carry the same authority."
 
-"Where am I soft? Where am I soft?" Lin Aili pretended to be angry.
+"Where am I soft? Where?" Lin Aili pretended indignation.
 
-"Oh, so you're saying my dancing is stiff then." Zhang Yunmi joined in the teasing.
+"So you're saying my dancing is stiff, then?" Zhang Yunmi joined the teasing.
 
-The girl became flustered: "No, no, absolutely not... Your dancing is beautiful..."
+The girl's face flushed. "No, no, not at all! Your dancing is beautiful..."
 
-The stage crew began calling: "Countdown three minutes—prepare to go on!"
+The stage crew called from beyond the curtain: "Countdown three minutes—prepare to go on!"
 
-Outside, the sky was gradually darkening, the heavens slightly blue. Clouds cast their shadows. Against the dusk, Great World's hall seemed even more brilliantly lit. The spectators beyond the security line, though hungry all day, remained excited, enthusiastically discussing the banquet scene in the hall. Vendors also seized the opportunity to squeeze through the crowd, hawking various snacks and thirst-quenching fruits.
+Outside, dusk was falling, the sky deepening to twilight blue. Cloud shadows drifted overhead. Against the gathering darkness, the Great World's hall blazed with light, a beacon of brilliance. Beyond the security cordon, the crowd—having stood hungry all day—remained electric with excitement, debating the banquet scene inside. Vendors threaded through the throng, hawking snacks and thirst-quenching fruit.
 
-Suddenly, the lights on the stage built on Great World's steps came on, and shadowy figures could be seen moving on stage.
+Suddenly the stage lights flared to life on the platform built atop the Great World's steps. Shadowy figures moved behind the glare.
 
-Everyone had heard that this wedding would feature an "Australian performing troupe"—or some said it wasn't a theatrical troupe but the Council of Elders' "song and dance troupe." Supposedly, it was "most licentious and corrupting." Just young women showing legs and arms, swaying hips and bottoms, was enough to make hot-blooded young men lose control. Supposedly because it was too obscene, this troupe rarely performed, reserved for Elders only, with only a few naturalized citizens having seen it...
+Everyone had heard that this wedding would feature an "Australian performing troupe"—or as some claimed, not a theatrical troupe at all but the Council of Elders' "song and dance company." Supposedly it was "utterly licentious and morally corrupting"—young women displaying bare legs and arms, swaying hips and bottoms in ways that drove hot-blooded young men to distraction. The troupe was said to perform so rarely, reserved almost exclusively for Elder audiences, that only a privileged few naturalized citizens had ever witnessed it.
 
-The loafers spat gossip continuously while listeners itched with curiosity, all wanting to see this rarest of Australian spectacles. Now as the stage lights came on, the crowd instantly stirred, surging forward. Fortunately, preparations had been made—not only had the National Army set up a security line, but special barriers had been placed to prevent the crowd from overwhelming it.
+The idlers traded gossip continuously, and their listeners ached with curiosity, all desperate to witness this rarest of Australian spectacles. Now, as the stage lights blazed, the crowd instantly surged forward. Fortunately, preparations had been thorough—the National Army had established a security cordon reinforced with special barriers designed to withstand the press of bodies.
 
-With five metallic strikes through the speakers, the opening of "Journey of Love" began. With the music, the stage lights suddenly "whooshed" fully on, illuminating the girls on stage dazzlingly—their performance costumes were blue, made of real silk mixed with silver thread. By adjusting the ratios of silk and silver, different shades were woven. To enhance this subtle shimmering effect, crystal glass was added as decorative accents. What seemed a simple costume was actually extremely labor-intensive and material-costly. Because silver oxidizes easily and loses its luster, such a costume could only be used a few times before being scrapped—utterly extravagant. But its stage effect under the lights was unprecedentedly stunning.
+Five metallic chimes rang through the speakers. "Journey of Love" commenced. With the opening notes, the stage lights flared to full brilliance, illuminating the dancers in dazzling radiance. Their performance costumes were blue, woven from genuine silk interlaced with silver thread. By varying the ratios of silk to silver, different lustrous shades emerged. To enhance the shimmering effect, fragments of crystal glass served as decorative accents. What appeared a simple costume was in truth extraordinarily labor-intensive and material-costly. Because silver oxidized readily, losing its luster, such a garment could endure only a handful of performances before requiring replacement—a stunning extravagance. But its effect under the spotlights was without precedent.
 
-The shimmering costumes sparkled under the stage spotlights, captivating even the idlers who had come specifically to see "white legs."
+The shimmering costumes sparkled beneath the glare, captivating even the loafers who had come specifically to ogle "white legs."
 
-With the opening, Zhang Yunmi, originally facing away from the audience, spun around, made an adorable "blow a kiss" gesture, and swayed her hips as she walked from the back row to the front.
+With the opening beat, Zhang Yunmi—who had been facing away from the audience—spun gracefully, blew an adorable kiss to the crowd, and swayed her hips as she glided from the back row to center stage.
 
-The entire plaza erupted. The crowd surged like ocean waves, suddenly undulating and crashing against the security line in an explosion of exclamations.
+The plaza erupted. The crowd surged like a tidal wave, bodies undulating and crashing against the security cordon in an explosion of shouts and exclamations.
 
-The exclamations came not only from natives seeing such a performance for the first time, but also from many naturalized citizens. Because many of them recognized that the most radiant girl standing in the center of the formation, wearing a miniskirt, singing and dancing, was none other than the Municipal Government Secretary-General and Cadre Training School Principal—Zhang Yunmi.
+The cries came not only from natives witnessing such a performance for the first time, but also from many naturalized citizens. Because they recognized the radiant figure commanding center stage, singing and dancing in a miniskirt, as none other than the Municipal Government Secretary-General and Principal of the Cadre Training School—Zhang Yunmi herself.
 
-A female Elder of high position and great power coming out personally to dance! This news instantly spread throughout the venue inside and out. The crowd was in an uproar. Spectators outside, needless to say, pushed forward desperately. Even the guests in the hall now forgot propriety, swarming outside to watch this "unprecedented marvel" from the closest distance.
+A high-ranking female Elder performing on stage! The news rippled through the venue like wildfire, inside and out. The crowd roared. Spectators outside pressed forward desperately. Even the dignified guests within the hall forgot propriety, swarming out to witness this "unprecedented marvel" at the closest possible distance.
 
-The skirts of the dancing girls swayed in one direction with the beat, then swished back the other way. This rhythmically synchronized dance instantly captivated countless people, drawing another wave of exclamations.
+The dancers' skirts swayed in unison with the beat, swishing first one direction, then the other. The rhythmically synchronized choreography entranced countless onlookers, drawing wave after wave of exclamations.
 
-"Such uniform dancing! Like one person!"
+"Such perfect unison! Like a single person!"
 
 "Look at the Elder lady's legs..."
 
-"An official's daughter playing the role of a courtesan—truly unprecedented!"
+"An official's daughter playing courtesan—truly unprecedented!"
 
 "Those legs! So long and straight!"
 
-"You've drooled down to your chest!"
+"You've got drool on your chest!"
 
-"Stop pretending to be proper—you're pushing forward just as hard!"
+"Stop pretending to be proper—you're pushing just as hard!"
 
-...
+The crowd's roar nearly drowned out the music from the speakers. The National Army was forced to draw bayonets to prevent the audience from breaching the cordon. Reserve forces began dispersing people at the rear to prevent further pressure.
 
-The crowd's noise was so great it nearly drowned out the music from the speakers. The National Army had to draw bayonets to prevent the audience from surging forward. Reserve forces also began dispersing people at the crowd's rear to prevent further pressing forward.
+Liu Xiang observed the spectacle before him with measured contemplation. The shock of cultural forms transcending time was unprecedented—but whether this shock would be accepted by people of this era remained unknown. He recalled reading about the Moscow Bolshoi Ballet's tour of Chinese communes in the 1950s, which had been dismissed as "naked women dancing."
 
-Liu Xiang watched the grand scene before him, feeling somewhat moved. The shock of cultural forms transcending time was unprecedented, but whether this shock would be accepted by people of this timeline was still unknown—he had read about how the Moscow Bolshoi Ballet's visit to Chinese communes in the 1950s had received the comment "naked women dancing."
+"Such a waste..." Cui Hantang muttered beside him, patting his belly. "These speakers! These amplifiers! These costumes! And these girls—why not deploy them for something productive?"
 
-"What a waste..." Cui Hantang beside him said, patting his belly. "These speakers! These amps! These costumes! And these girls—why not do anything else instead of this!"
+Liu Xiang nodded. "The impact is certainly powerful. The effect, however, remains uncertain."
 
-Liu Xiang nodded: "The impact is certainly strong, but the effect is uncertain."
+"Exactly! Exactly!" Cui Hantang seized the agreement. "My Daoist ritual dancing, my *daoqing* performances, Eight Trigrams Sword, Tai Chi—any of them would harmonize better with the social environment than this! Yet this bunch still manages to commandeer so many resources!" He'd long coveted the speakers, mixing equipment, and amplifiers, having to plead each time he borrowed them. The Plaid Skirt Club, by contrast, could requisition them with a simple request. Moreover, Cui had perpetual grievances with the club, denouncing it as decadent culture—a stance that had created considerable friction with the club's powerful backers.
 
-"Exactly, exactly! My Daoist ritual dancing, *daoqing* performances, Eight Trigrams Sword and Tai Chi... any of them would blend better with the social environment than this! Yet this bunch still manages to get so many resources!" Cui Hantang complained indignantly. The speakers, mixing equipment, and amplifiers were things he had long coveted. He'd borrowed them a few times, always having to plead. But the Plaid Skirt Club could borrow them just by asking. Moreover, he had always had issues with the Plaid Skirt Club, denouncing it as decadent culture, which had caused considerable friction with the club's bigwigs.
+Liu Xiang chuckled when he heard this. "You're still fixated on that? Self-funding for religious organizations is national policy. The Plaid Skirt Club self-funds as well—how many resources can they truly consume? Besides, the Council of Elders doesn't consider these 'decadent songs' particularly problematic. I know the truth: you simply can't stand it."
 
-Liu Xiang laughed when he heard this: "You're still hung up on that? Self-funding for religious organizations is national policy. The Plaid Skirt Club also self-funds—how many resources can they consume? Besides, the Council of Elders considers these 'decadent songs' no big deal. I know: you just can't stand it."
+"Right, I can't stand this nonsense. Good Chinese people engaging in such frivolity..."
 
-"Right, I just can't stand this nonsense. Good Chinese people doing this stuff..."
-
-"See, that's not right." Liu Xiang felt it was necessary to give Daoist Cui a reminder. "Why do you think we risked our lives coming to this timeline?"
+"Ah, that's where you're mistaken." Liu Xiang felt it necessary to offer Daoist Cui a gentle correction. "Why do you think we risked our lives crossing to this timeline?"
 
 "For our ideals."
 
-"Exactly. Those grand ideals of stars and seas, communism, imperialism—let's not talk about those, they're too lofty. Many Elders just want a human zoo or to be Governor of Tahiti. Those Plaid Skirt Club guys just want to experience being an idol manager."
+"Precisely. Those grand visions—stars and seas, communism, imperialism—let's set those aside, they're too lofty. Many Elders simply want a human zoo or to become Governor of Tahiti. Those Plaid Skirt Club fellows just want to experience being idol managers."
 
-"If they want to satisfy their cravings behind closed doors, nobody's stopping them. The problem is satisfying cravings takes resources—what good does it do for our cause?"
+"If they wish to indulge behind closed doors, no one's stopping them. The problem is that indulging requires resources—what benefit does it provide our cause?"
 
-Liu Xiang chuckled: "That talk isn't good for unity. Chief Wen put it well: don't always think about controlling heaven and earth and reproductive organs, trying to control everything. Look, these few Elders running their idol group consume a little resources. Harmless to man and beast, saving everyone so much worry. Otherwise, if they were all like... those few in the Council of Elders, wouldn't that be more annoying?"
+Liu Xiang smiled wryly. "That kind of talk isn't conducive to unity. Chief Wen said it well: don't constantly try to control heaven, earth, and reproductive organs—attempting to micromanage everything. Look, these few Elders running their idol group consume modest resources. They're harmless to man and beast, saving everyone considerable aggravation. Otherwise, if they were all like... certain individuals in the Council of Elders, wouldn't that create more headaches?"
 
-Now Cui Hantang finally understood. These seemingly casual words were actually quite heartfelt.
+Now Cui Hantang understood. These seemingly casual words carried substantial weight.
 
-"Old Liu, you make sense. I'll turn a blind eye to this and let them do their thing." Once Cui Hantang thought it through, he became quite broad-minded. "Besides, Little Zhang also likes this stuff—might as well let her be happy."
+"Old Liu, you're right. I'll turn a blind eye and let them proceed." Once he thought it through, Cui Hantang became magnanimous. "Besides, Little Zhang enjoys this as well—might as well let her be happy."
+
+**(End of Chapter)**

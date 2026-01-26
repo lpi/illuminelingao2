@@ -1,83 +1,91 @@
 # Chapter 2001 - Two Senators Caring About Naturalized Citizens' Marriage Problem (II)
 
-Guangzhou has hundreds of thousands population. Is 17th Century China South biggest city. Appropriate age females definitely not few. Wang Jun calculated. Totally no need to put eyes on "Female Prisoner" or "Chaste Woman"—That has only how many people.
+Guangzhou was home to hundreds of thousands of souls—the largest city in southern seventeenth-century China. Surely, Wang Jun reasoned, there could be no shortage of women of marriageable age. He ran the numbers in his head. There was no need to fixate on the narrow pools of "female prisoners" or "chaste widows"—those constituted only a fraction of the available population.
 
-Next he worried again. Guangzhou appropriate age single females indeed not few. But cannot rely on self connecting bridge one by one. If saying opening a Matchmaking Agency. This spacetime has no such precedent. But has Official Matchmaker selling matching relations—Because Official Matchmaker selling mostly light crime female prisoners. Such matter also doesn't happen often.
+Yet almost immediately, a new anxiety crept in. While unmarried women of appropriate age were indeed plentiful in Guangzhou, he could hardly go door-to-door playing matchmaker himself. Opening a formal matchmaking agency was without precedent in this era. The closest analog was the system of official matchmakers, who primarily brokered the release and marriage of minor female offenders—and even that was a rare occurrence.
 
-Guangzhou common people marriage status. Roughly still "Order of Parents, Word of Matchmaker." Wedding has luxurious has simple. But process basically all same—Even water people like Dan Households also so.
+Among Guangzhou's common people, marriage still followed the iron formula: "By the order of parents and the word of the matchmaker." Weddings varied from lavish to austere, but the essential process remained the same across all social strata—even the boat-dwelling Dan households adhered to this custom.
 
-Wang Jun considered possibility of opening Matchmaking Agency in 17th Century Guangzhou seriously. Felt difficulty somewhat big. And not his expert field either—He never was Union Activist. Relation with "Auntie Red Matchmaker" in enterprise not good either. Had no relevant knowledge in this aspect. Searching intestine scraping stomach for half day couldn't think out how to run Matchmaking Agency.
+Wang Jun considered the feasibility of establishing a matchmaking agency in seventeenth-century Guangzhou. The difficulties were considerable. Worse, it lay entirely outside his area of expertise. He had never been a union activist, and his relationship with the "Auntie Red Matchmakers" back at his old enterprise had been poor at best. Try as he might to dredge up relevant knowledge, his mind came up empty.
 
-He thought here felt brain pain. Couldn't help muttering a sentence: "MD. This is more laborious than going Blind Dating daily back then!"
+The mental strain was giving him a headache. "Damn it," he muttered to himself, "this is more exhausting than when my parents dragged me to blind dates every week!"
 
-However this sentence immediately hooked up his inspiration. He thought of past events forced by dad mom to go Blind Dating. That Matchmaking Agency beside introducing partner alone. Still often engaged "Blind Date Party." Gathering males females with similar conditions in various aspects together engaging BBQ, Self Driving whatever. During period hooked up successfully quite a few people.
+But that casual complaint sparked an idea. He recalled those blind-date agencies his parents had patronized—places that didn't just arrange one-on-one introductions, but organized group "blind date parties." They would gather men and women of similar backgrounds for activities like barbecues or self-drive tours. Quite a few couples had successfully matched through those events.
 
-"This method good ha!" Wang Jun seemed discovering New Continent. Of course Self Driving Tour and Wild BBQ couldn't run in 17th Century. But other forms of Blind Date Assembly could run.
+"That could work!" Wang Jun felt as though he'd discovered a new continent. Of course, self-drive tours and outdoor barbecues were impossible in the seventeenth century. But other forms of group matchmaking events were entirely feasible.
 
-He searched intestine scraped stomach for half day. Thought of running Ball [dance party]—But Social Dance this thing in Lingao only girls of Woman Arts and Science College learned. Even Senators knowing this not many. Besides males females hugging together Peng-Cha-Cha. In place like Lingao no problem. In Guangzhou this place with serious "Feudal Remnant" obviously inevitably too shocking to world. Probably local single women would be scared away once news published.
+He racked his brain. A ball came to mind—Western-style social dancing. But only the girls at the Women's College of Arts and Sciences had learned such dances, and even among the Senators, few knew how. Besides, the image of men and women embracing each other for the cha-cha would raise no eyebrows in Lingao, but in Guangzhou, with its stubborn "feudal remnants," it would be far too scandalous. The mere announcement would likely frighten off every prospective bride in the city.
 
-Thinking again he truly couldn't think out any new form. Thought simply run a simplest "Beating Drum Passing Flower" Blind Date Assembly. "Mutual Selection" then—Such Blind Date Assembly he also participated. Also ran for naturalized citizens in Lingao. But those able to enjoy this treatment mostly were Officers and Cadres, Technical Workers among naturalized citizens.
+After further deliberation, he abandoned novelty for simplicity: a basic "mutual selection" blind date assembly. He'd attended such events himself, and they'd even been organized for naturalized citizens back in Lingao—though those had been limited to officers, cadres, and skilled technical workers among the naturalized population.
 
-Thinking here he immediately wrote a "Warmth Overflowing" letter to this unnoticed Senator Du. Expressing self supporting his idea. Willing to discuss "Solving Marriage Problem for Naturalized Citizens" together with him.
+With that decision made, he immediately penned a "warmly enthusiastic" letter to this previously overlooked Senator Du, expressing his support for Du's initiative and his willingness to collaborate on solving the marriage crisis among naturalized citizens.
 
-Here Senator Du's "Female Prisoner Plan" not approved. Then directly went to Liu Xiang—Liu Xiang hearing he came to talk "Naturalized Citizen Marriage" problem. Then directly pushed saying self no time. Let Zhang Yunmi receive him.
+---
 
-Du Yibin didn't expect meeting Zhang Yunmi—Actually he didn't know Zhang Yunmi. Just after that "Fierce Concubine" case Big Name of Zhang family father and daughter spread whole Senate. And Zhang Yunmi coming to Guangzhou to take office was also on Government Gazette.
+Meanwhile, Senator Du's "Female Prisoner Plan" had been rejected. Undeterred, he went directly to Liu Xiang—who, upon hearing that Du had come to discuss the "naturalized citizen marriage problem," immediately claimed to be too busy and delegated the matter to Zhang Yunmi.
 
-Crossing 6 years. Du Yibin although age near thirty. But essentially still that university student. Thanks to General Office Life Secretary welfare and Parents' meticulous care coming with him. When facing Female Senator still had university student's greenness. Suddenly facing a youth beautiful, lively lovely young sister. This specific plan introduction also became stuttering.
+Du Yibin hadn't expected to meet Zhang Yunmi. In truth, he didn't know her personally, but after the notorious "Fierce Concubine" case, the reputation of the Zhang family father-daughter duo had spread throughout the Senate. Zhang Yunmi's appointment to Guangzhou had been published in the Government Gazette.
 
-Zhang Yunmi listened to his plan. Flipped files again. Frowned brows.
+Six years into the transmigration, Du Yibin was nearing thirty, but in essence he was still the university student he'd once been. Thanks to the General Office's provision of a life secretary and the meticulous care of his parents (who had traveled through the wormhole with him), he retained a university student's awkwardness when dealing with female Senators. Now, confronted by a vivacious, youthful, and lovely young woman, his carefully prepared presentation turned halting and stumbling.
 
-"Pushing Monogamy is one of Senate New Life Movement articles. How can we take lead violating. Even if they are disabled soldiers. Cannot engage Specialization. Besides although female prisoners committed crime. Also are women. Also have Marriage Autonomy! You this proposal allocating them like things to whom. This violates Men Women Equality spirit advocated by Senate..."
+Zhang Yunmi listened to his pitch and flipped through the files, her brow furrowing.
 
-"Mm. This. Actually doesn't matter. Not engaging two wives... Mm. Matter of Female Prisoner not engaging. Mainly still want finding some women marrying disabled naturalized citizens taking care of their life. Establishing family. Passing ancestry connecting generation. So I consider whether can among Chaste Women of Pure Chaste Hall..."
+"Promoting monogamy is one of the core tenets of the Senate's New Life Movement," she said flatly. "How can we lead by example if we violate it ourselves? Even if these are disabled soldiers, we can't engage in special treatment. Besides, while female prisoners may have committed crimes, they're still women. They still have marriage autonomy! Your proposal treats them like commodities to be assigned to whomever. That violates the spirit of gender equality advocated by the Senate..."
 
-"Taking care of their life should be. But why must marry them?!" Zhang Yunmi couldn't think through. "Disabled naturalized citizens of course very pitiable. Also have merit to Senate. But this and emotion are two matters okay! Marriage Freedom Marriage Autonomy. Isn't this thing we propagating daily? Now engaging such organization arrangement. Very disrespectful to female. Cannot because we liberated Guangzhou, liberated those pitiable Chaste Women then pose as Benefactor. Interfering others' private life casually."
+"Well, that's... it's not about taking two wives..." Du Yibin stammered. "The female prisoner idea—forget that. The main thing is finding women to marry disabled naturalized citizens, to take care of them, establish families, carry on their bloodlines. So I was thinking, perhaps among the chaste women at the Jiliang Institute..."
 
-Zhang Yunmi age young. Also influenced by 21st Century pop novels. More or less still had some "Love Supreme" concept. Originally very resisting to Senate "Arranged Marriage."
+"Taking care of them is one thing. But why must they marry?" Zhang Yunmi couldn't comprehend the logic. "Disabled naturalized citizens are certainly deserving of pity. They've served the Senate with merit. But that's separate from matters of the heart! We preach marriage freedom and marriage autonomy every single day. Now you want organizational arrangements? That's deeply disrespectful to women. Just because we liberated Guangzhou and rescued those pitiable chaste widows doesn't mean we can posture as benefactors and meddle in their private lives."
 
-But her speech full article all Big Principles. Choking Du Yibin speechless. But he this plan must obtain Guangzhou City Government support—Now Compassion Hall [Cihui Hall] contained hundreds of homeless Chaste Women from Guangdong various places Pure Chaste Halls, Chaste Women Halls etc. Unfortunately. Zhang Yunmi was City Government Secretary cum Comprehensive Governance Vice Director. Since Liu Xiang unwilling to manage this matter must pass through her.
+Zhang Yunmi was young and had been influenced by twenty-first-century romance novels. She harbored a certain "love is supreme" mentality and was inherently resistant to the Senate's tendency toward "arranged marriages."
 
-"Marriage Autonomy is right. But condition we give not bad either. Wudaokou side already promised me: If she agrees marrying disabled naturalized citizen. These disabled personnel outside original wage give extra 1.5 times Family Subsidy Home..."
+But her objections were all couched in lofty principles, and they left Du Yibin speechless. Yet he desperately needed the support of the Guangzhou City Government. The Compassion Hall currently housed hundreds of homeless chaste widows from charitable institutions across Guangdong Province. Unfortunately, Zhang Yunmi served as both the City Government Secretary and Vice Director of Comprehensive Governance. Since Liu Xiang refused to touch the issue, it had to go through her.
 
-"This is Buying Selling Marriage. Not good not good." Zhang Yunmi head shook more fiercely.
+"Marriage autonomy is correct," Du Yibin ventured. "But the conditions we're offering aren't bad. Wudaokou has already promised: if a woman agrees to marry a disabled naturalized citizen, those disabled personnel will receive one-and-a-half times their regular wage as a family subsidy allowance..."
 
-"This—"
+"That's a mercenary marriage. Absolutely not." Zhang Yunmi shook her head even more vigorously.
 
-Du Yibin speech blocked. He truly couldn't think out any other reason to persuade opponent. Only said after half day: "These people crippled for Senate. Some are Work Injury some are Battle Field Injury... If we don't help them solving Life Big Matter. They won't have family this lifetime. They originally all were healthy people na..."
+"But—"
 
-This slightly sorrowful sentence somewhat moved Zhang Yunmi. She was somewhat difficult. Said: "This matter I also bad to make decision. After all is woman lifetime thing. Still need conscious voluntary. If they willing to marry. I don't oppose—Mayor Liu won't oppose either."
+Du Yibin found himself at a loss for words. After a long pause, he could only say, softly, "These men were crippled in service to the Senate. Some through workplace accidents, others on the battlefield... If we don't help them resolve this major life issue, they'll never have families. They were all healthy men once..."
 
-Senator Du returned Guest House. Somewhat gray heart depressed air. Didn't go to canteen for dinner even. Felt self so failed. Lying on bed thinking how to persuade Song Yingsheng thoroughly again—This was his biggest "Harvest" after going to Enping. Even had feeling of Strange Goods Hoarding.
+This faintly mournful appeal touched something in Zhang Yunmi. She hesitated. "I can't make this decision alone," she said. "After all, it's a woman's lifelong matter. It has to be voluntary and conscious. If they're willing to marry, I won't object—and Mayor Liu won't either."
 
-Song Yingsheng this person name not seen in classics. Only had his record in Local Chronicle. But he was Elder Brother of a "Contemporary Figure" Senate internal evaluation quite high Song Yingxing.
+---
 
-Song Yingxing at this time just right strong year. Now also precisely time he teaching as Instructor in Fenyi County School [Jiangxi], concentrating on writing. Inside Senate not only one Senator had intention of recruiting this Ming Dynasty Scientist. Even Yangtze River Special Task Group dispatched by Intelligence Bureau conducted some relevant activities.
+Senator Du returned to his guest house, his mood gray and deflated. He didn't even go to the canteen for dinner. He felt like a complete failure. Lying on his bed, he pondered how to finally persuade Song Yingsheng—his greatest "prize" from the Enping campaign, a man he regarded with the glee of someone hoarding a rare commodity.
 
-Although temporarily didn't recruit him. But catching his Big Brother was also harvest. Du Yibin specially concerned National Army Captain going to accept Enping: Must catch Enping Magistrate alive.
+Song Yingsheng's name appeared in no great historical texts, only in local chronicles. But he was the elder brother of Song Yingxing, a "contemporary figure" highly regarded within Senate intelligence circles.
 
-Song Yingsheng though not a celebrity. But temperament quite fierce. After Southern Ming fell he took poison suicide martyring country. Loyalty to Great Ming can be seen a spot. So catching him alive also wasted some effort. Du Yibin through Intelligence Bureau inside line in Enping before breaking city. Finally captured him alive before he suicide.
+Song Yingxing was in the prime of his life, currently working as an instructor at the Fenyi County School in Jiangxi while concentrating on his writing. More than one Senator had expressed interest in recruiting this Ming Dynasty scientist, and the Yangtze River Special Task Group dispatched by the Intelligence Bureau had conducted related operations.
 
-After Song Yingsheng captured then soft detained in County Yamen. Enjoying "Preferential Treatment" making him scratching not head brain. Originally captured local officials like him all need sending to Guangzhou Screening uniformly. Because to Du Yibin's special request only kept in county.
+Though they hadn't yet recruited Song Yingxing himself, capturing his elder brother was still a worthwhile achievement. Du Yibin had specifically instructed the National Army captain in charge of Enping's pacification: *Capture the magistrate alive.*
 
-Pity Du Yibin persuasion power limited. Although used whole body skills. Although Song Yingsheng bad no meaning of "Martyring Country." Very polite to him too. But till now still refused to "Surrender Song." This time he specially brought him to Guangzhou. Wanting to let him look "New Atmosphere."
+Song Yingsheng, though not a celebrity, possessed a fierce temperament. In the original timeline, he had committed suicide by poison when the Southern Ming fell, martyring himself for the dynasty. His loyalty to the Great Ming was beyond question. Capturing him alive had taken considerable effort. Through an inside contact in Enping provided by the Intelligence Bureau, Du Yibin had managed to seize him just before the city fell—moments before Song could take his own life.
 
-"This old man also stubborn verify tight!" He complained secretly. Thinking after arriving mainland various matters not smooth. Inevitably thought of Dad Mom and Life Secretary left in Lingao again.
+After his capture, Song Yingsheng had been placed under soft house arrest at the county yamen, receiving "preferential treatment" that left him bewildered. Normally, captured local officials were sent to Guangzhou for screening, but at Du Yibin's special request, Song had been kept in the county.
 
-While bored and lay. His gaze fell on desk. Piled above some correspondences. He read one by one. Suddenly saw a "Private Memorandum." Sender was a Senator he didn't know.
+Unfortunately, Du Yibin's persuasive skills were limited. Despite deploying every argument at his disposal, Song Yingsheng—though he no longer seemed intent on "martyring himself for the country" and remained courteous—had thus far refused to "submit to the Song" (as the transmigrators jokingly called defection). This time, Du had brought him to Guangzhou specifically to show him the "new atmosphere."
 
-"Who is Wang Jun?" Du Yibin opened envelope curiously.
+*That old man is as stubborn as they come,* Du thought bitterly. Reflecting on how nothing had gone smoothly since his arrival on the mainland, he felt a pang of homesickness for his parents and life secretary, all left behind in Lingao.
 
-Two days later. In South Sea Coffee House Great World Branch. Du Yibin met Wang Jun.
+As he lay there brooding, his gaze fell on the desk, where a pile of correspondence had accumulated. Idly flipping through the letters one by one, he suddenly noticed a "private memorandum." The sender was a Senator he didn't recognize.
 
-After two people greeted. Immediately started warm discussion on "Naturalized Citizen Marriage Problem." Du Yibin told result of him seeing Zhang Yunmi.
+"Who's Wang Jun?" Du Yibin opened the envelope curiously.
 
-"This sister full mouth all Big Principles. I can't speak over her." Du Yibin somewhat depressed. "I mouth clumsy."
+---
 
-Wang Jun thought you this proposal placed in past naturally nothing. But influence of 21st Century left Political Correctness in Senate still not small. Many clauses inside simply full of "Incorrectness."
+Two days later, at the Great World branch of the Nanhai Coffee House, Du Yibin met Wang Jun in person.
 
-"This proposal best need rewriting." Wang Jun thought said. "Men Women Equality is one of Senate Pillar Policies. You write what 'Distributing Wife' 'Distributing Two Wives' these. Isn't it strictly doing against Senate policy? Besides how those Female Senators think?"
+After brief pleasantries, the two men plunged into an animated discussion of the "naturalized citizen marriage problem." Du Yibin recounted his meeting with Zhang Yunmi.
 
-"This I knew. You say. How to fix!"
+"That woman speaks nothing but lofty principles," Du Yibin said, deflated. "I couldn't argue with her."
 
-"I see writing so. Proposal then. Just write solving Naturalized Citizen Cadre Staff Marriage Problem. Don't specially write 'Disabled Naturalized Citizen Staff.' Such audience face bigger. And avoiding Disabled—Actually everyone very clear. Under normal circumstance how can healthy woman willing to marry disabled person? Nothing more than relying on Spirit and Material stimulation. Plus some Administrative Force—You started hitting Female Prisoner idea also because of this. Train of thought good. But these all are Dark. Cannot write openly."
+Wang Jun thought silently: *Your proposal would have been fine in the old days, but the political correctness inherited from the twenty-first century still holds considerable sway in the Senate. Many of your clauses are outright "incorrect."*
+
+"The proposal needs a complete rewrite," Wang Jun said aloud. "Gender equality is one of the Senate's cornerstone policies. You wrote about 'distributing wives' and 'distributing concubines'—you're directly contradicting Senate policy! And how do you think the female Senators will react?"
+
+"I know, I know. So tell me—how do we fix it?"
+
+"Here's what I suggest," Wang Jun said. "Reframe the proposal as solving the marriage problem for naturalized cadres and staff. Don't specifically mention 'disabled naturalized staff.' That broadens the target audience and avoids singling out the disabled—though of course, everyone will understand perfectly well. Under normal circumstances, what healthy woman would willingly marry a disabled man? It all comes down to a combination of spiritual and material incentives, plus a touch of administrative pressure. That's why you initially targeted female prisoners. The logic is sound. But all of that must remain implicit. It can't be written down openly."
+
+**(End of Chapter)**

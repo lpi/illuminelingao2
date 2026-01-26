@@ -36,7 +36,7 @@ Wang Qiyi hastily tried to persuade her, arguing that "this is the Executive Com
 
 "If Director Zhang really insists, why not have her assigned to our Tax Bureau?" Ai Zhixin suggested. "She'd have the temporary assignment credentials. And Tax Bureau work is demanding—we're handling a major case. Let Xiaoqing participate nominally."
 
-Wang Qiyi glared at Ai Zhixin, silently cursing: why are you muddying the waters? Getting assigned to the Tax Bureau would do Wang Muqing's future development absolutely no good.
+Wang Qiyi glared at Ai Zhixin, silently cursing: *why are you muddying the waters?* Getting assigned to the Tax Bureau would do Wang Muqing's future development absolutely no good.
 
 However, the suggestion obviously touched Zhang Xiaoqi's heart. She said somewhat hesitantly, "The Tax Bureau is a department where we hold leadership positions. Wouldn't that be inappropriate?"
 
@@ -110,4 +110,4 @@ After more than a month, by Ai Zhixin and Wang Qiyi's observation, at least thre
 
 Next update: Volume 7 - Two Guangs Campaign Section 172
 
-(Chapter End)
+**(End of Chapter)**

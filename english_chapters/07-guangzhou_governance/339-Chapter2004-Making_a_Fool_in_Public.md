@@ -1,125 +1,129 @@
 # Chapter 2004 - Making a Fool in Public
 
-Du Yibin looked at several sick patients. Slightly felt disappointed. He originally thought since can be prostitute. Appearance probably still had a few points. However looking these few could only describe with appearance average. Even coarse ugly.
+Du Yibin glanced at several sick patients and felt a stab of disappointment. He'd originally thought that since they'd worked as prostitutes, their appearances would be at least passable. However, looking at these few, he could only describe them as plain-featured. Some were even coarse and homely.
 
-Hair shaved during purification grew some out. Wearing Indigo "New Life Uniform"—Mostly old uniform work clothes eliminated from troops and factories mines repaired dyed distributed down. This was also standard wearing of "Purification Camp."
+Hair shaved during purification had grown back somewhat. They wore indigo "New Life Uniforms"—mostly old work clothes eliminated from troops, factories, and mines, then repaired, dyed, and distributed. This was also the standard wear of the "Purification Camp."
 
-Du Yibin of course knew women of this spacetime due to nutrition level and aesthetic difference influence. Rarely had modern standard beauty. But just such level. Inevitably drop also too big.
+Du Yibin knew, of course, that women in this era—due to nutritional deficiencies and different aesthetic standards—rarely met modern standards of beauty. But even so, the gap was larger than he'd expected.
 
-Seeing "Chief" coming. Several patients avoided one after another—They still not quite used to Senate etiquette rules.
+Seeing the "chief" arrive, several patients retreated one after another. They still weren't quite accustomed to Senate etiquette rules.
 
-Lu Cheng asked him whether want to inspect dormitory. Du Yibin shook head. His intention was seeing person. Not placing "Prostitute Reform" this matter on heart.
+Lu Cheng asked if he wanted to inspect the dormitories. Du Yibin shook his head. His intention was to see the people, not to concern himself with "prostitute reform."
 
-"Then go to workshop see."
+"Let's go to the workshop."
 
-Workshop set in rear two Long Houses. Storey rack of these two higher. Although roof covering also reed mat. But very "Luxuriously" equipped multiple skylights. Making light ray in room bright. Windows on wall also more than dormitory. Ventilation lighting condition very good. These windows all inlaid glass. Counted most luxury building material in this house.
+---
 
-Du Yibin recalled when he "Settled Home" in farm back then. Dormitory for agriculture workers was just this level. One year typhoon blew. All blew away.
+The workshop was located in the rear two long houses. These two had higher stories. Though the roofs were also covered with reed mats, they were "luxuriously" equipped with multiple skylights, making the interior bright. The walls had more windows than the dormitories. Ventilation and lighting conditions were excellent. These windows were all inlaid with glass—the most extravagant building material in the entire compound.
 
-Ground was compacted mud ground. Placing many bamboo table tops. Piled piles of various cloth grass and cut clothing pieces above. Female students some sewing clothes. Some folding packing. Appearing busy busy.
+Du Yibin recalled when he'd "settled down" at the farm. The dormitory for agricultural workers had been at this level. One year, a typhoon blew through and destroyed everything.
 
-Lu Cheng just entered door. A five big three thick [brawny] naturalized female cadre immediately welcomed over. Face full of stacking smile: "Director Lu... Director Lu... Director Mao... Aiya... Also... Chief... Grace Presence. This. This this this..."
+The floor was compacted earth. Many bamboo worktables were arranged throughout, piled with various fabrics and cut clothing pieces. Some female students sewed clothes, others folded and packed items. They appeared busy and industrious.
 
-She held breath wanting to say a good sounding eulogy. However after all ink in belly limited. Held for half day only said out: "Lit up here all!"
+The moment Lu Cheng entered, a brawny naturalized female cadre immediately rushed over, her face full of obsequious smiles: "Director Lu... Director Lu... Director Mao... Oh! And... a chief... gracing us with their presence. This, this, this..."
 
-"Alright. Alright." Du Yibin especially not used to naturalized citizen this kind of flattery. "I come seeing female students learning situation only. Don't shout." Seeing she wanted to blow whistle. He stopped said. "Don't call them stop work. I just look. Nothing to say."
+She held her breath, wanting to recite an eloquent eulogy. However, with limited ink in her belly, after holding it in for a long moment, she could only manage: "Lit up the whole place!"
 
-However this commotion already caused a small scale disturbance in workshop. Female students more or less somewhat curiously sizing up this newly come young man. From respectful manner of several cadres aside they roughly knew this must be a "Big Official." Ten have eight nine also a "Chief"—Prostitute ability of observing speech watching color higher than normal person.
+"Alright, alright." Du Yibin was particularly unaccustomed to this kind of naturalized citizen flattery. "I've only come to see the female students' learning situation. Don't make a fuss." Seeing her about to blow her whistle, he stopped her. "Don't tell them to stop working. I'll just take a look. I have nothing to say."
 
-"Came a officer!"
+However, this commotion had already caused a small-scale disturbance in the workshop. The female students sized up the newly arrived young man with varying degrees of curiosity. From the respectful manner of the cadres, they roughly knew this must be a "big official"—eight or nine out of ten, a "chief." Prostitutes' ability to read situations was higher than ordinary people.
 
-"Probably Australian Senator."
+"An officer came!"
 
-"Look clothes he wears. Truly stiff."
+"Probably an Australian Senator."
 
-"Is Pretty Boy."
+"Look at the clothes he's wearing. Really sharp."
 
-...
-
-Seeing students whispering one by one. Pointing poking. Du Yibin of course knew they discussing self. He roughly could understand a few sentences of Cantonese now. He age young. Ordinary days in farm and calculation center was two points one line day. Face skin far inferior to other Senators. Initially even going to lottery selecting Life Secretary was sneaky. Now stared by these hundreds of woman eyes felt uncomfortable all over. He forced calmness coughed once. Said: "Introduce situation."
-
-"Yes." Lu Cheng said Ji Liang Suo had total students four hundred eighty. All prostitutes rescued in Rectifying Wind Transformation Industry Action. Part dispatched by Guangzhou Comprehensive Governance Office. Out dispatched by team to various places in city engaging miscellaneous labor. Returning at night. Another part engaging washing sewing clothes in Ji Liang Suo. Processing semi-finished product of Outer Distributing Processing sent by Garment Factory.
-
-"This workshop is Sewing Workshop. Mainly ordering buttons. Shoulder loops for various uniforms and work clothes. Sewing shoe uppers."
-
-"Have remuneration?"
-
-"Have. They use Piece Rate System. Settling into Circulation Coupon monthly. But need deducting their basic living fee first. This helps establishing their labor consciousness."
-
-Du Yibin thought this also too stingy. He sized up students in room. First glance. Almost unable to distinguish their looks and ages. Feeling all about same as that patient he saw outside door. Cannot say good looking or ugly. But looking face color seemed quite healthy.
-
-"Age situation?"
-
-"When sheltered ranged from twelve years old to sixty years old. Done diversion already. Smaller than eighteen years old diverted to purifying camp of Hong Kong. Currently remaining here mainly eighteen to fifty years old range. With twenty five to forty years old age level most. Over fifty years old not many."
-
-"Still have five sixty years old?!" Du Yibin shocked said. He felt somewhat incredible. Hesitated. "Also... Receive guest?"
-
-"Can they not receive?" Lu Cheng looked his appearance seemed especially surprised. Feeling this young Chief truly somewhat little seen much wonder. "Sent here then had quite a few. Someone had venereal disease too..."
-
-"Truly f*cking egg!" He cursed a sentence. "Venereal disease situation how?"
-
-"Very common." Lu Cheng said because prostitutes sheltered here mostly middle lower class prostitutes. Receiving guests at least four five times daily. Some even ten plus times. So universally infected venereal disease and gynecological disease.
-
-"...Now after treatment. Mostly already recovered. Still a part continuing treatment..."
-
-"This part must eliminate. Cannot put on list."
-
-Lu Cheng didn't know what this headless instruction meant exactly. Had to messy answered a "Yes."
-
-But on age he felt quite satisfied. Appropriate age population more than "Single Women." Also relatively young. Although looks couldn't talk about "Beautiful." But at least not like "Single Women" so face full of sorrow. Just this habit must change well. This whispering. A bit discipline no have...
-
-Originally just whispering low voice discussion. This moment voice more and more loud. Occasional burst out snicker sound. Some students near him ignored staring of Lu Cheng and others. Even intentionally posturing towards him. Making Du Yibin quite awkward.
+"He's a pretty boy."
 
 ...
 
-"Look his look. Is a chick."
+Seeing the students whispering and pointing, Du Yibin knew they were discussing him. He could roughly understand a few sentences of Cantonese now. He was young, and his ordinary days at the farm and calculation center were a monotonous two-point routine. His face was far less weathered than other Senators. In the beginning, even going to the lottery to select a life secretary had been done sneakily. Now, stared at by hundreds of women's eyes, he felt uncomfortable all over. Forcing himself to remain calm, he coughed once and said: "Explain the situation."
 
-"Don't tell me is Virgin Chicken?"
+"Yes." Lu Cheng said the Jiliang Institute currently had a total of four hundred and eighty students—all prostitutes rescued during the Public Morality Rectification campaign. Part were dispatched by the Guangzhou Comprehensive Governance Office. Some were dispatched in teams to various places in the city to engage in menial labor, returning at night. Another part engaged in washing and sewing clothes at the Jiliang Institute, processing semi-finished products from outbound processing sent by the garment factory.
 
-"Then doing his business isn't it need paying back Lucky Money..."
+"This workshop is the sewing workshop. Mainly for attaching buttons and shoulder loops for various uniforms and work clothes, and sewing shoe uppers."
 
-"Paying back Lucky Money Old Mother also willing!"
+"Do they receive remuneration?"
 
-"Just relying on your declining look. Also want serving Chief?"
+"Yes. They use a piece-rate system. Settlements are made monthly in circulation coupons. But we deduct their basic living expenses first. This helps establish their labor consciousness."
 
-"Hee. You don't know right. Australians like Tits Big most. Old Mother Tits biggest. You touch see..."
+Du Yibin thought this seemed rather stingy. He sized up the students in the room. At first glance, he could barely distinguish their looks and ages—they all seemed about the same as the patients he'd seen outside. He couldn't say they were good-looking or ugly. But their complexions seemed quite healthy.
+
+"Age distribution?"
+
+"When they were sheltered, they ranged from twelve to sixty years old. We've already done diversion. Those under eighteen were diverted to the purification camp in Hong Kong. Currently, those remaining here are mainly in the eighteen-to-fifty age range, with the twenty-five to forty bracket being most common. There aren't many over fifty."
+
+"You still have women in their fifties and sixties?!" Du Yibin said, shocked. He found it somewhat incredible. He hesitated. "They also... received clients?"
+
+"How could they not?" Lu Cheng looked at his particularly surprised expression, feeling this young chief was truly somewhat sheltered. "Quite a few were sent here. Some had venereal diseases too..."
+
+"Christ!" He cursed. "What's the venereal disease situation?"
+
+"Very common." Lu Cheng explained that because the prostitutes sheltered here were mostly middle and lower-class, receiving clients at least four or five times daily—some even over ten times—they were universally infected with venereal and gynecological diseases.
+
+"...Now, after treatment, most have already recovered. A portion are still continuing treatment..."
+
+"That portion must be eliminated. They can't be put on the list."
+
+Lu Cheng didn't know what this cryptic instruction meant exactly. She could only answer messily, "Yes."
+
+But regarding age, he felt quite satisfied. The appropriate-age population was larger than the "single women," and relatively younger. Although looks couldn't be called "beautiful," at least they didn't have faces full of sorrow like the "single women." It was just that this behavior needed reform. All this whispering—not a shred of discipline...
+
+What had originally been low-voiced whispered discussions now grew louder and louder, with occasional bursts of snickering. Some students near him ignored the glares of Lu Cheng and others, even deliberately posturing toward him. Du Yibin felt quite awkward.
+
+---
+
+"Look at him. He's a chick."
+
+"Don't tell me he's a virgin?"
+
+"Then doing his business—wouldn't that require paying back lucky money..."
+
+"Paying lucky money? Old Mother would be willing!"
+
+"With your decrepit looks, you want to serve the chief?"
+
+"Heh. You don't know, do you? Australians like big tits most of all. Old Mother has the biggest tits. Want to touch and see...?"
 
 ...
 
-Words not only voice more and more loud. Also more lower stream. Lu Cheng originally brows frowned tight. This moment more anger rushing up. She squatted point here for months. Received quite some gas of these women. She picked up whistle. Blew fiercely. Reducing group loudly roared: "Silence!"
+The words grew not only louder but increasingly vulgar. Lu Cheng's brow had been tightly furrowed; now anger surged up. She'd squatted at this post for months and had endured quite some frustration from these women. She picked up her whistle and blew fiercely, then roared at the group: "Silence!"
 
-Crowd slightly quieted a bit. Lu Cheng scolded asking that student claiming "Tits Biggest": "Bian Cuibao! You talking nonsense what again?! A bit discipline no have!"
+The crowd quieted slightly. Lu Cheng singled out the student who'd claimed to have the "biggest tits" and scolded: "Bian Cuibao! What nonsense are you spouting again?! Not a shred of discipline!"
 
-Bian Cuibao unwilling to close voice. Said: "I said my Tits big. Violated which discipline?"
+Bian Cuibao was unwilling to shut up. She said: "I said my tits are big. Which rule does that violate?"
 
-This word near strong word seizing reason. Yet let Lu Cheng unable to grab her mistake temporarily.
+This was nearly sophistry, yet it left Lu Cheng temporarily unable to pinpoint her error.
 
-"Chief is speaking. You speaking what leisure words below?!"
+"The chief is speaking. What idle talk are you spewing below?!"
 
-"Director Lu. You Old Clearly Mirror! Just now this Chief only asked towards you. Didn't call us stop work listening lecture. We sisters working. Tired still not allowed joking a few sentences? Besides whether he is Chief. Where I know—You Old didn't tell us."
+"Director Lu, you're clearly aware! Just now this chief only spoke to you. He didn't tell us to stop working and listen to a lecture. We sisters are working. When we're tired, aren't we allowed to joke a few sentences? Besides, whether he's a chief or not—how would I know? You didn't tell us."
 
-Lu Cheng instantly speech blocked. Because she indeed didn't order everyone stopping work listening lecture. Also didn't introduce Du Yibin identity.
+Lu Cheng was instantly speechless. Because indeed, she hadn't ordered everyone to stop working and listen, nor had she introduced Du Yibin's identity.
 
-Bian Cuibao clever teeth sharp mouth. Character spicy. Quite famous among students. Usually often had language conflict with Ji Liang Suo cadres. Was famous "Thorn Head."
+Bian Cuibao was sharp-tongued and sharp-witted, with a spicy temperament. She was quite famous among the students. She frequently had verbal conflicts with the Jiliang Institute cadres and was a notorious "thorn."
 
-Lu Cheng angered fainting head. Big shouted: "Bian Cuibao. You come out for me!"
+Lu Cheng, angered to the point of dizziness, shouted: "Bian Cuibao, come out here!"
 
-This shout. Whole workshop quieted down. Several dead party beside Bian Cuibao squeezed a sweat in heart. These days they touched through Ji Liang Suo cadre mentality. Knowing Australians viewed Ji Liang Suo very heavy. Here easily dare not "Fire Person" [kill/expel]. Talking back nothing more enduring a meal of rattan stripe. At most confining small black room for few days.
+At this shout, the entire workshop fell silent. Several of Bian Cuibao's close friends broke into a nervous sweat. These past days, they'd taken the measure of the Jiliang Institute cadres' mentality. They knew the Australians valued the Jiliang Institute heavily and didn't dare easily "dismiss people." Talking back would at most result in a meal of rattan stripes or, at worst, a few days' confinement in the dark room.
 
-Beating. They basically not afraid. All beaten over three meals a day. Compared to torture means under old bustard hand. Australian thin rattan stripe whipping down truly like scratching itch; Confining black room reducing ration although not comfortable. But need not work tired hand sour eye dizzy daily.
+Beatings? They basically weren't afraid. They'd all been beaten three times a day. Compared to the torture methods under the madams' hands, the Australians' thin rattan whippings truly felt like scratching an itch. Confinement in the dark room with reduced rations—though uncomfortable—at least they didn't have to work daily until their hands ached and their eyes blurred.
 
-But today had a Australian here. This was official much much bigger than Lu Cheng!
+But today, there was an Australian here. An official much, much bigger than Lu Cheng!
 
-Bian Cuibao seeing a Chief here today. Heart also somewhat afraid. But she usually played bachelor used in front of sisters. Unwilling to drop fame here. Scalp hardened stood out. Glanced over seeing that young Senator had no anger color. Instead looking at self with immense interest. Play trick interest came up again. A look of hippy smiling face came to Lu Cheng front.
+Seeing a chief present today, Bian Cuibao's heart also held some fear. But she'd grown accustomed to playing the tough in front of her sisters and was unwilling to lose face here. Steeling herself, she stood out. Glancing over, she saw that the young Senator showed no anger. Instead, he was looking at her with immense interest. Her mischievous streak rose again. With a cheeky, smiling face, she approached Lu Cheng.
 
-"You look your look. Truly truly know not shame!" Lu Cheng loudly scolded. "Here is not brothel. Collect your that set of Kiln Sister style for me! Come person!" She called. "Take down..."
+"Look at yourself! Truly shameless!" Lu Cheng scolded loudly. "This isn't a brothel. Put away that whorish manner! Someone!" she called. "Take her down..."
 
-Voice not dropped. Bian Cuibao laughed: "Don't trouble others. Isn't it just wanting to beat rattan?" Finished speaking she faded pants down. Body laid on table. Pouted butt said. "Beat."
+Before the words had dropped, Bian Cuibao laughed: "Don't trouble others. Isn't it just a rattan beating?" She finished speaking, then pulled down her pants, laid her body across the table, stuck out her rear, and said: "Beat away."
 
-This time whole venue uproar. Students below roared laughing. Lu Weijia. Mao Xiuyu etc. probably saw used their such style. Just turned face side pretending not seeing. Lu Cheng seeing this woman so know not shame. Making her unable to come down stage in front of Chief today publicly. Face became pale white. Heart of stabbing her dead with a knife had.
+At this, the entire venue erupted. The students below roared with laughter. Lu Weijia, Mao Xiuyu, and the others had probably seen such behavior before. They just turned their faces aside, pretending not to notice. Lu Cheng, seeing this woman so utterly shameless—making her lose face publicly in front of the chief—turned pale as paper. In her heart, she could have stabbed Bian Cuibao to death with a knife.
 
-Still female cadre supervising on scene reacted fast. Rushed up with an arrow step. Picked up a piece of cloth covering on her body. Roaring while: "All died? Quick help!"
+The female cadre supervising on-site reacted fastest. She rushed forward, grabbed a piece of cloth, and covered Bian Cuibao's body while roaring: "Are you all dead? Hurry and help!"
 
-Several student activist beside woke up like dream. Hurried jumped over. Pressed Bian Cuibao firmly. A student squatted down. Helped her pulling pants up under cloth cover.
+Several student activists nearby woke as from a dream. They hurried over, jumping forward to press Bian Cuibao down firmly. One student squatted and helped pull up her pants under the cloth cover.
 
-"Tie up!" Lu Cheng face Iron Green. "Confine ten days!"
+"Tie her up!" Lu Cheng's face turned iron-green. "Confine her for ten days!"
+
+**(End of Chapter)**

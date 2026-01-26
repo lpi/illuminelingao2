@@ -1,16 +1,16 @@
 # Chapter 2038 - Collective Wedding (VII)
 
-Following Fang Fei's instructions, the security perimeter began to contract, allowing observing commoners to approach all the way to the bottom of Great World's main entrance steps. The purpose, of course, was to let everyone watch the "song and dance performance" and see the people eating in the restaurant—thereby demonstrating the "new lifestyle."
+Following Fang Fei's instructions, the security perimeter began contracting, allowing observing commoners to approach all the way to the bottom of Great World's main entrance steps. The purpose, of course, was to let everyone witness the "song and dance performance" and observe the people eating in the restaurant—thereby demonstrating the "new lifestyle."
 
-The banquet was set in Great World's main hall, facing the plaza. The weather was hot, so all the doors and windows were opened, with only mosquito screens installed. This allowed guests in the hall to see the performance on the plaza stage without being bothered by flies and mosquitoes.
+The banquet was set in Great World's main hall, facing the plaza. The weather was hot, so all doors and windows stood open, with only mosquito screens installed. This allowed guests in the hall to view the performance on the plaza stage without suffering from flies and mosquitoes.
 
-The entire hall was festooned with lanterns and decorations, completely renovated. On the screen wall in the center hung an enormous red velvet double-happiness character, flanked by red and gold velvet flower decorations of dragons and phoenixes in harmony.
+The entire hall was festooned with lanterns and decorations, completely renovated. On the screen wall in the center hung an enormous red velvet double-happiness character, flanked by red and gold velvet flower decorations depicting dragons and phoenixes in harmony.
 
-Under the open eaves on both sides of the steps hung countless congratulatory banners and flower baskets of all varieties. The largest and most prominent among them belonged to the twelve "sponsors." Among these, the congratulatory banners from the Gao and Zhang families' businesses were displayed most prominently. Gao Ju had been grinning from ear to ear since arriving at the venue, because though he and the Zhang family's banners were in the "double-C" positions, his family's name was on the left while the Zhang family's was on the right. In his view, this was the Australians explicitly confirming his status as "Guangzhou's number one merchant."
+Under the open eaves on both sides of the steps hung countless congratulatory banners and flower baskets of all varieties. The largest and most prominent among them belonged to the twelve "sponsors." Among these, the congratulatory banners from the Gao and Zhang families' businesses were displayed most prominently. Gao Ju had been grinning from ear to ear since arriving at the venue, because though he and the Zhang family's banners occupied the "double-C" positions, his family's name was on the left while the Zhang family's was on the right. In his view, this was the Australians explicitly confirming his status as "Guangzhou's number one merchant."
 
 At this moment, he was happily seated in the hall drinking tea and waiting. Since Guangzhou's recovery, Gao Ju had already attended several receptions hosted by the municipal government that featured this buffet format, so he roughly understood the rules and etiquette. Thus he wasn't like the other guests, full of bewilderment: the tables with name cards had nothing but tableware and tea sets, while the long tables on both sides were already covered with large and small pots and plates of silver, copper, pewter, and porcelain. Though all covered with lids, they couldn't hide the wafting delicious aromas.
 
-He encountered many acquaintances at the venue. Actually, there weren't many guests on the newlyweds' side—most grooms and brides came from dire poverty. Their relatives were either dead or their whereabouts unknown. Those they could invite were mostly friends and colleagues. Thus the banquet was mostly filled with "sponsors." This included not just the "twelve sponsors" but also those wealthy households who had "made meritorious offerings" at the ritual. Though their purposes for "donating" varied, once the invitations were sent, not one dared not come—at minimum, they'd send a nephew from the clan to show up.
+He encountered many acquaintances at the venue. Actually, there weren't many guests on the newlyweds' side—most grooms and brides came from dire poverty. Their relatives were either dead or their whereabouts unknown. Those they could invite were mostly friends and colleagues. Thus the banquet was mostly filled with "sponsors." This included not just the "twelve sponsors" but also those wealthy households who had "made meritorious offerings" at the ritual. Though their purposes for "donating" varied, once the invitations were sent, not one dared abstain—at minimum, they'd send a nephew from the clan to show up.
 
 Though these acquaintances all came from gentry and wealthy backgrounds, some even from families of scholarly and literary tradition, this Australian-style etiquette was a first encounter. The tables covered with tablecloths had no appetizer plates or display fruits. Table seating charts made finding one's place convenient, but there was no distinction of precedence—as long as you were at the same table, everyone just sat anywhere.
 
@@ -26,7 +26,7 @@ The more he thought, the more pleased he became. Seated in his chair, he watched
 
 "Wearing wool in this weather—aren't you afraid of stewing yourself to death!" Gao Ju disdained secretly, but his face was all smiles as he rose to greet him: "Young Master Zhang! You're here too?"
 
-"Indeed. Hello, Master Gao." Zhang Yu now had a thoroughly "Australian-style" manner—no bowing with folded hands or cupped fists, just directly extending his hand for a handshake.
+"Indeed. Hello, Master Gao." Zhang Yu now possessed a thoroughly "Australian-style" manner—no bowing with folded hands or cupped fists, just directly extending his hand for a handshake.
 
 "Good, good. I never thought I'd be fortunate enough to attend such an event. Truly my Gao family ancestors were virtuous!" Gao Ju smiled brilliantly, gripping Zhang Yu's hand tightly.
 
@@ -56,13 +56,13 @@ Just as he was feeling uneasy, someone suddenly patted his shoulder, startling h
 
 Zhang Yikun saw his usual attitude of surface compliance but inner refusal to change, and knew this wouldn't be easy—when he'd sent invitations to guests, they all stated "couple," but less than one in a hundred brought their wives. Plenty brought sons and nephews to "see the world and make connections," though.
 
-It seemed changing customs really wasn't an easy thing. Zhang Yikun shook his head. Actually, he had originally wanted his own wife to come today, but this daughter of a Guangzhou merchant family considered herself a "lady" and refused to "show her face in public," firmly declining to attend.
+It seemed changing customs truly wasn't an easy thing. Zhang Yikun shook his head. Actually, he had originally wanted his own wife to come today, but this daughter of a Guangzhou merchant family considered herself a "lady" and refused to "show her face in public," firmly declining to attend.
 
 If he couldn't even educate his own wife, what hope did he have with Gao Ju?
 
 Thinking of this, he could only shake his head helplessly and went off to supervise and coordinate the banquet's proceedings.
 
-In the center of the hall was the Australians' specialty: an ice sculpture. First, it could cool down the somewhat sultry weather; second, it demonstrated the Council of Elders' "luxury." To suit the theme, today's ice sculpture was a pair of mandarin ducks. Surrounding the ice sculpture were fruits and fresh flowers. Approaching it, one could feel a stream of cool, crisp air mixed with the sweet fragrance of fruit and flowers.
+In the hall's center stood the Australians' specialty: an ice sculpture. First, it could cool down the somewhat sultry weather; second, it demonstrated the Council of Elders' "luxury." To suit the theme, today's ice sculpture was a pair of mandarin ducks. Surrounding the ice sculpture were fruits and fresh flowers. Approaching it, one could feel a stream of cool, crisp air mixed with the sweet fragrance of fruit and flowers.
 
 Just this ice sculpture attracted many guests and newlyweds to gather around and watch. Thus it was melting faster than Zhang Yikun had anticipated. He quickly ordered more ice blocks to be brought and piled around the sculpture to lower the surrounding temperature, and also to prevent onlookers from getting too close.
 
@@ -73,3 +73,5 @@ At Fang Fei's command, the temporarily assembled servers removed the large and s
 "The banquet officially begins! Please help yourselves to the food!"
 
 But the guests were bewildered. They said the banquet was beginning, but they only saw servers walking around with pot lids—no one serving food. What kind of protocol was this? The guests looked at each other, completely uncertain of this Australian etiquette. Gao Ju saw his tablemates also looking at each other. He smiled at Zhang Yu: "Young Master Zhang, let's go get some first and show everyone how it's done?"
+
+**(End of Chapter)**

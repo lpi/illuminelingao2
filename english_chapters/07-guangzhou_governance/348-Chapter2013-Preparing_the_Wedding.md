@@ -1,95 +1,95 @@
 # Chapter 2013 - Preparing the Wedding
 
-The matchmaking conference concluded successfully. Seventy-six couples registered in the end. The three Elders congratulated these freshly minted couples, fully embodying the routine of "simple conditions, lively atmosphere."
+The matchmaking conference concluded triumphantly. Seventy-six couples registered by the end, and the three Elders congratulated the newly matched pairs with genuine warmth—embodying the ethos of "modest means, spirited celebration."
 
-The matchmaking conference ended satisfactorily. Du Yibin and Wang Jun were quite pleased—though the matter had its twists and turns, it was accomplished in the end. And judging by the results, it wasn't just good, it was excellent.
+Du Yibin and Wang Jun felt thoroughly pleased. The affair had weathered its share of complications, but they'd pulled it off—and the results exceeded expectations.
 
-On one hand, the propaganda agencies obtained excellent material. Qin Ruiyu was particularly satisfied, planning not only a special report and headlines for *Sheep City Express* but also a special extra edition to write this up extensively. It fully demonstrated the "benevolence" of the Council of Elders and greatly aided the Council's civil affairs work. On the other hand, this event genuinely solved the marriage problems of a group of naturalized citizens. Especially for personnel at the bottom tier of the naturalized hierarchy, although the current solution was a drop in the bucket, at least it gave others hope, stabilizing social sentiment. Moreover, through this event, it practically stimulated some natives and new naturalized citizens who held skeptical, wait-and-see attitudes toward the Council—since the start of matchmaking activities, the atmosphere among students at the Jiliang Institute had greatly improved. Once people had hope, their outlooks naturally transformed, far surpassing any amount of ideological work.
+The propaganda machinery, for one, had secured exceptional material. Qin Ruiyu fairly hummed with satisfaction, planning not merely a feature article and headline for the *Sheep City Express* but an entire special edition to document the event in detail. It demonstrated the Council's benevolence perfectly and would substantially aid civil affairs initiatives. More importantly, the event had genuinely resolved marriage problems for a significant group of naturalized citizens. For personnel at the lowest tiers of naturalization—though this solution barely scratched the surface—it offered hope, which helped stabilize social sentiment. Furthermore, the visible success had galvanized natives and newly naturalized citizens who'd maintained skeptical, wait-and-see attitudes toward the Council. Since matchmaking activities began, the atmosphere among students at the Jiliang Institute had transformed dramatically. Give people hope, and their entire outlook shifts—far more effectively than any amount of ideological education.
 
-The next task naturally was to organize a glorious collective wedding for them, pushing this matchmaking event to its climax and bringing it to a perfect close.
+The next task: organize a magnificent collective wedding to crown the matchmaking event and bring the entire initiative to a triumphant close.
 
-While the three Elders drank and "celebrated" in the Elder's dining room at the Great World, they discussed the follow-up matters.
+The three Elders gathered in the Elder's dining room at the Great World, drinks in hand, "celebrating" while discussing follow-up arrangements.
 
-"A collective wedding is no problem. Even if finance has no money, we can go begging—ask local wealthy folks to contribute, consider it their good deed." Qin Ruiyu, seeing great propaganda value in this, suddenly became enthusiastic. "The real trouble is what comes after."
+"A collective wedding is entirely feasible," Qin Ruiyu declared, seeing substantial propaganda value. His enthusiasm ignited. "Even if Finance lacks funds, we can solicit donations—persuade local wealthy families to contribute as a charitable deed. The real challenge comes afterward."
 
-"What trouble? We've issued wives and held weddings for them; surely we don't have to raise their sons too?" Du Yibin had drunk a few extra cups of mulberry sweet wine, his face flushed.
+"What challenge?" Du Yibin had imbibed a few extra cups of mulberry sweet wine; his face glowed pink. "We've provided them wives and organized weddings. Surely we're not expected to raise their children too?"
 
-"Raising sons isn't necessary, but what about bridal chambers?"
+"Raising children isn't necessary. But what about bridal chambers?"
 
-"Damn!" Wang Jun slammed his cup heavily on the table. "Forgot about that!"
+"Damn!" Wang Jun slammed his cup on the table. "I completely forgot about that!"
 
-The focus of Chinese marriage is the house, even in the 17th century. This involves both interest considerations and practical significance: if you can't live together after marriage, what kind of marriage is it?
+Housing stands central to Chinese marriage, even in the seventeenth century—both for practical reasons and matters of propriety. If a newly married couple can't live together, what kind of marriage is it?
 
-The first batch of disabled naturalized citizens weren't a big problem; they enjoyed policy benefits, and once married, the Civil Affairs department would issue them an apartment. But this current batch were hardship cases.
+The first batch of disabled naturalized citizens posed minimal difficulty. They enjoyed policy benefits; upon marriage, Civil Affairs would allocate them apartments. But this current group represented harder cases.
 
-"Don't they have houses in Lingao? Why resolve it in Guangzhou?" Du Yibin didn't understand.
+"Don't they have houses in Lingao? Why resolve it here in Guangzhou?" Du Yibin asked, puzzled.
 
-"They do, but very few." Wang Jun, long in the factories, was much more familiar with naturalized citizens' living conditions than the farm-bound Du Yibin. "Most of these people are losers who couldn't afford houses in Lingao, mostly renting or living in dorms. After transfer to Guangzhou, they were all arranged in temporary dorms of various enterprises and agencies. You know those dorms—bunk beds for ten or twenty people in a big room. Fart and the whole room hears it. How can that be a bridal chamber?"
+"They do—but very few." Wang Jun, long stationed in the factories, understood naturalized citizens' living conditions far better than farm-focused Du Yibin. "Most of these men are precisely those who couldn't afford houses in Lingao. They've been renting or living in dormitories. After transfer to Guangzhou, every one was assigned to temporary dorms in various enterprises and agencies. You know those dormitories—bunk beds, ten or twenty people crammed into one large room. Someone farts and the entire floor hears it. How can that serve as a bridal chamber?"
 
-"But I heard there are single-room family dorms..."
+"But I heard there are single-room family dormitories..."
 
-"Those are arranged for already married naturalized couples, plus some so-called visiting family dorms. Can only be borrowed temporarily as bridal chambers."
+"Those are reserved for already-married naturalized couples, plus some visiting-family accommodations. We could borrow them temporarily as bridal chambers at best."
 
-"Damn, this problem is harder than raising sons." Du Yibin started scratching his head.
+"Damn. This problem's harder than raising sons." Du Yibin began scratching his head vigorously.
 
-"We can't solve this alone—didn't they say a new district is being built on Henan Island? Will there be dorms built there?"
+"We can't solve this alone. Didn't they mention a new district under construction on Henan Island? Will there be dormitories built there?"
 
-Qin Ruiyu nodded: "There is such a plan, and I heard a batch of dorms has started construction. But this collective wedding can't wait that long. Social news hotspots have continuity; once the moment passes, it's hard to create impact."
+Qin Ruiyu nodded. "That's the plan, and I heard construction's started on a batch of dormitories. But this collective wedding can't wait that long. Social news operates on momentum—lose the moment and you lose the impact."
 
-Wang Jun and Du Yibin were out of ideas—houses couldn't be conjured out of thin air. Besides, bridal chambers needed certain privacy and domestic functions; not easy to improvise.
+Wang Jun and Du Yibin found themselves at an impasse. Houses couldn't materialize from thin air, and bridal chambers required privacy and domestic functionality—neither easily improvised.
 
-Qin Ruiyu pondered repeatedly, then said: "I actually have an idea. Though not a long-term solution, perhaps it can make do for a year or so, waiting for the new dorms."
+Qin Ruiyu mulled the problem over, then spoke: "I actually have a notion. Not a long-term solution, but perhaps sufficient for a year or so while we wait for the new dormitories."
 
-"With so many agencies flooding into Guangzhou, housing in the city is already tight. Where to find over a hundred rooms at once?"
+"With so many agencies flooding into Guangzhou, housing in the city's already strained. Where would we find over a hundred rooms at once?"
 
-"Rooms in temples and monasteries."
+"Temple and monastery quarters."
 
-Du Yibin and Wang Jun's faces instantly showed an expression of "you are no ordinary mortal."
+Du Yibin and Wang Jun's faces registered expressions that clearly communicated: *you are beyond mortal comprehension*.
 
-Although most Elders were atheists, they largely upheld the principles of "freedom of religion" and "respecting religious customs." They knew temples and monasteries had many empty rooms, but stuffing newlywed couples into "ascetic" religious venues to live seemed shocking to both Wang and Du.
+Though most Elders professed atheism, they generally upheld principles of "religious freedom" and "respecting religious customs." They knew temples and monasteries possessed abundant empty rooms, but installing newlywed couples in ascetic religious venues struck both Wang and Du as profoundly shocking.
 
-"Don't look so surprised, okay?" Qin Ruiyu laughed. "First, renting out rooms is very common for temples and monasteries in this era. Slightly larger ones all have this business—monks in Beijing even run inns—it's hardly shocking. Second, there happens to be a batch of temple properties available for use right now."
+"Don't look so scandalized," Qin Ruiyu laughed. "First, renting out rooms is perfectly common for temples and monasteries in this era. Larger establishments routinely engage in such business—monks in Beijing even operate inns. Hardly scandalous. Second, a batch of temple properties happens to be available for use right now."
 
 "What temple properties?"
 
-"You've been in Guangzhou so long, haven't you heard of Governor Liu's religious reforms?"
+"You've been in Guangzhou this long and haven't heard about Governor Liu's religious reforms?"
 
-"Oh, oh, you mean that." Wang Jun suddenly realized. "The corporatization reform under the Three-Self principles?"
+"Oh—oh, you mean that." Wang Jun's face lit with recognition. "The corporatization reform under the Three-Self principles?"
 
-"Right. That's the one."
+"Exactly that."
 
-"Ah, actually didn't pay much attention to it..." Wang Jun was somewhat embarrassed. Du Yibin went to Enping upon arriving in Guangdong, so not knowing was fine, but Wang Jun had been running around Guangzhou.
+"Ah, I confess I didn't pay much attention..." Wang Jun admitted sheepishly. Du Yibin had departed for Enping upon arriving in Guangdong, so his ignorance was excusable. But Wang Jun had been operating throughout Guangzhou.
 
-"Putting aside the reform, did they confiscate many houses..." Du Yibin was enthusiastic.
+"Setting aside the reform itself, did they confiscate many properties..." Du Yibin leaned forward eagerly.
 
-"Don't rush." Qin Ruiyu waved his hand. "Let me start from the beginning..."
+"Don't rush." Qin Ruiyu raised a hand. "Let me explain from the beginning..."
 
-Liu Xiang's administration in Guangzhou naturally wouldn't spare the temples and monasteries holding vast land and property. His so-called religious reform's general policy was separating religious venues from assets, weakening their economic power. What Liu Xiang cared most about was "temple assets." Referencing the later Shaolin Temple approach: he reformed Guangzhou's temples and monasteries into "companies." Temples with licensed clergy registered as "corporate juridical persons," with assets including religious buildings, ritual implements, scriptures, etc., paying religious taxes and management fees. Non-religious temple assets like real estate, shops, and farmland were spun off as registered capital for identically named commercial companies, operating and paying taxes like ordinary enterprises. These "religious companies" were supervised by the Religious Affairs Office.
+Liu Xiang's administration in Guangzhou naturally hadn't spared temples and monasteries holding vast landholdings and properties. His religious reform strategy centered on separating venues from assets, thereby weakening their economic power. What Liu Xiang truly cared about were "temple assets." Borrowing from later approaches like the Shaolin Temple's model, he'd reorganized Guangzhou's temples and monasteries into "companies." Temples with licensed clergy registered as corporate legal entities, their assets including religious buildings, ritual implements, scriptures, and similar items—all subject to religious taxes and management fees. Non-religious temple assets like real estate, shops, and farmland were spun off as registered capital for identically named commercial companies, operating and paying taxes like ordinary enterprises. The Religious Affairs Office supervised these "religious companies."
 
-Thus, the Religious Affairs Office actually controlled substantial temple assets, including many rental properties.
+Thus the Religious Affairs Office effectively controlled substantial temple assets, including numerous rental properties.
 
-"...Actually that's the minor part. Those properties are mostly rented out, few vacancies. Mainly, during the last cleanup of illicit cults and rectification of Guandi temples, quite a few properties were confiscated along with them. Now they're either temporary dorms or sitting empty—honestly, most aren't in great condition, but with slight repairs, arranging for a hundred couples to live temporarily is no problem."
+"...Though that's actually the smaller portion. Most of those properties are already rented out, with few vacancies. More importantly, during the recent cleanup of illicit cults and rectification of Guandi temples, quite a few properties were confiscated alongside them. They're either serving as temporary dormitories or sitting empty—honestly, most aren't in pristine condition, but with minor repairs, accommodating a hundred couples temporarily presents no difficulty."
 
-"That's settled then." Du Yibin was greatly excited. "Just make do for a year or two."
+"Perfect solution, then." Du Yibin's excitement flared. "Makeshift arrangements for a year or two."
 
-However, their wishful thinking sparked debate when it reached City Hall. First was the wedding scale issue. Some Elders felt one event was enough, while others felt the numbers were too few and the scale should be larger; less than a hundred couples wasn't news, not even qualified for front page headlines.
+However, their optimistic calculations sparked considerable debate upon reaching City Hall. The primary contention involved wedding scale. Some Elders felt one event sufficed, while others argued the numbers were insufficient and the scale should expand significantly—fewer than a hundred couples lacked newsworthiness, failing to warrant even front-page placement.
 
-"For local women, the grander and larger this wedding is, the more it will stimulate them to actively choose marriage with naturalized citizens. So we should turn this collective wedding into a city-wide celebration—the scale must be large." Liu Xiang also said.
+"For local women, the grander and larger this wedding, the more it will encourage them to actively choose marriage with naturalized citizens," Liu Xiang asserted. "We should transform this collective wedding into a citywide celebration. The scale must be substantial."
 
-"Male naturalized citizens eager to marry number far more than a hundred; adding all Jiliang Institute students wouldn't be enough." Wang Jun said. "The problem is, this is our first time running such a matchmaking activity. We should be cautious, not just chase scale. If hasty marriages lead to discord and incidents later, it won't be good."
+"Male naturalized citizens eager for marriage number far beyond a hundred. Adding all Jiliang Institute students wouldn't satisfy demand," Wang Jun countered. "The problem is, this marks our inaugural matchmaking activity. We should proceed cautiously, not merely chase scale. If hasty marriages lead to marital discord and incidents later, the consequences won't be favorable."
 
-Zhang Yunmi said: "Your matchmaking activity was just as hasty. Meeting and chatting for a few hours then marrying—what emotional foundation is there to speak of?"
+Zhang Yunmi interjected: "Your matchmaking activity was equally hasty. People meet, chat for a few hours, then marry—what emotional foundation exists?"
 
-Wang Jun was momentarily speechless.
+Wang Jun found himself momentarily speechless.
 
-Lin Baiguang smoothed things over: "This collective matchmaking itself has propaganda goals, to encourage more commoners to choose naturalization. The collective wedding even more so—it must be grand in scale to have good effect. How about this: there are quite a few naturalized employees freely dating at work. Under current conditions, organizing a lively wedding themselves is difficult. We could use this opportunity to absorb them into participating—after all, a collective wedding has Elders attending to congratulate, and the scene is lively and grand. They'll surely be willing."
+Lin Baiguang smoothed the waters: "This collective matchmaking itself serves propaganda goals—encouraging more commoners to choose naturalization. The collective wedding even more so. It must be grand in scale to achieve proper effect. How about this: quite a few naturalized employees are freely dating through workplace proximity. Under current conditions, organizing lavish weddings themselves proves difficult. We could offer them the opportunity to participate—after all, a collective wedding features Elders attending with congratulations, creating a lively, grand spectacle. They'll surely agree."
 
-"There are also some who haven't held ceremonies, just registered. At most treated friends and colleagues to a meal—they definitely want a grand wedding in their hearts. We can retroactively hold it for them." Zhang Yikun interjected—since the collective wedding would almost certainly be held at the Great World, he was particularly keen on it. He added many creative ideas: newlyweds taking flower boats for a Pearl River night cruise, fireworks, inviting the Plaid Skirt Club for performances, etc.
+"There are also couples who've only registered without holding ceremonies—at most treated friends and colleagues to a meal," Zhang Yikun added. Since the collective wedding would almost certainly be held at the Great World, he harbored particular enthusiasm. "Deep down, they definitely desire grand weddings. We could retroactively provide ceremonies for them." He contributed various creative suggestions: newlyweds cruising the Pearl River on flower boats at night, fireworks displays, inviting the Plaid Skirt Club for performances...
 
-"What about funding? Making it so big, where does the money come from?"
+"What about funding? Making it so elaborate—where does the money come from?"
 
 "Didn't they say it comes from the General Office Special Fund?"
 
-"The Special Fund isn't conjured by Xiao Zishan. In the end, isn't it still money from Finance and Taxation?" Ai Zhixin smiled bitterly. "There's only so much money; changing the name doesn't create more... Besides, the quota approved by the General Office isn't enough for you to spend like this."
+"The Special Fund isn't conjured by Xiao Zishan. Ultimately, it's still Finance and Taxation money, isn't it?" Ai Zhixin smiled wryly. "There's only so much available. Changing the name doesn't multiply the total... Besides, the quota approved by the General Office won't accommodate such lavish spending."
 
-"The money problem is simple," Liu Xiang thought for a moment. "We can't take on everything and raise a batch of Elder Council giant babies. We naturally will subsidize this matter, but the Council can't pay for everything—capable naturalized citizens should contribute part themselves. How about this: except for couples from the matchmaking conference, other participating naturalized couples follow the principle of voluntary registration without coercion. Participants pay a portion of the costs—specific amount to be determined by organizers after calculation."
+"The funding issue is manageable," Liu Xiang said after a moment's thought. "We can't assume total responsibility and raise a generation of Council dependents. We'll naturally provide subsidies, but the Council can't finance everything. Capable naturalized citizens should contribute portions themselves. Here's the approach: except for couples from the matchmaking conference, other participating naturalized couples follow voluntary registration—no coercion. Participants will pay a portion of costs, specific amounts to be calculated by organizers."

@@ -1,71 +1,81 @@
 # Chapter 2006 - The List
 
-Mao Xiuyu's speech could be said entering feeling entering reason. Lu Cheng and Lu Weijia both nodded non-stop.
+Mao Xiuyu's speech could be said to have entered both feeling and reason. Lu Cheng and Lu Weijia both nodded continuously.
 
-Usually they were quite despising towards Mao Xiuyu. Feeling if not for he "Familiar with Local Situation." More or less still useful. Simply a decoration.
+Usually they looked down on Mao Xiuyu quite a bit, feeling that if not for him being "familiar with the local situation" and thus somewhat useful, he'd be merely a decoration.
 
-Couldn't see he considered quite detailed. Although usually not making sound meeting just making up number. But critical moment speaking head head path path [logical]. Making two people scrape eyes look.
+They hadn't expected him to consider matters so thoroughly. Though he usually kept silent at meetings, just making up the numbers, at critical moments he spoke with clear logic. The two looked at him with newfound respect.
 
-Mao Xiuyu wanted just such effect. He secretly thought: Father mixed here for twenty plus years. Without some ability how can mix so long?
+Mao Xiuyu wanted exactly this effect. He thought secretly: *I've mixed in this world for over twenty years. Without some ability, how could I have lasted so long?*
 
-After such a conversation. Thoughts of three people cleared. Disabled naturalized citizens find from Single Women. Then allocate Student to ordinary naturalized citizens with healthy body urgent needing marrying wife.
+After such a discussion, the thoughts of all three cleared. Disabled naturalized citizens would be matched from the single women. Students would be allocated to ordinary naturalized citizens with healthy bodies who urgently needed to marry.
 
-Three people thought consistent. Immediately checked everyone material with subordinate together. Single Woman one group. Student one group. Then screen out unsuitable people from inside.
+With consensus reached, the three immediately checked everyone's materials with their subordinates. Single women in one group, students in another. Then they screened out unsuitable people from within.
 
-All personnel in Shelter made Population Card. But Mechanical Computer still didn't turn to them use. But Card Index System was introduced. Lu Cheng received training in this aspect. Used Exclusion Method first. Excluding "Attitude Problematic" "History Stained" "Disease"... such unsuitable people out. Then engage artificial screening to remaining.
+All personnel in the shelter had population cards made. Though mechanical computers hadn't yet been assigned for their use, the card index system had been introduced. Lu Cheng had received training in this area. Using the exclusion method first, she filtered out "attitude problems," "stained history," "disease"... such unsuitable people. Then they conducted manual screening on the remainder.
 
-Picking coming choosing going. Scribbling smearing half day. Made ready two lists.
+Picking and choosing, scribbling and crossing out for half a day, they prepared two lists.
 
-This time they found another problem: Some widows carrying child. They both hope marrying. More hope own new husband can accept their child. But having such a "Drag Oil Bottle." Whether naturalized citizen willing to accept is another problem... Matter concerning husband wife family harmony problem. They hesitated again.
+At this point, they discovered another problem: some widows were carrying children. They both hoped to marry and hoped their new husbands would accept their children. But with such a "burden in tow," whether the naturalized citizens would be willing to accept them was another question entirely... As a matter concerning marital and family harmony, they hesitated again.
 
-"I think inside may have more problems. If marrying disabled naturalized citizen. Their scruple definitely more. Because besides child. Still have man to take care. Family burden heavier. Also whether male side because family added a mouth licking having opinion. Fear also a problem..."
+"I think there may be even more problems inside. If marrying a disabled naturalized citizen, their concerns will definitely be greater. Because besides the child, they'll also have a man to care for. The family burden will be heavier. Whether the male side will have opinions because the family added another mouth to feed is also a worry..."
 
-"Still need to follow Voluntary Principle. I see we can find these Single Women talking first. Seeing they worry what scruple what. Can solve we try solve. Exceeding our duty range hand to Chief." Lu Cheng said in temporary meeting. According to experience with Chief for many years. Discovery of one problem. That meant at least two three potential problems not found. Remaining two expressed no problem.
+"We still need to follow the voluntary principle. I think we should talk with these single women first, see what they're worried about, what their concerns are. What we can solve, we'll try to solve. What exceeds our authority, we'll pass to the chief." Lu Cheng said at the impromptu meeting. According to her experience working with chiefs for many years, the discovery of one problem meant at least two or three potential problems hadn't been found yet. The other two expressed no objection.
 
-Three people took subordinate doing those Single Women work first. Then concentrated those behaving good inside "Students" talking. Asking their thoughts.
+---
 
-That was same day afternoon. All conforming Single Women were concentrated up. They not stupid either. Since that Chief inspection left. Staff here started busy. Definitely related to self. What future look like. They didn't know either.
+The three took their subordinates to do the single women's work first. Then they concentrated on talking with th
 
-Seeing people gathered complete. Lu Weijia roughly explained reason convening them coming. Including Blind Date for disabled naturalized citizen.
+ose "students" who'd been behaving well, asking their thoughts.
 
-"...This is basic situation. Of course we still uphold Voluntary Principle. You willing to marry starting new life. Senate will try best help you arrange life and work well. If willing to marry disabled naturalized citizen staff. Senate will also issue appropriate subsidy; If not want marrying. Can also stay here. Waiting Senate arranging work for you later."
+That same afternoon, all conforming single women were gathered together. They weren't stupid. Since that chief's inspection and departure, the staff here had been busy. It definitely related to them. What the future held, they didn't know.
 
-After listening this let them both happy and worry. Happy was Chief indeed considered outlet for them. Future life not saying worry-free. At least much better than now. Worry was future husband is disabled personnel. Action inconvenient self serving wasn't problem. But body not good definitely cannot earn more money. Family expense whether enough use? Having child worried child how to do. New husband willing or not be Stepfather first. Without child worried self work pregnancy later. How to take care of this family. Also some afraid if marrying over husband disabled "Cannot Human Way" then how? No heir. How to do when old?
+Seeing everyone assembled, Lu Weijia roughly explained the reason for convening them, including the blind date for disabled naturalized citizens.
 
-Seeing expression of a group below. Lu Weijia knew they thought not wrong. Everyone indeed had many problems. Compariing heart to heart. Changing self be widows below. Also couldn't help thinking more! How many years bitter water scoured over. Not easy having some hope. Cannot jumping into bitter sea to suffer again.
+"...This is the basic situation. Of course, we still uphold the voluntary principle. If you're willing to marry and start a new life, the Senate will do its best to help arrange your life and work well. If you're willing to marry disabled naturalized citizen staff, the Senate will also issue appropriate subsidies. If you don't want to marry, you can also stay here and wait for the Senate to arrange work for you later."
 
-"Everyone has what scruple. Speak open. We know policy. Try giving a clear answer—We also not clear. After summarizing ask Chief instruction. Anyway will give everyone a clear clear answer."
+After hearing this, they felt both joy and worry. The joy was that the chief had indeed considered their future. Their future lives, if not worry-free, would at least be much better than now. The worry was that their future husbands would be disabled personnel. If they were unable to move freely, caring for themselves wouldn't be a problem, but if their health was poor, they definitely couldn't earn much money. Would family expenses be enough? Those with children worried how their children would fare—would the new husband be willing to be a stepfather? Those without children worried that if they later worked while pregnant, how would they care for the family? Some were afraid that if their disabled husband "couldn't perform the marital way," then what? No heir—what would happen when they were old?
 
-Having this sentence. Atmosphere below instantly hot up. Lu Cheng concerned staff dividing them into groups. Every person one small group. Recording their various problems and scruples one by one. Lu Cheng self also participated one small group.
+Seeing the expressions of the group below, Lu Weijia knew he'd guessed their thoughts correctly. Everyone indeed had many concerns. Comparing heart to heart, if he were one of the widows below, he'd inevitably think the same! How many years of bitter water had washed over them? Not easy having some hope—they couldn't jump into another sea of suffering.
 
-Speaking in small meeting was much open than big meeting. Single Women problems many. From housing. Work to monthly income. Also parent-in-law problem. Because widow background. Will be disliked by opponent or not; Man temper good or bad—"Heard people having disability temper especially big. Will often beaten or not"; With child inquiring child how. Husband family willing or not raise...
+"Whatever concerns everyone has, speak openly. We know the policies. We'll try to give clear answers. What we're not clear on, after summarizing, we'll ask the chief for instructions. In any case, we'll give everyone clear explanations."
 
-Lu Cheng listened face showing difficulty color. Because these problems they truly couldn't answer one by one: Chief Du didn't speak so fine. Besides many problem inside were varying person by person. Who couldn't say hitting guarantee either.
+With this assurance, the atmosphere below instantly heated up. Lu Cheng and concerned staff divided them into small groups—each person in a small group—recording their various problems and concerns one by one. Lu Cheng herself participated in one small group.
 
-Three people rejoiced self asked once first. Otherwise when time comes cold field because scruple many. Annoying Chief. Self scolded not saying. Also very losing face.
+Speaking in small meetings was much more open than in large meetings. The single women's problems were many: from housing and work to monthly income, also in-law problems. Because of their widow background, would they be looked down upon by the other side? Was the man's temper good or bad? "I heard people with disabilities have especially bad tempers. Will they often beat us?" Those with children inquired how the children would fare—would the husband's family be willing to raise them...?
 
-"Disliked or beaten need not fear. Senate protects women basic rights. Don't we still have Women Federation making decision for everyone! Besides this marriage is Senate making decision. Everyone is Senate person. Temper he bad again. Also need politeness three points!" Lu Cheng thought. Decided saying some comforting people heart and Hundred Percent not wrong words first. "As for work naturally will have arrangement. Definitely better than now—Serious Naturalized Staff. Married your children also enjoy Staff Children treatment—Can enter school schooling. Fee has reduction. Remaining problems we will ask Chief instruction. Will give you a reply."
+Lu Cheng listened, her face showing difficulty. Because these problems they truly couldn't answer one by one. Chief Du hadn't spoken so finely. Besides, many problems inside varied from person to person. No one could give blanket guarantees.
 
-For enhancing self persuasion power. Adding some pressure to them. Lu Cheng said again: "Everyone scruple. We definitely will try giving a clear explanation. Some practical difficulties. Also will ask Chief helping solve try. But everyone also need cherishing this opportunity. Some sisters age not small. Passed this village. Future no that shop. Currently Senate rule population not many. But waiting Two Kwang recovered. Senate rule population has several millions. Fear no such good condition."
+The three rejoiced that they'd asked first. Otherwise, when the time came, if the atmosphere turned cold because of too many concerns and annoyed the chief, they'd be scolded—not to mention losing face.
 
-Next day they concentrated suitable candidates in Student specially again. Announced this matter.
+"Being looked down on or beaten—you needn't fear. The Senate protects women's basic rights. Don't we still have the Women's Federation making decisions for everyone! Besides, this marriage is arranged by the Senate. Everyone is a Senate person. No matter how bad his temper, he'll still have to be courteous!" Lu Cheng thought for a moment, then decided to say some comforting words that were one hundred percent safe. "As for work, there'll naturally be arrangements. Definitely better than now. Legitimate naturalized staff—if you marry, your children will also enjoy staff children treatment. They can enter school with reduced fees. For the remaining problems, we'll ask the chief for instructions and give you a reply."
 
-Inside Student actually most people still willing to marry. Returning normal life. But health degree they far inferior to "Single Women." Single Women mostly nutritional problem. After several months nursing mostly recovered not bad. Student side much worse.
+To enhance her persuasive power and add some pressure to them, Lu Cheng added: "Everyone's concerns—we'll definitely try to give clear explanations. For some practical difficulties, we'll also ask the chief to help solve them. But everyone also needs to cherish this opportunity. Some sisters are not young anymore. Pass this village, and there won't be this shop in the future. Currently the Senate rules a small population. But once the Two Guangs are recovered, the Senate will rule several million people. I'm afraid there won't be such good conditions then."
 
-Sole looking from nutrition status. Prostitute daily diet much better than Chaste Women. But Middle Lower Class Prostitute suffered destruction long term. Not only many people had Venereal Disease. And universally had Gynecological Disease.
+---
 
-Gynecological Disease serious. Let alone whether can pregnant giving birth. Even normal husband wife life also hard to do. So this part can only eliminate first. Making Management Group difficult was another part. Their health problem acceptable. But because long term taking contraceptive "Cool Medicine" or multiple abortion. Actually already lost fertility.
+The next day, they specially gathered suitable candidates among the students again and announced the matter.
 
-If excluding students losing fertility out. To them obviously unfair. But putting in. Male naturalized citizen side how to consider. When finding cannot fertility will make what problem again...
+Among the students, actually most were still willing to marry and return to normal life. But their health was far inferior to the "single women." Single women mostly had nutritional problems. After several months of care, most had recovered fairly well. The students' side was much worse.
 
-Finally still Lu Cheng set tone: As long as condition suitable. Still put them into Candidate List. But need remarking clear. Such counted both side voluntary. Who relying no who.
+Looking solely at nutrition status, prostitutes' daily diets were much better than chaste women's. But middle and lower-class prostitutes had suffered long-term destruction. Not only did many have venereal diseases, but they universally suffered gynecological diseases.
 
-Doing so. Actually students listed into name list less than one hundred. Different from half happy half worry of widows. Reaction of students much enthusiastic. They more anxious to future survival problem. Also no drag of children. If married naturalized citizen. Self finally need not eating bitter suffering tired here—Who didn't know what Naturalized Citizen meant.
+Serious gynecological diseases—forget about whether they could conceive and give birth—even normal marital life would be difficult. So this portion could only be eliminated first. What made the management group struggle was another portion. Their health problems were acceptable, but because of long-term use of contraceptive "cooling medicine" or multiple abortions, they'd actually already lost fertility.
 
-"Chief said. Only you these behaving good. Study active have qualification becoming Naturalized Citizen wife. After marriage will arrange work for you. Leaving here living better days." Lu Cheng said. "Wait these months your behavior Senate all looking in eyes. You bullied in Old Society. Suffered bitterness. But also infected quite a few bad habits of past—Some people haven't completely changed." Her gaze swept in crowd. "So you must remember. Must transform thought ASAP. Regardless on thought or action must align to a qualified Naturalized Citizen! Specific situation you wait notification."
+If they excluded students who'd lost fertility, it would obviously be unfair to them. But if they included them, how would the male naturalized citizens consider it? When they discovered infertility, what problems would arise...?
 
-Less than half hour after dismissing this news spread inside these Students. Those not listed into Candidate List every one looked at them with Envy Jealousy Hate. Tooth sharp mouth profit inevitably spoke some "Climbing High Branch" cool words. Still some people heart angry. Then said those selected all going to "Be Official Prostitute, Camp Prostitute. Sent to Australian various Yamen and Camp receiving guest." Naturally those rumor mongers that night enjoyed Butt Blossom plus Small Black Room treatment.
+Finally, Lu Cheng set the tone: as long as conditions were suitable, they'd still be put into the candidate list. But it needed to be clearly marked. This counted as both sides being voluntary. Neither could rely on the other.
 
-But to most people. Being selected naturally huge benefit. When being prostitute initially. Most wanted nothing more than which benefactor willing to pay money redeeming self out to Follow Good. Doing person cleanly. Now this opportunity just before eyes. Self missed instead. Many people quite regretful—If self active some initially. Could be an Activist too. Isn't it can leave here becoming a Dignified Naturalized Citizen like this?
+Doing so, actually fewer than one hundred students were listed. Unlike the widows' half-joy, half-worry, the students' reactions were much more enthusiastic. They were more anxious about future survival problems and had no burden of children. If they married naturalized citizens, they'd finally not have to eat bitterness and suffer exhaustion here—everyone knew what being a naturalized citizen meant.
 
-Still some people. Upholding their experience cheated by people life long. To this matter still cold attitude: "Follow Good? Wait till Following Good saying again."
+"The chief said only you who've behaved well and studied actively have the qualification to become naturalized citizens' wives. After marriage, work will be arranged for you. You'll leave here and live better days." Lu Cheng said. "These past months, the Senate has been watching your behavior. You were bullied in the old society and suffered bitterness. But you also picked up quite a few bad habits from the past—some people haven't completely changed." Her gaze swept across the crowd. "So you must remember: you must transform your thinking as soon as possible. Whether in thought or action, you must align yourself with being a qualified naturalized citizen! Wait for notification on specific situations."
+
+---
+
+Less than half an hour after dismissal, this news spread among the students. Those not listed on the candidate list looked at them with envy, jealousy, and hatred. The sharp-tongued inevitably spoke some "climbing the high branch" sarcastic remarks. Still others, angry in their hearts, said that those selected were all going to "be official prostitutes, camp prostitutes, sent to various Australian yamen and camps to receive guests." Naturally, those rumor-mongers that night enjoyed blooming buttocks plus solitary confinement treatment.
+
+But to most people, being selected was naturally a huge benefit. When they'd initially become prostitutes, most had wanted nothing more than for some patron to be willing to pay money to redeem them out to "follow the good path" and live cleanly. Now this opportunity was right before their eyes—if they'd missed it themselves, many felt quite regretful. *If I'd been more active initially, I could have been an activist too. Couldn't I have left here and become a dignified naturalized citizen like this?*
+
+Still others, holding to their experience of being cheated throughout their lives, maintained a cold attitude toward this matter: "Follow the good path? We'll wait until we've actually followed it before saying anything."
+
+**(End of Chapter)**

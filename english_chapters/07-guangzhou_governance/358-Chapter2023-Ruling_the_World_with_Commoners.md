@@ -1,99 +1,93 @@
 # Chapter 2023 - Ruling the World with Commoners
 
-Li Suiqiu had actually already tasted the feeling of this "soft knife cutting flesh." Ever since the "tax commissioner" came a few days ago to file declarations, there had been no peace at home. Seeing the steward and accountant bring over the *Property Declaration Form* with difficult expressions, Li Suiqiu's eyes nearly fell out.
+Li Suiqiu had already tasted the sensation of this soft knife slicing flesh. Ever since the "tax commissioner" had arrived days earlier to conduct filings, no peace had settled over the household. When the steward and accountant approached with the *Property Declaration Form*, their expressions grim, Li Suiqiu's eyes nearly bulged from his skull.
 
-The *Declaration Form* was practically the King of Hell's ledger! Houses, land, and shops were one thing, but even listing how many *shi* of rent the family collected annually, how much rent from rented houses... everything had to be itemized. In the end, even income from calligraphy commissions (润笔) was listed separately—every kind of income you could think of was enumerated on this declaration form.
+The *Declaration Form* might as well have been the King of Hell's own ledger. Houses, land, shops—these one could anticipate. But it demanded itemization of annual rent collected measured in *shi*, income from leased residences, even proceeds from calligraphy commissions. Every conceivable source of revenue found enumeration on this inquisitorial document.
 
-How to declare, the accountant dared not decide on his own and could only "request the master's instructions."
+How to declare—the accountant dared not decide independently. He could only "request the master's instructions."
 
-Li Suiqiu was speechless. Telling the truth, not only would he be exploited by the hair-thieves, but his family's true circumstances would be thoroughly exposed. Lying—well, the lessons of the past were not far off.
+Li Suiqiu found himself speechless. Tell the truth and the hair-thieves would exploit him thoroughly, laying bare his family's complete circumstances. Lie, however... the lessons of recent months loomed all too near.
 
-Moreover, these accountants couldn't be relied upon. They said "request the master's instructions," but during discussions a few days ago, they already showed timidity, constantly spouting discouraging remarks like "when under someone's roof" and advising him to "report truthfully" to avoid "causing trouble."
+Moreover, these accountants could not be relied upon. They spoke of "requesting the master's instructions," yet during discussions days earlier they had already shown their cowardice, ceaselessly spouting discouraging platitudes—"when under another's roof," advising him to "report truthfully" to avoid "inviting trouble."
 
-Li Suiqiu didn't blame them. In the past few months, during the hair-thieves' tax rectification, countless accountants had been implicated and punished. Fines and losing their jobs were secondary; many were sued and exiled. These people weren't his flesh and blood or household servants with deep bonds of gratitude; naturally, they wouldn't risk their lives.
+Li Suiqiu could hardly fault them. These past months, during the hair-thieves' tax rectification, countless accountants had been implicated and punished. Fines and dismissals counted as minor consequences; many faced lawsuits and exile. These men shared no blood ties with the family, bore no bonds of deep household gratitude. Naturally they would not risk their lives.
 
-If he were to handle it himself, these heaven-book-like accounts had reportedly been converted to Australian bookkeeping methods. But whether Li Suiqiu or his brothers, none understood double-entry or four-column accounting. Even wanting to falsify was beyond their ability.
+Were he to manage it himself—these accounts, inscrutable as celestial texts, had reportedly been converted to Australian bookkeeping methods. Neither Li Suiqiu nor his brothers understood double-entry or four-column accounting. Even had they wished to falsify records, they lacked the competence.
 
-Thinking thus, he was helpless. Li Suiqiu could only say: "Just report truthfully!"
+Left with no alternative, Li Suiqiu could only instruct: "Report truthfully."
 
-"This reporting is no small matter..." Li Suiqiu smiled bitterly. "When my accountant went to pay taxes at the Tax Bureau, the tax receipt brought back for me to see—my family's ten years of land taxes wouldn't add up to this amount."
+"This reporting is no trivial matter," Li Suiqiu added with a bitter smile. "When my accountant paid taxes at the Tax Bureau, the receipt he brought back—my family's land taxes for ten years past wouldn't sum to this amount."
 
-This remark resonated: "My family is the same!"
+The observation struck a chord. "My household faces the same predicament!"
 
-"My old man also said if we keep paying taxes like this, sooner or later we'll have to sell land and property to pay."
+"My father said if we continue paying taxes at this rate, sooner or later we'll be selling land and property to meet the levy."
 
-"These Australians have commoners shouting 'Long live the Council of Elders' every day; I say it's 'Long live Taxes' that's more accurate."
+"These Australians have commoners shouting 'Long live the Council of Elders' daily. I say 'Long live Taxes' would prove more accurate."
 
-"Heard that this year's land tax collection will have new tricks, saying they'll 'clarify mu counts' before levying land taxes. Families who commended their land to us have been coming these days asking me to figure something out—what can I figure out!"
+"I've heard this year's land tax collection will introduce new tricks—they speak of 'clarifying mu counts' before levying. Families who commended their land to us have been arriving these past days, begging me to devise some solution. What solution can I possibly devise?"
 
-...
+A heavy silence settled before someone spoke gloomily. "The Australians treat gentry and scholar-officials with such harshness. Surely they don't genuinely intend to share the realm with commoners? I see in Australian gazettes and documents the constant refrain: 'the Council of Elders and the People.' Is not 'the People' simply another name for commoners?"
 
-"The Australians treat gentry and scholar-officials so harshly; surely they don't really intend to share the world with commoners?" someone said gloomily. "I see in Australian gazettes and documents, always saying: the Council of Elders and the People. Isn't 'the People' just commoners?"
+"Since antiquity, gentry and scholar-officials have formed the foundation of governance. These Australians style themselves Great Song. Even if the claim be false, they should know the Great Song most revered its scholar-officials. Minister Wen declared: 'We rule the world with scholar-officials, not with commoners.' The Council claims Song descent—surely they know this maxim? Yet now they persist in trampling upon scholars and gentry. Can they truly mean to rule the realm with commoners?"
 
-"Since ancient times, gentry and scholar-officials have been the foundation of the realm. These Australians call themselves Great Song; even if it's a false claim, they should know the Great Song most revered scholar-officials. Minister Wen said: 'We rule the world with scholar-officials, not with commoners.' The Council claims to be Song descendants; surely they know this saying? Yet now they keep finding ways to trample on scholars and gentry. Could they really intend to rule the world with commoners?"
+Li Suiqiu spoke quietly. "How many gentry and scholar-officials exist? How many commoners? The hair-thieves' strategy amounts to nothing beyond manipulating those two words: 'popular support.'"
 
-Li Suiqiu said: "How many gentry and scholar-officials are there? How many commoners? The hair-thieves' strategy is nothing but playing with the words 'popular support.'"
+"Though Mencius proclaimed: 'The people are the most important, the state comes next, and the ruler is least'—never in history has governance been shared with commoners. Administering a state, even we who are well-read would not lightly claim to 'comprehend,' much less ordinary commoners who scarcely know their characters."
 
-"Although Mencius said: The people are the most important, the state comes next, and the ruler is the least important—since ancient times, it's unheard of to share the world with commoners. Governing and managing a state, even we who are well-read wouldn't lightly claim to 'understand,' let alone ordinary commoners who barely know a few characters?"
+Li Suiqiu thought privately: since ancient times, those who win the popular heart win the realm. The Australians' actions amounted to nothing beyond this principle. Honestly, Li Suiqiu rather admired these "three strategies." Properly employed, they would naturally bring national peace and popular security. Yet this "suppressing the power of the mighty" perhaps cast too broad a net. He himself, his teachers, his friends—none could reasonably be counted among "the mighty." They merely possessed examination degrees and somewhat more property and land, respectable elder families who treated people well. Now they too had become targets of the hair-thieves' campaign. His displeasure ran deep. Could it be that these hair-thieves, as so many claimed, stood as enemies of the Way, fundamentally intolerant of scholars?
 
-...
+The thought stirred secret worry. Since Guangzhou's fall, the question of where to turn had lingered constantly in his mind. His convictions regarding loyalty and filial piety ran strong; he could not, like others, shut his door and inhabit a "pot-sized world," escaping reality. The humiliation that Ming territory had been usurped by sea pirates weighed upon him perpetually.
 
-Li Suiqiu thought secretly: since ancient times, those who win popular hearts win the world; the Australians' actions are nothing more than this. Honestly, Li Suiqiu rather admired these "three strategies." If used well, they would naturally bring national peace and people's security. However, this "suppressing the power of the mighty" perhaps struck too broadly. He himself and his teachers and friends couldn't be counted as "the mighty" by any measure—merely having an examination degree and somewhat more property and land, respectable elder families who treated people well. Now they too had become targets of the hair-thieves' attacks. He was truly displeased. Could it be that these hair-thieves, as many said, were enemies of the Way and couldn't tolerate scholars?
+Many times the impulse had seized him—to depart Guangzhou, journey to Guangxi or the capital, serve the court, and assist in recovering Guangdong.
 
-Thinking of this, he felt secretly worried. Since Guangzhou fell, the question of where to go had been lingering in his mind. He had strong notions of loyalty and filial piety and couldn't, like others, shut the door and live in a "pot-sized world," escaping reality. The humiliation that Ming territory was usurped by sea pirates always hung over him.
+Leaving would present no difficulty. The hair-thieves maintained a policy of "go or stay as you please" even for Ming officials who had fallen into their hands locally. For ordinary scholars, still less obstacle existed. Yet he bore responsibility for a large household. His mother had reached advanced age. To abandon his family... it proved truly unbearable.
 
-Many times, he had the urge to leave Guangzhou, go to Guangxi or the capital, serve the court, and recover Guangdong.
+He collected his thoughts to find the room still immersed in taxation grievances.
 
-Leaving wouldn't be difficult. The hair-thieves held a "go or stay as you please" policy even for Ming officials who fell into enemy hands locally. For ordinary commoners, even more so. But he had a large family to care for—his mother was already elderly; abandoning his family was truly unbearable...
+"Taxing land and property is one matter, but requiring taxes simply for keeping servants—and 'progressive' taxes at that, rising with numbers maintained—what manner of twisted logic is this? Yesterday I told my father: if they truly impose this, better to release them all, cancel their contracts, and let them beg sustenance from the Australians! In this Great Song realm, even performing good deeds invites heavenly retribution!"
 
-Collecting his thoughts, he heard the room still discussing taxation matters.
+"My household maintains over three hundred servants, yet truly less than half prove useful. Once this tax begins, we'll have no choice but to return contracts and ask them to depart. What pains me are those household-born servants with generations of gratitude binding us. To truly cast them out to fend for themselves feels unbearable."
 
-...
+"My family faces identical circumstances! How many actually prove useful? We simply witnessed children from destitute families who could not survive, sent to seek livelihood—so we took them in."
 
-"Taxing land and property is one thing, but even keeping servants requires taxes, and 'progressive' at that—the more you keep, the higher the tax. What kind of twisted logic is this? Yesterday I told my father, if they really tax this, better to release them all, cancel their contracts, and let them beg food from the Australians! In this Great Song world, even doing good deeds gets you struck by lightning!"
+"Now even charitable acts have become impossible."
 
-"My family has over three hundred servants, but really less than half are useful. Once this tax starts, we'll have no choice but to return their contracts and ask them to leave. What's hard is those household-born servants with generations of gratitude; to really make them fend for themselves feels unbearable!"
+"Heh, you still contemplate their livelihood. The hair-thieves have already planned it for them: when entire families fall destitute onto the streets, they'll be gathered and dispatched to Qiongzhou to farm and labor for the Australians. Naturally they'll receive their bowl of rice, tearfully thanking the Council of Elders. How poisonous!"
 
-"My family is the same! How many are actually useful? It's just that we saw children from poor families who couldn't survive, sent to seek a livelihood—so we took them in."
+The meal concluded rather unpleasantly. Though everyone had vented frustrations, no solutions emerged. Resisting taxation proved impossible; they could only respond by paying. As for the hair-thieves—no "sign of defeat" appeared imminent.
 
-"Now even doing good deeds is impossible."
+Walking from the garden, beyond the gates still stretched the hair-thieves' world. Streets bustled with crowds, many arrogant "fake baldies"—naturalized citizens—among them. Black-clad police patrolled leisurely. Shops hung placards announcing "Newly Arrived Australian Goods." Rickshaws freshly imported from Lingao rang their bells, rushing past. The two-bearer sedan chairs of former times had grown rare.
 
-"Heh, you're still thinking about their livelihood—the hair-thieves have already planned their livelihood: When the whole family falls destitute onto the streets, they'll be collected and sent to Qiongzhou to farm and work for the Australians. Naturally, they'll have a bowl of food, and they'll tearfully thank the Council of Elders—how poisonous!"
+Walls bore enormous Song-style "slogans," glaring in their redness: "Tax Revenue is National Policy," "Paying Taxes According to Law is Everyone's Responsibility," "New Life, New Days," "Down with All Reactionaries' Plots and Schemes!" "Environmental Hygiene is Everyone's Responsibility," "Guard Against Fire, Theft, and Spies."
 
-This meal was rather unpleasant. Although everyone vented their frustrations, no problems were solved. Resisting taxes was impossible; they could only cope by paying. As for the hair-thieves, there was no "sign of defeat" for the time being.
+He lowered the sedan curtain, unwilling to witness these glaring proclamations. The Australians had expended great capital whitewashing countless street-facing walls with lime, only to smear these phrases across them. Truly wasteful.
 
-Walking out of the garden, outside was still the hair-thieves' world. Streets were bustling, with many arrogant "fake baldies" (naturalized citizens). Black-clad police leisurely patrolled the streets. Shops hung signs saying "Newly Arrived Australian Goods"; rickshaws newly imported from Lingao rang their bells, rushing by. The two-bearer sedan chairs of the past were rarely seen.
+Complaining silently throughout the journey, his sedan returned to his residence on Haoxian Street. At home, an atmosphere of peace and quiet prevailed, as though the earth-shaking changes beyond had never occurred, sparing him those glaring slogans and false-baldy men and women in Australian-style garments.
 
-Walls were covered with huge Song-style "slogans," glaringly red: "Tax Revenue is National Policy," "Paying Taxes According to Law is Everyone's Responsibility," "New Life, New Days," "Down with All Reactionaries' Plots and Schemes!" "Environmental Hygiene is Everyone's Responsibility," "Guard Against Fire, Theft, and Spies"...
+If one could simply bar the door and while away the years, that too might prove acceptable, Li Suiqiu reflected.
 
-He lowered the sedan curtain, not wanting to see these glaring slogans. The Australians had spent great capital whitewashing walls of many street-facing houses with lime, only to smear these phrases on them—truly a waste...
+Proceeding inward, he encountered a Daoist being escorted out by the steward. Seeing Li Suiqiu, the Daoist hurriedly offered respectful greeting.
 
-Complaining silently all the way, his sedan returned to his home on Haoxian Street. At home, there was an atmosphere of peace and quiet, as if the earth-shaking changes outside had never happened, sparing him those glaring slogans and fake baldy men and women in Australian-style clothes.
+Examining him closely, Li Suiqiu recognized Qing Jing, the reception Daoist from Five Immortals Temple. Li Suiqiu normally paid little heed to monks and Daoists, but Qing Jing stood apart—serving as reception Daoist at Five Immortals Temple, Guangzhou's premier Daoist institution. So he extended some courtesy, smiling: "What brings you? Come again to deliver blessings to the old madam?"
 
-If one could shut the door and while away the years, that would be acceptable too, Li Suiqiu thought.
+After a Jiao ritual concluded, various offerings distributed among participating Daoists were termed "scattering blessings." Temples would dispatch some to connected wealthy households, ostensibly sharing blessings. In reality, it secured gifts—another form of "beating the autumn wind."
 
-Walking inside, he saw a Daoist escorted by the steward coming out from within. Seeing Li Suiqiu, the Daoist hurriedly bowed in greeting.
+Qing Jing smiled. "Our humble temple has held no Jiao recently; no blessings to scatter at present. This humble Daoist comes to invite the old madam to participate in meritorious giving."
 
-Looking closely, it was Qing Jing, the reception Daoist from Five Immortals Temple. Li Suiqiu normally didn't worship monks and Daoists, but Qing Jing was different—the reception Daoist of Five Immortals Temple, Guangzhou's premier Daoist temple. So he gave some face. He smiled: "What? Coming again to bring blessings to the old madam?"
+Li Suiqiu thought: this Daoist remains unchanged, constant as ever. He remarked: "Is your establishment not now the Australians' Daoist Registry? I've heard several Australian Daoists arrived, preaching Australian Daoism. Does this Australian Daoism also conduct Jiao rituals?"
 
-After a Jiao ritual ended, various offerings distributed to participating Daoists were called "scattering blessings." Temples would also send some to connected wealthy households, signifying sharing blessings. In reality, it was to obtain gifts—another form of "beating the autumn wind."
+Qing Jing, as a reception Daoist, possessed quick wits. How could he fail to detect the mockery in Master Li's words? He smiled apologetically. "You jest, Master. What Australian Daoism or Ming Daoism? We worship the Three Pure Ones, Four Emperors, and Celestial Officials of Luotian all the same. Last year, by Prefect Liu's mandate, we conducted an eighteen-day salvation Jiao. This time, a donor wishes to hold a Blessing and Peace Jiao. The abbot declares this a rare auspicious occasion and wishes to invite all masters throughout Guangzhou to participate in meritorious giving."
 
-Qing Jing smiled: "Our small temple hasn't held any Jiao recently; no blessings to scatter for now. This humble Daoist came to invite the old madam to participate in meritorious giving."
+"Oh? Which master sponsors this Blessing and Peace Jiao?" Li Suiqiu inquired casually.
 
-Li Suiqiu thought: this Daoist is still the same, never changing. He said: "Isn't your place now the Australians' Daoist Registry? I heard several Australian Daoists came, preaching Australian Daoism—does Australian Daoism also hold Jiao rituals?"
-
-Qing Jing was a reception Daoist with quick wits; how could he not hear the mockery in Master Li's words? He smiled apologetically: "You jest, Master. What Australian Daoism or Ming Daoism? We worship the Three Pure Ones, Four Emperors, and Celestial Officials of Luotian all the same. Last year, by Governor Liu's command, we held an eighteen-day salvation Jiao—this time, a donor wants to hold a Blessing and Peace Jiao. The abbot says this is a rare beautiful occasion and wants to invite all the masters in Guangzhou to participate in meritorious giving..."
-
-"Oh, which master is holding this Blessing and Peace Jiao?" Li Suiqiu asked casually.
-
-"This time it's Master Zhang who wants to hold the Jiao..."
+"This time it is Master Zhang who wishes to hold the Jiao..."
 
 "Master Zhang? Which Master Zhang?"
 
-"The proprietor of Zhang's Food Company, Zhang Yu... Master Zhang..."
+"The proprietor of Zhang's Food Company, Zhang Yu... Master Zhang."
 
-"What? Zhang Yu?" Li Suiqiu smiled speechlessly. Right, this young manager of a tea-snack shop who was worthless three years ago somehow latched onto the hair-thieves' thick legs and suddenly prospered. He became someone called "Master" openly. Now he was the hottest person in the city. Let alone a Daoist—even Gao Ju, the Australians' former top partner, now had to politely call him "Brother Zhang" upon seeing him—and that wasn't something ordinary people could do.
+"What? Zhang Yu?" Li Suiqiu smiled wordlessly. Indeed—this young manager of a tea-snack shop, worthless three years past, had somehow latched onto the hair-thieves' substantial patronage and suddenly prospered. Now he numbered among those openly addressed as "Master," the hottest figure in the city. Forget a mere Daoist—even Gao Ju, the Australians' former premier collaborator, now politely addressed him as "Brother Zhang" upon meeting. Not something ordinary people could aspire to.
 
-"Yes, exactly Master Zhang." Qing Jing then explained about the Australians' matchmaking event and collective wedding.
+"Precisely, Master Zhang." Qing Jing proceeded to explain the Australians' matchmaking event and collective wedding ceremony.
 
-"...You see, isn't this a beautiful occasion? So Master Zhang stepped forward, asking our temple to hold a three-day Blessing Jiao to pray for blessings and offspring for the newlyweds."
+"You see, is this not an auspicious occasion? Therefore Master Zhang has stepped forward, requesting our temple to conduct a three-day Blessing Jiao, praying for blessings and offspring for the newlyweds."

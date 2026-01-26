@@ -1,83 +1,91 @@
 # Chapter 2095 - The Intelligence Warning
 
-Of the Pearl River's three major tributary systems, the West River system had the largest watershed and most branches. Most rivers within Guangxi were tributaries or main channels of the West River system, so controlling the West River meant controlling Guangxi. Of course, to control the vast West River system, the Pearl River Task Force's Western Detachment's size was far from sufficient; for now, they could only settle for holding Wuzhou, this key point for waterway traffic.
+Of the Pearl River's three major tributary systems, the West River system boasted the largest watershed and most extensive network of branches. Most rivers coursing through Guangxi Province were either tributaries or main channels of this vast West River system, which meant that controlling the West River effectively meant controlling the strategic heart of Guangxi itself. Of course, to truly dominate the entire sprawling West River system, the Pearl River Task Force's Western Detachment's current size and strength were woefully insufficient; for now, they could only reasonably settle for seizing and holding Wuzhou, this absolutely critical chokepoint for regional waterway traffic.
 
-Originally, Schneider had hoped that "one barrage of cannon fire and one charge" would take Wuzhou—they'd fought plenty of such sieges along the way. But looking at the current situation, the Ming had learned from their defeats. They absolutely refused to come out for "open battle," let alone the suicidal folly of "naval combat."
+Originally, Schneider had confidently hoped that "one concentrated barrage of cannon fire followed by one determined infantry charge" would be sufficient to take Wuzhou—they'd fought and won plenty of such straightforward sieges along their victorious route upriver. But examining the current tactical situation, the Ming commanders had clearly learned painful lessons from their previous defeats. They now absolutely refused to venture out for suicidal "open battle," let alone engage in the utterly foolish gamble of "naval combat" against the technologically superior Fubo fleet.
 
-This meant combat would settle into the tedious routine of "building fortifications," "positioning guns," and "fire attacks." The Navy's main job at Wuzhou would be providing fire support.
+This strategic caution meant the entire combat operation would inevitably settle into the tedious, grinding routine of "building siege fortifications," "positioning artillery batteries," and "systematic fire attacks." The Navy's primary role at Wuzhou would be reduced to providing sustained fire support for the infantry assault.
 
-Throughout the day, the First Brigade and Western Detachment busied themselves below Wuzhou's walls: constructing fieldworks, requisitioning supplies, preparing for the siege. The Navy towed six bombardment boats into position before the city, their 280mm mortars having proven highly effective during the Pearl River estuary breakthrough campaign. Though the 280mm mortar's explosive shells contained only high-density black powder, their destructive power was enough to demolish most of this era's defensive fortifications. Even if they didn't destroy them outright, the violent explosions and shrapnel would shake and rout the defenders.
+Throughout that entire first day, the First Brigade's infantry and the Western Detachment's naval forces busied themselves productively below Wuzhou's imposing walls: constructing proper fieldworks and firing positions, systematically requisitioning supplies from the surrounding countryside, methodically preparing for what promised to be an extended siege. The Navy successfully towed six massive bombardment boats into optimal firing positions directly before the city walls, their fearsome 280mm mortars having already proven devastatingly effective during the earlier Pearl River estuary breakthrough campaign. Though the 280mm mortar's explosive shells contained only relatively primitive high-density black powder rather than modern explosives, their sheer destructive power remained more than adequate to demolish most of this era's defensive fortifications. Even when they didn't completely destroy fortifications outright, the bone-shaking violent explosions and lethal shrapnel storms would terrorize and rout the demoralized defenders.
 
-Meanwhile, the Ming were also busy on the walls. First Brigade reconnaissance troops infiltrated the hills around Wuzhou and used telescopes to observe the city interior. They noted the Ming's activity wasn't about reinforcing defenses—it looked more like they were moving something. Masses of straw sacks were being carried to the city gates, apparently to block them.
+Meanwhile, the Ming garrison forces were equally busy atop and behind the walls. First Brigade reconnaissance troops had carefully infiltrated into the hills surrounding Wuzhou and used powerful telescopes to systematically observe activity inside the city interior. They noted with professional interest that the Ming's frantic activity didn't appear focused on intelligently reinforcing existing defenses—it looked far more like they were desperately moving or hiding something of value. Enormous masses of straw sacks were being laboriously carried to the main city gates under guard, apparently to physically block them shut against potential infiltrators.
 
-Thus both sides spent a busy day. By nightfall, both Fubo Army and Ming had lit large bonfires, guarding against enemy night raids.
+Thus both opposing sides spent an industrious, preparation-filled day. By nightfall, both the Fubo Army camp and the Ming garrison had lit numerous large watch-fires, maintaining vigilance and guarding against potential enemy night raids or sabotage.
 
-At midnight, the captain of Boat 42, Ensign Cao Dachuan, was awakened by his sailors. Bleary-eyed, he muttered: "What's happening?" The sailor couldn't explain clearly, only saying: "The lights on Wuzhou's south wall keep flickering—something's odd." Cao Dachuan thought it was something serious. Woken up, his temper flared and he was about to scold the sailors—but remembering they were green recruits only recently assigned to him, he swallowed his irritation.
+---
 
-"It's just lights—what's the fuss?"
+At midnight precisely, the captain of Boat 42, young Ensign Cao Dachuan, was abruptly awakened from deep sleep by his anxious sailors. Bleary-eyed and disoriented, he muttered irritably: "What's happening? This better be important." 
 
-"That lamp is blinking on and off, like someone's sending light signals."
+The nervous sailor couldn't explain the situation clearly at first, managing only: "Sir, the lights atop Wuzhou's south wall keep flickering strangely—something seems odd about the pattern." 
 
-"Pattern?" Out of caution, Cao Dachuan scrambled up, threw on his uniform, and climbed from the hold to the deck. Following the sentry's directions, he did indeed see flickering points of light on the wall.
+Cao Dachuan had initially thought it was something genuinely serious threatening the ship. Woken from precious sleep, his temper flared hot and he opened his mouth to deliver a blistering scold to the sailors for disturbing him over nothing—but remembering these were green recruits only recently assigned to his command and still learning, he forcibly swallowed his irritation.
 
-One look told him everything. Cao Dachuan instantly understood what that blinking light meant: flash-dark-dark, flash-flash-flash, dark-dark-dark, flash-flash-flash-flash... Wasn't this lamp signaling?
+"It's just some lights on a wall—what's all the fuss about?"
 
-In naval operations at sea, ships communicated with each other: by day, semaphore flags; at night or in bad weather, lamp signals. For Navy personnel, this was elementary.
+"But sir, that lamp up there is blinking on and off in a definite pattern, almost like someone's deliberately sending light signals to us."
 
-This communication system had been part of his training at the Officers' Training Unit. Whether semaphore or lamp signals, they used the telegraph code system.
+"A pattern?" Out of ingrained professional caution, Cao Dachuan scrambled up from his bunk, threw on his rumpled uniform jacket, and climbed hastily from the cramped officers' hold up to the open deck. Following the alert sentry's pointing directions, he peered across the dark water and did indeed see distinct flickering points of light winking on Wuzhou's southern wall.
 
-But this system was fairly specialized. For most Navy sailors—basically illiterate before enlisting, barely earning their C-grade diploma through military literacy programs—this was just "common knowledge." Actually mastering it required specialized signal training.
+One careful look at the rhythm told him everything he needed to know. Cao Dachuan instantly understood what that deliberate blinking light pattern actually meant: flash-dark-dark, flash-flash-flash, dark-dark-dark, flash-flash-flash-flash... This was unmistakably lamp signaling using standard code!
 
-Signal duty wasn't something an ordinary C-diploma holder could do; signalmen were considered a "technical specialty" in the Navy. On his small gunboat, besides himself, only the signalman understood lamp signals.
+In naval operations at sea, ships routinely communicated with each other across distances: by day, using semaphore flags; at night or in poor weather conditions, using precisely timed lamp signals. For trained Navy personnel, this was absolutely elementary and drilled constantly.
 
-The Ming couldn't possibly know Morse code. Whoever was sending this lamp signal had to be one of their own people.
+This entire communication system had formed a core part of his technical training at the prestigious Officers' Training Unit. Whether semaphore flags or lamp signals, both employed the standardized telegraph code system adapted for naval use.
 
-*Someone inside the city is signaling us!*
+But this specialized system was fairly technical and demanding. For most ordinary Navy sailors—essentially illiterate peasants and fishermen before enlisting, barely managing to earn their basic C-grade education diploma through mandatory military literacy programs—this knowledge remained just abstract "common knowledge" they'd heard about. Actually mastering signal reading and transmission required dedicated specialized signal training over months.
 
-This wasn't surprising in itself. Officers planting informants or arranging contacts inside enemy cities was routine. Along the way, he'd seen plenty of local "collaborators" rising up. Having such contacts in Wuzhou wasn't strange. These matters weren't his concern; someone else handled them.
+Signal duty wasn't something just any ordinary C-diploma holder could competently perform; trained signalmen were rightfully considered a valued "technical specialty" within the Navy's ranks. On his small gunboat's limited crew, besides himself as an officer, only the dedicated signalman actually understood how to properly read and transmit lamp signals.
 
-"Don't worry—must be one of ours..." Cao Dachuan started to say, then suddenly noticed the sender was using plaintext!
+The Ming forces couldn't possibly know sophisticated Morse code signaling. Therefore, whoever was painstakingly sending this careful lamp signal from inside the besieged city had to be one of their own people—a Fubo operative.
 
-Flash-dark-dark was "w"; flash-flash-flash was "o"; dark-dark-dark was "s"; flash-flash-flash-flash was "h"...
+*Someone inside the city is actively trying to signal us!*
 
-Strung together: *woshigulangqinghuihua*.
+This revelation wasn't entirely surprising in itself. Officers routinely planting informants or arranging clandestine contacts inside enemy-held cities was standard intelligence procedure. All along their victorious route upriver, he'd personally witnessed plenty of local "collaborators" rising up to assist Australian forces when liberating armies approached. Having such intelligence contacts already established inside Wuzhou wasn't strange or unexpected. These shadowy intelligence matters weren't his direct concern anyway; dedicated specialists and staff officers handled them.
 
-Obviously Pinyin romanization. The message was clearly: "I am Lone Wolf. Please respond!"
+"Don't worry yourself—must be one of our intelligence people..." Cao Dachuan started to reassure the anxious sailor, then suddenly froze as he noticed something critically important: the sender was transmitting in plaintext rather than encrypted code!
 
-What "Lone Wolf" meant he didn't know, but four words floated instantly into his mind: *This is urgent.*
+Flash-dark-dark represented the letter "w"; flash-flash-flash was "o"; dark-dark-dark was "s"; flash-flash-flash-flash was "h"...
 
-Cao Dachuan's training told him that covert operatives sending signals used encryption; only someone with the corresponding codebook could decode them. Navy ships communicating with each other didn't encrypt, but only Navy signalmen and officers could read those signals.
+Strung together methodically: *woshigulangqinghuihua*.
 
-This plaintext message meant the sender had no specific recipient—it was broadcast to the entire Fubo Army. The sender could only hope someone would see and understand the signal.
+Obviously Pinyin romanization of spoken Chinese. The urgent message decoded clearly as: "I am Lone Wolf. Please respond immediately!"
 
-This was no trivial matter. Was this signal genuine or fake? Why was it being sent at night from the city wall? What was the purpose? All questions. But Cao Dachuan knew none of this was for him to worry about.
+What the codename "Lone Wolf" specifically referred to he had absolutely no idea, but four stark words floated instantly into his mind with crystal clarity: *This is extremely urgent.*
 
-He ordered his men to signal the *Zhujiang*: he needed to report an important matter to his superiors immediately. The signal was acknowledged; Cao Dachuan's request was approved. So Cao Dachuan, lantern in hand, boarded a small boat rowed by a sailor and headed straight for the *Zhujiang*.
+Cao Dachuan's extensive officer training told him that covert intelligence operatives sending signals from behind enemy lines always used sophisticated encryption by standard procedure; only someone possessing the corresponding codebook could possibly decode encrypted transmissions. Navy ships communicating with each other across open water didn't bother encrypting routine signals, but only trained Navy signalmen and commissioned officers could read and interpret those naval signals properly.
 
-He reported the matter to the duty officer at the *Zhujiang's* command section. The duty officer felt the situation was serious and immediately reported to Schneider.
+This desperate plaintext message meant the unknown sender had no specific intended recipient—it was essentially a broadcast transmission to the entire Fubo Army camp, hoping desperately that *someone, anyone* with signal training would spot and understand the urgent signal.
 
-"Really?" Schneider, just awakened, looked bewildered. "I don't understand this either—better report to the Brigade Staff Intelligence Section and see what they say."
+This was clearly no trivial matter to be dismissed. Critical questions immediately arose: Was this signal genuine or some elaborate enemy deception? Why was it being sent at night from atop the city wall rather than through normal courier channels? What was the sender's true purpose? All urgent questions demanding answers. But Cao Dachuan knew instinctively that none of this analysis was his responsibility to resolve.
 
-So the news traveled to the First Brigade headquarters on Changzhou Island. The duty staff officer quickly roused the number-one figure sleeping aboard the *Zhujiang*: Naval Intelligence Staff Officer, Elder Xu Ke.
+He immediately ordered his signalman to lamp-signal the flagship *Zhujiang*: He needed to report an important and time-sensitive matter to his superiors immediately, couldn't wait for morning. The signal was promptly acknowledged across the dark water; Cao Dachuan's urgent request was approved. So Cao Dachuan, handheld lantern swinging, boarded a small rowing boat manned by a sailor and headed straight across to the anchored *Zhujiang* through the night.
 
-Xu Ke had only arrived at Wuzhou that evening. After days on boats, he'd been so exhausted upon landing that he'd skipped dinner and gone straight to an empty cabin to sleep. Being suddenly awakened naturally infuriated him, but the news turned his anger to delight. Ignoring proper Naval dress uniform, he ran to the signal deck in his shorts.
+He reported the entire mysterious matter to the duty officer staffing the *Zhujiang's* command section through the night watch. The duty officer immediately recognized the situation was potentially serious and wasted no time reporting upward to Squadron Commander Schneider.
 
-Xu Ke's mission, assigned by Jiang Shan, was to proceed to Wuzhou and oversee intelligence operations for the Guangxi theater, preparing for the next phase of the Guangxi offensive. The External Intelligence Bureau's network in Guangxi was sparse—only a few agents in key prefectural cities. These agents, due to distance, had infrequent contact and mostly operated in semi-dormant status. "Activating" them quickly was Xu Ke's main purpose.
+"Really? Light signals from the wall?" Schneider, just roughly awakened from exhausted sleep, looked genuinely bewildered as he processed the report. "I don't understand this intelligence business either—you'd better report this immediately to the Brigade Staff Intelligence Section and see what the specialists there make of it."
 
-He knew there were intelligence operatives inside Wuzhou, though he didn't expect much from them. For one, these operatives were "long-term sleepers" focused on routine political and economic intelligence gathering, not network expansion—unlike Zhaoqing, which had developed secret organizations of dozens or even hundreds who could coordinate and "open the gates." Once the city gates closed, the agents were completely useless. The Bureau's instructions had been for them to "lie low and preserve themselves."
+So the urgent news traveled quickly across the water to the First Brigade's forward headquarters, temporarily established on nearby Changzhou Island. The alert duty staff officer rapidly roused the single most important intelligence figure currently sleeping aboard the headquarters vessel: Naval Intelligence Staff Officer and Elder Xu Ke.
 
-Now an agent inside the city was suddenly signaling—obviously urgent intelligence. Otherwise they wouldn't take such a risk.
+Xu Ke had only arrived at the Wuzhou theater that very evening after days of grueling travel. After endless days confined aboard cramped boats, he'd been so thoroughly exhausted upon finally landing that he'd deliberately skipped dinner entirely and gone straight to claim an empty cabin to collapse into sleep. Being suddenly awakened from deep slumber naturally infuriated him initially, but the startling news immediately turned his anger to professional delight and excitement. Completely ignoring proper Naval dress uniform regulations, he ran directly to the signal deck still wearing only his shorts and undershirt.
 
-So Xu Ke ordered a lamp signal reply: "This is the Center. Message received!"
+Xu Ke's critical mission, personally assigned by Intelligence Bureau Director Jiang Shan himself, was to proceed immediately to Wuzhou and directly oversee all intelligence operations for the entire Guangxi theater, laying essential groundwork and preparation for the ambitious next phase of the broader Guangxi offensive campaign. The External Intelligence Bureau's clandestine network throughout Guangxi Province remained frustratingly sparse—only a handful of isolated agents positioned in key prefectural cities. These scattered agents, due to vast distances and poor communications, maintained only infrequent contact with headquarters and mostly operated in semi-dormant status for safety. "Activating" these dormant networks quickly and effectively was Xu Ke's primary immediate purpose.
 
-The other side had obviously received the signal, but replied with a cryptic sentence: "Spy inside the city! Ambush prepared!"
+He knew with certainty there were trained intelligence operatives already positioned inside Wuzhou, though frankly he hadn't expected much operational value from them under siege conditions. For one thing, these particular operatives were classified as "long-term sleepers" whose mission focused on routine political and economic intelligence gathering over years, not aggressive network expansion or sabotage—quite unlike the situation at Zhaoqing, which had painstakingly developed extensive secret organizations numbering dozens or even hundreds of committed members who could effectively coordinate and dramatically "open the gates from within" when liberation forces approached. Once Wuzhou's massive city gates slammed closed under siege lockdown, isolated agents inside became essentially completely useless for tactical purposes. The Bureau's standard instructions to them had been simply to "maintain deep cover, lie low, and preserve yourselves for future use."
 
-This was rather baffling. They immediately signaled back: "Details."
+Now an agent inside the sealed city was suddenly actively signaling with obvious urgency—clearly possessing critically urgent intelligence worth enormous risks to transmit. Otherwise they absolutely wouldn't dare take such a potentially suicidal risk of exposure.
 
-Luo Yangming had spent half the night atop Nanxun Gate tower. Using the lamp's cover to make it blink in Morse code, he finally got a response. Using this method to transmit intelligence, Luo Yangming had given himself only a fifty-fifty chance—it was largely a gamble. He had no other channel to relay his urgent intelligence.
+Xu Ke immediately ordered an acknowledgment lamp signal transmitted in reply: "This is the Center. Your message received! Proceed!"
+
+The unknown operative on the distant wall had obviously received and understood the response signal, but replied with a frustratingly cryptic and brief sentence that raised more questions: "Enemy spy inside the city! Major ambush prepared!"
+
+This terse warning was rather baffling and maddeningly incomplete. They immediately signaled back urgently: "Provide details. Explain further."
+
+---
+
+Luo Yangming had by this point spent half the exhausting night perched precariously atop the cold stone Nanxun Gate tower. Cleverly using the watch-fire lamp's metal cover to make the flame blink in proper Morse code patterns, he had finally, miraculously, received a response from the Fubo forces. Using this desperate improvised method to transmit his critical intelligence, Luo Yangming had honestly given himself only about fifty-fifty odds of success at best—it had been largely a desperate gamble born of no alternatives. He simply had no other viable channel available to relay his urgent intelligence before the trap was sprung.
 
 ---
 
 *Tomorrow's update—Volume Seven, Guangzhou Offensive, Section 300*
 
-*(End of Chapter)*
+**(End of Chapter)**

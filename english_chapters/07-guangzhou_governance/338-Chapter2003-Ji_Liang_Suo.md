@@ -1,115 +1,123 @@
-# Chapter 2003 - Ji Liang Suo
+# Chapter 2003 - Jiliang Institute
 
-However most women had home hard to return. Women sent to Pure Chaste Hall. Regardless voluntary or forced. Either family poor. One less mouth eating. Or family fighting for property. Fearing orphan widow occupying more benefit. Poor women truly sincere wanting to keep chastity determinedly. That was one two in hundred only.
+However, most of the women had no homes to return to. Women sent to the Chastity Halls—whether voluntarily or by force—came from families either too poor to feed another mouth or embroiled in property disputes where orphans and widows were feared to occupy too much inheritance. Of those genuinely and sincerely determined to preserve their chastity, perhaps one or two in a hundred.
 
-Now Pure Chaste Hall although disassembled. To them was losing livelihood instead. When announcing Pure Chaste Hall disbanding initially. Everyone could go home respectively. Not only most people "Resisting Death Not Obeying." And almost caused human life accident. Making this "Virtuous Governance" almost having a nose of ash.
+Now that the Chastity Halls had been dissolved, these women had lost their livelihood. When the disbanding was initially announced and everyone was told they could go home, not only did most "resist unto death," they nearly caused fatalities. The "virtuous governance" initiative almost ended up with egg on its face.
 
-Later Liu San came specially opening several symposiums. Roughly understood Chaste Women unwilling to leave was not for "Keeping Chastity." But livelihood problem. Thus finally decided engaging "Production Self Help" in Shelter. Leaving to arrange gradually later.
+Later, Liu San came specially to conduct several symposiums. He came to understand that the chaste women's unwillingness to leave wasn't about "preserving chastity" but about livelihood. Thus it was finally decided to implement "productive self-help" programs at the shelter, leaving gradual arrangements for later.
 
-"I want to see Pure Chaste Hall." Du Yibin opened door seeing mountain. "Also Ji Liang Suo."
+"I want to see the former Chastity Hall," Du Yibin said bluntly. "And the Jiliang Institute."
 
-This Director Deputy Director looked at each other one eye: This Chief coming asking nothing. Seeing nothing. Opening mouth wanting to see women. What routine is this?
+The Director and Deputy Director exchanged glances. *This chief has come asking about nothing, seeing nothing—and now opens his mouth asking to see the women. What's his game?*
 
-However since Chief inspecting. Where he wanted to see naturally listening respect at convenience. Lu Weijia hurried said: "This easy. Arranging now."
+However, since the chief was inspecting, wherever he wanted to see, they would naturally comply. Lu Weijia hurried to say: "That's easy. I'll arrange it now."
 
-"Chaste Women" lived in still past Pure Chaste Hall houses. Because increased women sheltered from similar institutions of whole province various places. Original houses not enough living. Repaired and built part of houses again. Dormitory equipped double deck bed and necessary washing utensils. Women carrying infants specially equipped room. Originally dirty messy environment also swept clean. Also built public toilet specially. Regardless peripheral environment or life condition all had big change.
+---
 
-"Chaste Women" no longer locked in small yard like past. Could act freely within range of Shelter. Spinning weaving in dark indoor was their only work in past. Now they either served as "Nanny" or "Waiter" in Shelter. Some undertook "Outer Distributing Processing." Mainly sewing various uniforms and making shoe uppers.
+The "chaste women" still lived in the former Chastity Hall buildings. Because they'd taken in women sheltered from similar institutions throughout the province, the original buildings had become inadequate. Repairs and new construction had provided dormitories equipped with double-decker beds and necessary washing facilities. Women carrying infants were specially provided separate rooms. The originally filthy, chaotic environment had been swept clean. A public toilet had been specially built. Both the surrounding environment and living conditions had undergone dramatic improvements.
 
-Saying work. Not relaxed. But work environment compared to past was bright hygienic. Also having sufficient food and rest. Making these women originally pale thin due to long term malnutrition and imprisonment life recover healthy face color. Originally bone thin like wood stick body also plump up.
+The "chaste women" were no longer locked in small courtyards as in the past. They could move freely within the shelter's boundaries. Spinning and weaving in dark rooms had been their only work before; now they served as "nannies" or "attendants" within the shelter. Some undertook "outbound processing"—mainly sewing various uniforms and making shoe uppers.
 
-Although Shelter rule very strict. But couldn't resist Hormone power. So Du Yibin finding Person in Charge in Shelter talking then felt self coming one step late. Naturalized personnel working in Shelter already "Using Power Seeking Private" "Gooding Up" with quite a few "Chaste Women." Said several pairs went to "Register."
+The work was by no means light. But the work environment, compared to the past, was bright and hygienic. With sufficient food and rest, these women—originally pale and thin from long-term malnutrition and confinement—had recovered healthy complexions. Their previously skeletal frames had filled out.
 
-"Have this matter?!" Du Yibin instantly head painful. Like this what fart I engage.
+Although the shelter's rules were quite strict, they couldn't resist the power of hormones. When Du Yibin spoke with the person in charge, he realized he'd come one step too late. Naturalized personnel working at the shelter had already "used their positions for private gain," partnering up with quite a few "chaste women." Several pairs had even gone to register.
 
-"Yes. Probably seven eight pairs." Lu Weijia seeing his face color very ugly. Hurried said. "This is agreed by Civil Affairs Department. Saying solving naturalized citizen marriage problem..."
+"This happened?!" Du Yibin's head instantly throbbed. *What the hell am I supposed to do now?*
 
-"You also solve he also solve. How I solve?" Du Yibin quite unhappy. Feeling his work robbed. Mao Xiuyu misunderstood meaning. Thinking this Chief came to Pure Chaste Hall to "Select Beauty." Then leaned up said: "What good looking of these widows. Mostly thirty forty years old Half Old Xu Nian [middle-aged women]..."
+"Yes. About seven or eight pairs." Seeing his face darken, Lu Weijia hurried to say, "This was approved by the Civil Affairs Department. They said it was to solve the naturalized citizen marriage problem..."
 
-Du Yibin originally annoyed. Pulled crooked by him even more heart annoying. Scolded: "You know a fart!"
+"You solve it, he solves it—how am I supposed to solve it?" Du Yibin was quite displeased, feeling his work had been stolen. Mao Xiuyu misunderstood, thinking this chief had come to the Chastity Hall to "select beauties." He leaned in and said, "These widows aren't much to look at. Most are thirty or forty years old—middle-aged matrons..."
 
-Mao Xiuyu scared a jump. Hurried shutting mouth not talking.
+Du Yibin, already annoyed, found himself pulled even further off course by this nonsense. "You don't know shit!" he snapped.
 
-"Now how many 'Chaste Women' you have here?"
+Mao Xiuyu jumped, startled, and hurried to shut his mouth.
 
-"Chief. Last time file came. Asking us not calling them 'Chaste Women' again..." Lu Weijia said carefully.
+"How many 'chaste women' do you have here now?"
 
-"Oh. Right right." Du Yibin patted head. "Then how many widows?"
+"Chief, the last directive came down saying we shouldn't call them 'chaste women' anymore..." Lu Weijia said carefully.
 
-Lu Weijia dared not correct Chief words—Formal address is "Single Women"—Said: "Currently have three hundred nine persons. Among which twenty three persons have infant following body. Besides local city. Also have sent from outside prefecture."
+"Oh. Right, right." Du Yibin patted his head. "Then how many widows?"
 
-"Age?"
+Lu Weijia didn't dare correct the chief's terminology—the formal designation was "single women"—and said: "Currently we have three hundred and nine persons. Among them, twenty-three have infants. Besides locals, we also have those sent from outside prefectures."
 
-Age composition relatively favorable. Only less than forty persons over fifty—Pure Chaste Hall life bitter and tiring. Chaste women usually lived not long. Among all age groups. Thirty to forty proportion highest.
+"Ages?"
 
-This situation had big discrepancy with what he imagined. But three hundred plus people not few either. Even if half people truly want to keep chastity. Can solve marriage problem for hundred plus naturalized citizens too.
+The age composition was relatively favorable. Fewer than forty were over fifty—life in the Chastity Halls had been bitter and exhausting, and chaste women typically didn't live long. Among all age groups, the thirty-to-forty bracket had the highest proportion.
 
-Two Directors seeing his face color cloudy sunny uncertain. Sometimes murmuring to self. Didn't know what crazy this Chief fit exactly. Half sound. He then said: "Go. To Ji Liang Suo. Seeing prostitutes."
+This situation differed significantly from what he'd imagined. But three hundred-plus people wasn't a small number. Even if half genuinely wished to preserve their chastity, that could still solve the marriage problem for over a hundred naturalized citizens.
 
-"Chief. Pure Chaste Hall not seeing..."
+The two directors watched his expression shift between cloudy and clear, occasionally muttering to himself. They had no idea what ailment possessed this chief. After a long moment, he suddenly said: "Let's go. To the Jiliang Institute. I want to see the prostitutes."
 
-"Say later!"
+"Chief, about the Chastity Hall—aren't you going to inspect it?"
 
-Two people dared not disobey. Had to take him to Ji Liang Suo again.
+"Later!"
 
-Ji Liang Suo set in originally barren horrible Back Garden. Residual corpses here already cleaned. Built several groups of temporary sheds. Broken wall also repaired with bamboo fence. Periphery also set Petition Police sentry box—Although public security outside city turned better. But still had small amount scattered bandit robber activity. Robbery. Killing and Theft happened occasionally at night.
+The two didn't dare disobey. They had no choice but to lead him to the Jiliang Institute.
 
-Middle lower class prostitute social relation complex. Three teachings nine streams people all contacted. For facilitating education also preventing accident appearing. Here was completely closed management. Students could only act inside Ji Liang Suo.
+---
+
+The Jiliang Institute was located in what had once been a desolate, eerie back garden. The corpses that had littered the area had been cleaned away. Several groups of temporary sheds had been built. The broken walls had been repaired with bamboo fencing. Guard posts had been set up at the perimeter—although public security outside the city had improved, there were still scattered bandits and robbers active. Robbery, murder, and theft still occurred occasionally at night.
+
+Lower-class prostitutes had complex social relationships, contacts across all walks of life. To facilitate education and prevent incidents, the institute was completely closed-management. Students could only move within the Jiliang Institute grounds.
 
 "Chief!"
 
-Seeing them arriving. A young naturalized female cadre welcomed up.
+Seeing them arrive, a young naturalized female cadre hurried forward.
 
-"You are..."
+"You are...?"
 
-"I am Lu Cheng. From Guangzhou City Women Federation. Currently in charge of Ji Liang Suo work."
+"I'm Lu Cheng, from the Guangzhou City Women's Federation. I'm currently in charge of the work at Jiliang Institute."
 
-"Married or not?" Du Yibin asked suddenly.
+"Are you married?" Du Yibin asked suddenly.
 
-"Ah?" Lu Cheng scared a jump. "No... Not..."
+"Ah?" Lu Cheng jumped, startled. "No... not..."
 
-"Why not marry?"
+"Why not?"
 
-Lu Cheng contacted quite a few Senators. Haven't met anyone with such style. Thinking what this Chief wants. Don't tell me looked upon self? "Work busy. Didn't meet suitable..."
+Lu Cheng had dealt with quite a few Senators, but she'd never met one with this style. *What does this chief want? Don't tell me he's taken a fancy to me?* "Work has been busy. I haven't met anyone suitable..."
 
-"Work busy is not excuse." Du Yibin thought. Obviously here has single female cadre. There has no wife. "Must find a cadre soldier to marry quickly!"
+"Work being busy is no excuse." Du Yibin thought: *Obviously there are single female cadres here, and single men there.* "You need to quickly find a cadre or soldier to marry!"
 
-Lu Cheng baffled. Heart said this businesses your fart matter! But mouth still crisp agile said: "Yes! I as soon as possible!"
+Lu Cheng was baffled. *What business is this of yours?!* But her mouth remained crisply efficient: "Yes! I'll do so as soon as possible!"
 
-Lu Weijia thought what routine is this Chief exactly? Coming inspecting ought see not seeing. Ought ask not asking. Just staring at "Chaste Woman" and "Prostitute." Mao Xiuyu had another plan. Don't tell me this Chief came here seeking maid to accomplish concubine? But since Chiefs rich possessing four seas. Why necessary finding here. Truly can't think through.
+Lu Weijia wondered: *What exactly is this chief's routine?* He came to inspect but didn't look at what he should, didn't ask what he should. He just stared at "chaste women" and "prostitutes." Mao Xiuyu had another theory: *Don't tell me this chief came here seeking a maid to make into a concubine?* But since chiefs possessed the wealth of the four seas, why would they need to look here? He truly couldn't figure it out.
 
-Lu Cheng roughly introduced Ji Liang Suo situation. Here currently sheltered near five hundred prostitutes declaring unwilling to continue engaging in this industry in Rectifying Wind Transformation Action. Source included Guangzhou Prefecture subordinate various prefectures counties. These prostitutes mostly middle lower class prostitutes. Family poor sold. Family mostly lost news. Eyes looking no relatives locally. Because cheap prostitutes. Exploited by Old Bustard Leading Family heavily. Body without any savings. Some also had various diseases.
+Lu Cheng gave a rough introduction to the Jiliang Institute's situation. Currently, they sheltered nearly five hundred prostitutes who'd declared unwillingness to continue in the industry during the Public Morality Rectification campaign. The sources included various prefectures and counties subordinate to Guangzhou Prefecture. These prostitutes were mostly middle and lower-class. Those from poor families who'd been sold, most of whom had lost contact with their families. Locally, they had no relatives. As cheap prostitutes heavily exploited by madams and pimps, they had no savings. Some also suffered various diseases.
 
-"...After they arriving here. Helped them doing purification. Also treated disease. Now developing Production Self Help activity..."
+"...After they arrived here, we helped them undergo purification. We also treated their diseases. Now we're developing productive self-help activities..."
 
-"How is situation of these prostitutes?"
+"What's the situation with these prostitutes?"
 
-"Female students emotion still stable." Lu Cheng didn't correct Chief word directly. "They mostly background very bitter. Suffered exploitation and abuse in brothel. Can come here all grateful to Senate."
+"The female students' morale is still stable." Lu Cheng didn't directly correct the chief's terminology. "Most of them have very bitter backgrounds. They suffered exploitation and abuse in the brothels. Everyone who's come here is grateful to the Senate."
 
-"Have any problem?"
+"Are there any problems?"
 
-Front words were scene words. Lu Cheng entered Political Security Training Class. Knowing Chief valued "Existing Problem" most.
+The previous words had been diplomatic. Lu Cheng had attended Political Security training classes. She knew chiefs valued "existing problems" most.
 
-"Emotion has. Mainly relatively pessimistic to future life. And has Loving Leisure Hating Labor tendency."
+"Emotionally, there are some. Mainly they're quite pessimistic about future life. And they have a tendency to love leisure and hate labor."
 
-Long term prostitute life made them mostly lose labor consciousness. Formed delicious lazy. Muddling along life habit. So although developed "Production Self Help" for them. But production efficiency couldn't reach half of "Single Women."
+Long-term prostitution had caused most of them to lose work consciousness, forming habits of self-indulgence and muddling through. So although "productive self-help" programs had been developed for them, their production efficiency couldn't reach half that of the "single women."
 
-"Some people quite resisting labor." Lu Cheng speaking full belly gas. "Under Old Bustard Turtle Slave hand scared like a quail. Dare not speak words; Arriving Ji Liang Suo one by one like monkey opened lock. Clever teeth sharp mouth can choke you back breath! Seeing us good heart. Committing rules not vague a bit..."
+"Some are quite resistant to labor." Lu Cheng spoke with a belly full of grievances. "Under the madams' and pimps' control they were scared like quails, didn't dare speak a word. Arriving at the Jiliang Institute, every one of them is like a monkey freed from its lock—sharp-tongued, can choke you breathless! Seeing that we're kindhearted, they don't hesitate to break the rules..."
 
-Looks like. Lu Cheng suffered quite some gas in Ji Liang Suo. Mao Xiuyu hurried echoing said: "This gang of bit... students terrible. Every one is Rolling Knife Meat [tough meat/brazen]. Face skin thick! Skin on butt also thick! Committing mistake beating rattan useless to them a bit. Finishing beating lifting pants still want to joke a few sentences: Saying what Old Mother kneeled iron chain. Branded fire chopstick. These few hits just serve as scratching itch... Truly know not shame!"
+It appeared Lu Cheng had suffered considerable frustration at the Jiliang Institute. Mao Xiuyu hurried to chime in: "This gang of bit—students—they're terrible! Every one is thick-skinned and shameless! Corporal punishment is completely useless on them. After a beating, they pull up their pants and still want to crack jokes, saying things like 'Old Mother endured iron chains and fire brands—these few hits are just scratching an itch'... Truly shameless!"
 
-"They suffered torture in brothel in past. Our little corporal punishment has no deterrence to them..." Lu Weijia said. "So I say still need mainly education. Cannot rely on corporal punishment..."
+"They suffered torture in the brothels in the past. Our minor corporal punishment holds no deterrence for them..." Lu Weijia said. "That's why I say we still need to rely mainly on education. We can't depend on corporal punishment..."
 
-Du Yibin listening brows frowned more. Such woman how can serve as naturalized citizen wife? Disabled naturalized citizen need not think more. By then maybe making out "Wu Dalang" [husband murdered by wife] kind matters. Wang Jun this guy truly unreliable!
+Du Yibin listened, his brow furrowing deeper. *How could such women serve as naturalized citizens' wives? Disabled naturalized citizens needn't even think about it—they might end up like Wu Dalang.* That Wang Jun fellow was truly unreliable!
 
-He already had heart wanting to beat retreat drum. However person already at door—Just now he already didn't go to Pure Chaste Hall. Not going again this time inevitably appeared too rough.
+He already had the urge to beat a retreat. However, he was already at the door—just now he'd already skipped the Chastity Hall inspection. To skip this one too would appear far too perfunctory.
 
-Petition police opened door. Leveled mud ground paved white lime sand. Seven "Long Houses" built sequentially—Bamboo pole wood material as bone. Bamboo strip reed mat as wall. Covered a layer of yellow mud above. Brushed white lime again. Looking reasonably neat clean. Gap ground between Long Houses were rows of drying cloth poles. Hung full of woman clothes. Wind blowing like Universal Flags generally. Although this spacetime didn't have brief bra stocking kind of things. But with Du Yibin knowledge also knew mostly women undergarments. Involuntarily slightly somewhat awkward.
+---
 
-Mao Xiuyu thought he felt unlucky. Then low voice to Lu Cheng said: "Directory Lu. You see if call them collect down first—Hindering view..."
+The guard opened the door. The leveled mud ground was covered with white lime sand. Seven "long houses" were built in sequence—bamboo poles and timber for frames, bamboo strips and reed mats for walls, covered with a layer of yellow mud and whitewashed with lime. They looked reasonably neat and clean. In the gaps between the long houses were rows of drying poles hung full of women's clothing. When the wind blew, they fluttered like banners. Though this era lacked brassieres and stockings, with Du Yibin's knowledge he could tell these were mostly women's undergarments. He felt involuntarily somewhat awkward.
 
-"No need collect." Du Yibin heard this word. More somewhat angry. Scolded. "Drying several clothes has what relation? Making big fuss over small issue!"
+Mao Xiuyu thought the chief found it inauspicious and said in a low voice to Lu Cheng: "Director Lu, see if you can have them collect those—they're obstructing the view..."
 
-"Yes. Yes. Yes." Mao Xiuyu immediately bent waist hunched back. Making a "Small Person Deserve Die" look. Shrank to back.
+"No need to collect them." Du Yibin heard this and grew even angrier. "What difference does drying a few clothes make? Making a fuss over nothing!"
 
-Only scarce few "Female Students" on empty ground. Some squatting by well washing clothes. Some sitting on chair at Long House door napping. Lu Cheng said most people working in workshop. These were sick ones.
+"Yes, yes, yes." Mao Xiuyu immediately bent his waist and hunched his back, making a "this lowly one deserves death" expression and shrank to the back.
+
+Only a sparse few "female students" were on the open ground. Some squatted by the well washing clothes. Some sat in chairs by the long house doors napping. Lu Cheng said most people were working in the workshop. These were the sick ones.
+
+**(End of Chapter)**

@@ -4,17 +4,19 @@ Ever since the Tax Bureau started auditing his family's accounts, Young Master L
 
 Thinking of this made Young Master Lin rather indignant. But on reflection, business had actually been quite good this past year or so, and he'd been spared the usual tributes and "etiquette payments." When you thought about it, doing business honestly under Australian rule didn't seem so bad. As long as the short-hair bandits didn't engage in mass guilt-by-association, his family's resources should be enough to weather this storm. A new dynasty just beginning—consider it paying for peace. Young Master Lin let out a long breath.
 
+---
+
 That night, the Guangzhou Tax Bureau Director's office was convening a directors' meeting.
 
 Ai Zhixin set down the *National Tax System Tax Collection and Enforcement Provisional Regulations* compiled by Zhang Xiaoqi and grimaced. "Sister Xiaoqi, you've really strengthened a lot of this..."
 
 "Adapting to local conditions, adapting to the times."
 
-"Isn't it a bit too harsh?" Ai Zhixin pointed to a section. "'...Penalty of five to twenty times the amount'—I have no objection to you raising the penalty standards there. And raising the late-payment surcharge from the old time-space's 0.05% daily to 0.5% daily, I think is also acceptable. But this part after that... 'In serious cases, penalty of thirty to fifty times the amount, and imprisonment, life imprisonment, or death sentence.'"
+"Isn't it a bit too harsh?" Ai Zhixin pointed to a section. "'...Penalty of five to twenty times the amount'—I have no objection to you raising the penalty standards there. And raising the late-payment surcharge from the old timeline's 0.05% daily to 0.5% daily, I think is also acceptable. But this part after that... 'In serious cases, penalty of thirty to fifty times the amount, and imprisonment, life imprisonment, or death sentence.'"
 
 "Is there a problem?"
 
-"By your earlier definitions, evading fifty yuan in taxes means reporting to Fu Youdi's place. This isn't the old time-space—once a man goes in there, even if it's just for a month, the whole family collapses completely with no chance of recovery. You're pushing people to their deaths."
+"By your earlier definitions, evading fifty yuan in taxes means reporting to Fu Youdi's place. This isn't the old timeline—once a man goes in there, even if it's just for a month, the whole family collapses completely with no chance of recovery. You're pushing people to their deaths."
 
 "To their deaths? My dear Director Ai, do you know how much we've set as the maximum fixed tax for mid-size merchants in Guangzhou? Only thirty-two yuan a year. Fifty yuan is nearly two years of evasion. Anyone capable of pulling that off is most likely one of those big households. This rule is made for them!"
 
@@ -34,7 +36,7 @@ The less-than-harmonious discussion in the conference room stemmed from how to h
 
 First, Political Security had already indicated that Lin Zunxiu was a peripheral figure with no evidence of actual participation in the underground group's activities. Second, Young Master Lin had officially separated from the main household last year and established his own branch. Though not officially registered, most street-front shop shares had already been transferred to his name, with only the family residence and rural properties remaining with the main household. This made the Tax Bureau's seizure of all Lin family assets look like guilt-by-association. Third, the Lin family had an excellent attitude toward their crimes, accepting all penalties without question. Given these circumstances, Ai Zhixin felt the Lin family should pay their way to survival. With the Luo and Shi families as chickens to slaughter, that was enough. Handling the Lin family this way could demonstrate the Executive Committee's "legal precision" and "measured severity."
 
-"But Director Zhang, let me be honest. The Lin family doesn't just have Lin Zunxiu as a son. He's separated now, and everything discovered falls under his name. If you insist on going after him, they might just stiffen their necks. Then all we could do is seize and auction off Lin Zunxiu's assets and hang him from a lamppost. How much would that scrape together? Liu Xiang urgently needs cash, not these real estate assets. Let him off, and the old Lin patriarch will surely pay to fill his son's hole—that's liquid money. Like the old time-space, there were plenty of examples of paying for victim reconciliation to get reduced sentences. I think we could learn from that."
+"But Director Zhang, let me be honest. The Lin family doesn't just have Lin Zunxiu as a son. He's separated now, and everything discovered falls under his name. If you insist on going after him, they might just stiffen their necks. Then all we could do is seize and auction off Lin Zunxiu's assets and hang him from a lamppost. How much would that scrape together? Liu Xiang urgently needs cash, not these real estate assets. Let him off, and the old Lin patriarch will surely pay to fill his son's hole—that's liquid money. Like the old timeline, there were plenty of examples of paying for victim reconciliation to get reduced sentences. I think we could learn from that."
 
 "You just want their silver and can't bear to give up the pretty 'rule of law' facade?"
 
@@ -66,4 +68,4 @@ Zhang Xiaoqi usually gave Ai Zhixin the impression of a busybody middle-aged aun
 
 Next update: Volume 7 - Two Guangs Campaign Section 169
 
-(Chapter End)
+**(End of Chapter)**

@@ -12,7 +12,7 @@ So this was what the Australians' "important notice" looked like? Nothing more t
 
 "Reporting to Master, there weren't any. Please rest assured, this servant wouldn't be careless about such matters. When we entered the room, someone led us to queue up at a table, and each person signed a register after receiving the paper. That clerk was quite young. Apart from asking for your name, he didn't say a single extra word."
 
-After hearing He Si's report, Squire He responded noncommittally and picked up the paper again to study it. There were only a few lines, nothing particularly significant. It simply said that in five days, Guangzhou's—not government office—the court would be hearing the recent "Stamp Tax Case," and observers were welcome.
+After hearing He Si's report, Squire He responded noncommittally and picked up the paper again to study it. There were only a few lines, nothing particularly significant. It simply said that in five days, Guangzhou's court—not government office—would be hearing the recent "Stamp Tax Case," and observers were welcome.
 
 Calling it an "invitation" wasn't quite right—"notice" would be more accurate! Yes, "notice"! Squire He thought of this "new term." Everything about the Australians was just this cold, without any courtesy whatsoever.
 
@@ -37,6 +37,8 @@ Seeing his master nod slightly, He Si stepped half a step closer and said quietl
 "Reporting to Master, this servant naturally made inquiries. The Gao household isn't just handling it—they're practically fawning. Steward Yan didn't even try to hide it. The moment he left the Chamber of Commerce, he was loudly announcing he was heading to the court to register. Master, should we perhaps also..."
 
 "Don't rush, don't rush." Hearing this, Squire He's eyes crinkled with amusement as he opened his folding fan and began waving it gently. "It won't be too late if you go tomorrow."
+
+---
 
 Squire He's guess was spot on. Though He Si didn't go to register until the next afternoon, he still secured a fairly forward seat. On the day of the hearing, the observer seats contained virtually no one besides those who'd been "invited." This wasn't because Guangzhou citizens had lost interest in Executive Committee trials—rather, even with the hearing scheduled for the weekend, naturalized workers on double shifts and naturalized cadres with no holidays simply had no time to attend. The Guangzhou natives who had just barely risen above the level of "no work today means no food today" had no concept of weekends at all. Besides, this wasn't a mass trial but a court case—most people instinctively felt intimidated and wouldn't dare join in the spectacle.
 
@@ -72,4 +74,4 @@ Actually, Squire He hadn't seen it either at first. But after returning from Lin
 
 Next update: Volume 7 - Two Guangs Campaign Section 173
 
-(Chapter End)
+**(End of Chapter)**

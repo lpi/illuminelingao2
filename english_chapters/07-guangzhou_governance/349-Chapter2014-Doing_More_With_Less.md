@@ -1,73 +1,73 @@
 # Chapter 2014 - Doing More With Less
 
-"What percentage of the total cost would this be?" Ai Zhixin quickly asked.
+"What percentage of total costs are we talking about?" Ai Zhixin asked promptly.
 
-"I think setting a percentage isn't appropriate; it might cause the share to be too large or too small. Let's base it on their income. Those willing to participate will pay the equivalent of one month's average salary for a naturalized worker," Liu Xiang said. "Spending one month's salary for a wedding isn't excessive, right?"
+"I don't think setting a percentage makes sense—it might prove too large or too small. Let's base it on income instead. Participants will pay the equivalent of one month's average salary for a naturalized worker," Liu Xiang proposed. "Spending one month's wages on a wedding isn't excessive, is it?"
 
-"I think that's too little," Ai Zhixin said. "At least three months. They are all old naturalized citizens, no wives, how much could they spend? They must have at least two or three years of savings..."
+"That's too little," Ai Zhixin countered. "At least three months. These are all veteran naturalized citizens without wives. How much could they possibly spend? They must have accumulated two or three years of savings at minimum..."
 
-"Not just two or three years, I think some have thirty or forty years of savings," Wang Jun teased.
+"Not just two or three years," Wang Jun quipped. "I suspect some have thirty or forty years of savings."
 
-Laughter erupted in the conference room; even Zhang Yunmi couldn't help smiling.
+Laughter rippled through the conference room. Even Zhang Yunmi couldn't suppress a smile.
 
-Liu Xiang tried hard to maintain seriousness but had to wave his hand with a smile: "Alright, alright, stop joking. Let's continue with business."
+Liu Xiang struggled to maintain composure but had to wave his hand with a grin. "Alright, alright—enough joking. Let's return to business."
 
-Lin Baiguang smiled: "I think one month's salary is about right. Precisely because they are bachelors with no family burdens, they probably spend freely, so any savings won't be much. Charging too much will make people unhappy. If anyone truly can't even afford this amount, just deduct it monthly from their salary—the amount is small and won't affect their livelihood."
+Lin Baiguang smiled. "I think one month's salary hits the right mark. Precisely *because* they're bachelors without family obligations, they probably spend freely. Their savings won't amount to much. Charge too much and you'll breed resentment. If someone genuinely can't afford even this amount, we'll deduct it monthly from their salary—the sum's small enough that it won't affect their livelihood."
 
-"Let's do it that way." Seeing Ai Zhixin wanted to speak again, Liu Xiang shut him down directly.
+"Settled, then." Seeing Ai Zhixin about to protest again, Liu Xiang cut him off decisively.
 
-Du Yibin quickly added: "For the shortfall, I don't think we need to use fiscal funds. I have a suggestion: ask the wealthy households in Guangzhou to donate some money. Then list these merchant names at the wedding to express gratitude—we can also give purchase contracts for wedding supplies to them. For those merchants and wealthy households, this counts as a small pledge of allegiance. Grain merchants and Gao Ju and others will definitely donate money and goods, and they might even let their family members join in. This way we can also see where those big households stand based on the number of donors and amounts, serving as a reference for future work."
+Du Yibin interjected quickly: "For the funding shortfall, I don't think we need fiscal appropriations. Here's my suggestion: solicit donations from wealthy Guangzhou households. We'll list these merchants' names at the wedding as thanks—and award them purchase contracts for wedding supplies. For those merchants and wealthy families, this amounts to a small pledge of allegiance. The grain merchants, Gao Ju, and others will definitely donate money and goods. They might even have family members participate. This way we can also gauge where the major households stand based on donor numbers and amounts—useful intelligence for future work."
 
-"Sponsorship and advertising approach. Not bad, not bad," Zhang Yunmi said. "This money is a drop in the bucket for them. Plus there's advertising return."
+"A sponsorship and advertisement approach. Clever, very clever," Zhang Yunmi said. "This money's pocket change to them, plus they gain advertising returns."
 
-Before Liu Xiang could speak, Lin Baiguang shook his head: "Although surely many wealthy households in Guangzhou would be willing to pay if we hint at it, and they'd be generous, frankly doing so isn't appropriate. First, it easily gives Guangzhou citizens and wealthy households the illusion that sponsorship creates a special relationship with us; second, it sets a bad precedent. Donations should be occasional charity; frequent ones become taxes. We might control the degree well, but what about future Guangzhou city governments? An order to donate makes getting money too easy—a good thing could end up being done poorly."
+Before Liu Xiang could respond, Lin Baiguang shook his head. "Even assuming many wealthy Guangzhou households would eagerly contribute if we hinted—and they'd be generous—frankly, proceeding that way would be inappropriate. First, it risks giving citizens and wealthy families the illusion that sponsorship creates special relationships with us. Second, it sets dangerous precedent. Donations should represent occasional charity; frequent requests become indistinguishable from taxes. We might handle the degree competently, but what about future Guangzhou city governments? When extracting money becomes this easy, good intentions pave the road to poor outcomes."
 
-Having worked in county agencies in the 90s, Lin Baiguang had seen too many drawbacks of grassroots governance. Frequent and forced donations actually consume the regime's credibility and the people's goodwill. Frequent occurrences not only burden the masses but also yield poor social effects—what was clearly a good deed is seen by the masses as "exploitation" and "dumping burdens."
+Having worked in county agencies during the nineties, Lin Baiguang had witnessed excessive grassroots governance firsthand. Frequent, forced donations consumed a regime's credibility and the people's goodwill. Regular occurrences not only burdened the masses but generated poor social perception—what should be benevolence gets perceived as exploitation and burden-shifting.
 
-"I also feel it's inappropriate." Wang Qiyi, who hadn't spoken, also expressed opposition. "Such unconventional wealth-gathering means should be used sparingly. When the Asian Games were held back then, I was a primary school student. The school required every student to donate at least fifty cents. They even ranked donations by class, school, and county, causing competition. It looked impressive, 'whole populace actively participating in the Asian Games,' very lively. But for students from difficult families, 50 cents or 1 yuan wasn't a small amount—how do you think parents and students viewed such donations? Excitement and pride? I think Beijing's later refusal to accept public donations for the Olympic bid was a big improvement."
+"I also think it's inappropriate." Wang Qiyi, who'd remained silent thus far, voiced opposition. "Such unconventional wealth-extraction methods should be employed sparingly. When they held the Asian Games, I was a primary school student. The school required every student to donate at least fifty cents—they even ranked donations by class, school, and county, fostering competition. It looked impressive: 'entire populace actively participating in the Asian Games,' very spirited. But for students from struggling families, fifty cents or one yuan wasn't trivial—imagine how those parents and students viewed such 'donations.' Excitement and pride? I think Beijing's later refusal to accept public donations for the Olympic bid represented substantial improvement."
 
-"So if they offer to donate, we refuse?" Du Yibin urged anxiously. In their discussion yesterday, "donations" were the main funding source.
+"So if they offer donations, we refuse?" Du Yibin pressed anxiously. In yesterday's discussion, donations had represented the primary funding source.
 
-"Correct, we can't take this money," Liu Xiang said. "Especially now that our New Life Movement is deepening, relations with wealthy households are quite delicate. We must be especially careful with boundaries at this time to avoid giving the outside world wrong signals and... future pretexts."
+"Correct. We can't accept this money," Liu Xiang stated. "Especially now, as our New Life Movement deepens and relations with wealthy households grow delicate. We must exercise particular care with boundaries to avoid sending the outside world wrong signals... or providing future pretexts."
 
-Du Yibin, Wang Jun, and others looked disappointed.
+Du Yibin, Wang Jun, and others looked visibly deflated.
 
-Zhang Yikun quickly said: "Donations are naturally out. But we can solicit sponsorship and advertising, which should be fine—purely commercial behavior. For example, snacks for the wedding, ingredients for the banquet—there are some enterprises in Guangzhou we specifically support; it's appropriate to let them sponsor."
+Zhang Yikun spoke up promptly: "Donations are naturally off the table. But we can solicit sponsorship and advertising—perfectly legitimate commercial behavior. For instance, wedding refreshments, banquet ingredients—several enterprises in Guangzhou enjoy our specific support. Having them sponsor would be entirely appropriate."
 
-The common characteristic of these enterprises was that they prospered after Guangzhou's liberation, had some Council of Elders background and investment, and crucially had no ties to the old wealthy households or gentry of Guangzhou—their history was clean. Asking them for sponsorship and advertising provided publicity and demonstrated the Council's support for these new industrialists and merchants.
+These enterprises shared common attributes: they'd prospered following Guangzhou's liberation, maintained Council backing and investment, and crucially bore no connections to old wealthy households or gentry—their histories were clean. Soliciting their sponsorship and advertising provided publicity while demonstrating the Council's support for these new industrialists and merchants.
 
-Zhang Yikun's proposal won everyone's approval.
+Zhang Yikun's proposal won universal approval.
 
-"What if they aren't willing..."
+"What if they're unwilling..."
 
-"Anyone with a bit of sense would fight to get in," Zhang Yikun laughed. "Would the Council support a stupid enterprise as a benchmark?"
+"Anyone with a functional brain would fight for the opportunity," Zhang Yikun laughed. "Would the Council elevate a stupid enterprise as a benchmark?"
 
-The policy was thus settled. Zhang Yikun was confident—he actually already had a draft of sponsor names in mind. Zhang's Food, supported by Elder Hong, was definitely on the list; since they made snacks, relevant pastries could be entrusted to them. As for the small industry of his own life secretary's family, naturally that needed care too. There was also a "new enterprise" supported by Elder Liu San in the pharmaceutical sector—Chen Li Ji. This old timeline brand had only been open for over thirty years in this timeline. As soon as the Council entered the city, Liu San personally visited to request "cooperation," flattering this pharmacy which had been open for years without much success. This move made the owner of Runshi Tang feel quite lost.
+Policy thus settled, Zhang Yikun felt confident. He already had a draft sponsor roster mentally prepared. Zhang's Food, backed by Elder Hong, topped the list—since they produced snacks, relevant pastries could be entrusted to them. His own life secretary's small family industry naturally warranted attention. Then there was a "new enterprise" Elder Liu San supported in pharmaceuticals—Chen Li Ji. This old-timeline brand had operated barely thirty years in this timeline. As soon as the Council entered the city, Liu San personally visited requesting "cooperation," lavishing attention on this pharmacy that had languished in mediocrity for years. The move left Runshi Tang's proprietor feeling rather adrift.
 
-Since Liu San valued Chen Li Ji so much, this shop had to get a share. Runshi Tang was a "Council-related enterprise" and one Liu San had strongly supported back then, so it couldn't be slighted either...
+Since Liu San valued Chen Li Ji so highly, this shop had to receive a share. Runshi Tang was a "Council-affiliated enterprise" Liu San had vigorously championed previously, so it couldn't be neglected either...
 
-While calculating the selected "sponsors," Zhang Yikun scribbled on paper and quickly listed twelve merchant names, passing it around—since Liu Xiang had elevated sponsor selection to a political level, the Elders naturally had to review it, fully embodying "collective leadership."
+While calculating selected "sponsors," Zhang Yikun scribbled on paper, quickly compiling twelve merchant names. He passed the list around—since Liu Xiang had elevated sponsor selection to a political consideration, the Elders naturally had to review it, fully embodying "collective leadership."
 
-"I understand our connection with these two pharmacies, but what use are two drugstores at a wedding?" Zhang Yunmi was puzzled. "Their goods obviously aren't needed at a wedding..."
+"I understand our connections with these two pharmacies, but what use are drugstores at a wedding?" Zhang Yunmi asked, puzzled. "Their wares obviously aren't wedding necessities..."
 
-"Useful, very useful." Du Yibin, raising pangolins and knowing a bit of TCM, said, "After marriage comes childbirth. To have children, one needs to regulate menstruation and qi and blood. I think we can gift each couple some nourishing medicines at the wedding to help them conceive early..."
+"Useful—very useful." Du Yibin, who raised pangolins and possessed some traditional Chinese medicine knowledge, said, "After marriage comes childbirth. To conceive, women need menstrual regulation and qi and blood tonification. I propose we gift each couple nourishing medicines at the wedding to help them conceive early..."
 
-"Unexpectedly, still about raising sons." Qin Ruiyu laughed.
+"So it *is* about raising sons after all." Qin Ruiyu laughed.
 
-"So be it," Wang Jun was excited. "Only with children is it a family! And they are all children of the Council—the more the better."
+"Exactly as it should be," Wang Jun declared enthusiastically. "Only with children does it become a family! And they'll all be children of the Council—the more the better."
 
-As for other projects, they were naturally solved by sponsorship. Dabo Shipping provided flower boats for the Pearl River night cruise, the Plaid Skirt Club provided performances—several bigwigs of the club had lobbied the Guangzhou government for a long time to perform publicly in Guangzhou to "expand the influence of new arts." Now they finally had a legitimate opportunity; let alone performing for free, they'd happily bring their own food.
+Other projects found natural solutions through sponsorship. Dabo Shipping would provide flower boats for Pearl River night cruises. The Plaid Skirt Club would supply performances—several club luminaries had lobbied the Guangzhou government extensively for permission to perform publicly and "expand the influence of new arts." Now they'd finally secured a legitimate opportunity. Far from charging fees, they'd happily provide their own provisions.
 
-The bridal chamber issue was also resolved at the meeting. After coordination, it was decided to designate several temple properties for "targeted rental" to newlyweds, with a tentative lease of one year.
+The bridal chamber issue also found resolution during the meeting. After coordination, they designated several temple properties for "targeted rental" to newlyweds, with provisional one-year leases.
 
-Cui Hantang, Chairman of the Guangzhou Religious Association, patted his belly and said: "I have plenty of old houses there, enough to solve at least a third. But temple properties are scattered and mostly commercial. Many residential units are dilapidated, and repairs would cost a lot—Director Ai probably wouldn't approve—so we can only make do temporarily; long-term won't work." He glanced at Ai Zhixin.
+Cui Hantang, Chairman of the Guangzhou Religious Association, patted his belly contentedly. "I have plenty of older properties available—enough to accommodate at least a third. But temple properties are scattered and predominantly commercial. Many residential units are dilapidated, and repairs would cost substantially—Director Ai probably wouldn't approve expenditure—so we can only manage temporary arrangements. Long-term won't work." He glanced toward Ai Zhixin.
 
-Cui Hantang had intended to "borow the east wind," using this opportunity and General Office allocations to repair temple properties managed by the Religious Affairs Office. So he was very enthusiastic about Wang Jun and others' proposal to lend "temple properties" for naturalized citizens' marriages.
+Cui Hantang had intended to "borrow the east wind," using this opportunity and General Office allocations to repair temple properties managed by the Religious Affairs Office. Hence his enthusiasm for Wang Jun's proposal to lend "temple properties" for naturalized citizens' marriages.
 
-However, Ai Zhixin didn't take the bait and refused to allocate funds for repairs. He stated that temple properties managed by the Religious Affairs Office had undergone corporate reform, and property maintenance should follow the principle of "beneficiary pays for repairs," raising funds independently. There was no logic for the General Office to pay for repairs.
+However, Ai Zhixin didn't take the bait, refusing to allocate repair funds. He stated that temple properties managed by the Religious Affairs Office had undergone corporate reform, and property maintenance should follow the "beneficiary pays for repairs" principle—raising funds independently. No logic supported General Office-funded repairs.
 
-Ai Zhixin pretended not to hear; he had no interest in such "money for face" activities. As Director of Finance and Taxation, the current fiscal situation wasn't optimistic. They relied entirely on primitive financial fiscal maneuvers to barely maintain a stable situation.
+Ai Zhixin effectively ignored Cui's hints. He harbored no interest in such "money for prestige" activities. As Director of Finance and Taxation, the current fiscal situation offered little optimism. They relied entirely on primitive fiscal maneuvering to barely maintain stability.
 
-Then, others spoke up with new ideas, including venue decoration, procedures, and etiquette. Everyone got more excited as they spoke, poised to make this event a grand ceremony "unprecedented and unrepeatable."
+Discussion continued, with others contributing ideas regarding venue decoration, procedures, and protocols. Enthusiasm mounted as they spoke, poised to transform the event into a grand ceremony "unprecedented and unrepeatable."
 
-"Let's leave it at that; we shouldn't consume too many resources on this." Liu Xiang, seeing Ai Zhixin's face twitching constantly, stopped everyone's boundless imagination. "We are all laymen at this. Give the specific ceremonial activities to Fang Fei to handle. As for specific sponsorship organization, Old Zhang will handle it." He stretched. "No rush for the wedding. Arranging housing first is the urgent matter—getting the certificate makes them husband and wife; no need to wait for the wedding to consummate. We'll also change customs!" He turned to Qin Ruiyu, "Your propaganda department needs to manage public opinion well. Not just newspapers; the role of guides must also be utilized."
+"Let's conclude here. We shouldn't consume excessive resources on this affair." Liu Xiang, observing Ai Zhixin's facial tics, curtailed everyone's boundless imagination. "We're all amateurs at ceremonial planning. Assign specific event activities to Fang Fei. Old Zhang will handle sponsorship organization." He stretched. "No rush on the wedding itself. Arranging housing first represents the urgent priority—obtaining the certificate makes them husband and wife; no need to await the wedding for consummation. We'll transform customs while we're at it!" He turned to Qin Ruiyu. "Your propaganda department needs to manage public opinion adeptly. Not merely newspapers—the role of guides must be fully utilized."

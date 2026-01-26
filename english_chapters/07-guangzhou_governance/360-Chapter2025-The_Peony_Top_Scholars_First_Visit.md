@@ -1,91 +1,91 @@
 # Chapter 2025 - The Peony Top Scholar's First Visit to Five Immortals Temple
 
-Then he thought, wasn't there a ready-made opportunity right before him? This young Master Zhang wanted to hold a ritual, and Qing Jing came to invite his family to participate—needless to say, his mother would definitely support such things. Why not simply use the pretext of joining the ritual to visit the Five Immortals Temple and meet the hair-thieves' "Daoist"?
+Then it struck him—was not a ready-made opportunity positioned directly before him? This young Master Zhang wished to sponsor a ritual, and Qing Jing had called to invite his family's participation. Needless to say, his mother would enthusiastically support such enterprises. Why not employ the pretext of joining the ritual to visit Five Immortals Temple and meet the hair-thieves' "Daoist"?
 
-Thinking of this, Li Suiqiu suddenly gained energy, calling: "Someone!"
+The thought energized him instantly. "Someone!" he called.
 
-Thus, on this morning, the brothers Li Suiqiu and Li Suiqi came to Five Immortals Temple to "offer incense."
+Thus, on this particular morning, the brothers Li Suiqiu and Li Suiqi arrived at Five Immortals Temple to "offer incense."
 
-As expected, the moment he entered the temple gate, Qing Huan entertained him while saying something to a young Daoist beside him; the young Daoist glanced at the Li brothers and scurried inside.
+As anticipated, the moment he crossed the threshold, Qing Huan received him while murmuring something to a young Daoist nearby. The youth glanced toward the Li brothers and scurried inward.
 
-"Needless to say, he's gone to report to the Australians." Li Suiqiu thought.
+"Gone to report to the Australians, undoubtedly," Li Suiqiu thought.
 
-Qing Huan led the two brothers on a tour. Though it was called "offering incense," Li Suiqiu actually hadn't brought incense—presumably the temple had some. But only after entering did he learn the New Daoism didn't emphasize burning incense offerings. Though not forbidden, it wasn't encouraged either. Only sincere worship and fresh flower offerings were valued. Inside the halls, incense burning was completely prohibited; only large incense burners were placed on stone steps. Each person was allowed only three thin incense sticks; tall incense, stick incense, gold and silver paper—none could be burned.
+Qing Huan led the brothers on a guided tour. Though ostensibly they had come to "offer incense," Li Suiqiu had in fact brought none—presumably the temple maintained supplies. Only upon entering did he discover that New Daoism placed minimal emphasis on burning incense offerings. Though not forbidden, the practice received no encouragement. Only sincere worship and fresh flower offerings held value. Within the halls, incense burning was entirely prohibited; large incense burners stood positioned only on the stone steps outside. Each worshipper received permission for merely three slender sticks. Tall incense, stick incense, gold and silver paper—none could be burned.
 
-So as they walked, there wasn't the smoke-filled, hazy feeling of large temples. Though many worshippers came, order was excellent. In halls with more people, Daoist students guided and dispersed crowds, entering from one side, exiting from another, orderly indeed.
+Consequently, as they walked, the smoke-choked haze characteristic of major temples remained absent. Though numerous worshippers had gathered, order prevailed remarkably. In more crowded halls, Daoist students guided and dispersed the throngs, directing entry from one side and exit from another—genuinely orderly.
 
-"No wonder everyone says Australians most value the word 'order'; indeed well-deserved." Li Suiqiu secretly appraised.
+"No wonder everyone claims Australians value the word 'order' above all. The reputation proves well-deserved," Li Suiqiu silently appraised.
 
-Touring to the middle hall, though the back was separated by doors, sounds of children reciting and playing and singing could be heard. He was secretly surprised; could the Australians be running a community school here? Asking Qing Huan, it was indeed so. His heart secretly sighed: though it was an easy effort, not everyone was willing to do it.
+Proceeding to the middle hall, though the rear remained separated by doors, sounds of children reciting, playing, and singing drifted through. He started with surprise. Could the Australians be operating a community school here? Upon inquiring with Qing Huan, he found it precisely so. His heart stirred with grudging acknowledgment: though an effortless undertaking, not everyone proved willing to attempt it.
 
-The highlight of touring Five Immortals Temple was climbing the Number One Tower of Lingnan. Li Suiqiu had climbed this bell tower more than once before, even holding poetry gatherings there with teachers and friends. But this was the first time since the Australians entered the city; he felt quite emotional.
+The highlight of any Five Immortals Temple tour involved ascending the Number One Tower of Lingnan. Li Suiqiu had climbed the bell tower more than once previously, even hosting poetry gatherings there with teachers and friends. Yet this marked his first ascent since the Australians entered the city. He felt considerable emotion.
 
-Upon climbing up, he saw a fat Daoist already waiting above with a beaming smile.
+Upon reaching the summit, he discovered a portly Daoist already awaiting them, face beaming with welcome.
 
-"Supreme Treasure of the Dao," the fat Daoist bowed, "Are you the Li brothers?"
+"Supreme Treasure of the Dao," the corpulent Daoist bowed. "Are you the Li brothers?"
 
-"Indeed, your students." Li Suiqiu thought: as expected, he appeared.
+"Indeed, your students." Li Suiqiu thought: as expected, he has appeared.
 
-This was the "Australian Daoist" he had seen at several ritual activities. Reportedly also a true baldy Elder. In Guangzhou he seemed to lead both monks and Daoists.
+This was the "Australian Daoist" he had observed at several ritual activities. Reportedly a genuine baldy Elder as well. In Guangzhou he appeared to superintend both monks and Daoists alike.
 
-Li Suiqiu was very confident: the moment he appeared at Five Immortals Temple, that Australian Daoist would certainly come to meet him—he was, after all, a celebrated scholar famous throughout the South.
+Li Suiqiu possessed complete confidence: the moment he materialized at Five Immortals Temple, that Australian Daoist would certainly emerge to meet him. He was, after all, a celebrated scholar renowned throughout the South.
 
-"This humble Daoist is the Five Immortals Temple abbot, Supervisor of Guangzhou Five Immortals Temple, Cui Hantang. I have long admired your great name."
+"This humble Daoist serves as Five Immortals Temple abbot, Supervisor of Guangzhou Five Immortals Temple—Cui Hantang. I have long admired your illustrious name."
 
-Though Cui Hantang was casual and fearless, he was very careful about working on famous people—completely different from many Elders who disdained or even viewed famous figures of this timeline as enemies. This was probably because, as a lover of traditional culture, he naturally had a favorable impression of traditional celebrities. Moreover, for a renowned scholar and national hero like Li Suiqiu, fan goggles automatically applied.
+Though Cui Hantang maintained a casual, fearless manner in most contexts, he exercised considerable care when engaging famous personages. This set him wholly apart from numerous Elders who either disdained or actively viewed celebrated figures from this timeline as enemies. The distinction likely stemmed from his appreciation for traditional culture, naturally inclining him favorably toward traditional celebrities. Moreover, regarding a renowned scholar and future national hero like Li Suiqiu, fan admiration operated automatically.
 
-Cui Hantang looked at the elegant, fair-skinned, lightly bearded young gentlemen before him, secretly sighing: according to old timeline history, in a dozen years he would die in battle at Ganzhou—unimaginable that such a refined gentleman could fearlessly abandon everything and die heroically! His admiration grew, and his courtesy became increasingly respectful.
+Cui Hantang studied the elegant, fair-complexioned, lightly bearded young gentleman before him, silently reflecting: according to the old timeline's history, within a dozen years this refined scholar would perish in battle at Ganzhou. Unimaginable that such a cultured gentleman could fearlessly abandon all comfort and die heroically! His admiration deepened, and his courtesy grew increasingly respectful.
 
-If any Elders saw Cui Hantang's manner at this moment, they would certainly scold him for "losing his position" or "licking the Ming remnants' boots." But Cui Hantang's martial value wasn't low, and ordinary Elders didn't dare openly mock him.
+Had any Elders witnessed Cui Hantang's demeanor at this moment, they would certainly have rebuked him for "losing his position" or "boot-licking the Ming remnants." Yet Cui Hantang's martial capabilities were not negligible, and ordinary Elders dared not openly mock him.
 
-"Don't mention it, don't mention it." Li Suiqiu returned the greeting. He secretly wondered: what's this hair-thief Daoist's angle? Why so respectful to me?
+"You are too kind, too kind." Li Suiqiu returned the greeting. Inwardly he wondered: what angle does this hair-thief Daoist pursue? Why such deference toward me?
 
-Speaking of fame, he indeed had some reputation in Guangdong—poetic talent. Beyond that, his moral essays weren't exceptional; just an ordinary celebrity. He had long heard Australians were all supremely arrogant, each claiming talents to govern heaven and earth. Let alone contemporary great Confucians, even the Supreme Sage was often given the contemptuous nickname "Old Kong Number Two" by them.
+Regarding fame, he indeed possessed some reputation throughout Guangdong—for poetic talent. Beyond that, his moral essays proved unremarkable; merely an ordinary celebrity. He had long heard that Australians carried themselves with supreme arrogance, each claiming talents sufficient to govern heaven and earth. Forget contemporary great Confucians—even the Supreme Sage himself frequently received the contemptuous nickname "Old Kong Number Two" from them.
 
-"Come, this humble Daoist has prepared pure tea; please enjoy." Cui Hantang invited them to sit on the bell tower.
+"Come, this humble Daoist has prepared pure tea. Please partake." Cui Hantang invited them to be seated upon the bell tower.
 
-The policeman manning the observation post had been sent away. English garden-style rattan furniture was set up, along with a set of Gongfu tea utensils. Beside them was a small wind stove with an iron kettle "glug-glugging" steam. A Daoist student was fanning the flames.
+The policeman manning the observation post had been dismissed. English garden-style rattan furniture now occupied the space, accompanied by a complete set of Gongfu tea implements. Beside them sat a small wind stove, its iron kettle emitting rhythmic burbling as steam rose. A Daoist student tended the flames.
 
-The rattan furniture wasn't rare—Zicheng Shop had long sold complete sets, said to be woven from Qiongzhou's red and white rattan, some with iron frames, each with exotic flair, quite popular among wealthy households in the city. Li Suiqiu's family also had several sets, placed in the garden, study, and other locations.
+The rattan furniture presented nothing novel—Zicheng Shop had long sold complete sets, reportedly woven from Qiongzhou's red and white rattan, some incorporating iron frames, each piece exhibiting exotic flair. Quite popular among the city's wealthy households. Li Suiqiu's own family possessed several sets, positioned in the garden, study, and other locations.
 
-As for the tea tray and utensils, he recognized them as "Gongfu tea" brought by Australians. It first became popular at Zi Ming Lou. Gradually it became fashionable among wealthy families. Though Li Suiqiu didn't follow this trend, he'd drunk it many times. Gongfu tea itself wasn't rare, but it required Australian "Limu Mountain Oolong Tea"; especially the supreme grade "Frozen Peak," with its faint orchid fragrance, was very expensive. Tea merchants everywhere wanted to discover the secret of "Limu Mountain Oolong Tea," but the Australians guarded it strictly; even sending people to Qiongzhou yielded no results.
+As for the tea service and implements, he recognized them as "Gongfu tea" introduced by the Australians. The practice had first gained popularity at Zi Ming Lou, gradually becoming fashionable among prosperous families. Though Li Suiqiu refrained from following such trends, he had sampled it numerous times. Gongfu tea itself posed no rarity, yet it required Australian "Limu Mountain Oolong Tea"—especially the supreme grade "Frozen Peak," with its subtle orchid fragrance, commanded exorbitant prices. Tea merchants everywhere sought to penetrate the secret of "Limu Mountain Oolong Tea," but the Australians guarded it fiercely. Even dispatching agents to Qiongzhou yielded no results.
 
-Li Suiqiu and his brother sat down. Cui Hantang washed cups and scalded vessels, brewing Gongfu tea. The three said nothing, First drinking a round.
+Li Suiqiu and his brother settled into their seats. Cui Hantang proceeded to rinse cups and scald vessels, brewing Gongfu tea with practiced precision. The three maintained silence, first drinking a complete round.
 
-"Truly excellent tea." Li Suiqiu tasted and knew Cui Hantang had offered the finest tea—even at Zi Ming Lou before, he hadn't drunk this quality. Probably supplies reserved for Elders, the true baldies.
+"Truly exceptional tea." Li Suiqiu tasted and recognized that Cui Hantang had offered the finest available—superior even to what he had sampled previously at Zi Ming Lou. Likely supplies reserved for the Elders, the genuine baldies.
 
-Flattery works no matter what. Li Suiqiu was someone whose daily life was superior to ordinary people, born to a local gentry family, long accustomed to life's pleasures and courtesies. But being respectfully treated by these "pirate giants" rampaging through Guangdong and famous throughout the realm still felt quite satisfactory, regardless of how he inwardly resented their attempt to "usurp the throne."
+Flattery operates regardless of context. Though Li Suiqiu's daily existence exceeded ordinary standards—born to local gentry, long accustomed to life's pleasures and courtesies—being respectfully entertained by these "pirate giants" rampaging through Guangdong and renowned throughout the realm still generated considerable satisfaction, irrespective of how thoroughly he inwardly resented their attempt to "usurp the throne."
 
-"Good tea. Good tea." Li Suiqiu set down his cup.
+"Excellent tea. Excellent tea." Li Suiqiu set down his cup.
 
-"This is tea specially supplied to the Council of Elders by the General Office; can't be bought outside. Naturally it's the finest." Cui Hantang leaned back, his full-moon face wearing a half-smile. "Brother Li's visit to our humble temple for incense... our humble temple... um... this... brings radiance..."
+"This represents tea specially supplied to the Council of Elders by the General Office—unavailable for purchase externally. Naturally it ranks among the finest." Cui Hantang reclined, his moon-round face wearing an ambiguous half-smile. "Brother Li's visit to our humble temple for incense brings... our humble temple... um... this... considerable radiance..."
 
-Cui Hantang intended to use this opportunity to win over, or at least make Li Suiqiu develop some positive feelings toward New Daoism and himself, for future work.
+Cui Hantang intended to exploit this opportunity either to win Li Suiqiu over, or at minimum cultivate some positive sentiment toward New Daoism and himself, facilitating future endeavors.
 
-Actually, within the Council of Elders, there were completely different opinions about these famous historical figures of the Ming. Some believed they should try to recruit them for their use, absorbing them into the system. Others wanted to eliminate them ASAP. Most Elders on the sidelines felt indifferent, neither wanting to recruit nor eliminate—as long as they stayed home and didn't cause trouble.
+Within the Council of Elders, thoroughly divergent opinions existed regarding these historically famous Ming figures. Some advocated recruiting them for Council service, absorbing them into the system. Others pressed for their prompt elimination. Most Elders maintained indifference, neither advocating recruitment nor elimination—provided they remained home and refrained from causing disturbances.
 
-Cui Hantang belonged to the first view. Of course, he differed slightly from other Elders with similar views: he harbored certain selfish intentions, hoping to convert Li Suiqiu, the Peony Top Scholar, to New Daoism, and then gradually bring in his teacher Chen Zizhuang and the Twelve Masters of the Southern Garden one by one. Strengthening New Daoism's power.
+Cui Hantang belonged firmly to the first faction. Naturally, he diverged somewhat from other like-minded Elders: he harbored certain personal ambitions, hoping to convert Li Suiqiu, the Peony Top Scholar, to New Daoism, then gradually draw in his teacher Chen Zizhuang and the Twelve Masters of Southern Garden one by one, thereby strengthening New Daoism's influence.
 
-Of course, he hadn't mentioned this idea to anyone, because saying it would certainly get him criticized by the Council: "consorting with gentry," "corrupting the ranks," etc.
+He had, of course, mentioned this scheme to no one, recognizing that voicing it would certainly provoke Council criticism: "consorting with gentry," "contaminating the ranks," and similar accusations.
 
-But today his opening fell flat immediately, earning Li Suiqiu's disdain: hair-thieves really were crude barbarians who couldn't even exchange basic pleasantries.
+Yet today his opening gambit fell immediately flat, earning Li Suiqiu's disdain: hair-thieves truly were crude barbarians incapable of even basic pleasantries.
 
-Though thinking so, Li Suiqiu still said courteously: "Not at all, not at all. Having nothing to do at home, hearing Young Master Zhang wants to hold a blessing ritual at your esteemed temple, this student came to see the excitement."
+Though thinking thus, Li Suiqiu responded courteously: "Not at all, not at all. Having leisure at home, and hearing Young Master Zhang intends to sponsor a blessing ritual at your esteemed temple, this student came to observe the proceedings."
 
-Cui Hantang started, then realized Qing Jing must have gone to Li's home to invite "participation." Secretly praising "well done," he described the matchmaking and collective wedding in tiresome detail from beginning to end.
+Cui Hantang started, then grasped that Qing Jing must have visited the Li residence to solicit "participation." Silently praising the initiative as "well executed," he proceeded to describe the matchmaking and collective wedding at exhaustive, tedious length.
 
-Li Suiqiu listened to him boast, but it was no different from news in *Sheep City Express*. Seeing this fat Daoist spitting while speaking, his words vulgar, face full of smug satisfaction, he secretly felt distaste.
+Li Suiqiu listened to him boast, yet it differed not at all from coverage in *Sheep City Express*. Observing this corpulent Daoist spitting while speaking, his language vulgar, his expression radiating smug satisfaction, Li Suiqiu felt secret distaste rising.
 
-His cultivation was excellent; he listened expressionlessly to this "official announcement." Then slowly asked: "What the Daoist Master describes, this student has also read in the newspaper. This collective wedding is certainly a good thing, giving widowers and widows someone to depend on. It also fits the Council of Elders' claim to save all people from fire and water. But now the realm is in turmoil; countless commoners are mired in fire and water. How does the Council of Elders intend to save them?"
+His cultivation proved excellent; he listened with impassive expression to this "official announcement." Then inquired slowly: "What the Daoist Master describes, this student has likewise read in the newspaper. This collective wedding certainly constitutes a worthy enterprise, providing widowers and widows with mutual support. It aligns well with the Council of Elders' professed mission to rescue all people from fire and water. Yet the realm currently writhes in turmoil. Countless commoners remain mired in fire and water. How does the Council of Elders propose to rescue them?"
 
-Cui Hantang thought, this Li Suiqiu not only came prepared but went straight to the point, unadorned.
+Cui Hantang recognized that Li Suiqiu had arrived not merely prepared, but determined to proceed directly to substantive matters, dispensing with ornamental preliminaries.
 
-In Li Suiqiu's view, things like caring for widowers and widows were minor matters. Since the Australians invaded Guangdong, displaying a posture of contending for the Nine Provinces, he wanted to see what substance their grand ambition really had.
+In Li Suiqiu's assessment, matters like caring for widowers and widows represented minor undertakings. Since the Australians had invaded Guangdong, adopting a posture of contending for the Nine Provinces, he wished to examine what substance their grand ambition actually possessed.
 
-For Cui Hantang, this answer was difficult. Fortunately, he had imagined how to respond if similar questions arose when dealing with Guangzhou's Confucian scholars.
+For Cui Hantang, formulating an adequate response proved challenging. Fortunately, he had anticipated encountering similar questions when engaging Guangzhou's Confucian scholars.
 
-"The great situation of the realm, surely Master Meizhou sees more clearly than this humble Daoist." Cui Hantang said. "Honestly, the Ming's current situation is nothing but reversed timing, geography, and popular support."
+"The realm's great situation—surely Master Meizhou perceives it more clearly than this humble Daoist." Cui Hantang spoke deliberately. "Honestly, the Ming's present predicament amounts to nothing beyond reversed timing, geography, and popular support."
 
-"What does that mean?" Li Suiqiu became interested. Discussing national affairs and critiquing governance were what intellectuals enjoyed most since ancient times. Cui Hantang's novel viewpoint immediately touched his itch.
+"What meaning does that convey?" Li Suiqiu's interest quickened. Discussing national affairs and critiquing governance constituted intellectuals' favored pastime since antiquity. Cui Hantang's novel perspective immediately engaged his interest.
 
-"Master Meizhou has read much; you probably know that since ancient times, those who accomplish great things need both ability and luck. As they say, man proposes, heaven disposes. Heaven's will cannot be violated." Cui Hantang began mystifying. "What is heaven's will? Speaking of it seems abstruse; in reality, it mostly results from human affairs, but ordinary people take it for granted and don't pay attention."
+"Master Meizhou possesses broad learning. You doubtless know that since ancient times, those accomplishing great enterprises require both capability and fortune. As the saying holds: man proposes, heaven disposes. Heaven's will cannot be violated." Cui Hantang commenced with mystification. "What constitutes heaven's will? Discussing it appears abstruse; in reality, it largely results from human affairs—yet ordinary people accept it as given and pay no attention."

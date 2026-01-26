@@ -1,121 +1,123 @@
 # Chapter 2043 - Three Rules of Agreement
 
-"...So, Song Yingsheng has agreed to surrender?" Wen Desi asked with some surprise as he looked at Du Yibin, who had come in beaming to discuss the "Song Yingsheng" matter.
+"So... Song Yingsheng has agreed to surrender?" Wen Desi asked with mild surprise, regarding Du Yibin, who had entered beaming to discuss the "Song Yingsheng matter."
 
-"Sort of, but not completely," Du Yibin, who had come specially to report, said. "He only said he's willing to 'serve' me personally—but he has three rules."
+"In a manner of speaking—though not entirely," Du Yibin, who had come specifically to report, replied. "He says he's willing to 'serve' me personally, but he has three conditions."
 
 "Let's hear them."
 
-"First, he will not accept any title or reward from the Council of Elders."
+"First, he will accept no title or reward from the Council of Elders."
 
-"Free labor, might as well take it. Agreed."
+"Free labor works for me. Agreed."
 
-"Second, the Council of Elders cannot use his name for appeals."
+"Second, the Council may not invoke his name for public appeals."
 
-"Okay. Is he very famous?"
+"Acceptable. Is he particularly renowned?"
 
-"Sort of. The Two Songs of Fengxin..." Liu Xiang added.
+"Somewhat. The Two Songs of Fengxin..." Liu Xiang added.
 
-"Oh, that doesn't matter much."
+"Ah, that's of little consequence."
 
-"His family still has some influence in Jiangxi," Cui Hantang interjected. "His great-grandfather was a Prime Minister."
+"His family wields some influence in Jiangxi," Cui Hantang interjected. "His great-grandfather served as Prime Minister."
 
-"So a prominent local family—but it doesn't matter much."
+"A prominent local lineage, then—but still of limited consequence."
 
-"Third, he will not do anything detrimental to the Great Ming."
+"Third, he will undertake nothing detrimental to the Great Ming."
 
-Wen Desi didn't speak, but several other Elders were about to explode: This was practically a humiliating surrender treaty!
+Wen Desi remained silent, but several other Elders looked ready to explode. This was practically a humiliating surrender treaty!
 
-Du Yibin quickly added: "But he also said, as long as it benefits the common people and the locality, he will do it."
+Du Yibin hastily added: "However, he also stated that provided it benefits the common people and the locality, he will act."
 
-Wen Desi thought for a moment and said: "Agree to his terms. Since that's the case, he'll count as your personal aide—I'll approve this as a special case."
+Wen Desi considered briefly and said: "Accept his terms. Given these circumstances, he'll be counted as your personal aide—I'll approve this as a special case."
 
 "Thank you, Chief Wen!"
 
-"But since he's unwilling to surrender, we can't pay him a salary..."
+"But since he's unwilling to formally surrender, we cannot provide him a salary..."
 
-"I'll cover all his expenses."
+"I'll cover all his expenses myself."
 
-"Alright then." Wen Desi nodded. "Write up an application for this, get the Region to sign off, and report it for the record."
+"Very well." Wen Desi nodded. "Draft an application, secure the Region's signature, and file it for the record."
 
-Watching Du Yibin's back, Liu Xiang grumbled: "Little Du put so much effort into this... I don't think he was this attentive even when chasing his girlfriend."
+Watching Du Yibin's departing figure, Liu Xiang grumbled: "Little Du invested more effort in this than when he was courting his girlfriend."
 
-"Just short of kneeling and licking."
+"Just short of groveling."
 
-"Sigh, don't be so harsh, okay? We're all comrades," Liu Xiang said. "Didn't he expend all this effort for the Council of Elders?"
+"Come now, don't be so harsh. We're all comrades," Liu Xiang said. "Didn't he expend all this energy for the Council of Elders?"
 
-"Exactly!" Cui Hantang, full of food and drink, patted his belly. "Song Yingsheng is at least a scientist of our Great Han! Better than a bunch of people rushing to kneel and lick foreigners like Newton and Descartes..."
+"Precisely!" Cui Hantang, sated with food and drink, patted his belly. "Song Yingsheng is at least a scientist of our Great Han! Superior to those rushing to grovel before foreigners like Newton and Descartes..."
 
-"Since when is Song Yingsheng a scientist? It's his brother, okay!"
+"Since when is Song Yingsheng a scientist? That's his brother!"
 
-"Song Yingxing is at most a popular science writer, what kind of scientist is he? Did he discover any laws?"
+"Song Yingxing is at most a popular science writer—what sort of scientist is he? Did he discover any natural laws?"
 
-"Speaking of which, it's really pathetic. 17th-century European science is already full of stars, yet here we treat Song Yingxing and Xu Xiake like treasures!"
+"Speaking of which, it's genuinely pathetic. Seventeenth-century European science already brims with luminaries, while here we treat Song Yingxing and Xu Xiake as treasures!"
 
-"Bullshit! When our Great Han ruled East Asia, Europeans were still savages wearing furs in the woods."
+"Nonsense! When our Great Han dominated East Asia, Europeans were still barbaric fur-clad savages in the forests!"
 
-"That's all the Manchus' fault!"
+"That's entirely the Manchus' fault!"
 
-Seeing the Elders about to quarrel, Wen Desi frowned. Liu Xiang quickly said: "Let's not talk nonsense about another world. Mind the optics!"
+Observing the Elders about to quarrel, Wen Desi frowned. Liu Xiang quickly interjected: "Let's avoid discussing the other timeline. Mind the optics!"
 
-"Little Du is sincere, but that old fellow Song Yingsheng—he committed suicide for the Ming in history. Du Yibin's tossing about better not end up fetching water with a bamboo basket," Wang Jun quickly pulled the topic back.
+"Little Du is sincere, but that old fellow Song Yingsheng—he committed suicide for the Ming historically. Du Yibin's efforts better not end with empty-handed water-fetching from a bamboo basket," Wang Jun deflected the conversation back on track.
 
-Wen Desi nodded: "Ninety miles is only half of a hundred-mile journey. Little Du wants to use this wedding to make Song Yingsheng completely surrender. It's really tough for these celebrity chasers." He stretched, and his life secretary immediately served him a cup of black tea.
+Wen Desi nodded: "Ninety miles is only halfway to a hundred. Little Du wants to use this wedding to secure Song Yingsheng's complete surrender. These celebrity chasers have it tough." He stretched, and his living secretary promptly served him black tea.
 
-Wang Jun said: "The celebrities Du Yibin has his eye on are at least technical types: Song Yingxing, Wu Youxing, Fu Qingshu, Bi Maokang—technical celebrities like these can still use their strengths under our Council of Elders' rule, maybe even unleashing potential they couldn't in the Ming era. But some 'celebrities' the Council of Elders delights in trying to recruit—I think they're all reactionaries..."
+Wang Jun said: "The celebrities Du Yibin targets are at least technical specialists: Song Yingxing, Wu Youxing, Fu Qingshu, Bi Maokang—such technical figures can leverage their expertise under the Council of Elders' governance, perhaps even unleashing potential the Ming era couldn't accommodate. But some 'celebrities' the Council delights in recruiting—I consider them all reactionaries..."
 
-This remark practically named Cui Hantang. Wen Desi smiled slightly. Such debates were clichéd within the Council of Elders, dating back to the "Moli Xuan Work" days.
+This remark practically named Cui Hantang directly. Wen Desi smiled faintly. Such debates were hackneyed within the Council of Elders, dating back to the "Moli Xuan Work" days.
 
-"Can't say that entirely: these celebrities of the old era have some influence. If we can win them over for our use, it's not without benefit to our rule," Liu Xiang said. "We could set up a United*Front/Department..."
+"Can't say that entirely—these celebrities of the old era possess influence. If we can win them to our cause, it benefits our rule," Liu Xiang said. "We could establish a United Front Department..."
 
-"No, the Council of Elders doesn't have so many people to do this full-time, and most comrades are very wary of 'United**Front'—can't blame them, there are too many precedents," Wen Desi smiled. "So this work can only be done semi-officially, not as a specialized agency. I think Daoist Cui and Little Du's approach is fine—anyway, it's their personal behavior. If there are changes later, they can't say we broke our word."
+"No, the Council lacks sufficient personnel for full-time work on this, and most comrades remain deeply wary of 'United Front' activities—can't fault them, too many precedents exist," Wen Desi smiled. "This work can only proceed semi-officially, not as a specialized agency. I think Daoist Cui and Little Du's approach suffices—anyway, it's their personal initiative. If circumstances shift later, they can't claim we violated our word."
 
-Just then, Zhang Yunmi returned from the stage. She had removed her makeup, changed clothes, and was wiping sweat with a towel.
+Just then, Zhang Yunmi returned from the stage. She had removed her makeup and changed clothes, wiping perspiration with a towel.
 
-"You were dazzling on stage just now!" Liu Xiang rose to greet her. "No wonder you're the pillar of the Plaid Skirts!"
+"You were dazzling on stage just now!" Liu Xiang rose to greet her. "No wonder you're the Plaid Skirts' pillar!"
 
-"Sorry, haven't danced in a long time, a bit rusty."
+"Apologies, I haven't danced in ages—a bit rusty."
 
-"Not at all, not at all, your participation is already commendable." Wen Desi laughed. "Come! Let's toast Little Zhang! Congratulating her and the Plaid Skirt Club for firing the first shot for the Council of Elders on the new cultural front!"
+"Not at all! Your participation alone is commendable." Wen Desi laughed. "Come! Let's toast Little Zhang! Congratulating her and the Plaid Skirt Club for firing the opening salvo on the Council of Elders' new cultural front!"
 
-The Elders responded enthusiastically. Only Cui Hantang was unhappy, but he raised his glass too.
+The Elders responded enthusiastically. Only Cui Hantang appeared disgruntled, though he raised his glass as well.
 
-Gao Ju thought: This Australian woman truly isn't shy at all—not only not shy, but drinking openly with everyone! Even the most unrestrained famous courtesans he hadn't seen behave like this.
+Gao Ju reflected: This Australian woman truly possesses no shame—not only shameless, but drinking openly with everyone! Even the most uninhibited celebrated courtesans he'd encountered hadn't behaved thus.
 
-The Australians don't hurry to conquer the world, just doing this stuff every day. Gao Ju suddenly felt great concern for the Council of Elders' future.
+If the Australians don't hasten to conquer the realm, merely engaging in such activities daily... Gao Ju suddenly felt profound concern for the Council of Elders' future.
 
-"Young Master Zhang, look at this Australian song and dance, this old brother really can't understand it..." Gao Ju whispered to Zhang Yu. "You're young and close to the Elders, do you know the secret within?"
+"Young Master Zhang, regarding this Australian song and dance—this old brother truly cannot comprehend it..." Gao Ju whispered to Zhang Yu. "You're young and intimate with the Elders—do you perceive the deeper meaning?"
 
-Zhang Yu actually didn't understand either. But he read many Australian magazines and knew a bit about the term "new culture." In his dealings with Elders, he had heard some idle chatter. He vaguely understood the Australians' intentions. But he dared not openly state his thoughts. "Presumptuously guessing Heaven's will" was a great crime.
+Zhang Yu didn't understand either. But he read numerous Australian periodicals and grasped the term "new culture" somewhat. In his dealings with Elders, he'd overheard casual conversation and vaguely understood the Australians' intentions. However, he dared not openly articulate his thoughts. "Presumptuously divining Heaven's will" constituted a grave offense.
 
-He thought briefly and said: "Master Gao, in my humble opinion, the Council of Elders' governance has always been commanding and far-sighted. Far above us. Things that seem strange or even absurd to us, we only realize afterwards how correct their decisions were. If we don't understand the reason, just follow along!"
+He considered briefly and said: "Master Gao, in my humble assessment, the Council of Elders' governance has always been commanding and far-sighted, vastly surpassing our comprehension. Matters that appear strange or even absurd to us—we only realize afterwards how correct their decisions were. If we cannot fathom the reasoning, we should simply follow their lead!"
 
-Gao Ju was shaken, thinking: This Young Master Zhang is young, but his view is quite reasonable! Why should I probe into the Australians' every word and deed? Just follow and support! After all, since the Australians came to his backyard, as long as he acted according to their requirements, everything went smoothly, never suffering a loss!
+Gao Ju was struck by this insight. Why should I scrutinize the Australians' every word and action? Just follow and support! After all, since the Australians established themselves in his territory, provided he acted according to their requirements, everything proceeded smoothly—he never suffered losses!
 
-"Young brother speaks reasonably!" Gao Ju said while raising his glass to Zhang Yu. The two drank together. But Gao Ju was calculating: Does my family have a suitable girl?
+"Young brother speaks wisely!" Gao Ju raised his glass to Zhang Yu. The two drank together. Yet Gao Ju calculated internally: Does my household possess a suitable daughter?
 
-While the collective wedding was being celebrated with great jubilation at Great World, and Wang Qiyi was still up late anxiously clearing the Tianrui Garden account books, whispers could be heard from the side room of an ordinary small courtyard near Guangzhou's South City Gate. If one were close, one would discover the windows had been carefully sealed with cloth, evidently to prevent light from leaking out.
+While the collective wedding was celebrated with jubilation at the Great World, and Wang Qiyi remained awake late into the night anxiously reconciling Tianrui Garden's account books, whispers emanated from the side chamber of an ordinary modest courtyard near Guangzhou's South City Gate. Upon closer inspection, one would discover the windows had been meticulously sealed with cloth—evidently to prevent light from escaping.
 
-"Second Brother, this time it was my negligence, trusting that hair-thief. What 'according to law,' it's all deception."
+"Second Brother, this debacle resulted from my negligence, trusting that hair-thief. What 'according to law'—it's all deception."
 
-"Oh? Then tell me how this hair-thief deceives people?" The middle-aged man called "Second Brother" lightly waved a folding fan, stroking his beard while looking at the person across the table with a faint smile. Sitting opposite was none other than Advisor Liao from Luo Family's Guiren Ju.
+"Oh? Then explain how this hair-thief deceives people?" The middle-aged man addressed as "Second Brother" lightly waved a folding fan, stroking his beard while regarding the person across the table with a faint smile. Seated opposite was none other than Advisor Liao from the Luo Family's Guiren Residence.
 
-"The so-called 'according to law'—the hair-thieves shout it loudly, but in my view, it's just that the necessary tribute wasn't paid. The Luo family must have offended Zhang's running dog somewhere and got targeted..."
+"The so-called 'according to law'—the hair-thieves proclaim it loudly, but in my assessment, it merely means the necessary tribute wasn't delivered. The Luo family must have offended that running dog Zhang somewhere and became his target..."
 
-"If that were truly the case, could a fine of just over a hundred taels of silver let it slide so easily?"
+"If that were truly the case, could a fine of merely over a hundred taels of silver resolve it so easily?"
 
-"Second Brother, the hair-thieves haven't established a firm footing in Guangzhou yet. You know the wealthy families in the city often have cross-shareholdings and are interconnected. Though the Luo family isn't big, pulling one hair moves the whole body. The hair-thieves naturally have to weigh things. Over a hundred taels isn't much; it seems the hair-thief officials still want to leave some leeway for future interaction. I know to be more 'flexible' in the future..."
+"Second Brother, the hair-thieves haven't yet established firm footing in Guangzhou. You know the wealthy families in this city often maintain cross-shareholdings and are deeply interconnected. Though the Luo family isn't large, disturbing one hair moves the entire body. The hair-thieves naturally must weigh their options. Over a hundred taels isn't substantial—it appears the hair-thief officials still wish to preserve some leeway for future interaction. I understand to be more 'flexible' going forward..."
 
-"Confused!" The middle-aged man called "Second Brother" snapped his fan shut and pointed at Advisor Liao's nose. "The hair-thieves' laws are all published in the newspapers, and posted outside the government office and Salt Tax Bureau. You fool didn't even look, and still talk about tribute here!"
+"Foolish!" The middle-aged man called "Second Brother" snapped his fan shut and pointed it at Advisor Liao's nose. "The hair-thieves' laws are all published in newspapers and posted outside the government office and Salt Tax Bureau. You didn't even examine them, yet you still prattle about tribute here!"
 
-Advisor Liao looked shocked. His sworn brother had always taken good care of him, rarely losing his temper over the past decade. Today he was complaining about the hair-thieves, whom everyone hated, yet his sworn brother not only scolded him as confused but spoke up for the hair-thieves?
+Advisor Liao appeared shocked. His sworn brother had always treated him with consideration, rarely losing his temper over the past decade. Today he was complaining about the universally detested hair-thieves, yet his sworn brother not only scolded him as foolish but defended the hair-thieves?
 
-"Second Brother is right to scold." Advisor Liao, though unconvinced, could only acquiesce. Without his sworn brother's promotion, he would probably still be a lowly unranked accountant in the Liang mansion. "Tomorrow I'll send someone to copy a set to read carefully."
+"Second Brother's rebuke is justified." Though unconvinced, Advisor Liao could only acquiesce. Without his sworn brother's patronage, he would likely still be a lowly unranked accountant in the Liang mansion. "Tomorrow I'll dispatch someone to copy a set for careful study."
 
-"No need." The middle-aged man took a booklet from his sleeve and handed it to Advisor Liao. "Take this and read it."
+"No need." The middle-aged man extracted a booklet from his sleeve and handed it to Advisor Liao. "Take this and read it."
 
-Advisor Liao took the booklet with both hands. On it was written in simplified characters: *1636 Astralian Song Tax Policy Compilation*. Opening it under the light of the Australian candle on the table, he saw tax laws followed by explanations, listed item by item, clear and straightforward. Except for the hair-thieves' left-to-right horizontal text being hard to read, it was truly a good book. recalling the clerks' secretive attitude towards the Fish Scale Ledgers in the past, the Liang family must have spent considerable effort to obtain this booklet. Giving it to him now clearly meant he was to be given heavy responsibility.
+Advisor Liao accepted the booklet with both hands. It bore simplified characters: *1636 Australian Song Tax Policy Compilation*. Opening it beneath the Australian candle's glow on the table, he saw tax regulations followed by explanations, listed item by item, clear and straightforward. Aside from the hair-thieves' left-to-right horizontal text proving difficult to read, it was genuinely excellent. Recalling the clerks' secretive attitudes toward Fish Scale Ledgers in the past, the Liang family must have expended considerable effort obtaining this booklet. Presenting it to him now clearly indicated he was being entrusted with weighty responsibility.
 
-Thinking of this, Advisor Liao beamed with joy: "Many thanks, Second Brother. I will study this precious book thoroughly and do the job..."
+This realization made Advisor Liao beam with delight: "Many thanks, Second Brother. I shall study this precious tome thoroughly and execute the assignment..."
 
-"Precious book?" The middle-aged man saw Advisor Liao's expression and knew he was overthinking it, laughing despite himself. "Third Brother, you're literate too. I won't lie to you—this booklet costs just one mace of silver at the street book market." Seeing Advisor Liao's eyelids droop, the middle-aged man quickly returned to the main topic. "Third Brother, do you know about the Lin family's matter?"
+"Precious tome?" The middle-aged man observed Advisor Liao's expression and recognized he was overthinking, laughing despite himself. "Third Brother, you're literate. I won't deceive you—this booklet costs merely one mace of silver at the street book market." Seeing Advisor Liao's eyelids droop, the middle-aged man swiftly returned to the primary topic. "Third Brother, are you aware of the Lin family's matter?"
+
+**(End of Chapter)**
