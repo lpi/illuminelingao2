@@ -4,13 +4,13 @@
 
 Young Master Huang the Second stared blankly at Lin Zunxiu, utterly baffled.
 
-"Elegantly formal was Zhou; I follow Zhou." Lin Zunxiu knew this "Australian affairs expert" was out of his depth. He offered a reluctant explanation, but seeing that Huang Bingkun still didn't understand, he gave up and went to drink some cooling tea to calm himself.
+"'Elegantly formal was Zhou; I follow Zhou.'" Lin Zunxiu knew this "Australian affairs expert" was out of his depth. He offered a reluctant explanation, but seeing that Huang Bingkun still didn't understand, he gave up and went to drink some cooling tea to calm himself.
 
-"The Sage's ancestors were indeed from Song, descendants of the Yin-Shang dynasty. They were exiled by their sovereign and came to Lu as court guests." Liang Cunhou remained placid and continued to explain to Huang Bingkun.
+"The Sage's ancestors were indeed from Song, descendants of the Yin-Shang dynasty. They were exiled by their sovereign and came to Lu as court guests." Liang Cunhou remained placid and continued explaining to Huang Bingkun.
 
 So this was what "forgetting one's ancestry" meant. The Australians' insults even employed classical allusions... yet I didn't catch it myself... Huang Bingkun suddenly felt he had been humiliated.
 
-Seeing that his point had finally landed, Lin Zunxiu's temper eased somewhat. He picked up the copied document again, but after reading only a little more, he slammed it down on the table again in renewed fury.
+Seeing that his point had finally landed, Lin Zunxiu's temper eased somewhat. He picked up the copied document again, but after reading only a little more, he slammed it down on the table in renewed fury.
 
 "How dare they belittle Master Dong's great merit! How dare they compare our Sacred Teaching to debased cults and licentious worship!"
 
@@ -24,15 +24,15 @@ His outburst frightened Huang Bingkun half to death. Huang hurriedly tugged him 
 
 Though this was the Liang mansion's East Garden—a place Liang Cunhou guaranteed was "watertight" in terms of secrecy—to Huang Bingkun, the Australians' seeming "omniscience" had become a bone-deep terror.
 
-Liang Cunhou remained seated calmly, still leafing through a copy of *200 Model Essay Questions with Analysis*. This meeting was held not only within the Liang estate but specifically in the East Garden, accessible to only the innermost circle. Even the servants normally assigned here had been dismissed. The entire garden was silent as a tomb.
+Liang Cunhou remained seated calmly, still leafing through a copy of *200 Model Essay Questions with Analysis*. This meeting was held not only within the Liang estate but specifically in the East Garden, accessible only to the innermost circle. Even the servants normally assigned here had been dismissed. The entire garden was silent as a tomb.
 
 The document in Lin Zunxiu's hands was a copy of an internal meeting transcript, obtained through a "contact" two days after the Australians' cadre conference and delivered just this morning. Liang Cunhou had already read it. Seeing Lin's violent reaction, he judged it would be a while before Lin finished, so he decided to let Huang Bingkun read it first to save time.
 
 Huang Bingkun accepted it with both hands, expressing his thanks. With repeated self-deprecating apologies of "Forgive my presumption!" he unfolded the document.
 
-The transcript contained remarks made the previous afternoon by Liu Xiang and Zhang Haogu at the "Weekly Cadre Training Session." Since Han Yue's arrest, obtaining such materials had become more difficult—deliveries that once arrived the next day now took an extra day or more. But even without Han Yue, there were others... Especially of late, the Australians had begun paying their retained clerks partly in silver coins and partly in circulation vouchers. Those who had hesitated before were now far more willing to cooperate in these "harmless" matters—as long as payment was made in hard silver.
+The transcript contained remarks made the previous afternoon by Liu Xiang and Zhang Haogu at the "Weekly Cadre Training Session." Since Han Yue's arrest, obtaining such materials had become more difficult—deliveries that once arrived the next day now took an extra day or more. But even without Han Yue, there were others. Especially of late, the Australians had begun paying their retained clerks partly in silver coins and partly in circulation vouchers. Those who had hesitated before were now far more willing to cooperate in these "harmless" matters—as long as payment was made in hard silver.
 
-Nevertheless, the loss of Han Yue meant that the documents they obtained were of significantly lower classification and arrived less promptly. After all, their current contacts were mostly "retained personnel."
+Nevertheless, the loss of Han Yue meant the documents they obtained were of significantly lower classification and arrived less promptly. After all, their current contacts were mostly "retained personnel."
 
 Huang Bingkun was accustomed to reading Australian documents. In less than the time it took to drink a cup of tea, he had finished both transcripts. Seeing that this "Australian affairs expert" had completed his reading, Liang Cunhou did not hurry to pass the document on to Lin Zunxiu. Instead, he asked directly, "Has my worthy brother finished? What are your thoughts?"
 

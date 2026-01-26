@@ -1,12 +1,12 @@
 # Chapter 1872 - Out with the Old, In with the New (Part 8)
 
-These words puzzled Mu Min. "Redress," "clear the dead man's name"—it all sounded like a wrongful conviction case. But she was also told it was a murder case.
+These words puzzled Mu Min. "Redress," "clear the dead man's name"—it sounded like a wrongful conviction case. Yet she had been told it was a murder case.
 
-Looking at him, he didn't seem to be faking. There appeared to be some tremendous injustice here. Mu Min nodded: "Take her to the preliminary hearing room. I'll be there shortly."
+Looking at the policeman, he didn't seem to be faking. There appeared to be some tremendous injustice here. Mu Min nodded: "Take her to the preliminary hearing room. I'll be there shortly."
 
-"Thank you, Chief!" The policeman looked like he wanted to drop to his knees and kowtow. Mu Min smiled helplessly. These situations were becoming more and more common. Cases similar to "blocking the sedan to cry injustice" or "striking the drum to proclaim grievances" were being forwarded by municipal and district governments every day. Meanwhile, the courtroom that Judge Liang had so carefully prepared saw few visitors.
+"Thank you, Chief!" The policeman looked like he wanted to drop to his knees and kowtow. Mu Min smiled helplessly. These situations were becoming ever more common. Cases similar to "blocking the sedan to cry injustice" or "striking the drum to proclaim grievances" were being forwarded by municipal and district governments every day. Meanwhile, the courtroom that Judge Liang had so carefully prepared saw few visitors.
 
-However, looking at it another way, almost all the cases forwarded were criminal, involving human life. Either the circumstances were unclear or there were grievances—and often they were old cases. Just untangling the threads required tremendous effort.
+However, looking at it another way, almost all the forwarded cases were criminal, involving human life. Either the circumstances were unclear or there were grievances—and often they were old cases. Just untangling the threads required tremendous effort.
 
 She finished her current business and went to the preliminary hearing room. She saw that the woman filing the complaint was in her thirties, dressed gaudily, her face painted in a garish manner—she appeared to be a prostitute from the pleasure district.
 
@@ -22,7 +22,7 @@ The case itself was not complicated. Her maiden name was He, given name Xi. Born
 
 This *xiucai* surnamed Wang had studied at Wenlan Academy. Ten years ago, outraged by the trustees and managers embezzling public funds and skimming money, he had rallied fellow students to protest—at one point creating quite a stir known throughout the city.
 
-Unexpectedly, the academy Director Mo Rongxin was extremely vicious. He had colluded with the Guandi Temple faction to send con men to lure Scholar Wang into gambling. A few rigged games later, Scholar Wang was not only bankrupt but deep in debt, with even the family's modest ancestral property seized to pay debts.
+Unexpectedly, the academy Director Mo Rongxin was extremely vicious. He had colluded with the Guandi Temple faction to send con men to lure Scholar Wang into gambling. A few rigged games later, Scholar Wang was not only bankrupt but deep in debt, with even the family's modest ancestral property seized to pay what he owed.
 
 Though by then he had come to his senses and realized he had fallen into Mo Rongxin's trap, there was nothing he could do.
 
@@ -42,7 +42,7 @@ Naturally, the news spread like wildfire throughout the city—vivid tales that 
 
 These words brought tears to the policeman too. Wiping his eyes with his sleeve, he comforted her: "Don't cry. The Chief will give you justice."
 
-Mu Min was furious. Since entering Guangzhou, she had handled countless cases, seen many that would never see the light of day, but never had she encountered such a vicious scheme to destroy a family. Yet thinking it over, this had nothing to do with a criminal homicide case. Her husband had committed suicide—she acknowledged this herself. The only prosecutable charges were: one, the con men setting up the gambling trap, which could be treated as fraud; two, drugging and raping her, which constituted rape. Neither charge amounted to a capital case. Moreover, the case was more than ten years old. Physical evidence had surely all been destroyed, and witnesses were who knew where. How could a case be filed based on her testimony alone? And under what charges?
+Mu Min was furious. Since entering Guangzhou, she had handled countless cases and seen many that would never see the light of day, but never had she encountered such a vicious scheme to destroy a family. Yet thinking it over, this had nothing to do with criminal homicide. Her husband had committed suicide—she acknowledged this herself. The only prosecutable charges were: one, the con men setting up the gambling trap, which could be treated as fraud; two, drugging and raping her, which constituted rape. Neither charge amounted to a capital case. Moreover, the case was more than ten years old. Physical evidence had surely all been destroyed, and witnesses were who knew where. How could a case be filed based on her testimony alone? And under what charges?
 
 However, since this case involved Wenlan Academy and the Guandi Temple faction, it was certainly useful "black material." Mu Min made up her mind and immediately ordered that she first be taken to give a complete statement.
 

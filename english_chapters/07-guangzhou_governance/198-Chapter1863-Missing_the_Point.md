@@ -6,7 +6,7 @@
 
 "Well—we first sold this iron to the Portuguese in Macau. They resold it to other Western barbarians. The Portuguese pronounce 'Macau' as 'Ma-kou,' so the other Westerners called this iron 'Ma-kou iron'—tinplate." In the other timeline, "tinplate" had indeed derived its name this way, only in the opposite direction. Liu San borrowed this explanation to bamboozle Zhang Dai.
 
-Zhang Dai thought it over. Iron produced in Guangdong was called "Guangdong iron" or "Southern iron" elsewhere; perhaps calling this new Australian product "tinplate" wasn't unreasonable. But "only names and vessels must not be lent to others"—these Australians were truly uncouth and unlettered, allowing a bunch of foreign barbarians to dictate the name of their own product.
+Zhang Dai considered. Iron produced in Guangdong was called "Guangdong iron" or "Southern iron" elsewhere; perhaps calling this new Australian product "tinplate" wasn't unreasonable. But "only names and vessels must not be lent to others"—these Australians were truly uncouth and unlettered, allowing a bunch of foreign barbarians to dictate the name of their own product.
 
 "Products made from this tinplate—buckets, wire, and other daily necessities—work perfectly well for ordinary use. But if someone were to collect these items and melt them back into weapons, the result would inevitably be an iron-tin alloy, which is brittle and unsuitable for weapons. If earlier dynasties had possessed this understanding, they could have freely sold tinplate to the north! Exchange tinplate—usable only for daily life—for cattle, sheep, horses, and other livestock that the interior desperately needs. Whether for plowing or for meat, from a livelihood perspective it's clearly profitable."
 
@@ -14,7 +14,7 @@ This idea was certainly novel and unexpected to Zhang Dai, but in his view it wa
 
 "These Australians really are fixated on trifles!" he thought.
 
-What was the Mongol threat really about? How much could the flow of iron matter? Zhang Dai knew well that since ancient times, the Central Plains dynasties had always exceeded the surrounding barbarians a hundredfold in manpower and resources. When the dynasty was strong and prosperous and the people's livelihoods were comfortable, the petty raids of barbarians posed no threat.
+What was the Mongol threat really about? How much could the flow of iron matter? Zhang Dai knew well that since ancient times, the Central Plains dynasties had always exceeded the surrounding barbarians a hundredfold in manpower and resources. When the dynasty was strong and prosperous and the people's livelihoods comfortable, the petty raids of barbarians posed no threat.
 
 Once court politics grew dark, with treacherous officials in power and military preparedness neglected, the barbarians would seize the opportunity to strike. Whether they had iron or not was beside the point. Ultimately, to deal with barbarian incursions, one needed, first, a court with authority to overawe the four barbarians; and second, virtue to civilize the barbarians through culture.
 
@@ -90,6 +90,6 @@ Such methods might work in a single county. But with more territory, they would 
 
 The Australians were also extremely militaristic. Little Qiongzhou supported an army of several hundred thousand, built cannons and great ships, and spent money like water. How much could possibly be left for people's livelihoods? Most likely Lingao, as the Australians' capital, was lavished with money and effort, newly adorned to create an illusion of peace and prosperity—just like Emperor Yang of Sui's old trick. Beyond Lingao, things were probably quite different.
 
-Hearsay was hollow; seeing is believing. He would go and see for himself.
+Hearsay is hollow; seeing is believing. He would go and see for himself.
 
 (End of Chapter)

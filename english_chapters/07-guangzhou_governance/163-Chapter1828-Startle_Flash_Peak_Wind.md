@@ -12,7 +12,7 @@ Cui Hantang glanced at him: "The point lies in four words: 'Startle,' 'Flash,' '
 
 "This 'Startle'—some places also call it 'raw theater.' Generally it uses physical or chemical methods unknown to the public to treat props, performing effects that leave people astonished and uncertain, creating psychological awe, reverence, and trust toward the practitioner. Additionally, things like drawing talismans, reciting incantations, invoking spirits, and performing rituals are all part of 'Startle.'"
 
-"'Raw'—in jianghu jargon means 'fake.' That's quite apt." Mu Min said.
+"'Raw'—in jianghu jargon means 'fake.' That's quite apt." Mu Min observed.
 
 Cui Hantang nodded: "Now for 'Flash.' Chief Mu, since you know jianghu secret language, you know magicians are called 'Flash Artists.' As the name implies, a sorcerer's 'Flash' is magic tricks. Like this!"
 
@@ -28,9 +28,9 @@ Everyone was startled. Though they knew it was essentially a magic trick, seeing
 
 "You should become a magician." Lin Boguang laughed. "With that hand speed, stage performance would be no problem."
 
-"Please, please. Actually my skills don't compare to Zhang Biao from the Intelligence Bureau. At least with magic, I'm purely an amateur enthusiast." Cui Hantang showed rare humility—because though he understood the theory of 'Flash,' most of the actual hand techniques were taught by the quasi-magician Zhang Biao. Betraying one's teacher wouldn't do.
+"Please, please. Actually my skills don't compare to Zhang Biao from the Intelligence Bureau. At least with magic, I'm purely an amateur enthusiast." Cui Hantang showed rare humility—because though he understood the theory of 'Flash,' most of the actual hand techniques were taught by the quasi-magician Zhang Biao. Betraying one's teacher would not do.
 
-"This 'Peak' is the most powerful—the sorcerer's core skill, true abilities. Generally including martial arts, techniques, *gu*, poisons, hexes, stars (hidden weapons), and so on. Broadly speaking, astrology, navigation, dragon-vein geomancy—all count as 'Peak.' These are each school's closely-guarded secrets. Itinerant sorcerers without proper lineage transmission can't learn much 'Peak' and mainly rely on 'Flash.'
+"This 'Peak' is the most powerful—the sorcerer's core skill, their true abilities. Generally including martial arts, techniques, *gu*, poisons, hexes, stars (hidden weapons), and so on. Broadly speaking, astrology, navigation, dragon-vein geomancy—all count as 'Peak.' These are each school's closely-guarded secrets. Itinerant sorcerers without proper lineage transmission can't learn much 'Peak' and mainly rely on 'Flash.'
 
 "Finally, 'Wind' refers to reading the atmosphere, observing words and expressions, scouting locations, and gathering information. These are personal skills. There are also 'matchmakers'—meaning 'shills'—who help arrange the scene, deploy props, feed lines, and so on. When several methods are flexibly combined, the variations are truly endless, reaching almost unimaginable levels."
 
@@ -38,7 +38,7 @@ Everyone was so engrossed in his explanation that they forgot to interrupt. No o
 
 He continued: "This so-called 'ghost-rearing' has all sorts of terrifying rumors. The production process is extremely disgusting and horrifying—I won't go into details here. It's just ceremonial stuff, mostly belonging to the 'Startle' category. It makes people who see or even just hear about it feel afraid, serving to throw their minds into disarray. But the 'Peak' element genuinely has its secrets." Cui Hantang took another sip of tea, even smacking his lips, seemingly somewhat enthralled.
 
-Everyone had initially found him rather mystical, but listening further, they actually found it quite substantial. They couldn't help becoming absorbed.
+Everyone had initially found him rather mystical, but listening further, they actually found it quite substantial. They could not help becoming absorbed.
 
 "Actually, for sorcerers, 'ghost-rearing' and '*gu*-rearing' are basically the same thing. Both involve finding venomous insects, poisonous plants, and strange beasts in nature to domesticate, selectively breed, and crossbreed to make them fiercer and more toxic, then using them to harm people. Using extracted venoms or live bites to kill. Like snake venom—if the snake species is unknown, the right antivenom can't be found, making detoxification impossible. Some specialize in cultivating various human parasites, using eggs to parasitize and kill. Some supreme masters can even cultivate deadly pathogens like rabies virus, tetanus, flesh-eating bacteria, and such, killing without trace. It's essentially ancient bioweapons."
 

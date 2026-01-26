@@ -6,11 +6,11 @@ Rumor had it that Gao Tianshi had been "struck by evil." Many recounted in vivid
 
 Naturally, the rumors reached Liang Cunhou's study. Upon hearing the news, he merely smiled faintly and dismissed the servant who had brought the intelligence.
 
-It was already early summer. Outside, the sunlight blazed, harsh and dazzling. Yet standing before the carved lattice windows of the study, the air remained pleasantly cool—the sun could not penetrate the deep, overhanging eaves, casting only the shadow of the railings across the corridor.
+It was already early summer. Outside, sunlight blazed harsh and dazzling. Yet standing before the carved lattice windows of the study, the air remained pleasantly cool—the sun could not penetrate the deep, overhanging eaves, casting only the shadow of the railings across the corridor.
 
-The caged songbirds beneath the eaves had all been moved to the depths of the covered walkway to spare them the summer heat. Several maidservants stood attendance in the corridor, silent as shadows.
+The caged songbirds beneath the eaves had been moved to the depths of the covered walkway to spare them the summer heat. Several maidservants stood in silent attendance along the corridor, still as shadows.
 
-Though still dressed in the style of unmarried girls with looped braids, most of these maids had long passed the bloom of youth; two were over thirty, and the head maidservant was a middle-aged woman past forty. Guangdong practiced the custom of *gupi*—keeping bondmaids unmarried for life—and the Liang household was no exception. Those permitted to attend upon Liang Cunhou were naturally not newly purchased servants.
+Though still dressed in the braided styles of unmarried girls, most of these maids had long passed the bloom of youth. Two were over thirty, and the head maidservant was a middle-aged woman past forty. Guangdong practiced the custom of *gupi*—keeping bondmaids unmarried for life—and the Liang household was no exception. Those permitted to attend upon Liang Cunhou were naturally not newly purchased servants.
 
 Seeing the master appear at the window, the head maidservant stepped forward, ready to receive instructions. When he made no sign, she silently withdrew.
 
@@ -20,13 +20,13 @@ The Australians' upheavals within Guangzhou did not impede him—indeed, one cou
 
 But letters arriving from the countryside filled him with a sense of imminent crisis. Stewards from his estates in Nanhai, Panyu, Dongguan, and elsewhere wrote to report that the Australians had begun surveying land boundaries. The vast tracts of "hidden fields" would likely remain hidden no longer.
 
-That was secondary. The crux of the matter was that the land surveys would inevitably dredge up the old issue of "dedicated" lands—properties that had been nominally transferred to his family to evade taxes. Rumor had it that the Australians would soon issue new land deeds, following the same policy they had implemented in Hainan and elsewhere: if the original owners of "dedicated" lands did not come forward to clarify matters and re-register their deeds, the former owners' claims would no longer be recognized.
+That was secondary. The crux of the matter was that land surveys would inevitably dredge up the old issue of "dedicated" lands—properties nominally transferred to his family to evade taxes. Rumor had it that the Australians would soon issue new land deeds, following the same policy they had implemented in Hainan and elsewhere: if the original owners of "dedicated" lands did not come forward to clarify matters and re-register their deeds, the former owners' claims would no longer be recognized.
 
-Once this became known, many of the landlords and rich farmers who had formerly dedicated their properties to the Liang family grew restless. Though no one had yet openly demanded the return of their deeds, there was a constant clamor for the Liangs to "find a solution." Some had even come to inquire in person.
+Once this became known, many landlords and rich farmers who had formerly dedicated their properties to the Liang family grew restless. Though no one had yet openly demanded the return of their deeds, there was constant clamor for the Liangs to "find a solution." Some had even come to inquire in person.
 
-Although the Australians had followed Ming precedent for this summer's tax levy and would likely do the same in autumn, the "rectification of land taxes" was clearly imminent!
+Although the Australians had followed Ming precedent for this summer's tax levy and would likely do the same in autumn, the "rectification of land taxes" was clearly imminent.
 
-If he could not devise a countermeasure soon, the Liang estates in every county would quickly disintegrate. This sprawling clan, seemingly flourishing and prosperous, would be a tree without roots the moment the tenant rents ceased to flow—it would come crashing down in an instant.
+If he could not devise a countermeasure soon, the Liang estates in every county would quickly disintegrate. This sprawling clan, seemingly flourishing and prosperous, would be a tree without roots the moment tenant rents ceased to flow—it would come crashing down in an instant.
 
 Deep in thought, he was interrupted when Suixue glided silently from the recesses of the study and whispered a few words in his ear. He nodded immediately and turned to walk into the back of the study.
 
@@ -70,7 +70,7 @@ Liang Cunhou understood his meaning. "I grasp your intent, Reverend. I shall do 
 
 After seeing off the Wooden Stone Daoist, Liang Cunhou knew this would not be easy. Although the Liang family had long maintained contact with the Australians—even co-sponsoring a charitable hall—by rights they should have been poised to become the hottest "new Australian elite" after the Gao family. Yet ever since He Rubin's ill-fated maritime expedition and the Australians' burning of the Wuyang Relay Station, relations between the Liangs and the Australians had grown distant. Over the past few years, their interaction had been limited to the exchange of condolence letters and ceremonial gifts. After the Australians entered the city, the Liang family had neither sought to curry favor nor responded enthusiastically to invitations. As a result, the relationship had not only failed to recover but had grown even colder.
 
-After the Fangchun Courtyard incident, Liang Cunhou realized that his family was already under Australian "scrutiny." If he personally submitted the proposal, the Australians would view it as "offering flattery for no good reason." And should some geomantic expert among them discern the scheme, he would be bringing eternal ruin upon himself!
+After the Fangchun Courtyard incident, Liang Cunhou realized that his family was already under Australian "scrutiny." If he personally submitted the proposal, the Australians would view it as "offering flattery for no good reason." And should some geomantic expert among them discern the scheme, he would be bringing eternal ruin upon himself.
 
 So he absolutely could not step forward himself. Someone else was needed—someone the Australians trusted, yet who had no connection to him.
 

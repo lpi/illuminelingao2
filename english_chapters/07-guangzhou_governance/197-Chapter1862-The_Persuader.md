@@ -1,14 +1,14 @@
 # Chapter 1862 - The Persuader
 
-Liu San started, because in Lingao the ice-pop business was mostly monopolized by the Red Flower Society, and the Red Flower Society used enameled insulated containers across the board. No one used wooden boxes and cotton quilts. After coming to Guangzhou, he hadn't failed to notice that local vendors used different equipment—he had simply assumed from memory of Lingao conditions that it was the same here.
+Liu San started, for in Lingao the ice-pop business was mostly monopolized by the Red Flower Society, and the Red Flower Society used enameled insulated containers across the board. No one used wooden boxes and cotton quilts. After coming to Guangzhou, he hadn't failed to notice that local vendors used different equipment—he had simply assumed from memory of Lingao conditions that it was the same here.
 
-Being questioned like this was rather embarrassing. Throughout today's conversation, he had held the initiative. Watching this historically renowned figure do nothing but nod, ask questions, and agree while he held forth, he had grown condescending. He hadn't expected to be caught in an error, and the other party's casually understated question had left him somewhat flustered.
+Being caught out like this was rather embarrassing. Throughout today's conversation, he had held the initiative. Watching this historically renowned figure do nothing but nod, ask questions, and agree while he held forth, he had grown condescending. He hadn't expected to be challenged on an error, and the other party's casually understated question had left him flustered.
 
 He cursed himself for being muddle-headed. Ice-pop vendors using wooden boxes and cotton quilts—this was true not only in Guangzhou but even in the old timeline! What small vendor ever used an enameled vat to sell popsicles? He had completely forgotten!
 
 The example had been a stretch to begin with. Now that Zhang Dai had pointed it out, Liu San suddenly realized that the entire conversation had been meaningless—he hadn't actually convinced Zhang Dai of anything fundamental. The only reason Zhang Dai had maintained such a humble attitude was, first, that he was genuinely interested in these "cunning trifles" and was willing to listen to Liu San ramble; and second, Liu San had the authority of a "local host," so Zhang Dai had no choice but to listen.
 
-These pedantic scholars—truly incorrigible reactionary literati! Liu San cursed inwardly, looking at Zhang Dai's calm expression.
+"These pedantic scholars—truly incorrigible reactionary literati!" Liu San cursed inwardly, looking at Zhang Dai's calm expression.
 
 He gave a couple of dry laughs: "You're quite right, sir. That example was indeed inappropriate."
 
@@ -22,13 +22,13 @@ After speaking a few sentences, Zhang Dai fell silent again, clearly waiting for
 
 Having come this far, Liu San had no choice but to soldier on and complete the routine.
 
-"You're quite right, sir; favorable conditions are indeed essential." Liu San said, "Beyond 'benefiting people's livelihoods,' the principles of technology themselves have great applications for the military, the state, and the people!" Liu San tried to steer the topic in the direction they had discussed.
+"You're quite right, sir; favorable conditions are indeed essential." Liu San said, "Beyond 'benefiting people's livelihoods,' the principles of technology themselves have great applications for the military, the state, and the people!" He tried to steer the topic in the direction they had discussed.
 
 Zhang Dai maintained his smile. He now understood: from Shopkeeper Yang to Element Liu, despite their different identities, both were performing the work of "persuaders."
 
 As for their purpose—nothing more than to proclaim that the Australians' "cunning trifles" were a "true Way" equal to or even superior to the Way of Confucius.
 
-To be fair, Zhang Dai was not averse to the Australians' "cunning trifles." During his stay in Guangzhou, he had read many Australian books and newspapers and heard the discussions of the Jade Source Society. He held a positive view of various Australian practices. But in his view, these were merely "techniques"—beneficial to the nation and people when used well, but harmful to human nature when used badly. They were far from constituting "the Way," much less surpassing "the Great Way."
+To be fair, Zhang Dai was not averse to the Australians' "cunning trifles." During his stay in Guangzhou, he had read many Australian books and newspapers and heard the discussions of the Jade Source Society. He held a positive view of various Australian practices. But in his view, these were merely "techniques"—beneficial to the nation and people when used well, harmful to human nature when used badly. They were far from constituting "the Way," much less surpassing "the Great Way."
 
 However, he had no intention of debating with the Australians. From their elaborate arrangements, it was clear they hoped to win him over. This made him both wary and somewhat gratified—yet his gratification was tinged with resentment: even these overseas Australians valued him so highly, yet the court treated him as nothing!
 

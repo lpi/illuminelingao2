@@ -1,8 +1,10 @@
 # Chapter 1899 - Swallowing the Whale
 
+## Swallowing the Whale
+
 "No need to worry—this is all superstition, and we don't encourage it." Cui Hantang laughed heartily, then bellowed: "Jiang Ziya is here!"
 
-Fu Meng had no idea what that was all about. But the spectacle dampened everyone's enthusiasm for striking the bell, and they each returned to their rooms to sort their belongings and rest for a while.
+Fu Meng had no idea what that was about. But the spectacle dampened everyone's enthusiasm for striking the bell, and they each returned to their rooms to sort their belongings and rest for a while.
 
 Cui Hantang's current mood was rather like that of a nouveau riche showing off a newly purchased villa to his guests. Among the confidential mail that had arrived with this batch of visitors were two letters of appointment. One was from New Daoism, bearing the seal of Daoqianzi, the official stamp of New Daoism, and the authentication seal of the Religious Affairs Office. It formally appointed Cui Hantang as "Chief Priest of the Guangzhou Diocese and Abbot of the Temple of the Five Immortals." The second was from the Organization Department, appointing him "Chief of the First Section, New Daoism Division, Religious Affairs Office, concurrently serving as Superintendent of the Temple of the Five Immortals."
 
@@ -14,7 +16,7 @@ A spy, just days after moving in? Cui Hantang found this strange. Could this be 
 
 Before long, Qingyun and the others dragged and shoved a middle-aged man into the room. He wore a patched Daoist robe and a worn Dongpo cap that had burst its seams—looking quite destitute.
 
-"Master, this is the spy. He's been lurking suspiciously on the streets outside the temple for several days now. I spotted him earlier, and today when he snuck in, I nabbed him." After speaking, she looked expectantly at Cui Hantang, her expression clearly saying "Praise me!"
+"Master, this is the spy. He's been lurking suspiciously on the streets outside the temple for several days now. I spotted him earlier, and today when he snuck in, I nabbed him." After speaking, she looked expectantly at Cui Hantang, her expression clearly saying *Praise me!*
 
 Before Cui Hantang could speak, the man on the ground began crying out his innocence: "Great State Preceptor, I've been wronged, State Preceptor!"
 
@@ -44,7 +46,7 @@ It turned out that "Houdao Ren's" family had been temple Daoists for generations
 
 This "Houdao Ren" was not only versed in the *Daodejing*, *Huangtingjing*, and *Xuehujing*, but was also skilled in talismanic arts, physiognomy, and feng shui geomancy. Against the backdrop of the era's general decline in Daoist practice, he was like a goose appearing amidst chickens.
 
-This man could be very useful indeed, Cui Hantang thought. At the very least, he could be delegated to handle many Daoist ceremonies and rituals, sparing Cui the effort of doing everything himself. As for the rituals that Daoqianzi had modified beyond recognition—with Archpriest Houdao's level of mastery, relearning them shouldn't prove too difficult.
+*This man could be very useful indeed*, Cui Hantang thought. At the very least, he could be delegated to handle many Daoist ceremonies and rituals, sparing Cui the effort of doing everything himself. As for the rituals that Daoqianzi had modified beyond recognition—with Archpriest Houdao's level of mastery, relearning them shouldn't prove too difficult.
 
 That night, Archpriest Houdao stayed up late to pay his respects to Cui Hantang, presenting him with a "Treatise on Guangzhou's Feng Shui." Cui Hantang flipped through it and felt "most gratified." Seeing his keen interest, Archpriest Houdao cautiously inquired about Cui Hantang's plans for protecting Guangzhou's feng shui and dragon veins.
 
@@ -62,7 +64,7 @@ Afterward, over a dozen of the temple's scattered former Daoists gradually retur
 
 Charity food was hard to eat and wouldn't last forever. Now, hearing Archpriest Houdao's news, they came flocking back. Cui Hantang took them all in.
 
-And so the various parties settled into the Temple of the Five Immortals. Every morning, Cui Hantang led the disciples in practicing Taiji boxing, Taiji sword, and meditation in the small plaza before the temple's central hall. After returning to their quarters, they studied cultural subjects. Following Australian custom: Monday, Wednesday, and Friday were for Lingao's Cultural Education editions of *Elementary Physics*, *Elementary Biology*, and *Elementary Geography*; the Ministry of Health's compilations *Traditional Chinese Medicine Knowledge* and *Simple Treatment Manual*; Tuesday, Thursday, and Saturday were for studying the *Daodejing*, *Qingjongjing*, and *Huangtingjing*—naturally including the editions revised by Archpriest Zhang Yingchen. Afternoons featured rotating lessons in practical skills such as "painting," "calligraphy," "medicine preparation," "musical instruments," "massage," and "handicrafts." Weekends were devoted to physical exercise. Leisure time occasionally included "basketball," "badminton," and "singing Daoist ballads" for entertainment.
+And so the various parties settled into the Temple of the Five Immortals. Every morning, Cui Hantang led the disciples in practicing Taiji boxing, Taiji sword, and meditation in the small plaza before the temple's central hall. After returning to their quarters, they studied cultural subjects. Following Australian custom: Monday, Wednesday, and Friday were for Lingao's Cultural Education editions of *Elementary Physics*, *Elementary Biology*, and *Elementary Geography*; the Ministry of Health's compilations *Traditional Chinese Medicine Knowledge* and *Simple Treatment Manual*; Tuesday, Thursday, and Saturday were for studying the *Daodejing*, *Qingjingjing*, and *Huangtingjing*—naturally including the editions revised by Archpriest Zhang Yingchen. Afternoons featured rotating lessons in practical skills such as "painting," "calligraphy," "medicine preparation," "musical instruments," "massage," and "handicrafts." Weekends were devoted to physical exercise. Leisure time occasionally included "basketball," "badminton," and "singing Daoist ballads" for entertainment.
 
 The temple's miscellaneous affairs were also managed by the disciples on rotating shifts, with daily duty rotations. In the temple's vacant spaces, vegetable gardens were cultivated, with disciples taking turns at gardening. Before long, the entire Temple of the Five Immortals was running in perfect order—much to the surprise of Liu Xiang, who was busily preparing his religious reform initiative.
 
@@ -73,3 +75,5 @@ Cui Hantang himself was kept busy on multiple fronts: drilling the Lingao discip
 At the same time, he was preoccupied with preparations for establishing the "Guangzhou Municipal Daoist Federation"—indeed, he was already calculating how to unify all of Guangzhou's Daoist community under his control.
 
 This project was something he had personally lobbied for, though naturally it had required some unsavory dealings with Mayor Liu. The general principle was that Mayor Liu would seize the temples' properties: the vast lands, the rented shops and residences... New Daoism, in turn, would use the Daoist Federation as the vehicle to bring these temples under a new management system, thereby gaining complete administrative control over the old Daoist temple network.
+
+(End of Chapter)

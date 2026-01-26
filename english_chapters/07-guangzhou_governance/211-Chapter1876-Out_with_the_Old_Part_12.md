@@ -1,6 +1,6 @@
 # Chapter 1876 - Out with the Old, In with the New (Part 12)
 
-The time was half past six in the evening. In August, daylight still lingered. Outside the Golden Flower Temple, the Australians' newly trained constables—now called police—had surrounded the place three layers deep, impenetrable. The *baojia* heads and ward leaders of several nearby wards had also brought out "public order activists" to stand watch outside and maintain order.
+The time was half past six in the evening. In August, daylight still lingered. Outside Golden Flower Temple, the Australians' newly trained constables—now called police—had surrounded the place three layers deep, impenetrable. The *baojia* heads and ward leaders of several nearby wards had also brought out "public order activists" to stand watch outside and maintain order.
 
 Several nearby street corners were blocked with barricades. Everyone entering or exiting was questioned; suspicious individuals were temporarily detained until the local ward head or *baojia* head could come vouch for them and take them back.
 

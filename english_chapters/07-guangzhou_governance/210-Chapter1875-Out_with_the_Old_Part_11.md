@@ -44,7 +44,7 @@ The gunfire outside gradually tapered off, but the commotion grew louder. Dense 
 
 "I hear so. But who exactly they're after, I don't know. At the gate, all I saw were troops passing on the street—not just police, but what they call National Army... even Japanese and Koreans were out..."
 
-Everyone discussed animatedly. Such a city-wide roundup hadn't happened in a long time—who could be so important as to make the Australians deploy such force?
+Everyone discussed animatedly. Such a citywide roundup hadn't happened in a long time—who could be so important as to make the Australians deploy such force?
 
 Though full of questions, hearing it was just a citywide sweep and not Ming forces returning, the scholars' expressions relaxed considerably. As the saying went, troops passing were like bandits—but the Australians were an exception! If Ming government troops really returned, there wouldn't even be time to flee.
 

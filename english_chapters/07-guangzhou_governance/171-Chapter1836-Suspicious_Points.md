@@ -2,98 +2,102 @@
 
 Suiyun wept softly: "This servant dares not do it again."
 
-"Carry her down!" Yuewan said. "Go to my room to get medicine and apply it to her. Let her recuperate well."
+"Carry her away," Yue Wan ordered. "Go to my room for the medicine and apply it to her. Let her rest and recuperate."
 
-Lian Nishang saw that Mingnu had been rescued, and the testimonies of the people in the courtyard didn't implicate any other illegal human trafficking. There was no point in watching this *laoju* display her authority here. However, the matter of selecting a maid based on birth dates still aroused her suspicion.
+Lian Nishang saw that Mingnu had been rescued and that the testimonies of those in the courtyard hadn't implicated any other illegal human trafficking. There was no point in remaining here, watching this *laoju* display her authority. However, the matter of selecting a maid by birth date still aroused her suspicion.
 
-Although Yuewan's explanation was reasonable, the "Mao Family Inn Mass Murder Case" currently under investigation involved a large number of boys and girls and content about birth dates. At this critical juncture, this woman suddenly wanting to pick a girl with a special horoscope and attribute to be a maid was inevitably suspicious.
+Though Yue Wan's explanation had been reasonable, the "Mao Family Inn Mass Murder Case" currently under investigation involved large numbers of boys and girls and content related to birth dates. At this critical juncture, for this woman to suddenly want to pick a girl with special horoscope attributes to serve as her maid—it was inevitably suspicious.
 
-She immediately ordered the servant women and male servants in the courtyard to be brought in one by one, asking if they knew about inviting a Daoist priest to tell Yuewan's fortune.
+She immediately ordered the servant women and male servants in the courtyard brought in one by one to ask if they knew about inviting a Daoist priest to tell Yue Wan's fortune.
 
-Except for the house guards responsible for night watch and rough work, everyone said it was true. They also said it was common to select people around based on horoscopes. The proof was that the maids and servants around Yuewan had been changed over a month ago. The servants who originally had conflicting horoscopes or clashing attributes with her had all returned to the Liang Residence.
+Except for the house guards responsible for night watch and rough work, everyone confirmed it was true. They also said it was common practice to select attendants based on horoscopes. The proof: the maids and servants around Yue Wan had been changed over a month ago. Those servants whose horoscopes happened to clash or conflict with hers had all been returned to the Liang Residence.
 
-After a round of questioning, there were no suspicious points. Li Ziyu had leaked the bottom line just now, feeling a bit guilty of having an "unstable stance." Furthermore, since Mingnu was already found, insisting on further search would inevitably smack of "personal revenge." So he proposed to withdraw and return to focus on handling the Fangchun Court case.
+After a round of questioning, no suspicious points emerged. Li Ziyu, having inadvertently revealed his connection to Mingnu earlier, felt somewhat guilty about his "unstable stance." Furthermore, since Mingnu was already found, insisting on further searching would inevitably reek of "personal revenge." He proposed withdrawing to focus on handling the Fangchun Court case.
 
-"I'm still not at ease." Lian Nishang pondered again and again. "After all, this courtyard is Fangchun Court's place. Searching it won't take much effort." She then told Yuewan to gather everyone in the courtyard and then search the entire courtyard.
+"I'm still not satisfied," Lian Nishang said, pondering the matter. "After all, this courtyard is part of Fangchun Court's premises. Searching it won't take much effort." She then instructed Yue Wan to gather everyone in the courtyard while they searched the entire compound.
 
-"Search this courtyard..." Yuewan seemed a bit surprised, showing a difficult expression. "Officer, you see clearly, this servant usually serves the master. There are many women's items in the room. It seems, it seems, very inconvenient... Please exempt the search, officer."
+"Search this courtyard..." Yue Wan seemed taken aback, her expression turning reluctant. "Officer, you see clearly—this servant usually attends to the master. There are many women's... items... in the rooms. It seems, it seems very inconvenient... Please exempt the search, officer."
 
-Lian Nishang couldn't help blushing. She roughly knew what these "women's items" were. Still a virgin, she felt a bit embarrassed and said: "Don't worry, we are just looking to see if there are suspicious people in the courtyard. We won't rummage through your things, let alone touch private items."
+Lian Nishang couldn't help but blush. She had a rough idea what these "women's items" might be. Still unmarried herself, she felt a twinge of embarrassment. "Don't worry," she said. "We're just looking to see if there are suspicious persons in the courtyard. We won't rummage through your things, let alone touch private items."
 
-With a face full of reluctance, Yuewan barely agreed.
+With obvious reluctance on her face, Yue Wan barely agreed.
 
-Because it involved a woman's boudoir, Lian Nishang didn't ask the police officers to follow. She only named Li Ziyu to accompany her to inspect the small courtyard once. Seeing the exquisite furnishings and magnificent utensils, including many Australian goods, Li Ziyu sighed secretly while watching. In such a first-class wealthy household, it was truly hard to imagine given his experience.
+Because it involved a woman's boudoir, Lian Nishang didn't ask the police officers to accompany her. She named only Li Ziyu to follow as she inspected the small courtyard. Seeing the exquisite furnishings and magnificent utensils—including many Australian goods—Li Ziyu sighed to himself as he walked. In such a first-class wealthy household, it was truly beyond anything his experience could have imagined.
 
-After the search, she called the roll one by one. There were no suspicious persons, nor were any critical items found. In the study, there were cupboards of Liang Cunhou's private letters and account books. But since this wasn't a major case and there was no search warrant, Lian Nishang naturally couldn't take them out for detailed inspection.
+After the search, she called the roll one by one. There were no suspicious persons, nor were any critical items found. In the study stood cupboards full of Liang Cunhou's private letters and account books. But since this wasn't a major case and there was no search warrant, Lian Nishang naturally couldn't take them out for detailed inspection.
 
-After the inspection, Yuewan saw everyone to the door, exchanged a few polite words, and saw them leave. Only then did she tell the house guards to get some reed mats to cover the door from the back courtyard, and find a carpenter to repair it tomorrow. Then she returned to the main room courtyard.
+After the inspection, Yue Wan escorted everyone to the door, exchanged a few polite words, and watched them leave. Only then did she instruct the house guards to find some reed mats to cover the broken doorway from the back courtyard, and to locate a carpenter for repairs tomorrow. Then she returned to the main room courtyard.
 
-A little maid served tea. She took a shallow sip and let out a long breath. She asked: "How is Suiyun?"
+A little maid served tea. She took a shallow sip and exhaled slowly. She asked: "How is Suiyun?"
 
 "Medicine has been applied," the maid replied.
 
-"Tell Liang Shun to go back to the residence to report to the Young Master. Tell him what happened today, and ask a doctor for Suiyun."
+"Tell Liang Shun to return to the residence and report to the Young Master. Tell him what happened today, and ask a doctor for Suiyun."
 
-"Need to send a letter?"
+"Should we send a letter?"
 
-"No need. Tell Liang Shun to say whatever he saw just now. If police question him on the way, tell the truth."
+"No need. Have Liang Shun describe whatever he witnessed just now. If police question him on the way, tell the truth."
 
-Shortly after the little maid retreated, another maid came in carrying a plate of dim sum. She put down the dim sum but didn't leave. Yuewan waited for her to close the room door before whispering: "Are the things okay?"
+Shortly after the little maid withdrew, another maid entered carrying a plate of dim sum. She set down the snacks but didn't leave. Yue Wan waited until the room door closed before whispering: "Are the things safe?"
 
-The maid replied: "Don't worry. The things are all fine. I was also betting, betting they wouldn't rummage through things indiscriminately—the Aussie yamen runners are indeed incorruptible and rule-abiding as outsiders say! Thanks to their incorruptibility, otherwise this matter would have definitely implicated the Young Master!" Saying this, she patted her chest: "I was scared to death! Thanks to you stalling them in front, otherwise just those books on the table..."
+The maid replied: "Don't worry—everything is fine. I was gambling on them not rummaging through things indiscriminately—and the Australian yamen runners are indeed incorruptible and rule-abiding, just as outsiders say! Thanks to their incorruptibility, otherwise this matter would definitely have implicated the Young Master!" She patted her chest. "I was terrified! Thanks to you stalling them out front—otherwise, just those books on the table alone..."
 
-Yuewan shook her head, signaling her to stop talking.
+Yue Wan shook her head, signaling her to stop.
 
-"It's just wronged Suiyun." The maid said, "I see the hair-thief police have already become suspicious of this place. The things still need to be moved to another place as soon as possible."
+"It's just a shame about Suiyun," the maid said. "I sense the hair-thief police have already grown suspicious of this place. The items should be moved elsewhere as soon as possible."
 
-The maid speaking was Surui, one of Liang Cunhou's personal maids. She didn't serve Yuewan originally but came specifically to deliver items today. unexpectedly encountering this event.
+The maid speaking was Surui, one of Liang Cunhou's personal maids. She didn't ordinarily serve Yue Wan but had come specifically to deliver items today—and unexpectedly encountered this incident.
 
-In the instant Suiyun couldn't withstand the Hair-thief police, the two divided the work: Yuewan went out to stall the Australians, while Surui hid the potentially problematic items in the back.
+In the instant Suiyun couldn't withstand the Hair-thief police, the two had divided their labor: Yue Wan went out to stall the Australians while Surui hid the potentially problematic items in the back.
 
-"It's also lucky you were here, Sister. Anyone else would probably have been blind." Yuewan whispered. "The things can't be moved now. Who knows if the Australians have set a trap outside? Hiding them here for a while is okay. If the situation becomes urgent, just burn them. It's just that with this girl gone and Fangchun Court in trouble, finding another one will be difficult..."
+"It's also lucky you were here, Sister. Anyone else would probably have been blind to it," Yue Wan whispered. "The things can't be moved now. Who knows if the Australians have set an ambush outside? Hiding them here for a while is acceptable. If the situation becomes urgent, just burn them. It's only that with this girl gone and Fangchun Court in trouble, finding another one will be difficult..."
 
-"This isn't an urgent task," Yuewan said with worry in her eyes. "Please ask Sister to go back and tell the Young Master: in everything, it's better to stand firm first. The hair-thieves are different from the Great Ming after all..."
+"This isn't an urgent task," Yue Wan said, but worry showed in her eyes. "Please ask Sister to return and tell the Young Master: in all things, it's better to first secure a stable footing. The hair-thieves are different from the Great Ming, after all..."
 
-Lian Nishang returned to the police station and first reported the situation to Mu Min. listening to her report, Mu Min nodded: "You did well. But you made a mistake."
+***
 
-"I know breaking in to search was a bit rash—" Lian Nishang thought the Chief was blaming her for breaking in to search without asking for instructions.
+Lian Nishang returned to the police station and first reported the situation to Mu Min. Listening to her account, Mu Min nodded: "You did well. But you made a mistake."
 
-"No." Mu Min said. "The power of spot checks lies with you. If you feel suspicious and the place is indeed within Fangchun Court's scope, there is nothing inappropriate about going in to search—the Senate doesn't recognize any extraterritoriality—only that spot checks rely on suddenness, catching suspects off guard so they don't have time to hide their evidence. You entangled with that Yuewan in the front for so long; even if there were a big living person, they would have hidden them."
+"I know breaking in to search was somewhat rash—" Lian Nishang assumed the Chief was criticizing her for forcing entry without first asking for instructions.
 
-Lian Nishang suddenly realized. Thinking of Yuewan kowtowing, saying good words, then scolding and punishing the maid, forty strokes then another twenty—she originally thought it was to curry favor with her or vent anger, but it turned out to be acting to delay! Her face turned red, her fists clenched, filled with regret and hatred: "I didn't expect to fall for her trick!"
+"No." Mu Min shook her head. "The power of spot checks lies with you. If you felt suspicious and the location was indeed within Fangchun Court's scope, there was nothing inappropriate about going in to search—the Senate doesn't recognize any extraterritoriality. The problem is that spot checks depend on suddenness, catching suspects off guard so they don't have time to hide evidence. You spent so much time entangled with that Yue Wan out front; even if there had been a living person hidden inside, they would have been concealed by then."
 
-"You don't have to blame yourself," Mu Min said. "This girl's birth date is indeed very suspicious. Write down her horoscope and zodiac sign in the report. We will ask experts to judge—whether this matter has any connection with the Mao Family Inn case."
+Lian Nishang suddenly understood. Thinking back on Yue Wan's performance—kowtowing, speaking sweetly, then scolding and punishing her maid, forty strokes then another twenty—she had originally thought it was either currying favor or venting anger. It turned out to be a delaying performance! Her face reddened, her fists clenched with regret and self-reproach: "I didn't expect to fall for her trick!"
 
-Lian Nishang said "Yes." Mu Min added: "But this time you didn't come back empty-handed. At least it shows this Master Liang has some unspeakable dealings in Fangchun Court. We'll investigate slowly later. You go."
+"You needn't blame yourself too harshly," Mu Min said. "This girl's birth date is indeed very suspicious. Write down her horoscope and zodiac sign in the report. We'll have experts judge whether this matter has any connection with the Mao Family Inn case."
+
+"Yes," Lian Nishang said. Mu Min added: "But this time you didn't come back empty-handed. At least it shows this Master Liang has some improper dealings in Fangchun Court. We'll investigate slowly. You may go."
 
 Lian Nishang saluted and was about to leave when Mu Min stopped her: "How is that girl?"
 
-"She is with Li Ziyu now. It seems she is physically fine, just suffered a great fright. Tomorrow her parents will sign a bond to take her back."
+"She's with Li Ziyu now. Physically she seems fine, just badly frightened. Tomorrow her parents will sign a bond to take her back."
 
-"No, no rush for that. You take care of the child for a few days first—Li Ziyu is a man after all," Mu Min said. "She might know a lot of information. Talk to her when she calms down."
+"No—no need to rush that. You take care of the child for a few days first. Li Ziyu is a man, after all," Mu Min said. "She might know useful information. Talk to her once she's calmed down."
 
-After Lian Nishang left, Mu Min called Wu Mu and told him the situation in Fangchun Court.
+After Lian Nishang departed, Mu Min summoned Wu Mu and briefed him on the situation at Fangchun Court.
 
-"Although no suspicious signs were found. But judging from the performance of Yuewan and others, there must be problems in his outer residence in Fangchun Court."
+"Though no suspicious evidence was found, judging from the behavior of Yue Wan and the others, there must be problems in his outer residence at Fangchun Court."
 
-"I'll arrange manpower to monitor immediately." Wu Mu said.
+"I'll arrange manpower to monitor immediately," Wu Mu said.
 
-Li Ziyu took Mingnu back to the police station and first got some hot food for her from the cafeteria—Fangchun Court didn't allow the *pipazai* to eat and drink at will. Not only did they eat little, but various medicinal materials were often added, said to be used for "nurturing appearance." This made her always feel hungry. Seeing the steaming food now, she ate wolfishly.
+***
 
-Li Ziyu told her to eat slowly several times, looking at this friend's niece with pity. He had watched Mingnu grow up. Before she grew her hair out, she used to follow behind them calling "Uncle." He and Zhang Yu often teased her. Watching her eat reminded him of her innocent and cute appearance as a young child. A burst of tenderness rose in his heart.
+Li Ziyu brought Mingnu back to the police station and first fetched some hot food for her from the cafeteria. Fangchun Court didn't allow the *pipazai* to eat and drink freely. Not only were their portions scant, but various medicinal materials were often added, supposedly for "nurturing their complexion." This left her perpetually hungry. Seeing the steaming food before her now, she wolfed it down ravenously.
 
-But keeping this child in the police station wasn't a solution. However, letting Zeng Juan take her back wasn't legal—Zeng Juan wasn't the guardian. As for calling her parents, wouldn't that be just out of the wolf's den and into the tiger's mouth? Moreover, Mingnu's stepmother was suspected of human trafficking.
+Li Ziyu urged her several times to eat slowly, watching his friend's niece with pity. He had seen Mingnu grow up. Before she was old enough to put her hair up, she used to trail after them calling "Uncle." He and Zhang Yu had often teased her. Watching her eat brought back memories of her innocent, adorable childhood self. A surge of tenderness rose in his heart.
 
-Lian Nishang returned and conveyed Mu Min's meaning. Li Ziyu said: "Section Chief, you are so busy with work, how can I let you help take care of a child! How about I take her home and let my mother look after her."
+But keeping this child at the police station wasn't a solution. And letting Zeng Juan take her back wasn't legal—Zeng Juan wasn't her guardian. As for calling her parents, wouldn't that be jumping from the wolf's den into the tiger's jaws? Moreover, Mingnu's stepmother was suspected of human trafficking.
 
-Lian Nishang heard this and it fit her wishes exactly. But she thought for a moment and said: "This might be inappropriate. You have old ties with this child, right? If you take her to your home, you might have an unstable stance when handling the case in the future."
+Lian Nishang returned and conveyed Mu Min's meaning. Li Ziyu said: "Section Chief, you're so busy with work—how can I burden you with looking after a child! How about I take her home and let my mother watch her?"
 
-Hearing her tone, Li Ziyu knew she didn't mean to blame him, and immediately said gratefully: "It doesn't matter. She's not my relative. This child is now a witness and has nowhere to go. If I, the handling officer, don't take her back, should I send her to that ghostly place, Huanghua Temple?"
+This suggestion suited Lian Nishang's own wishes. But after a moment's thought, she said: "That might be inappropriate. You have prior ties with this child, correct? If you take her to your home, your stance might become unstable when handling the case going forward."
 
-So it was decided to let Zhao Gui send Mingnu to Li Ziyu's home first. Li Ziyu instructed Zhao Gui with a few words. Then he got up to find Zeng Juan—both to announce the good news and to let him rest assured early.
+From her tone, Li Ziyu understood she didn't mean to rebuke him. He said gratefully: "It doesn't matter. She's not my relative. This child is now a witness with nowhere to go. If I, the handling officer, don't take her in, should I send her to that wretched place, Huanghua Temple?"
 
-Without the burden of watching the child, Lian Nishang simply didn't go to the dormitory to rest. She returned to Fangchun Court to "work on site." She handled the legal procedures in the bureau first, issuing an arrest warrant to formally arrest Han Qiaojie, Huang Xiang, Muyun, Yao-sao, and others in Fangchun Court, interrogating them one by one.
+So it was decided that Zhao Gui would first escort Mingnu to Li Ziyu's home. Li Ziyu gave Zhao Gui a few instructions. Then he rose to find Zeng Juan—both to share the good news and to put his friend's mind at ease.
 
-Han Qiaojie made a circle in the city bureau and was sent back. She thought there was no big issue, but unexpectedly she had to "face the court" as soon as she returned. Taken to the flower hall, she turned pale—with these few "demon kings" here, she would lose a layer of skin even if she didn't die today!
+Without the burden of watching the child, Lian Nishang simply skipped going to the dormitory to rest. She returned to Fangchun Court to "work on site." She had already handled the legal procedures at the bureau first, issuing arrest warrants to formally arrest Han Qiaojie, Huang Xiang, Mu Yun, Sister Yao, and others at Fangchun Court, and interrogating them one by one.
+
+Han Qiaojie had made a circuit through the city bureau and been returned. She had thought nothing major was amiss—but unexpectedly she was made to "face the court" as soon as she arrived back. Brought to the flower hall, she turned pale. With these several "demon kings" present, she would lose a layer of skin even if she survived the day!
 
 (End of Chapter)

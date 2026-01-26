@@ -76,9 +76,9 @@ Though the raid on Golden Flower Temple hadn't captured the key figures, the sei
 
 Seizing large sums was certainly good news. And it wasn't just the Gao residence—at the homes of the *dagu* in the various dens, varying amounts of silver were also discovered. Some had as little as a few dozen taels; some had accumulated over a thousand.
 
-Though every arrested *dagu* without exception claimed this was the den's "public funds" used to aid beggars in their den—for illness, for rainy-day relief—in reality, such "care" expenditures were minimal. The so-called "communal money" was entirely at the *dagu*'s discretion as to how much there was and where it went, essentially their private purse. Lower-level beggars dare not question it—even asking would earn them a beating.
+Though every arrested *dagu* without exception claimed this was the den's "public funds" used to aid beggars in their den—for illness, for rainy-day relief—in reality, such "care" expenditures were minimal. The so-called "communal money" was entirely at the *dagu*'s discretion as to how much there was and where it went, essentially their private purse. Lower-level beggars dared not question it—even asking would earn them a beating.
 
-The various *dagu* had fat purses while the beggar masses lived in hunger and cold. After running around all day—even mutilating their own bodies—the few coins they begged went as "tribute" to the *dagu*. Even scraps and leftovers they collected had to be turned over to the *dagu* as feed for raising poultry for profit. This level of exploitation truly was sucking the marrow from the bones. Liu Xiang silently reflected as he reviewed the clearance reports from the various dens.
+The various *dagu* had fat purses while the beggar masses lived in hunger and cold. After running around all day—even mutilating their own bodies—the few coins they begged went as "tribute" to the *dagu*. Even scraps and leftovers they collected had to be turned over to the *dagu* as feed for raising poultry for profit. This level of exploitation truly was sucking the marrow from bones. Liu Xiang silently reflected as he reviewed the clearance reports from the various dens.
 
 Though this citywide unified operation had let Gao Lingxiang and several trusted subordinates escape, the detention work for citywide beggars and vagrants had proceeded quite smoothly.
 

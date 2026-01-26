@@ -22,7 +22,7 @@ Shen Ruiming received his transfer notice to Guangzhou just as he disembarked fr
 
 Though the notice was somewhat sudden, it wasn't entirely unexpected. Once the Mainland Strategy commenced, the Ministry of Justice's focus would naturally shift to the mainland.
 
-Having received the notice, Shen Ruiming went straight to the Ministry of Justice without even going home, and found Ma Jia.
+Having received the notice, Shen Ruiming went straight to the Ministry of Justice without even going home and found Ma Jia.
 
 "You've worked hard. But the next assignment will be even harder." Ma Jia got straight to the point. "You received the notice?"
 

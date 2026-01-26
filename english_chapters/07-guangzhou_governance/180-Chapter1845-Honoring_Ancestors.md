@@ -1,97 +1,99 @@
 # Chapter 1845 - Honoring Ancestors
 
-In the afternoon, Li Ziyu's work enthusiasm was high. After copying documents, he went out on two missions with the team, both arresting people in brothels. Recently, there had been particularly many anonymous reporting letters from various brothels. A large number of old cases regarding madams and managers abusing and persecuting prostitutes to death were dug up.
+That afternoon, Li Ziyu's work enthusiasm soared. After copying documents, he went out on two missions with the team, both involving arrests at brothels. Recently, there had been an especially large number of anonymous reporting letters arriving from various establishments. A trove of old cases—madams and managers abusing and persecuting prostitutes to death—was being unearthed.
 
-These reporting letters arrived at the police station and were all transferred to the Security Section currently undertaking the sex industry rectification case. After simple sorting and analysis, arrests began according to the list.
+These letters arrived at the police station and were all forwarded to the Security Section, which was currently handling the sex industry rectification case. After simple sorting and analysis, arrests proceeded according to the list.
 
-Neither naturalized citizens from Hainan nor locally retained recruited personnel had any concept of the modern legal system. Moreover, those working in the brothel line were basically not good people. There was no injustice in arresting them. Mu Min also intended to ensure a high-pressure posture on the sex industry, so arresting people upon having leads became the sole standard for handling cases.
+Neither naturalized citizens from Hainan nor locally retained recruits possessed any concept of the modern legal system. Moreover, those working in the brothel trade were almost universally unsavory characters—there was no injustice in arresting them. Mu Min also intended to maintain a posture of relentless pressure on the sex industry, so apprehending anyone with leads became the sole standard for case handling.
 
-Arrested people were thrown directly into temporary detention centers for slow interrogation. Li Ziyu was so busy his feet didn't touch the ground: registering, recording statements, handling procedures. Although busy, he hadn't seen the Section Chief, so his heart was a bit apprehensive. Only near the end of the shift did Lian Nishang return travel-stained. As soon as she entered, she patted the documents in her hand at Li Ziyu and said to him: "Ayu, congratulations. You were named by the Bureau Chief to go to Lingao to accept training. This is the notification."
+Those arrested were thrown directly into temporary detention centers for slow interrogation. Li Ziyu was so busy his feet didn't touch the ground: registering, recording statements, handling procedures. Though exhausted, he still hadn't seen the Section Chief, which left him somewhat anxious. Only near the end of his shift did Lian Nishang return, dust-covered from travel. The moment she entered, she patted the documents in her hand toward Li Ziyu and said, "Ayu, congratulations. You've been named by the Bureau Chief to go to Lingao for training. Here's the notification."
 
-"Thank you, Section Chief Lian!" The stone in Li Ziyu's heart finally fell into his stomach. He took the notification from the Section Chief's hand and snapped an "Australian style" attention.
+"Thank you, Section Chief Lian!" The stone in Li Ziyu's heart finally settled into place. He took the notification from the Section Chief's hand and snapped an "Australian-style" attention.
 
-"No need to be polite, it's all the Senate's grace." Lian Nishang looked at the young man in front of her with complex emotions, actually feeling a tiny bit of envy in her heart, "The departure time hasn't been set yet, but it will be within these few days. You spend a day handing over the matters in your hands."
+"No need to be polite—it's all the Senate's grace." Lian Nishang looked at the young man before her with mixed feelings, actually sensing a tiny pang of envy in her heart. "The departure time hasn't been set yet, but it will be within the next few days. Spend a day handing over the matters in your charge."
 
 "Yes!"
 
-Li Ziyu held the transfer order document. The Security Section suddenly became lively. Colleagues around surrounded him. Everyone congratulated Li Ziyu. Some said Li Ziyu had good luck, some said Li Ziyu was a lucky general, some said Li Ziyu was promoted by a noble person. Everyone asked Li Ziyu not to forget them after returning from training and getting promoted. While socializing with colleagues, Li Ziyu looked at the notification. Although trying hard to put on a calm expression of "not surprised by favor or disgrace," the corners of his mouth still curled up with joy.
+Li Ziyu held the transfer document. The Security Section suddenly came alive. Colleagues crowded around him, everyone congratulating Li Ziyu. Some said his luck was remarkable, some said he was a lucky general, some said he had been elevated by a noble patron. Everyone urged Li Ziyu not to forget them after he returned from training and got promoted. While socializing with his colleagues, Li Ziyu kept glancing at the notification. Though he tried hard to wear a calm expression of "unmoved by favor or disgrace," the corners of his mouth still turned up with joy.
 
-The short few lines of simple words without emotion on the notification read like an exquisite embroidered article to him. Refreshing the heart and spleen like nectar and jade liquid. He instantly understood why the teacher at the community school said "good articles can also be used to go with wine."
+The brief lines of simple, unemotional words on the notification read like an exquisite embroidered essay to him—refreshing the heart and spleen like nectar and jade liquor. He suddenly understood why his teacher at the community school had said "good articles can also accompany wine."
 
-Uncontrollably reading the transfer order dozens of times until almost memorizing every word and sentence, Li Ziyu then reluctantly put the notification away close to his body. Off-duty time had arrived—usually, he would always delay getting off work a bit, but today he decided to tell the family this good news early and share his joyful mood with them.
+Unable to help himself, he read the transfer order dozens of times until he had practically memorized every word and sentence. Only then did Li Ziyu reluctantly tuck the notification away close to his body. Quitting time had arrived—normally he would linger a bit past the end of his shift, but today he decided to share this good news with his family early and let them share in his joy.
 
-Before reaching home, Li Ziyu's voice had already transmitted far into the courtyard.
+Before he even reached home, Li Ziyu's voice was already carrying far into the courtyard.
 
-"Old Bean (Dad), Mom, I'm back!"
+"Dad! Mom! I'm back!"
 
-Li Ziyu's mother came out to welcome him. Just reaching the courtyard gate, she saw Li Ziyu trotting in like wind and fire.
+Li Ziyu's mother came out to welcome him. She had barely reached the courtyard gate when she saw Li Ziyu trotting in like wind and fire.
 
-Although Li Ziyu's family was a military household, they still stressed "abiding by rules and walking properly," with upright behavior. After serving the Australians, being a policeman also required "majesty," so he rarely behaved like this, surprising Mother Li very much.
+Though his family were military household people, they still stressed "abiding by rules and walking properly," with upright conduct. Since entering Australian service and becoming a policeman, which required "bearing," he rarely behaved this way. It surprised Mother Li considerably.
 
-Now was the time of dynasty change. Her heart was always a bit apprehensive, looking nervously at Li Ziyu:
+These were times of dynastic change. Her heart was always somewhat uneasy. She looked nervously at Li Ziyu.
 
-"Yu'er, what happened? Why are you so early today?" Before finished speaking, she was pulled into the main room by Li Ziyu. Seeing his father sitting by the long table reading a newspaper, Li Ziyu turned and pressed his mother into the chair by the tea table. He said to his paired parents: "Dad, Mom, son prospered this time. Just now a notification came, wanting son to go to Lingao to accept training. Coming back is to get an official position. Unexpected, right? The thing we were thinking about a few days ago happened today. Do you say son's luck is good or not?" Saying this, Li Ziyu took out that transfer order from his bosom and shook it in his hand.
+"Yu'er, what happened? Why are you so early today?" Before she could finish, Li Ziyu pulled her into the main room. Seeing his father sitting by the long table reading a newspaper, Li Ziyu turned and pressed his mother into the chair by the tea table. He addressed his paired parents: "Dad, Mom—your son has truly prospered this time. Just now a notification came: they want your son to go to Lingao for training. When I come back, it'll be with an official position. Surprised? The very thing we were hoping for a few days ago has happened today. Would you say your son's luck is good or not?" As he spoke, Li Ziyu produced the transfer order from his bosom and waved it in his hand.
 
-"What? Really?" Father Li put down the newspaper in his hand and stood up. In excitement, he almost knocked the cup off the long table.
+"What? Truly?" Father Li set down the newspaper and stood. In his excitement, he nearly knocked the cup off the table.
 
-"Dad, look." Li Ziyu handed the transfer order to his father. Father Li looked up and down a few times and asked "This training?"
+"Dad, look." Li Ziyu handed the transfer order to his father. Father Li studied it up and down several times and asked, "This training?"
 
-"Dad, it's like this: In the Great Song officialdom rules, one cannot be an official without undergoing training. Even if you are already an official, before being promoted a level, you must undergo training again before taking office. So that means your son—I am about to become an official, although a small official." Li Ziyu repeated in detail what he heard from Gao Chongjiu.
+"Dad, it's like this: according to Great Song officialdom rules, one cannot be an official without undergoing training. Even if you're already an official, before being promoted a level, you must undergo training again before taking office. So that means your son—I—am about to become an official. A small official, granted." Li Ziyu repeated in detail what he had heard from Gao Chongjiu.
 
-"Ai. Dad understands." Father Li's face turned completely red. Turning his head to Mother Li, he said: "Child's mother, go quickly, to the alley mouth, find Butcher Tian to buy two catties of pig head meat, no, buy a pig head, and get another two catties of wine! Our Li family is going to prosper again! This is all Ancestor's blessing! Go quickly, why are you stunned? Go quickly, go quickly. Coming back we have to offer sacrifice to ancestors!"
+"Aiya!" Father Li's face turned thoroughly red. He turned to Mother Li. "Wife, go quickly! To the alley mouth, find Butcher Tian. Buy two catties of pig head meat—no, buy a whole pig head, and get another two catties of wine! Our Li family is going to prosper again! This is all our ancestors' blessing! Go quickly—why are you just standing there? Go, go! When you return, we'll offer sacrifice to the ancestors!"
 
-Mother Li responded repeatedly, busy taking a basket and walking out.
+Mother Li responded repeatedly, hastily taking a basket and heading out.
 
-Father Li was so happy that his front words didn't match his back words. Watching the equally excitedly tearful Mother Li turn out of the main room, he turned back to Li Ziyu: "What big official small official, this is official status! Official status!"
+Father Li was so overjoyed that his words tumbled out in disorder. Watching the equally tearful Mother Li turn out of the main room, he turned back to Li Ziyu. "What big official, small official—this is official status! *Official status!*"
 
-Li Ziyu thought I was already civil service establishment. Going up is still civil servant. If that is official status, then he already had it. But this couldn't be explained to his dad to understand, so he replied respectfully: "Father is right."
+Li Ziyu thought, *I'm already in civil service establishment. Moving up is still civil servant. If that's official status, then I already have it.* But this was impossible to explain to his father, so he simply replied respectfully, "Father is right."
 
-"Only with this first step can there be subsequent ones. I'll go invite the ancestral tablets. You call Zhao Gui, tidy up the main room, carry an Eight Immortals Table out."
+"Only with this first step can there be subsequent ones. I'll go invite out the ancestral tablets. You call Zhao Gui and tidy up the main room—carry an Eight Immortals Table out."
 
-"Zhao Gui, returned?"
+"Zhao Gui is back?"
 
-"He has the early shift today, came back in the afternoon." Father Li said, "He told me you were going to prosper. I still thought it a bit obscure. Unexpectedly what he said was actually true!"
+"He had the early shift today; he came back in the afternoon," Father Li said. "He told me you were going to prosper. I still thought it sounded a bit vague. Who would have thought what he said was actually true!"
 
-Father Li suddenly remembered something, pointing at the newspaper and saying: "No wonder, the newspaper published your matter. Seems not fake at all, the Australians are indeed going to promote you!"
+Father Li suddenly remembered something. Pointing at the newspaper, he said, "No wonder—the newspaper published your matter. Seems it wasn't exaggeration at all. The Australians really are going to promote you!"
 
-"Oh? I've been very busy these few days, haven't had time to read the newspaper. Let me see." Li Ziyu said and was about to take the newspaper.
+"Oh? I've been so busy these few days I haven't had time to read the paper. Let me see." Li Ziyu reached for the newspaper.
 
-"What's the hurry, do proper business first. You go call Zhao Gui, ask him to come help out. Although he is not of my Li family, he is also a loyal and reliable person, and has some fortune—since he came to our house, your luck has been consistently good. I see you can become sworn brothers of different surnames with him in the future. Maybe one day he will help you."
+"What's the hurry—take care of proper business first. Go call Zhao Gui, ask him to come help out. Though he's not of our Li family, he's a loyal and reliable fellow, and has some fortune about him. Since he came to our house, your luck has been consistently good. I think you could become sworn brothers of different surnames with him in the future. Perhaps one day he'll be of help to you."
 
-Li Ziyu agreed. Just talking, Mother Li came in carrying the pig head from outside, saying happily: "Butcher Tian is quite fun. Knowing you are going to Lingao for training, he gave half a set of intestines and lungs. Wait for me to wash them clean and cook."
+Li Ziyu agreed. Just as they were talking, Mother Li came in carrying the pig head, saying happily, "Butcher Tian is quite generous. When he heard you're going to Lingao for training, he threw in half a set of intestines and lungs for free. Wait for me to wash them clean and cook."
 
-The incense table was set up, and ancestral tablets were invited out. Mother Li shouted: "Come lend a hand." Zhao Gui ran out from the kitchen beside the main room, took the wine and pig head from Mother Li's hands, turned and entered the kitchen again.
+The incense table was set up, and the ancestral tablets were invited out. Mother Li called, "Come lend a hand." Zhao Gui ran out from the kitchen beside the main room, took the wine and pig head from Mother Li's hands, and turned back into the kitchen.
 
-Mother Li followed Zhao Gui into the kitchen to work bussily. The father and son in the main room became leisurely: Father Li looked at the transfer order again and again, reciting it with a drawn-out tone from time to time; Li Ziyu held the newspaper reading the Mingnu case series reports. When Mother Li and Zhao Gui arranged the things for sacrifice, Mother Li came out to greet: "Husband, things are prepared. It's getting late."
+Mother Li followed Zhao Gui in to work busily. The father and son in the main room had become leisurely: Father Li examined the transfer order over and over, occasionally reciting its contents in a drawn-out tone; Li Ziyu held the newspaper, reading the serialized reports on the Mingnu case. When Mother Li and Zhao Gui had finished arranging the sacrificial offerings, Mother Li came out to say, "Husband, everything is prepared. It's getting late."
 
-The father and son put down things in their hands. Everyone stood before the incense table to burn incense and kowtow, offering sacrifices to ancestors and comforting their spirits in heaven. Although Ah Gui didn't kneel and bow, he observed from the side. After worshipping ancestors, the family plus Zhao Gui took seats to eat and drink. It lasted until very late, until Father Li was dead drunk before ending.
+Father and son set down what they held. Everyone stood before the incense table to burn incense and kowtow, offering sacrifice to the ancestors and comforting their spirits in heaven. Though Ah Gui didn't kneel or bow, he watched from the side. After worshipping the ancestors, the family plus Zhao Gui took their seats for eating and drinking. The celebration lasted late into the night, ending only when Father Li was thoroughly drunk.
 
-Because there were many things in the bureau, and he had to hand over work, several matters on hand had to be processed as soon as possible. Early the next morning, Li Ziyu returned to the bureau. Just entering the Security Section, he saw someone bringing a young man in. Wearing a green silk pleated robe, a pair of fine-knotted Chenqiao cloth shoes, black silk knee pads tied over clean water cloth socks, and a tasseled hat on head. A look revealed the attire of a dissolute son of the city.
+---
 
-Heard him shouting "Injustice" loudly as soon as he came in, saying "I was walking properly, neither stealing nor robbing, didn't even spit a mouthful of phlegm, why arrest me into the yamen?"
+Because there were many matters at the bureau, and he had to hand over his work, several things on hand needed processing as quickly as possible. Early the next morning, Li Ziyu returned to the bureau. Just as he entered the Security Section, he saw someone bringing in a young man. The fellow wore a green silk pleated robe, a pair of finely knotted Chenqiao cloth shoes, black silk knee pads tied over clean water cloth socks, and a tasseled hat on his head—unmistakably the attire of a dissolute city son.
 
-The arresting police didn't answer, dragging him directly into the registration room to photograph and register. Li Ziyu didn't take it seriously, continuing his paperwork.
+He was shouting "Injustice!" loudly the moment he came in, proclaiming, "I was walking properly, neither stealing nor robbing, didn't even spit a mouthful of phlegm—why arrest me and drag me into the yamen?"
 
-Not a few minutes later, the police handling procedures in the registration room suddenly rushed out, shouting loudly: "Quick, quick find a doctor!"
+The arresting officers didn't answer, dragging him directly into the registration room to photograph and register. Li Ziyu paid it no mind and continued with his paperwork.
 
-Ripples instantly rose in the pre-trial room. The part-time hygienist hurriedly went in with a medicine chest. Someone rushed to find the police station's duty doctor.
+Not a few minutes later, the policeman handling procedures in the registration room suddenly rushed out, shouting loudly, "Quick, quick—find a doctor!"
 
-Li Ziyu walked over to watch the excitement, but saw on the floor of the registration room, the young man just brought in was convulsing, foaming at the mouth. Several police officers surrounded him; some let him smell Zhuge Marching Powder, some unbuttoned his clothes, messy in a ball.
+Ripples immediately spread through the pre-trial room. The part-time hygienist hurried in with a medicine chest. Someone rushed off to fetch the police station's duty doctor.
 
-This person's consciousness was not yet comatose, only tearing at the clothes on his chest vigorously, panting hard, shouting for water with a hoarse throat. In just a few minutes, his head suddenly tilted to the side, and his whole body seemed to loosen up.
+Li Ziyu walked over to see what was happening. On the registration room floor, the young man who had just been brought in was convulsing, foaming at the mouth. Several officers surrounded him—some held smelling salts to his nose, some unbuttoned his clothes—all in chaos.
 
-Li Ziyu thought secretly "not good." With the body convulsing originally, now suddenly relaxing, likely the soul had flown and spirit dispersed.
+The man's consciousness had not yet faded. He clawed violently at his chest, gasping hard, his hoarse throat calling for water. In just a few minutes, his head suddenly lolled to one side, and his whole body seemed to go slack.
 
-Sure enough, the doctor called over checked the pulse and shook his head, saying the breath was gone.
+*Not good,* Li Ziyu thought. The body had been convulsing before; now suddenly going limp likely meant the soul had departed.
 
-"Really unlucky!" The policeman who caught him stomped his foot, "Caught him with difficulty, and he died again! Now it's hard to explain to the task force!"
+Sure enough, the doctor who'd been summoned checked the pulse and shook his head—the breath was gone.
 
-Li Ziyu originally thought this was just a dissolute son who committed some minor offense. Hearing this, he quickly asked: "Who is the deceased?"
+"Just our luck!" The policeman who'd caught him stamped his foot. "Finally caught him with such difficulty, and he dies on us! Now how do we explain this to the task force!"
 
-"Who else? one of the criminals being secretly pursued in the Mao Family Inn case: Wang Dong!"
+Li Ziyu had originally assumed this was just some dissolute wastrel who'd committed a minor offense. Hearing this, he quickly asked, "Who was the deceased?"
 
-Arresting Wang Dong took more time than expected. Since Wang Daniao disappeared and was subsequently killed, he had been a "stray dog," with no fixed abode, only "sticking to whoring" in various brothels to sponge meals. At night he mostly slept in concierge rooms or backyards of brothels.
+"Who else? One of the criminals being secretly pursued in the Mao Family Inn case—Wang Dong!"
 
-After the rectification of the sex industry began, police frequented major brothels. Because Wang Dong had engaged in "abducting and trafficking women," feeling a bit unstable, he stopped appearing in brothels and hid in a "private door" of a musician household he had old ties with to muddle through some days.
+Arresting Wang Dong had taken more time than expected. Ever since Wang Daniao had disappeared and subsequently been killed, he had been a stray dog with no fixed abode, merely "clinging to the brothels" to sponge meals. At night, he mostly slept in concierge rooms or the backyards of various establishments.
+
+After the sex industry rectification campaign began, police frequented the major brothels. Because Wang Dong had been involved in "abducting and trafficking women," he felt increasingly uneasy, stopped frequenting brothels, and went into hiding at a "private door" of a musician household with which he had old ties, muddling through one day at a time.
 
 (End of Chapter)

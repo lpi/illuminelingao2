@@ -1,6 +1,6 @@
 # Chapter 1858 - Lingao's Literary Affairs
 
-Among the four diagnostic methods—"observation, listening, inquiry, and pulse-taking"—"observation" carries something of the art of physiognomy. The middle-aged man before him appeared to be in his late thirties or just past forty. His temples and cheekbones were not prominent, indicating a childhood free from want. Between his brows lay a knot, and lines marked his forehead—signs of excessive worry and melancholy. When he alighted from the sedan, his hands and feet were steady; his gait was relaxed, yet his waist was stiff—suggesting he did not lack exercise but was habitually sedentary... Most importantly, this man was clearly no reckless adventurer. Certain concerns could be set aside.
+Among the four diagnostic methods—"observation, listening, inquiry, and pulse-taking"—"observation" carries something of the art of physiognomy. The middle-aged man before him appeared to be in his late thirties or just past forty. His temples and cheekbones were not prominent, indicating a childhood free from want. Between his brows lay a knot, and lines marked his forehead—signs of excessive worry and melancholy. When he alighted from the sedan, his hands and feet were steady; his gait was relaxed, yet his waist was stiff—suggesting he did not lack exercise but was habitually sedentary. Most importantly, this man was clearly no reckless adventurer. Certain concerns could be set aside.
 
 "Would you be Master Zhang of Shaoxing?" Yang Shixiang cupped his hands in greeting.
 
