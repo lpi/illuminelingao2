@@ -1,89 +1,91 @@
 # Chapter 2639: Temple Festival Opera (Part 1)
 
-Passing a few days, Opera Troupe arrived as agreed. Li Family Enclosure became more lively. Puppet Troupe already sang for quite a few days. This time could only step back yielding worthiness first, yielding threshing ground to new coming Opera Troupe.
+A few days later, the opera troupe arrived as promised, and Li Family Enclosure grew more lively than ever. The puppet troupe had already been performing for quite some time, so they graciously yielded the threshing ground to the newcomers.
 
-Actors sang opera yi yi ya ya. This was not Cantonese Opera, not Right Tune sung in Mandarin either. But a kind of Earth Opera (Local Opera) Tea-picking Opera (*Cai Cha Xi*) popular in Northern Guangdong Southern Jiangxi places. This kind of opera between Grand Opera and Small Singing, sang in dialect, singing and dancing, form lively. Also had certain story plot. Quite loved by villagers common people.
+The actors sang in the distinctive *yi yi ya ya* style of their craft. This wasn't Cantonese Opera, nor was it Right Tune sung in Mandarin. Rather, it was a form of local Earth Opera called Tea-picking Opera (*Cai Cha Xi*), popular throughout Northern Guangdong and Southern Jiangxi. This style occupied a middle ground between Grand Opera and Small Singing—performed in dialect with lively singing and dancing, yet still conveying a proper story. The common village folk loved it.
 
-Since Li Family Enclosure had Puppet Troupe coming to perform, it became literary entertainment center of this belt. Folks of surrounding ten *li* eight townships all came to watch. Puppet Show big guys watched somewhat tired. Recently changed new flower pattern again, people coming were more.
+Since the puppet troupe's arrival, Li Family Enclosure had become the entertainment center for the entire region. Folks from surrounding villages within ten *li* in every direction came to watch. The adults had grown somewhat weary of the puppet shows, so this new entertainment drew even larger crowds.
 
-People were business opportunity. Crowd gathering was having "Living Water." Merchants followed "Living Water" swarming into Li Family Enclosure doing business one after another.
+Where people gathered, business followed. The crowd brought "living water," and merchants swarmed into Li Family Enclosure to drink their fill.
 
-Peddlers wandering various villages shouldered shoulder poles. One end hung a lantern, one end inserted a rattle drum. While following sound of rattle drum shuttling in crowd, while hawking own business. Selling brushing goods, selling snacks, selling medicine, selling picture books... Coming early propped up stall under nearby trees borrowing light of torches lanterns on threshing ground. Shaking drum greeting tourists. For a time, small Li Family Enclosure didn't lose to bustling liveliness of Xiaoyao Market.
+Peddlers who usually wandered from village to village now converged here, shoulder poles balanced across their backs—a lantern hanging from one end, a rattle drum from the other. They wove through the crowd, shaking their drums while hawking their wares: brushes and sundries, snacks, medicines, picture books. Those who arrived early set up stalls beneath nearby trees, borrowing light from the torches and lanterns around the threshing ground. For a time, little Li Family Enclosure rivaled the bustling liveliness of Xiaoyao Market itself.
 
-Golden Pig also squeezed tightly in crowd, looking around everywhere.
+Golden Pig squeezed through the packed crowd, looking around.
 
-Today early morning, a steward of Patriarch family came to find Golden Pig. Said these two days seeing Golden Pig building stage working counted as strenuous. Patriarch family decided to Long Term Hire Golden Pig. Just wanted to put name in Eight Immortals Society too, counted as Corpsman (*Tuan Ding*). Usually drilling fist foot besides, followed Patriarch family doing some fragmented heavy work. Remuneration besides a share due for being Corpsman, Patriarch family opened another subsidy. Working well had other reward. And also said if Golden Pig had known four countryside idlers introduced over, Master Family as long as looking passable all hired together.
+That morning, a steward from the Patriarch's household had sought him out. The steward said that Golden Pig's work building the stage these past few days had impressed the family, and they'd decided to hire him on a long-term basis. They wanted to register him in the Eight Immortals Society as a Corpsman (*Tuan Ding*). Besides drilling fist and foot exercises, he would help the Patriarch's household with various heavy labor. His pay would include the standard Corpsman's share plus an additional subsidy from the family, with bonuses for good work. The steward added that if Golden Pig knew any reliable men from the countryside, the family would hire them too—as long as they seemed capable.
 
-These few days Mother Li continuously nagged Golden Pig to stay more days at home. Don't go to Xiaoyao Market to do odd jobs when getting free. Taking advantage of talisman water begged from Fairy Aunt Huang, "Cultivate" (*Geng Yun*) more at home, good to leave a descendant for Li Family.
+For the past few days, Mother Li had been nagging Golden Pig to stay home longer instead of running off to Xiaoyao Market for odd jobs. She wanted him to take advantage of the talisman water they'd begged from Fairy Aunt Huang and "cultivate" (*Geng Yun*) more diligently at home—meaning she wanted him to give the Li family a descendant.
 
-Now having such a job not needing to go far door, Golden Pig naturally agreed with one mouth. That day followed steward busy for a day. Until eating finish dinner getting leisure, Golden Pig then thought of Tian Yingcheng.
+A job that didn't require him to leave home was exactly what Golden Pig needed. He agreed immediately and spent the rest of that day following the steward around. Only after dinner did he finally have time to think of Tian Yingcheng.
 
-Tian Family days were not wide either. In village was Outer Surname again. Good thing not turning to, bad thing always taking shift. Home although had a few tenths (*fen*) Mulberry Base, income basically couldn't reach expenses of whole family. Ordinary days still had to rely on working short term jobs to subsidize. Therefore pitied each other with Golden Pig this "Fake Own Family." Two walked very close. Often supported each other. Two families' emotion not bad.
+The Tian family wasn't well off either. Worse, they were an Outer Surname in the village—always passed over for good opportunities, yet first in line whenever trouble needed handling. Though they had a few tenths (*fen*) of Mulberry Base, the income barely covered the family's expenses. Most of the time, Tian Yingcheng had to work short-term jobs to make ends meet. This shared hardship had bonded him and Golden Pig—the "Fake Own Family"—closely together. The two families had grown quite fond of each other over the years.
 
-Therefore this time having such good errand, Golden Pig thought of helping Tian Family also recommend a bit. Go to be a Corpsman, get a share of money grain. Better than Tian Yingcheng now relying on working short term job for people to pass days.
+So when this good opportunity came along, Golden Pig naturally thought of recommending his friend. Being a Corpsman meant a steady share of money and grain—far better than Tian Yingcheng's current hand-to-mouth existence.
 
-These few days all making noise of Temple Festival Opera. People of Li Family Enclosure didn't go far door. Tian Yingcheng should be resting at home. He decided to go to Tian Family first. See if this partner willing to go to Master Family to do this long work together.
+With all the excitement over the Temple Festival Opera, no one from Li Family Enclosure had traveled far these past few days. Tian Yingcheng should be resting at home. Golden Pig decided to visit the Tian family first and see if his friend wanted to take up this long-term work together.
 
-Last time going to Tian family to say joy for Tian family wife returning, Golden Pig originally thought his wife couldn't bear poverty running with people. Recently two years Flower Patting (*Pai Hua*) abduction selling matters rarely heard. After Australians came, as long as catching Flower Patter was a Death word. implicated people helping transport, dragging matchmaker, accommodating, implicated buyer, all received implication. A household in Li Family Enclosure just because bought a child from kidnapper hand, finally whole family exiled to what "Taiwan." Now probably dead bones all turned into mud.
+The last time Golden Pig had visited was to congratulate the family on Tian's wife returning home. He'd originally assumed she had run off with someone, unable to bear the poverty any longer. In recent years, kidnapping and trafficking—what people called Flower Patting (*Pai Hua*)—had become rare. Since the Australians came, anyone caught trafficking faced death, and the punishment extended to everyone involved: those who helped transport victims, matchmakers who arranged deals, anyone who provided shelter, and buyers alike. A household right here in Li Family Enclosure had bought a child from traffickers, and the whole family had been exiled to some place called "Taiwan." Their bones had probably turned to mud by now.
 
-When Tian family wife missing, he also went to console Tian Yingcheng before, calling him no need to be sad. After Australians came days much better to pass. Saving few years money marrying a new one also had hope.
+When Tian's wife first went missing, Golden Pig had consoled his friend, telling him not to be sad. Life was easier under the Australians now. Save up for a few years and he could afford to marry again.
 
-Didn't expect, recently Tian Yingcheng's wife actually came back. Not only came back, complexion also very good. Not only complexion good, clothing bright new, also brought back quite some objects. Everyone said behind back, Tian Yingcheng's head scarf probably was green oily oily.
+But then, unexpectedly, Tian Yingcheng's wife had returned. Not only returned, but with healthy color in her cheeks. Not only healthy, but wearing bright new clothes and carrying back quite a few possessions. Behind their backs, everyone said Tian Yingcheng's headscarf had turned oily green.
 
-Tian Yingcheng instead didn't get angry. Frivolous people originally counting on seeing Tian family noisy quarreling more or less somewhat disappointed. Still old people said correctly: Tian family so poor, his wife able to come back counted as walking dog shit luck (lucky), still haggling what head scarf green or not.
+Yet Tian Yingcheng showed no anger. The gossips who'd hoped to watch the Tian household erupt in quarrels were left disappointed. The old folks said it best: the Tian family was so poor that having his wife come back at all was stepping in dog shit luck. What was the point of haggling over the color of his headscarf?
 
-He going to say joy was one aspect. Another aspect originally wanted to discuss with Tian Yingcheng to partner going out to do some loose jobs after Temple Festival Opera—for them didn't exist any "Slack Farming Season," nothing more than doing work in village during busy farming, going to town to work during slack farming.
+Golden Pig's visit to offer congratulations had served another purpose too. He'd wanted to discuss partnering with Tian Yingcheng to find work in town after the Temple Festival Opera ended. For men like them, there was no such thing as a "slack farming season"—they simply worked in the village during busy times and sought jobs in town during slow ones.
 
-Because heard in county jobs more. But he in past never went to county to do work. A person going doing more or less somewhat timid. Wanted to pull Tian Yingcheng to go together. Because Tian Yingcheng's wife had a relative making living at City Gate (*Cheng Guan*). More or less had a care.
+He'd heard there were more jobs in the county these days, but he'd never worked there before. Going alone felt daunting. He wanted Tian Yingcheng to come along, especially since Tian's wife had a relative making a living at the City Gate (*Cheng Guan*). Having that connection would help.
 
-Pity at that time full room of people, messy. Golden Pig just said joy to Tian Yingcheng then left. Later heard Tian family sister-in-law prepared to do business in village. He also wanted to take this to ask Tian Yingcheng's plan afterwards.
+Unfortunately, that day the house had been full of visitors, everything in chaos. Golden Pig had merely offered his congratulations and left. Later he heard that Tian's wife was planning to start a business in the village. He'd been meaning to ask Tian Yingcheng about their plans.
 
-Who knew this time arriving at Tian family, Tian family was chaotic. Tian family old mother, wife implicated several kids all busy packing objects, packing clothes. A look of packing objects preparing to move house. Golden Pig greatly surprised. Busily asked Tian Yingcheng what is this doing?
+But when he arrived at the Tian household this time, he found everything in disarray. Tian Yingcheng's old mother, his wife, and the children were all frantically packing—clothes bundled, belongings gathered. It looked exactly like a family preparing to move. Shocked, Golden Pig hurried to ask what was going on.
 
-Tian Yingcheng didn't hide either. Own wife lost this time, fortunate to get Australians' taking in. Did work for a few days in a Silk Warehouse opened by Australians in county. Australians were very satisfied with her. Heard she was Li Family Enclosure person, then called her to come down countryside to promote Australian Silkworm Eggs and Mulberry Branches.
+Tian Yingcheng didn't hide the truth. His wife's disappearance had actually led to a stroke of fortune—the Australians had taken her in. She'd worked for several days at a silk warehouse the Australians operated in the county, and they'd been very satisfied with her. When they learned she was from Li Family Enclosure, they sent her back to the countryside to promote Australian silkworm eggs and mulberry branches.
 
-"This matter I also heard. Saying Sister-in-law is selling Australian Silkworm Eggs." Golden Pig nodded said, "Since selling silkworm eggs, naturally wanting to stay in village can sell. Why wanting to leave?"
+"I heard about that," Golden Pig nodded. "People say Sister-in-law is selling Australian silkworm eggs. But if she's selling silkworm eggs, wouldn't she want to stay in the village? Why leave?"
 
-"Sigh, you don't know..." Tian Yingcheng low voice said, "She this selling Mulberry Strip Silkworm Egg, didn't it violate taboo?"
+"You don't understand..." Tian Yingcheng lowered his voice. "Her selling mulberry cuttings and silkworm eggs—don't you see how that violates the taboo?"
 
-Golden Pig still somewhat confused. Because his family poor, so no capital to raise silkworm. Also no Mulberry Base. Ignorant towards trade inside here.
+Golden Pig remained confused. His family was too poor to raise silkworms, and they had no Mulberry Base. He knew nothing about the trade.
 
-"Li Family Enclosure here silkworm eggs, always belong to Master Li family to sell..."
+"In Li Family Enclosure, silkworm eggs have always been Master Li's business to sell..."
 
-"Oh, oh, right, right, is such a matter!" Golden Pig suddenly realized, "Right, also Mulberry Leaf. As long as tenanting his land, all have to sell to his family first..."
+"Oh! Right, of course!" Golden Pig suddenly understood. "And mulberry leaves too. Anyone who tenants his land has to sell to his family first..."
 
-This down he understood. Tian Sister-in-law wanted to sell silkworm egg mulberry strip, that didn't become snatching meat to eat in Master Li's mouth? He immediately turned pale from shock: This woman too rash!
+Now he grasped the situation. If Tian's wife was selling silkworm eggs and mulberry cuttings, she was snatching meat right out of Master Li's mouth! His face went pale. This woman was far too rash!
 
-Couldn't help saying: "You didn't tidy her up well a meal! Not wanting life?!"
+"You didn't give her a proper beating?" he blurted. "Does she have a death wish?!"
 
-Tian Yingcheng smiled bitterly: "Where I dare! She came receiving Kun... Australians' order. While is Master Li, while is Australian. Which one I dare offend! I tell you..."
+Tian Yingcheng smiled bitterly. "How would I dare? She came here on the Kun—on the Australians' orders. Master Li on one side, the Australians on the other. Which one am I supposed to offend? Let me tell you..."
 
-Few days ago, Patriarch family sent a steward coming to say to him. His wife was bewildered soul by Kun Thieves using demon art. Fully saying some ghost words. Let him discipline own wife well. Don't speak blindly move blindly again. Otherwise, call Fairy Huang to cast spell catching demon. At that time don't blame Master Li not talking feelings between villages.
+A few days ago, the Patriarch's family had sent a steward to speak with him. The steward said his wife had been bewitched by Kun Thieves using demon arts, that she was spouting nonsense. They ordered him to discipline his wife properly and stop her from speaking and acting recklessly. Otherwise, they would have Fairy Huang cast a spell to catch the demon. And when that happened, he shouldn't blame Master Li for showing no neighborly feeling.
 
-Tian Family originally in Li Family Enclosure was Outer Surname. Hearing steward's words, Tian Family old and young all panicked spirit. Tian Yingcheng's old mother then scolded Tian Sister-in-law a meal. Saying she "Disaster Provoking Spirit." Tian Sister-in-law also panicked spirit. Whole family discussed down, this Li Family Enclosure temporarily had no way to stay down again. His woman also said: Australians promised her, if couldn't do down in Li Family Enclosure, entering city to throw to Australians was fine. Australians could make other arrangement for them.
+The Tian family had always been Outer Surnames in Li Family Enclosure. The steward's words threw the whole household into a panic. Tian Yingcheng's old mother cursed his wife as a "Disaster-Provoking Spirit." Even his wife was frightened. After the family talked it over, they concluded that staying in Li Family Enclosure was no longer possible. His wife had said the Australians promised that if she couldn't manage things here, she could return to the city and work for them directly. They would make other arrangements.
 
-Tian Yingcheng heard woman saying Kun Thieves' various conducts and benefits of doing work for them. Moved heart. His family also didn't have any field property. Several tenths Mulberry Base were also tenanted. Li Family Enclosure here actually didn't have anything good to yearn for either. Self a shoulder's strength, arriving under Australians hand same had a bowl of rice to eat. Wife also could have a errand to do. Stronger than staying here much.
+Tian Yingcheng had listened to his wife describe the Australians' conduct and the benefits of working for them. His heart was moved. His family owned no land anyway—even the few tenths of Mulberry Base were rented. There was nothing in Li Family Enclosure truly worth holding onto. He had a strong back; working under the Australians, he'd still have rice in his bowl. His wife would have proper work too. It was better than staying here.
 
-"...Thinking coming thinking going, now can only go to city to throw to Australians. Anyhow also have a bowl of rice to eat." Tian Yingcheng said, "Your Sister-in-law said Australians place treatment uot bad. How about you also go to county to do work for Australians together."
+"...After thinking it through, our only option is to go to the city and throw ourselves on the Australians' mercy. At least we'll have something to eat." Tian Yingcheng paused. "Your Sister-in-law says the treatment there isn't bad. Why not come with us and work for the Australians in the county?"
 
-Golden Pig now had Corpsman errand, naturally not willing to leave home. Immediately said self already became Corpsman, had a fixed errand. Home still had old mother and wife. didn't want to go too far.
+Golden Pig now had his Corpsman position and wasn't willing to leave home. He explained that he'd already secured steady work, and with his old mother and wife to care for, he didn't want to go far.
 
-Tian Yingcheng didn't advise much either. Just low voice said: "Golden Pig! You and I brothers once. You are Li family person. Being a Corpsman also counts as a good errand. Just recently these days, Master Li got an Eight Immortals Society making noise in village. I look somewhat evil natured. You must be careful. Government most dreads this..."
+Tian Yingcheng didn't press him. He simply lowered his voice and said, "Golden Pig, you and I are brothers. You're a Li family man, and being a Corpsman is a decent position. But this Eight Immortals Society that Master Li has been making noise about lately—I don't like the look of it. Seems sinister to me. Be careful. The government fears nothing more than secret societies..."
 
-This words spoke into Golden Pig's heart pit. He didn't feel this Eight Immortals Society god god ghost ghost suspicious, but various Kung Fu methods practiced after Eight Immortals Society came were all used on battle array. Also called Corpsmen all learn fist foot. What was this planning to do? Now four countrysides peaceful. Bandits all exterminated completely. Occasionally bad people appearing also didn't need so many Corpsmen to cope. Furthermore Eight Immortals Society teaching were all methods of avoiding gun bullets cannon balls—where did bad people have this many firearms?
+These words struck Golden Pig's heart. It wasn't that he found the Eight Immortals Society's supernatural trappings suspicious, but rather that every martial technique they taught was meant for battle. They were training Corpsmen in combat. What were they planning? The countryside was peaceful now. Bandits had been completely wiped out. The occasional troublemaker didn't require an army of Corpsmen to handle. And stranger still, the Eight Immortals Society taught methods for dodging bullets and cannonballs—where would common criminals get such firearms?
 
-He dared not think into deep. Just so-called Thinking Carefully Extremely Terrible (*Xi Si Ji Kong*).
+He didn't dare follow that thought too far. As the saying went: *Xi Si Ji Kong*—"Think too deeply and terror awaits."
 
-But this Corpsman errand indeed tempting. He also couldn't bear to abandon. Always felt Master Li having such big family business, always not likely to faint head.
+Yet the Corpsman position was genuinely tempting. He couldn't bring himself to give it up. Surely Master Li, with such a vast family enterprise, wouldn't lose his head and do something foolish.
 
-Immediately hesitated saying: "Little Brother also feels so. But I am no more than left right tiny Corpsman. Sky collapsing having tall person propping. Where needing Little Brother."
+He hesitated, then said, "I feel the same way, Little Brother does. But I'm just a minor Corpsman. When the sky falls, there are taller men to hold it up. What do I matter?"
 
-Tian Yingcheng said: "Truly living not down, come to county to throw to Old Brother is fine. Always have a bowl of rice to eat!"
+Tian Yingcheng said, "If things become unbearable, come find your Old Brother in the county. You'll always have rice in your bowl."
 
-Golden Pig silently nodded. Said a few sentences again. Upon leaving, Tian Family wife gave some fragmented Australian objects to him again. Said mutually leaving a thought.
+Golden Pig nodded silently. They exchanged a few more words, and as he left, Tian's wife pressed some small Australian goods into his hands as keepsakes.
 
-Exiting Tian Family door, Golden Pig raised head looking at sky color. Tonight moon color dim. Moon hidden deeply in thick clouds. Not leaking half fen color. Stars flashing one flickering shuttling in cloud layer playing hide and seek. Additionally a big star faintly emitting threads of red light, shaking one swing in mid-air.
+Stepping out of the Tian family's door, Golden Pig raised his head to look at the sky. Tonight the moon was dim, hidden deep within thick clouds, not a trace of its light showing through. Stars flickered and darted among the cloud layers, playing hide and seek. And there was a large star, faintly emitting threads of red light, swaying in mid-air.
 
-He heart uneasy. Returning home, saw Old Mother and Lian Niang not at home. Probably went to watch Temple Festival Opera. Planed to first go near stage to find. Finishing watching Temple Festival Opera together then go home.
+His heart was uneasy.
+
+When he returned home, he found that his old mother and Lian Niang weren't there—probably gone to watch the Temple Festival Opera. He decided to find them near the stage first. They could finish watching together, then walk home.
 
 **(End of Chapter)**

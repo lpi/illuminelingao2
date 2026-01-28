@@ -1,91 +1,93 @@
 # Chapter 2617: Drawing the Sword to Help
 
-Le Ziren had an expression of obeying orders, while Zhang Jiayu nodded.
+Le Ziren stood at attention, awaiting orders. Zhang Jiayu nodded.
 
-"My Mom can't go on with him and wants a divorce," Guan Zongbao pulled Huang *Shi* and urged, "Mom, speak to the officer."
+"My mother can't go on living with him anymore—she wants a divorce," Guan Zongbao said, pulling Huang *Shi* forward. "Mom, tell the officer everything."
 
-Huang *Shi* hesitated, but under Guan Zongbao's repeated persuasion, she finally opened her mouth. As she spoke, she began to cry. Years of bitterness finally found a vent, and she finally had someone to confide in. She poured out everything from how she married into the Guan family, how her in-laws bullied her, how her husband reveled in dissipation outside when he was young, how he mentally tortured the mother and son after falling ill, how he disregarded his son's future and made him drop out of school... Even old rotten sesame and grain matters were all shaken out. She rambled on in one breath for nearly an hour.
+Huang *Shi* hesitated, but under her son's repeated urging, she finally began to speak. As the words came, so did the tears. Years of bitterness had finally found an outlet, someone willing to listen. She poured out everything: how she had married into the Guan family, how her in-laws had bullied her, how her husband had squandered his youth on drinking and women, how he had tormented mother and son after falling ill, how he had destroyed their son's future by forcing him to drop out of school. Every grievance, every petty injustice accumulated over the years came spilling out. She rambled for nearly an hour.
 
-Zhao Hening was infected by Huang *Shi*'s emotions and couldn't help remembering that her own biological parents cruelly threw her by the bridge when she was sick at a young age, letting her fade away in the cold wind. If she hadn't met Zhao Yingong who saved her, her white bones would have been gnawed clean by some wild dog long ago. Therefore, she felt the same empathy for Huang *Shi* and her son's situation, and tears of sympathy flowed as she listened.
+Zhao Hening found herself moved by Huang *Shi*'s anguish. She couldn't help but remember how her own birth parents had cruelly abandoned her by a bridge when she was young and sick, leaving her to fade away in the cold wind. Had Zhao Yingong not found and saved her, her bones would have been gnawed clean by wild dogs long ago. Hearing Huang *Shi*'s story stirred that old pain, and tears of sympathy streamed down her cheeks.
 
-Zhao Hening was weeping when a handkerchief appeared in front of her. She took it to wipe her tears before seeing clearly that it was Zhang Jiayu's hand, feeling somewhat embarrassed.
+A handkerchief appeared before her. She took it and wiped her eyes before realizing it was Zhang Jiayu who had offered it. A flush of embarrassment crept over her.
 
-Guan Zongbao also took a towel to wipe Huang *Shi*'s face. Huang *Shi* said with a hoarse voice, "I really don't want to live with him anymore. It's fine if I suffer myself, but look at Bao'er's face; the bruises and purple patches were all beaten by him. His leg was also bitten by him."
+Guan Zongbao fetched a towel to wipe his mother's face. Huang *Shi*'s voice came out hoarse. "I truly cannot bear to live with him any longer. If it were only my own suffering, I could endure it. But look at Bao'er's face—these bruises, these purple marks—his father did this. He even bit his leg."
 
-Saying this, she rolled up Guan Zongbao's trouser leg. A red and swollen teeth mark on the calf still had bloodstains, with a large piece of skin missing, looking quite gruesome.
+She rolled up Guan Zongbao's trouser leg. A red, swollen bite mark marred his calf, crusted with dried blood where a chunk of skin was missing. It was a gruesome sight.
 
-"Little Brother, apply some medicine. It will be serious if infected." Zhao Hening frowned and asked Le Ziren to take out a small bottle of sulfanilamide powder to hand to Guan Zongbao. Although the pharmaceutical factory already had better silver sulfadiazine ointment, she didn't bring it this time.
+"Apply some medicine to that wound, young man—it could get seriously infected." Zhao Hening frowned and had Le Ziren fetch a small bottle of sulfanilamide powder for Guan Zongbao. The pharmaceutical factory had developed superior silver sulfadiazine ointment, but she hadn't brought any this time.
 
-Zhao Hening said again, "Auntie, rest assured. As long as you want a divorce, I will definitely help you."
+"Auntie, rest assured," Zhao Hening said. "If you want a divorce, I will see it done."
 
-"The Guan clan has many people and great power. No one has upheld justice for us mother and son for many years. Sigh, how to divorce, woo woo woo..."
+"The Guan clan has too many members, too much power. No one has stood up for us in all these years." Huang *Shi* dissolved into sobs. "How could we possibly divorce? It's hopeless..."
 
-Zhao Hening was somewhat indignant and said, "Can having many people block bullets? I want to see just how tyrannical this clan is."
+Indignation flashed across Zhao Hening's face. "Can their numbers stop bullets? I'd like to see just how tyrannical this clan really is."
 
-Hearing the tragic experience cried out by Huang *Shi*, Zhang Jiayu was also itching with hatred towards this Guan Youde. Originally, he hesitated about intervening in others' domestic affairs, but Zhao Hening's duty-bound attitude provoked his emotions too. He said, "Auntie, rest assured. Upholding justice is a duty-bound matter for our generation. Even if it is your family affair, we will definitely seek justice from the Guan clan."
+Zhang Jiayu's blood had also risen at Huang *Shi*'s account. He felt a burning hatred for this Guan Youde. He had hesitated at first—intervening in another family's domestic affairs seemed improper—but Zhao Hening's righteous determination stirred something in him. "Auntie, take heart. Championing justice is our generation's duty. Family matter or not, we will make the Guan clan answer for this."
 
-Zhao Hening, however, said, "What family affair? Once in court, it is official business. Isn't it just divorce? I've seen plenty in Lingao. One of our Chiefs was divorced by his wife."
+"Family matter?" Zhao Hening scoffed. "The moment it reaches the court, it becomes official business. It's just a divorce—I've seen plenty in Lingao. One of our own Chiefs was divorced by his wife."
 
 "Sister, are you from Lingao?" Guan Zongbao asked.
 
-"To tell you the truth, we are an inspection team following the Magistrate to the countryside. The current Magistrate Zhang is my teacher. This Lady is determined to manage Auntie's matter!" Zhao Hening said through gritted teeth.
+"Since we're being honest—we're an inspection team accompanying the Magistrate on his rural tour. Magistrate Zhang is my teacher." Zhao Hening's jaw tightened. "This lady is determined to see your mother's case through."
 
-Guan Zongbao and Huang *Shi* were both startled. They originally thought they were begging Officer Le beside them. Unexpectedly, this girl who looked frail was the main principal, and actually a student of the Magistrate.
+Both Guan Zongbao and Huang *Shi* stared in shock. They had assumed they were petitioning Officer Le, who stood nearby. They never imagined this delicate-looking young woman was the one in charge—and a student of the Magistrate himself.
 
-Since ancient times, "Blue Sky Big Master" (*Qingtian Dalaye*) had always been more effective than "Royal Law." Huang *Shi* immediately pulled Guan Zongbao to kneel and cried, "Please, Blue Sky Big Master, make decisions for this common woman!"
+Since ancient times, having a *Qingtian Dalaye*—a "Blue Sky Master," a just and upright official—had always mattered more than abstract notions of law. Huang *Shi* immediately pulled Guan Zongbao down to kneel, crying out, "Please, Blue Sky Master, deliver justice for this common woman!"
 
-Zhang Jiayu and Zhao Hening hurriedly helped the mother and son up. Zhao Hening said, "Auntie doesn't need to be so polite. Under the Senate's rule, everyone is equal. How about this: you go back first. Three days later, come to the police station in Jiujiang Market. I will send a clerk to write a divorce petition for you. This matter will be handed over to the Circuit Court for trial. Whether Guan Youde is sick or not has nothing to do with whether you can divorce."
+Zhang Jiayu and Zhao Hening hurried to help them to their feet. "Auntie, there's no need for such formality," Zhao Hening said. "Under the Senate's rule, all people are equal. Here is what we'll do: return home for now. In three days, come to the police station at Jiujiang Market. I'll have a clerk draft a divorce petition for you, and the case will be submitted to the Circuit Court. Whether Guan Youde is sick or well has no bearing on your right to divorce."
 
-Huang *Shi* and her son thanked them a thousand times and wanted to keep Zhao Hening's group for lunch. Zhao Hening declined with the excuse of going elsewhere for inspection. Seeing the mother and son were pitiful, she took out a "Half Yuan" silver coin from her pocket to give them before leaving.
+Mother and son thanked them profusely and insisted they stay for lunch. Zhao Hening declined, citing other inspections to complete. Seeing their pitiful state, she pressed a "Half Yuan" silver coin into their hands before departing.
 
-On the way back, a grumbling sound came from Le Ziren's stomach. He mocked himself, "My stomach is disappointing, hahaha. Miss Zhao, let's eat some dry rations under that tree before going."
+On the way back, Le Ziren's stomach let out a loud grumble. He laughed self-consciously. "My stomach betrays me. Miss Zhao, shall we eat some rations under that tree before continuing?"
 
-Sitting cross-legged in the shade of the tree, Le Ziren took out dry rations and water from his backpack to hand to the two. After this incident, Zhang Jiayu couldn't help admiring Zhao Hening somewhat, saying, "I didn't expect Hening, though a woman, to be a person zealous for public interests and justice."
+They settled cross-legged in the shade while Le Ziren distributed dry rations and water from his pack. After what they had witnessed, Zhang Jiayu found his admiration for Zhao Hening growing. "I wouldn't have expected it, Hening—though you're a woman, you have a true passion for justice."
 
-Rather than saying Zhao Hening was touched and sad for Huang *Shi*'s experience, it was better to say Huang *Shi* evoked her sad past of being abandoned by birth parents. The taste was only known to herself and not enough to be told to outsiders. Zhao Hening didn't want to mention sad things, only saying, "Hmph, if I met such a man, if he dared to bully me, I would pop him with one shot."
+In truth, Zhao Hening's reaction to Huang *Shi*'s story ran deeper than mere sympathy. The woman's suffering had awakened her own buried pain of abandonment. But that was a private ache, not something to share with outsiders. Instead, she simply said, "Hmph. If I ever met such a man—if he dared lay a hand on me—I'd put a bullet in him."
 
-Le Ziren shivered in fright, almost choking. Words spoken from this Miss Zhao's mouth, popping meant popping; better not provoke her.
+Le Ziren shuddered and nearly choked on his food. When this particular young lady spoke of shooting someone, she meant it. Best not to provoke her.
 
-Zhang Jiayu asked, "Hening, why not stay for a meal? Maybe we can inquire about more news."
+"Hening, why didn't you accept their invitation to lunch?" Zhang Jiayu asked. "We might have learned more."
 
-Zhao Hening said, "Before leaving, the Chief instructed repeatedly not to eat strangers' food casually."
+"Before we left, the Chief gave strict instructions not to eat food offered by strangers."
 
-"Why is this? I thought the Chief instructed not to eat strangers' food fearing someone would poison us secretly. These mother and son don't look like people who would poison." Zhang Jiayu said.
+"Is it fear of poisoning? Those two hardly seemed like poisoners."
 
-Zhao Hening said, "The concern of preventing poisoning indeed has precedents. Previously, a work team in Lingao went to the countryside and was wiped out because of eating food poisoned by villagers. But on the other hand, we must also consider the safety of the food itself. Did you see hot water in their house?"
+"Poisoning is a real concern—there's precedent for it. A work team in Lingao was once wiped out by villagers who poisoned their food." Zhao Hening paused. "But there's another consideration: the safety of the food itself. Did you notice whether they had hot water in their home?"
 
-"Only well water, but what is the problem?" Zhang Jiayu didn't quite understand.
+"Only well water." Zhang Jiayu looked puzzled. "What's wrong with that?"
 
-"Seems you need to make up lessons on parasites," Zhao Hening said. "All agricultural areas need to use fecal fertilizer. Human and livestock feces contain many roundworm and hookworm eggs. Water sources are easily contaminated. If drinking raw water, it is easy to catch parasites. By the way, did you notice Huang *Shi* and her son's complexions are not quite normal?"
+"You need remedial lessons on parasites," Zhao Hening said. "All agricultural areas use night soil as fertilizer. Human and livestock waste contains countless roundworm and hookworm eggs. Water sources become easily contaminated. Drink unboiled water, and parasites follow. Did you notice anything unusual about Huang *Shi* and her son's complexions?"
 
-"Face has vegetable color." Zhang Jiayu recalled for a while and answered. Bottom-layer common people starved one meal and ate one meal, generally malnourished, usually looking yellow-faced and unhealthy.
+Zhang Jiayu thought back. "They looked sallow—that vegetable pallor."
 
-Zhao Hening shook her head and said, "There is a disease in Jiangnan and Zhejiang, called 'Mulberry Leaf Yellow' by folks. Those suffering from this disease have withered yellow skin color, fatigue and weakness, and edema of face and feet. When I was little, I thought this was a normal phenomenon for silkworm households. After arriving in Lingao, I learned in Teacher Zhang's biology class that this is a disease caused by parasites, called Hookworm Disease. Because it occurs frequently in silkworm and mulberry areas, it is commonly known as 'Mulberry Leaf Yellow.' Sufferers of this disease, in mild cases, have unbearable skin itching, dizziness and anemia, and occasional nausea. In severe cases, lower limbs or whole body edema, weak and feeble, gradually losing labor ability, so it is also called Lazy Yellow Disease. Pregnant women infected cause premature birth and stillbirth; children infected also affect development. This disease is also very popular in Guangzhou Prefecture."
+Poor folk who went hungry as often as they ate were typically malnourished, their skin tinged yellow and unhealthy.
 
-"Actually so serious?" Zhang Jiayu was somewhat surprised. Although his family was poor, as a scholar, his time working in the fields was very little. After passing the Xiucai exam, he prepared for the imperial examination with full strength, knowing very little about the risks faced by working people. Thinking of his parents' hard work, he felt a few more points of guilt in his heart.
+Zhao Hening shook her head. "There's a disease common to Jiangnan and Zhejiang that locals call 'Mulberry Leaf Yellow.' Sufferers have withered, yellowed skin, constant fatigue, and swelling in the face and feet. When I was young, I thought it was simply normal for silkworm-farming households. It was only after I reached Lingao and attended Teacher Zhang's biology class that I learned it's caused by parasites—hookworm disease. It's called 'Mulberry Leaf Yellow' because it's endemic to mulberry-growing regions. Mild cases bring unbearable itching, dizziness, anemia, occasional nausea. Severe cases lead to edema of the limbs or entire body, progressive weakness, and eventual loss of the ability to work—which is why it's also called 'Lazy Yellow Disease.' Infected pregnant women suffer miscarriages and stillbirths. Infected children suffer stunted development. The disease is rampant throughout Guangzhou Prefecture as well."
 
-"What do you think? Otherwise, would Guan Zongbao, a young lad, plus Huang *Shi*, two people, be unable to beat his Dad, that sick jar?" Zhao Hening said.
+"That serious?" Zhang Jiayu was taken aback. Though his family had been poor, as a scholar he had spent little time laboring in the fields. After passing his Xiucai examination, he had devoted himself entirely to preparing for the imperial exams, learning little of what common workers endured. Thinking of his parents' years of toil, guilt welled up within him.
 
-"So it was vegetable chickens pecking each other." Le Ziren teased.
+"Indeed. Why else do you think Guan Zongbao—a young man—and Huang *Shi* together couldn't overpower his sickly father?" Zhao Hening asked.
 
-Zhang Jiayu sighed, "Bai Letian once wrote *Watching Wheat Reaping*: 'What merit do I have today, never serving agriculture and sericulture. Official salary three hundred *shi*, surplus grain at year's end. Thinking of this I feel ashamed privately, unable to forget all day.' In the past, I only knew world affairs but didn't see affairs before eyes. Lu Fangweng said 'Knowledge obtained on paper feels shallow finally; absolutely know this matter requires personal practice.' Only today did I have some realization. Ashamed, ashamed."
+"So it was weaklings fighting each other," Le Ziren quipped.
 
-Hearing Zhang Jiayu say this, he was presumably a person with conscience too. Zhao Hening couldn't help increasing her good feelings by a few points, but said with her mouth, "Chiefs looking down on those sour scholars of the Ming Dynasty has reasons. Every one of them chants 'Zhi Hu Zhe Ye' in mouth, but actually four limbs are not diligent, five grains are not distinguished. Eating full all day but not thinking of people's suffering. Simply rice buckets, truly ashamed to face food."
+Zhang Jiayu sighed. "Bai Letian once wrote in *Watching the Wheat Reaping*: 'What merit have I today, never having tended field or silkworm? Three hundred *shi* my official salary, grain still left at year's end. Pondering this, I feel secret shame, unable to forget it all day long.' I used to concern myself with the great affairs of the world while remaining blind to what lay before my eyes. As Lu Fangweng said: 'What's learned from books remains shallow; true understanding demands personal experience.' Only today do I begin to grasp this. I am ashamed."
 
-"Hening, is there a method to eliminate parasites?" Zhang Jiayu asked.
+Zhang Jiayu's words suggested a man with genuine conscience. Zhao Hening felt her opinion of him rise, though she said, "The Chiefs have good reason to look down on those stale scholars of the Ming Dynasty. Every one of them chants classical phrases, yet they can't tell one grain from another and have never done a day's honest work. They fill their bellies without sparing a thought for the suffering of others. Mere rice buckets, truly unworthy of the food they eat."
 
-Zhao Hening shook her head and said, "Currently no solution. Can only treat after infection. But most farmers, to save money, are unwilling to see doctors."
+"Hening, is there a way to eliminate these parasites?" Zhang Jiayu asked.
 
-Even the cheapest medicine was still too expensive for many people in this space-time. Poor people getting sick could never count on medicine, relying entirely on "enduring."
+Zhao Hening shook her head. "Currently, no. We can only treat infections after they occur. But most farmers refuse to see doctors—they can't afford the expense."
 
-"Sigh, long sigh to cover tears; mourning the hardships of people's lives!" Zhang Jiayu sighed.
+Even the cheapest medicine remained beyond reach for many in this era. When poor folk fell ill, they couldn't rely on physicians. They simply endured.
 
-"However, in the long run, it's not without a solution," Zhao Hening remembered words Zhang Xiao said during class before. "Parasitic diseases like roundworm and hookworm are mainly transmitted through fecal fertilizer. Eggs enter the soil with fecal fertilizer. This is also why feces must be retted to maturity before application; eggs will die in large numbers during the retting process. Just that many farmers, to save labor, either are unwilling to ret fertilizer or don't have enough time. So a large number of eggs exist naturally in the soil. As long as people contact this soil, they may be infected, unavoidable. To solve this kind of parasitic disease from the source, only by vigorously developing productive forces. When the output of chemical fertilizer is large enough and the price is low enough to completely replace fecal fertilizer, that will be the time when these diseases exit the historical stage."
+"Alas," Zhang Jiayu sighed. "A long lament to hide these tears; mourning the hardships of the people's lives."
 
-"Productive forces again!" Zhang Jiayu was startled. The Senate's theory interlocked with reality so closely. No wonder they could sweep Two Guangs in less than ten years.
+"In the long run, though, there is hope," Zhao Hening said, recalling something Zhang Xiao had taught in class. "Parasitic diseases like roundworm and hookworm spread primarily through night soil. The eggs enter the earth when feces are used as fertilizer. That's why proper composting is essential—the retting process kills most of the eggs. But many farmers, to save labor, either skip composting or don't let it mature long enough. So countless eggs persist in the soil. Anyone who works that soil risks infection—it's unavoidable. To eliminate parasitic disease at its source, we must develop our productive forces. When chemical fertilizer becomes abundant and cheap enough to replace night soil entirely, these diseases will finally fade into history."
 
-While many cadres were sent out to "collect wind" (inspect), Zhang Xiao wasn't idle either. Medicine and hygiene were his old profession. He first took Hou Qing to inspect the development of smallpox vaccination work in Jiujiang "Vaccination Bureau," then immediately let her lead a team to various places to sample and investigate parasite infection situations. Then he led Tian Liang to inspect local education situations.
+"Productive forces again!" Zhang Jiayu was struck by the insight. The Senate's theories connected so seamlessly to practical reality. Small wonder they had swept through the Two Guangs in less than a decade.
 
-Guangdong's epidemic problem had always been the issue the hygiene department cared about most. Locals were different from Hainan; population density was extremely high. Once an epidemic occurred, it would cause devastating consequences. The plague in Guangzhou gave the Senate a solid lesson. Now every county regarded "epidemic prevention and vaccination" as an important matter to grasp.
+While cadres fanned out across the region to gather information, Zhang Xiao was not idle. Medicine and hygiene were his expertise. He first took Hou Qing to inspect smallpox vaccination efforts at Jiujiang's Vaccination Bureau, then dispatched her to lead a team sampling parasite infection rates across the district. Afterward, he brought Tian Liang along to examine local education conditions.
+
+The epidemic threat in Guangdong had always weighed heavily on the hygiene department. Unlike Hainan, the mainland's population density was extreme. Any outbreak could prove devastating. The plague in Guangzhou had taught the Senate a harsh lesson. Now every county treated epidemic prevention and vaccination as matters of the highest priority.
 
 **(End of Chapter)**

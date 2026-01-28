@@ -1,93 +1,93 @@
 # Chapter 2632: Legal Popularization Style Lawsuit (Part 1)
 
-A Clan Elder said angrily: "Zongbao, this is not words a junior like you should say. I consider you young and ignorant, so I won't haggle with you."
+One of the Clan Elders spoke up angrily. "Zongbao, those are not words befitting a junior. I'll overlook your rudeness this once, given your youth and inexperience."
 
-"Guan Youde, you say how to handle this matter?" Guan Boyi looked at Guan Youde.
+"Guan Youde," Guan Boyi said, turning to face him, "what do you propose we do about this matter?"
 
-Guan Youde walked out, pointing at Huang *Shi* saying: "I suffered enough bitterness for this family. I fought life to live till today. It is her! Not abiding by women's path, wearing green hat for me (cuckolding), angering me into this..."
+Guan Youde stepped forward and thrust an accusing finger at Huang *Shi*. "I've suffered endlessly for this family. I fought tooth and nail just to survive to this day. And her? She betrayed her womanly duties! She cuckolded me, and drove me to this state—"
 
-Guan Zongbao roared angrily, "You still rake backwards (counter-accuse), not afraid of suffering Heaven's Condemnation?"
+"You dare blame her?" Guan Zongbao roared. "Aren't you afraid of Heaven's Condemnation?"
 
-Guan Boyi was also angry, roared: "Shut mouth! Ancestors' faces are all lost by you! This matter not allowed to mention again!"
+Guan Boyi's face contorted with rage. "Silence! You've brought shame upon our ancestors! This matter will not be spoken of again!"
 
-Another Clan Elder came out to advise: "Past things just passed. Speaking also can't change past. Let's not mention all. Today only speak future matters."
+Another Clan Elder stepped forward to mediate. "What's past is past. Speaking of it changes nothing. Let us set aside old grievances. Today, we discuss only the future."
 
-Guan Youde said arrogantly: "From today on, as long as she is willing to treat me well, past things I won't mention completely. Guan Zongbao, as long as you call me a Dad, I still recognize you this son."
+Guan Youde puffed up with arrogance. "From this day forward, as long as she treats me well, I'll let bygones be bygones. Guan Zongbao, if you're willing to call me 'Father,' I'll still acknowledge you as my son."
 
-Huang *Shi* said: "Then I will treat him well. As long as he is willing to live days peacefully, I also forgive him this one time."
+Huang *Shi* bowed her head. "Then I will treat him well. As long as he's willing to live peacefully, I can forgive him this once."
 
-Guan Zongbao was angry straight to laugh, didn't want to say a single sentence.
+Guan Zongbao was so furious he laughed bitterly, unable to utter a single word.
 
-Guan Boyi seeing fire duration (*Huo Hou*) arrived, said to Huang *Shi*: "I know your family life is difficult. From today, clan supports one hundred *jin* grain monthly. Since Official Family intervened in this matter, can't fold Official Family's face either. Official Family is about to open an Agricultural Technology School in this township. At that time Clan will provide fund, sending Guan Zongbao to study. Is this arrangement good?"
+Seeing that the moment was ripe, Guan Boyi addressed Huang *Shi*. "I understand your family's difficulties. From now on, the clan will provide you with one hundred *jin* of grain each month. Since the Official Family has taken an interest in this matter, we mustn't lose face before them. The Official Family plans to establish an Agricultural Technology School in this township. When it opens, the clan will fund Guan Zongbao's enrollment. Does this arrangement satisfy you?"
 
-Huang *Shi* naturally thanked thousand times ten thousand times. Guan Zongbao however was like a leaked rubber ball, couldn't be happy a bit.
+Huang *Shi* thanked him profusely. Guan Zongbao, however, deflated like a punctured ball, unable to muster even a shred of joy.
 
-Next day, Guan Zongbao secretly went to Jiujiang Great Market to find Zhao Hening. Zhao Hening after listening was also angry till unknowing so (confused/furious). Pulled Zhang Jiayu horse not stopping hoof (hurriedly) to find Huang *Shi* to ask details.
+The next day, Guan Zongbao slipped away to the Jiujiang Great Market to find Zhao Hening. After hearing the whole story, she was livid with confusion and fury. She grabbed Zhang Jiayu and they rode without pause to question Huang *Shi* directly.
 
-Huang *Shi* a look of not wanting to toss about (*Zhe Teng*), said resentfully: "I am also thinking for Bao'er. Even if I divorce him, in future Bao'er same wants to support him. If something happens still Bao'er bears. Might as well I help him block."
+Huang *Shi* wore the weary expression of someone who had given up the fight. "I'm doing this for Bao'er's sake," she said resentfully. "Even if I divorced that man, Bao'er would still be obligated to support him. If anything happened, Bao'er would bear the burden. Better that I shield him from it."
 
-Zhao Hening said: "If you want to avoid him, simply don't be too easy. Now under Senate rule River Clear Sea Calm (*He Qing Hai Yan*), you mother and son fly high far away, even going to Nanyang to beg living won't starve you."
+"If you want to escape him, it couldn't be easier!" Zhao Hening exclaimed. "Under Senate rule, peace reigns everywhere. You and your son could fly far away—even if you went to Nanyang to make a living, you wouldn't starve."
 
-"Sigh, Sister, you don't understand. Every family has a difficult scripture to read." Huang *Shi* speaking speaking cried again.
+"Sister, you don't understand." Huang *Shi* sighed heavily. "Every family has its own troubles." As she spoke, tears began streaming down her face again.
 
-"Simply... simply..." Zhao Hening was angry somewhat incoherent, "I today just know what 'Mourning her misfortune, angering her not fighting' means!"
+"This is just—I can't even—" Zhao Hening sputtered with incoherent rage. "Today I finally understand what it means to 'mourn someone's misfortune while raging at their refusal to fight!'"
 
-Zhang Jiayu as a native, could understand Huang *Shi*'s situation instead. But from heart, he still hoped Huang *Shi* could leave Guan Youde to start new life. Zhang Jiayu advised: "Aunt's situation I can understand. But your choice is truly an unwise move. Guan Youde's nature already formed for decades; can't change."
+Zhang Jiayu, as a local, could better appreciate Huang *Shi*'s predicament. Still, in his heart, he hoped she would leave Guan Youde and start fresh. "Aunt, I understand your situation," he said gently. "But this choice is truly unwise. Guan Youde's nature was set decades ago. He won't change."
 
-"Right ah. Can dog change eating shit? Have you seen?" Zhao Hening anger didn't strike one place, yet no place to vent. Pulled Zhang Jiayu hammering fiercely a few fists on his back, beating Zhang Jiayu grinning straightly.
+"Exactly! Can a dog stop eating shit? Have you ever seen that happen?" Zhao Hening's fury had nowhere to go. She grabbed Zhang Jiayu and pummeled his back with her fists, making him wince and grimace.
 
-Guan Zongbao asked Zhao Hening: "Then can my Mom's marriage still be divorced?"
+Guan Zongbao looked at Zhao Hening hopefully. "Can my mother's divorce still go forward?"
 
-Zhao Hening said: "Divorce what divorce ah! Divorce is civil lawsuit, needs to have plaintiff. Now plaintiff doesn't want to sue, could it be asking Judge to separate them two forcefully?"
+Zhao Hening shook her head. "Divorce? How can we proceed with a divorce? It's a civil lawsuit—there has to be a plaintiff. The plaintiff doesn't want to sue anymore. What are we supposed to do, ask the Judge to forcibly separate them?"
 
-Guan Zongbao sighed a breath, shook head straightly.
+Guan Zongbao let out a long sigh and shook his head repeatedly.
 
-Zhao Hening used pity to say: "You watch. Her bitter days are still behind!"
+Zhao Hening's voice softened with pity. "Mark my words. Her bitter days are still ahead."
 
-Let Zhang Jiayu and Zhao Hening two people advise how, Huang *Shi* was not moved. Attitude even became more and more determined. Finally no method, two people had to go back with extremely sad and cool mood.
+No matter how Zhang Jiayu and Zhao Hening pleaded, Huang *Shi* remained unmoved. If anything, her resolve only hardened. Finally, with no recourse left, the two departed in bitter disappointment.
 
-Zhao Hening reported process one by five one by ten (in detail) to Zhang Xiao and Li Yao'er roughly. Sighing while speaking, "I truly don't understand. What exactly is she thinking in brain? Is brain filled with all shit?"
+Zhao Hening reported every detail to Zhang Xiao and Li Yao'er. Between sighs, she said, "I truly don't understand. What is she thinking? Is her head filled with nothing but excrement?"
 
-Li Yao'er said: "Not experiencing a matter, not growing a wisdom. Hening, passing this matter you should have some growth. Changing a person's thought how difficult. Especially adults. Wanting a person lived for decades to admit his persistence of past decades was all wrong, is no less than collapse of whole spiritual world! Rather than so, might as well wrong continuously, rest until death."
+Li Yao'er replied thoughtfully, "Experience is the mother of wisdom. Hening, you should take a lesson from this. Changing someone's mind is incredibly difficult—especially an adult's. To make someone who has lived for decades admit that everything they believed was wrong? That's nothing less than the collapse of their entire world. Rather than face that, they'd rather persist in their mistakes until death."
 
-"Human is just such an animal. No matter did what wrong thing, can find excuse for self, also want to rake backwards (counter-accuse)." Zhang Xiao remembered Liu Dalin's evaluation on Chen Zizhuang before again, shook head: "Sigh, truly as wife despising this person's water and fire, immediately able to rise following husband, die following husband, towards women's path truly never not accusing."
+"Humans are like that," Zhang Xiao added, remembering Liu Dalin's earlier assessment of Chen Zizhuang. He shook his head. "No matter what wrong they've done, they can always find excuses for themselves—and even turn around to blame others. Truly, as the saying goes: 'One may despise a person as intensely as fire and water, yet she can still follow her husband in life and death, faithful to womanly virtue to a fault.'"
 
-Then said to Zhao Hening and Zhang Jiayu: "However seeing injustice on road drawing sword to help, is what you young people should do. No need to take to heart deeply. Injustice and unfairness in this world exist everywhere. Not relying on a cavity of hot blood can change immediately—changing world is effort of many years many people."
+He continued, addressing Zhao Hening and Zhang Jiayu. "That said, drawing your sword to help when you see injustice—that's exactly what young people should do. Don't take this too much to heart. Injustice exists everywhere in this world. It cannot be changed overnight by passion alone. Transforming the world requires the sustained effort of many people over many years."
 
-Zhang Jiayu said: "Student received teaching!"
+Zhang Jiayu bowed his head. "I have received your teaching!"
 
-Zhao Hening muttered: "I made such big battle array. Ten *li* eight townships all knew I this Women's Federation Special Commissioner want to make decision for women. She is good, now quitting burden (*Liao Tiao Zi*) directly. Truly too angering people! Pitiful person must have hateful place!"
+Zhao Hening muttered bitterly, "I made such a grand spectacle of this. Every village within ten *li* knew that I, the Women's Federation Special Commissioner, was going to stand up for women. And now she just quits on me. It's infuriating! A pitiful person always has something hateful about them!"
 
-Zhang Xiao smiled saying: "Little Hening ah, don't be angry. Angry easy to get old. Your propaganda is still very effective right. Huang *Shi* doesn't come still have Zeng *Shi*. Zeng *Shi* doesn't come still have Song *Shi*, Ding *Shi*. We continue playing music continue dancing!"
+Zhang Xiao smiled. "Little Hening, don't be angry. Getting angry ages you. Your publicity efforts weren't wasted. If Huang *Shi* won't come forward, there's still Zeng *Shi*. If not her, then Song *Shi* or Ding *Shi*. The music plays on, and the dance continues!"
 
-Speaking to bottom, Huang *Shi*'s case was just a "Typical." No Huang "Typical" also had Li "Typical." Always had people hoping to change destiny boldly. Divorce case kind of cases were not fought for first time in Guangdong either.
+When it came down to it, Huang *Shi*'s case was merely a "Typical Example." Without Huang as a representative case, there would be Li or someone else. There would always be people bold enough to fight for their destiny. Divorce cases were hardly unprecedented in Guangdong.
 
-Zhang Xiao immediately let people inform to four countrysides "Releasing Accusation": Determined to hold case trial by County Circuit Court in Jiujiang Market on June 15th.
+Zhang Xiao promptly dispatched notices to the surrounding countryside announcing the "Release of Accusations": A trial would be held by the County Circuit Court at Jiujiang Market on June 15th.
 
-After Witchcraft Case (*Wu Gu An*), Court System strengthened judicial construction in Guangdong. Especially "Circuit Trial" system already developed very maturely in Guangdong these two years. Nanhai, Panyu two counties' courts all established multiple Circuit Tribunals. According to certain cycle conducting trials on cases at various markets within county.
+Following the Witchcraft Case, the Court System had strengthened judicial construction throughout Guangdong. The "Circuit Trial" system in particular had matured considerably over the past two years. The courts of Nanhai and Panyu counties had established multiple Circuit Tribunals, conducting trials at various markets within their jurisdictions according to a regular schedule.
 
-Every arriving a place stayed for about a week time. Mainly conducting summary trials on various civil lawsuits and minor violation cases. Trial open transparent. Cases tried were mostly affairs related to masses' daily production and life. Plus extensive application of Ma Xiwu Style Trial Method, sticking to people's condition people's livelihood as possible. So once promoted, soon obtained very good effect. Could say Senate's initial "Legal Popularization" started from Circuit Court. After all majority common people couldn't read various "Legal Popularization Small Booklets" clearly, but were ears hearing eyes dyed (influenced), impression profound towards process of trying cases and "Summary Statement" of judge at last.
+At each location, the court would remain for approximately one week, primarily conducting summary trials for civil lawsuits and minor violations. Trials were open and transparent. The cases heard mostly concerned affairs directly related to the daily lives and livelihoods of common people. Combined with the extensive application of the Ma Xiwu Style Trial Method—which adhered closely to local conditions and people's welfare—the system quickly achieved excellent results once implemented. One could say the Senate's initial "Legal Popularization" campaign began with the Circuit Courts. After all, most commoners couldn't read the various "Legal Popularization Booklets," but through what they heard and witnessed firsthand, they gained profound impressions of the trial process and the judge's "Summary Statement" at its conclusion.
 
-Because effect significant, also gave Liang Xinhu and others confidence to perfect Two Guangs Region legal system comprehensively. After all now naturalized citizen judges of various courts were mostly from three-month short training class origins. Only extremely few people had received two-year Fangcaodi Judicial Training Class legal education after graduating complete primary school.
+The significant results gave Liang Xinhu and his colleagues confidence to comprehensively perfect the legal system throughout the Two Guangs Region. Currently, the naturalized citizen judges serving in various courts mostly came from three-month accelerated training programs. Only a select few had completed two years of legal education at the Fangcaodi Judicial Training Class after graduating from primary school.
 
-Circuit Court tried mostly civil cases. Characteristic was case condition complex, very hard to apply law articles simply—let alone *Civil Code* revised by Senate was huge masterpiece. Don't say naturalized citizen judges from three-month crash training class, even Senators of Law Society dared not say self having bamboo in chest (confident) towards this plagiarized code.
+The Circuit Court primarily handled civil cases. Their defining characteristic was complex circumstances that resisted simple application of legal statutes—especially since the *Civil Code* revised by the Senate was a massive work. Setting aside the naturalized citizen judges from crash training courses, even the Senators of the Law Society wouldn't dare claim complete mastery over this adapted code.
 
-After making many not big not small jokes, Circuit Trial also gradually got on formal track. On one hand was drawing lessons from advanced experience of old time space. On the other hand was Liang Xinhu following method of Zhu Yuanzhang compiling *Grand Pronouncements* (*Da Gao*) back then, publishing *Typical Precedents* once a month. These cases some were accumulated cases of Senate engaging in judicial construction in Hainan, some were cases of Old Time Space. Of course, which specific ones to select and compile, mainly was result after organizing and summarizing cases tried by judges every month, to ensure cases could stick to reality as possible.
+After producing several embarrassing missteps of varying severity, the Circuit Trial system gradually found its footing. On one hand, they drew lessons from advanced practices of the old time-space. On the other, Liang Xinhu followed the method Zhu Yuanzhang had used when compiling the *Grand Pronouncements*, publishing a collection of *Typical Precedents* monthly. These cases included some accumulated from the Senate's judicial construction work in Hainan, along with cases from the Old Time-Space. Of course, the selection and compilation depended primarily on organizing and summarizing the cases tried by judges each month, ensuring the precedents remained grounded in reality.
 
-Looking from their current trial situation, local most civil cases were property disputes. Especially regarding land aspect. Including dividing family analyzing property (*Fen Jia Xi Chan*), tenancy disputes, land ownership...
+Looking at the current trial situation, most local civil cases involved property disputes—particularly concerning land. This included family division and property distribution, tenancy disputes, and land ownership claims.
 
-Among them case conditions involving land mostly relatively complex, involving many "Historical Problems." Especially related deeds, mostly years deep days long, either incomplete, or text ambiguous, true fake hard to distinguish. This made judges scratch head very much. Because ordinary people knew very little about government deeds, adhering completely to retained personnel to identify and organize.
+Cases involving land were generally the most complex, entangled with numerous "historical problems." The relevant deeds were often ancient, either incomplete, ambiguously worded, or of questionable authenticity. This gave judges considerable headaches. Because ordinary people knew little about official documentation, they relied entirely on retained personnel to identify and organize these materials.
 
-To avoid taking opportunity to commit fraud by this kind of retained personnel, they were centrally arranged in newly established Judicial Appraisal Center as technical personnel, only responsible for appraising materials, not docking with specific cases.
+To prevent such retained personnel from exploiting their positions for fraud, they were centrally assigned to a newly established Judicial Appraisal Center as technical specialists, responsible only for appraising materials without direct involvement in specific cases.
 
-Despite having help of this Appraisal Center, cases involving field property were still biggest headache cases for naturalized citizen judges. Even if Liang Xinhu went out personally to try might not be better to where. After all "Taking fact as basis," but this fact was ambiguous unclear. Many didn't have text material to prove. Regarding "Witness," frankly speaking in this time space where village party, same clan relationships prevailed, truly not quite reliable. Sometimes Liang Xinhu and naturalized citizen judges could only come a "Free Heart Testimony" (*Zi You Xin Zheng* - Free Evaluation of Evidence).
+Despite having this Appraisal Center's assistance, cases involving real property remained the greatest headache for naturalized citizen judges. Even if Liang Xinhu himself presided, results wouldn't necessarily improve much. After all, "taking facts as the basis" required clear facts—but these facts were often murky and undocumented. As for "witnesses," frankly speaking, in this time-space where village factions and clan relationships dominated, they were not particularly reliable. Sometimes Liang Xinhu and the naturalized citizen judges could only resort to "Free Evaluation of Evidence."
 
-In comparison, cases like divorce and analyzing property appeared much "Easier." Especially divorce case. Generally speaking, wanting to fight lawsuit to divorce in this time space, basically were unable to live on; could say having made determination. Case condition often had great dramatic nature. Every trial also received folks' attention specially. Therefore although case condition simple, out of propaganda purpose, trial instead relatively meticulous. Hoping to obtain best "Legal Popularization" effect.
+By comparison, cases like divorce and property division appeared far more manageable. Divorce cases especially. Generally speaking, anyone willing to fight a lawsuit for divorce in this era had reached the end of their rope—one could say their determination was absolute. Such cases often possessed great dramatic quality. Every trial drew considerable public attention. Therefore, though the circumstances might be simple, for propaganda purposes the trials were conducted with particular care, in hopes of achieving the best possible "Legal Popularization" effect.
 
-One week before Circuit Court arrived at Jiujiang, local naturalized citizen cadres posted relevant notices. Those wanting to fight lawsuit prepare relevant text materials in advance. At this moment on streets of Jiujiang Market, inside tea houses, in inns, Litigation Masters holding "Agent Writing Complaint" cloth banners could be seen everywhere, competing to solicit business.
+One week before the Circuit Court's arrival at Jiujiang, local naturalized citizen cadres posted relevant notices, advising those wishing to bring lawsuits to prepare their documentation in advance. At that moment, throughout the streets of Jiujiang Market, inside tea houses and inns, Litigation Masters could be seen everywhere holding cloth banners reading "Agent Writing Complaints," competing vigorously for business.
 
-Because illiteracy rate of this time space was very high, and fighting lawsuit must write complaint, so Litigation Masters spread to rural areas rapidly from original Prefecture City, County City following footsteps of Circuit Court.
+Because illiteracy rates in this era were extremely high, and filing a lawsuit required a written complaint, Litigation Masters had rapidly spread from the original Prefecture and County Cities to rural areas, following in the footsteps of the Circuit Court.
 
-Although these Litigation Masters hadn't learned "Australian" laws, they were very sensitive to rule type things. Without passing any training, after a few years, actually could write various "Australian" legal documents road familiar door familiar (skillfully). This made Liang Xinhu also feel very surprised.
+Although these Litigation Masters had never formally studied "Australian" law, they possessed a keen sensitivity to rules and regulations. Without any official training, after just a few years they had become remarkably adept at drafting various "Australian" legal documents. Even Liang Xinhu found himself surprised by their proficiency.
 
 **(End of Chapter)**

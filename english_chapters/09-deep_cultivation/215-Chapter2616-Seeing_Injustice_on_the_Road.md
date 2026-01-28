@@ -1,107 +1,107 @@
 # Chapter 2616: Seeing Injustice on the Road
 
-"Auntie, are there markets nearby to buy silkworm papers?"
+"Auntie, where can I buy silkworm papers nearby?"
 
-"Yes, Jiujiang Great Market has them. Silkworm paper shops generally rent shop fronts in the market. Also, some seed makers carry on shoulders, or boat alone, shuttling between small markets in townships, setting up stalls to sell on the spot."
+"There's the Jiujiang Great Market. Silkworm paper shops usually rent space there. Some seed vendors also carry their wares on shoulder poles or travel by boat, moving between the township markets to set up stalls and sell directly."
 
-"Oh, how many silkworm papers are suitable to buy for each crop?"
+"I see. How many silkworm papers should one typically buy per crop?"
 
-"This depends on how many mulberry leaves your family's mulberry land has. However, generally, more silkworm papers will be booked. Early silkworm ants consume few mulberry leaves. If unprofitable, excess silkworms can be discarded. If many seek to buy raw silk, then go to Mulberry Market to buy mulberry leaves, not needing to stick to one's own mulberry land. Furthermore, if encountering flood or disease, booking more silkworm papers prevents total failure."
+"That depends on how many mulberry leaves your family's land can produce. Most people book more papers than they need, though. Young silkworm larvae don't eat much. If the yield looks unpromising, you can always discard the excess. But if demand for raw silk is high, you can buy additional mulberry leaves at the Mulberry Market rather than relying solely on your own trees. Booking extra papers also protects against total failure if floods or disease strike."
 
-After asking about silkworm seeds, Zhao Hening got up and said, "Auntie, is it convenient to see your family's silkworms?"
+After learning about silkworm seeds, Zhao Hening rose and asked, "Auntie, would it be convenient to see your silkworms?"
 
-Huang *Shi* also hurriedly got up and said, "No harm, no harm. Just that my humble home is vulgar; fear it obstructs Sister's eyes."
+Huang *Shi* stood quickly. "Of course, of course. I only worry my humble home might offend your eyes."
 
-"What is Auntie saying? I also come from a poor family."
+"What are you saying, Auntie? I come from a poor family myself."
 
-Lifting the door curtain cloth, Zhao Hening found the layout of the silkworm room very different from Jiangnan. Small windows were opened on mud walls, and small holes were opened at wall corners, seemingly for ventilation, but all covered with thick paper hemp cloth, probably to prevent flies and insects. Silkworm rooms taboo high temperature and humidity most. Thatched roofs helped ventilation, and mud walls could block moisture, but the floor contacted mulberry dike mud directly. During the rainy season, moisture easily invaded.
+Lifting the door curtain, Zhao Hening found the silkworm room's layout quite different from those in Jiangnan. Small windows had been cut into the mud walls, with additional holes at the corners—apparently for ventilation—though all were covered with thick paper and hemp cloth, likely to keep out flies and insects. Silkworm rooms were most vulnerable to high temperatures and humidity. The thatched roof would help with airflow, and mud walls blocked moisture well enough, but the floor sat directly on the dike soil. During the rainy season, dampness would seep up easily.
 
 "Auntie, why not build a separate silkworm room?" Zhao Hening couldn't help asking.
 
-Huang *Shi* looked embarrassed and said, "Sister is joking. Family is destitute; truly powerless to build another silkworm room."
+Huang *Shi*'s expression grew pained. "You jest, Sister. We're far too poor to afford another building."
 
-Zhao Hening shook her head. Humans and silkworms cohabiting in one room, the noisy environment, excessive human *qi*, and filthy space were all unfavorable for silkworm growth. She immediately said, "Auntie, don't blame me for having a big mouth. I have seen other families raising silkworms. Cohabiting in one room makes silkworm babies prone to sickness. Better think of a way to build a separate silkworm room."
+Zhao Hening shook her head. Having humans and silkworms share the same room meant noise, excess human *qi*, and unsanitary conditions—all detrimental to the silkworms' health. "Forgive me for speaking plainly, Auntie. I've observed other families raising silkworms, and when they share living quarters, the silkworms fall ill more easily. You should find a way to build a separate room if you can."
 
-"Sister is right. I also plan to raise a few more crops to save some money, then hire people to build a thatched hut."
+"You're right, Sister. I'm hoping to raise a few more crops and save enough to hire someone to put up a thatched hut."
 
-"Auntie, when will this crop of silkworms 'Go Up the Mountain'?"
+"When will this crop 'Go Up the Mountain'?"
 
-"What does the 'Go Up the Mountain' Sister says mean?"
+"'Go Up the Mountain'? What does that mean?"
 
-"It means cocooning." Jiangnan area called silkworms going onto the limit/trays to cocoon "Going Up the Mountain." Obviously, Huang *Shi* didn't know.
+"Cocooning." In Jiangnan, silkworms climbing onto their trays to spin cocoons was called "Going Up the Mountain." Huang *Shi* clearly hadn't heard the term.
 
-"Oh, tomorrow is the Third Sleep. Only need one day. Three days later there is another sleep, called 'Great Sleep,' also one day. Four or five days after Great Sleep, silkworms cocoon. Locals call it 'Going Up the Tray' (*Shang Bo*)."
+"Ah, I understand. Tomorrow is the Third Sleep—that takes just one day. Three days later comes another sleep, the 'Great Sleep,' also lasting one day. Four or five days after that, they cocoon. We call it 'Going Up the Tray' (*Shang Bo*)."
 
-Zhao Hening was relatively interested in the difference between the two places and asked, "Can I see your family's silkworm trays?"
+Zhao Hening was interested in the regional differences. "May I see your silkworm trays?"
 
-Huang *Shi* then took Zhao Hening to another room. A pile of rectangular bamboo products was piled in the corner. These were silkworm trays. Silkworm trays were about three *chi* and two *cun* long. Bamboo strips formed a skeleton like swimming pool lanes. On the skeleton, thinned bamboo strips were bent into oval shapes one *cun* long and half *cun* wide, forming small spaces convenient for silkworms to spin silk and cocoon, distinctly different from the "Straw Dragon" commonly used in Jiangnan area.
+Huang *Shi* led her to another room where a pile of rectangular bamboo implements sat stacked in the corner. The trays measured about three *chi* and two *cun* long, with bamboo strips forming a skeleton like lanes in a swimming pool. Atop this frame, thinner bamboo strips had been bent into oval shapes—each about one *cun* long and half a *cun* wide—creating small compartments for the silkworms to spin their cocoons. They were distinctly different from the "Straw Dragons" commonly used in Jiangnan.
 
-Zhao Hening asked, "Your silkworm trays are very different from Jiangnan. Are there any particular reasons?"
+"Your trays are quite different from ours. Is there a particular reason?"
 
-"So Sister is from Jiangnan; no wonder..." Huang *Shi* said, "Jiujiang climate is humid and muggy. Such silkworm trays are easy for ventilation and dehumidification. Before 'Going Up the Tray,' fire must be used to roast silkworm trays, burning off remaining silk after cocoon extraction from the previous crop. One or two days after 'Going Up the Tray,' 'Cocoon Baking' (*Bei Jian*) is needed. Stand silkworm trays opposite like a '人' character, spreading about twenty sheets, all surrounded firmly with straw mats and thick paper. Open a small hole at the top corner to facilitate moisture venting out. In the middle of every eight silkworm trays, place a fire basin. After baking about one and a half double-hours (*Shichen*), flip silkworm trays up and down, baking once more. Thus silkworm pupae are all baked dead before dry cocoons can be taken down safely."
+"So you're from Jiangnan—that explains it." Huang *Shi* nodded. "Jiujiang's climate is humid and muggy. These trays allow better ventilation and moisture control. Before the silkworms go up, we roast the trays over fire to burn off any remaining silk from the previous crop's cocoon extraction. Then, a day or two after they've cocooned, we perform 'Cocoon Baking' (*Bei Jian*). We stand the trays opposite each other in an inverted V shape—like the character '人'—spreading out about twenty sheets and wrapping them tightly with straw mats and thick paper. A small hole at the top corner lets the moisture escape. We place a fire basin between every eight trays. After baking for about one and a half double-hours (*Shichen*), we flip the trays and bake them again. This kills all the pupae so we can safely collect the dried cocoons."
 
-Zhao Hening said, "Presumably this is because the local climate is humid; baking cocoons can prevent cocoons from mildew and rot." Of course, besides this, baking cocoons could also kill silkworm pupae and parasites like fly gnats attached to pupae, fixing cocoons in the state when on the tray, conducive to silk reeling.
+"The humid climate must make the baking necessary to prevent mold and rot," Zhao Hening observed. Of course, beyond this, baking also killed parasites like fly larvae that might attach to the pupae, fixing the cocoons in their optimal state for reeling.
 
-"Sister is intelligent, understanding at one hint." Huang *Shi* praised, "It's just baking cocoons costs more silver money."
+"You catch on quickly, Sister." Huang *Shi* smiled. "The only trouble is the extra expense."
 
-"Oh, how much silver money?"
+"How much does it cost?"
 
-"Six sheets per tray consume three *jin* of charcoal, costing about two *fen* (candareens) of silver."
+"Every six sheets requires three *jin* of charcoal, about two *fen* of silver."
 
-Zhao Hening felt this bit of silver was nothing, but for poor farmers, one more *li* (cash) was also money. Zhao Hening didn't tangle on this matter and asked again, "Is silk reeled by yourselves after collecting cocoons?"
+To Zhao Hening, this seemed trivial, but for poor farmers, every extra *li* mattered. She let the topic go and asked, "Do you reel the silk yourselves after collecting the cocoons?"
 
-Asking this question was because when Zhao Yingong ran a filature in Hangzhou back then, he encountered the difficulty of cocoon acquisition. Silkworm farmers raised silkworms laboriously; mostly, they were unwilling to sell cocoons just like that because the profit was too low. In the medieval agricultural society, the value of labor was very low. Exchanging a large amount of labor for negligible cash income was a very common phenomenon. Jiangnan silkworm farmers generally made silk themselves for sale, forming a rural sideline labor of considerable scale.
+The question arose from memory: when Zhao Yingong had established his filature in Hangzhou, he'd struggled with cocoon acquisition. Silkworm farmers who had labored so hard were generally unwilling to sell their cocoons outright—the profit was too meager. In this medieval agricultural society, labor held little monetary value, and exchanging enormous effort for negligible cash was common. Jiangnan farmers typically produced their own silk for sale, creating a substantial cottage industry.
 
-Plus there was a "Silk Cocoon Guild" in the middle monopolizing the small amount of directly sold cocoons. Zhao Yingong couldn't acquire cocoons directly from farmers either, only able to buy from the Silk Cocoon Guild. after thinking repeatedly, Zhao Yingong decided to start from scratch. Control cocoon production directly from the origin. Precisely speaking, it was a small producer cooperative model similar to Leizhou Agricultural Cooperative.
+Moreover, a Silk Cocoon Guild monopolized what few cocoons were sold directly. Zhao Yingong couldn't purchase from farmers himself; he could only buy through the Guild. After much deliberation, he'd decided to start from scratch—controlling cocoon production directly at the source through a small producer cooperative model similar to the Leizhou Agricultural Cooperative.
 
-"Indeed reeling silk ourselves," Huang *Shi* was somewhat curious, asking, "Are there people in Jiangnan selling cocoons directly? That's too unworthy. Besides, no one here acquires cocoons."
+"We do reel our own silk," Huang *Shi* replied, looking curious. "Do people in Jiangnan actually sell cocoons directly? That seems foolish. Besides, no one here buys them anyway."
 
-Cocoon markets were products of the machine silk reeling industry. Without the massive demand of filatures, cocoon markets wouldn't form. The revolutionary significance of cocoon markets was separating the silk reeling industry from sericulture. Zhao Hening thought in her heart: *It seems local sericulture is not as developed as Jiangnan. No one collects sporadic cocoons. This is a manifestation of insufficiently refined social division of labor.*
+Cocoon markets were products of the machine reeling industry. Without filatures creating massive demand, such markets couldn't form. Their revolutionary significance lay in separating silk reeling from sericulture entirely. *The local silk industry must be less developed than Jiangnan's*, Zhao Hening thought. *No one collects scattered cocoons—a sign that the division of labor hasn't advanced enough.*
 
-"Is raw silk selling good?" Zhao Hening asked again.
+"Is raw silk selling well?" she asked.
 
-"Okay. All bought by local silk workshops and merchants."
+"Well enough. Local workshops and merchants buy it all."
 
-Zhao Hening was quite strange, saying, "Since Australians came, Frankish merchants increase day by day. Overseas trade surpasses year by year. Haven't raw silk sales increased greatly?"
+Zhao Hening found this strange. "Since the Australians arrived, Frankish merchants have been increasing every year, and overseas trade keeps growing. Hasn't demand for raw silk risen substantially?"
 
-"Indeed not; just like usual."
+"Not really—it's the same as always."
 
-Zhao Hening asked, "Is it not said 'Guang yarn and gauze together with Niu Lang Silk, Five-Thread, Eight-Thread, Cloud Satin, bright satin are valued by the capital beyond the ridges, and East and West Oceans?' Someone wrote a Bamboo Branch Song: 'Foreign ships strive to come out as official merchants, Cross Gate opens towards two oceans. Five-thread Eight-thread Guang satin is good, silver money piles full in Haopan Fang.'"
+"But isn't there a saying: 'Guang yarn and gauze, Niu Lang Silk, Five-Thread, Eight-Thread, Cloud Satin, and bright satin are prized in the capital and beyond the ridges, and in the Eastern and Western Oceans'? Someone even wrote a Bamboo Branch Song: 'Foreign ships race to join the official merchants, Cross Gate opens toward two oceans. Five-thread Eight-thread Guang satin sells well, silver money piles high in Haopan Fang.'"
 
-Huang *Shi*, a mere rural woman, the farthest place she went was Jiujiang Great Market. Naturally unknowing of the inside story, she only said she didn't know.
+Huang *Shi* was merely a rural woman whose travels had never extended beyond the Jiujiang Great Market. She knew nothing of such matters and could only say so.
 
-Zhao Hening then changed the topic direction, asking, "Is raw silk traded in the Silk Market?"
+Zhao Hening shifted direction. "Is raw silk traded at the Silk Market?"
 
-Huang *Shi* said, "Naturally."
+"Naturally."
 
-Immediately Huang *Shi* introduced the situation of the Silk Market. Jiujiang currently hadn't formed a specialized Silk Market. Similar to the Mulberry Market, Silk Markets might be places as small as one or two shops, mostly established in existing markets. Silk Markets generally just provided a place for buyers and sellers to meet and bargain, also setting up public scales, charging a certain percentage of commission from buyers and sellers.
+Huang *Shi* then described the local Silk Market. Jiujiang hadn't yet developed a specialized exchange. Similar to the Mulberry Market, the Silk Market might consist of just one or two shops within existing marketplaces. These venues simply provided space for buyers and sellers to meet and negotiate, maintaining public scales and charging commission from both parties.
 
-Local Mulberry Markets and Silk Markets both provided loans, with monthly interest about 2%. Once small farmers encountered natural or man-made disasters and cash was insufficient to maintain reproduction, they had to turn to usury.
+Both the Mulberry and Silk Markets also offered loans at roughly two percent monthly interest. When small farmers faced natural disasters or other crises and lacked the cash to continue production, they had no choice but to turn to these usurious rates.
 
-Seeing Huang *Shi* and her son living in destitution, Zhao Hening couldn't help asking, "They say a family with ten *mu* of land, raising silkworms with mulberry, can fill eight mouths. Why do you live so poorly?"
+Seeing how destitute Huang *Shi* and her son appeared, Zhao Hening couldn't help asking, "People say a family with ten *mu* of mulberry land can feed eight mouths raising silkworms. Why do you live in such poverty?"
 
-Huang *Shi* sighed deeply, face sorrowful, but didn't speak.
+Huang *Shi* let out a deep sigh, her face heavy with sorrow, but said nothing.
 
-Guan Zongbao seeing his mother silent, explained, "My family also has a medicine jar, taking medicine all year round, doing no labor all day, also drinking excessively and smoking. Years of savings have long been squandered empty. If not frugal, we mother and son would have long been reduced to slaves."
+Seeing his mother's silence, Guan Zongbao explained: "We also have a medicine jar in the family—someone who takes medicine year-round, never works a day, and spends all his time drinking and smoking. Years of savings were squandered long ago. If we weren't extremely frugal, my mother and I would have been reduced to slaves by now."
 
-Le Ziren aside was familiar with the local situation and also explained to Zhao Hening, "Jiujiang takes fish, mulberry, silkworm, and silk as big. Even gentry clans won't give up management. From spring to winter, no need to worry about having nothing to do. With capital, profits from fish and silkworms turn like wheels. Families without capital can also cut grass and pick mulberries, also able to survive. The only thing to worry about is luxury and waste. In other places after autumn and winter, grain goes into barns, passing the year peacefully and fully. Jiujiang worries about 'mulberry branch tail hard.' If not frugal and saving during silkworm and mulberry days, there is nothing to resist winter. Widows feeding themselves by their own labor instead have surplus funds; this is the reason for frugal living. So the proverb says: 'Widows have grain to sell'."
+Le Ziren, familiar with local conditions, added his own explanation for Zhao Hening: "Jiujiang's prosperity rests on fish, mulberry, silkworm, and silk. Even gentry clans involve themselves in the trade. From spring to winter, there's always work to be done. Those with capital can make profits from fish and silkworms that compound like turning wheels. Those without can still cut grass and pick mulberries to survive. The only danger is extravagance. In other regions, once autumn and winter arrive, grain goes into the barn and families pass the year in peace and plenty. But in Jiujiang, people worry about 'mulberry branch tail growing hard.' If you don't save during the silk and mulberry season, you'll have nothing to see you through winter. Widows who support themselves through their own labor often have surplus funds precisely because they live frugally. Hence the proverb: 'Widows have grain to sell.'"
 
-Unlike other farmers planting rice, farmers based on mulberry dike fish ponds had products not of grain, but commodities like fish, raw silk, and mulberry leaves. Unable to achieve self-sufficiency like rice farmers, they needed to exchange for grain from the market to survive. Therefore, their living conditions were constrained by income. Factors affecting income: first, this model required large capital investment; second, products needed to be put on the market directly. Thus, farmers' lives were in relatively high risk. When floods came, fish escaped, mulberry failed. Silkworms having no mulberry leaves or getting sick also meant no harvest. If one crop of silkworm and mulberry failed, the loss would likely affect the production of the next crop. Market turbulence also made farmers' lives hard to stabilize. What mulberry dike fish pond farmers held after selling products was currency, also facing temptations like gambling and alcoholism. Worrying about "mulberry branch tail hard" meant fearing that capital invested on ordinary days was much, and if not frugal usually, it would be hard to have savings to buy rice and grain to resist winter.
+Unlike farmers who grew rice, those who worked the mulberry dike fish ponds produced not grain but commodities—fish, raw silk, and mulberry leaves. Unable to achieve self-sufficiency like rice farmers, they depended on the market to exchange their goods for food. This made their circumstances far more precarious. The business model required substantial capital investment, and products had to be sold directly. When floods came, fish escaped and mulberry crops failed. Silkworms without mulberry leaves—or struck by disease—yielded nothing. A single failed crop could devastate the next season's production. Market fluctuations made stable lives impossible. And since what these farmers held after selling their products was currency rather than stored grain, they faced constant temptation from gambling and drink. To worry about "mulberry branch tail growing hard" meant fearing that heavy capital investment combined with careless spending would leave nothing for winter rice.
 
-Zhao Hening was somewhat puzzled, asking Guan Zongbao, "Who is the medicine jar you mentioned? Your wife or child?"
+Zhao Hening was puzzled. "Who is this 'medicine jar' you mentioned?" she asked Guan Zongbao. "Your wife or child?"
 
-Guan Zongbao said, "It's my Dad."
+"My father."
 
-"Why don't we see him?"
+"Where is he? We haven't seen him."
 
-Huang *Shi* said, "He just came here to cause trouble last night, forcibly demanding one tael of silver, saying he was going to Guangzhou to do business."
+Huang *Shi*'s expression darkened. "He came by last night to make trouble. Demanded one tael of silver, claiming he needed it to do business in Guangzhou."
 
-Hearing this, Zhao Hening revealed a quite sympathetic expression, sighed, and said, "So pitiful. How can there be such a dad in the world?"
+Hearing this, Zhao Hening's face filled with sympathy. She sighed. "How pitiful. What kind of father behaves that way?"
 
-Guan Zongbao said instead, "Sister, if possible, I want to ask Officer Le to uphold justice for my Mom."
+Guan Zongbao seized the moment. "Sister, if it's possible, I'd like to ask Officer Le to seek justice for my mother."
 
-Facing the sudden request, Le Ziren looked confused. He, a small resident police officer, had no roots locally. He probably couldn't manage domestic trivia, so he looked towards Zhao Hening.
+The sudden request caught Le Ziren off guard. He was just a minor resident police officer with no local roots—hardly in a position to meddle in domestic matters. He looked uncertainly toward Zhao Hening.
 
-Zhao Hening said without hesitation, "I person can't stand injustice in the world most. Whatever grievance Auntie suffered, just speak up. We will definitely help if we can." After speaking, she also looked at Le Ziren and Zhang Jiayu.
+"There's nothing I hate more than injustice," Zhao Hening declared without hesitation. "Whatever wrong has been done to you, Auntie, speak freely. If we can help, we will." She turned to Le Ziren and Zhang Jiayu, her meaning clear.
 
 **(End of Chapter)**

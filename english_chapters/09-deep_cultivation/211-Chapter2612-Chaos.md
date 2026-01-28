@@ -1,101 +1,101 @@
 # Chapter 2612: Chaos
 
-Guan Youde bid farewell to Zhong Ji and dragged his groggy head home, not even greeting acquaintances he met along the way.
+Guan Youde bid farewell to Zhong Ji and dragged himself home, his head still foggy. He passed acquaintances along the way without so much as a nod.
 
-With a *squeak*, the door was pushed open. The adobe house was empty, with few valuable things. It was not an exaggeration to say that the family had nothing but bare walls.
+The door opened with a drawn-out squeak. Inside, the adobe house stood empty—bare walls, a few meager possessions. Calling the family destitute would have been generous.
 
-After squinting on the dilapidated bed for a while, Guan Youde got up, lit firewood on the small stove, and started brewing medicine. All the silver in the family these years had been consumed in the medicine jar.
+After dozing on the dilapidated bed for a while, he rose and lit a fire in the small stove to brew his medicine. Every tael of silver the family had earned over the years had vanished into that medicine jar.
 
-He didn't know what sin he had committed in his previous life to get a strange disease in the prime of his life. In ten years, he had seen all the famous and fashionable doctors around. He also invited gods from Daoists, and drank plenty of talisman water from shamans and witches, but he just didn't get better. His body became worse day by day, yet God wouldn't let him die immediately. After the Australians fought in, he pawned his family property to scrape together silver to seek medical treatment at the Provincial and Port General Hospital. A doctor named Fu said it was some intractable disease and prescribed him a Chinese medicine formula. Strange to say, it actually stabilized his illness. For the past two years, he relied on this prescription to prolong his life.
+He didn't know what sins he'd committed in a past life to be struck down with this strange illness in the prime of his years. Over the past decade, he'd consulted every renowned physician in the region. He'd invited Daoist priests to pray for him and choked down talisman water from shamans and witches. Nothing worked. His body deteriorated day by day, yet Heaven refused to let him die. After the Australians arrived, he'd pawned what remained of the family property to scrape together enough silver for treatment at the Provincial and Port General Hospital. A doctor named Fu had diagnosed it as some intractable condition and prescribed a Chinese medicine formula. Strangely enough, it actually stabilized his illness. For two years now, this prescription had kept him alive.
 
-After drinking the medicine, Guan Youde remembered meeting a childhood playmate doing business in the city when seeing a doctor in Guangzhou, who had invited him to make a fortune together. He couldn't help having ideas in his heart. He touched his empty money bag and rummaged through the house, only finding a small piece of broken silver, not even enough for travel expenses to Guangzhou City.
+After drinking his medicine, Guan Youde's thoughts drifted to a chance encounter during one of his trips to Guangzhou—a childhood friend, now a businessman, who had invited him to make a fortune together. The idea took root in his mind. He fingered his empty money pouch and ransacked the house, finding only a small piece of broken silver. Not even enough for travel expenses to the city.
 
-"I can only go to that stinking woman and rebellious son to demand some silver to use." Guan Youde thought in his heart.
+*I'll have to squeeze some silver out of that stinking woman and that rebellious son of mine,* he thought.
 
-At dusk, Guan Youde came to a mulberry dike not far outside the village, where several silkworm farmers' thatched huts were located. The walls of the thatched huts were woven from mulberry branches cut in winter and plastered with mud, and the roof was covered with rice straw. This kind of thatched hut was the residence of local poor silkworm farmers, where the silkworm room and bedroom were mixed and undivided. Due to simple construction and low cost, they were widely distributed. Wherever there were mulberry fields, such silkworm huts were seen.
+At dusk, Guan Youde made his way to a mulberry dike just outside the village, where several silkworm farmers had built thatched huts. The walls were woven from mulberry branches cut in winter and plastered with mud; the roofs were covered with rice straw. These crude structures served as homes for the poorest silkworm farmers, who lived and worked in the same space—silkworm room and bedroom undivided. Simple and cheap to build, such huts dotted the landscape wherever mulberry fields grew.
 
-Guan Youde pushed the door and entered. He saw a haggard middle-aged woman wearing ragged clothes feeding mulberry leaves to silkworms in the dim thatched hut. The woman glanced at Guan Youde, her face gloomy, saying nothing, her hands working non-stop, as if as long as she didn't stop, Guan Youde would automatically disappear.
+Guan Youde pushed the door open. In the dim interior, a haggard middle-aged woman in ragged clothes was feeding mulberry leaves to silkworms. She glanced at him, her face darkening, and said nothing. Her hands never stopped working, as though if she just kept moving, he might simply disappear.
 
-"Give me two taels of silver; I want to go to Guangzhou City." Guan Youde said to the woman. He didn't call her name, nor did he use a title.
+"Give me two taels of silver," Guan Youde said. "I'm going to Guangzhou." He didn't use her name. He didn't use a title.
 
-Hearing this, the woman was very dissatisfied and said, "The silver is all managed by Bao'er."
+The woman's expression soured further. "Bao'er manages the silver."
 
-Guan Youde scolded unhappily, "You slut, what kind of attitude is this? Do you still have me, the head of the family, in your eyes?"
+Guan Youde scowled. "You slut, what kind of attitude is that? Do you even remember I'm the head of this family?"
 
-"The head of the family should look like a head of the family." The woman retorted, her words having thorns.
+"Then perhaps the head of the family should act like one." Her words carried thorns.
 
-Guan Youde also got angry and scolded, "My being betrayed by everyone and separated from wife and children in this life is all caused by you, this cheap woman! If you hadn't cuckolded me, would I have become this ghost-like appearance now?"
+His temper flared. "Betrayed by everyone, abandoned by wife and child—and it's all because of you, you cheap woman! If you hadn't cuckolded me, would I have ended up like this?"
 
-"Hmph," the woman sneered, thinking in her heart: *What a 'betrayed by everyone and separated from wife and children.' I am your wife. Following you in this life, I haven't enjoyed half a day of blessing. You got a strange disease yourself, and the family property was all consumed by you, yet you blame me! You are fickle and unjust, hooked up with wild women, and even beat me out of the house. Now you have the face to add crimes to my head. Why is God so blind not to let the King of Hell take you earlier?*
+The woman snorted. *Betrayed by everyone, he says. Abandoned by wife and child. I am his wife. I've followed this man my whole life without a single day of blessing. He brought this strange disease on himself. The family fortune—he consumed it all. And now he blames me. He's the one who was fickle and faithless, who chased after other women, who beat me and threw me out of the house. Now he has the gall to heap crimes on my head. Why is Heaven so blind? Why won't the King of Hell just take him?*
 
-It turned out this woman was Guan Youde's wife by first marriage, Huang *Shi* (User's Note: Huang Clan/Lady Huang), who was driven out of the house by him going crazy two years ago.
+This woman was Huang Shi—Lady Huang—Guan Youde's first wife. He had driven her out in one of his rages two years ago.
 
-Guan Youde scolded for a while. Huang *Shi* just endured, continuing to say nothing. At this time, the leaky thatched door was pushed open, and a fifteen or sixteen-year-old teenager came in. This was the "Bao'er" in Huang *Shi*'s mouth, and also the only offspring of her and Guan Youde, named Guan Zongbao.
+Guan Youde ranted on. Huang Shi endured in silence. Then the leaky door creaked open, and a boy of fifteen or sixteen stepped inside. This was the "Bao'er" she had mentioned—Guan Zongbao, the only child she and Guan Youde had together.
 
-Seeing Guan Youde here, Guan Zongbao's mood suddenly became very low. He didn't want to look at him even once, nor did he call him, going straight to help Huang *Shi* work.
+Seeing his father there, Guan Zongbao's spirits plummeted. He refused to look at the man, refused to greet him. He walked straight past and began helping his mother work.
 
-Guan Youde exploded instantly and scolded, "Guan Zongbao, do you still have me, this Dad, in your eyes? Are you my son or not?"
+Guan Youde exploded. "Guan Zongbao! Do you even acknowledge me as your father? Are you my son or not?"
 
-Huang *Shi* also flared up and screamed, "How is he not your son?"
+Huang Shi flared up as well. "Of course he's your son!"
 
-"If you are my son, you refuse to even call me Dad! Do you have a shred of respect for me, this Dad?" Guan Youde said exasperatedly.
+"If he's my son, why won't he even call me Dad? Is there a shred of respect in him for his own father?" Guan Youde's voice was shrill with indignation.
 
-"Ask yourself, what have you done in so many years worthy of my respect?" Guan Zongbao didn't know where the courage came from, stiffening his neck to roar back at Guan Youde. Usually, he hid if he could and avoided if he could.
+"Ask yourself," Guan Zongbao shot back, the words surprising even him, "what you've done in all these years that deserves my respect?" Usually he hid when he could, avoided the man whenever possible. But something in him had snapped.
 
-"Then you are not my son! Do you dare to go to the ancestral hall with me and drip blood to recognize kin in front of the whole clan! If it drips out that you are not my son, I won't look for you in the future, nor need you to be responsible." Guan Youde scolded while taking out matches and cigarettes to light up.
+"Then you're not my son! Go on—dare to come to the ancestral hall with me. We'll drip blood before the whole clan and settle this once and for all. If it proves you're not my blood, I won't bother you again. You won't owe me a thing." Guan Youde pulled out matches and cigarettes, striking a light.
 
-Seeing this, Huang *Shi* shouted anxiously, "Don't smoke here! The silkworms will be smoked to death by you! Get out quickly!"
+Huang Shi shrieked in alarm. "Don't smoke in here! You'll kill the silkworms! Get out!"
 
-Seeing his mother anxious, Guan Zongbao also stepped forward and shouted, "Get out!"
+Seeing his mother's panic, Guan Zongbao stepped forward. "Get out!"
 
-Guan Youde saw the sky was turning upside down. The stinking woman and son dared to shout at him like this; he simply exploded with rage, scolding, "You dare to drive me out! This is my home! I am the head of the family!"
+Guan Youde felt the world turning upside down. This stinking woman and worthless son, daring to shout at him? Rage consumed him. "You dare throw me out? This is my home! I am the head of this family!"
 
-"Go back to your Guan Family Village to be the head of the family! These two thatched huts were built by me and my Mom with bundles of branches and handfuls of grass!" Guan Zongbao was very indignant, shouting back without showing weakness.
+"Go back to Guan Family Village and be the head there!" Guan Zongbao shouted back without flinching. "These huts—my mother and I built them with our own hands, branch by branch, handful of grass by handful of grass!"
 
-How could Guan Youde stand this anger? He slapped Guan Zongbao on the face with a backhand. Guan Zongbao was beaten back two steps, momentarily furious, rushing up to wrestle with Guan Youde. Since ancient times, a son beating a father was the most despised behavior in feudal ethics. Guan Zongbao didn't dare to strike hard, only trying to find a way to press Guan Youde on the ground to stop him from moving. Guan Youde showed no mercy when hitting people, but unfortunately, he was riddled with old illness after all, and his strength couldn't compare to the teenage Guan Zongbao. After hitting Guan Zongbao a few times, he was pressed on the ground.
+How could Guan Youde stand such insolence? He backhanded the boy across the face. Guan Zongbao stumbled back two steps, fury rising in him, and lunged forward to grapple with his father. Since ancient times, a son striking his father was the most despised act under feudal ethics. Guan Zongbao didn't dare hit hard—he only tried to pin the man down, to stop him. But Guan Youde showed no such restraint. Fortunately, years of illness had left him weak, and he couldn't match his teenage son's strength. After landing a few blows, he found himself pressed to the ground.
 
-Seeing the father and son fighting, Huang *Shi* was so anxious that tears flowed uncontrollably, crying and wailing.
+Huang Shi watched father and son fight, tears streaming down her face as she wailed.
 
-How could Guan Youde be willing to give up? Seeing no chance of winning, he opened his mouth and bit firmly on Guan Zongbao's calf. Guan Zongbao hurt so much that he quickly let go of his leg. Because he used too much force just now, Guan Zongbao's limbs were now weak, hands and feet like filled with lead, and instead, he was gained the upper hand by Guan Youde.
+But Guan Youde wouldn't give up. Seeing he couldn't win, he opened his mouth and sank his teeth into Guan Zongbao's calf. The pain was excruciating—the boy released him at once. The exertion had left Guan Zongbao's limbs weak and heavy as lead, and now Guan Youde gained the upper hand.
 
-Seeing this, Huang *Shi*, afraid her son would be beaten into some mishap, rushed up to hit Guan Youde, shouting, "Don't hit my son, don't hit my son. If you want to hit, hit me..."
+Terrified her son would be seriously hurt, Huang Shi threw herself at her husband, striking at him. "Don't hit my son! If you must hit someone, hit me—"
 
-Guan Youde let go of Guan Zongbao and went to hit Huang *Shi* again. For a time, the thatched hut was in chaos like chickens flying and dogs jumping. Crying and shouting mixed together. Neighbors living nearby were attracted over, and only then separated them. Seeing it was someone else's family affair, neighbors only offered kind words of persuasion; no one was willing to uphold justice.
+Guan Youde released the boy and turned on her instead. Chaos erupted in the thatched hut—crying and shouting, bodies crashing about. Neighbors drawn by the noise finally arrived to separate them. Seeing it was a family affair, they offered only gentle words of mediation. No one was willing to get involved.
 
-Guan Youde spat and said, "Give me two taels of silver; I want to go to Guangzhou!"
+Guan Youde spat on the floor. "Give me two taels of silver. I'm going to Guangzhou."
 
-Huang *Shi* cried, "Two taels of silver! With the chaos of war these two years, don't you know how hard life is? If given to you, what will mother and son use to buy charcoal for drying cocoons and silkworm papers for the next crop?"
+Huang Shi sobbed. "Two taels! With the war these past two years, don't you know how hard life has been? If we give it to you, how will we buy charcoal for drying cocoons? How will we afford silkworm papers for the next crop?"
 
-Guan Youde snorted coldly, "Whether you steal or sell, what does it matter to me? You are my wife; giving money to me is justified by heaven and earth! I worked hard to raise the son; now it should be his turn to support the father!"
+Guan Youde snorted. "Steal it. Sell something. What do I care? You're my wife—giving me money is only right. I raised that son. Now it's his turn to support his father."
 
-Guan Zongbao knew that Guan Youde would never give up today without getting silver. He only felt infinite resentment in his heart but didn't know where to vent it. Gritting his teeth, he said, "Silver! Silver! You only know silver! When have you ever had us mother and son in your heart?"
+Guan Zongbao knew the man would never leave without silver. Resentment churned inside him with nowhere to go. Through gritted teeth he said, "Silver! Silver! That's all you ever think about! When have you ever thought about us?"
 
-After speaking, Guan Zongbao rummaged in the thatched hut. From several different locations on the roof, wall, and underground, he dug out a few pieces of broken silver, totaling about one tael, and threw them to Guan Youde: "If you want silver, take it. Don't come to bother us in the future!"
+He began searching the hut, digging out small pieces of broken silver from hiding spots—the roof, the walls, beneath the floor—until he'd gathered roughly one tael. He threw it at Guan Youde's feet. "You want silver? Take it. And don't come back to bother us again."
 
-Guan Youde picked up the silver, weighed it in his hand, and sneered, "I will come back." After speaking, he left without looking back.
+Guan Youde picked up the pieces, weighed them in his palm, and sneered. "I'll be back." Then he turned and left without a backward glance.
 
-After the fight just now, Guan Zongbao was weak all over, mouth and tongue dry. The soaring adrenaline in his blood made his face pale and head dizzy. Thirsty and unbearable, he scooped up a bowl of cold water from the bucket and drank it. After a while, he felt uncomfortable in his stomach and vomited holding the urine bucket.
+After the fight, Guan Zongbao's body felt drained, his mouth parched. Adrenaline still coursed through him, leaving his face pale and his head spinning. Desperately thirsty, he scooped a bowl of cold water from the bucket and drank it down. Minutes later, his stomach rebelled, and he vomited into the chamber pot.
 
-Huang *Shi* had endured for many years. Since the family shame was seen by neighbors today, she cried and complained in front of them. If she didn't speak up at this time, in a few days, unfavorable gossip about her mother and son would spread in the village. Bystanders couldn't manage this matter. After listening, apart from sighing, it had no effect. Kind people would at most say a few words about Guan Youde's fault when hearing gossip.
+Huang Shi had endured in silence for years. But now that neighbors had witnessed her family's shame, she poured out her grievances before them. If she didn't speak now, within days the village would be buzzing with rumors unfavorable to her and her son. The bystanders couldn't do much—they listened, sighed, and that was all. The kinder ones might speak a word against Guan Youde when gossip circulated.
 
-After the neighbors dispersed, only a mess was left in the thatched hut. Guan Zongbao took out a candle, struck a match to light it. The shadows of mother and son flickered under the weak flame.
+After the neighbors dispersed, only wreckage remained. Guan Zongbao found a candle and struck a match. The weak flame set mother and son's shadows flickering on the walls.
 
-Guan Zongbao looked at his calf, on which a gruesome teeth mark was left, still bleeding. He remembered the clan elders said that animals' mouths were poisonous and had to be washed with burning wine (alcohol) if bitten, so he rummaged through general debris to find a small bottle of burning wine and poured it on. It hurt so much that tears appeared in the corners of his eyes.
+He looked down at his calf. A gruesome bite mark oozed blood. He remembered the clan elders saying that human mouths were filthy—any bite wound had to be washed with burning wine. He rummaged through the clutter until he found a small bottle and poured it over the wound. The pain brought tears to his eyes.
 
-Huang *Shi*'s eyes were dull and her expression trance-like, just silently shedding tears. The burden of survival already made her breathless, and there was still a plague-god-like man at home coming to disturb from time to time.
+Huang Shi sat with a vacant stare, tears sliding silently down her cheeks. The burden of survival already crushed her, and still this plague of a man came to torment them.
 
-After treating the wound, Guan Zongbao asked Huang *Shi*, "Mom, what to do in the future?"
+After tending his wound, Guan Zongbao asked, "Mom, what are we going to do?"
 
-Huang *Shi* cried, "This god-damned one, why doesn't God take him away! I don't know what sin I committed in my previous life to come to pay the debt. I have had enough of such days..."
+She wept. "That god-cursed man—why won't Heaven take him? I don't know what sins I committed in a past life to deserve this. I can't bear these days anymore..."
 
-Hearing Huang *Shi* had thoughts of suicide, Guan Zongbao hurriedly said, "Mom, if you don't want to live with him, then don't live with him."
+Hearing the despair in her voice, Guan Zongbao said quickly, "Mom, if you don't want to live with him, then don't."
 
-Huang *Shi* said, "I thought about it too, but with his appearance now, how could he possibly divorce me? If he were a beast thing, he would have been beaten to death and sold for meat long ago. Who told him to be a human too."
+"I've thought about it," she said. "But the way he is now, he'd never agree to a divorce. If he were a beast, he'd have been beaten to death and sold for meat long ago. But he's human. There's nothing to be done."
 
-"Then let's go far away to another hometown and never come back."
+"Then let's leave. Move somewhere far away and never come back."
 
-Huang *Shi* hesitated slightly, "If mother and son leave, he will definitely go to my maiden home to cause trouble. Your grandpa is old, and uncle is useless..."
+Huang Shi hesitated. "If we disappear, he'll go to my maiden home and make trouble. Your grandfather is old. Your uncle is useless..."
 
-Guan Zongbao was also resentful in his heart. Neighbors were poor, but families were harmonious, and days would eventually get better. Why was his home chaotic all day long? All roots lay in that person; he must find a way to get rid of him.
+Guan Zongbao's heart seethed with resentment. The neighbors were poor too, but their families were harmonious—their lives would improve with time. Why was his home always in turmoil? All of it traced back to one person. He had to find a way to be rid of him.
 
 **(End of Chapter)**

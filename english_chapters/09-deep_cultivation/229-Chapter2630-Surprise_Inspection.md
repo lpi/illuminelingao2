@@ -1,85 +1,89 @@
 # Chapter 2630: Surprise Inspection
 
-Coming out from Patriarch's home, Guan Youde who knelt for two hours (*one shichen*) already couldn't bear it somewhat. He didn't understand he was like this for so many years; why Patriarch would get angry today. Complained to Guan Richang again: "Branch Head, why you make big topic on small work. Whose family doesn't have a difficult scripture to read?"
+After two hours (*one shichen*) of kneeling at the Patriarch's home, Guan Youde could barely stand. He didn't understand—he'd been this way for years. Why was the Patriarch suddenly so angry? He complained to Guan Richang as they walked away: "Branch Head, why make such a fuss over something so small? Every family has its share of troubles."
 
-Guan Richang was also angry, casually gave Guan Youde a slap, scolding: "Still don't know repentance right?"
+Guan Richang was furious. He slapped Guan Youde across the face. "Still no remorse?"
 
-Guan Youde covered face, gloomy saying nothing.
+Guan Youde held his cheek, sulking in silence.
 
-Guan Richang said: "Quickly go find your wife, advise with good words. If can avoid entering Public Court, henceforth you live days with her well, don't generate incident again. If entering Public Court, you wait to be removed name from Clan Register."
+"Go find your wife," Guan Richang said. "Speak to her gently. If you can keep this out of Public Court, do so—and treat her properly from now on. No more incidents. But if this goes to court, you'll be stricken from the Clan Register."
 
-After Mo Yu got Zhang Xiao's instruction, first arranged several Tanka boys to monitor every move of Qiaonan Village secretly. Found every few days ships transporting Silkworm Feces entered, but already reduced significantly compared to previous days. Every day also small amount of ships transporting things out. Inspected a few times, only found some manure soil similar to farmyard manure. Said to be remaining medicine dregs after refining this year's patent medicine almost finished.
+---
 
-Only gain was confirming position of Zhu clan's patent medicine refining workshop. Seeing no clue, Qiaonan Village was water splashing not enter (impenetrable) again. Mo Yu decided to take two Resident Police to walk a trip personally.
+Following Zhang Xiao's instructions, Mo Yu first arranged for several Tanka boys to covertly monitor Qiaonan Village. They observed that boats carrying silkworm feces still entered the village every few days, though the frequency had dropped significantly. Small quantities of goods were also shipped out daily. Upon inspection, these proved to be nothing more than manure-like soil—residue, they were told, from the season's nearly depleted patent medicine production.
 
-Local large village stronghold patterns all had obvious military defense functions. Outside village mostly utilized fish ponds and natural river ponds to form water channels similar to moat. Village periphery buildings uniformly opened doors and windows towards inside. Between buildings utilized terrain to build enclosing walls, fences, arrow towers and other facilities. Roads entering and exiting village also only had a few fixed entrances and exits. Closed at night, people responsible for guarding at day.
+The only useful discovery was confirming the location of the Zhu clan's patent medicine workshop. With no other leads, and Qiaonan Village proving impenetrable to outside inquiry, Mo Yu decided to visit personally with two Resident Police officers.
 
-Mo Yu and Le Ziren could only enter from village entrance. Don't know coincidence or arranged early, when arriving at village entrance, Mo Yu met Zhu clan's Old Butler.
+Large local villages were designed with obvious military defense in mind. Fish ponds and natural waterways formed moat-like barriers around their perimeters. All buildings along the village edge faced inward, with their doors and windows opening away from the outside. The gaps between structures were filled with enclosing walls, fences, and arrow towers. Only a few fixed entrances permitted access—closed at night and guarded during the day.
 
-Zhu Butler seeing Mo Yu, asked greetingly with smile: "Master Mo, truly rare guest ah. What wind blew your old man here today?"
+Mo Yu and Le Ziren could only enter through the main gate. Whether by coincidence or prior arrangement, they encountered Zhu clan's Old Butler the moment they arrived.
 
-Mo Yu looked east looked west a circle, said: "Nothing, nothing. I just turn around everywhere. These days Chief Zhang goes down to countryside to experience people's feelings. Must earn a earn performance, avoiding being scolded by Chief."
+Zhu Butler greeted them with a smile. "Master Mo! A rare guest indeed. What brings you here today?"
 
-Zhu Butler smiled understandingly, "Master Mo what words. With Master sitting in this township, those demons and monsters ran no shadow long ago."
+Mo Yu glanced around casually. "Nothing special. Just making the rounds. Chief Zhang has been touring the countryside to understand conditions on the ground. I need to show I'm earning my keep—otherwise I'll get an earful."
 
-Mo Yu said casually: "Coming all came, Zhu Butler doesn't invite me inside to sit sit?"
+The Butler nodded knowingly. "Master Mo is too modest. With you overseeing this township, all the troublemakers fled long ago."
 
-Zhu Butler stunned, immediately said: "Aiyo, look at me this old muddle. Master Mo please inside. I arrange down immediately."
+"Well, since I'm already here," Mo Yu said lightly, "won't you invite me in for a visit?"
 
-Not walking to Zhu Residence yet, Le Ziren smelled bursts of foul smell coming from air, couldn't help covering nose with hand. Zhu Butler seeing situation, said smilingly: "Several Masters don't mind. Countryside place, taking fish mulberry as profession, manure fertilizer used much. Stink is a bit stinky, yet is what we these farming households like most."
+Zhu Butler hesitated briefly, then recovered. "Ah, forgive this old fool's manners! Please, come in. I'll make arrangements right away."
 
-Mo Yu said instead: "No harm. Our newly appointed Chief Zhang manages finely. How Fish Flower fished, how fish fry raised, where fertilizer come from, all want to ask. These days my pressure mountain big. Zhu Butler might as well take me to see, tell us how to compost, also let Chief Zhang know I wait (we) serve Senate with all heart."
+Before they reached the Zhu Residence, Le Ziren caught a foul stench drifting through the air. He covered his nose involuntarily. Zhu Butler smiled apologetically. "Please don't mind it, Masters. This is country living—we make our living from fish and mulberry, so we use plenty of manure. It stinks, certainly, but it's what we farmers value most."
 
-Zhu Butler somewhat compelled, said: "That kind of filthy place, fear obstructing Master's eyes. If known by my Master, definitely punish me. Master Mo better follow me to main hall to sit sit, taste top quality Limu Mountain Oolong Tea."
+"No harm done," Mo Yu replied. "Our new Chief Zhang is thorough. He wants to know everything—how fish are caught, how fry are raised, where the fertilizer comes from. He's been putting a lot of pressure on us lately. Why don't you show me your composting operation? Tell us how it's done. That way I can prove to Chief Zhang we're serving the Senate wholeheartedly."
 
-Mo Yu insisted on going to see. Zhu Butler had to take them to a composting place. Indeed was place farmyard composting, no abnormality. Immediately Mo Yu asked some composting details again. Zhu Butler also answered one by one.
+Zhu Butler looked uncomfortable. "That filthy place would offend your eyes, Master. If my Master learned I'd taken you there, he'd punish me. Please, let me escort you to the main hall instead. I'll serve you our finest Limu Mountain Oolong Tea."
 
-Le Ziren knew where workshop position was. Just here could see workshop roof from afar. Pointed to distance asking: "Zhu Butler, what does that side do? Why also peculiar smell coming. Looking not like composting place."
+Mo Yu insisted. Left with no choice, Zhu Butler led them to a composting site. It was exactly what it appeared to be—an ordinary farmyard composting operation, nothing unusual. Mo Yu asked detailed questions about the process, and the Butler answered each one.
 
-Zhu Butler heart tightened, on surface still calm and self-possessed, said: "That is my Master's newly opened Patent Medicine Workshop."
+Le Ziren knew where the workshop was located. From where they stood, its roof was visible in the distance. He pointed toward it. "Zhu Butler, what goes on over there? There's a strange smell coming from that direction too. It doesn't look like a composting site."
 
-"Patent Medicine?" Mo Yu asking pretending curiosity.
+Zhu Butler's heart tightened, though his face remained composed. "That's my Master's newly established Patent Medicine Workshop."
 
-Zhu Butler could only continue answering: "My Sixth Master got a medicine formula from a high person some years ago. He saw fellow villager Chen Tiquan, Li Shengzuo joint operating Chen Li Ji Hall making medicine to save people, deeply loved by villagers. Momentary whim rose heart of hanging pot to help world (*Huan Hu Ji Shi* - practicing medicine). So made this formula into Patent Medicine. Also counts as accumulating virtue for children and grandchildren descendants."
+"Patent Medicine?" Mo Yu feigned curiosity.
 
-"Oh, Patent Medicine ah," Mo Yu nodded, said: "Our Chief Zhang proficient in art of making medicine, people call 'Pharmacist.' We few just worry not knowing how to throw Chief's favor. Zhu Butler explain one or two for us. We report in detail going back. Chief happy, brothers' future expectable, definitely won't forget Zhu Butler's benefit."
+The Butler had no choice but to elaborate. "Some years ago, my Sixth Master obtained a medicinal formula from an expert. He saw how fellow villagers Chen Tiquan and Li Shengzuo jointly ran Chen Li Ji Hall, making medicines to help people, beloved by all the villagers. He was inspired with a desire to practice medicine and help the world (*Huan Hu Ji Shi*). So he had the formula made into Patent Medicine—a way of accumulating virtue for his descendants."
 
-Zhu Butler look of quite difficult to handle, "Several Masters, this truly embarrasses small one. Every family's unique skill always not transmitted outside. If leaking Patent Medicine making method because of this, small one can't bear ah."
+"Ah, Patent Medicine," Mo Yu nodded. "Our Chief Zhang is well-versed in pharmaceutical arts. People call him 'the Pharmacist.' We've been wondering how to get into his good graces. If you could explain the process to us, we can report back in detail. If the Chief is pleased, our futures are secured—and we won't forget your kindness, Zhu Butler."
 
-Le Ziren said: "Healer Benevolent Heart. Since for hanging pot to help world, people knowing making this Patent Medicine aren't the more the better? If your Master blames you because of this, I see he is just a hypocrite fishing for fame and hook for praise. You better leave early, find another good master better."
+The Butler looked pained. "Masters, you put me in a difficult position. Every family guards its unique skills. If I reveal how our Patent Medicine is made, I'll bear the consequences."
 
-"Zhu Butler don't blame. This brother of mine is a rough person, heart straight mouth fast. Don't take his words to heart." Mo Yu sang Red Face (Good Cop), "You also know, we are all big old roughs. Don't know a few bowl-mouth big characters. Can't eat this bowl of fine work rice of your Master. Just our this new Magistrate handles everything personally. Sesame big matters all want to ask. These days truly feel pressure doubled. Brothers have to take out some dry goods (real stuff) to cope over."
+Le Ziren spoke up. "A healer has a benevolent heart. If the goal is to help the world, shouldn't more people know how to make this medicine? If your Master blames you for that, he's nothing but a hypocrite fishing for fame. You'd be better off finding a worthier employer."
 
-Le Ziren said again: "Zhu Butler decline like this, could it be having something not seeable to people." Saying walked straight towards workshop.
+"Don't mind him, Zhu Butler," Mo Yu intervened, playing the good cop. "My colleague here is a rough fellow—speaks his mind without thinking. Don't take his words to heart." He sighed. "You know how it is. We're all simple men who barely know our letters. We can't manage the fine work your Master does. But our new Magistrate insists on handling everything personally—even the smallest matters. The pressure has been unbearable lately. We need to bring back something substantial to satisfy him."
 
-Zhu Butler wanted to block but didn't dare to move hand really. Only blocking in front of everyone, walking backwards following their steps on one side, persuading loudly on one side. Attracting other Zhu clan children, surrounding several people roundly. Seeing conflict about to rise, behind crowd came Zhu Shilian's voice: "Who makes noise here?"
+"If you're so reluctant," Le Ziren added, "maybe there's something here you'd rather we not see." Without waiting for a response, he strode toward the workshop.
 
-"Sixth Master, a misunderstanding," Zhu Butler walked to Zhu Shilian's side, said respectfully: "Master Mo of Market Police Station visits today, wants to go to Patent Medicine Workshop to look. Small one dare not make decision, therefore annoyed several Masters. Small one willing to receive punishment."
+Zhu Butler wanted to block him but didn't dare use force. He could only walk backward ahead of them, pleading loudly as he went. Other Zhu clan members gathered around, surrounding the police officers. Just as a confrontation seemed inevitable, Zhu Shilian's voice rang out from behind the crowd: "What's all this commotion?"
 
-Zhu Shilian said: "So it is such small matter. Should punish. Deduct ten fen money from this month monthly money. All descend."
+"Sixth Master, a misunderstanding," Zhu Butler hurried to his side and said respectfully. "Master Mo of the Market Police Station is here today. He wishes to see the Patent Medicine Workshop. I wasn't authorized to permit it, which offended our guests. I'm prepared to accept my punishment."
 
-After Zhu Butler left, crowd gathering around also scattered. Zhu Shilian smiled to Mo Yu saying: "Master Mo has such elegant interest. Shilian accompanies personally is it good?"
+"Such a small matter," Zhu Shilian said dismissively. "Yes, you should be punished. Ten *fen* will be deducted from this month's wages. Everyone, disperse."
 
-Walking into workshop, Zhu Shilian started introducing uses of various utensils, how to input material, how to process, until how to pack into finished product. Environment still a smell of fecal stink. Seeing policemen face having difficult color, Zhu Shilian explained: "This medicine of mine, is extracted from Silkworm Feces. Processing inevitable some smell. But medicine is excellent. Can cure Qi Blood both deficiency, dizziness tinnitus, palpitation short breath, spirit weary fatigue. Gentlemen wind dining dew sleeping, working hard day and night, inevitable Qi Blood not flourishing. Later I let Butler gift a few boxes of Patent Medicine to Gentlemen, chatting to express heart intent."
+After Zhu Butler withdrew and the crowd scattered, Zhu Shilian smiled at Mo Yu. "If Master Mo is so curious, I'll personally accompany you. Would that be acceptable?"
 
-Although Mo Yu was retired Fubo Army Navy, after all just Tanka origin. Didn't have high knowledge as young soldiers receiving formal education later. He learned steam engine operation slightly in Navy, had a little impression on mechanical operation, but towards slightly advanced Enthalpy Value, Entropy Value already like Heavenly Book. Electricity, Engineering Mechanics etc. were regarded by him as god-like knowledge; only Senators had qualification to master. Towards Chemical Industry was even a blank sheet. Don't mention what Raw Medicine Patent Medicine.
+Inside the workshop, Zhu Shilian explained the function of each piece of equipment—how materials were fed in, processed, and ultimately packaged as finished products. The air still carried a fecal odor. Noticing the officers' discomfort, he said, "This medicine of mine is extracted from silkworm feces, so some smell during processing is unavoidable. But it's excellent medicine—cures deficiency of Qi and Blood, dizziness and tinnitus, heart palpitations and shortness of breath, mental fatigue and exhaustion. Gentlemen who dine on wind and sleep on dew, working hard through day and night, inevitably suffer from inadequate Qi and Blood. I'll have my Butler prepare a few boxes for each of you—a small token of my appreciation."
 
-Seeing Zhu Shilian took them to visit workshop actively, didn't hide or conceal, and couldn't see any doorway (trick), Mo Yu praised a few sentences casually then said sorry to disturb. When returning to village entrance Zhu Butler really gave a few boxes of Patent Medicine each person.
+Though Mo Yu had served in the retired Fubo Army Navy, he was ultimately of Tanka origin. He lacked the education that younger soldiers received through formal schooling. His naval service had given him some exposure to steam engine operation and a basic understanding of mechanical processes, but concepts like enthalpy and entropy might as well have been written in a heavenly script. He regarded electricity and engineering mechanics as divine knowledge—the exclusive domain of Senators. His understanding of chemistry was a complete blank, let alone the distinction between raw and patent medicines.
 
-"Sixth Master, didn't get looked out anything right?" Looking at receding figures of several False Kuns, Zhu Butler asked Zhu Shilian.
+Seeing that Zhu Shilian had welcomed them openly and concealed nothing, and finding no irregularities he could identify, Mo Yu offered a few compliments and apologized for the disturbance. When they returned to the village entrance, Zhu Butler presented each officer with several boxes of Patent Medicine.
 
-"You did very well. Didn't let them pass just now," Zhu Shilian breathed a sigh of relief, "Fortunately Brother Shimin moved fast. Only difference a little bit."
+"Sixth Master, they didn't discover anything, did they?" Watching the False Kuns recede into the distance, Zhu Butler asked Zhu Shilian.
 
-Inside Marching Camp outside Jiujiang Great Market, Zhang Jiayu was leading Huang *Shi* to write complaint paper. He volunteered to write for Huang *Shi* today. A hand of Pin-Flower Small Kai Script (*Zan Hua Xiao Kai*) written very beautiful, making Zhao Hening drool straightly. Huang Xiyin with extremely high calligraphy attainment also praised ceaselessly. Complaint paper finished writing, Huang *Shi* pressed a hand print on it. She was still not quite relieved, found Yuchi Gang of Circuit Court to consult again.
+"You did well. Good thing you held them up earlier." Zhu Shilian exhaled with relief. "Fortunately, Brother Shimin moved quickly. It was a close call."
 
-Yuchi Gang thirty-something years old, native of Gaomi, Laizhou Prefecture, Shandong. Originated from declined middle peasant family. Came to Lingao with Engine Operation. Performed excellently after joining Fubo Army. Fighting brave, having courage and strategy. Injured and disabled in Mainland Offensive retiring. Was elected to Lingao Judge College for further study. After passing Judge Qualification Exam, went to East Guangdong to serve as Basic Level Judge. Character upright not bending, principle strong. Executing law articles slightly mechanical. Believing in "Absolute Justice." Work style direct. Once made some jokes because of misunderstanding on language, folk custom etc. Afterwards, Yuchi Gang was appointed as Guangzhou Circuit Court Judge, responsible for handling appeal cases of Guangzhou Grand Region.
+---
 
-"Lord, if he is not willing to divorce, what do folk woman do?" Huang *Shi* asked worriedly.
+Outside Jiujiang Great Market, in the Marching Camp, Zhang Jiayu was helping Huang *Shi* write her complaint. He had volunteered for the task that day, and his Pin-Flower Small Kai Script (*Zan Hua Xiao Kai*) was exquisite—so beautiful it made Zhao Hening drool with envy. Even Huang Xiyin, who possessed exceptional calligraphic skill, praised it unreservedly. When the document was complete, Huang *Shi* pressed her handprint onto it. Still uneasy, she sought out Yuchi Gang of the Circuit Court for consultation.
 
-Yuchi Gang quick person quick words, said: "If he has domestic violence, fault, causing you two husband wife emotion broken, unable to live together, and unable to mediate, reasonably should sentence divorce."
+Yuchi Gang was in his mid-thirties, a native of Gaomi in Laizhou Prefecture, Shandong. He came from a declining middle-peasant family and had arrived in Lingao working with engine operations. After joining the Fubo Army, he distinguished himself—brave in battle, both courageous and strategic. He was wounded and disabled during the Mainland Offensive and retired from active service. Elected to attend Lingao Judge College for further study, he passed the Judge Qualification Exam and was sent to East Guangdong as a basic-level judge. Known for his upright and unbending character and strong principles, he applied legal articles somewhat rigidly, believing in "Absolute Justice." His direct approach occasionally caused misunderstandings due to differences in language and local custom. Eventually, Yuchi Gang was appointed Judge of the Guangzhou Circuit Court, responsible for handling appeal cases across the Guangzhou Grand Region.
 
-Huang *Shi* hesitated somewhat, said: "Others I don't worry. Just his body of illness, divorcing fear suffering people gossip. Clan Elders in clan also may not necessarily agree."
+"Lord, what can I do if he refuses to divorce?" Huang *Shi* asked anxiously.
 
-At this time, another voice came: "This Big Sister, what you said are all things of moral level. You feel he will live difficultly after leaving you, so you sympathize with him. This is your personal moral emotion. *Marriage Law* implemented by Senate, its substance is equivalent to Contract Law. Contract, is agreement, understand? Stressing concluding both sides equal, voluntary, and legal. Marriage and *Marriage Law* are two matters. What does *Marriage Law* protect? Using specialized words to speak—legal rights and interests formed because of marriage relationship. Removing unnecessary modification, remaining key point is rights and interests, that is benefits."
+Yuchi Gang was not one to mince words. "If there was domestic violence, if he's at fault, if your marital bond has broken beyond repair, if you cannot live together and mediation has failed—then divorce should be granted."
+
+Huang *Shi* hesitated. "I'm not worried about most things. But his illness... if I divorce him, people will gossip. And the Clan Elders may not approve."
+
+Another voice interjected: "Sister, what you're describing are moral concerns. You feel guilty because you think he'll struggle without you. That's your personal sense of compassion. But the *Marriage Law* implemented by the Senate is essentially Contract Law. A contract is an agreement—do you understand? It emphasizes that both parties are equal, voluntary, and acting legally. Marriage and the *Marriage Law* are two different things. What does the *Marriage Law* protect? To use the technical term: legal rights and interests arising from the marriage relationship. Strip away the unnecessary modifiers, and what remains is rights and interests. In other words—benefits."
 
 **(End of Chapter)**

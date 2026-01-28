@@ -1,87 +1,87 @@
 # Chapter 2634: Legal Popularization Style Lawsuit (Part 3)
 
-Liang Xinhu thought in heart after all was a scholar, truly "Exporting Mouth Becoming Chapter" (eloquent). However twelve characters said benefits inside clearly and plainly. Immediately said: "Mister said right. Since ancient times King's Law ruthless. One text one character, all concern folks' body family life. Therefore besides this Interrogation Decision Division, this Dynasty ancestors still had system of 'Overturning Difference Separate Survey' (*Fan Yi Bie Kan*)."
+Liang Xinhu reflected that scholars truly were eloquent—those twelve characters had laid out the benefits with perfect clarity. He nodded and said, "The gentleman speaks rightly. Since ancient times, the King's Law has been ruthless. Every word and phrase concerns the lives and livelihoods of the common folk. That is why, beyond the Interrogation Decision Division, the ancestors of this Dynasty also established the system of 'Overturning Difference Separate Survey' (*Fan Yi Bie Kan*)."
 
-Zhang Jiayu's interest was lifted up at this time: "Please Chief bestow teaching!"
+Zhang Jiayu's interest was piqued. "Please enlighten me, Chief!"
 
-Liang Xinhu said Overturning Difference Separate Survey was a judicial system implemented in Song Dynasty. Overturning Difference (*Fan Yi*), i.e. overturning confession; Separate Survey (*Bie Kan*), i.e. separate trial. Song Dynasty criminal case defendants at juncture of recording interrogation, announcing judgment and facing execution, all could cry wrong overturn difference. Once overturning difference, case automatically entered Appeal Procedure of Separate Survey.
+Liang Xinhu explained that the Overturning Difference Separate Survey was a judicial system implemented during the Song Dynasty. "Overturning Difference" (*Fan Yi*) referred to recanting a confession, while "Separate Survey" (*Bie Kan*) meant a separate trial. During the Song Dynasty, criminal defendants could cry foul and recant at any juncture—whether during the recording of testimony, the announcement of judgment, or even facing execution. Once a defendant recanted, the case automatically entered the appellate procedure of Separate Survey.
 
-From essence speaking, "Overturning Difference Separate Survey" actually was an automatic appeal judicial mechanism. Every time criminal defendant overturned difference, must arrange another judge to try again. Paying huge judicial resources for this, and had to endure slow judicial efficiency.
+In essence, the "Overturning Difference Separate Survey" was an automatic appeal mechanism built into the judicial system. Each time a criminal defendant recanted, a different judge had to be assigned to retry the case. This consumed enormous judicial resources and inevitably slowed the pace of justice.
 
-"...Of course there will be some prisoners utilizing mechanism of 'Overturning Difference Separate Survey,' serving detention again and again, overturning difference again and again, so retrying again and again, endless. To avoid appearance of this situation wasting judicial resources, a balance must be reached between judicial justice and judicial efficiency..."
+"...Of course, some prisoners exploited this mechanism—serving detention again and again, recanting again and again, forcing retrial after retrial in an endless cycle. To prevent such abuse of judicial resources, a balance had to be struck between judicial justice and judicial efficiency..."
 
-Method Song people thought of was, giving limit to number of times of making "Overturning Difference Separate Survey." Northern Song implemented "Limit of Three Recommendations" (*San Tui Zhi Xian*), i.e. defendant had three chances of "Overturning Difference Separate Survey." After Separate Survey three times, if prisoner cried wrong again, would no longer accept. Southern Song time changed to "Five Recommendation System" (*Wu Tui Zhi*), i.e. defendant could "Overturn Difference Separate Survey" five times.
+The Song people's solution was to limit the number of times a defendant could invoke the "Overturning Difference Separate Survey." The Northern Song implemented the "Limit of Three Recommendations" (*San Tui Zhi Xian*), giving defendants three chances to appeal through recantation. After the third Separate Survey, if a prisoner still cried foul, the court would no longer accept it. By the Southern Song, this had been expanded to the "Five Recommendation System" (*Wu Tui Zhi*), allowing defendants five such appeals.
 
-Pity after Yuan Dynasty, this system annihilated completely. Ming Qing eras, although also had situations like overturning confession on spot, leapfrog complaining etc., but either having harsh restrictive conditions (Leapfrog Suit), or retrial decision power in hands of chief trial official. Crying wrong overturning confession became a matter with extremely big risk yet not necessarily having profit. If not suffering extremely big unrighted wrong, otherwise very few people dared to try.
+Unfortunately, after the Yuan Dynasty, this system was completely abolished. During the Ming and Qing eras, though situations like recanting confessions on the spot or filing leapfrog complaints still occurred, they either carried harsh restrictive conditions or left retrial decisions entirely in the hands of the presiding official. Crying injustice became an extremely risky proposition with no guaranteed benefit. Unless someone had suffered a grave miscarriage of justice, few dared to attempt it.
 
-Zhang Jiayu listened interest brimming. Criminal Name as official's practice, scholars more or less would involve. But generally speaking not valued. Don't look at Zhu Yuanzhang "Legal Consciousness" very strong, specially formulating *Grand Pronouncements* (*Da Gao*) promulgating under heaven, not only listed as Imperial College textbook and Imperial Examination content, for letting every family read, also stipulated family having this book could reduce crime one grade. But person died politics extinguished. Merely one hundred years effort, to Jiajing Reign this book already few people knew, needing Ministry of Rites to re-promulgate under heaven. Besides this, on market extremely few books specializing in this category. Relevant yamen clerks regarded this knowledge as "Secret Not Transmitted." Therefore Zhang Jiayu towards this was dragonfly touching water (superficial), talking in general terms. Very rarely involving specific practice, let alone Legal Principle.
+Zhang Jiayu listened with rapt attention. Criminal law was part of every official's practice, and scholars inevitably touched upon it to some degree—but generally, it received little emphasis. Zhu Yuanzhang might have possessed a strong "legal consciousness," going so far as to promulgate the *Grand Pronouncements* (*Da Gao*) throughout the realm. He had not only made it required reading at the Imperial College and content for the Imperial Examinations, but also stipulated that any household possessing the book could have their crimes reduced by one grade. Yet when the man died, his policies died with him. In barely a hundred years, by the Jiajing Reign, the book had faded into obscurity, and the Ministry of Rites had to re-promulgate it. Beyond this, the market offered extremely few books specializing in legal matters. The relevant yamen clerks guarded such knowledge as "secrets not to be transmitted." Thus Zhang Jiayu's understanding of the subject remained superficial—all general talk, rarely touching on specific practice, let alone legal principles.
 
-Liang Xinhu's class finished at lucnh time. After simple lunch, 1 PM afternoon, started first day trial work of Circuit Court. Zhang Jiayu also followed crowd to audit court trial at court.
+Liang Xinhu's lecture concluded at lunchtime. After a simple meal, the Circuit Court's first day of trials began at one o'clock in the afternoon. Zhang Jiayu followed the crowd to observe the proceedings.
 
-"Circuit Court" stressed adapting to local conditions. Places having conditions naturally set in high room open pavilion like ancestral hall, temple, old government office. Places without conditions, setting court directly at open space like threshing ground, stage was also common matter.
+The "Circuit Court" emphasized adapting to local conditions. In places with proper facilities, court could be held in a lofty hall or open pavilion—an ancestral temple, a shrine, an old government office. Where such amenities were lacking, it was common practice to set up court directly in an open space like a threshing ground or stage.
 
-Jiujiang here actually usable big houses were quite few. But Liang Xinhu to expand influence of Legal Popularization, tried to let more folks can watch trial, as long as condition permitted tried to choose outdoor venue with larger capacity.
+Jiujiang actually had quite a few usable buildings. However, Liang Xinhu wanted to maximize the reach of his legal education efforts, allowing as many common folk as possible to observe the proceedings. Whenever conditions permitted, he chose outdoor venues with larger capacity.
 
-Today's court trial was set on a threshing ground of Jiujiang. Middle piled up earth platform, serving as court. Surrounded by wooden fence. A squad of National Army soldiers already set up cordon along wooden fence, separating more and more folks outside wooden fence.
+Today's court session was set on one of Jiujiang's threshing grounds. An earthen platform had been piled up in the center to serve as the court, surrounded by a wooden fence. A squad of National Army soldiers had already established a cordon along the perimeter, keeping the growing crowd of spectators outside the barrier.
 
-On empty ground, erected several wooden poles. Wired speakers already hung on top.
+On the open ground, several wooden poles had been erected. Wired speakers hung from their tops.
 
-Zhang Jiayu at Witchcraft Case time also ran to audit to join fun. That case involved so many so wide, could be called "Southern Sky First Case." At that time people going to audit simply ten thousand people empty alley. Guangzhou Municipal Government had to employ large amount of National Army to go maintain order. Zhang Jiayu entrusted quite some relations also couldn't enter court to listen, only listened to interrogation process through "Wooden Box" outside.
+Zhang Jiayu had once attended the Witchcraft Case as a spectator. That case had involved so many people across such a wide scope that it could rightly be called the "First Case of the Southern Sky." At the time, the crowds seeking to observe had emptied entire streets. The Guangzhou Municipal Government had been forced to deploy large numbers of National Army troops to maintain order. Even with considerable connections, Zhang Jiayu hadn't been able to enter the courtroom itself, and had listened to the proceedings through a "wooden box" speaker outside.
 
-Today's Circuit Trial was similarly People Mountain People Sea—for villagers without any entertainment activity, watching trial was entertainment activity. Fortunately this time Zhang Jiayu was "Visiting Minister" status, not only person inside wooden fence, also had a seat.
+Today's Circuit Trial was similarly packed—for villagers without any other form of entertainment, watching trials was entertainment. Fortunately, Zhang Jiayu now held the status of "Visiting Minister," which entitled him not only to a place inside the wooden fence, but also to a seat.
 
-Following crowd filing into court sitting well in audit seats. Zhang Jiayu looking over saw parties of this trial already arrived fully. First glance this people waiting for trial truly not few, dark mass a big patch, divided into two teams. One side "Civil Cases," one side "Public Security Cases." Latter had police guarding.
+He filed into the courtroom with the crowd and settled into the audience section. Looking around, he saw that the parties to the trial had all arrived. At first glance, there were quite a few people waiting—a dark mass divided into two groups. One side held "Civil Cases," the other "Public Security Cases." The latter group was under police guard.
 
-According to system design of Law Society, Circuit Court generally didn't try major criminal cases. Mainly tried civil and public security cases.
+According to the Law Society's design, the Circuit Court generally did not try major criminal cases. It primarily handled civil and public security matters.
 
-Zeng Juan only saw Bailiffs on two sides looked at desk clock placed on table, shouted loudly: "Time arrived, please keep quiet! Stand up!"
+Zeng Juan watched the bailiffs on either side glance at the desk clock on the table, then shout loudly: "Time! Please maintain silence! All rise!"
 
-This shout distributed with amplifier, originally noisy venue gradually became quiet.
+Amplified through the speakers, this shout gradually hushed the noisy venue.
 
-Presiding Judge Liang Xinhu walked out from a tent beside Presiding Seat. Saw him wearing *Xiezhi* Crown on head, wearing black robe, wearing A-Grade Replica Black Leather Shoes from Landu Ship on feet. Truly majestic and awe-inspiring, a body of righteousness.
+Presiding Judge Liang Xinhu emerged from a tent beside the main seat. He wore the *Xiezhi* Crown upon his head, a black robe about his person, and A-Grade Replica Black Leather Shoes from the Landu Ship on his feet. Truly majestic and commanding—the very picture of righteousness.
 
-This *Xiezhi* Crown also called Law Crown, Iron Crown. According to record was made by Chu Wen King, worn by law enforcement officials, so called Law Crown. On top had decoration symbolizing *Xiezhi* horn. This *Xiezhi* was a divine beast in ancient legend. Legend said horn on its head nature loyal could distinguish crooked straight. So Law Society specially chose it as judge attire.
+The *Xiezhi* Crown, also called the Law Crown or Iron Crown, was according to records first made by King Wen of Chu and worn by law enforcement officials—hence its name. Atop it was a decoration symbolizing the horn of the *Xiezhi*, a divine beast of ancient legend. The creature's horn was said to be inherently loyal and capable of distinguishing right from wrong. The Law Society had specifically chosen it as the symbol of judicial attire.
 
-This crown was ancient system. Don't say common people mostly didn't know, even ordinary scholars mostly didn't know either. Also thought this was some "New Dynasty Attire." Zhang Jiayu read extensively, knowledge broad, naturally recognized. Just this outfit of Law Robe, truly made him unable to read counted as relic of which dynasty.
+This crown followed ancient tradition. Not only did most common people not recognize it—even ordinary scholars were largely unfamiliar with it, assuming it to be some "New Dynasty Attire." Zhang Jiayu, having read widely and possessing broad knowledge, naturally recognized it. Only the Law Robe itself puzzled him; he truly could not determine which dynasty's relic it represented.
 
-Liang Xinhu picked up gavel smashing forcefully: "Below open court! First Case!"
+Liang Xinhu picked up the gavel and struck it forcefully. "Court is now in session! First case!"
 
-Bailiff immediately brought two parties to court. Routinely first asked name age home address etc. basic situation.
+The bailiff immediately brought both parties forward. They began with the routine preliminaries—name, age, home address, and other basic information.
 
-Turned out these two both made living in Jiujiang. Defendant Zhang Cai was shopkeeper of a small inn on Front Street. Inn not big, had seven or eight rooms, mostly rented to small merchants and artisans making living in Jiujiang.
+It turned out both parties made their living in Jiujiang. The defendant, Zhang Cai, was the shopkeeper of a small inn on Front Street. The inn wasn't large, containing just seven or eight rooms, mostly rented to small merchants and artisans working in Jiujiang.
 
-Plaintiff, was his tenant Chen Sanli. Was a small merchant, making living selling fishing gear in Jiujiang. Looking from their business, all were small businesses water not flooding instep. Zhang Jiayu secretly surprised: Such small dealers, had what big matter to make trouble to disturb official government?
+The plaintiff was his tenant, Chen Sanli—a small merchant who sold fishing gear in Jiujiang. Judging by their businesses, both were minor operators barely keeping their heads above water. Zhang Jiayu thought to himself with some surprise: What great matter could two such petty dealers have to trouble the government over?
 
-Finished asking basic situation, again by two sides stated cause of action and statement respectively. Zhang Jiayu only then understood fact of case: Chen Sanli once signed contract with Shopkeeper Zhang, long lease three years. Originally lived in peace. But after Australians came, four countrysides disturbed. Chen Sanli feared countryside not safe affecting small common people, rolled up bedding running overnight.
+After establishing the basic facts, both sides stated their claims and positions. Only then did Zhang Jiayu understand the case: Chen Sanli had once signed a contract with Shopkeeper Zhang for a three-year lease. They had lived in peace at first. But when the Australians came and turmoil spread through the countryside, Chen Sanli feared that the unsafe conditions would affect ordinary folk like himself. He had rolled up his bedding and fled overnight.
 
-This run was large half year. Later situation stabilized gradually stabilized, Chen Sanli returned to Jiujiang to resume old profession again. Didn't expect, Shopkeeper Zhang seeing him run thought definitely died in chaotic army, already rented house out again. Only willing to return original rent.
+He remained gone for over half a year. When the situation gradually stabilized, Chen Sanli returned to Jiujiang to resume his old trade. To his dismay, Shopkeeper Zhang—having assumed that a man who fled like that must have died in the chaos—had already rented the room to someone else. He was only willing to return the original rent.
 
-Originally Chen Sanli also accepted. But current situation stable, business all good to do, rent of local houses in Jiujiang already rose quite a lot. With original money couldn't get such long lease anymore. Chen Sanli felt himself ate loss. Shopkeeper Zhang however felt he ran away himself, and remaining rent also returned to him, therefore confidently expressed impossible to fulfill according to old lease again.
+At first, Chen Sanli accepted this. But with the current stability and improved business conditions, rents in Jiujiang had risen considerably. With his original money, he could no longer secure such a favorable long-term lease. Chen Sanli felt he had been cheated. Shopkeeper Zhang, however, maintained that the man had abandoned the property of his own accord, and since the remaining rent had been returned, he felt perfectly justified in refusing to honor the old lease.
 
-Both felt self had reason, arguing not down. At once dragged till now. Originally dispute folks could resolve by self, after fermentation of few years already became emotional behavior of not fighting money fighting breath. Finally, Chen Sanli decided to sue Zhang Cai.
+Both believed they were in the right, and neither would yield. The dispute had dragged on until now. What had begun as a matter neighbors might have resolved among themselves had, after years of festering, transformed into an emotional battle where winning mattered more than the money at stake. Finally, Chen Sanli had decided to sue Zhang Cai.
 
-Court trial proceeded very slowly. Merchants on market not compared to rural farmers, because communicating with people more, speaking counted as fluent. But parties two sides one small merchant, one declined small shopkeeper, neither received systematic education. Logic inevitable upside down, same question had to ask several times to have answer.
+The court proceedings moved slowly. Unlike rural farmers, merchants who dealt with people daily spoke reasonably well. But these two parties—one a petty trader, one a declining small shopkeeper—had received no systematic education. Their logic inevitably became tangled, and the same question often had to be asked several times before receiving a proper answer.
 
-"Defendant, you side think Plaintiff leaving Guangzhou, your side can take back house. Have basis?"
+"Defendant, you claim that when the plaintiff left Guangzhou, you had the right to reclaim the property. What is your basis for this?"
 
-"Reply Lord, my street all are such rules." Zhang Cai said, "He just ran like this. One leave was almost ten months. News completely none. How I know if he is dead or alive..."
+"Replying to Your Honor, this is the rule on our street," Zhang Cai said. "He just ran off like that. He was gone nearly ten months. Not a word of news. How was I supposed to know if he was alive or dead..."
 
-"Even if dead, I also paid money! You also have to keep for me three years!" Chen Sanli jumping like thunder.
+"Even if I were dead, I paid the money! You should have kept it for me for the full three years!" Chen Sanli erupted.
 
-"Silence, don't interrupt casually!" Law police beside warned.
+"Silence! Do not interrupt!" warned the law officer beside him.
 
-Then Liang Xinhu asked Plaintiff Chen Sanli again. Latter expressed never heard of having this rule.
+Liang Xinhu then questioned the plaintiff, Chen Sanli, who stated he had never heard of any such rule.
 
-Subsequently Liang Xinhu subpoenaed several witnesses. Among them there were witnesses proposed by two parties, also local *Pai Jia* and Chamber of Commerce people. All did relevant corroboration.
+Subsequently, Liang Xinhu called several witnesses—some proposed by the parties themselves, others local *Pai Jia* officials and Chamber of Commerce representatives. All provided relevant testimony.
 
-Regarding lessee leaving without notifying, lease counted as fulfilling or not fulfilling, witnesses each had different statements and insights. Actually have or not have this rule, Liang Xinhu didn't care too much. Because regarding this kind of question, Senate's relevant laws all had regulations. Case condition nothing complex, applying directly was fine. He at this moment purely was for demonstrating to students of study group how to execute trial process correctly.
+Regarding whether a lease should be considered fulfilled or terminated when a tenant left without notice, the witnesses offered varying opinions and interpretations. Whether such a rule actually existed mattered little to Liang Xinhu. The Senate's relevant laws already contained regulations addressing precisely this type of question. The case presented no complexity; he could simply apply the law directly. At this moment, he was purely demonstrating to his study group students how to properly execute trial procedure.
 
-Interrogation scene was very dull. Zhang Jiayu couldn't help yawning quietly. This case tiny to couldn't be tinier also needed Senator to come out to try personally. This Australians' thinking was truly hard to fathom.
+The cross-examination proved quite dull. Zhang Jiayu found himself stifling a yawn. Such a trivially minor case, and a Senator had to personally preside over it? The Australian way of thinking was truly hard to fathom.
 
-Cross-examination stage ended. Liang Xinhu didn't announce adjournment—this kind of cases not making collegial panel, not conducting mediation either. Judged by judge according to case directly.
+When the cross-examination stage concluded, Liang Xinhu did not announce an adjournment. This type of case required neither a collegial panel nor mediation proceedings—the judge would render judgment based directly on the facts.
 
-Case was not hard to judge. But before judgment he made relevant explanation first. To let new judicial concept occupy high ground as soon as possible, explaining basis of case judgment already became judicial habit of Senate.
+The case was not difficult to decide. But before issuing judgment, he first provided an explanation of the legal reasoning. Establishing new judicial concepts as quickly as possible had become standard practice for the Senate—explaining the basis for judgments was now judicial habit.
 
-Especially Original Time Space's *Contract Law* and other various Commercial Laws' background differed from This Time Space situation far. Rashly applying problem many. Commercial Law of Europe in This Time Space although already had embryonic form, yet was still same problem—not conforming to national condition. And Chinese traditional laws such as *Great Ming Code* involved Commercial Law very little.
+This was especially important because the *Contract Law* and various Commercial Laws from the Original Time Space had backgrounds far removed from the conditions of This Time Space. Applying them rashly would create numerous problems. European Commercial Law in This Time Space had already developed in embryonic form, yet suffered from the same issue—it did not conform to local conditions. And traditional Chinese laws like the *Great Ming Code* contained very little pertaining to commercial matters.
 
 **(End of Chapter)**

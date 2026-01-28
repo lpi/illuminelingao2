@@ -1,89 +1,89 @@
 # Chapter 2619: Coercion and Inducement
 
-The gentry didn't expect Zhang Xiao to estimate Jiujiang's fish fry production in such a way, all startled. Guan Boyi said, "Parent Official has eyes like torches. Student admires."
+The gentry hadn't expected Zhang Xiao to estimate Jiujiang's fish fry production with such precision, and they exchanged startled glances. Guan Boyi recovered first. "Your Honor possesses keen insight. This humble scholar is most impressed."
 
-"Then do you know how many fish fry the West Sea can produce annually?" Zhang Xiao asked again.
+"Then tell me—do you know how many fish fry the West River can produce annually?" Zhang Xiao pressed.
 
-"Student doesn't know."
+"I do not."
 
-"Twelve billion." Zhang Xiao said. In fact, in the more than ten years after the founding of New China and before the development of artificial breeding technology, the annual catch of fish fry in the Guangdong section of the West River was about five billion, and the Guangxi section about seven billion. But under the backward production conditions of the late Ming, being able to catch three or four hundred million fish fry annually was already quite considerable.
+"Twelve billion." In truth, during the decade following New China's founding—before artificial breeding technology was developed—the Guangdong section of the West River yielded roughly five billion fish fry per year, with another seven billion from the Guangxi section. But under the backward conditions of the late Ming, catching three or four hundred million fry annually was already a considerable achievement.
 
-Although the gentry didn't know on what basis Zhang Xiao concluded the West Sea could produce so many fish fry annually, judging from his accurate calculation of the annual catch of this township, the credibility of the number he said was extremely high.
+Though the gentry had no idea how Zhang Xiao had arrived at such a figure for the West River's total yield, his accurate assessment of their township's annual catch lent his words considerable weight.
 
-Song Guowei said, "Although West Sea can produce many fish fry annually, catching fish fry relies entirely on 'Fishery Masters' watching the sky. It is truly hard to increase production further."
+Song Guowei spoke up. "While the West River may produce many fish fry each year, the catching depends entirely on the Fishery Masters reading the weather. It would be difficult to increase production beyond current levels."
 
-Zhang Xiao imitated the tone of ancients and said, "Generally for taking fish fry, from March to August, at sunset, watch lightning legs high in a certain direction, then know no rain in a certain direction, water in a certain river won't rise; lightning legs low in a certain direction, then know rain in a certain direction, water in a certain direction rises. If rising, then certain fish fry arrive. Those from Liu, Qing, Yue take three *xun* (ten-day period), two *xun*; those from Nanning take two *xun*, one and a half *xun*. The rest have different speeds. I also know from Wuzhou down to Jiujiang section, flood season starts early and ends late. The proportion of bighead and silver carp liked by Jiujiang villagers is higher than other tributaries. Silver carp accounts for about 5% to 10%, bighead carp 1% to 10%."
+Zhang Xiao adopted the cadence of classical speech. "The taking of fish fry occurs from the third to the eighth month. At sunset, one observes the lightning. If the lightning legs appear high in a certain direction, then one knows no rain will fall there, and those waters will not rise. If the lightning legs appear low, then rain approaches, and those waters will rise. When waters rise, certain fish fry arrive. Those from Liu, Qing, and Yue take three *xun* or two *xun*; those from Nanning, two *xun* or one and a half." He paused. "I also know that from Wuzhou downstream to Jiujiang, the flood season begins early and ends late. The proportion of bighead and silver carp—which Jiujiang villagers favor—runs higher here than in other tributaries. Silver carp accounts for roughly five to ten percent, bighead carp one to ten percent."
 
-This Australian Magistrate was actually so clear about the fish fry catching of this township. The gentry momentarily didn't know what medicine Zhang Xiao sold in his gourd. Zhu Bolian, the patriarch of the Zhu clan, said, "Since Parent Official knows the method of loading and catching fish fry, you should know this township indeed relies on heaven to eat."
+That this Australian magistrate understood their township's fish fry harvesting methods so intimately left the gentry unsettled. Zhu Bolian, patriarch of the Zhu clan, said carefully, "Since Your Honor understands how we catch and load fish fry, surely you recognize that this township's livelihood depends on heaven's providence."
 
-"Good 'relying on heaven to eat'," Zhang Xiao pointed to the tent roof with his fan and said, "Now the Great Song Senate is Heaven. Jiujiang villagers can load and catch fish fry; could it be that villagers of Zhaoqing and Fengchuan cannot?"
+"Ah, yes—'relying on heaven to eat.'" Zhang Xiao raised his fan to point at the tent's ceiling. "But now the Great Song Senate *is* Heaven. Jiujiang villagers know how to catch fish fry—but do you truly believe Zhaoqing and Fengchuan cannot learn the same skills?"
 
-Hearing this, many people couldn't help shivering. Jiujiang Township's fish fry monopoly catching right, in the final analysis, relied completely on government policy, not some irreplaceable natural endowment. Zhang Xiao's words truly poked their vitals, short of writing the word "threat" on his face.
+Many in the room felt a chill run through them. Jiujiang Township's monopoly on fish fry catching rights ultimately rested on government policy, not some irreplaceable natural advantage. Zhang Xiao's words struck at their most vulnerable point; he might as well have written "threat" across his forehead.
 
-The scene in the marching tent cooled down instantly. Huang Xiyin knew both sides were testing each other, so he didn't interrupt. After a long silence, seeing the timing was right, Zhang Xiao said slowly, "Old Gentlemen, it's not that this County doesn't speak martial ethics to bully elderly people. Today there is a good business deal. Wonder if those present are willing to give face to this County."
+The atmosphere in the tent grew cold. Huang Xiyin recognized that both sides were testing each other's limits and chose not to intervene. After a lengthy silence, Zhang Xiao judged the moment right and spoke again, his tone relaxed. "Gentlemen, it is not this county's intention to bully its elders. I have a business proposition for you today. I wonder if those present might be willing to give me face."
 
-Guan Boyi said, "Parent Official plans an outlet for us; naturally we must support with full strength."
+Guan Boyi responded promptly. "If Your Honor offers us a path forward, we will naturally support it with all our strength."
 
-Zhang Xiao said, "I prepare to propose to the Guangdong Region to find a treasure land to build a National Level Freshwater Fish Artificial Breeding Base."
+"I intend to propose to the Guangdong Region that we identify a suitable location to establish a National Freshwater Fish Artificial Breeding Base."
 
-"Artificial breeding?" The gentry present all widened their eyes in disbelief. From ancient times to present, fish were caught from rivers, lakes, and seas. Even fish fry were gifts from God. Never heard of any artificial breeding.
+"Artificial breeding?" The gentry stared at him in disbelief. Since time immemorial, fish had been caught from rivers, lakes, and seas. Even fish fry were gifts from nature. No one had ever heard of breeding them artificially.
 
-Zhang Xiao asked mysteriously, "Have you noticed that fish fry bought in some places last year were not produced in Jiujiang?"
+Zhang Xiao's expression turned knowing. "Have you noticed that some fish fry purchased last year did not originate in Jiujiang?"
 
-"Uh, heard slightly."
+"We... heard rumors to that effect."
 
-"Correct. Those fish fry were exactly the test batch produced by my Senate when conducting technical tackling in Lingao," Zhang Xiao was somewhat proud. When doing technical tackling, fish pituitary hormone was needed to stimulate parent fish to ovulate. He handled the extraction and preservation technology of the pituitary gland. He continued, "Artificial breeding is the literal meaning. In the future, fish fry will all be produced from fish fry farms, no need to go to rivers to catch anymore. Within two years after the base is built, fish fry production will increase at least ten times on the basis of your existing catch, and a hundred times within ten years."
+"Precisely. Those fry were a test batch produced by the Senate during our technical development work in Lingao." A note of pride entered his voice. The process required fish pituitary hormones to stimulate parent fish ovulation, and he had personally handled the extraction and preservation techniques. "Artificial breeding means exactly what it sounds like. In the future, all fish fry will come from breeding farms—no more catching them from rivers. Within two years of establishing the base, fish fry production will increase at least tenfold over your current catch. Within ten years, a hundredfold."
 
-Foreign fish fry naturally made gentry feel faintly uneasy, but this new Magistrate really had a big tone, actually boasting to increase fish fry production ten times, a hundred times. What they didn't know was that after breaking through freshwater fish artificial breeding technology in the 1960s of the old timeline, by the 70s Jiujiang already reached a production of 70 billion tails, not to mention the 500 billion scale before the Senate transmigrated.
+The prospect of foreign fish fry made the gentry uneasy, though this new magistrate certainly had grand ambitions—claiming production could increase ten or even a hundredfold! What they didn't know was that after China cracked freshwater fish artificial breeding technology in the 1960s, Jiujiang had reached seventy billion fry by the 1970s—to say nothing of the five hundred billion scale achieved before the Senate's transmigration.
 
-"It's just that now the North has constant natural disasters and smoke of gunpowder rises everywhere. How can so much increased fish fry be sold?" Someone asked worriedly.
+"But the North is plagued by natural disasters and war," one of them said. "How could such increased production find buyers?"
 
-"Saying this, you present don't have confidence in how long my Senate's red flag can be planted?" Zhang Xiao's words carried some contempt.
+"Are you suggesting you lack confidence in how long the Senate's red flag will fly?" Zhang Xiao's words carried an edge of contempt.
 
-"Dare not!"
+"We wouldn't dare!"
 
-"Grass people absolutely have no such intention!"
+"Nothing of the sort!"
 
-"Then you don't need to worry about sales at all. Within ten years, my Senate will definitely sweep the world. Wherever the Fubo Army's steps go, the Senate's fish fry will be sold there. Wherever there are fish ponds, there must be artificial fish. Even Borneo separated by heavy oceans can be reached." In Zhang Xiao's planning, Jiujiang would become the fish fry breeding center of the whole country and even radiating the entire Southeast Asia, just like in the old timeline.
+"Then you need not worry about sales. Within ten years, the Senate will sweep across the realm. Wherever the Fubo Army marches, Senate fish fry will follow. Wherever there are fish ponds, there will be artificially bred fish. We will reach even Borneo across the distant seas." In Zhang Xiao's vision, Jiujiang would become the fish fry breeding center for the entire nation—and eventually all of Southeast Asia—just as it had in the original timeline.
 
-"Not only this," Zhang Xiao got up, fanned a few times, and said, "Senator Li traveling with me also plans to build a Sericulture Improvement and Promotion Base at the same time, fully exploring the resource endowment of the Pearl River Delta, letting local raw silk participate in the international trade system. You should understand what this means." Li Yao'er went out for inspection today, so Zhang Xiao talked about the silk industry on her behalf.
+"There is more," Zhang Xiao continued, rising from his seat and fanning himself. "Senator Li, who travels with me, also plans to establish a Sericulture Improvement and Promotion Base. We aim to fully develop the Pearl River Delta's natural advantages and integrate local raw silk into the international trade system. I trust you understand what this means." Li Yao'er was out inspecting today, so Zhang Xiao spoke on her behalf regarding the silk industry.
 
 "Sericulture improvement?"
 
-"Those present presumably all know that silk is a big industry of Guangzhou Prefecture. Yue Satin and Yue Yarn are famous far and near, selling overseas. Pity, ah pity. The quality of Yue Satin is dense and even, its color bright and lustrous and smooth. However, it must be woven with Wu Silkworm silk. If woven with local silk, it is dull and lusterless, color also not obvious. Only feasible within Yue borders; distant merchants don't take it."
+"Those present surely know that silk is one of Guangzhou Prefecture's major industries. Yue Satin and Yue Yarn are famous throughout the region and sell well overseas. Yet it is a pity—truly a pity. The quality of Yue Satin is dense and even, its colors bright and lustrous. However, it must be woven with Wu silk from Jiangnan. When woven with local silk, it turns dull and lifeless, the colors muted. Such fabric sells only within Guangdong's borders; distant merchants will not take it."
 
-Zeng Xingxiang said, "Parent Zhang truly knows the products of this township like the back of the hand. Correct. Woven with native silk is called Silk Yarn, price also cheap. Foshan Yarn is also woven with native silk into patterns, all using printing blocks. Raw silk easily splits; cooked silk easily fuzzes. Jiujiang cocoons and Longjiang cocoons are both inferior."
+Zeng Xingxiang nodded. "Your Honor truly knows our local products inside and out. You are correct. Fabric woven with native silk is called Silk Yarn—cheap stuff. Foshan Yarn is also woven with native silk into patterns, all using printing blocks. Raw silk splits easily; cooked silk fuzzes. Both Jiujiang and Longjiang cocoons are inferior."
 
-Precisely because of the problem of local silkworm seeds, silkworm silk quality was far inferior to Jiangnan, so much that local famous silk workshops had to purchase Lake Silk as raw material to produce Yue Satin and Yue Yarn. The so-called Gambiered Canton Gauze (*Xiangyun Sha*) was also an invention of the early Republic of China. Villagers of Minle Village, Xiqiao, improved the loom, applying small jacquard and manpower pulling flower method, creating a new variety with twisted eye openwork circles. At this time, more than forty years had passed since Chen Qiyuan opened the first machine filature.
+It was precisely this problem with local silkworm breeds that made Guangdong silk far inferior to Jiangnan's. Famous local silk workshops had no choice but to purchase Lake Silk as raw material for Yue Satin and Yue Yarn. The renowned *Xiangyun Sha*—Gambiered Canton Gauze—wouldn't be invented until the early Republic era, when villagers from Minle Village in Xiqiao would improve the loom by applying small jacquard and manual flower-pulling methods to create a new openwork variety. That would come more than forty years after Chen Qiyuan opened the first machine filature.
 
-The reason Chen Qiyuan's filature could seize a part of the international market was entirely relying on the cocoon market to select cocoons, sending high-quality cocoons to machine filatures for processing through higher technical means, naturally strengthening the competitiveness in the international market. While inferior cocoons were sold to operators of foot-tread reeling machines and hand reeling machines to reel silk, their products were put into the local silk weaving industry. From the perspective of the whole sericulture area, the quality of silkworms and mulberry didn't change at all, so cocoon quality naturally had no improvement to speak of. This was the true situation of modern Yue Silk improvement.
+The reason Chen Qiyuan's filature eventually captured part of the international market was entirely due to selective cocoon purchasing—sending high-quality cocoons to machine filatures for processing through superior technical means, thereby strengthening competitiveness abroad. Inferior cocoons were sold to operators of foot-tread and hand reeling machines, whose products entered the local weaving industry. From a regional perspective, silkworm and mulberry quality remained unchanged, so cocoon quality saw no real improvement. This was the true state of modern Yue silk development.
 
-In other words, without the appearance of machine filatures, Guangdong native silk basically couldn't enter the eyes of East and West Ocean merchants. Before the Daoguang era, international trade didn't stimulate the sericulture industry in the Pearl River Delta region much.
+In other words, without machine filatures, Guangdong native silk could never attract the interest of either Eastern or Western merchants. Before the Daoguang era, international trade provided little stimulus to the Pearl River Delta's sericulture industry.
 
-Zhang Xiao continued, "Fish, silkworm, mulberry; everyone's family business is tied to this. To complete this great cause, building a new-style primary school and an agricultural technology school as support is also needed."
+Zhang Xiao continued, "Fish, silkworms, mulberry—your families' livelihoods are tied to all of these. To accomplish this great undertaking, we must also build a new-style primary school and an agricultural technical school as support."
 
-If ordinary people heard this, they would have wept with joy long ago, kowtowing to thank imperial grace. But these "human spirits" of the Ming Dynasty had many twists and turns in their bellies. Their doubts, in modern words, were "So, what is the price?"
+Had ordinary folk heard this, they would have wept with joy and kowtowed in gratitude. But these Ming Dynasty operators had far too many calculations running behind their eyes. Their unspoken question, in modern terms, was simple: "What's the price?"
 
-Guan Boyi stood up and said, "Parent Zhang thinks thoughtfully; truly the rebirth parent of us. Wonder how we can repay?"
+Guan Boyi rose. "Your Honor's consideration is thorough. You are truly a father to our people. How might we repay such generosity?"
 
-"Repayment is unnecessary, but as I said before, must follow our rules."
+"Repayment is unnecessary. But as I said—you must follow our rules."
 
-"Willing to hear details."
+"We are eager to hear the details."
 
-"Relevant industries must be managed as companies. Whether fish fry breeding company, or silkworm seed company, or schools, all will have the Senate providing personnel and technology. Those present willing to participate provide ponds, land, and funds. Each clan carries out corporate transformation, using clan property as start-up capital. Profit will be distributed as dividends according to shares after deducting funds needed for expanded reproduction. Considering clan property is owned by the whole clan, then male adults in the clan should reasonably all hold shares. Company operation must comply with the regulations of the Great Song *Company Law*. Accounts executed according to new accounting standards. Finance and Taxation Bureau sends people to audit regularly..." Zhang Xiao then proposed the Senate's set of requirements for corporate transformation of clans. Playing conspiracies and plots, this group of modern people was definitely not the opponent of gentry. The Senate also disdained to play mind games with them. With powerful military force as backing, if fighting, fight with open cards; if playing, play open stratagems.
+"All relevant industries must be organized as companies. Whether the fish fry breeding company, the silkworm seed company, or the schools—the Senate will provide personnel and technology. Those present who wish to participate will contribute ponds, land, and capital. Each clan will undergo corporate transformation, using clan property as startup capital. After deducting funds needed for expanded reproduction, profits will be distributed as dividends according to shareholding. Given that clan property belongs to the entire clan, it follows that all adult males should reasonably hold shares. Company operations must comply with Great Song *Company Law* regulations. Accounts will follow new accounting standards. The Finance and Taxation Bureau will conduct regular audits..." Zhang Xiao laid out the Senate's requirements for clan corporate transformation. When it came to schemes and intrigues, these modern transmigrators were no match for the gentry—and the Senate disdained such games anyway. With overwhelming military force at their backs, they could afford to play with open cards and employ open stratagems.
 
-The news revealed by Zhang Xiao was more shocking one after another. Gentry momentarily didn't know whether to be happy or worried. Happy that this Magistrate Zhang seemed to have a special affection for Jiujiang; worried about "must follow our rules."
+Each revelation proved more shocking than the last. The gentry found themselves caught between hope and anxiety—pleased that Magistrate Zhang seemed to harbor special affection for Jiujiang, but troubled by the phrase "follow our rules."
 
-"This... Can we be allowed to go back to discuss with clansmen before replying?" Guan Boyi asked.
+"This is... might we be permitted to return home and discuss with our clansmen before giving our answer?" Guan Boyi asked.
 
-Massive information made them unable to think it through. After all, the change was truly too big, simply earth-shaking. Others also followed to propose going back to seek clan opinions. Although they were heads of clans, they couldn't dispose of clan property at will.
+The flood of information left them overwhelmed. The proposed changes were simply too momentous—nothing short of earth-shaking. Others followed suit, requesting time to consult their clans. Though they led their respective families, they could not dispose of clan property at will.
 
-"Good. Give you three days. Three days later we go to Longjiang and Longshan." Zhang Xiao answered readily, implying gentry elsewhere were all waiting to get on the Senate's boat. Besides, letting them take this opportunity to carry out clan reform was giving them face. If refusing face given, the Senate had plenty of ways to deal with them.
+"Very well. You have three days. After that, we proceed to Longjiang and Longshan." Zhang Xiao's ready agreement carried an implicit warning: gentry elsewhere were already waiting to board the Senate's ship. Granting them this opportunity for clan reform was giving them face. If they refused what was offered, the Senate had plenty of ways to deal with them.
 
-The gentry all understood the implied meaning in Zhang Xiao's words. After all, they firmly heard more or less that clans in Xiangshan already carried out so-called corporate reform, and were publicized everywhere by Australians as models. If not agreeing, this huge benefit would probably fall elsewhere.
+The gentry understood the message. They had all heard, to varying degrees, that clans in Xiangshan had already undergone this so-called corporate reform and were being publicized everywhere by the Australians as model examples. If they refused, this tremendous opportunity would likely fall elsewhere.
 
-"Parent Zhang rest assured. There will be a reply within three days."
+"Rest assured, Your Honor. You will have our answer within three days."
 
-"As for the advancement path of scholars you proposed, the Senate also has considerations on this matter. Soon Nanhai County Educational Inspector will come locally to preach education policy. Answering doubts then, everyone can speak freely—just that the Great Ming's imperial examinations won't exist anymore in the future."
+"As for the advancement path for scholars that you raised—the Senate has given this matter considerable thought. Soon the Nanhai County Educational Inspector will visit to explain our education policies. You may ask questions and speak freely then." Zhang Xiao paused. "I should mention, however, that the Great Ming's imperial examinations will no longer exist in the future."
 
 **(End of Chapter)**

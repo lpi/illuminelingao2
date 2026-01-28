@@ -1,97 +1,99 @@
 # Chapter 2604: Planning
 
-Hearing the voice, the two stopped and looked up and down at the young man in old-style clothing before them.
+At the sound of the voice, the two women paused and appraised the young man in old-style clothing standing before them.
 
-The little girl walked to Zhang Jiayu's desk, couldn't help but lean closer to look carefully again, saying, "Really handsome. I didn't expect Teacher Zhang to like this type."
+The girl drifted toward Zhang Jiayu's desk and leaned in for a closer look, her eyes bright with curiosity. "He really is handsome. I had no idea Teacher Zhang went for this type."
 
-"Hening, children shouldn't speak without restraint," the leading woman said to the girl, half amused and half scolding.
+"Hening, mind your tongue," the older woman said, her tone hovering between amusement and reproach.
 
-"Yes, Chief," Zhao Hening replied with a pout, as if acting coquettishly.
+"Yes, Chief," Zhao Hening replied with an exaggerated pout that bordered on flirtation.
 
-Zhang Jiayu was startled, not expecting the leading woman to be a Senator.
+Zhang Jiayu started. He hadn't expected the older woman to be a Senator.
 
-At this moment, Huang Xiyin happened to withdraw. A few minutes later, Zhang Xiao also walked out holding a document. Seeing the two women, he smiled and said, "Sister Yao'er, Hening, you came at the right time. Go inside and sit first."
+Just then, Huang Xiyin emerged from within. A few minutes later, Zhang Xiao followed, document in hand. Spotting the two women, he smiled warmly. "Sister Yao'er, Hening—perfect timing. Go on inside and make yourselves comfortable."
 
-Zhang Xiao then said to Zhang Jiayu, "Jiayu, take this document and go to the County Police Bureau."
+He turned to Zhang Jiayu. "Take this to the County Police Bureau."
 
-Ancient county yamen jails were set in the Kun position outside the magnificent gate southwest of the main hall, commonly known as "South Jail." The Senate's system was vastly different from the Ming Dynasty. Although the municipal and county governments occupied the county yamen, they obviously wouldn't set up detention centers and prisons inside the county government; the police bureau was also set up separately.
+In ancient times, county yamen jails occupied the Kun position southwest of the main hall, beyond the magnificent gate—the so-called "South Jail." The Senate's system bore little resemblance to the Ming Dynasty's arrangements. Though the municipal and county governments now occupied the old yamen, they obviously hadn't placed detention centers within the government compound itself. The police bureau stood separately.
 
-Zhang Jiayu took Zhang Xiao's instruction and dared not delay, going out towards the Lingxi Circuit Yamen, where the Nanhai County Police Bureau was located. Heroes have had a hard time passing the beauty trap since ancient times. At his age, Zhang Jiayu inevitably felt attracted to a youthful girl like Zhao Hening. He even subconsciously looked back when he went out.
+Zhang Jiayu took the document and set off immediately for the Lingxi Circuit Yamen, where the Nanhai County Police Bureau was housed. Heroes have always struggled against the beauty trap, and at his age, he couldn't help feeling drawn to a vivacious girl like Zhao Hening. He even caught himself glancing back as he stepped through the door.
 
-Entering the police bureau, Zhang Jiayu found the staff in the hall, showed the temporary work badge given by Zhang Xiao, and successfully met the Director of the Nanhai County Police Bureau. This naturalized director carefully flipped through the document handed over by Senator Zhang. According to the Senate's system, administrative detention was generally seven days, not exceeding fifteen days at most. The reason he kept the person without releasing was that the people below were unclear about the Senate's wind direction. After all, writing rebel poems was a matter that could be big or small. Since Magistrate Zhang had given instructions, he quickly signed and handed it down, saying to Zhang Jiayu, "Chief Zhang instructed to release Kuang Lu. Please reply to the Chief that I have arranged it."
+At the police bureau, Zhang Jiayu presented the temporary work badge Zhang Xiao had given him and was promptly shown in to see the Director. The naturalized director leafed through the document carefully. Under the Senate's system, administrative detention was limited to seven days, with a maximum of fifteen. He'd kept the prisoner this long only because his subordinates couldn't read which way the Senate's wind was blowing—after all, writing seditious poetry could be treated as either a trifle or a capital offense. But with Magistrate Zhang's instructions now in hand, he signed without hesitation and passed the paperwork down. "Chief Zhang has ordered Kuang Lu's release," he told Zhang Jiayu. "Please inform the Chief that I've seen to it."
 
-Thus, Zhang Jiayu's simple task was successfully completed. He walked with his head down while thinking. At the entrance of the police bureau, he happened to crash right into someone, and both retreated a few steps. Zhang Jiayu looked closely and saw it was actually his sworn brother Zhang Mu. He was very happy and prepared to say hello, but a flash of surprise crossed Zhang Mu's face, then acting as if he didn't know him, he apologized and turned to leave.
+And so Zhang Jiayu's simple errand was complete. He walked with his head down, lost in thought, and at the bureau entrance collided squarely with another man. Both stumbled back several steps. Zhang Jiayu looked up—and found himself face to face with his sworn brother Zhang Mu. Joy surged through him, and he was about to call out in greeting when a flicker of alarm crossed Zhang Mu's face. His brother apologized as if to a stranger and turned to leave.
 
-Zhang Jiayu chased after him. After a few turns into an unmanned alley, he unexpectedly found Zhang Mu waiting for him with a smile.
+Zhang Jiayu followed. After several turns through empty alleyways, he was surprised to find Zhang Mu waiting for him with a smile.
 
-Zhang Jiayu said, "It really is Brother. Why did you refuse to recognize me just now?"
+"Brother! It really is you," Zhang Jiayu said. "Why did you pretend not to know me?"
 
-"Haha..." Zhang Mu said, "Zhiyuan, you bear heavy responsibilities. What kind of place is the Australian police bureau; how could I dare to recognize you?"
+Zhang Mu laughed. "Zhiyuan, you carry heavy responsibilities now. The Australian police bureau is not a place for us to be seen recognizing each other."
 
-Zhang Jiayu suddenly understood; this sworn brother Zhang Mu was indeed an old hand in the *Jianghu*. He said, "Brother is right. It's just that ordinary people avoid this police bureau like the plague; what are you doing here?"
+Understanding dawned. His sworn brother was indeed a veteran of the *Jianghu*. "You're right," Zhang Jiayu admitted. "But common folk avoid this place like the plague. What brings you here?"
 
-"It's a long story. You know I returned home not long ago, but many old friends have passed away. Recently, I learned that a good friend, Kuang Zhanruo, also returned home from north of the Ling. I was intending to invite him for a drink and a happy chat, but when I arrived in Guangzhou, I heard from his family that Zhanruo was detained by the Australians. His family has sent people to the police bureau many times, only getting a reply of 'no bail allowed.' Sister-in-law is a woman and inconvenient to go out, so she entrusted me to test the Australian wind direction again."
+"It's a long story. You know I returned home not long ago, only to find that many old friends have passed on. Recently I learned that a good friend, Kuang Zhanruo, had also come back from north of the Ling. I meant to invite him for a drink and a proper catch-up, but when I arrived in Guangzhou, his family told me the Australians had detained him. They've sent people to the bureau multiple times, only to be told 'no bail allowed.' His wife can't easily go out herself, so she asked me to test the Australian wind again."
 
-Zhang Jiayu asked, "Is the Kuang Zhanruo Brother mentions Kuang Lu?"
+"Is this Kuang Zhanruo you mention the same as Kuang Lu?"
 
-Zhang Mu was a bit strange. "Zhiyuan knows him too?" A rich young master like Kuang Lu shouldn't have any intersection with a commoner a full twelve-year cycle younger like Zhang Jiayu.
+Zhang Mu looked puzzled. "Zhiyuan knows him too?" A wealthy young master like Kuang Lu should have had no connection whatsoever to a commoner a full twelve-year cycle his junior.
 
-Zhang Jiayu said, "Brother doesn't know. I went to the police bureau just now to deliver Chief Zhang's instruction to release Kuang Lu. If Brother goes to the detention center now, you can just pick him up to go home."
+"Brother, you don't know," Zhang Jiayu said. "I just came from the bureau delivering Chief Zhang's order to release Kuang Lu. If you go to the detention center now, you can walk him home yourself."
 
-Zhang Mu didn't quite believe his ears. "Zhanruo wrote emotional poems on the wall of the Zunjing Pavilion in the County School. The Australians released him so easily? Also, Zhiyuan, how did you mix into the side of the Australian magistrate?"
+Zhang Mu could hardly believe his ears. "Zhanruo wrote provocative poems on the wall of Zunjing Pavilion at the County School. The Australians are letting him go that easily? And how did you end up in the Australian magistrate's inner circle?"
 
-Zhang Jiayu said, "That's also a long story."
+"That's also a long story."
 
-Zhang Mu didn't have time to talk in detail with Zhang Jiayu, and it wasn't convenient for Zhang Jiayu to go to the detention center with Zhang Mu, so the two parted ways after discussing business.
+Neither had time for lengthy explanations, and it wouldn't do for Zhang Jiayu to accompany Zhang Mu to the detention center. The brothers settled their business and parted ways.
 
-When Zhang Mu walked into the detention center, before seeing Kuang Lu's face, he already heard his bragging voice with the Australian guard from afar.
+When Zhang Mu walked into the detention center, he heard Kuang Lu's voice before he saw his face—bragging loudly to the Australian guards.
 
-"Do you know? I once studied at Mingfu Cave on Luofu Mountain. There is a plum blossom tree on the mountain planted thousands of years ago, incredibly huge."
+"Do you know? I once studied at Mingfu Cave on Luofu Mountain. There's a plum blossom tree there planted over a thousand years ago, absolutely massive."
 
-"Bragging without a draft. I don't believe it." Guard A looked at Guard B.
+"Bragging without even a draft to work from," Guard A scoffed, exchanging a look with Guard B.
 
-"I don't believe it either. How big can a plum blossom tree of thousands of years be?" Guard B said.
+"I don't buy it either," Guard B agreed. "How big can a thousand-year-old plum tree really be?"
 
-"I know. Once when it bloomed, I wandered under the tree. A gust of wind blew, and petals fell one after another, burying me two or three *zhang* deep. I struggled hard, crawling more than thirty *li* in the sea of flowers before I could straighten my waist, and another thirty *li* before I could stick my head out. Since then, my mouth, nose, and belly have been full of clear fragrance, so I never get sick..."
+"Oh, I'll tell you how big. Once when it bloomed, I was strolling beneath it. A gust of wind came, and petals began falling one after another, burying me two or three *zhang* deep. I struggled mightily, crawling more than thirty *li* through that sea of flowers before I could straighten my back, and another thirty before I could get my head above the surface. Ever since, my mouth, nose, and belly have been filled with that pure fragrance. That's why I never get sick..."
 
-"Kuang Lu, you can go." A policeman from the detention center came over and interrupted Kuang Lu's bragging, saying to him.
+"Kuang Lu, you're free to go." A policeman from the detention center came over and cut short the performance.
 
-Kuang Lu, half-lying on the bed, didn't quite believe it and said, "Not keeping me anymore? I haven't stayed enough yet. There's food and drink here, carefree, and people listening to my stories. Where can I find such a good place?"
+Kuang Lu, who had been reclining on his cot, looked skeptical. "Not keeping me anymore? I haven't had my fill yet. Free food and drink, not a care in the world, and an audience for my stories. Where else would I find such a place?"
 
-The policeman continued, "Of course it's not that simple. If you want to go out, you have to pay Councilor Huang 10 yuan for medical expenses and apologize publicly in the newspaper. Also, for scribbling on the library wall and damaging public property, compensation is 5 yuan."
+"It's not that simple," the policeman continued. "If you want out, you'll need to pay Councilor Huang ten yuan for medical expenses and issue a public apology in the newspaper. Also, for defacing the library wall and damaging public property, that's another five yuan in compensation."
 
-Hearing that he not only had to pay that dog thief Huang Xiyin but also apologize publicly, and a wall was worth five yuan, simply unreasonable, Kuang Lu said angrily, "Then I'll stay here and won't leave, won't leave..."
+Kuang Lu's face darkened. Pay that dog Huang Xiyin? Apologize publicly? And five yuan for a wall? Outrageous. "Then I'll stay right here," he declared. "I'm not leaving. Not leaving..."
 
-At this time, a sentence floated from outside, "Addicted to living here? Aren't you afraid of your 'Shuoren's' Lioness Roar?"
+At that moment, a voice drifted in from outside. "Gotten addicted to living here, have you? Aren't you afraid of your 'Shuoren's' Lioness Roar?"
 
-Kuang Lu was startled in his heart, thinking secretly: *Who else knows the nickname I gave my wife?*
+Kuang Lu's heart lurched. *Who else knows the nickname I gave my wife?*
 
-Footsteps approached. Kuang Lu looked closely. "Iron Bridge!"
+Footsteps approached. Kuang Lu peered at the newcomer and his eyes went wide. "Iron Bridge!"
 
-Zhao Hening was the first orphan taken in by Zhao Yingong in Hangzhou. At that time, she was a seven or eight-year-old child, abandoned on the bridge surface due to illness, her face yellow and swollen, hair disheveled and face dirty, naked in the cold wind of March, with pus and yellow water flowing from some places on her body, looking both filthy and disgusting. Seeing her hanging by a thread but still having some vitality, Zhao Yingong felt compassion, wrapped her in a blue wool cloak and took her back. Under Zhang Yingchen's careful treatment, she finally survived.
+---
 
-During the days at the Hangzhou Station, Zhao Hening formed the "Seven of God" with six older children over twelve: Donghua, Xihua, Funing, Furong, Lizheng, and Yanhe. Under the guidance of Zhao Yingong and Li Yao'er, they excellently completed the task of new-method silkworm raising. However, because she was too young, she was soon transported back to Lingao and entered the "Initial Class" of Fangcao Di to study with the Little Senators.
+Zhao Hening had been the first orphan Zhao Yingong took in at Hangzhou. She'd been seven or eight years old at the time, abandoned on a bridge—face sallow and swollen, hair matted and filthy, naked in the raw March wind. Pus and yellow discharge wept from sores across her body, making her look both wretched and repulsive. Yet seeing that she clung to life despite hanging by a thread, Zhao Yingong felt a surge of compassion. He wrapped her in a blue wool cloak and carried her away. Under Zhang Yingchen's careful treatment, she eventually pulled through.
 
-The students of the "Initial Class" were mostly the generation of Little Senators who came with their parents, bringing their own seats and knowledge of the old timeline. They could be said to be the generation of leaders connecting the past and future of the Senate, the top priority of the Senate's education cause. Therefore, technical Senators like Zhang Xiao, who graduated from well-known universities in the old timeline, were often forcibly assigned teaching tasks in the early years when Fangcao Di's teaching staff was seriously insufficient. He spent a lot of time with these students and knew them very well.
+During her time at the Hangzhou Station, Zhao Hening had formed the "Seven of God" with six older children past the age of twelve: Donghua, Xihua, Funing, Furong, Lizheng, and Yanhe. Under the guidance of Zhao Yingong and Li Yao'er, they excelled at implementing the new silkworm-raising methods. But because she was so young, she was soon sent back to Lingao to join the "Initial Class" at Fangcao Di, studying alongside the Little Senators.
 
-Seeing Zhang Xiao, Zhao Hening was a bit excited. "*Sensei*, your rank rose really fast! You have to cover me in the future."
+These Initial Class students were mostly the children who had crossed over with their Senator parents, carrying knowledge from the old timeline. They represented a generational bridge for the Senate—future leaders who would connect past and present—and thus stood at the very heart of the Senate's educational mission. In the early years, when Fangcao Di's teaching staff was desperately short-handed, technical Senators like Zhang Xiao, graduates of prominent universities in the old timeline, were frequently pressed into teaching duty. He had spent considerable time with these students and knew them well.
 
-Zhang Xiao replied jokingly in Sichuan dialect, "Little Sister, your mouth is still so sweet. What place did you get in the exam?"
+Seeing Zhang Xiao, Zhao Hening's face lit up. "*Sensei*, you've risen through the ranks so fast! You have to look out for me from now on."
 
-"Oh my, you really mention the pot that doesn't boil!" Zhao Hening blushed a little. She enrolled later than others and was a child from a poor family with no cultural foundation. Although she could be considered diligent and hard-working, her grades had always been the tail-ender kind compared to the Little Senators in the Initial Class. However, during her days in the Initial Class, influenced by what she saw and heard from the Little Senators, she gradually grew from a self-abased, silent girl lacking security into a lively, cheerful, and understanding sunny girl.
+Zhang Xiao replied in playful Sichuan dialect, "Little Sister, still as sweet-tongued as ever. What rank did you get in the exam?"
 
-Seeing Zhao Hening grown into a graceful and charming young lady, Zhang Xiao sighed, "I didn't expect that in a blink of an eye, the little girl from back then has grown into a big girl. Time really flies."
+"Oh, you just had to bring up the one thing that hurts!" Zhao Hening's cheeks flushed. She'd enrolled later than the others and came from a poor family with no educational foundation. Though she could be called diligent and hardworking, her grades had always languished at the bottom compared to the Little Senators in her class. Still, her time in the Initial Class—watching and learning from those young Senators—had gradually transformed her from a silent, insecure girl lacking any sense of safety into someone lively, cheerful, and perceptive.
 
-"Cough cough..." Li Yao'er pretended to cough, reminding, "Let's talk about business first."
+Watching Zhao Hening, now grown into a graceful and charming young woman, Zhang Xiao felt a pang of nostalgia. "I can't believe it. That little girl from back then has become a proper young lady. Time really does fly."
 
-Zhang Xiao came back to his senses and said, "Right, long story short. I invited you here this time to prepare for a trip to the grassroots. I haven't been in office for long, nor is it short. Now the matters in the city are roughly clear, but the countryside outside the city, to me, is still shrouded in the fog of war. I must make a trip personally. So I thought, since that's the case, why not bring everyone from the medical, agricultural, and educational sectors? If there is anything, we can discuss it together and handle it on the spot; high efficiency."
+"Ahem." Li Yao'er cleared her throat pointedly. "Business first, if you please."
 
-"Good, I also wanted to go to the countryside of Nanhai to see if there is a suitable place to promote the new sericulture method." Li Yao'er had previously hit a snag promoting silkworm raising in Xiangshan County; hitting the south wall, she naturally turned back.
+Zhang Xiao collected himself. "Right, I'll keep it brief. I called you here because I'm planning a trip to the grassroots. I've been in office neither too long nor too short a while. Matters in the city are more or less clear to me now, but the countryside beyond these walls is still shrouded in fog. I need to see it for myself. And I thought—why not bring representatives from medicine, agriculture, and education along? That way we can discuss issues together and handle them on the spot. Maximum efficiency."
 
-"What ideas do you have? Why not tell us first?" Zhang Xiao said.
+"Excellent," Li Yao'er said. "I've been wanting to survey Nanhai's countryside anyway, to find a suitable place for promoting the new sericulture methods." Her earlier attempt to introduce silkworm-raising in Xiangshan County had met resistance; having hit that particular wall, she was ready to try a different direction.
 
-Li Yao'er said, "Guangdong's silkworm eggs are no good, and the sericulture technology is no good either. Native silk not only has low yield but also poor quality. According to the experience of the old timeline, improvements must be made from the source. But relying on the few of us fighting alone won't work. There must be an institution continuously outputting talents and technology to play a promotional role. So I plan to find a suitable place to build a Sericulture Technical School."
+"What are you thinking? Why not share your ideas first?" Zhang Xiao asked.
 
-Zhang Xiao's idea coincided with Li Yao'er's. "Besides the sericulture school, there should also be fishery, animal husbandry, and planting. It's better to jointly run a Nanhai County Agricultural Technical School. As for school funding, the preliminary idea is to take it from the tax revenue of local related industries, and the Ministry of Education allocating a little more will be enough."
+"Guangdong's silkworm eggs are inferior, and the local sericulture techniques are lacking. Native silk has both low yield and poor quality. Based on experience from the old timeline, improvements must start at the source. But a handful of us working alone won't accomplish much. We need an institution that can continuously produce trained talent and new techniques to drive adoption. So I'm planning to find a suitable location and establish a Sericulture Technical School."
+
+Zhang Xiao's thinking aligned perfectly with hers. "Beyond sericulture, we should include fishery, animal husbandry, and crop cultivation as well. Better to establish a unified Nanhai County Agricultural Technical School. As for funding, the preliminary idea is to draw from tax revenues of related local industries, supplemented by additional allocations from the Ministry of Education. That should be sufficient."
 
 **(End of Chapter)**

@@ -1,105 +1,105 @@
 # Chapter 2609: Digging Dikes into Ponds
 
-Jiujiang Township had monopolized the fish fry fishing rights of the West River since the Hongzhi reign, thus forming a quite thriving freshwater fish farming industry chain. The inspection task Zhang Xiao arranged for Chen Wuren was to deeply understand the local fish fry farming industry. Before dawn, Chen Wuren and cadres from the Agriculture Bureau put on wigs and civilian clothes and took a small boat led by Mo Yu to the surrounding Fish Fry Market—market days were different for different markets.
+Since the Hongzhi reign, Jiujiang Township had held a monopoly on fish fry fishing rights along the West River, giving rise to a thriving freshwater aquaculture industry. Zhang Xiao had assigned Chen Wuren the task of investigating this local fish fry trade in depth. Before dawn, Chen Wuren and several cadres from the Agriculture Bureau donned wigs and civilian clothes, then boarded a small boat guided by Mo Yu toward the surrounding fish fry markets—each market operated on different days.
 
-Due to the market license system of the Ming Dynasty, there were numerous markets in various places that were not seen in local gazetteers. As for the reason: many markets were not legal.
+Under the Ming Dynasty's market licensing system, countless markets throughout the region went unrecorded in local gazetteers. The reason was simple: many operated outside the law.
 
-Only when the market owner applied for a license and managed the market was it legal and could be recognized openly or secretly by the local government and written into the local gazetteer. This was the tax farming system opposed by many in the Senate. Naturally, quite a few market owners collected rent and tax just the same without obtaining a government license at all. These people were all those with strong backgrounds whom local officials often dared not offend.
+A market could only be considered legal—and thus worthy of official recognition and documentation—if its owner applied for a license and managed operations according to regulations. This was the tax farming system that many in the Senate opposed. Naturally, quite a few market owners collected rent and taxes without bothering to obtain government approval. These were invariably men of power and influence, the sort local officials dared not challenge.
 
-Yuewan Market, Longyong Market, and Liangcun Market, which already existed in the Wanli period, did not appear in the Wanli *Nanhai County Gazetteer* or even the later Chongzhen edition county gazetteer, yet the market founders Chen Dacan and Huang Xianfu were high officials in the Wanli period.
+Take Yuewan Market, Longyong Market, and Liangcun Market, all established during the Wanli period. None appeared in the Wanli-era *Nanhai County Gazetteer*, nor even in the later Chongzhen edition. Yet their founders, Chen Dacan and Huang Xianfu, had been high-ranking officials during the Wanli reign.
 
-In the 28th year of Jiajing, Xiang Qiao, Left Administration Vice Commissioner of the the Lingnan Circuit of the Guangdong Provincial Administration Commission, promulgated the decree of "Banning Market Owners to Benefit Citizens." He believed that the court had established a customs tax system, and tax stations in Wuzhou Prefecture, Nanxiong Prefecture, and other places levied tariffs on passing goods, so the profits of small markets should not be encroached upon anymore. However, governments at all levels issued licenses to market owners, collected certain fees, and allowed market owners to collect ground rent for market venues or take a percentage from passing goods.
+In the twenty-eighth year of Jiajing, Xiang Qiao, Left Administration Vice Commissioner of the Lingnan Circuit under the Guangdong Provincial Administration Commission, had promulgated a decree titled "Banning Market Owners to Benefit Citizens." His reasoning was straightforward: since the court had established customs taxes, with stations in Wuzhou Prefecture, Nanxiong Prefecture, and elsewhere already levying tariffs on passing goods, there was no need to squeeze additional profit from small markets. Yet governments at every level continued issuing licenses to market owners, collecting fees, and allowing these owners to charge ground rent for market stalls or take a cut from goods passing through.
 
-Judging from his proposition, the intention was naturally excellent, and the starting point was to reduce the burden on the people. To put it bluntly, whether it was called percentage cut, ground rent, hygiene fee, or stall fee, the resulting costs would eventually be passed on to consumers.
+Xiang Qiao's intentions were admirable, his purpose to ease the burden on common folk. But whether you called it a percentage cut, ground rent, hygiene fee, or stall fee, such costs inevitably trickled down to consumers.
 
-But the prosperity of markets, to put it bluntly, was the demand of the market economy. This could not be changed by a simple ban from the government. The local government also tacitly accepted this behavior that prospered the local economy and increased revenue as usual. Xiang Qiao's decree obviously didn't play any role. At least in the Xiqiao area, the market owner system spread on a large scale.
+The flourishing of markets, however, was simply a response to economic demand—something no government decree could change. Local authorities continued to tacitly accept practices that stimulated the economy and increased revenue. Xiang Qiao's edict had little effect. In the Xiqiao area at least, the market owner system spread unchecked.
 
-The Finance and Taxation Bureau was very interested in the market system. To be honest, markets were a handle for tax collection. Only with markets could taxes on various sporadic economic actions be collected. So the couple Wang Qiyi had always been thinking about how to "legalize" market owners.
+The Finance and Taxation Bureau took great interest in the market system. Markets, after all, provided a handle for tax collection. Only through markets could taxes on scattered economic activities be gathered. The couple Wang Qiyi had long pondered how to "legalize" market owners.
 
-Zhang Xiao was also very interested because market revenue was an important supplement to local finance in the Ming Dynasty. Only by smoothing out this income could local officials have money to do things.
+Zhang Xiao shared this interest. Market revenue had always been a crucial supplement to local finances in the Ming Dynasty. Only by regularizing this income could local officials have the funds to accomplish anything.
 
-Mo Yu was formerly a Dan person (boat person). For livelihood, he joined Shi Shisi and lived a life of robbing and licking blood on the blade under Zhu Cailao's banner. Later, he followed Lin Baiguang to defect to Lingao. Because he had some aptitude for mechanics, he became a technical soldier in the navy. However, due to carelessness in operation during a routine exercise causing an accident, he himself suffered a mild disability in his left hand and retired, arranged into the police system for a leisure job. It wasn't until the Senate went north and lacked manpower that disabled people with seniority like him who wanted to do something practical were reactivated.
+Mo Yu had once been a Dan person—a boat dweller. To survive, he'd joined Shi Shisi's crew and lived the dangerous life of a river bandit under Zhu Cailao's banner, licking blood from the blade. Later, he followed Lin Baiguang in defecting to Lingao. Showing some aptitude for mechanics, he became a technical sailor in the navy. But a moment of carelessness during a routine exercise caused an accident that left his left hand mildly disabled, and he was retired into a cushy position in the police system. It wasn't until the Senate moved north and manpower grew scarce that veterans like him—disabled but experienced, and eager to contribute—were called back into service.
 
-"Section Chief Chen, you may not believe it if I say it, but whether you believe it or not, my skills underwater are quite first-class. I once held my breath for a minute while active underwater and caught a ten-jin mud carp bare-handed without equipment..."
+"Section Chief Chen, you might not believe me," Mo Yu said, "but whether you do or not, my underwater skills are first-rate. Once, while diving without any equipment, I held my breath for a full minute and caught a ten-jin mud carp with my bare hands..."
 
-Mo Yu looked like an ugly version of Su Bingtian but extremely liked to brag ("blow water"). He talked non-stop along the way. Chen Wuren screamed unbearable in his heart, but also learned a lot of useful information from his mouth in advance.
+Mo Yu resembled an uglier version of Su Bingtian, but possessed an inexhaustible love of bragging—what locals called "blowing water." He chattered without pause throughout the journey. Chen Wuren found himself silently groaning at the man's endless boasts, yet gleaned much useful information along the way.
 
-"Starting from March every year, the upstream of the West River rises. Big fish spawn and flow downstream, turning into fish fry at wide river bends with slow water. Dan households along the river have to unite dozens of families to form a team to scrape together enough money to go to Jiujiang to buy fish licenses for fishing, selling to 'Zhuangjia' (Holding Families/Sorters). Jiujiang merchants put fish seed first, counting fish with the left hand and money with the right. They say 'Clouds rise from the creek in April, drowning the Dan family old man.' When fish fry come, it is also when wind and clouds change unpredictably. The wind is urgent, waves are high, and water is big on the West River. One carelessness means destruction of both people and boats. You don't know how miserable our life was when we were Dan people..." recalling the hard days before, Mo Yu couldn't help but sell his misery.
+"Starting in March each year, the West River rises with the upstream floods. The big fish spawn, and the eggs drift downstream, hatching into fry at the wide river bends where the current slows. Dan households along the river have to band together—dozens of families pooling their money—just to afford the fishing licenses from Jiujiang. Then they sell their catch to the *Zhuangjia*, the Sorter Families. Jiujiang merchants always put fish first: counting fry with the left hand, counting coins with the right." Mo Yu's voice grew somber. "There's a saying: 'Clouds rise from the creek in April, drowning the Dan family old man.' When the fish fry come, so do the unpredictable storms. The wind howls, the waves surge, the water runs wild on the West River. One moment's carelessness means losing both your boat and your life." He paused, his expression darkening with old memories. "You don't know how miserable we had it when we were Dan people..."
 
-Chen Wuren said, "We are all people fallen to the ends of the earth. Following the Chief counts as following the right person!"
+Chen Wuren nodded. "We've all been cast to the ends of the earth at some point. Following the Chief—that's when our luck finally turned."
 
-Mo Yu said, "Isn't that right? I am now a serious court official. In the previous dynasty, that was equal to the Jiangpu Patrol Division inspector, rank 9a!"
+"Isn't that the truth?" Mo Yu brightened. "Now I'm a proper court official. Back in the old dynasty, this would've been equivalent to a Jiangpu Patrol Division inspector—rank 9a!"
 
-The group continued to brag for a while.
+The group continued trading stories for a while longer.
 
-The division of labor in Jiujiang's fish fry industry was extremely fine. Dan households fished from fish ports. Those who got fish into ponds were called "Zhuangjia." Those who bought fish from "Zhuangjia" into flower ponds and sold them after the fish fry grew up were called "Zaojia" (Making/Rearer Families). Those who bought fish from "Zaojia," raised them in big fish ponds until they were full foot long or until the end of the year, then drained the pond to catch fish and sell perfectly at the market were called "Gengzhongjia" (Farming/Cultivating Families). Zhuangjia were responsible for the primary rearing and classification of fish fry. After the fish fry went into the pool, they could be sold out of the pond after 20 to 30 days of rearing. Since it was summer, they were called Summer Flower (Summer Fry). Zaojia specialized in breeding larger specifications of Summer Flower fish species. Gengzhongjia bought Summer Flowers from Zaojia and sold them after raising the fish to big sizes.
+The division of labor in Jiujiang's fish fry industry was remarkably specialized. Dan households fished at the river ports. Those who received the fry and placed them in initial holding ponds were called *Zhuangjia*—the Sorter Families. Those who purchased from the Sorters, raising the fry in flower ponds until they grew larger, were called *Zaojia*—the Rearer Families. Those who bought from the Rearers, cultivating the fish in large ponds until they reached a foot in length or until year's end, then draining the ponds to sell the mature fish at market, were called *Gengzhongjia*—the Cultivating Families. The Sorters handled primary rearing and classification; after twenty to thirty days in their pools, the fry could be sold. Since this occurred in summer, these young fish were called Summer Flowers. The Rearers specialized in growing these Summer Flowers to larger sizes. The Cultivators bought Summer Flowers from the Rearers and raised them to full maturity.
 
-The Fish Fry Market was right next to the river creek, convenient for passing fish fry boats to load fish. Since the catch time for natural fish fry started in March, there were no fish fry for sale in the market yet, but many people had already come to book in advance.
+The Fish Fry Market stood right beside the river creek, convenient for passing boats to load their cargo. Since natural fish fry wouldn't be caught until March, nothing was for sale yet—but many had already come to place advance orders.
 
-A fish fry boat was docked at the shore. Two indigenous men stood on the shore talking, one tall and one short, setting each other off interestingly.
+A fish fry boat was moored at the shore. Two local men stood on the bank in conversation, one tall and one short, their contrasting heights almost comical.
 
-The tall one took out a pack of Holy Ship brand cigarettes from his bosom, pulled out one and handed it to the short one, asking, "Are you still raising fish fry now?"
+The tall one produced a pack of Holy Ship brand cigarettes from his jacket, drew one out, and offered it to his companion. "Still raising fish fry these days?"
 
-The short one looked like his glabella was dark, seemingly having a bad complexion. He took out matches, lit the cigarette he received, and lit one for the tall one again, saying, "Don't want to do it anymore; too tired! My health is bad; if I tire to death, who the hell cares."
+The short one's face looked ashen, as if something weighed on him. He accepted the cigarette, struck a match to light it, then lit one for the tall man as well. "Don't want to do it anymore. Too exhausting. My health's gone bad—if I work myself to death, who the hell's going to care?"
 
-The tall one said, "True. Your son can hold up the family now. Working hard for a lifetime, bitterness ends and sweetness comes."
+"True enough," the tall one said. "Your son can carry the family now. After a lifetime of hardship, you've finally reached the sweet after the bitter."
 
-The short one didn't seem very happy, saying, "Just this fate; it's like this for a lifetime."
+The short one didn't seem cheered by this. "It's just fate. This is how it's always been."
 
-"I heard a strange thing recently..." The tall one said slightly mysteriously.
+"Heard something strange recently..." The tall one lowered his voice conspiratorially.
 
-"Oh? What thing is so mysterious?"
+"Oh? What's so mysterious?"
 
-"Heard from fishmongers running to Leizhou and Gaozhou that business was extremely bad last year; lost even their underpants."
+"Word from fish merchants running to Leizhou and Gaozhou—business was terrible last year. Lost their shirts, they did."
 
-"What's strange about this?" The short one disapproved. "The Australians are fighting in; with this chaos of war, what business doesn't lose money?"
+"What's strange about that?" The short one shrugged. "The Australians are pushing in. With war stirring everything up, what business isn't losing money?"
 
-"Leizhou Prefecture is close to the Australians' old nest; it was infiltrated like a sieve by Australians long ago. The army settled it as soon as the proclamation arrived; where is the chaos of war?"
+"Leizhou Prefecture borders the Australians' old territory—they'd already infiltrated it like a sieve. The army settled things the moment the proclamation arrived. There was no war chaos to speak of."
 
 "Oh? Then what happened?"
 
-"The Gengzhongjia over there bought fish fry from Lingao."
+"The Cultivating Families over there bought their fry from Lingao."
 
-"What!" The short one's face changed greatly. Although Jiujiang villagers monopolized the fish fry fishing rights of the West River, they also bore thousands of taels of fish tax. Jiujiang's fish fry sales network went north to Qingyuan and Shaozhou, east to Huizhou and Chaoshan, and west to Fengchuan and Gao-Lei. In later generations, there were even big tall ships sailing from Luzon and Nanyang to buy fish fry. Now if someone no longer needed Jiujiang's fish fry and income decreased, the tax silver hanging over their heads wouldn't decrease by a half cent.
+"What!" The short one's expression changed dramatically. Though Jiujiang villagers held the West River's fish fry monopoly, they also bore the burden of thousands of taels in fish taxes. Jiujiang's sales network extended north to Qingyuan and Shaozhou, east to Huizhou and Chaoshan, west to Fengchuan and Gao-Lei. In later times, great tall ships even sailed from Luzon and the Southern Seas to purchase fry. If customers stopped needing Jiujiang's product and income fell, the tax silver hanging over their heads wouldn't decrease by half a cent.
 
-The short one asked, "Lingao has neither big rivers nor big lakes; where do freshwater fish fry come from?"
+"Lingao has neither great rivers nor large lakes," the short one said. "Where would freshwater fish fry even come from?"
 
-"Who can explain Australians' matters clearly? Some say Australians changed them out using the power of water and fire."
+"Who can explain anything the Australians do? Some say they conjure them through the power of water and fire."
 
-"Guan Youde! Guan Youde!" Mo Yu, coming by boat, saw the short one from afar and shouted.
+"Guan Youde! Guan Youde!" Mo Yu's voice rang out from the approaching boat. He'd spotted the short one from a distance.
 
-Hearing the voice and seeing it was Mo Yu, the short one immediately changed to a smiling demeanor. He obviously knew Mo Yu and responded from afar, "Master Mo, how come you have time to come to the Fish Fry Market today?"
+Hearing the call and recognizing Mo Yu, the short one's dour expression transformed into a welcoming smile. "Master Mo! What brings you to the Fish Fry Market today?"
 
-After the boat docked steadily, Mo Yu threw a cigarette to each of Guan Youde and the other, pointing to his companions to introduce them: "I have a few distant relatives who want to do fish business. Brought them over to look around."
+Once the boat was securely docked, Mo Yu tossed a cigarette to each man, then gestured toward his companions. "Got some distant relatives here looking to get into the fish business. Brought them around to have a look."
 
-The accompanying naturalized cadres all had Fujian-Guangdong accents. Putting on wigs and dressing up, they looked no different from the natives. Guan Youde believed it to be true and said, "I am all too familiar with this Fish Fry Market; there is nothing I don't know. Since they are Master Mo's relatives, their business is my business. Just speak up where I can be of use."
+The naturalized cadres all spoke with Fujian-Guangdong accents. Fitted with wigs and local clothing, they were indistinguishable from natives. Guan Youde took the story at face value. "I know this Fish Fry Market like the back of my hand—there's nothing about it I don't understand. Since they're Master Mo's relatives, their business is my business. Whatever you need, just say the word."
 
-The tall one said, "Master Mo found the right person today."
+The tall one nodded. "Master Mo found the right man today."
 
-Mo Yu didn't know the tall one and asked, "Your Excellency is?"
+Mo Yu didn't recognize the tall one and asked, "And you are?"
 
-Guan Youde introduced, "This is my good friend, Zhong Ji. He is a Zaojia of this township."
+Guan Youde made the introduction. "This is my good friend, Zhong Ji. He's a Rearer here in the township."
 
-"Then I'll trouble you!"
+"Then we'll be in your debt!"
 
-Thus, led by Guan Youde, the investigation team wandered around the Fish Fry Market. Guan Youde was a clansman of the Jiujiang Guan clan. His ancestry supposedly traced back to Guan Yu, moving here during the Southern Song Dynasty. The Jiujiang Guan clan had six halls: Shude, Shimei, Dianxun, Shide, Qiyi, and Sicheng. In old-time-space rural areas, if a family had three sons, their words were more effective than the village police station. Therefore, the Guan clan with thousands of clansmen was definitely a top-tier big clan locally.
+And so, with Guan Youde as their guide, the investigation team wandered through the Fish Fry Market. Guan Youde belonged to the Jiujiang Guan clan. According to family tradition, their ancestry traced back to Guan Yu himself, the clan having migrated here during the Southern Song Dynasty. The Jiujiang Guans comprised six halls: Shude, Shimei, Dianxun, Shide, Qiyi, and Sicheng. In old rural society, a family with three sons could speak with more authority than the village police station. A clan numbering in the thousands, like the Guans, was unquestionably a dominant local power.
 
-Chen Wuren used to be the factory director of the Lingao Popsicle Factory and had managed dozens of people. His speech and deportment were mature and steady. He was the oldest in the team except for Mo Yu. Guan Youde decided in his heart that he was the head of these people, so he asked him, "Might I know the old gentleman's surname? Where does your family live?"
+Chen Wuren had once managed the Lingao Popsicle Factory, overseeing dozens of workers. His manner was mature and steady, and apart from Mo Yu, he was the oldest in the group. Guan Youde quickly concluded he must be their leader. "Might I ask the gentleman's surname? Where does your family reside?"
 
-"My humble surname is Chen, a person from Xiangshan." Chen Wuren replied.
+"My humble surname is Chen. I'm from Xiangshan."
 
-"Xiangshan, huh. Planning to trade fish or raise fish?"
+"Xiangshan, is it? Are you looking to trade fish or raise them?"
 
-"Raise fish."
+"Raise them."
 
-"Then you are going to be a Gengzhongjia. If old gentleman finds Zhong Ji to buy Summer Fry then, he definitely won't cheat you," Guan Youde puffed a smoke. "Are there ready-made fish ponds?"
+"Then you'll be Cultivators. When the time comes, if you buy your Summer Flowers from Zhong Ji, he won't cheat you." Guan Youde exhaled a plume of smoke. "Do you have fish ponds already?"
 
-With the information learned from bragging with Mo Yu along the way, Chen Wuren didn't panic in his heart and said, "There are dozens of *mu* of clan fields in the clan. Because they are low-lying and close to water, grain yield is not high. The clan elders discussed and thought it better to change them into fish ponds. However, there are few fish ponds within the territory of Xiangshan, and no one in the clan has this experience, so they sent us to your precious place to visit and learn."
+Armed with the knowledge gleaned from Mo Yu's chatter during the journey, Chen Wuren answered without hesitation. "Our clan has several dozen *mu* of communal land. The fields lie low and close to water, so grain yields have always been poor. The clan elders discussed it and decided we'd be better off converting them to fish ponds. But Xiangshan has few ponds, and no one in the clan has experience with aquaculture. So they sent us here to learn from your esteemed township."
 
-"Then you really came to the right place." Guan Youde said, "It's just that digging dikes into ponds costs a lot. Old Gentleman Chen's clan is truly making a big move."
+"Then you've come to exactly the right place." Guan Youde nodded approvingly. "Though I should warn you—digging dikes into ponds is costly work. Your clan must be making quite an investment."
 
-"Since ancient times, profits from fish and mulberry make are the thickest. If it can be accomplished, it will be the foundation for the whole clan for a hundred years."
+"Since ancient times, profits from fish and mulberry have been among the richest. If we can make this work, it will be the foundation for our clan for a hundred years."
 
-"Master Chen truly has long-term vision!" Guan Youde gave a thumbs up.
+"Master Chen truly has a long-term vision!" Guan Youde gave an appreciative thumbs up.
 
 **(End of Chapter)**

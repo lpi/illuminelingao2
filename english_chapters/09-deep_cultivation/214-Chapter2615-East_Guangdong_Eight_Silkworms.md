@@ -1,91 +1,101 @@
 # Chapter 2615: East Guangdong Eight Silkworms
 
-Zhao Hening walked up to him and asked, "Little Brother, how do you sell mulberry leaves?"
+Zhao Hening approached him. "How much for mulberry leaves?"
 
-Guan Zongbao said, "Seven mace of silver per *dan*."
+"Seven mace of silver per *dan*," Guan Zongbao replied.
 
-Zhao Hening clicked her tongue, "Not cheap."
+She clicked her tongue. "Not cheap."
 
-Seeing she thought it expensive, Guan Zongbao said, "Sister, this is the market price. If lacking cash silver for turnover, you can withdraw some mulberry leaves first. Wait until earning money after harvest, then pay back the original amount, but with an additional three percent interest."
+Seeing her hesitation, Guan Zongbao offered an alternative. "That's the market price, Sister. But if you're short on silver for turnover, you can take mulberry leaves on credit. Pay back after harvest, plus three percent interest."
 
-Zhao Hening shook her head, indicating not buying. Before long, other farmers negotiated with Guan Zongbao, buying a little bit each until it was sold out. The transaction was completed in the trading room. There was a public scale in the room, held by the scale master. After the buyer and seller agreed on the price, it was handed over to the scale master for weighing. After weighing, the number was reported loudly, and a clerk calculated the transaction amount to conduct third-party confirmation of the trade. After the transaction was completed, the clerk would collect a small commission. The ratio varied everywhere.
+Zhao Hening shook her head and stepped aside. Before long, other farmers arrived to negotiate with Guan Zongbao, each buying small quantities until his stock was depleted. The transactions took place in the trading room, where a public scale presided over all business. The scale master weighed goods after buyer and seller agreed on price, announcing the figures aloud for a clerk to calculate. This third-party confirmation ensured fair dealing. Upon completion, the clerk collected a small commission—the exact percentage varied from market to market.
 
-Having sold out mulberry leaves, Guan Zongbao originally wanted to go to Jiujiang Great Market to find Australian officials to inquire about divorce. But the strange behavior of Zhao Hening's group attracted his attention. Ancient rural areas were usually extremely closed. Even though Jiujiang was located on a thoroughfare with developed commerce, the vast majority of villagers never left the twenty-*li* radius of the village they lived in all their lives. Essentially, it was still an acquaintance society. People within ten miles and eight villages basically knew each other. But these few people before him were unfamiliar faces, only asking for various news in the Mulberry Market without intention to buy mulberries.
+With his mulberry leaves sold, Guan Zongbao had intended to visit Jiujiang Great Market and find Australian officials to inquire about divorce proceedings. But the strange behavior of Zhao Hening's group caught his attention.
 
-Although they spoke Cantonese Mandarin (*Guangfu Guanhua*), they were obviously not locals.
+Rural communities in ancient times were typically insular places. Though Jiujiang sat along a major thoroughfare with thriving commerce, the vast majority of villagers never ventured beyond twenty *li* of their birthplace in their entire lives. It remained an acquaintance society—people from villages within ten miles knew each other by sight, if not by name. Yet these faces before him were strangers, asking questions about the Mulberry Market without any apparent intention to buy.
 
-At this time, someone recognized Le Ziren. After all, having been a resident police officer in Jiujiang Great Market for two years, locals who had been to the market had some impression of him more or less.
+They spoke Cantonese Mandarin well enough, but they were clearly not locals.
 
-"Officer Le, how come you have time to go down to the countryside for patrol today?"
+Before long, someone recognized Le Ziren. After two years as the resident police officer of Jiujiang Great Market, most locals who frequented the area had seen him at least once.
 
-"So it's Old Liu. Catching thieves and patrolling, maintaining order is my duty. I received great grace from the Senate, dare not slack off." Le Ziren said, "Have there been strangers appearing in the village recently?"
+"Officer Le! What brings you down to the countryside for patrol today?"
 
-Old Liu said, "Rest assured, Officer Le. If strangers enter or exit, this small one will definitely report immediately. These two appearing unfamiliar with the Officer, are they Officer's relatives?" Le Ziren followed his words and said, "Yes, distant relatives. My distant cousin and her husband prepare to open a shop in the Great Market. Having time today, just took them around to look, seeing if there are any business opportunities."
+"Ah, Old Liu. Catching thieves, patrolling, maintaining order—that's my duty. The Senate has shown me great trust. I dare not slack off." Le Ziren lowered his voice. "Have any strangers been through the village recently?"
 
-"Oh oh, so they are Officer Le's relatives. No wonder dignified in appearance, truly a pair of Golden Boy and Jade Girl." Old Liu piled smiles on his face and flattered.
+"Rest assured, Officer. If any strangers come through, I'll report it right away." Old Liu glanced at the unfamiliar pair behind Le Ziren. "These two don't look familiar though. Relatives of yours?"
 
-Old Liu exchanged pleasantries with Le Ziren for a while. After he left, Zhao Hening pinched Le Ziren's back and questioned, "Who is your cousin? Who is my husband?"
+Le Ziren seized the opening. "Yes, distant relatives. My cousin and her husband are thinking of opening a shop in the Great Market. I had some free time today, so I'm showing them around, seeing if there are any business opportunities."
 
-Hearing Zhao Hening's coquettish tone, Zhang Jiayu maintained calm on his face, but a deer rampaged in his chest (heart beat fast).
+"Ah, Officer Le's relatives! No wonder they look so distinguished—truly a pair of Golden Boy and Jade Girl." Old Liu's face creased with an obsequious smile.
 
-Le Ziren hurriedly begged for mercy, whispering, "Miss Zhao, I am wronged. Chief Li specially instructed me to adapt to circumstances, not exposing your identities. Country folks have long tongues, can't keep things. Anything happening, the whole village knows in half a day. Isn't this me adjusting to circumstances?"
+After exchanging pleasantries for a while longer, Old Liu departed. The moment he was out of earshot, Zhao Hening pinched Le Ziren's back. "Who's your cousin? And who's my husband?"
 
-Zhao Hening rolled her eyes at Le Ziren, actually feeling a bit happy in her heart, but still crossed her arms over her chest and said, "Forget it, too lazy to bicker with you."
+Her coquettish tone made Zhang Jiayu's expression remain carefully neutral even as his heart hammered in his chest.
 
-Guan Zongbao saw all this in his eyes. Although the conversation between Le Ziren and Zhao Hening was very quiet, Old Liu confirmed this person was the resident police officer of the Great Market. No wonder he looked somewhat familiar. Then, the other two unfamiliar faces were mostly officials from Guangzhou. The leader was obviously this little sister who could make the resident police officer respectful. People said Australians had many female officials under them; seeing today, truly not false.
+Le Ziren hastily begged for mercy, whispering, "Miss Zhao, I'm innocent! Chief Li specifically instructed me to adapt to circumstances and not expose your identities. Country folk gossip terribly—they can't keep secrets. Anything that happens spreads through the whole village in half a day. I was just adjusting to circumstances!"
 
-Guan Zongbao walked up to Zhao Hening and asked, "Little Sister, I see you only care about inquiring news, never buying a little mulberry leaves. Are you wanting to learn silkworm raising?"
+Zhao Hening rolled her eyes at him. In truth, she felt a small flutter of pleasure, but she crossed her arms and said, "Fine. I'm too tired to argue with you."
 
-Zhao Hening answered conveniently, "Yes, this little woman heard Jiujiang is the hometown of sericulture. Silkworms, silk, and silk fabrics are all incomparable elsewhere. Just intending to come here to ask for advice. Learning well, easier to find a good husband's family in the future."
+Guan Zongbao observed all of this quietly. Though Le Ziren and Zhao Hening had spoken softly, Old Liu's greeting had confirmed the man was the Great Market's resident police officer—that was why he'd looked familiar. The other two unfamiliar faces were likely officials from Guangzhou. And the leader was obviously this young woman who could command such deference from a police officer. People said the Australians employed many female officials; seeing it now, he knew the rumors were true.
 
-Guan Zongbao glanced at Le Ziren and said, "This gentleman looks very familiar. Just now someone called him Officer Le. I guess he must be an official of the Great Market. Since Sister is the Official's relative, if trusting me, might as well go to my house. My Mom is proficient in the silkworm industry and surely can answer doubts for Sister."
+He approached Zhao Hening. "Little Sister, I notice you keep asking questions but never buy any mulberry leaves. Are you looking to learn silkworm raising?"
 
-Zhao Hening looked at Zhang Jiayu, seeming to seek his opinion. Zhang Jiayu nodded slightly. This place was not far from the Great Market. before leaving, the Chief issued a hand cannon (pistol) to Zhao Hening. With him and Le Ziren together, there wouldn't be too much danger.
+Zhao Hening answered smoothly. "That's right. I heard Jiujiang is the heartland of sericulture—the silkworms, silk, and fabrics here are unmatched anywhere else. I came hoping to learn. Master the craft, and it's easier to find a good husband in the future."
 
-"Mom, I'm back!" Guan Zongbao put down the empty load and shouted into the house, "Look who I brought?"
+Guan Zongbao's gaze flicked toward Le Ziren. "This gentleman looks familiar. Someone just called him Officer Le—I'm guessing he must be an official of the Great Market. Since you're his relative, why not come to my home? My mother is an expert in the silkworm industry. I'm sure she could answer your questions."
 
-Huang *Shi* had just fed mulberry leaves. Hearing the voice, she came out, seeing two men and one woman coming back with Guan Zongbao. The woman looked fifteen or sixteen. Although dressed simply, her appearance was very beautiful. Don't know whose family had the fortune to give birth to such a beauty. Beside her followed a handsome young man, looking like a scholar. In sharp contrast was the other man, dark-skinned, lean in figure but appearing burly and powerful.
+Zhao Hening glanced at Zhang Jiayu, seeking his opinion. He gave a slight nod. They weren't far from the Great Market, and before leaving, the Chief had issued Zhao Hening a hand cannon. With him and Le Ziren alongside her, the danger was minimal.
 
-"This is?" Huang *Shi* didn't quite understand. Her son said going to the Great Market; how come he returned home so quickly.
+"Mom, I'm back!" Guan Zongbao set down his empty carrying pole and called into the house. "Look who I brought!"
 
-"Mom, this is Officer Le of the Great Market. I met him at the Mulberry Market. He has a relative wanting to learn silkworm raising, so I brought them back."
+Huang *Shi* had just finished feeding mulberry leaves to the silkworms. She emerged at the sound of his voice to find two men and one woman following her son. The young woman looked about fifteen or sixteen. Despite her simple attire, she was strikingly beautiful—whose family had the fortune to produce such a girl? Beside her stood a handsome young man with the bearing of a scholar. The other man provided sharp contrast: dark-skinned and lean, yet radiating an impression of power.
 
-"Ah, it's Officer Le. Please sit quickly, please sit..." Huang *Shi* was somewhat clumsy. She hadn't dealt with officials in her life. She hurriedly took out two small stools from the house. This was the few furniture in her home.
+"Who are these guests?" Huang *Shi* asked, puzzled. Her son had said he was going to the Great Market—how had he returned so quickly?
 
-Seeing not enough stools, Le Ziren gave them to Zhao Hening and Zhang Jiayu, and sat on a medium-sized stone himself. Huang *Shi* was somewhat embarrassed and said, "Sorry, Officer, no extra stools at home."
+"Mom, this is Officer Le from the Great Market. I met him at the Mulberry Market. His relative wants to learn silkworm raising, so I brought them home."
 
-Guan Zongbao took out a few pottery bowls from the house, scooped cold water from the vat to serve, and served some dried fruits on the small table outside the house, inviting apologetically, "Home is simple, no tea water. If you are thirsty, drink some cold water first."
+"Oh! Officer Le—please, sit down, sit!" Huang *Shi* grew flustered. She had never dealt with officials in her life. She hurried inside and retrieved two small stools, nearly all the furniture her home possessed.
 
-Zhao Hening shook the marching canteen she carried and said, "Brother Guan, no need to be polite. We brought water."
+Seeing there weren't enough seats, Le Ziren gave his to Zhao Hening and Zhang Jiayu, then settled himself on a medium-sized stone. Huang *Shi* looked embarrassed. "Forgive us, Officer. We don't have extra stools."
 
-Le Ziren said, "Auntie, this cousin of mine wants to learn Jiujiang's method of silkworm raising."
+Guan Zongbao fetched a few pottery bowls from inside, scooped cold water from the vat, and set out some dried fruits on the small table outside. "Our home is humble—no tea to offer. If you're thirsty, please have some cold water."
 
-Huang *Shi* said, "Little Sister looks like an intelligent person at first glance. My little skill will be learned in no time."
+Zhao Hening shook the marching canteen at her side. "Brother Guan, there's no need. We brought our own water."
 
-Zhao Hening smiled and asked, "Auntie, where do you buy your silkworm seeds?"
+Le Ziren spoke up. "Auntie, this cousin of mine wants to learn Jiujiang's method of silkworm raising."
 
-"All local silkworm seeds. Sister truly has a pair of wise eyes. Whether a crop of silkworms is good or not, the relationship with silkworm seeds is too big." Huang *Shi* praised, "Silk from various places nearby has pros and cons. Poshan raw silk has long threads; silk fabrics spun from Longjiang silk threads are good. But Longjiang silkworm seeds are all purchased from Jiujiang, so they can reel good silk threads. This is not a difference in women's skills, but water colors are different."
+Huang *Shi* smiled. "This young lady looks clever at first glance. My little tricks won't take long to learn."
 
-So-called "water colors" being different meant silkworm seeds were different. Zhao Hening had considerable experience in this, but she pretended not to understand and continued to ask, "Oh? Do you keep silkworm seeds yourselves?"
+Zhao Hening smiled back. "Auntie, where do you get your silkworm seeds?"
 
-"Mostly don't keep. There are specialized Seed Makers locally, specializing in silkworm seeds. Silkworm raising households all buy from Store Families."
+"All local seeds. Sister truly has a discerning eye—whether a silkworm crop succeeds or fails depends heavily on the seeds." Huang *Shi* warmed to the subject. "The silk from different places has its own strengths and weaknesses. Poshan raw silk has long threads. Fabrics woven from Longjiang silk are excellent. But Longjiang buys all its silkworm seeds from Jiujiang—that's why they can reel such fine threads. It's not a difference in the women's skill; it's the water colors."
 
-"Oh, why not keep seeds yourselves?"
+"Water colors" meant the quality of silkworm seeds. Zhao Hening had considerable experience in this area, but she feigned ignorance. "Oh? Do you keep your own seeds?"
 
-Seeing she asked common sense questions, Huang *Shi* thought she had never raised silkworms, so explained, "Little Sister doesn't know. Raising Silkworm Flower (seeds) environment is different from raising silkworms. There are two types of seed keeping. One is upper crop keeping seeds for lower crop use; this is the main silkworm seed of the year. Second is Over-Year Seed, for use next year. For First Crop Silkworms, families often practice themselves. If relatives and friends know they raised well, they come upon hearing news to book, called 'Number Paper' (*Hao Zhi*). If second crop, third, fourth, fifth, sixth crops, all belong to Store Families for buying and selling. Regarding the reason, the method of bathing in water is difficult, and buying seeds is also difficult. Need to see if silkworms suffer from diseases before they can be used as seeds. If suffering various diseases, the next crop will roughly be not good. Therefore, there is the title of Silkworm Master."
+"Mostly not. We have specialized Seed Makers here who focus exclusively on producing silkworm seeds. Silkworm-raising households all buy from Store Families."
 
-Zhao Hening knew the saying of "East Guangdong Eight Silkworms." Within a year, eight crops of silkworms could be raised. Yield was far higher than Jiangnan area. Every year from March to September, that is from Pure Brightness to Frost Descent, six crops of silkworms could be raised, called Regular Crops (*Zheng Zao*). The seventh crop raised in September and October was called Cold Crop (*Han Zao*). Before Regular Crops, there was a crop specifically producing silkworm seeds to supply Regular Crop production, called Silkworm Seed Crop. Listening to Huang *Shi*, First Crop Silkworms were generally self-kept seeds, not yet professionally produced, showing local sericulture division of labor was incomplete, and marketization degree still waited for improvement.
+"Why not keep seeds yourself?"
 
-"What is difficult about the method of bathing in water?" Zhao Hening asked.
+Huang *Shi* assumed she had never raised silkworms before and explained patiently. "Little Sister doesn't know. Raising Silkworm Flower—that's what we call seeds—requires different conditions than raising silkworms. There are two types of seed keeping. First is upper crop seeds for the lower crop—these are the main silkworm seeds for the year. Second is Over-Year Seeds, kept for use the following year."
 
-Huang *Shi* said, "My maiden family relatives include seed makers; I also understand a little. After mother moths fall into the grid and lay eggs on silkworm paper, put silkworm paper in the seed bathing wooden frame. Seed makers prepare hot water, probe with hand, then pour down hot water, cover and move left and right, just like bathing. After three or four times, hang in a cool and ventilated place, let it dry slowly. After bathing, take for acceptance inspection at *Wei* hour (1-3 PM) that day. If egg skin turns light red, it is proper. Inspect again the second day; it should be shrimp meat red. Inspection methods for following days are all different. By *Chen* hour (7-9 AM) on the eighth day, all silkworm babies will come out."
+She continued, "For First Crop Silkworms, families often keep their own seeds. If relatives and friends know someone raised a good crop, they come to book seeds in advance—we call this 'Number Paper.' But for the second, third, fourth, fifth, and sixth crops, that's the domain of Store Families. The reason is that the water-bathing method is difficult, and selecting good seeds is even harder. You need to check whether the silkworms suffered any diseases before using them for seeds. If they had various illnesses, the next crop will likely turn out poorly. That's why we have specialists called Silkworm Masters."
 
-According to Zhao Hening's experience, what Huang *Shi* said should be a kind of High Temperature Water Bath Method for screening silkworm seeds. Jiangnan used Lime Water Bath Seed. This kind of manual method relied heavily on the operator's experience, so only professional seed makers could produce good seeds. Professional seed makers would look for better silkworm seeds, discard diseased silkworm cocoons, intentionally leaving excellent varieties to put on the market. If keeping seeds by oneself from self-raised silkworms, silkworm quality easily became uneven. Unsatisfactory silkworm crops would continue to affect the next crop, forming a vicious reproduction.
+Zhao Hening nodded inwardly. She knew the saying "East Guangdong Eight Silkworms." Within a single year, eight crops of silkworms could be raised here—yields far exceeding the Jiangnan region. Every year from March to September, spanning Pure Brightness to Frost Descent, six crops could be raised, called Regular Crops. The seventh crop, raised in September and October, was called the Cold Crop. Before the Regular Crops came a special crop raised specifically to produce seeds for the rest of the year, called the Silkworm Seed Crop.
 
-"What is the difference between the two types of kept seed silkworms?" Zhao Hening asked again.
+From what Huang *Shi* described, First Crop Silkworms were generally raised from self-kept seeds rather than professionally produced ones. This suggested local sericulture's division of labor remained incomplete, with room for improved marketization.
 
-"The first crop raises Big Silkworms, also called Big Crop Silkworms, maturing once a year. Small Silkworms mature every month, also called Monthly Rotation Silkworms. Over-Year Seeds need to keep Big Crop seeds in early summer, and Monthly Rotation seeds in July. After collection, just hang between half walls, or seal with dry bamboo tubes, no seed bathing, then can be preserved for a long time."
+"What's difficult about the water-bathing method?" Zhao Hening asked.
 
-Zhao Hening nodded. This was the current silkworm seed combination of Guangzhou Prefecture. "East Guangdong Eight Silkworms" didn't refer to a single variety maturing eight times a year, but a variety combination mode with year as unit. The "Yongjia Eight Silkworms" recorded in *Qimin Yaoshu* was a variety combination of at least Ruanzhen Silkworm, Hanzhen Silkworm, and Zhe Silkworm. While in the Jiajing period, locals adopted a combination of two to four silkworms. Only until the Wanli period did the new combination fix as Big Crop and Monthly Rotation seeds.
+Huang *Shi* settled into her explanation. "My maiden family includes seed makers, so I understand a bit. After mother moths settle into the grid and lay eggs on silkworm paper, you place the paper in a seed-bathing wooden frame. The seed maker heats water, tests the temperature by hand, then pours it over the paper and covers the frame, moving it left and right—just like bathing. After repeating this three or four times, you hang the paper in a cool, ventilated place to dry slowly."
+
+She went on, "After bathing, you inspect the seeds at *Wei* hour that same day. If the egg shells have turned light red, they're proper. Check again the second day—they should be shrimp-meat red. The inspection methods differ for each following day. By *Chen* hour on the eighth day, all the silkworm babies will have emerged."
+
+Based on her experience, Zhao Hening recognized this as a high-temperature water bath method for screening silkworm seeds. In Jiangnan, they used a lime water bath instead. Such manual techniques relied heavily on the operator's experience, which was precisely why only professional seed makers could consistently produce quality seeds. They would seek out superior silkworm lines, discard diseased cocoons, and intentionally preserve excellent varieties for market. Households that kept seeds from their own silkworms risked uneven quality—one poor crop would affect the next, creating a cycle of declining yields.
+
+"What's the difference between the two types of seed silkworms?" Zhao Hening asked.
+
+"The first crop raises Big Silkworms, also called Big Crop Silkworms. They mature once a year. Small Silkworms mature every month—we call them Monthly Rotation Silkworms. For Over-Year Seeds, you keep Big Crop seeds in early summer and Monthly Rotation seeds in July. After collection, just hang them between the half-walls or seal them in dry bamboo tubes. No water bathing needed—they'll keep for a long time."
+
+Zhao Hening nodded. This was the current silkworm seed combination used in Guangzhou Prefecture. "East Guangdong Eight Silkworms" didn't refer to a single variety maturing eight times per year, but rather a combination of varieties managed as an annual system. The "Yongjia Eight Silkworms" recorded in *Qimin Yaoshu* had been a variety combination comprising at least Ruanzhen Silkworm, Hanzhen Silkworm, and Zhe Silkworm. During the Jiajing period, locals adopted combinations of two to four silkworm types. Only in the Wanli period did the new standard combination of Big Crop and Monthly Rotation seeds become fixed.
 
 **(End of Chapter)**

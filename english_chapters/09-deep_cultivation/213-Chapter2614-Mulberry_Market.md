@@ -1,95 +1,101 @@
 # Chapter 2614: Mulberry Market
 
-Guan Zongbao got up at the fifth watch, replacing Huang *Shi* to feed mulberries, and started a day's labor, only cooking breakfast after finishing housework. The silkworm feces replaced in the morning were collected by him and not used to feed fish. Last year, the local Master Zhu's family purchased silkworm feces in large quantities, saying they opened some patent medicine workshop needing silkworm feces to make medicine. The purchase price was high, so surrounding silkworm farmers were willing to collect silkworm feces to sell to the Zhu family, while fish pond feed needed to be supplemented by harvesting large amounts of grass in the wild fields instead.
+Guan Zongbao rose at the fifth watch to relieve his mother from feeding the silkworms. Only after completing the morning chores did he cook breakfast. The silkworm droppings he collected weren't destined for the fish ponds—not anymore. Last year, the local Master Zhu had begun purchasing silkworm feces in bulk for some patent medicine workshop, paying handsomely enough that farmers throughout the region now saved their droppings for sale. Fish feed had to be supplemented instead by harvesting wild grasses from the fields.
 
-At the break of dawn, Huang *Shi*, who had a nap to restore spirit, got up and ate pickled vegetables with rice. Taking advantage of the cool tempearature in the early morning, she and her son carried farming tools like sickles, hoes, and mulberry baskets to the mulberry garden to weed. The removed weeds could serve as feed for grass carp in the fish pond, but this was far from enough, so he also had to harvest a large amount of water grass in the swamp and water surface near the mulberry garden to pile into green manure to supplement fish pond feed.
+At dawn, Huang *Shi* woke from her brief rest feeling somewhat restored. She ate a simple meal of pickled vegetables over rice, then joined her son while the morning air was still cool. Together they carried sickles, hoes, and mulberry baskets to the garden for weeding. The pulled weeds would feed the grass carp in their pond, though this was never enough—Guan Zongbao also had to harvest water grass from the nearby marshes and shallows, piling it into green manure to supplement the fish.
 
-Morning mulberry leaves were covered with dew. Picking them to feed silkworms easily made silkworms sick. The best time to collect mulberry leaves was after the dew evaporated. After finishing the farm work in front, the two began to pick mulberry leaves.
+Morning dew still clung to the mulberry leaves. Feeding damp leaves to silkworms made them sick, so they had to wait until the moisture evaporated before picking. Once the early farm work was finished, mother and son began their harvest.
 
-The mulberry gardens in Jiujiang were different from those in Jiangnan. The amount of mulberry planted depended on the fertility of the land. For fertile land, each row was one *chi* and two *cun* apart; for lean land, one *chi* and five or six *cun* apart. The spacing was mostly seven or eight *chi*. Generally, five or six thousand mulberry plants were planted per *mu* of mulberry land. In contrast, the planting density of arbor mulberry in the middle and lower reaches of the Yellow River was only 240 plants per *mu*, and Lake Mulberry in Jiangnan was no more than 200 plants per *mu*, forming a huge contrast. The lifespan of Guangdong Mulberry could generally reach thirty years. Mulberries planted before the Beginning of Spring would have mulberry leaf harvests in the last three crops of the year. If planted in the first or second lunar month, there would be harvest only in the second year.
+The mulberry gardens of Jiujiang differed markedly from those in Jiangnan. Planting density depended on soil fertility—fertile land allowed rows spaced one *chi* and two *cun* apart, while poorer soil required one *chi* and five or six *cun*. With spacing of seven or eight *chi* between rows, a single *mu* of Jiujiang mulberry land typically held five or six thousand plants. By contrast, the arbor mulberry of the Yellow River's middle and lower reaches was planted at only 240 trees per *mu*, and Jiangnan's Lake Mulberry at no more than 200—a stark difference. Guangdong mulberry trees could live thirty years or more. Those planted before the Beginning of Spring would yield leaves for the final three harvests of the year; those planted in the first or second lunar month wouldn't produce until the following year.
 
-The biggest difference from Jiangnan mulberry gardens was a procedure of "Cutting Branches" (*Yizhi*) around the Winter Solstice every year. Counting from the root of the mulberry plant, leaving about an inch of mulberry head, the mulberry planter cut horizontally with a sickle quickly in one stroke. Cutting twice in a row was not allowed to prevent injuring the mulberry tree. Cutting branches generally coincided with the harvest of pond fish. At this time, it was just right to drain the pond and cultivate pond mud on the dike, utilizing the fertility of pond mud for mulberry to overwinter, and also to prevent weed growth.
+The most distinctive practice was "Cutting Branches"—*Yizhi*—performed around the Winter Solstice each year. The planter would measure about an inch up from the root, then slice horizontally with a sickle in one swift stroke. A second cut was forbidden, as it would injure the tree. This timing coincided with the pond fish harvest, making it ideal for draining the ponds and spreading the nutrient-rich mud over the dikes. The pond silt fertilized the mulberry through winter and suppressed weed growth.
 
-But if it was necessary to supply overwintering silkworm seeds, there was the so-called Mulberry Flower Crop. Mulberry planters didn't cut branches at the Winter Solstice, letting some horizontal branches grow, called "Big Tree Tail." At the end of the year and early spring, a few tender leaves sprouted, called "Mulberry Flower." This required seed makers to book with mulberry planters. Due to extremely low yield, this portion of Mulberry Flower could sell for a high price. Branches were cut only after picking Mulberry Flowers, so this portion of mulberry trees couldn't supply the first crop of silkworms, only normally supplying the second crop.
+However, if overwintering silkworm eggs needed to be supplied, growers maintained what was called the Mulberry Flower Crop. Rather than cutting at the Winter Solstice, they let certain horizontal branches grow into what they called "Big Tree Tail." By late winter and early spring, these branches sprouted a few tender leaves—the "Mulberry Flowers." Seed makers had to reserve these in advance with the growers. Due to the extremely low yield, Mulberry Flowers commanded premium prices. Since the branches were only cut after these leaves were picked, such trees couldn't supply the first silkworm crop of the season—only the second.
 
-Huang *Shi* bent her waist, holding the branch stem with her left hand and pinching off mulberry leaves rapidly with her right hand. The grasping part and speed were very exquisite, so as to prevent hurting the mulberry tree. Since the first crop of mulberry was new branches and leaves sprouted after cutting branches, growing particularly short and small, one had to bend down to pick, consuming waist and effort. During the first, second, and third crops, the weather was still slightly cold, so tender leaves couldn't be picked clean; five or six leaves must remain on each branch.
+Huang *Shi* bent at the waist, gripping branch stems with her left hand while her right hand moved rapidly, pinching off leaves with practiced precision. The technique was delicate—too rough, and you'd damage the tree. The first crop was especially taxing; the new growth that sprouted after the winter cutting grew short and close to the ground, forcing pickers to stoop continuously. During the first three crops, while the weather remained cool, the tender leaves couldn't be stripped completely bare. Five or six leaves had to remain on each branch.
 
-The picked mulberry leaves were piled up by Huang *Shi* and put into the mulberry basket on her back. The mulberry basket was woven from bamboo, with good air permeability, preventing mulberry leaves from fermenting and deteriorating.
+As she worked, Huang *Shi* gathered the picked leaves and transferred them to the basket on her back. The basket was woven from bamboo, its open weave allowing air to circulate and prevent the leaves from fermenting in the heat.
 
-Guan Zongbao wiped beads of sweat from his forehead and said, "Mom, when we save some silver this year, let's hire people to pick mulberries next year. Working hard day and night like this, we'll collapse sooner or later; the loss outweighs the gain."
+Guan Zongbao wiped the sweat from his brow. "Mother, when we've saved some silver this year, let's hire pickers for next season. Working ourselves to the bone like this, day and night—we'll collapse eventually. It's not worth it."
 
-Huang *Shi* said, "From the second crop to the seventh crop, each *jin* of mulberry leaves costs four *wen* of labor silver. The first crop is more expensive, costing six *wen*. Not worth it. Wait until we save more money and arrange a marriage for you; it will be good to have an extra helper at home."
+Huang *Shi* shook her head. "From the second crop through the seventh, each *jin* of mulberry leaves costs four *wen* in labor. The first crop is even worse—six *wen*. It's not worth it. Better to save our money and find you a wife. Then we'll have an extra pair of hands at home."
 
-When the two finished labor, the sun had already risen high. Guan Zongbao transported the hard-harvested weeds back to make fertilizer, then carried a load of mulberry leaves with a shoulder pole to the Mulberry Market, preparing to sell for a good price.
+By the time they finished, the sun hung high overhead. Guan Zongbao hauled the morning's weeds back to compost, then loaded the mulberry leaves onto a shoulder pole and set off for the Mulberry Market, hoping to fetch a good price.
 
-"So many annoying mosquitoes. Next time I'll bring a box of mosquito repellent tablets to smoke you all to death!" Zhao Hening was somewhat annoyed, holding a local cattail leaf fan to fan the wind and drive away mosquitoes hovering over her head. She rejoiced in her heart for listening to Zhang Xiao's advice, bringing long-sleeved clothes and long trousers when leaving Guangzhou, imitating the attire of local rural girls. Living in Lingao for a long time, she almost forgot the ferocity of rural mosquitoes.
+---
 
-The task Li Yao'er arranged for her was to inspect the operating mechanism of the local sericulture industry. Zhao Hening dragged Zhang Jiayu along with the excuse of needing a local as a guide. Li Yao'er was somewhat worried, so she arranged for Le Ziren, the resident police officer of Jiujiang Police Station, to follow.
+"So many wretched mosquitoes! Next time I'm bringing a box of repellent tablets and smoking every last one of you to death!" Zhao Hening swatted at the air with a local cattail-leaf fan, trying to drive away the swarm hovering around her head. She silently thanked herself for heeding Zhang Xiao's advice and packing long sleeves and trousers when leaving Guangzhou, dressing like the local village girls. After living in Lingao for so long, she had nearly forgotten how vicious rural mosquitoes could be.
 
-Jiujiang Great Market was the market center of Jiujiang, but the Mulberry Market was not set in the Great Market, but in more grassroots villages. In the sericulture area, Mulberry Markets were countless; even small villages had one. Jiujiang was densely populated. Zhao Hening's group set off south from the Great Market for only two or three *li* and arrived at Nanfang Village. Outside the village were ring-shaped fish ponds formed by digging earth, having obvious defensive functions like a moat.
+Li Yao'er had assigned her to investigate how the local sericulture industry operated. Zhao Hening had dragged Zhang Jiayu along under the pretext of needing a local guide. Li Yao'er, somewhat worried about safety, had also arranged for Le Ziren, the resident officer at Jiujiang Police Station, to accompany them.
 
-Zhang Jiayu pointed to several thatched "shops" at the water port head outside the village and said to Zhao Hening, "Hening, this is the so-called Mulberry Market."
+Jiujiang Great Market served as the town's commercial center, but the Mulberry Market wasn't located there. Instead, it operated at the village level. In sericulture regions, such markets were countless—even tiny hamlets had one. The area was densely populated. Zhao Hening's group had traveled only two or three *li* south from the Great Market before arriving at Nanfang Village. Ring-shaped fish ponds surrounded the settlement, formed by excavating earth to build the dikes. They served an obvious defensive purpose, like a moat.
 
-Zhao Hening was obviously somewhat disappointed and said, "This is also called a market? Just two or three broken thatched huts!"
+Zhang Jiayu pointed toward several thatched "shops" clustered at the water's edge outside the village. "Hening, this is what they call the Mulberry Market."
 
-Zhang Jiayu said, "Guangzhou rural clans often exclude foreign merchants. Village merchants go home after trading, needing no permanent shops built, so a few thatched huts are enough."
+Zhao Hening's face fell. "This is a market? Three ramshackle thatched huts?"
 
-Before getting close, they heard the sound of two women cursing each other with spittle flying. Woman A scolded, "You shameless chicken thief, if you like chickens so much, why don't you be a chicken (whore)?"
+"Guangzhou's rural clans don't welcome outside merchants," Zhang Jiayu explained. "Village traders go home after conducting their business—they don't need permanent shops. A few simple shelters are enough."
 
-Woman B scolded, "You are the chicken; your whole family are chickens. Looking at anyone's chicken looks like your family's chicken!"
+Before they could get closer, the sound of two women hurling abuse at each other reached their ears. The first woman shrieked, "You shameless chicken thief! If you love chickens so much, why don't you become one yourself!" The Cantonese wordplay was unmistakable—*chicken* also meant *whore*.
 
-"Hmph, stealing my chicken and you still have reason!"
+The second woman shot back, "You're the chicken! Your whole family are chickens! You see anyone's hen and think it's yours!"
 
-"On what basis do you say this is your family's chicken? How come your family's chicken forages in my family's mulberry garden?"
+"Hmph! Stealing my chicken and still acting righteous!"
 
-Villagers watching the excitement gradually increased. Someone tried to dissuade but to no avail. A hen was a considerable property in the countryside; no one was willing to give up, let alone admit stealing the chicken.
+"What proof do you have? Why was your chicken foraging in my mulberry garden, then?"
 
-Zhao Hening saw Le Ziren watching with relish and asked him, "You are a cadre of our Senate anyway; why don't you resolve the dispute but watch the excitement here instead?"
+Villagers began gathering to watch. Someone attempted to mediate but made no headway. A hen represented considerable wealth in the countryside—neither woman was willing to concede, much less admit to theft.
 
-Le Ziren said, "Miss Zhao, isn't it just a chicken? Such trivial matters are too common in the countryside; can't manage them all. Besides, I don't speak bird language [dialect], how do I know whose chicken this is?"
+Zhao Hening noticed Le Ziren watching the scene with obvious amusement. "You're a Senate cadre," she said. "Why are you standing there enjoying the show instead of resolving the dispute?"
 
-Zhao Hening gave Le Ziren a roll of eyes, thought for a moment, stepped forward, and shouted loudly, "Two aunties, stop quarreling!"
+Le Ziren shrugged. "Miss Zhao, it's just a chicken. These petty squabbles happen constantly out here—you can't possibly manage them all. Besides, I don't speak their dialect. How would I even know whose chicken it is?"
 
-The two women spraying at full strength were startled by Zhao Hening's sudden shout, looking at her, momentarily not knowing the situation.
+Zhao Hening rolled her eyes at him. After a moment's thought, she stepped forward and called out loudly, "Both of you aunties, please stop arguing!"
 
-Neither Zhang Jiayu nor Le Ziren expected Zhao Hening to intervene actively, too late to stop her. Seeing the two quiet for a moment, Zhao Hening continued, "Isn't what you are arguing about who this chicken belongs to? But neither can prove the ownership of this chicken. I have a way."
+The two women, mid-tirade, were startled into silence by her sudden interruption. They stared at her, momentarily confused.
 
-Woman B rolled her eyes and said, "Yo, whose yellow-haired girl, hair not even fully grown, wants to manage old lady's business?"
+Neither Zhang Jiayu nor Le Ziren had expected Zhao Hening to intervene. Before they could stop her, she pressed on. "What you're arguing about is who owns this chicken, but neither of you can prove it. I have a solution."
 
-Woman A saw someone helping and said, "Hey, the little girl sees injustice on the road. Are you guilty?"
+The second woman looked her up and down. "Well, well. Whose yellow-haired girl is this? Still wet behind the ears, and she wants to stick her nose in my business?"
 
-"Guilty of what? Old lady has never been guilty! She, an outsider, comes to manage village affairs?"
+The first woman, sensing an ally, spoke up. "Listen to her! A girl who sees injustice and speaks up. What's the matter—feeling guilty?"
 
-"Outsider is good. No relation to you or me; that is fair."
+"Guilty of what? I've never been guilty of anything! She's an outsider meddling in village affairs!"
 
-Woman B was unjustified and had to say, "Then let her speak; let's see what way she has."
+"An outsider is perfect. No connection to either of us—that's fair."
 
-Zhao Hening said, "How about this, where do you two live?"
+Unable to argue the point, the second woman relented. "Fine. Let's hear what brilliant idea she has."
 
-The two women pointed to their own thatched huts respectively, both on the mulberry dike not far away. The two families were not far apart.
+Zhao Hening asked, "Where do each of you live?"
 
-Zhao Hening said, "Give me the chicken."
+Both women pointed to their respective thatched cottages on the nearby mulberry dike. Their homes weren't far apart.
 
-To not appear so guilty, Woman B readily handed the little hen to Zhao Hening. Zhao Hening grabbed the chicken wings, led everyone to the middle ground between the two thatched huts, and said, "This chicken doesn't have a name written on it, and neither of you can produce definitive evidence to prove whose chicken this is, but the chicken itself knows whose family it belongs to. Here is the middle of the two families. I put the chicken here. Whichever side's nest it returns to, it belongs to that family. Do you agree?"
+"Give me the chicken," Zhao Hening said.
 
-Woman A heard it was reasonable—her chicken would definitely return to her nest—and said good repeatedly.
+Not wanting to appear guilty, the second woman handed over the small hen without protest. Zhao Hening gripped it by the wings and led the crowd to a spot equidistant between the two cottages. "This chicken doesn't have anyone's name written on it, and neither of you can produce definitive proof of ownership. But the chicken knows where it belongs. This is the midpoint between your two homes. I'll release it here. Whichever nest it returns to—that's its owner. Agreed?"
 
-Woman B had a ghost in her heart. A chicken running out from someone else's house naturally wanted to return to someone else's nest. In this way, she would really become a chicken thief. However, she couldn't show cowardice now, so she had to agree bracingly.
+The first woman nodded eagerly—her chicken would certainly run home. "Agreed! Yes, agreed!"
 
-Seeing neither had objections, Zhao Hening let go. After the hen landed, it ran back towards Woman A's direction in a puff of smoke. Woman B found a step for herself, saying, "My chickens are all free-range in the mulberry garden. Like some men, not coming home is common. Since it doesn't want to go home, let it be."
+The second woman's heart sank. A chicken taken from someone else's house would naturally run back there. If this worked, she really would look like a thief. But she couldn't back down now. "Fine," she said stiffly.
 
-A dispute was thus eliminated. No excitement to watch, onlookers soon went to do their own things. Enjoying Woman A's thanks, Zhao Hening was in a good mood and said to Zhang Jiayu, "How was it? Handled beautifully, right?"
+Seeing no objections, Zhao Hening released the hen. The moment its feet touched ground, it bolted toward the first woman's cottage in a flurry of feathers.
 
-"Clean and beautiful, I am ashamed of being inferior!" Zhang Jiayu was somewhat ashamed. He used to pride himself as a chivalrous person, naturally wanting to uphold justice, putting home and country first, not asking about such trivial matters. He didn't expect Zhao Hening to resolve a dispute so cleanly and neatly.
+The second woman scrambled for dignity. "My chickens all forage freely in the mulberry garden. Like some men—never coming home. If it doesn't want to come home, so be it."
 
-Le Ziren flattered, "Miss Zhao is indeed a top student of Fangcao Di..."
+And so the dispute was settled. With no more spectacle to watch, the onlookers drifted away to resume their work. Basking in the first woman's gratitude, Zhao Hening turned to Zhang Jiayu with a satisfied smile. "Well? Handled beautifully, wouldn't you say?"
 
-Zhao Hening imitated Zhang Xiao's tone, saying, "Grassroots cadres of the Senate must learn to go deep into the grassroots, familiarize with people's feelings, and shine the Senate's light into every corner."
+"Clean and elegant. I'm genuinely impressed." Zhang Jiayu felt a twinge of shame. He had always fancied himself chivalrous, concerned with matters of justice and the greater good—not petty village squabbles. Yet here was Zhao Hening, resolving a dispute with such effortless grace.
 
-"Yes yes yes, what Miss Zhao says is right." Le Ziren hurriedly agreed.
+Le Ziren chimed in, "Miss Zhao truly is a top student of Fangcao Di..."
 
-The Mulberry Market soon returned to normal. Zhao Hening's group pretended to be farmers buying mulberry leaves and chatted with villagers. In places with relatively developed sericulture like Jiujiang, Mulberry Markets generally didn't open according to market days, but operated for more than twenty days per crop to supply mulberry leaves. The land occupied by the Mulberry Market, either belonged to the village's public property, or a certain clan's public property, or a certain ancestral hall's sacrificial property, or a certain temple's property. Generally, merchants were invited to contract every year or every few years, and the proceeds served as ground rent.
+Zhao Hening adopted Zhang Xiao's tone. "Grassroots Senate cadres must learn to immerse themselves in local communities, understand the people's concerns, and shine the Senate's light into every corner."
 
-One of the larger thatched sheds was a place specifically for storing mulberry leaves. A small room next to it was the place for trading. Zhao Hening became interested in a young lad wearing patched clothes. This person looked handsome but tanned dark, with wounds and bruises on his face. It was exactly Guan Zongbao.
+"Yes, yes, absolutely right, Miss Zhao." Le Ziren nodded vigorously.
+
+The Mulberry Market soon returned to its normal rhythm. Zhao Hening's group posed as farmers looking to buy mulberry leaves and struck up conversations with the villagers. In well-developed sericulture regions like Jiujiang, Mulberry Markets didn't follow the usual market-day schedule—they operated continuously for more than twenty days per silkworm crop to ensure a steady supply of leaves. The land they occupied might belong to the village commons, a clan's shared property, an ancestral hall's sacrificial holdings, or temple grounds. Typically, merchants bid for operating rights annually or every few years, with the proceeds serving as ground rent.
+
+The largest of the thatched structures was a storage shed for mulberry leaves. Beside it stood a smaller room where transactions took place. Zhao Hening found her attention drawn to a young man in patched clothes. He was handsome despite being deeply tanned, though wounds and bruises marked his face.
+
+It was Guan Zongbao.
 
 **(End of Chapter)**

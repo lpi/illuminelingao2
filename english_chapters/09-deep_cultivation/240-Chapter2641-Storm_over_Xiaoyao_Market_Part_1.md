@@ -1,93 +1,101 @@
 # Chapter 2641: Storm over Xiaoyao Market (Part 1)
 
-"Li Guangyuan became Immortal. This Eight Immortals Society in this belt counts as achieving momentum. Like fire like tea." Man speaking casually threw fish hook into river, "Next what to do?"
+"Li Guangyuan has ascended to Immortal status. The Eight Immortals Society has finally gained momentum in this region. Their influence spreads like wildfire." The man speaking casually tossed his fishing hook into the river. "What comes next?"
 
-Asked man draped straw raincoat, wore bamboo hat. A look of River Fisher Old Man appearance. Exactly was Taoist Wood Stone (*Mu Shi Dao Ren*).
+The one who asked was draped in a straw raincoat and wore a bamboo hat—the very image of an old river fisherman. This was none other than Taoist Wood Stone (*Mu Shi Dao Ren*).
 
-Only saw him narrowing eyes, looking at floats carrying sinking carrying floating in river water. Issued a light laugh.
+He narrowed his eyes, watching the float bob and drift in the current, and let out a soft laugh.
 
-"Next, naturally want to watch Li Guangyuan sing Grand Opera."
+"Next, we sit back and watch Li Guangyuan perform his grand opera."
 
-Asking, was exactly Gou Xunli alias Walrus Monk. He received order to go to Li Family Enclosure to fan wind light fire. Let Eight Immortals Society took down Li Family Enclosure. Now task already completed. He in Li Family Enclosure admittedly received deep respect, yet felt great doubt towards Taoist Wood Stone's arrangement. Helping Eight Immortals Society open eyes in such bigger flag drum beating way, not afraid Xue Tu eating vinegar (jealous)么? After all Eight Immortals Society was just a small society sect. In "Anti-Kun League" was just a small character.
+The questioner was Gou Xunli, also known as Walrus Monk. He had been dispatched to Li Family Enclosure to fan the flames and stir up trouble, helping the Eight Immortals Society seize control of the territory. Now that his mission was complete, he had earned deep respect within the Enclosure. Yet he harbored considerable doubt about Taoist Wood Stone's arrangements. Helping the Eight Immortals Society make such a grand, conspicuous debut—wasn't he worried about Xue Tu growing jealous? After all, the Eight Immortals Society was merely a small sect, a minor player in the Anti-Kun League.
 
-Although supporting Eight Immortals Society had intention of checking balancing Heaven Way League (*Tian Dao Meng*) Xue Tu branch, but right now current great enemy in front. Kun Thieves cunning cruel. Anxiously engaging in this set of dividing and ruling power technique more or less somewhat not at time.
+True, supporting the Eight Immortals Society served to check and balance the Xue Tu branch of the Heaven Way League (*Tian Dao Meng*). But with the Kun Thieves as their current great enemy—cunning and ruthless as they were—engaging in such divide-and-conquer tactics seemed rather ill-timed.
 
-Not understanding returning to not understanding. This Taoist Wood Stone in front of eyes grasped whole situation. Was Old Stone's agent. These years god appearing ghost disappearing in Two Guangs boundary. Repeatedly escaped from Kun Thieves Depot Guard hands. He not only "Lived," still arranged calmly in Kun Thieves' layers of dragnet. Strung up various forces. Managed Anti-Kun forces with sound with color. "Old Stone's" full support naturally didn't need say. But if without this person's running, basically impossible to create current situation.
+Confusion aside, this Taoist Wood Stone before him commanded the entire strategic situation. He was Old Stone's agent, and for years he had appeared and vanished like a ghost throughout the Two Guangs region, repeatedly slipping through the fingers of the Kun Thieves' Depot Guards. He hadn't merely survived—he had operated calmly within the enemy's layered dragnet, weaving together various factions and managing the Anti-Kun forces with remarkable skill. Old Stone's full support went without saying, but without this man's tireless efforts, the current situation would have been impossible to achieve.
 
-He arranging like this now, probably also had some intention inside. But this unfathomable, instead made Gou Xunli often have thorn on back. Under such high person, was a chess piece allowed to abandon anytime...
+Whatever his current arrangements, there was surely some deeper purpose behind them. Yet this very inscrutability often made Gou Xunli feel a thorn in his back. Serving under such a formidable master meant being a chess piece that could be sacrificed at any moment...
 
-He hesitated whether asking down continuously. Taoist Wood Stone took initiative to speak down: "Li Family Enclosure sound larger better. Just attractive them all to Panyu, Dongguan this side. Nanhai, Sanshui that belt they then have no time to attend. Just good to do a big matter."
+He hesitated, unsure whether to press further. But Taoist Wood Stone spoke first: "The louder the commotion at Li Family Enclosure, the better. It will draw all their attention to Panyu and Dongguan. That way, they'll have no time to attend to Nanhai and Sanshui—which is exactly where we need to accomplish something important."
 
-Gou Xunli dared not ask what big matter. Just continued looking at float. Pondered for half while only then asked:
+Gou Xunli dared not ask what this important matter was. He simply kept watching the float, pondering for a long while before finally asking:
 
-"In Li Family Enclosure still want to do what?"
+"What else needs to be done at Li Family Enclosure?"
 
-Taoist Wood Stone didn't answer him immediately. Just lifted fishing rod. Re-installed bait on already eaten empty hook throwing back to water. Only then low voice said:
+Taoist Wood Stone didn't answer immediately. He lifted his fishing rod, baited the empty hook, and cast it back into the water. Only then did he say in a low voice:
 
-"You still have a few things to do in Li Family Enclosure..."
+"You still have a few tasks to complete there..."
 
-Xiaoyao Market because was water land thoroughfare, commercial channel. Gathered quite some travelers from all directions. Among them naturally also not lacking one of Guangdong Three Big Communities Hakkas.
+---
 
-Different from other places Cantonese people majority. Xiaoyao Market here was Hakkas' small world. On southwest corner of Xiaoyao Market had several square earth enclosing buildings (*Tu Wei Lou*) named "Four Points Gold" (*Si Dian Jin*). Two-story transverse house outer wall built by rammed earth. First floor no window. Second floor opened small window. Two ends of transverse house, built Gathering Mountain Style (*Cuan Shan Shi*) Square Towers higher than transverse house again. On top opened shooting holes and observation ports. Inside prepared bows crossbows. With surrounding several such earth enclosing buildings scattered orderly relative to each other. Both could wall strictly self, and could support each other. Many times protected residents from harassment attack of bandits water pirates. Just living condition of earth enclosing building had many inconveniences. Rich families early built other Manor Courtyards near enclosing building. Later had newly migrated coming building various small houses at outer rim again. Forming a settlement taking earth enclosing building as center.
+Xiaoyao Market sat at a crossroads of water and land routes, making it a bustling commercial hub that drew travelers from all directions. Among them, naturally, were the Hakkas—one of the Three Great Communities of Guangdong.
 
-After population accumulated, Hakka gentry here saw local water land traffic convenient. Then set up Market at this place. An earth road straight through river side ferry crossing and pier. Also branched out several branch roads. Road two sides stood various trade signboards like forest. Very lively.
+Unlike other places where Cantonese formed the majority, Xiaoyao Market was a Hakka enclave. In its southwest corner stood several square earthen fortresses called *Tu Wei Lou*, collectively named "Four Points Gold" (*Si Dian Jin*). These two-story structures had outer walls of rammed earth, with no windows on the ground floor and only small apertures on the second. At each end of the main building rose Gathering Mountain Style (*Cuan Shan Shi*) square towers, taller still, fitted with shooting holes and observation ports. Bows and crossbows were kept at the ready inside. Several such fortresses were scattered in strategic positions, able to both seal themselves off and support one another. They had protected residents from bandits and river pirates on many occasions.
 
-Recently, near pier newly stood up Kun Thieves' barracks. Daily punctual bugle sound added a portion of desolate killing air to Xiaoyao Market.
+Living conditions within the earthen buildings were inconvenient, however. Wealthy families had long since built separate manor houses nearby. Later arrivals constructed smaller dwellings around the periphery, gradually forming a settlement centered on the original fortresses.
 
-Since having this barracks, every few days had Australian fleet coming to Xiaoyao Market to park. Unloading many goods. According to moving short term workers said, moved down mostly timber, lime sand etc. construction materials. Probably Australians wanted to repair big house here.
+As the population grew, the local Hakka gentry recognized the area's convenient water and land access and established a market. An earthen road ran straight from the riverside ferry crossing and pier, branching into several side streets lined with trade signboards. The place hummed with activity.
 
-Just past Chén Hour (7-9 AM). On street surface not that enthusiastic as past days. Even soliciting men gathering at snack shops, tea water stalls etc. waiting for jobs usually also few a few portions. Only hanging ragged knots begging flower (beggar) still same as usual, for a day's food wandering in front of various businesses. Singing various Happy Songs. Begging for reward money.
+Recently, a Kun Thieves barracks had been erected near the pier. The punctual bugle calls each day added a desolate, martial air to Xiaoyao Market.
 
-"Baoyu Pawnshop true style ah~ true style, Green Mountain Big River cheer together na~ cheer together. Gold Silver full room God of Wealth comes ya~ God of Wealth comes, Pixiu guarding gate..."
+Since the barracks appeared, Australian fleets had been arriving every few days, unloading large quantities of goods. According to the short-term laborers who carried the cargo, most of it was construction materials—timber, lime, sand. The Australians apparently intended to build something substantial here.
 
-"Don't sing, don't sing. Shop Owner has serious matter. Change a door." Little apprentice wiping table desk heard Lotus Fall (*Lian Hua Lao*) coming out to welcome. Opening pawnshop stressed mouth luck most. Since someone sang happy song at door, also inconvenient to drive away hard. Saying took out a note throwing into beggar's broken pottery bowl.
+---
 
-Beggar smiled: "Now changed to paper note. Without a ring of copper coin entering bowl. This song singing all has no energy."
+The Chen Hour (7-9 AM) had just passed. The streets were quieter than usual, with fewer day laborers gathered at the snack shops and tea stalls waiting for work. Only the ragged beggars went about their usual business, wandering before the various establishments and singing auspicious songs in hopes of earning a few coins.
 
-Apprentice smiled: "You still want copper coin! This year month even silver all becomes paper one! Let alone silver ingot silver锞子 (small ingot), even silver dollar can't see a few pieces! This Great Song's world true rare. Daily saying self how rich possessing world. Making half day silver becomes paper money!"
+"Baoyu Pawnshop, truly splendid, ah~ truly splendid! Green mountains and great rivers rejoice together, na~ rejoice together! Gold and silver fill the house as the God of Wealth arrives, ya~ the God of Wealth arrives! Pixiu guards the gate..."
 
-Beside "Head Counter" stared him an eye. Scolded: "You eat full supported (swelled/too full)! Saying these useless fart words. Sweep quickly. Shopkeeper and East Owner in a while coming out."
+"Enough, enough—stop singing. The shop owner has important matters to attend to. Try the next door." A young apprentice wiping down a table heard the Lotus Fall singer (*Lian Hua Lao*) and came out to greet him. Pawnshops considered it unlucky to turn away someone singing auspicious songs at their door, so rather than driving him off, the apprentice pulled out a paper note and tossed it into the beggar's cracked pottery bowl.
 
-This beggar seeing apprentice without intention of giving again. Then went towards next family.
+The beggar grinned. "Paper notes now, is it? Without the ring of copper coins hitting the bowl, the song loses its spirit."
 
-"I look his profession actually good", Beside Fourth Counter smiled, "One person eats full, whole family not hungry. Also not laboring heart wasting strength. True giving an Emperor not exchanging."
+The apprentice laughed. "You still want copper coins? These days, even silver has turned to paper! Forget silver ingots or small silver pieces—you can barely find a silver dollar anywhere! What a wonder the Great Song has become. They boast endlessly about their wealth, yet everything's turned into paper money!"
 
-"You understand what?" Second Counter sneered, "They being beggars also have rules. On top have Big Bone (Boss) managing. Got money first have to honor Big Bone. If you no money to honor, light beating a meal, heavy directly driving you out. At that time even begging has no place!"
+The Head Counter shot him a glare. "Have you eaten too much? Spouting such useless nonsense. Get back to sweeping. The Shopkeeper and the East Owner will be out shortly."
 
-"Their this profession, also can't do how long." Head Counter said, "Once Australians arrived Guangzhou then destroyed beggars' old nest! Big Bones all chopped heads! Beggars all exiled to what Taiwan to plant land. Even local, beggars in county city all caught away. Just countryside, still has their a bit place to accommodate body."
+Seeing no further generosity forthcoming, the beggar moved on to the next establishment.
 
-"Once this Australians come, fear they also can't stay down."
+"His profession seems rather pleasant, actually," the Fourth Counter remarked with a smile. "He eats his fill and answers to no one. No mental strain, no physical labor. You couldn't trade him for an emperor."
 
-"Without these people harassing, Master also reduced an expenditure. You don't look down upon this money, true not few!"
+"What do you know?" the Second Counter sneered. "Even beggars have their rules. There's a Big Bone—a boss—above them. Whatever money they collect must first be offered up. If you can't pay tribute, you'll get beaten at best, driven out at worst. Then you won't even have a place to beg."
 
-"Then why Master still looks Australians not pleasing to eye all day to night?" Fourth Counter asked curiously.
+"They won't be able to keep at this profession much longer anyway," the Head Counter said. "Once the Australians reached Guangzhou, they destroyed the beggars' old networks! The Big Bones were all beheaded, and the beggars themselves were exiled to Taiwan to work the land. Even in our own county, the beggars in town have been swept up. Only out in the countryside do they still have any refuge."
 
-"Who knows? Master thinks much, thinks deep. We don't understand..."
+"Once the Australians arrive here properly, even that refuge will vanish."
 
-"Why looking not pleasing to eye, isn't because Master Fan..." Second Counter pretended deep said.
+"Without these people pestering us, the Master will save quite an expense. Don't underestimate those small amounts—they add up."
 
-This "Master Fan" was Market Owner of Xiaoyao Market. And this Xiaoyao Market's place name also obtained from him. Master Fan big name Fan Xiao. Just named market on own land skin as Xiaoyao Market. Earth buildings on southwest corner of Xiaoyao Market were his family's. Although Li Guangyuan locally was "Local Snake," but this Master Fan sat guarding this Xiaoyao Market, entering peck of gold daily. Financial power abundant. Key was his family also had degree leaning on body. Was "Gentry" in county. Although not as Li Family people many land many, also enough to divide court resist rite (rival) with Master Li locally. Two families although polite on surface, encountering matters always wanted to hook heart fight corner (scheme against) in dark a round.
+"Then why does the Master glare at the Australians from morning to night?" the Fourth Counter asked curiously.
 
-Arrival of Australians, added some variables to this "Two Strongs" situation again. Australians first time passing Xiaoyao Market, on market for a time was also wind sound crane cry (jittery). Even had Master Fan's family people appearing to maintain, various shops still closed door up board resting for two days. Later Australians issued Peace Notice. Shops on market selected liaison and Australians agreed on Reasonable Burden. Various shopkeepers only then returned to hang sign open business again.
+"Who knows? The Master thinks deeply about many things. We can't fathom it..."
 
-However, Australians stayed in Xiaoyao Market not long time. No more than three five days then left. Afterwards although passing occasionally, never stayed heavily stationed here for long time. Gradually, big guys also more or less forgot their existence. Only heard Master Fan served as Xiaoyao Market "Head Pai Jia." On private face he was Market Owner. On official face he was Australians' Pai Jia. As usual suppressed countryside Local Moneybag Li Guangyuan fiercely a head.
+"The reason he's displeased? It's surely because of Master Fan..." the Second Counter said with an air of mystery.
 
-Later again, Australians promoted New Currency locally. Recruited local shops to accept. Also ordered various to receive and use. Not allowed to defy. Silver exchanging Silver Cake (Coin) nothing. Although on weight felt somewhat eating loss, but this Australian Silver Cake fineness good, look also exquisite. Accepting using definitely won't eat loss. But this "Silver Yuan Note" let old Moneybags mumbled.
+This "Master Fan" was the Market Owner of Xiaoyao Market. Indeed, the market's very name derived from him—Master Fan's given name was Fan Xiao, and he had simply named the market on his land "Xiaoyao." The earthen fortresses in the southwest corner belonged to his family. Though Li Guangyuan was the "local snake" of the region, Master Fan commanded Xiaoyao Market, which brought in a peck of gold daily. His financial resources were abundant, and crucially, his family held scholarly degrees—they were recognized gentry in the county. Though the Li family had more people and more land, Master Fan was powerful enough to rival them locally. The two families maintained surface politeness, but whenever their interests intersected, schemes and counter-schemes played out in the shadows.
 
-Inside First Class Big Shops of Xiaoyao Market, Li Guangyuan's Baoyu originally was also one of Accepting Business Houses. Li Guangyuan heard wanting to accept Silver Yuan Note, then firmly resigned this matter. Afterwards was coldly treated by Australians greatly. Implicating establishing Chamber of Commerce on market, as one of biggest business houses Baoyu was just an ordinary "Member Enterprise." Even a "Director" didn't mix on. This also made Li Guangyuan take to heart deeply.
+The arrival of the Australians had introduced new variables to this balance of power. When they first passed through Xiaoyao Market, the whole place was thrown into panic. Even with Master Fan's people maintaining order, the shops closed their doors for two days. Only after the Australians issued a Peace Notice and the shopkeepers negotiated a "Reasonable Burden" through elected liaisons did business resume.
 
-He putting all eggs in one basket joining "Anti-Kun Great Enterprise," stimulation given by these scattered small matters was also a reason.
+However, the Australians never stayed long—no more than three to five days at a time. Though they passed through occasionally afterward, they never established a permanent presence. Gradually, people half-forgot about them. They only knew that Master Fan had been appointed "Head Pai Jia" of Xiaoyao Market. Privately, he remained the Market Owner; officially, he served as the Australians' local administrator. Either way, he continued to lord it over his countryside rival, Li Guangyuan.
 
-Apprentices just idly knocking teeth (chatting). Shopkeeper sent a few people from backyard to gate. Let Fourth Counter apprentice lead them walking towards pier direction. Among these few people, leading was exactly Luo Heying and Li Guangfa. They arrived Xiaoyao Market yesterday. Quietly stayed into Li Family's shop on Xiaoyao Market—Backyard of Baoyu Pawnshop.
+Later still, the Australians promoted their New Currency locally, recruiting shops to accept it and ordering compliance. Exchanging silver for Silver Coins was tolerable enough. Though the weight seemed slightly unfavorable, the Australian coins were of fine quality and attractive craftsmanship—accepting them wouldn't cause any loss. But these "Silver Yuan Notes"—now those made the old moneybags grumble.
 
-Today early morning then departed to near Kun Thieves Barracks by river side to spy Kun Thieves' actual situation. Conveniently go look at location selection of new shop again.
+Among Xiaoyao Market's first-class establishments, Li Guangyuan's Baoyu Pawnshop had originally been one of the accepting business houses. But when Li Guangyuan heard he would have to accept Silver Yuan Notes, he firmly withdrew from the arrangement. The Australians responded with cold treatment. When the market's Chamber of Commerce was established, Baoyu—despite being one of the largest businesses—was relegated to ordinary "Member Enterprise" status. They didn't even secure a Director's seat. This slight festered in Li Guangyuan's heart.
 
-Fourth Counter just rose up from apprentice not long. Seeing Master bringing noble guest here. Extremely attentive. Since ancient times Pawnshop apprentice treatment most generous. But also not ordinary person could be competent. Those able to finish apprenticeship becoming formal partners, not only business proficient familiar, on human feeling world wisdom also not comparable by ordinary person.
+His decision to stake everything on the "Anti-Kun Great Enterprise" was partly driven by the accumulated sting of such small humiliations.
 
-Asking recently on market had any fresh matters related to Australians. Apprentice said: "Repairing road building house this not count as fresh matter. Instead issued a kind of new money."
+---
 
-Li Guangyuan fiercely stood steps. Surprised said: "New money?"
+While the apprentices idly chatted, the Shopkeeper escorted several guests from the backyard to the front gate. He directed the Fourth Counter's apprentice to lead them toward the pier. Among the group were Luo Heying and Li Guangfa, who had arrived at Xiaoyao Market the previous day and quietly lodged in the backyard of Li Family's local establishment—Baoyu Pawnshop.
 
-"Yes, new money." Apprentice seeing Master expression solemn, dare not light heart. Slightly thought said: "This money started using this Monday. Right now on market not much. Shopkeeper originally wanted to come report to East Owner these few days..."
+They had set out early this morning to reconnoiter the Kun Thieves' barracks by the riverside and to scout potential locations for a new shop.
+
+The Fourth Counter had only recently graduated from apprenticeship himself. Seeing the Master bring such distinguished guests, he was extremely attentive. Pawnshop apprentices had always enjoyed generous treatment, but the work demanded exceptional ability. Those who completed their training and became full partners were not only thoroughly versed in business—they possessed a worldly wisdom beyond ordinary people.
+
+When asked whether anything noteworthy involving the Australians had happened recently, the apprentice replied: "Repairing roads and building houses isn't exactly news. But they have issued a new type of currency."
+
+Li Guangyuan stopped abruptly, his expression sharp. "New currency?"
+
+"Yes, new currency." Seeing the Master's grave demeanor, the apprentice dared not speak lightly. After a moment's thought, he continued: "This money only started circulating this Monday. There isn't much of it on the market yet. The Shopkeeper had been planning to report this to the East Owner in the coming days..."
 
 **(End of Chapter)**

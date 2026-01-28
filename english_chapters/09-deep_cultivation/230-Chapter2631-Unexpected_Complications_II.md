@@ -1,111 +1,117 @@
 # Chapter 2631: Unexpected Complications II
 
-Huang *Shi* looked fixedly at the person speaking. He was named Wu Yixuan, looking younger than Yuchi Gang. Wu Yixuan was native of Qiongshan, Hainan, graduate of Fangcaodi. Said to be descendant of Tang Dynasty famous official Wu Xianxiu. Father generation sent him into Fangcaodi School to study early, majoring in Law and Politics. After graduation once cooperated with "Little Senators" to hang post (intern/serve) in local place to exercise, tempering management ability. Afterwards, Wu Yixuan was appointed as Guangzhou Circuit Court Judge, responsible for handling appeal cases of Guangzhou Grand Region. Different from Yuchi Gang, Wu Yixuan character outer soft inner hard, eloquence good. Self-considered professional origin, knowledge foundation strong. Once followed "Chiefs" for long term, understanding essence of law thoroughly. Slightly looked down upon retired soldiers.
+Madam Huang fixed her gaze on the man who had spoken. His name was Wu Yixuan, and he appeared younger than Yuchi Gang. A native of Qiongshan in Hainan and a graduate of Fangcaodi Academy, Wu Yixuan claimed descent from Wu Xianxiu, a famous official of the Tang Dynasty. His father had enrolled him at Fangcaodi early, where he majored in Law and Politics. After graduation, he had cooperated with the "Little Senators," serving in various local posts to hone his administrative abilities. Eventually, Wu Yixuan was appointed as a judge of the Guangzhou Circuit Court, responsible for handling appeals throughout the greater Guangzhou region. Unlike Yuchi Gang, Wu Yixuan possessed a temperament that was outwardly gentle but inwardly unyielding, with a silver tongue to match. He considered himself a true professional with a solid foundation in legal knowledge. Having followed the "Chiefs" for an extended period, he believed he understood the essence of law thoroughly—and looked down somewhat on retired soldiers.
 
-Yuchi Gang saw Wu Yixuan showing off knowledge, said: "Big Sister, according to your complaint paper, your husband at least violated these regulations of granting divorce in Marriage Law: implementing domestic violence or abuse, abandoning family members; having bad habits like gambling, drug taking etc. repeatedly taught not changing; separated for full two years because of emotion disharmony. Reason why still need opening court to try, is because every family has a difficult scripture to read. Life between husband and wife, bystanders cannot see clearly truly. Although we judges represent public power, judge is also human. Cannot exercise discretion right casually to decide life and death of others' marriage because of personal preference. Proverb says well, prefer dismantling ten temples, not dismantling one marriage. Maybe both sides feel contradiction already reached level unable to resolve, but for judge to judge whether husband wife both sides emotion truly broken through reviewing evidence and both sides' debate within short time, is a difficult matter."
+Seeing Wu Yixuan show off his knowledge, Yuchi Gang spoke up. "Big Sister, according to your complaint, your husband has violated at least several grounds for divorce under the Marriage Law: committing domestic violence or abuse, abandoning family members, and persisting in vices like gambling or drug use despite repeated warnings. Additionally, you've been separated for two full years due to irreconcilable differences." He paused. "The reason we still need a formal trial is that every family has its own troubles. The life between husband and wife is something outsiders can never fully understand. Although we judges represent public authority, we're still human. We cannot exercise discretionary power carelessly, determining the life or death of someone's marriage based on personal preference. As the proverb goes: better to demolish ten temples than destroy one marriage. Perhaps both parties feel the conflict has reached an irresolvable point, but for a judge to determine whether emotional bonds are truly severed—based on evidence and arguments presented in a short time—is no simple matter."
 
-Zhao Hening listened dumbfounded. Originally she thought relying on Huang *Shi* and Guan Zongbao's testimony alone could sentence divorce without hesitation. didn't expect Yuchi Gang actually said he still couldn't see clearly.
+Zhao Hening listened in dismay. She had assumed that with the testimony of Madam Huang and Guan Zongbao alone, the divorce would be granted without hesitation. She hadn't expected Yuchi Gang to say he still couldn't see things clearly.
 
-Wu Yixuan had some meaning of tit for tat, said: "My viewpoint is exactly opposite. Marriage Law never did and impossible to concern men women's emotion. Whether *Marriage Law* or *Several Specific Opinions of Great Song Supreme Court on How to Determine Husband Wife Emotion Indeed Broken in Trying Divorce Cases*, determination standards inside are all objective standards. Only one thing it wants to determine, that is whether husband wife both sides still have objective conditions to continue fulfilling marriage contract, not some whether husband wife emotion broken."
+Wu Yixuan spoke with a hint of challenge in his voice. "My view is precisely the opposite. The Marriage Law has never concerned itself with emotions between men and women, nor could it ever. Whether we're discussing the Marriage Law itself or the Supreme Court's Specific Opinions on Determining Emotional Breakdown in Divorce Cases, the standards within are entirely objective. The law seeks to determine only one thing: whether the husband and wife still have the objective conditions to continue fulfilling their marriage contract—not some nebulous question of whether their feelings have died."
 
-Wu Yixuan's words made Zhao Hening's heart broad much again. Still one separate two wide, each produce joy is good.
+Wu Yixuan's words lifted Zhao Hening's spirits considerably. Perhaps there could still be a clean separation, with each party free to find their own happiness.
 
-"Then is divorce difficult?" Huang *Shi* asked again.
+"So is divorce difficult?" Madam Huang asked.
 
-"Divorce is nothing more than property division, debt division. How much common property do you have?" Yuchi Gang asked, "That is property produced after you married over."
+"Divorce is simply a matter of dividing property and debt," Yuchi Gang replied. "How much marital property do you have? That is, property acquired after your marriage."
 
-"Sigh, where does home have other property. Only remaining one adobe room in village. Additionally a few taels silver of debt." Huang *Shi* sighed saying.
+"Sigh, where would we have any property?" Madam Huang let out a weary breath. "All that remains is an adobe room in the village and a few taels of silver in debt."
 
-"Then simple. Nothing more than dividing house. Small items like what pot bowl ladle basin divide half to half is fine. Debt is also so."
+"Then it's simple. You divide the house. Smaller items like pots, bowls, and utensils can be split evenly. The same applies to debts."
 
-"Then, my son follows him?" Huang *Shi* asked again.
+"And my son—will he stay with his father?" Madam Huang asked.
 
-Yuchi Gang said: "Blood relationship is born with. No clause in law can cut off blood relationship. Supporting old people is obligation children should fulfill. Your son naturally wants to fulfill support obligation."
+"Blood relationships are innate," Yuchi Gang said. "No legal clause can sever them. Supporting elderly parents is an obligation children must fulfill. Your son will naturally bear that responsibility."
 
-Wu Yixuan said again: "However support obligation is absolutely not your so-called Filial Piety. Not blindly satisfying parents' demand, but only providing material foundation not lower than local living standard to guarantee normal life of old people losing labor ability, life unable to take care of self. Right, your son seems not adult yet right?"
+Wu Yixuan added, "However, the obligation of support is absolutely not the same as your so-called Filial Piety. It doesn't mean blindly satisfying a parent's every demand. It means only providing material support no lower than the local living standard, guaranteeing a normal life for elderly parents who have lost the ability to work or care for themselves." He paused. "Your son isn't an adult yet, correct?"
 
-"Fifteen this year." Huang *Shi* said.
+"He's fifteen this year," Madam Huang said.
 
-"Then your son doesn't need to bear support obligation now. Instead your husband wants to bear raising obligation. This involves another problem again, that is custody right of minor children. That is who child lives with after you divorce. Generally speaking, minor children above eight years old, court will judge according to two sides' raising conditions, simultaneously respecting child's true will."
+"Then he doesn't currently bear any support obligation. Instead, your husband must fulfill his duty to raise the child. This leads to another issue: custody of minor children. That is, whom the child will live with after divorce. Generally speaking, for minors over eight years old, the court will rule based on each party's ability to provide care, while also respecting the child's own wishes."
 
-After a detailed legal explanation, Huang *Shi* listened still muddled. Circuit Court was not just handling this one case either. Therefore needed Huang *Shi* to go back to notify Guan Youde to go to Circuit Court location, that is inside this Marching Camp to conduct court trial together.
+After the detailed legal explanation, Madam Huang still felt muddled. The Circuit Court wasn't handling just this one case, of course. She would need to return home and notify Guan Youde to appear at the court location—inside the military encampment—for the trial.
 
-Huang *Shi* walked out of tent uneasy. Zhao Hening advised her don't worry; this matter wrapped on her body.
+Madam Huang walked out of the tent feeling uneasy. Zhao Hening assured her not to worry; she would take care of everything.
 
-At this time, Mo Yu and others also returned to Grand Camp. After obtaining answer of not finding obvious problems, Zhang Xiao only instructed him to continue monitoring.
+---
 
-"Jiayu, how do you see?" Zhang Xiao asked.
+Around this time, Mo Yu and the others returned to the main camp. After receiving their report that no obvious problems had been found, Zhang Xiao instructed them to continue monitoring.
 
-"Student thinks, Chief's worry indeed has reason. Just didn't find evidence. Why not send troops to search directly." Zhang Jiayu answered. Ancient times didn't have any Human Rights to speak of. As long as official wanted to search, issuing an order was fine. Let alone now still Military Control State.
+"Jiayu, what's your assessment?" Zhang Xiao asked.
 
-Zhang Xiao shook head, "Zhu Shilian dare let Mo Yu go to workshop to look, must have wiped traces already. Moving out now isn't it beating grass scaring snake?"
+"This student believes the Chief's concerns are well-founded. We simply haven't found the evidence yet," Zhang Jiayu answered. "Why not send troops to search directly?" In ancient times, there was no such thing as human rights to speak of. When officials wanted to conduct a search, they simply issued an order. Let alone now, when the region was still under military control.
 
-"Dare ask Chief thinks what trick Zhu clan is playing?" Zhang Jiayu couldn't help thinking. Momentarily no good idea either.
+Zhang Xiao shook his head. "Zhu Shilian allowed Mo Yu to inspect the workshop—he must have already erased any traces. If we move now, won't we just be startling the snake by beating the grass?"
 
-"Hei hei, asked on point." Zhang Xiao laughed, "Just looking from various intelligence, Zhu clan not only acquires Silkworm Feces, but also acquires manure fertilizer. As big landlord, this act isn't impermissible. But acquisition volume is truly too big. Looking from Chemistry angle, fertilizer mainly provides Nitrogen, Phosphorus, Potassium these main nutrient components for crops. Speaking of Nitrogen, I instead remembered past event of engaging in Nitre Field together with Ji Tuisi and Chen Huan back then..."
+"May I ask what trick the Chief thinks the Zhu clan is playing?" Zhang Jiayu found himself at a loss. No good ideas came to mind.
 
-"What use is Nitre Field?" Zhang Jiayu somewhat didn't understand.
+"Heh heh, you've asked the right question." Zhang Xiao chuckled. "Judging from our intelligence, the Zhu clan isn't just acquiring silkworm dung—they're also buying up manure and fertilizer. For a major landlord, such behavior isn't impermissible. But the volume of their purchases is truly excessive." He stroked his chin thoughtfully. "From a chemistry perspective, fertilizer primarily provides nitrogen, phosphorus, and potassium—the main nutrients for crops. Speaking of nitrogen, I'm reminded of an old venture: building nitre beds with Ji Tuisi and Chen Huan, back in the day..."
 
-"A path to extract Saltpeter."
+"What use are nitre beds?" Zhang Jiayu asked, somewhat confused.
 
-"Saltpeter!" Zhang Jiayu was surprised, "Could it be they want..."
+"A method for extracting saltpeter."
 
-"Shh!" Zhang Xiao used hand to make a silencing motion, said: "I didn't say what they want to do."
+"Saltpeter!" Zhang Jiayu's eyes widened. "Could it be they want to—"
 
-Zhang Jiayu felt this was a good chance to repay grace, so said: "If preparing gunpowder secretly, must need artisans. Jiujiang Township always doesn't produce gunpowder. Artisans must be outsider strangers. If material evidence not easy to find, Student earnestly request Chief to catch suspicious people in name of catching bandits. Interrogating strictly, must have result."
+"Shh!" Zhang Xiao raised a hand to silence him. "I didn't say what they want to do."
 
-"This is instead a good idea. We just play a Sound East Strike West trick." Zhang Xiao touched small mustache on chin, shouted: "Hening!"
+Zhang Jiayu saw this as an opportunity to repay the Chief's favor. "If they're secretly preparing gunpowder, they'll need artisans. Jiujiang Township has never produced gunpowder, so the artisans must be outsiders. If material evidence is hard to find, this student earnestly requests that the Chief arrest suspicious persons under the pretext of catching bandits. Interrogate them thoroughly, and we'll surely get results."
 
-"Coming. What matter?" Zhao Hening heard someone calling her, ran in.
+"Now that's a good idea. We'll play a little 'feint east, strike west.'" Zhang Xiao stroked the small mustache on his chin. "Hening!"
 
-Zhang Xiao said: "You this Women's Federation Special Commissioner want to exert some function. These days Jiayu accompany you to go down to countryside to propagate Women Protection Policy. Local women mostly possess capability of self-reliance; want to utilize mass foundation well. Therefore, you want to propagate Huang *Shi*'s divorce case vigorously. Let masses of ten *li* eight townships all come to listen to Senate's judgment. Battle array bigger the better."
+"Coming! What is it?" Zhao Hening heard her name and hurried in.
 
-"Okay!" Zhao Hening agreed readily.
+"You're the Women's Federation Special Commissioner—time to put that function to use," Zhang Xiao said. "Over the coming days, Jiayu will accompany you to the villages to promote women's protection policies. Local women are largely capable of self-reliance, and we need to leverage that foundation. Therefore, I want you to publicize Madam Huang's divorce case vigorously. Let the masses from ten *li* around come to hear the Senate's judgment. The bigger the spectacle, the better."
 
-Zhang Jiayu said: "Student doesn't understand. Why want to propagate Huang *Shi* divorce case vigorously? What relation does this have with searching Zhu clan?"
+"Understood!" Zhao Hening agreed without hesitation.
 
-"Of course is paralyzing enemy, letting them relax vigilance. Mo Yu going to investigate should have attracted their attention. Have to let them know this County just likes managing chicken feather garlic skin small matters."
+Zhang Jiayu frowned. "This student doesn't understand. Why publicize the divorce case so vigorously? What does this have to do with investigating the Zhu clan?"
 
-After Huang *Shi* mother and son finished busy in Jiujiang Great Market, returning to straw hut only found uninvited guest coming to home. Turned out to be Guan Youde's Second Sister.
+"It's about lulling the enemy into complacency. Mo Yu's investigation must have already drawn their attention. We need to make them believe this county administration concerns itself only with trivial domestic matters."
 
-Guan's Second Sister asked impolitely: "What wrong thing did Youde do exactly? You want to treat him like this?"
+---
 
-Guan Zongbao looked at his mom, puzzled when his Second Aunt knew this matter. Huang *Shi* just said nothing.
+After Madam Huang and her son finished their business at Jiujiang Market and returned to their straw hut, they found an uninvited guest waiting. It was Guan Youde's second sister.
 
-Guan Zongbao then said: "You might as well ask ask what right thing he did."
+"What exactly did Youde do wrong?" the Second Sister demanded without preamble. "Why would you treat him like this?"
 
-"Zongbao, how can you say so?" Guan's Second Sister lectured, "Your dad was also tired sick for your this family. Silver he earned before was all taken home for you to use."
+Guan Zongbao glanced at his mother, puzzled as to how his aunt had learned of the matter. Madam Huang said nothing.
 
-"Said nicely. Don't touch own conscience," Guan Zongbao said: "Money he earned before, eating drinking whoring gambling, getting sick eating medicine. How many copper plates did we spend?"
+Guan Zongbao spoke up instead. "You might as well ask what he ever did right."
 
-Guan's Second Sister saw him not moved, changed tone, "Don't blame me this Aunt having many mouths. I also hope your family good, don't suffer outsiders' instigation."
+"Zongbao, how can you say such things?" His aunt lectured him. "Your father has worked himself sick for this family. Every bit of silver he earned went to supporting all of you."
 
-Seeing two not speaking, Guan's Second Sister advised Huang *Shi* again: "Youde said he already knew wrong. You just forgive him this one time. He will live days well in future..."
+"That sounds nice. Why don't you ask your own conscience?" Guan Zongbao retorted. "The money he earned before—he spent it on drinking, gambling, whoring, and medicine for the diseases he caught doing it. How many copper coins did we actually see?"
 
-After Guan's Second Sister advised and left, Guan Zongbao was some angry, asked Huang *Shi*: "Mom, what do you think exactly? Why go to talk this matter to her?"
+Seeing that her words had no effect, the Second Sister changed her approach. "Don't blame me for meddling. I only want what's best for your family. Don't let outsiders lead you astray."
 
-Huang *Shi* cried saying: "Bao'er ah, this matter without Clan deciding, can't be done."
+When neither responded, she turned back to Madam Huang. "Youde says he knows he was wrong. Just forgive him this once. He promises to live properly from now on..."
 
-"Then you still want to live days with him?"
+After the Second Sister had finished her pleading and departed, Guan Zongbao's anger boiled over. "Mother, what are you thinking? Why did you go tell her about this?"
 
-Huang *Shi* shedding tears, hesitatingly said: "I thought a lot these few days too. Night night couldn't sleep. Now since he admitted wrong. He a person never lowering head all life admitted wrong. I still feel want to forgive him once."
+Madam Huang began to weep. "Bao'er, this matter can't be settled without the clan's approval."
 
-Guan Zongbao hearing simply angry exploded, loud voice said: "What? He knew wrong? He didn't even come to apologize himself!"
+"So you still want to stay with him?"
 
-Mother and son finally broke up unhappily. Each went to busy own farm work, speaking no more.
+Tears streaming down her face, Madam Huang spoke haltingly. "I've thought about this for days. Night after night, I couldn't sleep. Now that he's admitted he was wrong—he's never lowered his head to anyone in his entire life. I feel I should forgive him one more time."
 
-Zhao Hening received Zhang Xiao's task then worked like wind and fire. Don't know where caught a few storytellers, pulling banner, holding tin sheet trumpet propagating everywhere. Soon ten *li* eight townships all knew Guan Youde's wife wanted to divorce him, and Australians upholding justice. Women embraced Melon Eating Mentality one after another wanting to go to scene to see see.
+Guan Zongbao was furious. "What? He knows he was wrong? He didn't even come to apologize himself!"
 
-This time Guan Boyi couldn't sit still. His Guan Clan Shimei Hall's face simply became joke of this township. After teaching Yanchang Ancestor Branch Branch Head fiercely, decided to find Huang *Shi* personally.
+Mother and son parted on bitter terms. Each went off to tend to their own farmwork, speaking no more.
 
-Guan Boyi came to Huang *Shi*'s straw hut together with Clan Elders. Everyone sat down, face solemn yet carrying a few points of kindness, giving people a feeling of prestige without anger. Guan Youde stood behind resentfully.
+---
 
-Guan Boyi said: "Huang *Shi* little daughter married into my Guan Clan, indeed suffered quite some bitterness. I seeing today, heart feel ashamed very much. Just why not find elders in clan to decide?"
+Zhao Hening threw herself into Zhang Xiao's assignment with characteristic energy. From somewhere she rounded up a few storytellers, and with banners unfurled and tin-sheet megaphones in hand, they spread the word everywhere. Soon, households across the surrounding ten *li* knew that Guan Youde's wife intended to divorce him, and that the Australians were championing her cause. Women adopted a spectator's mentality, eager to witness the proceedings firsthand.
 
-Huang *Shi* small voice said: "Home small matter, dare not bother Patriarch and various elders."
+This time, Guan Boyi could no longer sit idle. His Shimei Hall's reputation had become the laughingstock of the township. After delivering a stern rebuke to the Branch Head of the Yanchang Ancestral Branch, he decided to speak with Madam Huang personally.
 
-Guan Boyi said: "Since small matter, then even more no need to bother Official Family. You say right?"
+Guan Boyi arrived at the straw hut accompanied by the clan elders. Everyone took their seats, their expressions solemn yet touched with a semblance of benevolence—projecting authority without overt anger. Guan Youde stood behind them, resentment plain on his face.
 
-Guan Zongbao don't know where came courage, stood out saying: "Various elders since here, should judge judge reasoning. My Mom suffered his bullying and humiliation for long years, not willing to live days with him. Just should One Separate Two Wide."
+"Madam Huang," Guan Boyi began, "since marrying into our Guan clan, you have indeed suffered considerable hardship. Seeing the situation today, I feel deeply ashamed. But why not bring such matters before the clan elders for resolution?"
+
+"It was a small family matter," Madam Huang said quietly. "I dared not trouble the Patriarch and the elders."
+
+Guan Boyi nodded slowly. "If it's a small matter, then there's even less need to bother the authorities. Wouldn't you agree?"
+
+From somewhere, Guan Zongbao summoned his courage and stepped forward. "Since the honored elders are here, perhaps they might render a judgment. My mother has suffered his abuse and humiliation for years. She no longer wishes to live with him. A clean separation is only right."
 
 **(End of Chapter)**
