@@ -1,95 +1,95 @@
 # Chapter 2544: Guangzhou Textile Market (Part 2)
 
-Now, we can only place hope on Chinese and foreign merchants seeing the potential here and trafficking Indian cotton over.
+For now, their only hope was that Chinese and foreign merchants would recognize the potential here and begin trafficking Indian cotton.
 
-"Stop, stop, let's not consider this matter first." Li Shan laughed. "However, the smooth operation of the Nansha factory shows our technical direction is still correct!"
+"Hold on, hold on—let's set that matter aside for now." Li Shan laughed. "In any case, the Nansha factory's smooth operation proves our technical direction is still sound!"
 
-Zou Biao adjusted his glasses, saying helplessly: "Honestly speaking, reviving such a technical zombie like hydraulic spinning is truly not a good thing. Hydraulic power, this thing, has too great limitations..."
+Zou Biao adjusted his glasses with a helpless sigh. "Honestly speaking, reviving a technical zombie like hydraulic spinning isn't ideal. Hydraulic power has too many limitations..."
 
-Ideally located places completely equipped with favorable climatic, geographical, and human conditions like Nansha Village could be said to be hard to meet; afraid not many could be found in the whole of Guangdong. Promoting it was too difficult.
+Ideal locations that combined favorable climate, geography, and human resources the way Nansha Village did were extraordinarily rare—perhaps impossible to find elsewhere in all of Guangdong. Promoting this technology widely would be extremely difficult.
 
-"Moreover, hydraulic machines involve building overflow dams to raise the water head. If the river channel has navigation needs, supporting ship locks and ship lifts must also be built. Don't look at water being free; calculating infrastructure investment doesn't save much either. It's nothing more than low long-term usage cost."
+"Moreover, hydraulic machines require building overflow dams to raise the water head. If the river channel needs to remain navigable, you also need supporting ship locks and lifts. Water may be free, but once you factor in infrastructure investment, the savings aren't that impressive. The only real advantage is low long-term operating costs."
 
-"It's running anyway now, isn't it? Later when coal supply is popularized, just upgrade to steam engines. The whole set of equipment and processes won't need major changes; at least they can fight for another twenty years." Li Shan knew this old partner was full of grumbles, but saying one's own child is handsome is useless. Especially now there were quite a few good-looking children outside; there really wasn't much advantage.
+"But it's running now, isn't it?" Li Shan knew his old partner was full of complaints, but boasting about one's own work was pointless. Especially now, when there were plenty of impressive alternatives out there—hydraulic power truly held little advantage.
 
-Li Shan tried to cheer him up: "Although the technical zombie is old, it's good as long as it fits our current conditions! How is the Type 07 selling?"
+Li Shan tried to lift his spirits. "Even if this technical zombie is old, what matters is that it fits our current conditions! So—how is the Type 07 selling?"
 
-Type 07 was the simple human-driven spinning machine and loom they specially developed for household users. The Type 07 spinning machine was a replica of the "Type 77 Spinning Machine" from the War of Resistance period. The earliest blueprint originated from the "Yamato Spinning Machine" invented in Japan. Zou Biao improved some structures, enabling it to connect to various power sources, including small-head water turbines, animal power, etc.
+Type 07 was the simple human-powered spinning machine and loom they had specially developed for household users. The spinning machine was a replica of the "Type 77 Spinning Machine" from the War of Resistance period, originally based on the "Yamato Spinning Machine" invented in Japan. Zou Biao had improved the structure, enabling it to connect to various power sources, including small water turbines and animal power.
 
-"The spinning machine is comparatively average, only sold dozens of sets. On the contrary, the loom sells very explosively. Over a hundred units were sold by last week."
+"The spinning machine has been average—only sold a few dozen sets. The loom, though, is selling like wildfire. Over a hundred units sold by last week."
 
-This was an improved household loom. The principle was an improved flying shuttle loom with foot pedals, using a large number of standardized wooden and metal parts. Like the Type 07 spinning machine, it could also connect to other small power sources.
+This was an improved household loom based on the flying shuttle design with foot pedals, constructed from a large number of standardized wooden and metal parts. Like the Type 07 spinning machine, it could also connect to small auxiliary power sources.
 
-The benefit of Type 07 was that it could be placed at home. Women in cities and villages could buy it back, purchase cotton or cotton yarn from the market daily to spin and weave, then take the finished products out for sale.
+The beauty of the Type 07 was that it could be set up at home. Women in cities and villages could buy one, purchase cotton or cotton yarn from the market each day to spin and weave, then sell the finished products.
 
-"If you ask me, Type 07 spinning shouldn't be sold. Although the yarn quality it produces is passable and can go on the loom, it implies encouraging small-scale production in disguise, competing for raw materials with factories." Although Zou Biao was the main designer of Type 07, he wasn't fond of this "small producer tool."
+"If you ask me, we shouldn't be selling the Type 07 spinning machine at all. The yarn quality is passable enough for the loom, I'll grant you that—but selling it essentially encourages small-scale production, which competes with factories for raw materials." Despite being the main designer of Type 07, Zou Biao wasn't fond of this "small producer's tool."
 
-"Local cotton planting is very little; farmers' enthusiasm for selling cotton isn't high, and the cost isn't worthwhile..." Li Shan said, "After scaled enterprises get big, they inevitably rely on purchasing cotton from outside. Letting individual households digest these sporadic productions fits just right."
+"Local cotton cultivation is minimal, farmers aren't enthusiastic about selling what little they grow, and the costs don't work out..." Li Shan said. "Once large-scale enterprises get bigger, they'll inevitably rely on purchasing cotton from outside. Letting individual households absorb the sporadic local production is actually a perfect fit."
 
-In the long run, small producers would sooner or later be defeated by factories in cost. But this process might take ten to twenty years. After all, engaging in large-scale cotton textile industry was a long process. But once formed, the push to the entire market and industrial production would be like mountains roaring and seas howling. It wasn't without reason that the Industrial Revolution started from cotton textiles.
+In the long run, small producers would inevitably be crushed by factory costs. But this process might take ten to twenty years. After all, building a large-scale cotton textile industry was a gradual undertaking. Yet once established, its expansion into the broader market would be unstoppable—like mountains roaring and seas howling. There was good reason the Industrial Revolution had begun with cotton textiles.
 
-Li Shan actually didn't approve of using silk to develop light industry. Besides the inconvenience of silkworm cocoon transport mentioned before, the output was actually also limited.
+Li Shan had actually never favored using silk to develop light industry. Beyond the transportation difficulties he'd mentioned before, silk output was fundamentally limited.
 
-Silkworms could also "eat people," but in terms of output, silkworm cocoons or wool could never compare with cotton. Due to the energy conversion efficiency problem of inputting into animal fibers, producing an equivalent amount of fiber required sheep or silkworms to use much more land than cotton. If used as luxury goods, their selling price was naturally higher. But as mass consumer goods, plant fibers like cotton and ramie were obviously more suitable for developing large-scale industry. Silkworm cocoons were also very intolerant to storage, unlike cotton and ramie where farmers could store them for a long time just by sun-drying, withstand long-distance transport, and quality wouldn't be affected too much.
+Silkworms could also "eat people," as the saying went—but in terms of volume, neither silk nor wool could ever match cotton. Due to the energy conversion inefficiencies inherent in animal-derived fibers, producing an equivalent amount of fiber required sheep or silkworms to consume far more land than cotton cultivation would. As luxury goods, their higher selling prices compensated for this. But for mass consumer goods, plant fibers like cotton and ramie were obviously better suited to large-scale industry. Silkworm cocoons were also highly perishable, unlike cotton and ramie, which farmers could store for long periods simply by sun-drying. Cotton could withstand long-distance transport without significant quality degradation.
 
-Just as Li Shan stepped onto Guangzhou land with his front foot, Chen Lin arrived in Guangzhou with his back foot not long after. Chen Lin didn't come empty-handed either; arriving in Guangzhou with the ship were over ten bolts of blue cloth and over twenty bolts of white cloth.
+Just as Li Shan set foot in Guangzhou, Chen Lin arrived shortly after. He didn't come empty-handed—accompanying him on the ship were over ten bolts of blue cloth and more than twenty bolts of white cloth.
 
-These cloths were hand-woven by weavers using machine yarn from the cotton mill. In total there were about two hundred bolts. Half were dyed blue using dyes given by Australians; half were prepared to be sold directly as greige cloth.
+These cloths had been hand-woven by weavers using machine-spun yarn from the cotton mill. The total shipment came to about two hundred bolts. Half had been dyed blue using Australian dyes; the other half would be sold directly as greige cloth.
 
-This blue cloth was dyed cyan-blue by Lame Zhang using Australian dyes. The color was brighter than blue dyes used in the past. Lame Zhang praised it endlessly after seeing it, saying he had never dyed such bright cloth. And it didn't fade at all after rinsing.
+Lame Zhang had dyed the blue cloth a bright cyan-blue using the Australian dyes. The color was far more vivid than any blue dye they'd used before. He'd praised it endlessly, saying he had never dyed such brilliant cloth in his life—and it didn't fade at all after rinsing.
 
-Seventy bolts of cotton cloth were handed to several old partners of Fengshenghe for sales. But his own business partners mostly leaned towards silk; selling cotton cloth might be beyond their power. Just as Chen Lin was considering finding another more suitable underwriter, An Jiu recommended her father's Rui He Xiang to Chen Lin—fortunately, they counted as friends who had met once. So another fifty bolts of blue cloth were distributed there for sale.
+Seventy bolts had been entrusted to several of Fengshenghe's old partners for sale. But most of his business connections dealt primarily in silk; cotton cloth might be beyond their expertise. Just as Chen Lin was considering where to find more suitable distributors, An Jiu recommended her father's Rui He Xiang—fortunately, they counted as acquaintances. So another fifty bolts of blue cloth went there for sale.
 
-He packed all the remaining eighty bolts of cloth in one go and consigned them to Guangzhou, wanting to try his luck everywhere to see if he could find suitable distributors. At the same time, he had to give Master Wu an explanation—after all, he was the big boss of this cotton factory.
+He packed the remaining eighty bolts and consigned them all to Guangzhou, hoping to find suitable distributors through trial and error. He also needed to give Master Wu an update—after all, Wu was the principal investor in this cotton factory.
 
-Arriving in Guangzhou, he first visited Wu Yijun, presenting four bolts of blue cloth and four bolts of greige cloth. Wu Yijun was very delighted after seeing them, and then chatted about this new "International Textile Market."
+Upon arriving in Guangzhou, Chen Lin first visited Wu Yijun, presenting four bolts of blue cloth and four bolts of greige cloth as samples. Wu Yijun was delighted by what he saw, and the conversation naturally turned to this new "International Textile Market."
 
-Uncle and nephew more or less guessed the Australians' purpose in opening the market: to build a comprehensive trading platform for raw materials and commodities.
+Uncle and nephew had more or less guessed the Australians' purpose in establishing the market: to build a comprehensive trading platform for both raw materials and finished goods.
 
-This was a great good thing for "laymen" like them. Speaking of Wu and Chen, neither was originally a merchant engaged in cotton cloth business. Changing profession involved a very complex "entry" process. Not only needing recognition from relevant guilds, but purchase and sales channels for raw materials and products were also completely dark [unknown], needing exploration from scratch. Sometimes even if you knew the specific network, it was hard to enter.
+This was excellent news for "outsiders" like themselves. Neither Wu nor Chen had originally been cotton cloth merchants. Changing trades involved a complex process of "gaining entry." You needed recognition from relevant guilds, and both purchasing and sales channels for raw materials and products were completely opaque—requiring exploration from scratch. Sometimes even knowing a specific network wasn't enough to gain access.
 
-Now with this government-run platform, there was a direct trading market. Selling what or buying what was placed directly on the table. It was very convenient for both transport merchants and producers.
+Now, with this government-run platform, there would be a direct trading market. Whether buying or selling, everything would be laid out in the open. It was tremendously convenient for both transport merchants and producers.
 
-"This is indeed a good method. Needless to say, we must occupy a seat in this market." Wu Yijun laughed, "Otherwise, selling this cloth might take a huge effort!"
+"This is indeed an excellent approach. Needless to say, we must secure a seat in this market." Wu Yijun laughed. "Otherwise, selling this cloth might take enormous effort!"
 
-"Cousin-Uncle speaks correctly." Chen Lin also felt this was a matter convenient for both public and private interests. "It's just that the market hasn't opened yet, but there is a troublesome matter right now that must be solved."
+"Cousin-Uncle speaks truly." Chen Lin agreed that this served both public and private interests well. "The only trouble is that the market hasn't opened yet, and we have a pressing problem that needs solving first."
 
-"What matter?"
+"What problem?"
 
-"No cotton." Chen Lin said the factory operation until now had used up all the cotton they spent half a year hoarding. Right now they could only stop production.
+"No cotton." Chen Lin explained that the factory's operation had consumed all the cotton they'd spent half a year hoarding. They had no choice but to halt production.
 
-"So fast!" Wu Yijun was greatly shocked. He knew Australian spinning machines had amazing efficiency, but didn't expect it wasn't ten or twenty times faster than human power, but hundreds of times.
+"So fast!" Wu Yijun was stunned. He knew Australian spinning machines had remarkable efficiency, but hadn't realized they weren't just ten or twenty times faster than human labor—they were hundreds of times faster.
 
-"Nephew didn't anticipate it either." Chen Lin smiled bitterly. "Nephew already sent people to scour the four villages—but now it is early summer; farm households have almost no stored cotton. Have to wait until autumn for new cotton to appear. Presumably, Guangzhou is a place where merchants and goods from all directions gather; mostly likely there is still stored cotton to buy. I plan to run around inside and outside the city these few days."
+"I didn't anticipate it either." Chen Lin smiled bitterly. "I've already sent people to scour the surrounding villages—but it's early summer, and farm households have almost no cotton in storage. We'll have to wait until autumn for the new harvest. I figured Guangzhou, being a hub where merchants and goods from all directions converge, might still have some stored cotton available. I plan to search both inside and outside the city over the next few days."
 
-Wu Yijun pondered for a moment and said: "It's good for you to run around in Guangzhou city. But the chance of buying flowers [cotton] isn't big. Cotton prices rose fiercely in recent months. Rose almost three times compared to when it came on the market last year."
+Wu Yijun pondered for a moment. "It's worth trying. But your chances of buying cotton aren't good. Prices have surged in recent months—nearly tripled compared to last year's market price."
 
-"Three times?!" Now it was Chen Lin's turn to be shocked. When agricultural products reached the "Green and Yellow not connecting" [gap between harvests] period, stocks dropped while new goods would take some days to appear; price rising was a normal situation. But cotton prices fluctuated extremely little in the past; rising to three times in one go, wouldn't buying it back mean losing money even if starting work?
+"Tripled?!" Now it was Chen Lin's turn to be shocked. During the "gap between harvests," when stocks ran low and new goods had yet to appear, some price increase was normal. But cotton had historically been stable; tripling all at once would mean buying it back at a loss, wouldn't it?
 
-He immediately lowered his head to calculate costs in his heart. Then he discovered with surprise that even if raw material prices rose three times, as long as the market cotton cloth price didn't fall, there was still profit—just comparatively meager.
+He immediately lowered his head to calculate costs. To his surprise, he discovered that even with raw material prices tripled, as long as the market price for cotton cloth held steady, there was still profit—just considerably thinner.
 
-"If it rose three times, as long as there are goods, it won't be a loss." Chen Lin said, "Nephew means, as long as not losing money, this factory's production cannot be interrupted."
+"If prices have tripled but there's available stock, we won't lose money." Chen Lin said. "What I mean is, as long as we're not operating at a loss, this factory's production cannot be interrupted."
 
-Temporarily interrupting production originally wouldn't harm the factory. Closing the sluice to stop the water wheel, workers went home individually—no work, no wages. And now was exactly the busy farming time; workers had work to do whether on their own fields or selling labor as short-term workers.
+Temporarily halting production wouldn't normally harm the factory. Close the sluice, stop the water wheel, send the workers home—no work, no wages. And since it was the busy farming season, the workers would have plenty to do, whether on their own fields or hiring themselves out as day laborers.
 
-But Chen Lin just executed "Thunderbolt Means" in Nansha. Keeping the Nansha Cotton Textile Factory in operating state had a very important effect on him stabilizing the situation in the village and clan.
+But Chen Lin had just employed drastic measures in Nansha. Keeping the Nansha Cotton Textile Factory operational was crucial for stabilizing his position in the village and clan.
 
-"Rising three times and still not losing capital?"
+"Tripled and still not losing money?"
 
-"Indeed not losing," Chen Lin said, "Now the factory has 720 spindles spinning. If women spin at home, one person can only spin one [thread]. Spinning for a day produces yarn that can't match half an hour of machine output. Miss Li and Miss An both said, if cotton is sufficient, we can divide into two shifts to spin, stopping neither night nor day; cost is even lower..."
+"Indeed, we won't lose," Chen Lin confirmed. "The factory currently has 720 spindles running. If women spin at home by hand, each can only manage one spindle. A full day's work wouldn't match half an hour of machine output. Miss Li and Miss An both said that with sufficient cotton, we could run two shifts, operating day and night without stopping—which would lower costs even further..."
 
-In factory production costs, labor took up a large proportion. The higher the production efficiency, the lower the cost. This was also the main reason factory machine production could defeat handicraft industry.
+In factory production, labor constituted a large portion of costs. The higher the efficiency, the lower the expense. This was the fundamental reason factory production could defeat handicraft industry.
 
-"Indeed, Australians spin all night without stopping machines." Wu Yijun recalled his observations in Lingao.
+"Indeed, the Australians run their spinning machines through the night without stopping." Wu Yijun recalled his observations in Lingao.
 
-"Cousin-Uncle, how did this cotton rise so fiercely?"
+"Cousin-Uncle, why has cotton risen so sharply?"
 
-"Australians sold quite a few new looms recently. Not the kind we use, but small ones, can be placed at home..."
+"The Australians have been selling quite a few new looms recently. Not the large ones we use, but smaller machines that can be placed at home..."
 
 "Waist looms?"
 
-"Of course not, foot-pedaled ones." Wu Yijun gestured. "Although this small weaving and spinning machine can't compare to our big machines, the yarn and cloth made compared to past earthen looms [traditional looms] is a difference of clouds and mud. Once launched, weaving households everywhere borrowed money to exchange for this new machine. Once new machines increased, yarn became a popular item, and cotton naturally rose with the water."
+"Of course not—foot-pedaled ones." Wu Yijun gestured with his hands. "Although these small spinning and weaving machines can't compare to our large equipment, the yarn and cloth they produce is vastly superior to traditional earthen looms—like the difference between clouds and mud. Once they launched, weaving households everywhere borrowed money to acquire them. With more new machines came greater demand for yarn, and cotton prices rose accordingly."
 
-"So it is." Chen Lin thought to himself. He recalled seeing such "Improved Machines" in the product exhibition room when visiting Lingao.
+"I see." Chen Lin thought it over. He recalled seeing such "Improved Machines" in the product exhibition room during his visit to Lingao.
 
 (End of Chapter)

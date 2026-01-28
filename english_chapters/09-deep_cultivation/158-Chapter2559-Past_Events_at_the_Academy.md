@@ -1,103 +1,107 @@
 # Chapter 2559: Past Events at the Academy
 
-"Jiayu, long time no see..." A friend from the Shen Ao Academy greeted Zhang Jiayu, who had suddenly appeared at the academy.
+"Jiayu! It's been ages..." A friend from Shen Ao Academy greeted Zhang Jiayu as he burst through the doors.
 
-"Have you seen Chief Du recently?" Zhang Jiayu asked anxiously.
+"Have you seen Chief Du recently?" Zhang Jiayu cut in, breathless.
 
-"He was here just yesterday; Chief Du even asked about you."
+"He was here just yesterday. Even asked about you, actually."
 
-"Where is the Chief?"
+"Where is he now?"
 
-"The Chief's main position is Magistrate of Enping County; he can't stay long in Guangzhou. He's departing today. If you hurry, you might still catch him at Tianzi Wharf..."
+"His main post is Magistrate of Enping County, so he can't stay long in Guangzhou. He's leaving today—if you hurry, you might catch him at Tianzi Wharf."
 
-"Thanks!" Not waiting for his academy friend to finish, Zhang Jiayu had already flown out, leaving a room full of people with question marks.
+"Thanks!" Without waiting for his friend to finish, Zhang Jiayu was already sprinting out the door, leaving everyone staring after him in bewilderment.
 
-Moments later, the sweat-drenched Zhang Jiayu intercepted Du Yibin at Tianzi Wharf just before he boarded the ship.
+Moments later, drenched in sweat, he intercepted Du Yibin at the wharf just as the Chief was about to board his vessel.
 
-Du Yibin found Zhang Jiayu's behavior today somewhat strange—this wasn't like his usual self. But hearing the situation he described, he could immediately understand. Truly a filially pious person.
+Du Yibin found Zhang Jiayu's frantic behavior puzzling—this wasn't like him at all. But once he heard the situation, understanding dawned. A truly filial son.
 
-"I thought it was something important? This is just a small matter." Du Yibin laughed and then ordered someone to bring out an instruction slip, upon which he began to write.
+"That's all? This is a small matter." Du Yibin laughed and called for an instruction slip, on which he began to write.
 
-"Woo-woo-woo..." The whistle of the Senator-exclusive vessel sounded, reminding Du Yibin to hurry aboard. The busy Senate's time concept was calculated in minutes; even Senators had to abide by established rules.
+The whistle of the Senator-exclusive vessel pierced the air, reminding Du Yibin that time was short. The Senate measured its schedule in minutes, and even Senators had to abide by established rules.
 
-*Lin Motian should recognize Guangzhou Senators' signatures; there shouldn't be much problem.* Du Yibin thought. He hadn't brought his personal seal on today's return to his post, so he signed his own name and handed it to Zhang Jiayu.
+*Lin Motian should recognize the signatures of Guangzhou Senators,* Du Yibin thought. He hadn't brought his personal seal for this return trip, so he simply signed his name and handed the slip to Zhang Jiayu.
 
-A note merely palm-sized, the characters on it even more crooked and twisted, yet Zhang Jiayu held it at this moment like a treasure, examining it repeatedly. This one note could save his mother's life! He quickly stored the note properly and hurried toward the Great World.
+Though barely palm-sized and scrawled in crooked characters, Zhang Jiayu clutched the note like a sacred treasure, examining it again and again. This single piece of paper could save his mother's life. He tucked it away carefully and raced toward the Great World.
 
-"Chief Lin..." The office clerk girl from the Provincial-Hong Kong General Hospital knocked on Lin Motian's office door. Finding no response, she pushed open a crack and peeked: "Eh? Not here either?"
+---
 
-The girl looked at the instruction slip in her hand, not knowing whose request it was this time. These special requests one after another were enough to keep the Chiefs busy. Thinking this, she left the slip on Lin Motian's desk and withdrew.
+"Chief Lin..." The office clerk at the Provincial-Hong Kong General Hospital knocked on Lin Motian's door. Receiving no answer, she pushed it open a crack and peered inside. "Not here either?"
 
-"Hey, young fellow," the office clerk girl returned to the hospital lobby and called out to Zhang Jiayu: "None of the Chiefs are in their offices. Look, it's already getting late today; go back first. Come again tomorrow. Only after the Chief signs can medicine be dispensed."
+She glanced at the instruction slip in her hand, wondering whose request this was. One special case after another—enough to keep all the Chiefs running in circles. With a small sigh, she left the slip on Lin Motian's desk and withdrew.
 
-"But my mother is seriously ill, on the brink of death. Could you please be flexible?" Zhang Jiayu was somewhat anxious.
+Back in the hospital lobby, she called out to Zhang Jiayu: "Young man, none of the Chiefs are in their offices. It's getting late anyway—come back tomorrow. Medicine can only be dispensed after a Chief signs off."
 
-"Young fellow, everyone has a heart of compassion; moreover, saving the dying and healing the wounded is our mission. If it were ordinary wind and cold, giving you a few pills wouldn't be a problem. But to mobilize controlled materials, it must have a Chief's signature. Without rules, there's no order. If everyone were a special case, who would the Chiefs save first?" The girl said somewhat unhappily.
+"But my mother is gravely ill. She's dying. Please, isn't there some way?"
 
-"But..." Zhang Jiayu thought: these Bald Bandits put on official airs quite distinctively.
+"Young man, we all have compassion here—saving lives is our mission. If this were an ordinary cold, I could give you a few pills without a fuss. But controlled materials require a Chief's signature. Without rules, there's no order. If everyone were a special case, how would the Chiefs decide who to save first?" Her tone had grown clipped.
 
-"But what? This penicillin isn't malt candy that you can eat whenever you want. Heard the allergy rate is extremely high; one must prepare epinephrine before daring to use it on patients. Today's epinephrine in the pharmacy was exhausted in emergency treatment; only the Joint Logistics warehouse has stock. If the patient has an allergic shock and dies, you couldn't even cry them back." The girl, busy all day, was somewhat impatient. She very much disliked people coming with approval slips.
+"But—" Zhang Jiayu thought bitterly: *These Bald Bandits certainly know how to put on official airs.*
 
-Many special-effect medicines were available sometimes and not other times; besides having money, one also needed luck. But certain people could just get approval slips, squeezing out those who paid and queued. This was too unfair! So while she was polite to these people—after all, couldn't afford to offend them—she was very contemptuous at heart.
+"But what? Penicillin isn't malt candy you can pop whenever you like. The allergy rate is dangerously high—we have to prepare epinephrine before we dare administer it to patients. Today's supply was exhausted during emergency treatments. Only the Joint Logistics warehouse has any left. If a patient goes into allergic shock and dies, no amount of tears will bring them back." She'd dealt with enough people carrying approval slips to last a lifetime and had little patience left. 
 
-"Allergy? Epinephrine? Joint Logistics? Shock?" Zhang Jiayu had no concept of the strings of new words popping from the girl's mouth, completely not understanding. He only understood one word—"die"—and instantly felt utterly disheartened.
+What galled her most was the unfairness of it all. Many special-effect medicines came and went unpredictably—besides money, you needed luck. Yet certain people could simply wave an approval slip and jump the queue, pushing aside those who paid and waited. She remained polite to these visitors—couldn't afford to offend them—but inwardly, she held them in contempt.
 
-"Medicine is three parts poison; it can save lives but can also kill. This isn't some immortal elixir that cures all diseases. Without complete preparation, who dares use it? Don't be anxious; come back tomorrow to check." The female clerk was a talented conversationalist; she had ample experience dealing with people like this.
+"Allergy? Epinephrine? Joint Logistics? Shock?" The strange terms tumbled from her mouth in a torrent Zhang Jiayu couldn't follow. He understood only one word: *die*. His heart sank.
 
-Zhang Jiayu wanted to argue further but knew he had no standing here. Even under Great Ming's rule, he was merely a *xiu cai*, not qualified to "make a scene in public," let alone on Australian territory.
+"Medicine is three parts poison—it can save lives, but it can also kill. This isn't some immortal elixir that cures all ailments. Without complete preparation, who would dare use it? Don't worry yourself sick over this. Come back tomorrow." The clerk was an experienced conversationalist, well-practiced at handling people in his situation.
 
-*Under someone's eaves, one must lower one's head.* Thinking of this, Zhang Jiayu had no choice but to turn and leave.
+Zhang Jiayu wanted to argue further but knew he had no standing here. Even under Great Ming's rule, he was merely a *xiu cai*—not qualified to "make a scene in public," much less on Australian territory.
 
-Watching Zhang Jiayu's gradually blurring figure, the girl shook her head helplessly. The hospital was the most warm-hearted place in the world, yet also the most cold-hearted place.
+*Under someone else's eaves, one must bow one's head.* With no other choice, he turned and left.
 
-Shen Ao Academy had rented a courtyard for members among the "temple property" outside the Five Immortals Temple—actually, Old Cui only collected a token rent. The purpose was to facilitate short-term stays for active members from other places. Zhang Jiayu didn't have much savings, so he settled his mother in a side room of the academy's rental courtyard.
+The clerk watched his retreating figure until it blurred into the distance, then shook her head. The hospital was the warmest place in the world, yet also the coldest.
 
-Seeing his mother in this condition, and considering their acquaintance, the fellow members staying there all felt unable to bear it and gathered together to think of solutions.
+---
 
-Everyone said if Chief Du had personally gone to the hospital to give instructions, the situation would certainly be different. It was just Zhang Jiayu's bad luck that he happened to miss Chief Du's schedule. If he had returned one day earlier, sigh.
+Shen Ao Academy had rented a courtyard among the "temple property" outside the Five Immortals Temple for its members—though Old Cui only collected a token rent. The purpose was to provide short-term lodging for active members visiting from other regions. Zhang Jiayu had little savings, so he'd settled his mother in a side room of the academy's rental courtyard.
+
+Seeing her condition, and moved by their shared fellowship, the members staying there gathered together to brainstorm solutions.
+
+Everyone agreed that if Chief Du had personally gone to the hospital, the outcome would have been different. It was simply Zhang Jiayu's misfortune that he'd missed the Chief's schedule by a single day. If only he'd returned sooner...
 
 Suddenly, someone shouted: "I've got it!"
 
-"Got what? Don't startle people!"
+"Got what? You nearly gave me a heart attack!"
 
-"Tomorrow, Mayor Liu is going to lecture on new policies at Nanhai Academy, while also introducing the newly appointed Nanhai County Magistrate to citizens. They say new officials light three fires upon taking office; we can go plead with him. It will surely work."
+"Tomorrow, Mayor Liu is lecturing on new policies at Nanhai Academy while introducing the newly appointed Nanhai County Magistrate to the citizens. They say new officials light three fires upon taking office—we can go plead with him. It's bound to work."
 
-"Is this reliable? The Chiefs are all busy with ten thousand things a day; will they care about the life and death of an ordinary commoner?"
+"Is that reliable? The Chiefs are busy with ten thousand things a day. Will they care about the life or death of an ordinary commoner?"
 
-"What do you understand? For an official, reputation is most important. Don't the Chiefs always say 'An official who doesn't make decisions for the people might as well go home and sell sweet potatoes'?"
+"What do you understand? For an official, reputation is everything. Don't the Chiefs always say, 'An official who doesn't make decisions for the people might as well go home and sell sweet potatoes'?"
 
-"Right, right, right, I remember now. This new County Magistrate's background is rather special."
+"Right, right—I remember now. This new County Magistrate's background is rather special."
 
-"Oh, how special?"
+"Oh? How so?"
 
-"A few days ago, *Yangcheng Express* had a headline. The new County Magistrate came from the industrial field and has an elegant title called 'Pharmacist.' It's said all Great Song's miraculous medicines came from his hands..."
+"A few days ago, the *Yangcheng Express* ran a headline about him. The new County Magistrate came from the industrial field and holds an elegant title: 'Pharmacist.' They say all of Great Song's miraculous medicines came from his hands..."
 
-Before this person finished speaking, he was interrupted by others: "Why didn't you say so earlier!"
+Before he could finish, someone cut him off: "Why didn't you mention this earlier!"
 
 "Who told you not to read the newspaper..."
 
-"The new County Magistrate is also surnamed Zhang. Maybe five hundred years ago he and our Jiayu were one family. If we could acknowledge common ancestry..."
+"The new County Magistrate is also surnamed Zhang. Perhaps five hundred years ago, he and our Jiayu were one family. If we could acknowledge common ancestry..."
 
-"Dream on!"
+"Keep dreaming!"
 
-...
+---
 
-Listening, Zhang Jiayu's heart kindled a faint hope, and he perked up a bit. He hadn't expected that during these days he was away, so many new things happened in Guangzhou city.
+Listening to their banter, Zhang Jiayu felt a faint hope kindle in his chest, and his spirits lifted slightly. He hadn't realized how much had changed in Guangzhou during his absence.
 
-Nanhai Academy, that is, Nanhai County School, was the highest official school of ancient Nanhai County. Founded in the Southern Song dynasty, it later changed location three times due to wars. In the thirtieth year of Zhiyuan under Emperor Shizu of Yuan, it moved to the old site of Jupe Shrine in Gaogui Ward in Western city. In early Yuan, the two county schools were squeezed together, quite cramped. In the third year of Hongwu in early Ming, the Court decreed all counties establish schools. Each dynasty expanded it further.
+Nanhai Academy—that is, Nanhai County School—was the highest official school of ancient Nanhai County. Founded during the Southern Song dynasty, it had relocated three times due to wars. In the thirtieth year of Zhiyuan under Emperor Shizu of Yuan, it moved to the old site of Jupe Shrine in Gaogui Ward in the western part of the city. During early Yuan, the two county schools were squeezed together, leaving them cramped. In the third year of Hongwu at the start of the Ming dynasty, the Court decreed that all counties establish schools, and each successive dynasty expanded it further.
 
-Wei Bifu had recommended former Nanhai County Magistrate Huang Xiyin to Zhang Xiao. Now Huang Xiyin was guiding Zhang Xiao on a tour of Nanhai Academy, reciting its historical evolution like treasures from his own collection.
+Wei Bifu had recommended former Nanhai County Magistrate Huang Xiyin to Zhang Xiao. Now Huang Xiyin was guiding Zhang Xiao on a tour of Nanhai Academy, recounting its historical evolution with the pride of someone showing off family heirlooms.
 
-"Chief, look. To the east of the county school there was originally Qingyun Road; over long years, nearby residents built dwellings along the road, burying the road. Three years ago, this student led people to restore the old site and also renovated the two memorial archways." Huang Xiyin spoke of this matter with considerable pride.
+"Chief, look here." Huang Xiyin gestured eastward. "Originally, Qingyun Road ran alongside the county school, but over the years, nearby residents built dwellings along its path until the road was buried entirely. Three years ago, I led an effort to restore the old site and renovate the two memorial archways." He spoke of the accomplishment with evident satisfaction.
 
-"Mm, Council Member Huang's execution capability is not bad." Zhang Xiao nodded. Knowing that Liu Xiang clearing illegal structures on Chengxuan Street also had to rely on the Fubo Army's bayonets meant Huang Xiyin indeed had some ability.
+"Your execution capability is commendable, Council Member Huang." Zhang Xiao nodded approvingly. He knew that Liu Xiang's campaign to clear illegal structures on Chengxuan Street had required the Fubo Army's bayonets—which meant Huang Xiyin possessed genuine administrative skill.
 
-The academy faced north-to-south. Buildings on the central axis from south to north were: the main gate Lingxing Gate, then Ji Gate, Jukui Tower on the left, Dacheng Hall in the center, with continuous large buildings on left and right sides. Behind Dacheng Hall was Minglun Hall; the library was behind.
+The academy faced from north to south. Along the central axis, the buildings ran from south to north: the main gate, Lingxing Gate, followed by Ji Gate, with Jukui Tower to the left and Dacheng Hall at the center, flanked by continuous large buildings on either side. Behind Dacheng Hall stood Minglun Hall, and beyond that, the library.
 
-At this time, Nanhai Academy occupied over sixty *mu* of land, far exceeding later times in scale. The academy vicinity was the densest area for private academies in Guangzhou city.
+At this time, Nanhai Academy occupied over sixty *mu* of land—far exceeding its later dimensions. The surrounding area was the densest concentration of private academies in all of Guangzhou.
 
-After the Senate entered the city, the academy was requisitioned as the Nanhai County Education Bureau office and Nanhai National Demonstration School. Later it became Guangzhou Municipal National Demonstration School, with the Simple Normal School also affiliated here—as the "headquarters" of education throughout Liangguang.
+After the Senate entered the city, the academy had been requisitioned as the Nanhai County Education Bureau office and Nanhai National Demonstration School. Later it became Guangzhou Municipal National Demonstration School, with the Simple Normal School also affiliated here—serving as the educational "headquarters" for all of Liangguang.
 
-Today, Liu Xiang was to lecture on new policies while also introducing the new Nanhai County Magistrate to Guangzhou society. The venue was chosen at Nanhai Academy.
+Today, Liu Xiang would lecture on new policies while introducing the new Nanhai County Magistrate to Guangzhou society. The venue: Nanhai Academy.
 
 (End of Chapter)

@@ -1,111 +1,117 @@
 # Chapter 2601: Escaping the Tiger's Mouth
 
-On this day, Yuan Shuzhi was continuing his great auditing work. In the past few days, he hadn't seen Daoist Wood Stone much, nor had he seen Quan Youde again. Even Steward Gao, who used to show his face daily, was gone. The servants delivering meals had changed to strangers. The two servants guarding the courtyard gate, whom Yuan Shuzhi had become quite familiar with, had suddenly changed to strangers too, with faces full of ferocity.
+Yuan Shuzhi continued his auditing work that day, though the estate had grown ominously quiet. Over the past few days, Daoist Wood Stone had been absent. Quan Youde had vanished. Even Steward Gao, who once made his rounds daily, had disappeared. The servants who brought his meals were now strangers, and the two guards at the courtyard gate—men he'd grown familiar with—had been replaced by hard-faced newcomers with cruel eyes.
 
-He knew this was a very dangerous signal. The successive disappearances of the principals indicated that this place was considered unsafe. That he was left in this unsafe place meant he wasn't an important figure. Since that was the case, once there was a danger of the location being exposed, the fate of a non-core figure like him who "knew too much" would be only one: to be silenced.
+He recognized this for what it was: a dangerous signal. The successive disappearances meant this place was no longer considered safe. That he'd been left behind while the principals fled told him everything about his standing. He wasn't important. And when a location risked exposure, there was only one fate for an unimportant man who knew too much: silence.
 
-Yuan Shuzhi was anxious and fearful but dared not show it. He could only observe secretly every day to see if there was a chance to escape. Although he didn't know the paths in the mountains even if he escaped the farm estate, it was better than waiting for death here in fear.
+Fear gnawed at Yuan Shuzhi, but he dared not show it. Each day he watched and waited, searching for any chance to escape. He didn't know the mountain paths beyond the estate walls, but stumbling through unknown wilderness was preferable to sitting here, waiting for the blade to fall.
 
-After finishing the account book, Yuan Shuzhi breathed a sight of relief. He wrapped up the account book, put it in the basket, and carried it out. Every time account books were delivered or taken away, they were put in a basket like this and handed over at the courtyard gate.
+After finishing the final account book, he breathed a small sigh of relief. He wrapped it up, placed it in the basket, and carried it out. This was the routine—account books delivered and collected at the courtyard gate, passed back and forth in baskets like his.
 
-Unexpectedly, when he delivered it to the courtyard gate, no new account books were sent. Yuan Shuzhi was stunned.
+But when he arrived at the gate, no new books awaited him. Yuan Shuzhi froze.
 
-"No new account books sent over today?" he asked.
+"No new account books today?" he asked.
 
-"If there aren't any, there aren't any. How would we know?" the gatekeeper said viciously, his eyes full of undisguised contempt.
+"If there aren't any, there aren't any," the gatekeeper snarled. His eyes held undisguised contempt. "How would we know?"
 
-Yuan Shuzhi screamed *not good* in his heart, but facing the obstinate gatekeeper and knowing nothing about the situation outside, he could only retreat submissively.
+Yuan Shuzhi's heart screamed danger. But facing that hostile stare and knowing nothing of the world beyond these walls, he could only retreat in silence.
 
-*The only plan now is to escape for my life as soon as possible!* Yuan Shuzhi thought. The absence of new account books was an extremely dangerous signal, indicating that his utility was about to run out, and being silenced was imminent!
+*I must escape. Tonight, if possible.* The absence of new work was the clearest warning yet—his usefulness had run its course. The silencing would come soon.
 
-Just as he was pondering how to escape, Steward Gao, who hadn't been seen for many days, appeared.
+He was still pondering escape routes when Steward Gao appeared, materializing after days of absence.
 
-"Mr. Shu, how have you been?"
+"Mr. Shu. How have you been?"
 
-Seeing Steward Gao's gloomy and smileless face, the hair on Yuan Shuzhi's back stood up. He forced himself to be calm and said, "Thanks to Steward Gao's blessing, my body is still healthy."
+The steward's face was grim, utterly devoid of warmth. The hair on Yuan Shuzhi's neck prickled. He forced calm into his voice. "Thanks to Steward Gao's blessing, I remain in good health."
 
-" I am instructed by my master to move Mr. Shu to another place today," Steward Gao said. "Please pack up, Mister; we will get on the road as soon as possible."
+"I've been instructed by my master to move you to another location today," Steward Gao said. "Please pack your belongings. We leave immediately."
 
-Hearing the phrase "get on the road," Yuan Shuzhi felt like he was struck by five thunderbolts. He thought, "*My life is over!*"
+*Get on the road.* The phrase struck Yuan Shuzhi like a thunderbolt. In the vernacular of criminals and executioners, it meant only one thing. *My life is over.*
 
-However, with Steward Gao and several ferocious-looking servants present, what could a powerless scholar like him do? He had to submit obediently. He went back to the room and packed his clothes and money properly. He smiled bitterly to himself: *I wonder who will benefit from these things in the end!*
+But what could a powerless scholar do against Steward Gao and his menacing attendants? He submitted. He returned to his room and packed his clothes and money with trembling hands, smiling bitterly to himself. *I wonder who'll end up with these things.*
 
-After packing, a sedan chair was already waiting outside. Yuan Shuzhi got into the sedan chair and could only leave his fate to heaven.
+When he emerged, a sedan chair waited outside. Yuan Shuzhi climbed in and surrendered his fate to heaven.
 
-At this time, it was already getting dark outside. As the sedan chair and the group walked along the mountain road, hearing the night owls screeching and the mountain wind howling outside the sedan, Yuan Shuzhi's heart was in turmoil. He wanted to lift the curtain to see the outside, but found that the curtain had been fastened shut. This made him feel even more desperate.
+Dusk was already settling over the mountains. As the sedan chair wound along the mountain road, night owls shrieked and wind howled through the peaks. Yuan Shuzhi's heart churned with terror. He reached for the curtain, hoping to glimpse the outside—but found it fastened shut. Despair settled over him like a shroud.
 
-After walking in darkness for who knows how long, the sedan chair finally stopped. He heard Steward Gao outside saying, "Everyone has worked hard these days. This is a reward from the Daoist. Twenty yuan for each person. Take it and go back to your respective homes. Do not mention old matters here again!"
+They traveled through darkness for what felt like hours before the sedan finally stopped. Through the thin walls, he heard Steward Gao addressing the bearers.
 
-He heard several people outside expressing thanks. Then he heard Steward Gao say, "The wine, meat, and dry rations are rewards from the Daoist for you. Take them to eat on the road. There is a ruined temple here. If anyone is worried about the difficulty of walking deep at night, you might as well rest here for a night and leave tomorrow. If you are in a hurry to travel, you can go now."
+"You've all worked hard these past days. This is a reward from the Daoist—twenty yuan for each man. Take it and return to your homes. Never speak of these matters again."
 
-Wait until the footsteps and voices outside gradually faded away, and there was no sound outside for a long time. Just as Yuan Shuzhi didn't know what to do, the sedan curtain was suddenly lifted. Steward Gao stood outside with a wooden face and said coldly, "We've arrived. Come out."
+Voices murmured thanks. Then Steward Gao continued, "The wine, meat, and provisions are also gifts from the Daoist. Take them for your journey. There's a ruined temple here—if the darkness makes travel difficult, you may rest here tonight and leave at dawn. Those in a hurry may depart now."
 
-Yuan Shuzhi came out of the sedan chair and saw a small flat piece of land in the mountains. It was pitch black all around, and nothing could be seen clearly. By the moonlight, he could vaguely see a half-dilapidated building, probably an abandoned old temple.
+Footsteps and voices faded gradually into silence. Yuan Shuzhi sat frozen, uncertain what came next. Then the sedan curtain flew open. Steward Gao stood there, his face wooden, his voice cold.
 
-Above the mountain ranges, a hook of a crescent moon hung high, obscured by clouds, looking indescribably blurry and eerie.
+"We've arrived. Come out."
 
-While Yuan Shuzhi was bewildered, Steward Gao said, "Mr. Shu, we have known each other for a while, and today our fate ends. The farm estate is not a place to stay for long. You have earned quite a lot of money in these few months, enough for expenses. Take the money and run for your own future."
+Yuan Shuzhi stepped from the sedan onto a small clearing in the mountains. Darkness pressed in from all sides, impenetrable. By the faint moonlight, he could just make out a half-ruined structure—an abandoned temple, most likely.
 
-Yuan Shuzhi looked stunned. He originally thought that after getting off the sedan chair, he would inevitably face swords and axes, and his life would end here in this wilderness. He didn't expect the other party to say such things.
+Above the mountain ridges, a crescent moon hung high behind drifting clouds, its light blurred and spectral.
 
-If he was saying this to trick him, it seemed unnecessary. Having arrived here, he was already meat on the chopping block; why would Steward Gao need to act out such pretentiousness to tease him?
+While Yuan Shuzhi stood bewildered, Steward Gao spoke again. "Mr. Shu, we've known each other for some time now. Tonight, that acquaintance ends. The farm estate is no longer safe. You've earned good money these past months—enough to sustain you. Take it and make your own way."
 
-Yuan Shuzhi didn't know what to do at this moment, so he could only bow and say, "Many thanks, Steward Gao. I have been taken care of by you all these days. This student takes his leave."
+Yuan Shuzhi stared at him, stunned. He'd expected swords and axes the moment he left the sedan, his life ending in this remote wilderness. He never imagined hearing these words instead.
 
-After speaking, he carried the bundle on his back and was about to leave along the path he came. Steward Gao spoke again, "Do not take that road; take this one." After saying that, he pointed to a faintly discernable narrow path among the grass and trees. "Just walk along this road. Do not look back, and do not think about other paths; they are all dead ends!"
+If this was a trick, what purpose would it serve? He was already here, already helpless—meat on the chopping block. Why would Steward Gao bother with such an elaborate pretense?
 
-Yuan Shuzhi's heart was in his throat. He said tremblingly, "Student, student understands!"
+Unable to make sense of it, Yuan Shuzhi could only bow. "Many thanks, Steward Gao. You've looked after me these past days. This student takes his leave."
 
-Just as he lifted his foot to leave, he heard Steward Gao say grimly behind him: "The road is hard to travel; do not be burdened by worldly possessions!"
+He shouldered his bundle and turned toward the path they'd arrived on. Steward Gao's voice stopped him.
 
-Yuan Shuzhi only wanted to flee for his life at this moment; how could he care about worldly possessions? He quickly dropped the bundle and left alone.
+"Not that road. This one." He pointed to a narrow trail, barely visible among the grass and trees. "Follow it without stopping. Don't look back. Don't try any other paths—they're all dead ends."
 
-Walking along the deep grass-covered path, let alone the path, he couldn't even see the terrain clearly in the wilderness. Although he knew this small path had an unpredictable future and there might be life-claiming little ghosts waiting for him ahead, at this moment he could only brace himself and grope forward.
+Yuan Shuzhi's heart lodged in his throat. "Student... student understands."
 
-The mountain road was rugged and difficult. In some places, the path only allowed a single person to walk sideways and was very steep. In some places, the trail was completely obliterated by weeds and shrubs, and he could only find the way by the faint moonlight. Yuan Shuzhi walked and crawled, looking very wretched. Seeing that the crescent moon had passed the zenith, Yuan Shuzhi estimated that he had walked quite a distance before stopping to look back. He saw firelight six or seven *li* away, knowing it was mostly likely the ruined temple he had just seen. He felt even more fearful and dared not rest anymore, rolling and crawling along the road.
+As he lifted his foot to leave, Steward Gao's voice came from behind, grimly deliberate: "The road ahead is hard. Don't let worldly possessions weigh you down."
 
-Finally walking until the sky turned slightly bright, seeing the mountain terrain becoming gentler, he knew he was about to leave the mountains. Although the journey was thrilling, no accidents happened, and he breathed a sigh of relief.
+Yuan Shuzhi wanted nothing but to flee. What did possessions matter now? He dropped his bundle and ran.
 
-Turning past a mountain col, he saw a wild tea stall by the river beach not far away. His heart relaxed; he had finally reached a place with human habitation!
+The trail plunged through deep grass. In the darkness, he could barely see the ground beneath his feet, let alone follow any path. He knew this route might lead to death as easily as salvation—assassins could be waiting ahead just as easily as freedom. But he had no choice except to press forward, groping through the night.
 
-He had walked quickly all night, not feeling tired because of fear. Now arriving at a place with people, his whole body felt like it had lost strength, and he almost paralyzed on the ground.
+The mountain terrain was treacherous. In places, the path narrowed to a ledge where he could only sidle along sideways. In others, the trail vanished entirely beneath weeds and brush, and he had to navigate by what little moonlight filtered through the clouds. Yuan Shuzhi stumbled and crawled, scratched and battered, looking utterly wretched. When the crescent moon finally passed its zenith, he paused to look back. Six or seven *li* behind him, firelight flickered—almost certainly the ruined temple. Fear surged fresh through his veins. He didn't dare rest. He pressed on, half-running, half-falling down the mountainside.
 
-After panting on the ground for a long time, after a night of toil, he felt hungry, thirsty, and aching all over. He got up and walked to the tea shed to sit down.
+At last, as the first gray light touched the sky, the terrain began to ease. He was nearing the edge of the mountains. Though the night's journey had been terrifying, no disaster had befallen him. He allowed himself a breath of relief.
 
-It was still early, but there were already tea guests in the shed. Yuan Shuzhi ignored everything else and called for the waiter.
+Rounding a mountain col, he spotted a rough tea stall by a riverbed in the distance. His heart lifted. He'd finally reached civilization.
 
-Unexpectedly, the waiter didn't come, but the old man sitting in front turned around. Yuan Shuzhi couldn't help but be stunned: *Isn't this Old Man Gao who came to Huizhou on the same boat as me!*
+He'd walked through the night on fear alone, never noticing his exhaustion. Now, seeing signs of human habitation, all strength drained from his limbs. He nearly collapsed where he stood.
 
-Seeing it was him, Old Man Gao was full of joy, stood up, cupped his hands and said, "Mr. Shu, how have you been?"
+After panting on the ground for a long while, the toll of the night's ordeal caught up with him—hunger, thirst, and pain throbbing through every muscle. He dragged himself to the tea shed and sat down.
 
-"Good, good," Yuan Shuzhi was still in shock. Seeing Old Man Gao, whom he had met once, in this barren place, he felt very close to him and couldn't help saying, "I finally saved my life!"
+The hour was early, but a few customers already occupied the stall. Yuan Shuzhi ignored them, calling for the waiter.
 
-After speaking, he realized he had misspoken. Old Man Gao didn't mind, whispering, "Mr. Shu has great fortune and is a lucky man. Although there is a tea shed here, it is not a place to stay for long. If Mister walks south along this river beach for more than ten *li*, it will be Boluo County Town."
+But instead of the waiter, the old man seated in front turned around. Yuan Shuzhi gaped. *Old Man Gao—the one who traveled with me on the boat to Huizhou!*
 
-Yuan Shuzhi was greatly surprised, wondering what Old Man Gao's background was.
+Recognition lit Old Man Gao's face with genuine pleasure. He stood and cupped his hands in greeting. "Mr. Shu! How have you been?"
 
-Old Man Gao laughed loudly and said seriously, "Mr. Shu, although you and I only met once, we have the friendship of sharing a boat."
+"Good, good..." Yuan Shuzhi was still reeling from shock. Seeing a familiar face in this remote place filled him with an unexpected warmth. Before he could stop himself, the words tumbled out: "I finally escaped with my life!"
 
-The implication was self-evident. Although Yuan Shuzhi didn't know the inside story, he roughly knew that escaping death this time was mostly due to this Old Man Gao's help.
+The moment he said it, he realized his mistake. But Old Man Gao seemed unbothered. He leaned closer and spoke quietly. "Mr. Shu is clearly a man of great fortune. Though there's a tea shed here, this isn't a place to linger. If you follow the riverbed south for ten *li* or so, you'll reach Boluo County Town."
 
-Although he didn't know the details, he still had to thank him for saving his life. He hurriedly said, "Master Gao! Although I don't know the reasons within, yet..."
+Yuan Shuzhi's mind raced. Who was this Old Man Gao, really?
 
-Old Man Gao waved his hand repeatedly and whispered, "I understand your feelings! And I accept them! No need for formalities. It's just that you shouldn't stay in Huizhou anymore. When you get to Boluo, do not linger; return to Guangzhou quickly." After saying that, he gave him a bundle. "This is dried food I prepared for you. Take it to eat on the road."
+As if reading his thoughts, the old man laughed heartily, then grew serious. "Mr. Shu, though we've only met once, we share the bond of fellow travelers on the same boat."
 
-Yuan Shuzhi felt inexplicably grateful and hurriedly accepted the things. Only when he held it did he realize the bundle was heavy, seemingly containing silver. He didn't refuse either, saying, "Great kindness does not need words of thanks! This student will never forget Master Gao's kindness!"
+The meaning was clear enough. Yuan Shuzhi didn't understand the full picture, but he grasped the essential truth: his survival tonight owed much to this Old Man Gao.
 
-After drinking a pot of tea, he hurriedly rushed to Boluo.
+Even without knowing the details, gratitude demanded expression. He spoke urgently, "Master Gao! I don't understand everything that's happened, but—"
 
-At this moment, his mind was full of question marks. The various things experienced from last night to this morning were like a strange dream. Steward Gao took them to the ruined temple, obviously to silence them, and the firelight at the ruined temple later seemed to prove this. For such a big matter as plotting rebellion, they certainly wouldn't let relevant personnel live.
+Old Man Gao waved him off and whispered, "I understand your feelings, and I accept them. No need for formalities." His voice dropped lower still. "But you mustn't stay in Huizhou any longer. When you reach Boluo, don't linger—return to Guangzhou immediately." He pressed a bundle into Yuan Shuzhi's hands. "Dried provisions for the road."
 
-But why did this Steward Gao let him go? This was a very risky thing; he might get silenced himself. Yet he actually saved him. Could it be intentional, acting on orders? What did the Daoist intend?
+Yuan Shuzhi accepted it with overwhelming gratitude. Only when he felt its weight did he realize the bundle contained silver as well as food. He didn't refuse. "Such great kindness needs no words. This student will never forget Master Gao's grace."
 
-The strangest thing was this Old Man Gao. Although they had met once, it ended there; they couldn't even be called friends, let alone having any kindness between them. Yet this rescue seemed to involve him too.
+He drank a pot of tea, then hurried toward Boluo.
 
-Connecting the fact that both Steward Gao and Old Man Gao surnamed Gao... Yuan Shuzhi suddenly thought of this and was stunned.
+His mind swarmed with questions. Everything from last night to this morning felt like a fever dream. Steward Gao had brought them to that ruined temple to silence them—the fire he'd seen afterward seemed to confirm it. In a conspiracy as grave as rebellion, loose ends weren't allowed to live.
 
-Old Man Gao came to Huizhou from Guangzhou with him, and he also said he was a native of Huizhou. So, they were very likely family!
+So why had Steward Gao let him go? It was an enormous risk. Discovery would mean his own death. Had he acted on orders? What was the Daoist's true intention?
 
-Although he couldn't figure out the other party's motive, since he had escaped, he should rush back to Boluo County Town as soon as possible and report the relevant situation to Lu Cheng. This gang was not only stealing drugs but also intending to rebel. If he could crack the case in time, it would be a great merit for him!
+And what of Old Man Gao? They'd shared a boat once—nothing more. They couldn't even call themselves friends, had exchanged no favors. Yet somehow, this rescue seemed connected to him as well.
+
+*Both named Gao...* The thought struck Yuan Shuzhi, and he stopped short.
+
+Old Man Gao had traveled from Guangzhou to Huizhou with him, claiming to be a Huizhou native. They could well be family.
+
+He couldn't fathom their motives. But now that he'd escaped, his duty was clear: reach Boluo County Town as quickly as possible and report everything to Lu Cheng. This gang wasn't merely smuggling drugs—they were plotting rebellion. If he could help crack the case in time, it would be a tremendous achievement.
 
 **(End of Chapter)**

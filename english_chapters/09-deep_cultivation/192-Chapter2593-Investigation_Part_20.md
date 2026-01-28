@@ -1,115 +1,115 @@
 # Chapter 2593 - Investigation (Part 20)
 
-He Jun was silent for a long time. Finally, he said: "Since you know, elder brother has nothing to hide anymore. This business that was making money hand over fist—now it's finished!"
+He Jun was silent for a long time. At last, he spoke. "Since you already know, elder brother has nothing left to hide. This business that was making money hand over fist—it's finished."
 
-"If it's finished, it's finished. Though this business makes good money, honestly it's risky too." Zheng Xiaoyu pretended to be magnanimous in consoling him. "Since it can't continue, just make money from peaceful business."
+"Then let it be finished." Zheng Xiaoyu adopted a magnanimous tone. "The money was good, sure, but the risk was always there too. If it can't continue, just stick to legitimate trade."
 
-"If only it were that simple." He Jun sighed. "Getting on the pirate ship is easy; getting off is hard!"
+"If only it were that simple." He Jun sighed heavily. "Getting on the pirate ship is easy. Getting off is another matter entirely."
 
-"Oh? Why's that?" Zheng Xiaoyu affected surprise.
+"Oh? How so?"
 
-"Sigh, it's a long story." After a few cups of wine, He Jun's "worries increased," and he wanted to pour out all his troubles to someone.
+"It's a long story." After several cups of wine, He Jun's tongue had loosened, and he seemed eager to unburden himself.
 
-His "sworn brotherhood" with Zheng Xiaoyu had been just an expedient to cultivate connections. But after these days of interaction, the two actually hit it off, their temperaments compatible. Gradually, the pretense became real.
+His "sworn brotherhood" with Zheng Xiaoyu had begun as a convenient way to cultivate connections, nothing more. But over these past days, the two had genuinely hit it off—their temperaments aligned, their rapport easy. What started as pretense had become something real.
 
-"I won't hide it from you, brother. Here in Huizhou, my family's business is also ancestral..."
+"I won't hide it from you, brother. My family's business here in Huizhou goes back generations..."
 
-He Jun's "Bailing Tang" pharmacy in Huizhou, though lacking "a hundred years" of history, was still an old establishment passed down three generations. Within the prefectural city, it wasn't "top two," but definitely made the "top ten."
+He Jun's Bailing Tang pharmacy couldn't claim "a hundred years" of history, but it was still an old establishment, passed down through three generations. Within the prefectural city, it ranked if not in the top two, then certainly among the top ten.
 
-By the time it reached He Jun, Bailing Tang was lukewarm—operating normally without incident, but without much business growth either. In old-timeline terms, operations had hit a "bottleneck."
+By the time He Jun inherited it, Bailing Tang had plateaued—operating smoothly enough, but showing no growth. In modern terms, he had hit a bottleneck.
 
-In business, you need both "maintaining" and "pioneering"—like rowing against the current, not advancing means retreating. He Jun was a "third generation" with keen crisis awareness. After taking over as boss, he thought day and night about how to pioneer new business. Unfortunately, Huizhou had the Grotto Heaven medicine market—a pharmaceutical "battlefield." Anyone who survived here, even just with a stall, had been "bred through competition." He Jun, despite all his skills, could only maintain the old situation here.
+In business, you need both maintenance and expansion. Like rowing against the current: if you're not advancing, you're falling behind. He Jun possessed the keen crisis awareness typical of a third-generation inheritor. After taking over, he wracked his brain for ways to expand. But Huizhou hosted the Grotto Heaven medicine market—a pharmaceutical battleground. Anyone who survived here, even as a mere stall vendor, had been forged through relentless competition. Despite all his skills, He Jun could only maintain the status quo.
 
 ---
 
-Then opportunity arrived. Someone introduced him to a piece of business: this was "Lushi Powder."
+Then opportunity arrived. Someone introduced him to a new line of business: Lushi Powder.
 
-"Lushi Powder? That medicine is sold everywhere on the streets!" Zheng Xiaoyu feigned disdain.
+"Lushi Powder? That stuff is sold everywhere!" Zheng Xiaoyu feigned disdain.
 
-"Brother, that's Wanchun Quan's Lushi Powder—naturally useless. But once you add the special ingredients, it becomes a miracle drug effective after one dose..."
+"Brother, the ordinary Wanchun Quan brand is worthless, true. But add the special ingredients, and it becomes a miracle drug—effective after a single dose."
 
-"Elder brother means these extracted Australian drugs..."
+"You mean these refined Australian medicines..."
 
-"Correct. Exactly so." He Jun said. This business was introduced to him by a Boluo drug merchant named Quan Youde. At first, he just had him use his channels to distribute "Treasure-label" Lushi Powder. Later, when "Treasure-label" Lushi Powder sold well, he was surprised and went to Quan Youde, hoping for more goods to distribute.
+"Precisely." He Jun nodded. The business came through a Boluo drug merchant named Quan Youde. Initially, Quan just wanted him to distribute "Treasure-label" Lushi Powder through his existing channels. When it sold remarkably well, He Jun sought him out, hoping to increase his supply.
 
-Quan Youde readily agreed, but his conditions were harsh. Not only monthly sales targets, but also cash before goods. Whatever monthly sales quota you committed to, first pay Jubao Tang, then pick up goods.
+Quan Youde agreed readily, but his terms were harsh: monthly sales quotas, cash before delivery. Whatever volume you committed to, you paid Jubao Tang upfront, then collected your goods.
 
-The business went very smoothly at first. Though He Jun wasn't making money hand over fist, monthly profits were considerable. Then Quan Youde met him again, proposing that he find a way to obtain prescription forms. And stated that if he could obtain prescription forms, he'd be a "partner," not just a "distributor."
+At first, everything went smoothly. He Jun wasn't getting rich overnight, but the monthly profits were substantial. Then Quan Youde approached him again, proposing that he find a way to obtain prescription forms. If he could deliver those, Quan said, he would become a "partner" rather than a mere distributor.
 
-"Quan Youde said if I could get them prescription forms, they'd give me half a percent of revenue. My distribution drug quota could also be further increased. I thought this was a once-in-a-lifetime opportunity and joined. What happened next, you already know."
+"Quan Youde promised me half a percent of revenue if I could get them prescription forms. My drug quota would increase too. I thought it was a once-in-a-lifetime opportunity, so I joined. What happened after that, you already know."
 
-"Now that prescription forms can be obtained, why don't they want them anymore?"
+"Now that you can obtain the forms, why don't they want them anymore?"
 
-"That Quan Youde just says there's plenty of drugs now and temporarily no need for new prescriptions. But after a little inquiry, I learned their upstream channel has been cut. Those small peddlers getting goods from Jubao Tang have all been cut off!"
+"Quan Youde just says they have plenty of drugs and no need for new prescriptions at the moment. But I made some inquiries—their upstream channel has been cut. All those small peddlers who used to get goods from Jubao Tang have been shut out."
 
-"What about your side, elder brother?" Zheng Xiaoyu pressed.
+"And what about your supply, elder brother?" Zheng Xiaoyu pressed.
 
-"This month's goods were delivered in full." He Jun said listlessly. "But what about next month?"
+"This month's shipment arrived in full." He Jun's voice was listless. "But what about next month?"
 
-This was indeed a problem. Zheng Xiaoyu knew the upstream cutoff was precisely because of Zheng Mingjiang's "flying inspection." This inspection's result would necessarily reduce the formerly rushing supply channel to a trickle. So never mind small peddlers—even He Jun might not get goods next month.
+That was indeed the question. Zheng Xiaoyu knew the upstream disruption stemmed directly from Zheng Mingjiang's surprise inspection. The investigation would inevitably reduce what had been a rushing supply channel to a mere trickle. Small peddlers aside, even He Jun might find himself cut off next month.
 
-He pretended confusion: "What, has Quan Youde already said there's no goods?"
+He adopted a puzzled expression. "Has Quan Youde said there won't be goods?"
 
-"He hasn't said that." He Jun said. A few days ago, Quan Youde had gathered the major distributors, saying upstream drug sourcing had indeed developed problems, but the channel wasn't cut—it would recover after a while. So everyone needed to "weather this together"—implying they still had to pay next month's goods money on time, but he wouldn't guarantee timely delivery of full quantities.
+"Not in so many words." He Jun explained that a few days ago, Quan Youde had gathered the major distributors. He acknowledged that upstream sourcing had run into problems, but insisted the channel wasn't dead—it would recover eventually. In the meantime, everyone needed to "weather this together." The implication was clear: next month's payment remained due on schedule, but timely delivery in full quantities was no longer guaranteed.
 
-"How strange—can't even guarantee delivery, yet still wants advance payment? What kind of business is this!" Zheng Xiaoyu slammed the table. "What if he can't deliver and just takes the money and runs?"
+"That's absurd!" Zheng Xiaoyu slammed his palm on the table. "He can't even guarantee delivery, yet still demands advance payment? What kind of business is that? What if he just takes the money and disappears?"
 
-"Isn't that what I'm saying." He Jun said. "But Quan Youde also said: those who won't order and pay this time needn't come for goods in the future. He won't supply Lushi Powder to them either."
+"That's exactly what worries me." He Jun shook his head. "But Quan Youde also made clear that anyone who won't order and pay this time needn't bother coming for goods in the future. He'll cut them off from Lushi Powder entirely."
 
-So that's it! Zheng Xiaoyu thought. No wonder He Jun was in a dilemma. Everyone knew continuing as a distributor was very risky, but they were reluctant to give up. Probably the business profits were astonishingly large—they couldn't bear to let go!
+So that was it. No wonder He Jun found himself caught between impossible choices. Everyone understood that continuing as a distributor carried enormous risk, yet none could bring themselves to walk away. The profits must be staggering—too tempting to abandon.
 
-Zheng Xiaoyu asked: "So what does elder brother think?"
+"What are you thinking, elder brother?"
 
-"I'm different from the others." He Jun said. "If I were just a distributor, I'd quit this business immediately. No matter how big the business, money needs to be safely pocketed. Especially for this kind of inherently risky business. When things look wrong, leaving is the best strategy. But..."
+"My situation is different from the others." He Jun paused. "If I were just a distributor, I'd quit immediately. No matter how lucrative the business, money needs to land safely in your pocket. Especially with something this risky—when things turn sour, getting out is the only sensible move. But..."
 
 He sighed again.
 
-Apparently, Quan Youde had specially discussed with him privately. As a "profit-sharing" partner now, he could still get next month's drugs in full—on condition he prepaid six months' worth.
+Apparently, Quan Youde had pulled him aside for a private conversation. As a profit-sharing partner, He Jun could still receive next month's full shipment—on the condition that he prepay six months' worth.
 
-"Six months?!" Even Zheng Xiaoyu was shocked. With delivery already clearly problematic, still demanding distributors prepay six months—this wasn't business, it was outright robbery!
+"Six months?" Even Zheng Xiaoyu was taken aback. With delivery already unreliable, demanding six months' payment upfront wasn't business—it was extortion.
 
-"What did elder brother say?"
+"What did you tell him?"
 
-"Naturally I refused." He Jun smiled bitterly. "I'm no fool. He gives verbal guarantees of full delivery, but who knows if he'll even be in Huizhou next month? Where would I go for goods?"
+"I refused, naturally." He Jun's smile was bitter. "I'm no fool. He can promise full delivery all he wants, but who knows if he'll even be in Huizhou next month? Where would I go to collect?"
 
-"Exactly, exactly. Don't do this business!"
+"Exactly. Don't touch this business."
 
-"I never expected Quan Youde would turn hostile, saying he'd report me for trafficking prescription forms..." He Jun's face was filled with worry. "Saying my trafficking prescription forms is a grave crime—the Australians would definitely execute my entire family if they knew."
+"I never expected Quan Youde would turn so vicious. He threatened to report me for trafficking prescription forms." He Jun's face was lined with worry. "Said trafficking forms is a capital offense—the Australians would execute my entire family if they found out."
 
-Zheng Xiaoyu said: "He's also involved in trafficking prescription forms. Isn't he afraid of getting burned?"
+"But he's involved in the trafficking too. Isn't he worried about getting burned?"
 
-"The prescription forms weren't delivered directly to him..."
+"The forms never passed directly through his hands..."
 
-So the prescription form trafficking was connected through Quan Youde, but delivery and payment were handled by someone else. It couldn't be traced to Quan Youde at all.
+So that was the arrangement. Quan Youde served as the connection, but delivery and payment went through someone else entirely. Nothing could be traced back to him.
 
-Zheng Xiaoyu put on a troubled expression: "If he says that, it's indeed difficult. If this gets out..."
+Zheng Xiaoyu put on a troubled frown. "If he puts it that way, you're in a difficult position. If word got out..."
 
-"Yes, I'm also worried that if he really reports me, even you would be implicated! Sigh, thinking it over, there's no good solution. I can only spit back the money I've earned and be done with it—just consider it a spring dream!"
+"Yes, and I worry that if he actually reports me, even you might be implicated." He Jun exhaled heavily. "I've thought it over from every angle—there's no good solution. The only way out is to hand back everything I've earned and wash my hands of the whole affair. Consider it a spring dream, nothing more."
 
-Undoubtedly, Zheng Mingjiang's actions in Guangzhou had stirred the originally stable industry chain. Now this chain from top to bottom had begun revealing cracks. From Quan Youde's behavior, they were probably assessing that regaining drug supplies was unlikely—hence the hasty "making one last profit."
+There was no doubt that Zheng Mingjiang's actions in Guangzhou had disrupted what had been a stable supply chain. Now cracks were appearing from top to bottom. Judging by Quan Youde's behavior, they had likely concluded that regaining their drug supply was hopeless—hence this desperate scramble to extract one final profit.
 
-Not only making profit, but also recovering downstream parties' money—quite vicious. Zheng Xiaoyu had no doubt that under their combination of threats and inducements, many distributors would be fooled.
+Not just profit, either, but recovery of downstream funds. Quite ruthless. Zheng Xiaoyu had no doubt that under this combination of threats and inducements, many distributors would be taken in.
 
-But though Quan Youde and his Jubao Tang were important, they probably weren't the core figures of this fake drug case. Zheng Xiaoyu thought. Especially Quan Youde—he was practically operating semi-publicly. So the money wouldn't be in his hands; he himself was probably a pawn that could be discarded anytime. Finding the mastermind behind the scenes would probably take more effort.
+Yet for all his importance, Quan Youde and his Jubao Tang probably weren't the core figures in this counterfeit drug operation. Zheng Xiaoyu considered the matter carefully. Quan Youde operated almost openly—the real money wouldn't be in his hands. He was likely just a disposable pawn. Finding the mastermind behind the scenes would require considerably more effort.
 
-"Since that's the case, paying for peace isn't unreasonable." Zheng Xiaoyu said. "Just somewhat unwilling! Sigh!"
+"If that's how things stand, paying for peace isn't unreasonable." Zheng Xiaoyu said at last. "Just hard to swallow. Sigh."
 
-These words stirred He Jun's indignation: "Sigh! Speaking of it, for this Lushi Powder distribution, I've spent plenty of money. Especially the route to Fujian and Zhejiang—I personally led my manager going client by client, delivering samples, setting up stalls... How much work I did to build up 'credit' for these medicines! Now look—no drugs, and they want to take back all the hard-earned money we made!"
+These words stirred He Jun's indignation. "Hard to swallow indeed! Do you know how much I've invested in this Lushi Powder distribution? Especially the Fujian and Zhejiang routes—I personally led my manager from client to client, delivering samples, setting up stalls. All that work to build credibility for these medicines! And now look—no drugs, and they want to claw back every coin we earned."
 
-Zheng Xiaoyu said deliberately: "Elder brother needn't be angry. Since Quan Youde is unjust, we needn't be righteous to him! Think about it—in these days of dealings with him, does he have any weak points?"
+Zheng Xiaoyu leaned forward. "Elder brother, don't waste your anger. Since Quan Youde has shown no loyalty, we owe him none in return. Think carefully—in all your dealings with him, has he revealed any vulnerabilities?"
 
-He Jun hesitated: "Weak points? This Quan Youde is crafty as can be. Every time we meet, it's all secretive. When I go see him, even my servants can't approach..."
+He Jun hesitated. "Vulnerabilities? Quan Youde is cunning as they come. Every meeting is shrouded in secrecy. Whenever I visit him, even my servants aren't allowed near."
 
-"Maybe not any specific thing. Any strange places? Saw any unusual people or events? Even just a few words?" Zheng Xiaoyu coaxed patiently.
+"Perhaps not anything specific. Any oddities? Unusual people, strange events? Even just a few overheard words?" Zheng Xiaoyu coaxed patiently.
 
-With this prompting, He Jun seemed to recall something. He lowered his head in careful thought for a long while, then said: "If you put it that way, there are a few things that left an impression at the time. Don't know if they're useful."
+At this prompting, He Jun's expression changed, as if something had surfaced in his memory. He lowered his head and thought for a long moment. "Now that you mention it, there are a few things that struck me at the time. I don't know if they're useful."
 
-"Let's hear them!"
+"Let's hear them."
 
-"This Quan Youde seems to personally know Australian 'cadres' like you, brother." He Jun said. "Once when I went to see him, tea cups were being cleared from the reception hall. On the Eight Immortals table was a crumpled note still not cleaned up. I glanced at it—the exposed writing seemed to be written with an 'Australian pen.'"
+"Quan Youde seems to personally know Australian cadres—people like yourself, brother." He Jun said. "Once when I went to see him, servants were clearing tea cups from the reception hall. On the Eight Immortals table lay a crumpled note they hadn't yet cleaned up. I caught a glimpse—the writing appeared to be in Australian pen."
 
-"Really?!" Zheng Xiaoyu was slightly excited. "Australian pen" meant either fountain pen or pencil. Besides Elders and naturalized citizen cadres and employees, ordinary people rarely used them. "Was the ink blue or gray?"
+"Truly?" Zheng Xiaoyu couldn't hide his interest. "Australian pen" meant either fountain pen or pencil—implements rarely used by anyone outside the Elders and naturalized citizen cadres and clerks. "Was the ink blue or gray?"
 
-"Really! The ink was blue." He Jun nodded. "I've seen Australian pen writing before."
+"Blue. I'm certain of it." He Jun nodded firmly. "I've seen Australian pen writing before."
 
 **(End of Chapter)**

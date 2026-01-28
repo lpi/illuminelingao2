@@ -1,91 +1,91 @@
 # Chapter 2547: Guangzhou Textile Market (Part 5)
 
-"This, is complicated to explain," An Jiu smiled beautifully, and Chen Lin's mind couldn't help but sway. "This involves issues of shares and equity. Simply put, each company's business scope is limited, so many companies were registered, but generally speaking, they all belong to one boss!"
+"It's complicated to explain," An Jiu said with a lovely smile that made Chen Lin's heart flutter despite himself. "It involves shares and equity structures. Put simply, each company can only operate within a limited scope, so many were registered—but they all answer to the same master."
 
-An Jiu knew that telling them about cross-holding, subsidiary/grandson companies, actual controllers, legal persons, proxy holding, and the like would be very hard to understand. After all, these rules evolved only when capitalism was quite mature. The Senate brought this set of advanced corporate systems, and many people still hadn't understood it thoroughly.
+An Jiu knew that explaining cross-holdings, subsidiary and grandson companies, actual controllers, legal persons, and proxy arrangements would only confuse them. These rules had evolved in mature capitalist societies, after all. The Senate had imported this sophisticated corporate framework, and even now, many people hadn't fully grasped it.
 
-"Then what is the main business of this Penglai Company?" Wu Yijun knew An Jiu wouldn't bring him here for no reason. Although he didn't know what medicine she was selling in her gourd, he couldn't be too dull and follow her guidance blindly, lest she look down on him.
+"Then what is Penglai Company's main business?" Wu Yijun asked. He knew An Jiu hadn't brought him here without purpose. Though he couldn't fathom what she was after, he refused to play the dullard and follow her lead blindly—that would only invite her contempt.
 
-"Miss An, since you could come to Nansha to guide textiles, presumably this company also focuses on cotton textiles..." Chen Lin said.
+"Miss An, since you came to Nansha to advise on textiles, I presume this company also deals in cotton cloth..." Chen Lin ventured.
 
-"Quite the opposite, our company doesn't do cloth; we are just porters for cloth merchants." An Jiu replied.
+"Quite the opposite. Our company doesn't trade in cloth at all—we simply transport it for those who do."
 
-"Oh? Like brokers [Yaren]?" Wu Yijun naturally associated it with this. Besides workshop owners who had their own workshops, those operating cloth businesses included putting-out merchants and brokers who collected intermediary commissions. Sometimes the boundaries between these three were not so clear. Sometimes brokers were also putting-out merchants selling cloth, or even held all three identities.
+"Oh? Like brokers [Yaren]?" Wu Yijun's mind naturally went there. Beyond workshop owners who manufactured their own goods, the cloth trade included putting-out merchants and brokers who collected commissions. Sometimes the boundaries between these roles blurred entirely—brokers might double as putting-out merchants, or a single person might wear all three hats.
 
-"Mr. Wu's association is very interesting; no wonder you would think so. However, the Senate does not set up Broker Houses [Yahang] in the production and circulation fields, so naturally there are no brokers. Legal market trade is free." An Jiu explained.
+"An interesting association, Mr. Wu—I can see why you'd think that. However, the Senate doesn't establish Broker Houses [Yahang] in production and distribution, so there are no official brokers. Legal market trade is free."
 
-"Then it is?" Wu Yijun couldn't quite understand. Even if this Australian-Song established a Light Textile City, wasn't it something like a workshop market? There should be Official Brokers inside collecting intermediary commissions, matchmaking buyers and sellers, and managing the market. generally speaking, it was quite like brokers.
+"Then what exactly are you?" Wu Yijun struggled to understand. Even if the Australians had established a Light Textile City, wasn't it essentially a workshop market? Surely there were official brokers inside collecting commissions, matching buyers with sellers, managing the market. It seemed much the same to him.
 
-"Let's put it this way: you produce cloth for sale, or merchants traffic cloth from the interior or overseas; you always have to entrust people to deliver goods or purchase. If you have channels, of course, you can solve it yourself, but some places require large ships to go to, and you are unfamiliar with the roads in some places... As long as you are unable to transport yourself, you can find us to transport, for example, delivering goods to Nanyang or Taisi [Europe]."
+"Let me put it this way," An Jiu explained. "Say you produce cloth for sale, or you're a merchant trafficking goods from the interior or overseas. Either way, you need someone to handle delivery or procurement. If you have the channels, you manage it yourself—but some destinations require large ships, and some routes are unfamiliar territory. Whenever you can't handle the transport yourself, you come to us. We can deliver goods to Nanyang, or even Taisi [Europe]."
 
-Wu Yijun nodded slightly; he roughly understood a bit.
+Wu Yijun nodded slowly, beginning to grasp the concept.
 
-"Unlike Broker Houses, we mark prices clearly and do not collect taxes on behalf of the government. Moreover, this industry is not monopolized. It's not that you must use our routes or ships to transport to a certain place; other companies can also provide the same service. For example, there are two next door to us. If customers feel the price is unreasonable, finding them is also fine, but I have to do a little advertisement for myself: our company's cost-performance ratio is the most affordable." An Jiu laughed again after explaining.
+"Unlike Broker Houses, we post transparent prices and don't collect taxes on the government's behalf. Moreover, this industry isn't monopolized. You're not obligated to use our routes or ships for any particular destination—other companies offer the same service. Two of them are right next door. If customers find our prices unreasonable, they're welcome to try our competitors." She laughed. "Though I must put in a word for ourselves: our value for money is unmatched."
 
-"Companies next door? Are they Red Hairs?" Chen Lin asked. He saw before entering just now that two shops next door were already open, with many peculiar-dressed Red Hairs at the door.
+"The companies next door—are they Red Hairs?" Chen Lin asked. He'd noticed before entering that two neighboring shops were already open, with strangely-dressed Red Hairs milling about their entrances.
 
-"The people you saw, accurately speaking, are Dutchmen. In this row of merchant guilds, there are offices of the Dutch East India Company and the British East India Company. Their work is mainly purchasing and selling goods here. But they also have a business which is shipping. You can find them to transport goods to any location overseas—as long as they have trading posts there."
+"The people you saw are Dutchmen, to be precise. This row of merchant guilds includes offices of both the Dutch East India Company and the British East India Company. Their main business is buying and selling goods here, but they also offer shipping. You can hire them to transport goods anywhere overseas—provided they have a trading post there."
 
-"So it is." Wu Yijun said, "I remember in the past, Franks came to Guangzhou the most. Now they seem silent."
+"I see," Wu Yijun said. "I recall the Franks used to be the most common visitors to Guangzhou. They seem to have gone quiet."
 
-"The Portuguese will come too. Guarding that place in Macau, they are almost unable to do business." An Jiu laughed, "Compared to the British and Dutch, the Portuguese are not so enterprising, and their actions are much slower."
+"The Portuguese still come. But holed up in Macau as they are, they can barely conduct any business." An Jiu laughed. "Compared to the British and Dutch, they lack enterprise. They move far too slowly."
 
-"Does the Senate really want to allow all these barbarians to come do business?" Wu Yijun was relatively surprised. He knew the Australians effectively carved out a piece of Huangpu Port as a berthing place for merchants of various countries and allowed them to buy land to build houses and set up warehouses. Now they even wanted to give them permanent merchant guilds here!
+"Does the Senate truly intend to let all these barbarians conduct business here?" Wu Yijun couldn't hide his surprise. He knew the Australians had effectively carved out a section of Huangpu Port for foreign merchants to berth, even allowing them to purchase land, construct buildings, and establish warehouses. But now they meant to give them permanent merchant guilds here as well?
 
-"Why not? As long as they pay taxes legally and abide by the Senate's laws and regulations, isn't providing them convenience for business a due meaning?" Saying this, she laughed, "You are all in cotton textiles; maybe later you will have to rely on them to transport cotton to you."
+"Why not? As long as they pay their taxes and abide by Senate laws, shouldn't we facilitate their trade?" She smiled. "You're both in cotton textiles—you may well need to rely on them to supply your cotton someday."
 
-"Hmm?! They have cotton?"
+"What? They have cotton?"
 
-"Of course they have," An Jiu nodded, "But it's not produced in their own countries, but trafficking from India."
+"Of course," An Jiu nodded. "Not from their own countries, mind you—they traffic it from India."
 
-"How does Miss know this?" Chen Lin was very concerned about cotton matters and asked hurriedly.
+"How do you know this?" Chen Lin asked eagerly, his interest in cotton matters getting the better of him.
 
-"Since you engage in the cotton textile industry, how can you not understand the market at all? On this Guangzhou ground, besides Songjiang cloth, whose cloth is the most numerous?"
+"If you're in the cotton textile industry, how can you afford to ignore the market? Here in Guangzhou, besides Songjiang cloth, whose fabric dominates?"
 
-"Indian cloth." Chen Lin then discovered he was dizzy. Since there was so much Indian cotton cloth on the market, the local place undoubtedly had large-scale cotton production.
+"Indian cloth." Chen Lin felt foolish for not connecting the dots sooner. With so much Indian cotton cloth flooding the market, their cotton production must be enormous.
 
-"This is great! Another channel for raw materials in the future."
+"This is wonderful! Another source of raw materials for the future."
 
-The two lingered in Penglai Company for a long time, chatting about many topics. Compared to Chen Lin, Wu Yijun cared more about "business," asking quite a few questions about the future commercial trend of Guangzhou and textile products. An Jiu had no taboos; knowing what to say, she said it. The two chatted very happily. Chen Lin, however, was secretly ashamed in his heart. An Jiu was in Nansha for several months, yet he actually scrupled about some "defense between men and women" and hadn't talked deeply with her seriously a few times. Wasting a good opportunity to ask for advice in vain!
+The two lingered at Penglai Company for quite some time, discussing a wide range of topics. Compared to Chen Lin, Wu Yijun showed keener interest in "business," asking numerous questions about Guangzhou's future commercial trends and textile prospects. An Jiu spoke freely, sharing whatever she knew. The conversation flowed easily between them. Chen Lin, meanwhile, felt a private shame creeping over him. An Jiu had been in Nansha for months, yet he'd let concerns about "propriety between men and women" prevent him from having any substantive discussions with her. What a waste of an invaluable opportunity!
 
-This talk lasted until noon. The two then remembered the appointment with Dong Jizhong in the afternoon and took their leave immediately. An Jiu was neither polite nor kept them for a meal, only saying if they wanted to look around the market in the afternoon, they could go to the Living Zone to have a simple meal; shops were already open there.
+Their talk stretched until noon. Suddenly remembering their afternoon appointment with Dong Jizhong, they took their leave at once. An Jiu neither offered polite protests nor pressed them to stay for a meal. She simply mentioned that if they wanted to explore the market that afternoon, the Living Zone had restaurants already open for a quick bite.
 
-The Living Zone was not yet completed, but most storefronts had started business. The main business here was "Public Canteen" type cheap restaurants. Customers currently were mostly workers laboring on construction sites; business wasn't bad. Chen and Wu were "Long Gown Party," naturally couldn't mix with the "Short Jacket Gang" to eat. Fortunately, the place Dong Jizhong invited them to meet was a local tea house, exactly taking the opportunity of waiting for people to eat lunch first.
+The Living Zone remained unfinished, though most storefronts had begun operating. The establishments here were mainly "Public Canteen" type cheap restaurants, currently serving the laborers working the construction sites. Business was brisk. But Chen and Wu were "Long Gown Party"—they couldn't very well mingle with the "Short Jacket Gang" over a meal. Fortunately, Dong Jizhong had invited them to meet at a local tea house, where they could conveniently eat lunch while waiting.
 
-Entering the tea house, upon mentioning the three words "Dong Jizhong," a waiter came over to greet, saying Master Dong already booked a private room, asking the two to go in and sit first.
+Upon entering the tea house and mentioning Dong Jizhong's name, a waiter promptly appeared, explaining that Master Dong had already reserved a private room. He led them inside.
 
-Just as they sat down, waiters sent various exquisite tea snacks like flowing water, and sent various famous teas for them to choose. Chen Lin thought secretly: *This Master Dong is indeed a Master's temperament!*
+No sooner had they taken their seats than waiters arrived in an endless stream, bearing an array of exquisite tea snacks and presenting a selection of famous teas. Chen Lin thought to himself: *This Master Dong certainly lives up to his station.*
 
-The waiter entertained attentively: "Master Dong said, please don't stand on ceremony, just eat first. He has to accompany the Old Matriarch to have lunch at home before coming over. Afraid of slighting the two of you..."
+The waiter attended to them solicitously: "Master Dong asked me to convey that you shouldn't stand on ceremony—please eat first. He must accompany the Old Matriarch for lunch at home before coming over. He worried about leaving you unattended..."
 
-Since it was so, the two ate and drank for a while first. Waiting for about another hour, seeing it was already past noon, Dong Jizhong finally arrived.
+Given this arrangement, the two ate and drank at leisure. About an hour later, well past the noon hour, Dong Jizhong finally arrived.
 
-Dong and Wu were old acquaintances, naturally no need for excessive politeness. It was Chen Lin's first time meeting this "General's family's First Master," so his cousin-uncle made the introduction. Dong Jizhong knew the young man before him was the actual manager of the Nansha factory and was quite surprised. Because Nansha had his family's shares, his words were quite polite.
+Dong and Wu were old acquaintances, so there was no need for excessive formality. For Chen Lin, however, this was his first meeting with the "General's family's First Master," and his cousin-uncle made the introductions. Learning that the young man before him was the actual manager of the Nansha factory, Dong Jizhong registered visible surprise. Since his family held shares in Nansha, he chose his words with considerable courtesy.
 
-Both sides took seats. The waiter came over to clear the scattered table, sent delicate tea snacks again, and brewed two pots of new tea. Only then did they enter the main topic.
+Once everyone was seated, the waiter cleared the scattered dishes, presented fresh tea snacks, and brewed two new pots of tea. Only then did they turn to business.
 
-"Ah Lin, this Master Dong is not an outsider. Just tell the process of building the factory in Nansha and the current situation."
+"Ah Lin, Master Dong is practically family. Tell him everything—how the factory was built in Nansha and where things stand now."
 
-Chen Lin knew this Master Dong's family was effectively the cousin-uncle's main investor; bluntly speaking, actually the major shareholder of Nansha. He composed himself, starting from his visit to Lingao, all the way to the recent trial production situation, telling it thoroughly once.
+Chen Lin understood that Master Dong's family was effectively his cousin-uncle's primary investor—or to put it bluntly, the major shareholder in Nansha. Composing himself, he recounted everything from his initial visit to Lingao through the recent trial production, leaving nothing out.
 
-Chen Lin's enunciation was clear and logical. Although he spoke for about more than an hour from beginning to end, Dong Jizhong listened entranced, without any feeling of boredom.
+His account was clear and methodical. Though he spoke for over an hour, Dong Jizhong listened with rapt attention, never showing a hint of boredom.
 
-Listening until the end, hearing that Nansha was about to stop production because cotton stock was insufficient, Dong Jizhong frowned slightly and asked:
+When Chen Lin reached the part about Nansha facing a production halt due to insufficient cotton stocks, Dong Jizhong's brow furrowed slightly.
 
-"Is the cotton stored not enough?"
+"The stored cotton isn't enough?"
 
-"Stored quite enough, but didn't expect the Australians' machines to be so fast." Chen Lin said, "A machine's daily volume equals the volume of several hundred people! Cotton consumption increases day by day; can't collect any around Nansha anymore." Chen Lin told Dong Jizhong the general idea of the dilemma he faced.
+"We stored plenty, but we never anticipated how fast the Australians' machines would work," Chen Lin explained. "A single machine matches the output of several hundred workers! Cotton consumption rises daily, and we've exhausted the supply around Nansha." He outlined the general scope of their dilemma for Dong Jizhong.
 
-"Heard Master Dong has cotton here, so specially came to beg, can you share a part with Nansha?"
+"We heard Master Dong has cotton here, so we've come to beg a favor—might you be willing to share a portion with Nansha?"
 
-Dong Jizhong nodded: "So it is!" He gently tapped his palm with his fan, "This matter was originally a due obligation. Only looking at now, it is not very easy to handle. You probably also know, Guangzhou's cotton price has risen again and again recently. Although my family hoarded quite a bit of cotton, if we release goods to you now, the accountant at home will probably go make noise in front of the elders again, saying I sold too quickly..." Speaking of this, he smiled bitterly, "My mother fears most that I get cheated in business, even opposing my hoarding of cotton with all her might."
+Dong Jizhong nodded slowly. "I see." He tapped his fan against his palm. "By rights, this should be no trouble at all. But as things stand, it's not so simple. You've probably noticed cotton prices in Guangzhou have been climbing steadily. Though my family stockpiled quite a bit, if I release goods to you now, the household accountant will run straight to the elders complaining I sold too quickly..." He smiled ruefully. "My mother fears nothing more than seeing me cheated in business. She opposed my stockpiling cotton from the very start."
 
-"Since the Old Madam isn't willing for you to hoard cotton, Master, what's improper about selling at a high position now to settle the bag for peace?" Wu Yijun was a bit strange.
+"If the Old Madam doesn't want you stockpiling cotton anyway, what's wrong with selling at the peak and pocketing a safe profit?" Wu Yijun found this puzzling.
 
-"Hehe, this you don't know. To fear that I'd be duped, my mother specially sent an old manager to watch me. This old manager is quite good at management. Just that this way, I can't be the master of anything. Must pass his agreement..." He smiled helplessly, "I have to go back and talk to him about this matter first!"
+"Ah, you don't know the half of it. To make sure I don't get swindled, my mother assigned an old manager to watch over me. He's quite capable at management, I'll grant him that. But it means I can't make any decisions on my own—everything requires his approval..." Dong Jizhong smiled helplessly. "I'll need to go home and discuss this with him first."
 
-Chen Lin was somewhat disappointed, but with his status, it was inconvenient to persuade. Wu Yijun spoke again: "Master! Although cotton market price is rising with the water now, it has reached an absurd level. At this moment, if there is any sign of trouble, once this cotton market falls, let alone disdaining selling cheaply, afraid by then it can only be sold as firewood! Now the market is so good, this old manager should understand."
+Chen Lin felt a pang of disappointment, but his position didn't allow him to press the matter. Wu Yijun spoke up again: "Master Dong, while cotton prices are certainly riding high, they've reached absurd levels. The moment there's any hint of trouble, this market will collapse. When that happens, you won't just be complaining about selling too cheaply—you'll be lucky to sell the stuff for firewood! With the market this strong, surely the old manager can see reason."
 
-"This you don't know," Dong Jizhong said, "You probably don't know yet, my father and brother both sent letters, saying harvests in cotton areas of Shandong and Henan are not good; cotton areas in Jianghuai region also suffered disasters. Even Songjiang here doesn't have enough to use. Australians purchased in large quantities during this period, so Northern Cotton prices naturally rose. The old manager's meaning is, this cotton still has room to rise."
+"You don't understand," Dong Jizhong replied. "You probably haven't heard yet—my father and brother both wrote letters saying the cotton harvests in Shandong and Henan have been poor. The Jianghuai region suffered disasters too. Even Songjiang doesn't have enough for its own needs. The Australians have been buying in large quantities recently, which naturally drove up Northern Cotton prices. The old manager believes this cotton has room to climb higher still."
 
 (End of Chapter)

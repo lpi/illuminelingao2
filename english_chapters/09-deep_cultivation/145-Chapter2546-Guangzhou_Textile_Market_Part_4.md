@@ -1,77 +1,77 @@
 # Chapter 2546: Guangzhou Textile Market (Part 4)
 
-"...In the future, domestic and foreign merchant ships carrying textiles and raw materials can dock directly at the wharves here to load and unload cargo, saving the procedures and costs of land transshipment. Look, this row of land with houses under construction along the river is the future logistics center—that is, warehouses."
+"...In the future, merchant ships carrying textiles and raw materials—whether domestic or foreign—will dock directly at these wharves to load and unload cargo, eliminating the cost and hassle of overland transshipment. See that row of buildings under construction along the river? That's the future logistics center—warehouses, essentially."
 
-The two clicked their tongues unconsciously. The scale was so huge; would there really be so many merchants and goods coming here to trade? Looking at the scale of investment by the Australians, it seemed like a sure thing nailed on a board.
+The two men clicked their tongues in wonder. The scale was enormous. Would there really be enough merchants and goods to justify all this? And yet, judging by the Australians' level of investment, they seemed utterly certain of success.
 
-"As for the issue of popularity [foot traffic], you don't need to worry either. Although current customers are mainly wholesalers, we also planned blocks suitable for ordinary people to operate and consume. So there will also be plans in transportation for the future. The ferry wharf is just one; in the future, scheduled ferry boats traveling to and from here will be opened at various wharves outside the South Gate of Guangzhou. Not only solving the market's passenger flow problem but also promoting traffic between Henan Land and Guangzhou urban area."
+"As for foot traffic, you needn't worry about that either. While our current customers are primarily wholesalers, we've also planned blocks suitable for ordinary people to shop and do business. Transportation will follow accordingly. The ferry wharf is just the beginning—scheduled ferries will eventually run between here and various wharves outside Guangzhou's South Gate. This will not only solve the market's passenger flow problem but also improve travel between Henan Land and the Guangzhou urban area."
 
-Before a cross-river bridge appeared, Henan Land was quite restricted by commuting. If placed in later generations, relying merely on ferry boats and liners would not be enough. But 17th-century Henan Land was still purely countryside; commuting demand was far less than later generations. Providing cheap and safe ferry services was enough to satisfy general needs.
+Until a bridge spanned the river, Henan Land would remain constrained by its commute. In later centuries, mere ferries and liners would never suffice. But in the seventeenth century, Henan Land was still pure countryside, with far less commuting demand. Cheap, reliable ferry service would be enough to meet most needs.
 
-The Senate had development ambitions for this Henan Land area, planning to build it into the future New Guangzhou City. But right now, erecting a big bridge over the Pearl River was beyond their power, so they could only put down this huge New Guangzhou City plan temporarily, only attempting some new projects with limited investment.
+The Senate harbored grand ambitions for this area, envisioning it as the future New Guangzhou City. But erecting a great bridge across the Pearl River remained beyond their current capabilities. For now, they had shelved that grander vision, attempting only modest projects with limited investment.
 
-At the market entrance, one could see a tall schematic diagram of the market, with different zones marked in different colors.
+At the market entrance stood a tall schematic diagram, its different zones marked in distinct colors.
 
-Along the Pearl River, from west to east, Zone A, B, C, and D, the four main business zones, were arranged sitting south and facing north according to the main gate direction, dealing in textiles, textile raw materials, textile machinery, and corresponding items. On their east and west sides, two zones were planned respectively. The East Zone was a living area, providing detached houses and single dormitories for rent and sale. Merchants, family members, and shop assistants could live here. A commercial street was also planned, opening various service industry shops, including catering, groceries, bathing... In the future, a "National Primary School" would also be established here. However, just a market was far from enough for the City Government to open a primary school for it; its main enrollment targets were children of employees of the Guangzhou State Cotton General Factory under construction opposite the market.
+Along the Pearl River from west to east lay Zones A through D—the four main commercial districts. All faced north toward the main gate, each dedicated to its specialty: textiles, textile raw materials, textile machinery, and related goods. Flanking them on either side were two additional zones. The East Zone was residential, offering detached houses and dormitories for rent or purchase. Merchants, their families, and shop assistants could live there. A commercial street was also planned, featuring shops for dining, groceries, bathing, and other services. Eventually, a National Primary School would be established here as well—though a market alone hardly justified a school. Its primary enrollment target would be children of employees from the Guangzhou State Cotton General Factory, currently under construction across the way.
 
-As for the West Zone, it was the Merchant Guild Zone. An Jiu said the Merchant Guild Zone was specially prepared for foreign merchants coming here.
+The West Zone, An Jiu explained, was the Merchant Guild Zone—reserved specifically for foreign merchants.
 
-The area they entered first was Zone A. Speaking of location, Zone A was the best, but the target customers here happened to be the most trivial small vendors and ordinary citizens.
+They entered Zone A first. In terms of location, Zone A was the best, yet ironically, its target customers were the humblest: small vendors and ordinary citizens.
 
-When planning, designers considered that the market area was very large. Citizens coming for leisure purposes couldn't possibly stroll through the entire market, so the retail zone was placed in the block near the entrance. This not only facilitated citizens' strolling but could also gather popularity, forming a feeling of people coming and going at the market's main gate.
+The designers had reasoned that the market area was vast. Citizens coming for leisure would never stroll through the entire complex, so the retail zone belonged near the entrance. This made browsing convenient while also generating activity—the bustle of people coming and going would enliven the main gate.
 
-The business of the retail area was mainly in two parts. One part was for small vendors and local small weaving households to sell individually produced fabrics and raw materials. According to the Senators' speculation, eliminating household textile handicraft industry right now was impossible. Blocking is not as good as channeling; it was better to provide them an opportunity to differentiate themselves, saving them from the exploitation of putting-out merchants. Perhaps some models of getting rich through hard work could emerge from them.
+Business in the retail area fell into two categories. First, small vendors and local household weavers could sell their individually produced fabrics and raw materials. The Senators had concluded that eliminating household textile handicrafts was currently impossible. Better to channel than to block—give these producers an opportunity to differentiate themselves rather than leave them at the mercy of putting-out merchants. Perhaps some might even become models of prosperity through honest labor.
 
-Besides this, this zone was also a Clothing Street: not only providing ready-made clothes and alteration services but also providing old clothes recycling and sales, sewing equipment sales, etc. generally speaking, it was a street close to people's livelihood needs.
+Second, this zone housed Clothing Street: ready-made garments and alterations, old clothes recycling and resale, sewing equipment sales, and similar offerings. A street serving everyday needs, essentially.
 
-Because merchants in Zone A were all small clients, the characteristic was having many storefronts, but each occupied a small area. Shop faces were next to each other, densely packed, but the usable area of each shop face was only thirty square meters. The total occupied area was the smallest among the four business zones.
+Because Zone A catered to small clients, it featured numerous storefronts, each occupying minimal space. Shop fronts stood shoulder to shoulder, densely packed, yet each unit offered only thirty square meters of usable area. The zone's total footprint was the smallest of the four commercial districts.
 
-Some shop faces here had already been rented, hanging simple signboards. Some didn't even have signboards, just hanging a shop banner with words like "Patterned Cloth," "Raw Silk" marking the goods types.
+Some shops had already been rented and displayed simple signboards. Others lacked even that, hanging only banners marked with words like "Patterned Cloth" or "Raw Silk" to indicate their wares.
 
-"The rent here is very cheap. If unwilling to rent long-term, we also set up stalls for short-term rental—that open ground is the place for setting up stalls. However, things sold here are mostly handmade, small in quantity. If bulk commodities are needed, they can't bring them out, and buyers from the sea won't look at them either."
+"The rent here is quite cheap. For those unwilling to commit long-term, we also offer stalls for short-term rental—that open ground is for stall vendors. However, goods sold here are mostly handmade and small in quantity. They can't supply bulk commodities, so overseas buyers won't bother looking."
 
-South of Zone A were the remaining three zones in order. Zone B mainly dealt in light textile raw materials: such as cotton, cotton yarn, silkworm cocoons, raw silk, wool, hemp thread... planned area was the largest; Zone C mainly sold various textile finished and semi-finished products, various cotton, woolen, yarn, cloth, silk, satin, etc. were all sold here.
+South of Zone A lay the remaining three zones in sequence. Zone B dealt primarily in textile raw materials: cotton, cotton yarn, silkworm cocoons, raw silk, wool, hemp thread, and the like. It occupied the largest planned area. Zone C sold finished and semi-finished textile products—cotton cloth, woolens, yarn, silk, satin, and everything in between.
 
-As for the final Zone D, it sold textile machinery, from huge iron-wood looms to small machine needles and parts; all could be found inside. In the future, various chemical products for textile use, such as dyes and sizing agents, were also prepared to be sold.
+Zone D, the final district, specialized in textile machinery. Everything from massive iron-and-wood looms to tiny needles and replacement parts could be found there. Eventually, chemical products for textile use—dyes, sizing agents, and such—would be sold there as well.
 
-Compared to the first three zones, the architectural style of Zone D also changed greatly. The first three zones were all two-story small buildings, first floor for shop face, second floor for office or storage. The style was Qilou [Arcade] style; the extended corridor could provide shade for pedestrians, considered commercial and residential architecture relatively suitable for the south.
+Compared to the first three zones, Zone D's architecture differed markedly. The others consisted of two-story buildings: ground floor for the shop, upper floor for offices or storage. The style was Qilou—arcade buildings with extended corridors providing shade for pedestrians, a design well-suited to southern commerce and residence.
 
-Arriving at Zone D, because it involved display and storage of machinery equipment, it was no longer Qilou architecture, but truss-style warehouse buildings.
+Zone D, however, required space for displaying and storing machinery. Here, the architecture shifted to truss-style warehouse buildings.
 
-"This Australian architectural design is ingenious. If there are such wide eaves to provide shade for people in the scorching summer, it's actually not bad." Wu Yijun appraised this Australian-Song style architecture which was quite peculiar, admiring it considerably. In old timeline history, Qilou only appeared in the 19th century, spreading in Guangdong with the introduction of European architecture; originally it didn't exist in this timeline.
+"This Australian design is quite ingenious," Wu Yijun remarked, studying the peculiar Australian-Song architecture. "Wide eaves like these, providing shade in the scorching summer—not bad at all." In the original timeline, Qilou had only appeared in the nineteenth century, spreading through Guangdong with the introduction of European architecture. In this timeline, it had arrived early.
 
-Although the entire market area hadn't opened yet, recruitment for rental started more than a month ago. Therefore, tentatively no shops were open. But well-informed merchants, some had already taken down their favored shop faces, some were still patrolling here, hoping to find a feng shui treasure land.
+Though the market hadn't officially opened, rental recruitment had begun over a month ago. No shops were operating yet, but well-informed merchants had already secured their preferred locations. Others still prowled the grounds, hoping to find the perfect feng shui spot.
 
-This project pushed strongly by Australians didn't need too much promotion for merchants with sensitive noses. The Australians' brains were obviously not just on reshaping Guangzhou's textile trade; afraid they had even bigger plans. The business opportunities within were self-evident.
+This project, pushed hard by the Australians, needed little promotion among merchants with keen instincts. The Australians clearly had ambitions beyond reshaping Guangzhou's textile trade—something far larger was afoot. The business opportunities were self-evident.
 
-The three people looked at flowers from horseback [glanced roughly], touring all zones roughly, and finally came to the Merchant Guild Zone in the west.
+The three toured all the zones at a brisk pace, glancing at everything without lingering, and finally arrived at the Merchant Guild Zone in the west.
 
-Buildings in the Merchant Guild Zone were more exquisite, mostly stone-built European-style buildings with different styles, no longer uniform Qilou or warehouse-style buildings.
+Buildings here were more refined—mostly stone-built European-style structures with varied designs, no longer the uniform Qilou or warehouse architecture.
 
-An Jiu took the uncle and nephew to the first building in the West Zone. This building was the plainest in the whole row of buildings. An Jiu said this was the market's management company. Although hanging the sign of "Light Textile Market Co., Ltd.," actually the biggest shareholder and main operator behind it was the Cooperative Society Co., Ltd. So beside the door there was a second sign "Cooperative Society Co., Ltd. Guangzhou Branch."
+An Jiu led the uncle and nephew to the first building in the West Zone. It was the plainest of the row. This, she explained, was the market's management company. Though it bore the sign "Light Textile Market Co., Ltd.," the true majority shareholder and primary operator was the Cooperative Society Co., Ltd. A second sign beside the door read "Cooperative Society Co., Ltd. Guangzhou Branch."
 
-There was a small square in front of the building. A flagpole stood in the center, flying the Morning Star Flag. Huge display boards stood at the edge of the square, hanging rows of wooden tablets.
+A small square fronted the building. A flagpole stood at its center, flying the Morning Star Flag. Huge display boards lined the square's edge, hung with rows of wooden tablets.
 
-"What is this?" Chen Lin asked curiously. He saw written on them lint cotton, clean cotton, cotton cloth, dried cocoons... etc., but there were still empty hanging spots behind, obviously other content hadn't been hung up yet.
+"What are these?" Chen Lin asked curiously. He saw inscriptions for lint cotton, clean cotton, cotton cloth, dried cocoons, and more, though empty hooks indicated content yet to come.
 
-"This is the market reference price, provided weekly by the Bureau of Statistics..."
+"Market reference prices, provided weekly by the Bureau of Statistics..."
 
-The Bureau of Statistics would provide reference prices for various markets based on price data collected daily from main commodity distribution centers and consumption places like Guangzhou, Foshan, and Lingao. Mainly to provide a reference price for merchants and customers, preventing fraud caused by information inequality, trying to create an atmosphere of fair trade.
+The Bureau of Statistics supplied reference prices for various markets based on daily price data collected from major distribution and consumption centers like Guangzhou, Foshan, and Lingao. The goal was to give merchants and customers a benchmark, preventing fraud born of information asymmetry and fostering an atmosphere of fair trade.
 
-"Then what does this 'A-1 Standard Cotton Cloth' mean?" Chen Lin asked. His family wanted to transform into the cotton cloth business now, so naturally he cared about cotton cloth prices, but here there was only written one Standard Cotton Cloth, without other information.
+"And what does 'A-1 Standard Cotton Cloth' mean?" Chen Lin pressed. His family intended to enter the cotton cloth business, so naturally he paid close attention to cotton cloth prices. But here, only "Standard Cotton Cloth" appeared, with no further details.
 
-"Standard Cotton Cloth refers to arranging a certain number of warp and weft yarns per square centimeter, reaching a certain range of weight; this is called Standard Cotton Cloth." An Jiu explained. Australian-Song Standard Cotton Cloth had several specifications, from A-1 to B-3, not necessarily woven into 20*20.
+"Standard Cotton Cloth refers to fabric meeting specific requirements: a certain number of warp and weft threads per square centimeter, within a certain weight range," An Jiu explained. Australian-Song Standard Cotton Cloth came in several specifications, from A-1 to B-3—not necessarily woven to a uniform 20-by-20 count.
 
-"Is it the 'Sheng' [unit] of official cloth?" Chen Lin asked. Before the Single Whip Method was implemented, cloth had always been one of the important taxes. The government had set standards; not only width and length had standards, but warp yarns within a certain width also had standards. Generally, 80 warp yarns were one Sheng. Specific measures of each dynasty and region had slight differences.
+"Is it like the 'sheng' measurement for official cloth?" Chen Lin asked. Before the Single Whip Method was implemented, cloth had been an important form of tax payment. The government had established standards—not only for width and length, but for warp threads within a given width. Generally, eighty warp threads constituted one sheng, though exact measures varied slightly by dynasty and region.
 
-"Comparatively similar, but weft yarns also have to be counted in; generally speaking, there are differences." An Jiu pointed to the three words 'Reference Price' on the board and said: "This is just a reference. If you can make better things, naturally you can sell for higher prices. Those not meeting standards naturally can't sell for high prices; it depends on whether the buyer knows the goods."
+"Similar in concept, but weft threads are also counted, so there are differences." An Jiu pointed to the words "Reference Price" on the board. "This is merely a reference. If you can produce something superior, you can naturally command higher prices. Substandard goods won't fetch premium prices—it all depends on whether the buyer knows quality when he sees it."
 
-The second room at the head of the row of Qilou in the Merchant Guild Zone hung a golden anchor at the doorway. An Jiu introduced: "This is the Penglai Company where I will take office in the future. Wait until my internship at the Nansha Cotton Textile Factory ends, I will formally join here. In the future, if you have anything to find me, you can come to this company—nine out of ten I won't be in..." An Jiu told a cold joke. Discovering the uncle and nephew didn't catch the laughing point, she immediately added a sentence, "Best to make an appointment beforehand; our work is very busy. Since we are all here, let's go in and sit first."
+The second building along the Qilou row in the Merchant Guild Zone displayed a golden anchor above its doorway. An Jiu introduced it: "This is the Penglai Company, where I'll be working in the future. Once my internship at the Nansha Cotton Textile Factory ends, I'll officially join here. If you ever need to find me, come to this company—though nine times out of ten, I won't be in..." She delivered the line deadpan. When the uncle and nephew failed to catch the joke, she quickly added, "Best to make an appointment beforehand. We're quite busy. But since we're all here, let's go in and sit."
 
-An Jiu said and led them into the reception hall on the first floor. People came and went in the reception hall; some obviously foreign faces also entered and exited here. The reception hall was partitioned into many single rooms along the courtyard using screens. An Jiu took them into a single room.
+She led them into the reception hall on the first floor. People moved in and out constantly; some with obviously foreign features came and went as well. Screens partitioned the hall into private rooms arranged around a courtyard. An Jiu guided them into one.
 
-Chen Lin looked around and saw several signs hanging on the screen in the courtyard facing the main gate, written with "Lingao Penglai Shipping Co., Ltd.," "Penglai Development Co., Ltd.," "Penglai Investment Co., Ltd.," etc., several company names.
+Chen Lin glanced around and noticed several signs hanging on the screens facing the main gate: "Lingao Penglai Shipping Co., Ltd.," "Penglai Development Co., Ltd.," "Penglai Investment Co., Ltd."—multiple company names.
 
-"What's the difference between so many companies?" Chen Lin was a bit confused seeing this. Wasn't Penglai Company just Penglai Company?
+"What's the difference between all these companies?" Chen Lin asked, slightly confused. Wasn't Penglai Company just Penglai Company?
 
 (End of Chapter)

@@ -1,113 +1,115 @@
 # Chapter 2549: Crisis Emerges
 
-Wu Yijun thought carefully; it was really so! He had been in the marketplace for a long time and understood market laws. Once a crisis erupted, it couldn't be stabilized by just a piece of official document from the government! originally worried about the overflow of "Paper Cotton" and prevalence of speculation, now analyzing the prospect of yarn and cloth with his cousin-nephew, he instantly felt hair stand on end.
+Wu Yijun turned the matter over in his mind and realized his nephew was right. He had spent enough years in commerce to understand how markets worked. Once a crisis erupted, no government proclamation could stabilize it. He had been worried about the flood of "Paper Cotton" and the rampant speculation, but now, analyzing the prospects for yarn and cloth with Chen Lin, a chill ran down his spine.
 
-Once the situation Chen Lin mentioned appeared, the cotton textile industry would bear the brunt. The yarn spun from the 720 spindles Nansha Factory was proud of would become a life-taking noose. By then, yarn and cloth would be unsalable, factories would stop production...
+If the situation Chen Lin described came to pass, the cotton textile industry would bear the brunt. The yarn spun from Nansha Factory's prized 720 spindles would become a noose around their necks. Unsold yarn and cloth would pile up. Factories would grind to a halt.
 
-He put down the wine cup and said: "Ah Lin, what you said is right. This Paper Cotton matter will explode sooner or later. If a basin of cold water can be poured on it before it explodes, perhaps there is still salvation."
+He set down his wine cup. "Ah Lin, you're right. This Paper Cotton business will explode sooner or later. If we can pour cold water on it before it does, perhaps there's still a chance to salvage things."
 
-"Nephew thinks so too." Chen Lin said, "The only plan now is to advise the Senators directly. Heard from Miss An and others that Senators Li and Zou already came to Guangzhou not long ago. We entrust her to convey; even if we can't meet, at least must submit a letter."
+"That's what I think as well," Chen Lin said. "Our only option now is to advise the Senators directly. Miss An mentioned that Senators Li and Zou arrived in Guangzhou not long ago. We could ask her to pass along our concerns—even if we can't secure an audience, we should at least submit a letter."
 
-"Exactly!" Wu Yijun said, "We will discuss and write it right now." Suddenly he remembered something again and said: "Ah Lin, how much cloth and cotton yarn are still unsold inside and outside the factory now?"
+"Exactly!" Wu Yijun nodded. "We'll draft it tonight." Then something else occurred to him. "Ah Lin, how much cloth and yarn remains unsold, both in the factory and outside?"
 
-"There is quite a bit of yarn and cloth inventory in the factory. Also much yarn distributed to weaving households hasn't been woven and retrieved yet..."
+"We have considerable inventory at the factory. There's also a good deal of yarn we've distributed to the weaving households that hasn't been woven and returned yet."
 
-"For existing yarn and cloth, call people to transport them to Guangzhou immediately. While the market is high now, dump them all. Even with some discount, as long as someone is willing to take, get rid of all hands. How many days can the cotton in the factory last?"
+"For everything we have on hand—yarn and cloth alike—send people to transport it to Guangzhou immediately. While prices are still high, dump it all. Even at a discount, as long as someone's willing to buy, get rid of every last bolt. How long will our cotton supply last at current production rates?"
 
-"According to current operation, can support about half month."
+"About half a month."
 
-"Call the manager to spin all cotton into yarn. Then stop machines and tell workers to go back—anyway, it is busy farming time recently; they have work to do back home. Call Fengshenghe to weave the spun yarn into cloth and store it first. Let's look at the market then."
+"Have the manager spin all remaining cotton into yarn. Then shut down the machines and send the workers home—it's busy farming season anyway, so they'll have work to do. Once the yarn is spun, contract Fengshenghe to weave it into cloth for storage. After that, we'll watch the market."
 
-"I will call Ah Qing back to handle this matter right now." Chen Lin suddenly remembered something, whispering, "What about the cotton from Dong Second Master's side? If he wants to give it to us, what to do?"
+"I'll send Ah Qing back to handle this right away." Chen Lin hesitated, then lowered his voice. "What about the cotton from Dong Second Master? If he actually manages to get it for us, what then?"
 
-They didn't favor the long-term market of cotton cloth now. Clearing inventory as much as possible before the big crash. If they ate high-priced cotton at this time, the cost spread down would rise quite a bit.
+Neither of them felt optimistic about the long-term cloth market anymore. Their priority was to clear as much inventory as possible before the crash. Taking on high-priced cotton now would drive their costs up considerably.
 
-If it were others, since there was no contract, just refusing would do. But Dong Second Master was not only a shareholder but also promised to sell cotton to them in this state where market rose three times a day; the favor was huge. If going back on words, there would be no face to meet again in the future.
+If it were anyone else, they could simply refuse—there was no contract, after all. But Dong Second Master was not only a shareholder; he had also promised to sell them cotton when prices were rising three times a day. That was an enormous favor. To renege now would mean they could never look him in the face again.
 
-"Just find a reason to decline." Wu Yijun pondered, "How about, you just say you went to Lingao..."
+"We'll just find a reason to decline," Wu Yijun mused. "Perhaps you could say you've left for Lingao..."
 
-Chen Lin shook his head: "Can't use, can't use. This way, although Dong Second Master won't say anything with mouth, afraid it won't pass so easily in heart. Must think of another way."
+Chen Lin shook his head. "That won't do. Dong Second Master might not say anything outright, but he'd hold it against us. We need another approach."
 
-Wu Yijun rolled his eyeballs and asked: "Ah Lin, coming to the local place, how many Patterned Cloth Firms have you asked about cotton?"
+Wu Yijun's eyes lit up with sudden inspiration. "Ah Lin, since arriving here, how many Patterned Cloth Firms have you approached about buying cotton?"
 
-"Didn't ask a single one." Chen Lin was somewhat baffled.
+"Not a single one." Chen Lin looked puzzled.
 
-Wu Yijun immediately called a servant, telling him to inquire immediately about what the current "Paper Cotton" price was.
+Wu Yijun immediately summoned a servant and instructed him to find out the current Paper Cotton price.
 
-Not long after, the servant came back to report that Paper Cotton price per picul rose by another half ten percent [5%].
+The servant returned shortly with his report: Paper Cotton had risen another five percent per picul.
 
-"This is it." Wu Yijun said, "Ah Lin, go everywhere to various Patterned Cloth Firms tomorrow, ask them what price spot goods available for immediate delivery are, how many piculs can be delivered. Say you urgently need it for starting the factory now."
+"Perfect." Wu Yijun smiled. "Ah Lin, tomorrow I want you to visit every Patterned Cloth Firm in the city. Ask them what price they're offering for spot goods—cotton available for immediate delivery—and how many piculs they can provide. Tell them you need it urgently to start up the factory."
 
-"Buying this cotton, isn't it losing more?" Chen Lin was confused.
+"But buying that cotton would only deepen our losses," Chen Lin said, confused.
 
-"Of course not asking you to buy it down; you just need to let these Patterned Cloth Firms in the city know there is someone begging to buy spot cotton!"
+"Of course I don't expect you to actually buy any. I just need you to let every Patterned Cloth Firm in the city know that someone is desperately seeking spot cotton."
 
-"Oh, you mean, let spot cotton price rise even higher?"
+"Ah—you want to drive up spot prices even higher?"
 
-"Correct."
+"Precisely."
 
-"But this way, how can Dong Second Master convince his family manager..." Suddenly Chen Lin understood completely. His action would fan flames on spot market prices; that Dong family manager would definitely be more unwilling to release stock.
+"But how would that help Dong Second Master convince his family manager..." Understanding dawned on Chen Lin. His inquiries would fan the flames of the spot market; the Dong family's manager would become even more reluctant to release their stock.
 
-"Hehe, I know a thing or two about that Dong family manager. Most shrewd. Now market is so good, how could he release easily? He holds the Imperial Edict [Mother's order] in hand now; Dong Second Master, this 'dandy,' may not necessarily win over him!" Wu Yijun said complacently.
+"I know a thing or two about that manager," Wu Yijun said with satisfaction. "Shrewd as they come. With the market this hot, why would he release inventory willingly? He holds the mother's mandate—and Dong Second Master, for all his status, may not be able to overrule him."
 
-Wait for this Dong Second Master to go find his mother to negotiate and persuade; a round of hands and feet would take at least three to five days. And based on his understanding of Dong Second Master, this noble person was most "afraid of trouble"; maybe dropping hands right there was possible.
+By the time Dong Second Master negotiated with his mother and tried to persuade the household, at least three to five days would pass. And knowing Dong Second Master's temperament—the man detested complications—he might well give up entirely.
 
-"As long as he can't reply these few days, I will use the excuse that you couldn't wait and went to find other sources."
+"As long as he can't get back to us in the next few days, I'll simply explain that you couldn't wait and went looking for other sources."
 
-"If so, naturally everyone is happy." Chen Lin thought in heart: *This Cousin-Uncle's mind is indeed fierce!*
+"Then everyone saves face." Chen Lin thought to himself: *Cousin-Uncle's mind is sharp as a blade.*
 
-The next day, he followed the method. After a round of inquiry, he specially went to the Penglai Company Office in the Textile Market to find An Jiu, saying he had some views on the current market, hoping to see the two Chiefs—if unable to see, at least ask her help to forward a letter.
+The next day, he followed the plan. After making his rounds of inquiries, he went specifically to the Penglai Company office in the Textile Market to find An Jiu. He told her he had concerns about the current market situation and hoped to meet with the two Chiefs—or failing that, asked if she could forward a letter on his behalf.
 
-An Jiu was somewhat surprised, but she knew Chen Lin was steady; begging to see Chiefs must be for urgent matters. However, although Chiefs Zou and Li were indeed in Guangzhou, they were busy with the preparatory work of Guangzhou Cotton Textile Factory every day. Without concrete matters, it was hard for them to extract time to receive.
+An Jiu was somewhat surprised, but she knew Chen Lin to be a steady, level-headed man. If he was requesting an audience with the Chiefs, it had to be urgent. However, Chiefs Zou and Li, while indeed in Guangzhou, were consumed with preparations for the Guangzhou Cotton Textile Factory. Without a concrete agenda, they would have difficulty finding time to receive visitors.
 
-"Just say, why do you want Chiefs to receive?" An Jiu said, "You must have a charter [agenda], so I can report..."
+"Tell me why you need to see them," An Jiu said. "You must have something specific in mind if I'm to make a proper report."
 
-"Honestly speaking, it is for the cotton matter." Chen Lin told the chaos of Paper Cotton flooding the market currently and his worries once. "Once Paper Cotton has an accident, afraid the entire industry will be greatly damaged in vitality. Doesn't matter if Chiefs see me or not, but this matter needs to let Chiefs know urgently..."
+"To be frank, it's about the cotton situation." Chen Lin described the chaos of Paper Cotton flooding the market and laid out his concerns. "Once Paper Cotton collapses, I'm afraid the entire industry will suffer devastating damage. Whether the Chiefs see me or not isn't important, but they need to know about this urgently."
 
-An Jiu didn't know much about matters in commercial fields, but listening to his analysis, she also felt the situation was serious. Immediately expressed she would go report right now.
+An Jiu didn't know much about commercial affairs, but listening to his analysis, she too sensed the gravity of the situation. She promised to report immediately.
 
-"Don't go anywhere tomorrow; just stay at your Cousin-Uncle's home. Maybe you will be summoned anytime!"
+"Don't go anywhere tomorrow—stay at your Cousin-Uncle's home. You may be summoned at any moment."
 
-"Yes, I understand."
+"I understand."
 
-Li Shan, at this moment, was preparing for "Private Visit and Inspection" in the Great World office. Preparing to turn around in the Textile Market to see how the market situation was.
+---
 
-This market was a project he spent great thoughts to mount, an important stroke for him to promote Senate cotton textile development. Seeing official opening imminent, he had to feel the bottom [investigate] first.
+Li Shan, meanwhile, was preparing for an incognito inspection at the Great World office. He planned to walk through the Textile Market and get a feel for conditions on the ground.
 
-Looking from current situation, market response was not bad. But how the specific situation was, still had to go visit personally to know.
+This market was a project he had poured considerable effort into establishing—a key initiative in his push to develop the Senate's cotton textile industry. With the official opening imminent, he needed to investigate firsthand.
 
-Originally he planned to go probe the situation in the Textile Market looking like Ming State clothes and cap. However, after getting a set of clothes to try on, felt uncomfortable all over. Changing several sets in a row all had the feeling of a monkey wearing a hat [dressed up ape].
+From what he could tell, market response had been positive. But the only way to truly understand the situation was to see it himself.
 
-"Seems clothing has a big relationship with a person's temperament." Li Shan finally decided: not pretending anymore, still comfortable wearing his own clothes.
+Originally, he had planned to blend in wearing Ming-style clothing. But after trying on a set, he felt uncomfortable. He tried several more outfits, and each made him feel like a monkey in a costume.
 
-For safety, and also to hear truth easier, he abandoned the exquisitely made "Senator Clothing," asking people to specially get a set of Blue Cloth "Work Clothes." This kind of clothes used coarse cotton cloth tailored, indigo dyed. It was the most common clothing among Naturalized Citizen employees. Generally, Naturalized Citizen cadres and employees with slight status wouldn't wear it. Counted as a kind of "Disguise and Change Dress."
+"It seems clothing has a great deal to do with a person's bearing," Li Shan concluded. He abandoned the pretense—his own clothes were more comfortable anyway.
 
-Li Shan looked at the loose blue cloth clothing like a flour sack in the mirror, couldn't help roasting a sentence: "Really Fucking ugly..."
+For safety, and to make it easier to hear honest opinions, he passed on the finely made "Senator's uniform" and had someone fetch a set of indigo-dyed work clothes made from coarse cotton cloth. This was the most common attire among Naturalized Citizen employees; any Naturalized Citizen cadre with even modest status wouldn't be caught dead in it. It would serve as a reasonable disguise.
 
-"Just person ugly." Zou Biao appeared from behind Li Shan, laughing, "Do you need to dress so simply? At least get a set of Cadre Suit to wear. Besides, your temperament, one look doesn't resemble a grassroots employee..."
+Li Shan examined the loose blue garment in the mirror—it hung on him like a flour sack. "This is hideous," he muttered.
 
-"Say no more, let's prepare to set off." Li Shan said, "We have to see exactly how much change this reality has compared to history."
+"It's not the clothes—it's the person wearing them." Zou Biao appeared behind him, laughing. "Do you really need to dress so plainly? At least wear a cadre suit. Besides, your bearing doesn't exactly scream 'grassroots worker.'"
 
-"Could it be you feel the Big Picture History Book is already invalid?" Zou Biao originally thought he just wanted to see market preparation situation; didn't expect such a big topic.
+"Enough. Let's go." Li Shan turned from the mirror. "I need to see for myself how much this reality has diverged from history."
 
-"I feel, although can't say invalid, our influence on this timeline is getting bigger and bigger. Many things have been changed. That, that... Butterfly Effect influence seems a bit big... People who should be alive died; people who should be dead are still alive. Variables here are too big. Just Sun Yuanhua being able to restore original post, Shandong's historical trend is already completely disconnected from history."
+"You think the historical record has become invalid?" Zou Biao raised an eyebrow. He had assumed Li Shan simply wanted to check on market preparations; he hadn't expected such a weighty topic.
 
-"This only proves our understanding of history is too superficial, only knowing to utilize short-time events for profit." Zou Biao laughed rarely loud, "In fact, short-time events have the smallest value. Do you think whether the one coming to encircle and suppress us is Xiong Wencan or Zhu Wencan, the one rebelling is Li Zicheng or Zhang Zicheng makes a difference to the Senate?"
+"I wouldn't say invalid, but our influence on this timeline grows larger by the day. Many things have already changed. The butterfly effect seems... significant. People who should be alive have died; people who should be dead still live. The variables are enormous. Just the fact that Sun Yuanhua was restored to his post means Shandong's historical trajectory has completely disconnected from what we knew."
 
-"Seems... no difference." No matter who led the army, facing the Senate's crushing advantage, there was no chance of winning.
+"That only proves our understanding of history was superficial—that we only knew how to exploit short-term events for profit." Zou Biao laughed, an unusually hearty sound from him. "In truth, short-term events have the least value. Do you think it matters to the Senate whether the one sent to suppress us is Xiong Wencan or Zhu Wencan? Whether the one rebelling is Li Zicheng or Zhang Zicheng?"
 
-"The most precious thing about history is the historical laws summarized from countless short-time events, just like the cotton textile industry you and I want to develop now. History won't tell you in detail which year cotton textile handicraft industry should go bankrupt, how many families bankrupt, but it will tell you the process of handicraft bankruptcy and its bankruptcy manifestations."
+"I suppose... it doesn't." No matter who led the opposing army, they stood no chance against the Senate's overwhelming advantage.
 
-"'Taking history as a mirror, can know rise and replacement.' Does history here refer to simple piling of historical events? Definitely not. The important thing is summing up laws from piled historical events, then applying such laws to development."
+"The most precious thing about history isn't the events themselves—it's the laws we can derive from countless such events. Take the cotton textile industry you and I are developing now. History won't tell us exactly which year the handicraft textile industry should collapse, or how many families will go bankrupt. But it will show us the process of that collapse and its characteristic manifestations."
 
-"Seems somewhat empty... Everyone knows bourgeois overthrowing feudal class, also knows laws like machine must replace manual. But what use is talking generally like this?"
+"'Using history as a mirror, one can understand the rise and fall of states.' Does 'history' here mean a simple accumulation of events? Of course not. What matters is distilling laws from those events, then applying those laws to our own development."
 
-"Because this law is summarized by others based on large amounts of historical events; it is others' historical theory. Putting it uglily, it is others chewing stuff then spitting out for you to eat. And your brain doesn't have as much historical fact reserve as them, naturally feeling empty."
+"That sounds rather abstract," Li Shan said. "Everyone knows the bourgeoisie overthrew the feudal class. Everyone knows machines must replace manual labor. But what good is stating such generalities?"
 
-"You speak so disgustingly..." Li Shan frowned.
+"Because those laws were summarized by others, based on vast amounts of historical evidence. It's other people's historical theory. To put it crudely, it's as if someone else chewed the food and spat it out for you to swallow. Your mind doesn't contain the same reservoir of historical facts as theirs, so naturally it feels empty and abstract."
 
-"Give an example: after Opium War, 'Industrial products impact caused fragile family small handcraftsmen to bankrupt' and 'Native cloth produced by family small handcraftsmen was very firm under impact, still selling well in market'—which sentence do you think is correct among these two?"
+"That's a revolting metaphor." Li Shan grimaced.
 
-These two sentences seemed to both appear in descriptions of economy after Opium War; existed in junior and high school history books. Some economic history books also wrote these two diametrically opposite contents.
+"Let me give you an example. After the Opium War, you'll find two claims: 'The impact of industrial products caused fragile family handicraftsmen to go bankrupt,' and 'Native cloth produced by family handicraftsmen proved resilient under the impact and continued selling well in the market.' Which of these two contradictory statements do you think is correct?"
+
+Both claims seemed to appear in descriptions of the post-Opium War economy; Li Shan vaguely remembered seeing them in junior high and high school history textbooks. Even some economic history books contained these diametrically opposed assertions.
 
 (End of Chapter)

@@ -1,137 +1,133 @@
 # Chapter 2594 - Investigation (Part 21)
 
-Yuan Shuzhi was in the accounts room courtyard watching ants on the move. The weather seemed about to change.
+Yuan Shuzhi stood in the accounts room courtyard, watching ants march across the flagstones. The weather was about to turn.
 
-These past few days, the ledgers being sent had noticeably decreased. Judging from the running account dates, the accumulated ledgers were almost finished.
+Over the past few days, the flow of ledgers had noticeably slowed. Judging by the dates in the running accounts, they were nearly caught up. Though he couldn't recall every entry he'd processed, the totals were burned into his memory: roughly two hundred thousand yuan across just two years of records.
 
-Though he couldn't memorize all the ledgers he'd done these days, he knew the totals clearly. From first to last, roughly two hundred thousand yuan—and the ledgers spanned only two years.
+It was a staggering sum. Yuan Shuzhi had never heard of any business—let alone one operating from such a modest shopfront—that could generate a hundred thousand yuan annually.
 
-This was truly a jaw-dropping business. Yuan Shuzhi had never heard of any business that could generate one hundred thousand yuan annually from such a small shop.
+The Senate's "miracle drugs" were powerful indeed.
 
-The Senate's "miracle drugs" were indeed powerful! Yuan Shuzhi thought.
+But as the ledgers drew closer to the present day, he knew his situation grew more perilous by the hour. Silencing witnesses, discarding the donkey once the grain was ground—even with Political Security watching the shop from outside, these people could simply poison his food and drink, sending him to meet his ancestors before anyone could intervene.
 
-But as the incoming ledgers grew more recent, he knew the situation ahead was becoming increasingly perilous.
+The more Yuan Shuzhi dwelt on it, the more certain he became that his life hung by a thread. Yet he dared not let it show. Each day he could only pace in circles, turning over escape plans in his mind.
 
-Killing to silence witnesses, discarding the donkey after grinding the grain... Even knowing Political Security was watching outside the shop, they might poison his food and drink, sending him straight to the afterlife. Political Security definitely couldn't rush in to save him in time.
+He hadn't found a solution, but he had lost considerable hair. This particular day, while observing the ants, a servant came to summon him. Manager Gao wished to see him.
 
-The more Yuan Shuzhi thought, the more he felt his life was in danger. But even so, he dared not show it. Every day he could only pace in circles, pondering escape plans.
+Yuan Shuzhi had no idea what this was about. He steeled himself and went.
 
-He hadn't come up with a solution, but had lost quite a bit of hair. This day, while watching the ants, a servant came to summon him—Manager Gao wanted to see him.
+At first, Manager Gao merely inquired after his daily comforts and praised the quality of his ledger work. The boss was very pleased—so pleased, in fact, that he was rewarding Yuan Shuzhi with twelve yuan.
 
-Yuan Shuzhi didn't know what this was about. He could only steel himself and go.
+"Please convey my deepest gratitude for the boss's generosity!" Yuan Shuzhi arranged his features into an expression of tearful appreciation.
 
-At first, Manager Gao just asked about his daily life and praised his excellent ledger work. The boss was very pleased and specially rewarding him with twelve yuan.
+"Your ledger work is exceptional, Mr. Shu. This money is well-deserved." Manager Gao waved dismissively. "However, the accounts here are nearly finished. My boss has several other properties requiring attention, so you'll need to relocate in a few days."
 
-"Thank you for the boss's generous gift!" Yuan Shuzhi put on a tearfully grateful expression.
-
-"Mr. Shu's ledger work is excellent. This money is well-deserved." Manager Gao waved his hand. "It's just that the ledgers here are nearly finished. My boss has several other properties whose accounts need clearing. So you'll need to relocate in a few days."
-
-Hearing this, Yuan Shuzhi felt thunderstruck. He was currently doing accounts at Jubao Tang—Lu Cheng and the others knew this. If they really moved him somewhere else, his whereabouts would be completely unknown.
+The words struck Yuan Shuzhi like a thunderbolt. He was currently working at Jubao Tang—Lu Cheng and the others knew this location. If they moved him elsewhere, his whereabouts would become completely unknown.
 
 ---
 
-Despite this, he could only feign composure: "May I ask where you're sending me..."
+Despite his alarm, he could only feign composure. "May I ask where I'll be sent?"
 
-"You'll know when the time comes. No need to ask more now." Manager Gao's words were cold as ice. "Mr. Shu, as long as you do the accounting well, there's plenty of money for you to earn. But don't ask questions you shouldn't. Saves trouble."
+"You'll know when the time comes. No need to ask questions now." Manager Gao's voice turned cold as ice. "Mr. Shu, as long as you do good work, there's plenty of money to be made. But don't ask what you shouldn't. Saves everyone trouble."
 
-"Yes, yes, I understand!" Yuan Shuzhi broke into cold sweat, thinking: My life is over!
+"Yes, yes, I understand!" Cold sweat broke out across Yuan Shuzhi's back. *This is it*, he thought. *I'm finished.*
 
-Back in his small courtyard residence, he wondered if he could scale the wall and escape. But the walls were like a well, with nothing to climb on any side. With his own weak, bookish build, hoping to scale the wall and escape was pure fantasy.
+Back in his small courtyard quarters, he considered whether he might scale the wall and escape. But the walls rose around him like the sides of a well—smooth surfaces offering no purchase. With his weak, bookish frame, any hope of climbing out was pure fantasy.
 
-What about rushing the door? The two burly men at the entrance alone were enough to block him.
+What about rushing the door? The two burly men stationed at the entrance could stop him without breaking a sweat.
 
-He secretly regretted why he'd ever come up with this lousy idea of "infiltrating the enemy." So far, he hadn't sent out a single piece of intelligence, yet was about to lose his life!
+He cursed himself for ever conceiving this wretched idea of "infiltrating the enemy." So far, he hadn't transmitted a single piece of intelligence, yet here he was about to lose his life.
 
-Now at others' mercy, Yuan Shuzhi couldn't resist. He could only appear compliant and take things one step at a time.
+Now completely at their mercy, Yuan Shuzhi had no choice but to appear compliant and take things one step at a time.
 
-Yuan Shuzhi remembered that Lu Cheng had agreed beforehand: if an emergency arose and he couldn't escape but needed rescue, he'd use purchasing items to send a distress signal. Specifically, having the servant buy him cigarettes.
+He remembered that Lu Cheng had arranged a signal beforehand: if an emergency arose and escape proved impossible but rescue was needed, Yuan Shuzhi would use purchases to send his message. Specifically, having a servant buy him cigarettes.
 
-Yuan Shuzhi had a smoking habit, so since arriving at Jubao Tang, every three or four days he'd send a servant to buy cigarettes. Per their agreement, he didn't stick to one brand but rotated through brands. If things became urgent, he'd have the servant buy "Holy Ship." Gold Holy Ship meant "crisis"; Red Holy Ship meant emergency rescue signal.
+Yuan Shuzhi was a habitual smoker, so since arriving at Jubao Tang, he'd been sending a servant to buy cigarettes every three or four days. Per their arrangement, he rotated through different brands. If circumstances became urgent, he'd request "Holy Ship" cigarettes—Gold Holy Ship for "crisis," Red Holy Ship for emergency rescue.
 
-But Yuan Shuzhi's signals were completely blocked. No matter what cigarettes he requested, the servant always brought White Holy Ships.
+But his signals were completely blocked. No matter what brand he requested, the servant invariably returned with White Holy Ships.
 
-After several more anxious days of waiting, one day he was loaded into a two-man sedan chair and carried away. Through pitch darkness, going up and down, he didn't know how far they traveled. When the sedan stopped and he emerged, dusk was falling. The sedan had stopped in a small courtyard. In the fading light, he could only see surrounding mountains on all sides—clearly deep in the mountains now.
+After several more agonizing days, they finally came for him. He was loaded into a two-man sedan chair and carried off into pitch darkness, ascending and descending through terrain he couldn't see or identify. He had no idea how far they traveled. When the sedan finally stopped and he emerged, dusk was falling. They had halted in a small courtyard, and in the fading light, he could make out mountains rising on all sides. He was deep in the wilderness now.
 
-Yuan Shuzhi steeled himself and descended from the sedan, being led to the main hall of the courtyard.
+Yuan Shuzhi braced himself, descended from the sedan, and allowed himself to be led into the main hall.
 
-The main hall was lit. Three men sat waiting.
+The hall was lit. Three men sat waiting.
 
-Though lit, all three men had their backs to the lamplight—their faces indistinct. From body shape, one appeared to be Manager Gao.
+Though lamps burned, all three had positioned themselves with their backs to the light—their faces obscured in shadow. From his build, one appeared to be Manager Gao.
 
-Indeed, Manager Gao spoke: "This is our master."
+Indeed, Manager Gao spoke first: "This is our master."
 
-This was Yuan Shuzhi's first time seeing Jubao Tang's owner. He knew from Lu Cheng that this establishment's owner was named Quan Youde.
+It was Yuan Shuzhi's first time meeting Jubao Tang's owner. He knew from Lu Cheng that the man's name was Quan Youde.
 
-He immediately bowed deeply: "Greetings, Master."
+He immediately swept into a deep bow. "Greetings, Master."
 
-"Sit. Have tea." Master Quan waved, indicating he should sit. Yuan Shuzhi quickly expressed thanks and sat down. Seeing the current situation didn't suggest immediate silencing, his heart slightly relaxed.
+"Sit. Have tea." Master Quan gestured to a chair. Yuan Shuzhi expressed his thanks and sat, noting that the atmosphere didn't suggest immediate silencing. His heart unclenched slightly.
 
-"Have you been comfortable here these days?"
+"Have you been comfortable these past few days?"
 
-"Reporting to Master, everything is well!"
+"Everything has been well, Master!"
 
-"I've reviewed your ledgers. Well done." Master Quan nodded. "I've been lacking someone who understands Australian accounting like you. May I ask where you learned this?"
+"I've reviewed your ledgers. Fine work." Master Quan nodded. "I've been lacking someone who understands Australian accounting methods like you do. Where did you learn?"
 
-Yuan Shuzhi quickly said: "The fiscal accounting training class run by Guangzhou Tax Bureau. I was in the ninth cohort."
+"The fiscal accounting training program run by the Guangzhou Tax Bureau," Yuan Shuzhi said quickly. "I was in the ninth cohort."
 
-"Oh? So you're of naturalized citizen background?"
+"Oh? So you're a naturalized citizen?"
 
-"Not at all, not at all." Yuan Shuzhi waved his hands. "I wanted to be one, but they wouldn't have me! Said I was too old!" He sighed. "Old and worthless!"
+"Not at all, not at all." Yuan Shuzhi waved his hands. "I wanted to be one, but they wouldn't have me! Said I was too old!" He sighed heavily. "Old and worthless!"
 
-"If not a naturalized citizen, how did you get into the Australians' school?"
+"If you're not a naturalized citizen, how did you gain admission to the Australians' school?"
 
-"Well, the training class lets you study as long as you pay yourself..." Yuan Shuzhi explained. "Many people there were sent by the bosses of various Guangzhou establishments. I was the same."
+"Well, the training program accepts anyone willing to pay tuition themselves..." Yuan Shuzhi explained. "Many of the students were sent by bosses of various Guangzhou establishments. I was the same."
 
-Quan Youde interrogated him more about his former employer's matters. Yuan Shuzhi answered fluently. Then questions about his earlier life—Yuan Shuzhi also described them roughly.
+Quan Youde pressed him further about his former employer. Yuan Shuzhi answered smoothly. Then came questions about his earlier life—Yuan Shuzhi provided suitably rough details.
 
-This interrogation actually gave Yuan Shuzhi hope. When he'd arrived at Jubao Tang, Manager Gao hadn't asked so thoroughly. If they really meant to silence him, such detail seemed unnecessary.
+The interrogation actually kindled hope in Yuan Shuzhi's chest. When he'd first arrived at Jubao Tang, Manager Gao hadn't questioned him so thoroughly. If they truly intended to silence him, why bother with such detail?
 
-After the interrogation, Quan Youde apparently found no issues. He glanced at the man seated deepest in the shadows. The other nodded slightly but said nothing.
+When the questioning concluded, Quan Youde apparently found nothing amiss. He glanced toward the man seated deepest in the shadows. The figure nodded slightly but remained silent.
 
-Quan Youde said: "The accounts you've done for me are very satisfactory. These ledgers were nearly finished. Originally, I'd planned to dismiss you once the ledgers were done..."
+"The accounts you've done for me are very satisfactory," Quan Youde said. "These ledgers were nearly finished. Originally, I'd planned to dismiss you once they were complete..."
 
-Yuan Shuzhi couldn't help shuddering at this.
+Yuan Shuzhi couldn't suppress a shudder.
 
-"...However, since you're familiar with Australian accounting, and we're in need of people now, I'm thinking of keeping you on to continue accounting. Are you willing?"
+"...However, since you're familiar with Australian accounting, and we currently need capable people, I'm considering keeping you on. Are you willing?"
 
-How could Yuan Shuzhi dare say no? He replied: "I'm alone and helpless in this world. Having a place to eat—how could I be unwilling?"
+How could Yuan Shuzhi possibly refuse? "I'm alone in this world with no one to rely on. To have a place where I can earn my keep—how could I be unwilling?"
 
-"Hehe, that's not how to put it." Quan Youde affected magnanimity. "Look at this first, then decide."
+"Hehe, that's not the right way to think about it." Quan Youde affected magnanimity. "Look at this first, then decide."
 
-With that, he gave an order. Soon Manager Gao brought a tray before him. Lifting the silk cloth covering it revealed glistening silver dollars—nearly blinding Yuan Shuzhi's eyes.
+He gave an order, and Manager Gao soon appeared bearing a tray. When the silk cloth was lifted, the gleam of silver dollars nearly blinded Yuan Shuzhi.
 
-"This..." He looked at Quan Youde in astonishment.
+"This..." He stared at Quan Youde in astonishment.
 
-"If you're determined to follow me, this tray of two hundred silver dollars is all yours. Plus thirty yuan monthly hereafter. In the future, perhaps endless wealth and glory too." Quan Youde said. "But I must also make clear: following me means doing business that risks beheading—extremely dangerous."
+"If you commit yourself to my service, this tray of two hundred silver dollars is yours. Plus thirty yuan monthly going forward. And in the future, perhaps endless wealth and glory." Quan Youde paused. "But I must be clear: working for me means engaging in business that risks beheading—extremely dangerous."
 
-"I—I don't understand..." Yuan Shuzhi's face showed shock and bewilderment—not entirely feigned. He'd originally thought he was investigating a fake drug case. He never expected such a huge case behind the fake drugs!
+"I—I don't understand..." Yuan Shuzhi's face showed shock and bewilderment—not entirely feigned. He'd originally thought he was investigating a counterfeit drug operation. He'd never expected to find something this massive lurking behind it.
 
-"Don't be afraid. We serve the Court. We're not bandits or robbers." Quan Youde said slowly. "If you're unwilling to take this risk, a sedan chair outside is ready to take you back to the medicine market. Inside are fifty yuan—consider it a parting gift for our time together. Only, never speak of this experience again."
+"Don't be afraid. We serve the Court. We're not bandits or robbers." Quan Youde spoke slowly. "If you're unwilling to accept this risk, a sedan chair outside is ready to take you back to the medicine market. Inside you'll find fifty yuan—consider it a parting gift for our time together. Only, you must never speak of this experience again."
 
-Anyone who wasn't a fool would know from Quan Youde's words that there was no second path before him. Yuan Shuzhi immediately said: "I'm willing to follow Master!"
+Anyone with half a brain could tell from Quan Youde's words that no second path existed. Yuan Shuzhi immediately declared: "I'm willing to follow you, Master!"
 
 "You're not afraid?"
 
-"Afraid of what?" Yuan Shuzhi said. "At this point, never mind other reasons—for this silver alone, I'm not afraid anymore."
+"Afraid of what?" Yuan Shuzhi said. "At this point, never mind other reasons—for this silver alone, I'd face anything."
 
-Quan Youde laughed heartily: "Good! I never expected Mr. Shu to be such a straightforward person!" With that, he clapped his hands. A servant brought wine.
+Quan Youde laughed heartily. "Good! I never expected Mr. Shu to be such a straightforward man!" He clapped his hands, and a servant appeared with wine.
 
-"I drink this wine with you. From now on, we're brothers—sharing life and death."
+"I drink this with you. From now on, we're brothers—sharing life and death."
 
-Yuan Shuzhi could only smile broadly and drink the wine.
+Yuan Shuzhi could only smile broadly and drain his cup.
 
-"Since we're brothers now, some things needn't be hidden from you." Quan Youde said. "I'm surnamed Quan, named Youde, Jubao Tang's owner. This is Daoist Mushi [Wooden Stone]. From now on, you'll work under him."
+"Since we're brothers now, there's no need to hide things from you." Quan Youde gestured around the room. "I'm Quan Youde, Jubao Tang's owner. And this is Daoist Mushi. From now on, you'll work under him."
 
-At this moment, the one called "Daoist Mushi" came into the lamplight. Yuan Shuzhi looked carefully and saw before him a person wearing a purple-sun Daoist cap, dressed in a blue-gray hemp Daoist robe, three wispy long whiskers cascading across his chest—an appearance of immortal transcendence. Yuan Shuzhi quickly paid respects.
+At this, the one called "Daoist Mushi" stepped into the lamplight. Yuan Shuzhi studied him carefully: a purple-sun Daoist cap, a blue-gray hemp Daoist robe, three wispy whiskers cascading down his chest—the very picture of immortal transcendence. Yuan Shuzhi quickly paid his respects.
 
-"No need for formalities." Daoist Mushi was kind and affable. "From now on, we're all family, all serving the Court."
+"No need for formalities." Daoist Mushi's manner was warm and affable. "From now on, we're all family, all serving the Court."
 
-"Yes, yes. I'll rely on the Daoist's guidance!" Yuan Shuzhi said. "Whatever you need from me, just command, Daoist. I'll go through fire and water without hesitation."
+"Yes, yes. I'll rely on the Daoist's guidance!" Yuan Shuzhi said. "Whatever you need from me, just give the word. I'll go through fire and water without hesitation."
 
-"Hehe, you jest, sir!" Daoist Mushi said. "At your age, how could I ask you to go through fire and water? But since you've joined, you must observe the rules here. Not that I'm harsh as a master—this is truly a beheading business. So under my command, for any rule-breaking, regardless of intention, there's only one chance. Do you understand?"
+"Hehe, you flatter me!" Daoist Mushi chuckled. "At your age, how could I ask such things? But since you've joined us, you must observe the rules here. It's not that I'm harsh—this is truly a beheading business. Under my command, any breach of the rules, regardless of intent, is allowed once. Only once. Do you understand?"
 
-"Yes, I understand!" Yuan Shuzhi hurried to say. "I've been down on my luck my whole life. Now that I have a chance to serve the Court and turn my fortune around, I absolutely won't break the Daoist's rules!"
+"Yes, I understand!" Yuan Shuzhi said quickly. "I've been down on my luck my whole life. Now that I have a chance to serve the Court and turn my fortune around, I absolutely won't break the Daoist's rules!"
 
-"In that case, you'll stay by my side from now on, specifically managing my accounts involving the Hairies." Daoist Mushi nodded. "Manager Gao, take him to his quarters to rest."
+"Very well. You'll stay by my side from now on, managing my accounts with the Hairies." Daoist Mushi nodded toward the door. "Manager Gao, take him to his quarters to rest."
 
 **(End of Chapter)**

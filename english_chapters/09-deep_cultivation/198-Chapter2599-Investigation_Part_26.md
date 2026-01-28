@@ -1,93 +1,93 @@
 # Chapter 2599: Investigation (26)
 
-Quan Youde catered to his preferences. Shortly after they became sworn brothers, he procured a gentle and pleasant young woman for him, who was said to possess an "appearance suitable for bearing sons."
+Quan Youde knew how to cater to a man's weaknesses. Shortly after they became sworn brothers, he arranged for Lu Renjia to meet a gentle, agreeable young woman—one with "the look of a son-bearer," as they said.
 
-Under the influence of wine and lust, Lu Renjia quickly succumbed. Not long after, the woman became pregnant and gave birth to a boy.
+Wine and lust proved a potent combination. Lu Renjia succumbed quickly, and before long, the woman was pregnant. She gave him a boy.
 
-The birth of his son seemed to give Lu Renjia the courage to resolve to "do big things." What was originally secretive and small-scale now became brazen. Lu Renjia began cooperating with Quan Youde with an almost insane vigor, stealing large quantities of publicly funded drugs.
+The birth of his son seemed to ignite something in Lu Renjia—a reckless courage, a determination to "do big things." What had once been furtive and small-scale now turned brazen. He threw himself into his partnership with Quan Youde with near-manic intensity, stealing publicly funded drugs in ever-larger quantities.
 
-The steady stream of stolen publicly funded drugs turned into shining silver dollars. In just one year, the net income Quan Youde distributed to him exceeded twenty thousand yuan. This was money he wouldn't earn in a lifetime working for the Senate.
+The steady flow of stolen pharmaceuticals transformed into shining silver dollars. Within a single year, Quan Youde distributed over twenty thousand yuan to him—more money than he could have earned in a lifetime working for the Senate.
 
-Such huge profits made Lu Renjia even more energetic; he wanted to earn enough money for his son to spend for a lifetime.
+Such staggering profits only fueled Lu Renjia's greed. He wanted to amass enough wealth to last his son a lifetime.
 
-Lu Renjia steadfastly refused to reveal the whereabouts of these illegal gains and his mistress and son. However, after several days and nights of interrogation, he finally confessed. The woman and child were in Macau. As for the nearly thirty thousand yuan in illicit money, he had the woman buy bonds and stocks of the Nanyang Company in his son's name.
+For days, Lu Renjia refused to reveal where he had hidden his illicit gains, or the whereabouts of his mistress and child. But after several sleepless nights of interrogation, he finally broke. The woman and boy were in Macau. As for the nearly thirty thousand yuan in dirty money, he had instructed her to purchase bonds and stocks in the Nanyang Company under their son's name.
 
-Wu Mu found this confession somewhat tragically amusing. It seemed the Senate's naturalized cadres were keeping up with the times, no longer burying embezzled money underground or bricking it up in double walls.
+Wu Mu found this confession grimly amusing. It seemed the Senate's naturalized cadres were keeping up with the times—no longer burying embezzled fortunes underground or bricking them up inside double walls.
 
 "Should we bring his woman and child back to Guangzhou?" Zheng Mingjiang asked.
 
-"Not for now. First, they aren't criminals, at most involved persons. Second, Lu Renjia is very smart; he probably has a backup plan. He knows our policies very well and knows we won't make things difficult for women and young children. So he might have other arrangements for them. These thirty thousand in bonds and stocks are in the open; there are probably hidden assets too. He intends to let them access it after the storm blows over. So we don't need to rush to deal with them; let's wait for this hidden line to surface."
+"Not yet. First, they're not criminals—at most, involved parties. Second, Lu Renjia is clever. He almost certainly has a backup plan." Wu Mu paused. "He knows our policies inside and out. He knows we won't make things difficult for women and young children. So he's probably made other arrangements for them. Those thirty thousand in bonds and stocks are the obvious assets—there are likely hidden ones too. He's counting on them accessing it after the storm blows over. No need to rush. Let's wait for this hidden thread to surface."
 
-"You really think so?!" Zheng Mingjiang was surprised. "Would he think in such detail?"
+"You really think so?" Zheng Mingjiang looked surprised. "Would he think that far ahead?"
 
-"Hehe, you don't understand the psychology of these people." Wu Mu waved his hand. "No matter which timeline, corrupt elements are people with a strong sense of crisis. Why do they accumulate wealth so frantically? They clearly know that once things are exposed, they will face imprisonment or even death, yet isn't what they seek 'sacrifice one person for the happiness of the whole family'? Some even want to 'benefit descendants.' So he will do everything possible to hide this money obtained through untold hardships, leaving it for his family and descendants."
+"Heh. You don't understand how these people's minds work." Wu Mu waved dismissively. "In any timeline, corrupt officials are people with a keen sense of crisis. Why else would they hoard wealth so frantically? They know perfectly well that exposure means imprisonment or death—yet they still pursue what they call 'sacrificing one person for the family's happiness.' Some even dream of 'benefiting future generations.' So they'll do everything in their power to hide money obtained through such hardship, squirreling it away for family and descendants."
 
-Zheng Mingjiang was speechless. After a moment, she murmured, "I feel a bit pity for them now..."
+Zheng Mingjiang fell silent. After a moment, she murmured, "I almost feel sorry for them now..."
 
-"Are the ones truly to be pitied not Lu Renjia's wife and daughters?" Wu Mu sneered. "Lu Renjia arranged nothing for them."
+"Aren't the ones truly deserving of pity Lu Renjia's wife and daughters?" Wu Mu's voice turned cold. "He arranged nothing for them."
 
-Instantly, Lu Renjia turned back into a heinous "scum" in Zheng Mingjiang's eyes. She responded with considerable disgust, "Right! We absolutely cannot let this mistress and illegitimate child have an easy life!"
+Just like that, Lu Renjia transformed back into a despicable wretch in Zheng Mingjiang's eyes. She responded with palpable disgust: "You're right. We absolutely cannot let this mistress and bastard child live comfortably!"
 
-"They won't have it easy. But we aren't having it much better right now," Wu Mu said. "Lu Cheng sent a telegram. Yesterday they raided the Jubao Hall—as expected, they found nothing. They only caught a few unimportant shop assistants; account books and registers were not found. Even the one sent undercover..."
+"They won't. But we're not having an easy time of it either." Wu Mu's expression darkened. "Lu Cheng sent a telegram. Yesterday they raided the Jubao Hall—as expected, they found nothing. Just a few unimportant shop assistants. No account books, no registers. Even the undercover agent..."
 
 "Yuan Shuzhi."
 
-"Yes, Yuan Shuzhi is missing too. It's very likely he was taken away by them..."
+"Yes. Yuan Shuzhi is missing too. Most likely they took him with them."
 
-Zheng Mingjiang suddenly became tense. "Could he have been silenced because his identity was exposed?"
+Zheng Mingjiang tensed. "Could his identity have been exposed? Could they have silenced him?"
 
-Yuan Shuzhi participated in this operation on her recommendation and assignment. If he died in the line of duty because of this, her conscience would be truly uneasy.
+Yuan Shuzhi had joined this operation on her recommendation. If he had died in the line of duty because of her decision, she would never forgive herself.
 
-"It's possible, but if they really wanted to silence him, they didn't need to take him out to do it. They could have just killed him directly at the Jubao Hall. Why go to the trouble? Anyway, Quan Youde can't appear in the medicine market again." Wu Mu said, "I tend to think that because he mastered some important secrets, Quan Youde took him along. He should be with Quan Youde's gang now, hiding somewhere. I've already notified the police department and issued arrest warrants for Quan Youde and others, including Yuan Shuzhi on the list."
+"It's possible," Wu Mu acknowledged. "But if they truly wanted to silence him, why go to the trouble of taking him elsewhere? They could have killed him right there at the Jubao Hall. No—I suspect he learned something important, and Quan Youde decided to keep him close. He's probably with Quan Youde's gang now, hiding somewhere. I've already notified the police department and issued arrest warrants for Quan Youde and his associates. Yuan Shuzhi is on the list as well."
 
 "Where would they hide?"
 
-According to Lu Cheng's inference, Quan Youde was likely hiding at the farm estate. Although the investigation team found the approximate location of the estate by checking the transaction deeds archived in the county yamen, because it was located deep in remote mountains, no one locally knew the approximate path upon inquiry.
+According to Lu Cheng's assessment, Quan Youde was most likely holed up at his farm estate. The investigation team had located its approximate position by examining transaction deeds archived at the county yamen, but the property lay deep in remote mountains. Local inquiries yielded nothing—no one knew the path.
 
-"It's useless for us to be anxious about this matter; we can only wait for news from Lu Cheng and the others," Wu Mu said. "Quan Youde's gang can't run far; it's extremely likely they are still within Boluo County. He wouldn't dare run casually into the deep mountains either; there are still quite a few Yao mountain strongholds in the Boluo mountains that haven't been naturalized."
+"There's nothing we can do from here except wait for news from Lu Cheng and his team," Wu Mu said. "Quan Youde's gang can't have gone far. They're almost certainly still within Boluo County. He wouldn't dare venture deep into the mountains either—there are still un-naturalized Yao strongholds scattered throughout the Boluo range."
 
-While they were talking, the communicator brought another telegram sent by the Boluo investigation team.
+As they spoke, a communicator arrived with another telegram from the Boluo investigation team.
 
-"There's a new lead in the androgen case." Wu Mu glanced at it and handed the telegram to Zheng Mingjiang. "They didn't catch the Southeast Asian man, but they caught the midwife."
+"New lead in the androgen case." Wu Mu scanned it briefly before handing it to Zheng Mingjiang. "They didn't catch the Southeast Asian man, but they caught the midwife."
 
-Zheng Mingjiang hurriedly took the telegram. The text was very long. After raiding the Jubao Hall and Quan Youde's two residences in Boluo, the investigation team commanded the Boluo police and the National Army to conduct a comprehensive "security check" of the medicine market.
+Zheng Mingjiang snatched the telegram eagerly. The message was lengthy. After raiding the Jubao Hall and both of Quan Youde's residences in Boluo, the investigation team had ordered the local police and National Army to conduct a comprehensive "security check" of the medicine market.
 
-During this security check, they unexpectedly captured the fleeing midwife who sold "gender-changing medicine." According to her confession, she came to Boluo to restock. After buying goods from the Southeast Asian man, she received news that something happened with the gender-changing medicine and the police were catching her, so she stayed in the medicine market to hide.
+During the sweep, they had unexpectedly captured the fleeing midwife who had been peddling "gender-changing medicine." According to her confession, she had come to Boluo to restock. After purchasing goods from the Southeast Asian man, she learned that problems had emerged with the gender-changing medicine and that police were looking for her. She had been hiding in the medicine market ever since.
 
-The investigation team carefully searched the midwife's residence. But the harvest wasn't much. They didn't find the packaging similar to the testosterone gel used in clinical trials or retail that Hao Long had specifically instructed to look for in his letter, including outer packaging boxes, glass jars containing gel, and copper dosing pump heads for squeezing out gel. They only found strong white spirits, various jars and pots, and some Chinese medicinal materials. This meant that the "Sorceress" had performed secondary blending of the "aphrodisiac wine" here, but this wasn't the primary processing site.
+The team thoroughly searched her residence, but the results were disappointing. They found none of the packaging Hao Long had specifically mentioned in his letter—no outer boxes, no glass jars for the testosterone gel, no copper dosing pumps. Only strong white spirits, various jars and pots, and an assortment of Chinese medicinal materials. This meant the "Sorceress" had performed secondary blending of the "aphrodisiac wine" here, but this wasn't the primary processing site.
 
-The midwife also confessed that the Southeast Asian man didn't say this stuff could "change the gender of a fetus," only that it could "strengthen *yang*." She later heard that this Southeast Asian man was a eunuch yet could surprisingly visit prostitutes. So she had a different idea. She thought that since this medicine could make a eunuch "regain *yang*," if used on a pregnant woman, wouldn't it turn a female fetus into a male one?
+The midwife also confessed that the Southeast Asian man had never claimed his product could "change the gender of a fetus"—only that it could "strengthen *yang*." She had later heard rumors that this Southeast Asian man was a eunuch who could somehow still visit prostitutes. That gave her an idea. If this medicine could make a eunuch "regain his *yang*," surely using it on a pregnant woman could transform a female fetus into a male one?
 
-As a midwife, she knew the huge market demand for this all too well. She immediately bought two bottles of medicinal wine from this Southeast Asian man. Because the medicinal wine was very expensive, she bought white spirits herself to dilute and re-blend it.
+As a midwife, she understood the enormous market demand for such a miracle all too well. She immediately purchased two bottles of medicinal wine from him. Because the wine was expensive, she bought white spirits to dilute and re-blend it herself.
 
-They didn't get any important clues from the midwife's mouth, only knowing that this Southeast Asian man spoke broken Hokkien and could also speak a few sentences of "New Speech."
+Beyond this, the midwife offered no important clues—only that the Southeast Asian man spoke broken Hokkien and could manage a few sentences of "New Speech."
 
-"No new breakthroughs," Zheng Mingjiang put down the telegram, saying somewhat disappointedly.
+"No real breakthrough," Zheng Mingjiang said, setting down the telegram with evident disappointment.
 
-With Lu Renjia brought to justice, the drug loss case was basically cleared up. But Zheng Mingjiang was still uneasy about the "gender-changing medicine" and "aphrodisiac" case.
+With Lu Renjia's arrest, the drug loss case was essentially solved. But Zheng Mingjiang remained unsettled by the "gender-changing medicine" and "aphrodisiac" angle.
 
-Although in terms of case value, the loss of androgen could only be considered a minor case in this series of drug cases, there were many inexplicable aspects to it.
+In terms of case value, the androgen loss was a minor thread in this larger web of pharmaceutical crimes. Yet something about it nagged at her. Where had this Southeast Asian man come from? How did he obtain the androgen? And how did he know the correct way to use it?
 
-Where did this Southeast Asian man come from? Where did he get the androgen? Why did he know how to use this drug correctly...
+These unresolved mysteries hardened her determination to uncover the truth.
 
-Various unsolved mysteries made Zheng Mingjiang determined to uncover the truth of the matter.
+Back in her office, she continued puzzling over investigative approaches. Since sales of the gender-changing medicine had begun as early as six months ago, that timeline effectively ruled out most potential suspects in the drug leakage. Only three main possibilities remained:
 
-Returning to her office, she continued to think about the direction of the investigation. Since it was confirmed that the sales of the gender-changing medicine began as early as half a year ago, that effectively excluded most suspects who might have been involved in drug leakage. Only three main targets remained:
+First, the Pharmaceutical Factory itself. Currently, this seemed least likely. Every drug loss case they had uncovered so far had no connection to the factory. She could essentially rule this out.
 
-1.  Inside the Pharmaceutical Factory. Looking at it currently, this possiblity was the smallest. All drug loss cases seized so far had nothing to do with the Pharmaceutical Factory. This one could be basically ruled out.
-2.  Inside the Bairen General Hospital. Indeed, apart from the Pharmaceutical Factory, testosterone gel was only available in the pharmacy of the Bairen General Hospital. But if it leaked from the Bairen General Hospital, other drugs leaking from there would likely be more numerous. How could it be discovered only now?
-3.  Test subjects in clinical trials. This was Zheng Mingjiang's current key suspect target. But she had asked Hao Long, who said that the drug clinical trials had long ended, and many test subjects had lost contact. Some who were easy to find had been checked by Political Security without showing abnormalities, while most of the rest either found the drug too expensive or too troublesome to use, or were even unwilling to continue paying for drugs at the Bairen General Hospital. How to investigate this further?
+Second, the Bairen General Hospital. Apart from the factory, the hospital pharmacy was the only place that stocked testosterone gel. But if drugs were leaking from there, other medications would surely have gone missing too. Why would they only be discovering it now?
 
-Hao Long now promised to provide a complete list of test subjects, but after sorting it out, it had to be handed over to the Political Security system for investigation, which wouldn't yield results for two or three months.
+Third, the clinical trial subjects. This was Zheng Mingjiang's primary focus. But she had already consulted Hao Long, who explained that the drug trials had ended long ago. Many test subjects had since lost contact. Those who were easy to locate had been checked by Political Security without raising any red flags. Most of the remaining subjects had either found the drug too expensive or too inconvenient to use, or were simply unwilling to keep paying for medication at the hospital. How could she investigate further down this avenue?
 
-Then, the only way was still to investigate within the Bairen General Hospital. After all, the clinical trials and drug distribution were conducted there.
+Hao Long had promised to provide a complete list of test subjects, but once compiled, it would have to go through Political Security's investigation process—a delay of two or three months at minimum.
 
-Currently, their main methods for auditing medical records and pharmacy accounts, besides cleaning up "external hospital prescriptions," were to check whether the quantity of drugs prescribed in medical records within a period of time matched the actual quantity of drugs leaving the pharmacy, and then checking the medical records themselves for suspicious points, such as prescribing far more drugs than normal usage at one time. There was also looking for any patients who regularly registered to see the same disease repeatedly, using this to collude internally and externally to steal drugs.
+That left only one viable path: investigating within the Bairen General Hospital itself. After all, both the clinical trials and drug distribution had been conducted there.
 
-However, such investigation ideas couldn't be used to investigate the Bairen General Hospital and the test subjects at all: experimental drugs were distributed to test subjects at fixed times and quantities; there was no issue of patients registering on their own.
+Currently, their standard methods for auditing medical records and pharmacy accounts—beyond cleaning up "external hospital prescriptions"—involved checking whether the quantity of drugs prescribed over a given period matched the actual quantity dispensed, then scrutinizing medical records for suspicious patterns. Prescriptions for abnormally large quantities at once. Patients who repeatedly registered to see doctors for the same condition, potentially colluding with staff to siphon drugs.
 
-Zheng Mingjiang mulled over this problem repeatedly, troubleshooting all known cheating methods, but still couldn't reach any specific conclusion.
+But none of these approaches applied to the Bairen General Hospital or its test subjects. Experimental drugs were distributed at fixed times in fixed quantities. There was no patient registration system to exploit.
 
-That night, she had a dream where she returned to the time she submitted a paper to a journal for the first time as a student, reliving the oppressive feeling of being urged by both reviewers and her supervisor, and woke up with a start. After clearing her head a bit, she remembered that she had left the research environment of the old timeline for ten years. Now, while she had become an "academic authority," she still adhered to her principle of treating students and subordinates in a friendly manner.
+Zheng Mingjiang turned the problem over and over in her mind, mentally running through every known method of fraud, but she couldn't reach any concrete conclusion.
+
+That night, she dreamed she was back in the old timeline—a student again, submitting her first paper to a journal. She relived the crushing pressure of reviewers and her supervisor bearing down on her, and jolted awake. As her mind cleared, she remembered: she had left that academic world ten years ago. Now, though she had become something of an "authority" herself, she still held fast to her principle of treating students and subordinates with genuine kindness.
 
 **(End of Chapter)**

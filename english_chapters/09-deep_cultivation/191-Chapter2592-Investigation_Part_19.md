@@ -1,107 +1,107 @@
 # Chapter 2592 - Investigation (Part 19)
 
-As for why this gang desperately plucked wool from Provincial-Hong Kong General Hospital, the reasons were easy to guess. It had the highest patient volume, the most drug usage, and crucially the highest number of naturalized citizen employee patients. Only here could the trick of using fake prescriptions to extract publicly-funded medical drugs be employed. The more numerous and scattered civilian medical institutions had very few naturalized citizen employee patients—extracting drugs there was very inconvenient. This drove the criminals to focus on Provincial-Hong Kong General Hospital.
+The gang's obsession with Provincial-Hong Kong General Hospital was easy enough to understand. It boasted the highest patient volume, the greatest drug consumption, and—most critically—the largest concentration of naturalized citizen employees. Only here could the scheme of using forged prescriptions to siphon publicly-funded medications truly flourish. The scattered civilian clinics had too few naturalized citizen patients; extracting drugs there would be cumbersome and inefficient. So the criminals had zeroed in on Provincial-Hong Kong General Hospital like moths to a flame.
 
-If extended further, Lingao General Hospital and Joint Logistics' subordinate Army and Navy hospitals and Joint Logistics General Hospital were all major users of "publicly-funded medical" drugs. Their loopholes probably weren't small either.
+By extension, Lingao General Hospital and Joint Logistics' subordinate facilities—the Army Hospital, the Navy Hospital, and Joint Logistics General Hospital—were all major consumers of publicly-funded medications. Their vulnerabilities were likely just as severe.
 
-"Getting prescriptions from private institutions, then extracting drugs from public hospitals—brilliant! Truly brilliant!" Zheng Mingjiang thought. "Apparently, publicly-funded drug prescriptions need to be separated from self-pay drug prescriptions in the future. That would basically plug the prescription loophole."
+*Obtaining prescriptions from private institutions, then extracting drugs from public hospitals—brilliant,* Zheng Mingjiang mused. *In the future, publicly-funded prescriptions will need to be separated from self-pay prescriptions. That alone would plug the prescription loophole.*
 
-But that was for later. The immediate priority was plugging the Provincial-Hong Kong hole.
+But that was a problem for later. Right now, sealing the Provincial-Hong Kong breach took priority.
 
-Additionally, during the joint investigation, they discovered some other forms of parasites. Outside Provincial-Hong Kong Hospital's main gate, even in hospital restrooms, there were advertisements for buying drugs. Seeing such advertisements exist, Zheng Mingjiang knew some naturalized citizen employees were certainly exploiting their "publicly-funded medical" benefits, extracting drugs at the hospital to resell to medicine peddlers.
+The joint investigation also uncovered other parasites feeding on the system. Outside Provincial-Hong Kong Hospital's main gate—even in its restrooms—advertisements appeared offering to buy medications. The mere existence of such ads told Zheng Mingjiang that some naturalized citizen employees were exploiting their publicly-funded benefits, extracting drugs from the hospital pharmacy and reselling them to medicine peddlers.
 
-Though timelines differed, wherever arbitrage space existed, people would naturally think of ways to profit.
+Though the timelines differed, the principle remained eternal: wherever arbitrage opportunities existed, people would find ways to profit.
 
 ---
 
-Knowing the drug extraction tricks, Zheng Mingjiang immediately transferred the relevant leads to Wu Mu. After a secret investigation, the investigation team quickly drafted a list of involved persons.
+Once Zheng Mingjiang understood the drug extraction schemes, she immediately forwarded the leads to Wu Mu. After a covert investigation, the team quickly compiled a list of those involved.
 
-Wu Mu drew a sharp breath after reading it: "If we arrest people according to this list, Provincial-Hong Kong General Hospital will have to close."
+Wu Mu drew a sharp breath when he finished reading it. "If we arrest everyone on this list, Provincial-Hong Kong General Hospital will have to shut its doors."
 
-The list of those merely involved in illegal drug extraction—naturalized citizen doctors, nurses, pharmacists, clerks... added up to a full third of Provincial-Hong Kong General Hospital's staff. And this was only those directly involved in drug leakage. If you added dereliction of duty as a charge, probably half the entire hospital couldn't escape responsibility.
+The names of those directly involved in illegal drug extraction—naturalized citizen doctors, nurses, pharmacists, clerks—added up to a full third of Provincial-Hong Kong General Hospital's staff. And these were only those with hands directly in the cookie jar. If dereliction of duty were added as a charge, probably half the hospital couldn't escape responsibility.
 
-Even the Ten-Person Team members planted inside the hospital were "completely wiped out." Of five informants, only one had submitted a relevant report.
+Even the Ten-Person Team's informants planted inside the hospital had been "completely wiped out." Of five agents, only one had submitted a relevant report.
 
-If you then listed those who'd used their cadre-employee status to have doctors write false prescriptions, sporadically extracting publicly-funded medical drugs for resale to peddlers—quite a few among all Guangzhou's naturalized citizen cadres and employees would be implicated.
+Factor in those who had leveraged their cadre-employee status to obtain false prescriptions, sporadically extracting publicly-funded drugs for resale—and a significant portion of naturalized citizen cadres and employees across all of Guangzhou would be implicated.
 
-"I think overly harsh measures probably aren't appropriate." Wu Mu told Zheng Mingjiang. "Naturalized citizens in the health system are very difficult to train. They're all valuable assets of the Senate. My view is: except for a few masterminds, most can be reminded through conversations, have them confess and return illegal gains, rather than formally arresting and prosecuting."
+"Excessively harsh measures would be inadvisable," Wu Mu told Zheng Mingjiang. "Naturalized citizens in the health system take years to train. They're valuable assets of the Senate. My recommendation: aside from a handful of ringleaders, most should be addressed through private conversations. Have them confess and return their illegal gains rather than face formal arrest and prosecution."
 
-Though Zheng Mingjiang was reluctant, she had to admit Wu Mu's suggestion was correct. If they truly implemented a "thorough investigation" policy, Provincial-Hong Kong General Hospital could only close. If this storm then swept to Lingao General Hospital, Joint Logistics' Army Hospital and Navy Hospital...
+Though reluctant, Zheng Mingjiang had to admit Wu Mu was right. A truly "thorough investigation" would force Provincial-Hong Kong General Hospital to close. And if that storm then swept through Lingao General Hospital, Joint Logistics' Army and Navy Hospitals...
 
-She didn't dare imagine the subsequent scenes—they'd be too beautiful to look at directly.
+She didn't dare imagine the aftermath—it would be catastrophic.
 
-"My personal view is the 'thorough investigation' policy remains unchanged." Zheng Mingjiang weighed things carefully. "Where there are problems, investigate each one. But personnel handling will follow Political Security's opinion. Only prosecute masterminds; warn others and have them return illegal gains—that's it. Our future related actions will also follow this principle. Please inform Director Zhao for me..."
+"My position is that the 'thorough investigation' policy remains unchanged," Zheng Mingjiang said after careful deliberation. "Where problems exist, we investigate them all. However, personnel handling will follow Political Security's guidance. Prosecute only the ringleaders; warn the rest and require them to return illegal gains. Our future operations will adhere to this principle. Please inform Director Zhao on my behalf..."
 
-Though Political Security hadn't yet acted, Cheka's high-profile "audit" pressure was transmitted down to the endpoints as Zheng Mingjiang hoped.
+Though Political Security had yet to act, the pressure from Cheka's high-profile "audit" transmitted down through the system exactly as Zheng Mingjiang had intended.
 
-At the investigation team's routine meeting in Boluo county, everyone was consolidating their intelligence and analyzing the latest case developments.
+At the investigation team's routine meeting in Boluo County, everyone was consolidating intelligence and analyzing the latest developments.
 
-"Recently He Jun has become increasingly secretive, often going out alone. When at the shop, he's always sighing, drinking alone, becoming indifferent to business." Zheng Xiaoyu reported. "The cleanup launched in Guangzhou should already be putting pressure on this chain."
+"He Jun has grown increasingly secretive lately," Zheng Xiaoyu reported. "He goes out alone more often. When he's at the shop, he sighs constantly, drinks by himself, and seems indifferent to the business. The cleanup launched in Guangzhou must be putting pressure on this network."
 
-"He Jun isn't alone. We've recently observed many implicated persons throughout Huizhou becoming suspiciously active—frequent private meetings, often moving about even at midnight. And based on surveillance of pawnshops and money houses, their financial situation may not be good either."
+"He Jun isn't the only one. We've observed many implicated persons throughout Huizhou acting suspiciously—holding frequent private meetings, moving about even at midnight. And based on our surveillance of pawnshops and money houses, their finances appear strained."
 
-"Not only that—internal conflicts have erupted among them, even triggering public security incidents. But they're tight-lipped about the conflict's cause."
+"There's more. Internal conflicts have erupted among them, even triggering public security incidents. But they're keeping tight-lipped about the cause."
 
-"Also, Lushi Powder's price seems to have risen, though the price increases aren't uniform."
+"Also, Lushi Powder prices seem to be climbing, though the increases aren't uniform."
 
 ...
 
-Synthesizing everyone's information, Lu Cheng judged that because Elder Zheng had taken action at the source, the previously unobstructed supply channel now had problems. Clear signs of insufficient supply and funding chain breakage had appeared.
+Synthesizing everyone's intelligence, Lu Cheng concluded that Elder Zheng's actions at the source had disrupted what had been a smooth supply channel. Clear signs of shortage and financial strain had emerged.
 
-Because the source no longer released drugs, Jubao Tang's drug supply had also encountered difficulties. Multiple instances had occurred of peddlers coming to pick up goods but getting nothing or only partial shipments. This had caused multiple conflicts—even one peddler mysteriously dying in an alley.
+With the source no longer releasing drugs, Jubao Tang's supply had also hit difficulties. There had been multiple instances of peddlers arriving for pickups only to leave empty-handed or with partial orders. This had sparked numerous conflicts—including one peddler who mysteriously turned up dead in an alley.
 
-According to intelligence from the turned Peddler Qian, Jubao Tang's purchasing rules originally required cash on delivery. Later, as drugs became scarce, it changed to pre-ordering with deposits. Then it became full prepayment required before pickup.
+According to intelligence from the turned Peddler Qian, Jubao Tang's original purchasing rules required cash on delivery. As drugs grew scarce, that changed to pre-ordering with deposits. Then it became full prepayment before pickup.
 
-Previously, goods could be picked up three to five days after payment, at most eight or nine days. Now some peddlers had waited over ten days after payment without receiving goods.
+Previously, goods arrived within three to five days of payment—nine days at worst. Now some peddlers had waited over ten days after paying and still received nothing.
 
-Peddlers all ran small operations, some with borrowed capital, relying on quick turnover for fast money. Now their capital was tied up at Jubao Tang with no drugs coming out. Dozens of peddlers truly couldn't wait any longer. Some went seeking explanations, but Jubao Tang wouldn't refund and couldn't promise specific delivery dates. Thus conflicts arose, with police called in to maintain order.
+These peddlers all ran small operations, some with borrowed capital, relying on quick turnover for fast profits. With their money tied up at Jubao Tang and no drugs forthcoming, dozens found themselves in desperate straits. Some demanded explanations, but Jubao Tang refused refunds and couldn't promise delivery dates. Conflicts erupted, and police were called to maintain order.
 
-Fortunately, the peddlers all knew what was important, knowing they were doing shady business. They didn't reveal the drug trafficking, only claiming economic disputes—so police didn't investigate further.
+Fortunately, the peddlers knew better than to expose themselves. Aware they were engaged in illicit trade, they claimed only economic disputes—so the police investigated no further.
 
-But this situation didn't prompt Jubao Tang to speed up deliveries. Instead, delays worsened. By now, the longest delay was nearly twenty days.
+But this situation didn't prompt Jubao Tang to accelerate deliveries. If anything, delays worsened. By now, the longest wait had stretched to nearly twenty days.
 
-"...The peddlers are all discussing how to handle this."
+"...The peddlers are all discussing what to do."
 
-"Have you reached any conclusions?"
+"Have they reached any conclusions?"
 
-"Everyone has their own opinion—there's no conclusion." Peddler Qian said helplessly. "My few dozen yuan are stuck in there. Still no goods!"
+"Everyone has their own opinion—no consensus," Peddler Qian said helplessly. "My own few dozen yuan are stuck in there. Still nothing!"
 
-After dismissing Peddler Qian, team members reported to Lu Cheng that though Jubao Tang couldn't deliver goods, they were active behind the scenes. According to their surveillance results and intelligence Yuan Shuzhi had managed to transmit from inside, Quan Youde's orders to Wanchun Quan hadn't decreased.
+After dismissing Peddler Qian, team members reported to Lu Cheng that despite Jubao Tang's inability to deliver goods, they remained active behind the scenes. According to surveillance results and intelligence Yuan Shuzhi had managed to transmit from inside, Quan Youde's orders to Wanchun Quan hadn't decreased at all.
 
-Without Australian drug sources, yet still ordering large quantities of "Lushi Powder"—this was strange. Without pharmaceutical factory drugs, what use was just Lushi Powder?
+No Australian drug sources, yet still ordering large quantities of Lushi Powder—something didn't add up. Without pharmaceutical factory drugs, what use was the powder alone?
 
-"I think there are two possibilities." Lu Cheng analyzed. "One is they judge the supply cutoff is temporary. To prepare for the huge quantities needed once supply resumes, they're taking precautionary measures. The second possibility is that this business is nearly finished, and they're bulk-purchasing Lushi Powder to make one last profit with fake goods."
+"Two possibilities," Lu Cheng analyzed. "First, they believe the supply disruption is temporary. They're stockpiling Lushi Powder now so they're ready when shipments resume. Second, this operation is winding down, and they're bulk-purchasing Lushi Powder to make one last score with counterfeit product."
 
-"Too bad we can't contact Yuan Shuzhi. Otherwise, we might get more information..."
+"A pity we can't contact Yuan Shuzhi. We might learn more..."
 
-"No, contacting him isn't hard." Lu Cheng smiled. "Aren't we auditing accounts in Boluo county? Perfect—have county Tax Bureau colleagues go to the medicine market with notice saying we're randomly selecting ten shops, requiring accountants to bring ledgers for inspection. Then we can close the door and have a detailed talk with Old Yuan—ask whatever you want."
+"Actually, contacting him isn't difficult." Lu Cheng smiled. "Aren't we auditing accounts in Boluo County? Perfect. We'll have our Tax Bureau colleagues visit the medicine market with notice that we're randomly selecting ten shops for inspection—accountants must bring their ledgers. Then we close the door and have a thorough conversation with Old Yuan. Ask him whatever we want."
 
-He Jun's abnormality was becoming increasingly obvious.
+He Jun's strange behavior was becoming impossible to ignore.
 
-Zheng Xiaoyu had a clear sense that He Jun had completely lost the swagger he'd had when recruiting him. He'd become indifferent to running the shop, even starting to become lazy about "keeping up appearances" with him.
+Zheng Xiaoyu could see plainly that He Jun had lost all the swagger he'd displayed when recruiting him. He'd grown indifferent to running the shop and had even stopped bothering to "keep up appearances" around him.
 
-Zheng Xiaoyu decided to take the initiative and invite him drinking.
+Zheng Xiaoyu decided to take the initiative and invite him for drinks.
 
-The drinking location was naturally still He Jun's villa. Upon meeting, after a few words of conversation, Zheng Xiaoyu sensed he was weighed down with worries. He deliberately said: "Elder brother, you've seemed preoccupied these days, as if something's on your mind? And those prescription forms—I've already prepared several pads..."
+The location was, naturally, He Jun's villa. Upon meeting, after exchanging a few words, Zheng Xiaoyu sensed the man was burdened with worries. He probed deliberately: "Elder brother, you've seemed preoccupied lately, like something's weighing on you. And those prescription forms—I've already prepared several pads..."
 
-He Jun forced a smile: "What worries could I have? Just business not going too well." He didn't even mention the prescription forms.
+He Jun forced a smile. "What worries would I have? Business just isn't going well, that's all." He didn't even acknowledge the prescription forms.
 
-Zheng Xiaoyu already basically understood. He smiled: "I see elder brother's business is quite flourishing. What's not going well? Even the Joint Clinic has plenty of patients... I see the Joint Clinic needs extra appointments every day..."
+Zheng Xiaoyu understood well enough. He smiled. "Your business seems quite prosperous to me, elder brother. What's not going well? Even the Joint Clinic is packed with patients... I see it needs extra appointments every day..."
 
-"Sigh!" He Jun heaved a heavy sigh, then had another gulp of wine, keeping his head down without speaking, as if internally struggling with something.
+"Sigh!" He Jun heaved a deep breath, took another gulp of wine, and kept his head down in silence, as if wrestling with something internally.
 
-"Elder brother, though we're just business partners, we swore brotherhood before the gods—we're good brothers. What can't you tell your brother?"
+"Elder brother, though we're business partners, we swore brotherhood before the gods—we're true brothers. What can't you tell me?"
 
-He Jun smiled bitterly: "Some things, perhaps it's better brother doesn't know!" He sighed again. "It's not that I don't trust you! It's just that this business has now encountered enormous upheaval. Don't mention our sworn brotherhood or partnership anymore. Don't come here anymore either—you might get caught up in trouble!"
+He Jun smiled bitterly. "Some things... perhaps it's better you don't know." He sighed again. "It's not that I don't trust you. But this business has encountered enormous upheaval. Don't speak of our brotherhood or partnership anymore. Don't come here again either—you might get dragged into trouble."
 
-"Elder brother, stop joking. We're in the same boat. What can't be said?" Zheng Xiaoyu spared no effort making him lower his guard.
+"Elder brother, don't joke around. We're in the same boat now. What can't be said?" Zheng Xiaoyu pressed, working to lower his guard.
 
 These words largely dispelled He Jun's wariness. After a moment's reflection, he said: "I won't hide it from you, brother. Do you know what I wanted those prescription forms for?"
 
 "Of course I know." Zheng Xiaoyu smiled.
 
-"You know?!" He Jun's face showed alarm and suspicion.
+"You know?!" Alarm and suspicion flashed across He Jun's face.
 
-"Don't forget—I'm the health sector head here. How could I not know these tricks? It's simply using publicly-funded medical drugs, then reselling for profit."
+"Don't forget—I'm the health sector head here. How could I not understand these tricks? It's simple: exploit publicly-funded medications, then resell them for profit."
 
 **(End of Chapter)**

@@ -1,92 +1,92 @@
 # Chapter 2579 - Investigation (Part 6)
 
-"...I'll disguise myself as a small merchant or traveling doctor and set off for Huizhou alone. After arriving in Huizhou, I'll contact the Chief."
+"...I'll disguise myself as a small merchant or traveling doctor and set off for Huizhou alone. Once I arrive, I'll contact you directly."
 
-"You've thought it through thoroughly." Zheng Mingjiang nodded approvingly. "Alright, once you reach Huizhou, contact me through Qiwei's inn."
+"You've planned this carefully." Zheng Mingjiang nodded with approval. "Very well. When you reach Huizhou, get in touch through Qiwei's inn."
 
-"I understand. I will definitely not fail my mission!"
+"Understood. I won't fail you!"
 
-After settling the relevant contact plan, Zheng Mingjiang specially allocated a sum of money to him as expenses. Yuan Shuzhi took his leave.
+After finalizing the contact arrangements, Zheng Mingjiang allocated him a sum for expenses. Yuan Shuzhi took his leave.
 
-Yuan Shuzhi returned to his lodging at the Wansheng Teahouse. Though he'd passed the civil service examination, he had no family or friends, nowhere to go. Though people had tried to match him with a wife, to start a new family, Yuan Shuzhi had declined with a smile each time.
+He returned to his lodging at the Wansheng Teahouse. Though he'd passed the civil service examination, he had neither family nor friends—nowhere else to go. Several people had tried to arrange marriages for him, hoping he might start a new household, but Yuan Shuzhi had declined each time with a smile.
 
-"I'm over fifty—what would I marry for? If I had a baby, wouldn't I just burden my wife and make the child suffer?"
+"I'm over fifty. What would I marry for? If I fathered a child now, I'd only burden my wife and doom the boy to hardship."
 
-Now he and Zeng Juan's family had become as close as kin. As a lodger, his meals and laundry were all taken care of by Mother Zeng. In the past, he'd felt some guilt about "freeloading." Now that he had a salary, he gave Mother Zeng one yuan each month for rent and food. The rest he saved.
+Over time, he and Zeng Juan's family had grown as close as kin. As their lodger, his meals and laundry were all handled by Mother Zeng. He'd once felt guilty about living off their generosity, but now that he drew a salary, he gave Mother Zeng one yuan each month for room and board. The rest he saved.
 
-In the past when he returned, he'd always banter a bit with Mingnu, the old and the young joking around before going about his business. This time he went straight to his room upon returning, saying he had a work trip to another region these next few days and needed to carefully organize some documents, asking everyone not to disturb him. Nobody found this unusual.
+In the past, whenever he came home, he'd always exchange a few jokes with Mingnu—the old man and the young girl bantering before going about their business. But this time he went straight to his room, announcing he had an assignment in another region and needed to organize some documents. He asked not to be disturbed. No one thought anything of it.
 
-Yuan Shuzhi returned to his room but knew this mission was quite dangerous. The Chief's miracle medicines were treasures one in ten thousand—a single "course" of medicine cost dozens of yuan. Now someone had dared to tempt fate by stealing "miracle drugs" for profit. Anyone who dared do this was no ordinary person—certainly a desperate outlaw who feared nothing. If he was the slightest bit careless, his life might be forfeit.
+Once inside, Yuan Shuzhi allowed himself to consider what he'd volunteered for. This mission was dangerous. The Chief's miracle drugs were treasures beyond price—a single course of treatment cost dozens of yuan. Whoever had dared to steal and sell such medicines was no ordinary criminal. They had to be desperate outlaws who feared nothing. The slightest carelessness could cost him his life.
 
-Building achievements was certainly important, but losing one's life meant losing everything. Though Yuan Shuzhi had spoken passionately and sincerely when facing the Elder, upon reflection afterward, preserving his life to witness the Senate's glory was most important.
+Building achievements mattered, certainly, but death meant losing everything. Though he'd spoken with passion and conviction before the Elder, upon reflection, staying alive to witness the Senate's glory seemed rather more important.
 
-Thinking this way, he needed to do some preparation work first. Yuan Shuzhi had never been to Huizhou, but he'd encountered many Huizhou people and knew it was Hakka territory. His Cantonese accent would mark him as an outsider the moment he opened his mouth. Pretending to be a local wouldn't work—he could only dress as a merchant.
+With that in mind, he set about his preparations. Yuan Shuzhi had never been to Huizhou, but he'd met plenty of Huizhou natives and knew it was Hakka territory. His Cantonese accent would mark him as an outsider the moment he opened his mouth. Posing as a local was out of the question—he could only disguise himself as a traveling merchant.
 
-But he had a clear perception of himself: he really didn't look like a merchant. Whether the monks who'd taken him in originally, the teahouse patrons, or later his colleagues at the Comprehensive Governance Bureau, everyone used "pedantic scholar" as his nickname.
+But he knew himself well enough: he simply didn't look like a merchant. Whether it was the monks who'd taken him in as a child, the teahouse patrons, or his colleagues at the Comprehensive Governance Bureau, everyone used "pedantic scholar" as his nickname.
 
 ---
 
-Traveling doctors with bells—given his temperament, the role wasn't far off. He'd also read some medical books in the past; mumbling some medical theory, taking a pulse, and writing a prescription was passable. But bell-ringing doctors were jianghu people who needed to know the secret argot to travel freely. Otherwise, anyone checking his credentials would expose him.
+A bell-ringing traveling doctor, then? Given his temperament, the role wasn't far off. He'd read some medical texts over the years; he could mumble convincingly about theory, take a pulse, and scribble a prescription well enough. But itinerant doctors were jianghu folk who needed to know the trade's secret argot to travel freely. Anyone checking his credentials would expose him instantly.
 
-This meant he was most suited to pretend to be a failed examination candidate or impoverished old licentiate. With this thought, he got up and took out several old scholar's robes and such from his trunk—clothes he hadn't worn since passing the civil service examination. But Mother Zeng had washed them clean, mended them, and put them away.
+That left his most natural disguise: a failed examination candidate or impoverished old licentiate. The role fit him like a glove. He rose and retrieved several worn scholar's robes from his trunk—clothes he hadn't touched since passing the civil service examination. Mother Zeng had washed them clean, mended the tears, and stored them away.
 
-He no longer had a hair bun, but this didn't matter. Many people in Guangzhou had already cut off their hair buns and gotten the Baldy haircut. After all, this was the hairstyle of Elders and cadres. So having short hair was no problem—no need for fake buns or anything.
+He no longer wore a hair bun, but this hardly mattered. Many in Guangzhou had already cut off their queues and adopted the Baldy haircut—after all, it was the hairstyle of Elders and cadres. Short hair raised no suspicions.
 
-Being a failed candidate or old licentiate, with such a poor scholar's look, without good reason one wouldn't casually travel hundreds of li. He had no relatives or friends in Huizhou, couldn't claim to be visiting family, and if he said he was going to teach at a private school, being asked specifically which family would leave him with nothing to say.
+Still, even a failed scholar or poor licentiate wouldn't travel hundreds of li without good reason. He had no relatives or friends in Huizhou, so he couldn't claim to be visiting family. And if he said he was going to teach at a private school, anyone asking which family had hired him would leave him with nothing to say.
 
-After much thought, he remembered that Wansheng Teahouse had an assistant from Huizhou whose family also ran a teahouse. He discussed with Zeng Juan, having him get the assistant to write a letter of introduction with the header and name left blank.
+After much thought, he remembered that Wansheng Teahouse employed an assistant from Huizhou whose family also ran a teahouse. He spoke with Zeng Juan and arranged for the assistant to write a letter of introduction, leaving the header and recipient's name blank.
 
-After Zeng Juan prepared the letter of introduction and gave it to Yuan Shuzhi, watching him fill in the name, he couldn't help but ask curiously:
+When Zeng Juan brought him the finished letter, he watched Yuan Shuzhi fill in the details and couldn't help asking:
 
-"What's this about?"
+"What's all this about?"
 
-"Ah Juan, did you forget Civil Service Discipline Article 18, Section 3, Point 1? Don't ask about things you shouldn't ask about." Yuan Shuzhi was very serious.
+"Ah Juan, have you forgotten Civil Service Discipline Article 18, Section 3, Point 1? Don't ask about things that aren't your concern." Yuan Shuzhi's tone was severe.
 
-"I know, I know." Zeng Juan quickly said. "I won't ask."
+"Right, right." Zeng Juan raised his hands. "I won't ask."
 
-"I'm going on a work trip this time, on a secret mission. You need to keep it confidential." Yuan Shuzhi thought about shouldering an important responsibility, his expression quite solemn.
+"I'm going on assignment—a secret mission. You must keep this confidential." The weight of responsibility settled visibly onto Yuan Shuzhi's features.
 
-"Understood. Take care of yourself too." Zeng Juan reminded. "Whatever happens, preserve your life first!"
+"Understood. But take care of yourself." Zeng Juan gripped his arm briefly. "Whatever happens, your life comes first!"
 
-"Ah Juan, I'll remember."
+"I'll remember, Ah Juan."
 
-The next day after breakfast, Yuan Shuzhi came to Tianzi Dock. There were many passenger boats to Huizhou—both the flower-tail barges run by newly-established shipping companies and old-style individual boats.
+The next morning after breakfast, Yuan Shuzhi made his way to Tianzi Dock. Passenger boats to Huizhou were plentiful—both the flower-tail barges operated by the newly established shipping companies and old-style vessels run by independent boatmen.
 
-Yuan Shuzhi chose an old-style boat because riding a flower-tail barge didn't fit his current identity. After all, even second-class cabin passengers were at least small merchants.
+Yuan Shuzhi chose an old-style boat. A flower-tail barge didn't suit his current identity; even second-class cabin passengers were at least small merchants.
 
-He negotiated a price with the boatman, then carried his bedroll aboard and sat down. Such boats mostly mixed passengers and cargo—roughly speaking, the bottom was filled with cargo and passengers sat on top of the cargo. There were no luxury cabins, and meals and bedding weren't provided on the journey—passengers brought everything themselves. Short trips were tolerable; long journeys were very difficult. The only advantage was the low price, and passengers were mostly common folk.
+He negotiated a fare with the boatman, then carried his bedroll aboard and settled in. Such boats mixed passengers and cargo—the hold filled with goods, passengers perched on top. There were no private cabins, no meals provided, no bedding supplied. Passengers brought everything themselves. Short trips were tolerable enough; long journeys tested one's endurance. The only advantage was the low price, and the passengers were mostly common folk.
 
-Yuan Shuzhi boarded early and claimed a spot near the boat's stern by the canopy exit. This spot had good ventilation and lighting—as long as it didn't rain, it was the best seat. He spread his bedroll on deck, sat with his back against the canopy, and waited quietly for departure.
+Yuan Shuzhi had boarded early and claimed a spot near the stern by the canopy exit. Good ventilation, good light—as long as it didn't rain, this was the best seat on the boat. He spread his bedroll on the deck, sat with his back against the canopy frame, and waited.
 
-Shortly after sitting down, several small boats came by selling watermelon seeds, puffed rice candy, peanuts, tangerines, preserved fruits, as well as smoked meats, pastries, braised dishes, roast chicken, and other provisions. The voyage to Huizhou on this type of old-style boat took about three days and nights. There weren't many places to stop for meals along the way, so passengers had to stock up on food and snacks.
+Shortly after he'd settled in, small vendor boats drifted alongside, hawking watermelon seeds, puffed rice candy, peanuts, tangerines, preserved fruits, along with smoked meats, pastries, braised dishes, and roast chicken. The voyage to Huizhou aboard this type of vessel took roughly three days and nights. Stops for meals were few and far between, so passengers needed to stock up.
 
-Yuan Shuzhi watched passengers generously open their purses and buy lots of provisions, secretly surprised. Because passengers on such boats were mostly lower-class folk who generally wouldn't splurge on snacks or expensive prepared foods—mostly they made food at home and brought it. Yet now their spending was so generous!
+Yuan Shuzhi watched his fellow travelers open their purses generously, buying provisions by the armful. He was quietly surprised. Passengers on boats like this were mostly lower-class folk who typically wouldn't splurge on snacks or expensive prepared foods—they'd make simple fare at home and bring it along. Yet here they were, spending freely.
 
-Thinking carefully, the Great Song had entered the city over two years ago. The four directions were peaceful, people's livelihoods had stabilized somewhat, and industry and commerce were developing. These two years, though not perfectly smooth, hadn't seen any major disasters either. People had more money in hand—quite the appearance of "harvested an extra three to five bushels."
+Thinking it through, the Great Song had entered the city over two years ago now. Peace had settled across the four directions, livelihoods had stabilized, and industry and commerce were developing. These past two years, though not without hardship, had seen no major disasters. People had more money in hand—the look of those who'd "harvested an extra three or five bushels."
 
-Though Yuan Shuzhi usually "wholeheartedly supported" the Senate's governance, he also had his own assessments. The Senate's land surveying and tax clarification in the countryside alone reduced countless ordinary people's burdens. Moreover, the state-owned grain company's purchasing in the countryside also curbed small grain merchants' joint price suppression.
+Though Yuan Shuzhi always "wholeheartedly supported" the Senate's governance, he maintained his own assessments. The Senate's land surveys and tax reforms in the countryside alone had lifted countless burdens from ordinary people. Moreover, the state-owned grain company's purchasing operations had curbed the small grain merchants who used to band together and suppress prices.
 
-All these actions had increased people's incomes. With food and clothing no longer worries, people naturally sought better enjoyment. This was human nature. During civil service training, Yuan Shuzhi had studied the three levels of human needs; applying it now in analysis, he found the three levels quite sensible. This Elder Marx was truly a great master!
+All of it had increased people's incomes. With food and clothing no longer constant worries, people naturally sought better comforts. It was simply human nature. During civil service training, Yuan Shuzhi had studied the three levels of human needs; applying the theory now, he found it remarkably sensible. This Elder Marx was truly a great master!
 
-He'd brought dry rations and didn't want to spend money, so after watching the bustle for a while, he took out a magazine from his bag and began reading. Speaking of this magazine called *Huanzhou*, newly founded, it specifically solicited submissions from schools, academies, and naturalized citizen cadres, sometimes also commissioning articles from local cultural celebrities. As for content, mainly articles on literature, history, and philosophy—very much to Old Yuan's taste.
+He'd brought his own dry rations and saw no need to spend money. After watching the bustle for a while, he drew a magazine from his bag and began to read. The publication was called *Huanzhou*—newly founded, soliciting submissions from schools, academies, and naturalized citizen cadres, occasionally commissioning pieces from local cultural luminaries. The content ran to literature, history, and philosophy—very much to Old Yuan's taste.
 
-This issue featured one of Yuan Shuzhi's articles—scholarly analysis of several place name variations in *Dream of the Red Chamber*. Most importantly, there was also a Lingao travelogue by Zhang Dai of the Restoration Society. Not only had his own article been typeset and beautifully printed, but being published alongside such a talented scholar made Old Yuan more pleased with his article the more he looked at it—almost intoxicated. He didn't even notice when the boat departed or where it had traveled to.
+This issue featured one of Yuan Shuzhi's own articles: a scholarly analysis of several place name variations in *Dream of the Red Chamber*. Better still, it included a Lingao travelogue by Zhang Dai of the Restoration Society. His own article had been beautifully typeset and printed, and to appear alongside such a celebrated literary figure made Old Yuan more pleased with his work the longer he looked at it. He grew almost intoxicated. He didn't notice when the boat cast off, nor where the journey had taken them.
 
-He was still thinking: "Not in vain did I spend so many rest days writing this manuscript. Being published in the same issue as Master Zongtao—this lifetime was worth it." And indeed it was worth it—from this point on, Old Yuan emerged in the field of Red Chamber studies and eventually became a master.
+He was still thinking: *Not in vain did I spend so many rest days writing this manuscript. To be published in the same issue as Master Zongtao—this lifetime was worth it.* And indeed it was—from this point onward, Old Yuan would emerge in the field of Red Chamber studies and eventually become a master in his own right.
 
-"Your minister has heard that punishing without teaching is called cruelty... Chairman Wen knows your minister is cautious... Therefore in May we crossed to Hainan, deep among the masses. Now the South Seas are pacified, teachers are sufficient... Song people and Ming people are all one body... The Ming nation's people are also the Senate's beloved children... Those who appreciate Australian learning and are loyal and good should attend the study societies and academies... Together basking in the Senate's glory. At the memorial, tears stream down..." He was reading an article promoting the "Common Script, Common Ancestry Movement" when he grew drowsy. In moments, he fell asleep amid the gentle rocking of the boat and the gurgling sound of water.
+*"Your minister has heard that punishing without teaching is called cruelty... Chairman Wen knows your minister is cautious... Therefore in May we crossed to Hainan, deep among the masses. Now the South Seas are pacified, instructors are sufficient... Song people and Ming people are all one body... The Ming nation's people are also the Senate's beloved children... Those who appreciate Australian learning and prove loyal and capable should attend the study societies and academies... Together basking in the Senate's glory. At the memorial, tears stream down..."* He was reading an article promoting the "Common Script, Common Ancestry Movement" when drowsiness overtook him. Within moments, he'd fallen asleep amid the gentle rocking of the boat and the soft gurgle of water against the hull.
 
-When he woke it was already noon. Yuan Shuzhi wiped the drool that had run out. He saw the boat had docked at a market town's wharf. This was a market town; many short-distance passengers had disembarked here, and new passengers had come aboard.
+When he woke, it was already noon. Yuan Shuzhi wiped away the drool that had run from the corner of his mouth. The boat had docked at a market town wharf. Many short-distance passengers had disembarked here, and new ones had come aboard.
 
-This private boat was different from Qiwei's. Because the journey was long and passed through many places, passengers got on and off very frequently along the way. There was specifically a boatwoman lookout who at every market town ferry landing would call from the bow: "Boarding, boarding! Seats available on the boat!"
+This private boat differed from Qiwei's vessels. Because the journey was long and passed through many settlements, passengers embarked and disembarked frequently. A boatwoman stood lookout, calling from the bow at every market town landing: "Boarding, boarding! Seats available!"
 
-Particularly many people boarded here—the cabin was packed full of passengers, already quite cramped, with two people sitting on portable stools in the middle.
+Particularly many people boarded here. The cabin grew packed, already cramped, with two passengers now perched on portable stools in the center aisle.
 
-Shortly after leaving the market town, they reached a rural ferry landing where people got on and off. Hearing the local dialect nearby, it seemed to be a small place called Huangxi.
+Shortly after leaving the market town, they reached a rural ferry crossing where more people got on and off. From the local dialect floating around him, it seemed to be a small place called Huangxi.
 
-Two or three people boarded this time, all looking like local villagers. Among them, a stocky, short, stout man came aboard but instead of finding a seat, loudly called out in the boat: "How much to Tangxia?!"
+Two or three passengers boarded this time, all looking like local villagers. Among them, a stocky, short, stout man climbed aboard but instead of finding a seat, called out loudly: "How much to Tangxia?!"
 
-His voice was quite loud, jolting the drowsy Old Yuan alert. Looking at this man in his thirties or forties, though he wore a hair bun, he was dressed in garish colors with multiple tears in his clothes. His face was incongruously smeared with rouge and powder like a mischievous child. Around his neck hung a large silver lock—quite comical.
+His voice was jarring enough to startle the drowsy Old Yuan alert. The man appeared to be in his thirties or forties. Though he wore a traditional hair bun, his clothes were garish, covered in tears and patches. His face was incongruously smeared with rouge and powder like a mischievous child playing dress-up. Around his neck hung a large silver lock—the whole effect quite comical.
 
 Without waiting for the boatwoman to respond, he began clapping and singing a nursery rhyme to himself.
 

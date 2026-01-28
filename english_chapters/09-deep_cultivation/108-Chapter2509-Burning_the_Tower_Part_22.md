@@ -1,39 +1,103 @@
 # Chapter 2509: Burning the Tower (22)
 
-With a muffled *bang*, a small puff of white smoke rose, and a cluster of flames flashed past. The cartridge was triggered as expected. Under the double pressure of the convex platform and body weight, the percussion cap was fired. The instantaneous flame passed through the ignition hole in the middle of the brass spacer, igniting the propellant, firing the lead bullet straight upward. The front end of the bamboo tube exploded with a *bang*. The large-caliber soft lead bullet easily penetrated the swordsman's left sole, flying into mid-air carrying bone slag and minced meat. The swordsman leading the way covered his foot, screaming and falling. Everyone was startled by the sudden unforeseen event. Only Wei Mingchen advanced instead of retreating, stepping forward quickly. That swordsman's left sole had been pierced by the booby trap and was a bloody mess; obviously, he could not continue forward. And to take care of this burdensome wounded man, he had to leave at least one person behind. He looked around; the remaining people were quietly watching him. He really wanted to leave this guy to wait for death or stab him to death, but he couldn't. Wei Mingchen took a deep breath and said, "Leave one person to send him back. The others continue to chase."
+A muffled *bang*, a puff of white smoke, a flash of flame. The booby trap triggered exactly as designed. Under the combined pressure of the convex platform and the man's weight, the percussion cap fired. The instantaneous flame shot through the ignition hole in the brass spacer, igniting the propellant and launching the lead bullet straight upward. The front of the bamboo tube exploded with a sharp *crack*. The large-caliber soft lead round punched clean through the swordsman's left sole and flew into the air, trailing bone fragments and shredded flesh.
 
-Wei Mingchen felt a faint trace of uneasiness in his heart. Perhaps waiting ahead was not a wounded wild dog, but a lone wolf with its ferocity aroused.
+The lead swordsman collapsed, clutching his foot and screaming. Everyone froze at the sudden violence—everyone except Wei Mingchen, who advanced instead of retreating, striding forward to assess the damage. The man's sole was a ruined mess of blood and exposed bone. He wouldn't be walking anywhere. And caring for this liability meant leaving at least one able body behind.
 
-A *bang* explosion sound came from behind. Xu Tong stopped and turned his head abruptl. The power of the small booby trap was roughly similar to a 13mm caliber Minié bullet, and the propagation distance of a gunshot was roughly over three kilometers. Such a clear gunshot meant the enemy was no more than one kilometer from here. Even if the winding field paths were difficult to traverse, at their current speed, they would be caught up within thirty minutes. Looking at Li Baiqing's stumbling retreating figure ahead, Xu Tong gritted his teeth. Fight or disengage—perhaps the moment for decision had arrived.
+Wei Mingchen surveyed the others. They watched him in silence, waiting. Part of him wanted to abandon the wounded man—or simply put him out of his misery—but he couldn't. Not with everyone watching. He drew a deep breath. "One of you take him back. The rest continue the pursuit."
 
-He had completely lost his sense of direction now and found it hard to judge even roughly where he was. However, he knew he was at a considerable distance from any county seat or major village with National Army garrisons. The enemy choosing to act in this place must have been carefully considered; the openness of the surroundings was enough to ensure no Australian troops nearby could reinforce quickly. As for militia and township braves, they absolutely wouldn't move unless the fight hit their doorstep.
+As they reorganized, a faint unease stirred in Wei Mingchen's chest. Perhaps what waited ahead was not a wounded dog fleeing in desperation, but a lone wolf whose ferocity they had just awakened.
 
-No support visible, enemy situation unclear, terrain unfamiliar, no suitable equipment, carrying a wounded man—everything presented before his eyes indubitably indicated his side's weakness. If it were just himself, Xu Tong had a high probability of shaking off the pursuers relying on his extraordinary physical fitness and skills. But with two people and one injured, whether fighting or fleeing, it was almost a dead end.
+---
 
-Li Baiqing had acted as the Australian Song's eyes and ears among the people since the shelling of Guangdong. For several years he collected intelligence and coordinated operations until the bloodless opening of the city. Someone like him who was so deeply involved in Australian Song intelligence activities, tested multiple times without wavering, and never exposed during the recovery of Guangdong, was as rare as phoenix feathers and unicorn horns. Because of trust, he was reused. As a partner, he was a comrade worthy of entrustment. But once he fell into enemy hands, he would turn into a bomb with a lit fuse. Openly or secretly, revealing even just a few names could bring huge losses. He knew too much. If he couldn't leave alive, then stay here forever. A ray of fierce light suddenly appeared in Xu Tong's eyes.
+The explosion echoed from behind. Xu Tong halted and turned sharply. The booby trap packed roughly the punch of a 13mm Minié round, its report carrying perhaps three kilometers across open ground. That clear a gunshot meant his pursuers were less than a kilometer back. Even accounting for the winding field paths, they would close the distance within thirty minutes.
 
-Seeming to sense something, Li Baiqing suddenly accelerated his pace. He struggled to walk forward, ignoring the tearing of the abdominal wound, saying non-stop as he walked: "I... I'm still okay, I can still walk, I can still walk..." Accompanied by rustling footsteps, Xu Tong approached Li Baiqing step by step from behind. His right hand slowly clenched the handle of the short knife inserted diagonally at his back waist. Cold sweat seeping from his palm made his hands feel ice-cold. His breathing also became more rapid. Seeming to realize his behavior was meaningless, Li Baiqing gradually stopped his steps and slowly turned his head to look at Xu Tong. The two looked at each other. Li Baiqing's gaze was first filled with terror, anger, helplessness, sorrow, and pleading. After a moment, his eyes gradually became calm. Finally, he sighed lightly and whispered, "I hope the Senate treats this old life of mine fairly."
+He watched Li Baiqing stumble forward up ahead, each step more labored than the last. Xu Tong clenched his jaw. Fight or flee—the moment of decision had arrived.
 
-In Li Baiqing's peaceful gaze, Xu Tong's body stiffened. The scene of Li Baiqing shouting twice to relieve him at the alliance meeting floated before his eyes. His heart moved, and his right hand tightly gripping the knife handle slowly loosened. Xu Tong wasn't clear why he would give up. Perhaps it was gratitude, perhaps unbearable, or perhaps like Director Wu said, people shouldn't be responsible for things they haven't done. Xu Tong couldn't clarify his own thoughts himself, but he knew that once decided, he wouldn't change. Xu Tong's breathing recovered to calmness bit by bit, and his tense body also slowly relaxed. He reached out a hand, patted Li Baiqing's shoulder, leaving a damp handprint on Li Baiqing's shoulder, and said gently, "Old Li, don't think blindly. I mean, running blindly like this won't work. We have to think of a way."
+He had lost all sense of direction and could only guess at their location. But he knew they were far from any county seat or major village with National Army garrisons. The enemy had chosen this ground deliberately; the open terrain guaranteed no Australian reinforcements could arrive in time. As for local militia and township braves, they never stirred unless the fighting reached their doorsteps.
 
-Xu Tong said, "Tied together, neither of us can run away. Falling into their hands, you and I have absolutely no path to life. Either suffering trusted torture or being beheaded on the spot. If unable to withstand torture and confessing randomly, I'm afraid it will even implicate family members. Neither of us has a retreat. I have a method; you listen."
+No support in sight. Enemy strength unknown. Unfamiliar terrain. Inadequate equipment. A wounded man to carry. Every factor pointed to the same grim conclusion. Alone, Xu Tong could likely shake the pursuers through sheer physical conditioning and fieldcraft. But burdened with an injured companion, whether he chose to fight or run, both paths led to the same dead end.
 
-Li Baiqing nodded forcefully with a pale face. He could only believe, because he knew fleeing alone was Xu Tong's best choice.
+Li Baiqing had served as the Australian Song's eyes and ears among the populace since the shelling of Guangdong. For years he had gathered intelligence and coordinated operations, culminating in the bloodless opening of the city. Men like him—deeply embedded in Australian Song intelligence work, tested repeatedly without wavering, never exposed during the recovery of Guangdong—were rarer than phoenix feathers and unicorn horns. That rarity had earned him trust and responsibility. As a partner, he was a comrade worthy of faith.
 
-Xu Tong continued, "Although I cannot know exactly where we are now, it is roughly around Liufeng Forest. I will choose a place for you to hide and camouflage you. Wait for the pursuers to approach; I will hit them head-on to draw them away. Once the pursuers are gone, leave immediately. I roughly observed the surroundings from a high place just now. Not far to the west ahead, there is a small path pointing down the mountain; it looks like it was trampled by woodcutters. Don't mind me; just go west. Do not look back. Splitting into two paths always has a greater chance of survival than walking one path. Life and death are fated; it depends on our luck. If able to return safely, I, Xu, shall hold a jar and drink to the full with Brother Li."
+But captured, he would become a lit fuse attached to a powder keg. Whether through willing betrayal or forced confession, even a handful of names could bring catastrophic losses. He knew too much.
 
-Li Baiqing's lips trembled, saying, "Many thanks, Xu..."
+If Li Baiqing couldn't leave alive, then he must stay here forever.
 
-Xu Tong waved his hand and said, "No need for polite words. Time is short."
+A cold, fierce light kindled in Xu Tong's eyes.
 
-After speaking, Xu Tong picked up the broken jacket from the side. From the waist, cuffs, and hem, he pulled out several cloth strips sewn inside the clothes. Each cloth strip had several slots cut into it, serving as straps or tourniquets, or camouflage bands. The key to camouflage is not to clearly reveal the human silhouette; the focus is on the shoulder and head positions. Xu Tong first scooped a handful of relatively moist mud, poured a little water from the water bag, mixed a handful of wet mud, and smeared it on Li Baiqing's exposed face and hand skin to prevent reflection. At the same time, he removed all items on his body that might cause reflection, including a thumb ring and a copper button loop. Then he tied the camouflage bands to Li Baiqing's head, shoulders, and back. Next, from nearby, he found a low-lying bush with dense vegetation cover situated in the dark to stuff Li Baiqing in. He also picked some tree branches and grass bunches similar in color to the vegetation state from the surroundings and quickly inserted them into the camouflage band slots. He piled some beside Li Baiqing to shield his body. After the camouflage was completed, he quickly stepped back to confirm the camouflage effect. Looking from a distance of about ten meters, it appeared slightly stiff. Xu Tong returned quickly to make minor adjustments until the contours and projection of Li Baiqing's prone body were completely blurred, no longer appearing abrupt in the terrain. The camouflage color unified closely with the natural background color, almost merging. Only then did he nod with satisfaction. Xu Tong looked up. The sky was getting dark, and visibility would worsen. This was a good thing for hiding. In a dim, dappled environment, even an old hunter sometimes couldn't distinguish the difference between a motionless standing person and a tree stump in a short time. But give him enough time, and no trace could escape his eyes. This kind of hasty camouflage couldn't fool a true old hand. Don't pin hope on the enemy's stupidity.
+---
 
-Xu Tong walked to the side of the bush, cleaned up the remaining traces, and finally whispered, "I'm leaving. Remember, no matter what you see or hear, don't come out. Endure. Don't hesitate when there's a chance. Good luck."
+As if sensing something, Li Baiqing suddenly quickened his pace. He forced himself forward, ignoring the tearing pain in his abdominal wound. "I'm still—I'm still alright," he gasped between steps. "I can keep going, I can still walk..."
 
-Wei Mingchen followed the footprints, chasing dead on Xu Tong's footsteps. Wei Mingchen had seen the buried bamboo tube booby trap. Not big, but not too small either. The bamboo shell alone took up a lot of volume. And he knew that before going up the mountain, both Xu Tong and Li Baiqing had been searched. Although not very carefully, they didn't find weapons or extra items. Even if hidden weapons were smuggled, there wouldn't be too many, should be no more than three. Wei Mingchen saw the defect of this hidden weapon at a glance. Too small. Could only perform point damage. Only when personnel were relatively large in number and concentrated, buried in a narrow place, would there be a high probability of triggering. Usage limitations were great. Just widening the distance on a slightly wider road surface and avoiding the main road and suspicious points would drastically reduce the triggering probability. But this kind of ingenious hidden weapon probably confirmed that the opponent was a Kun thief spy.
+Behind him, Xu Tong's footsteps drew closer, the rustle of grass marking each stride. His right hand drifted slowly toward the short knife sheathed at the small of his back. Cold sweat seeped from his palm, making the grip feel like ice. His breathing grew shallow and quick.
 
-Wei Mingchen and the others divided into two columns, walking more carefully. Even having to endure the scratching of branches, they tried to avoid the trampled wild path. Years of field life experience allowed them to walk not slowly, but encountering no more obstacles ahead made Wei Mingchen somewhat doubtful. If they encountered a trap a second time, it would make the pursuers more cautious and fearful, greatly delaying the pursuit speed, striving for more time for themselves, or even causing them to give up the pursuit. He wasn't sure if he had inadvertently avoided the trap or if the opponent had given up resistance. He didn't know that Xu Tong just didn't want to waste the last booby trap on a probability that might be completely ineffective. He needed every piece of equipment to truly play its due role. Wei Mingchen also looked up at the sky. It was darker. When night fell, he would have to give up the hunt. He had to speed up; his time was also running out.
+Perhaps realizing the futility of his words, Li Baiqing's steps gradually slowed. He stopped and turned to face Xu Tong.
 
-Xu Tong held a handful of dead branches in his left hand and carried a tree trunk picked up halfway in his right hand. The trunk was thick at one end and thin at the other. The diameter of the thick end was slightly larger than the bamboo tube. A deep concave hole was dug into the cross-section with a knife. Most of the booby trap was inserted into the tree trunk, leaving only a small half of the head. The tiny gap was sealed with wet mud. The outside was wrapped tightly along the edge with straps hastily, making it into the shape of a short spear.
+Their eyes met.
+
+Li Baiqing's gaze cycled through terror, anger, helplessness, grief, and silent pleading. Then, gradually, his expression settled into calm acceptance. He exhaled softly and whispered, "I hope the Senate values this old life of mine fairly."
+
+That peaceful gaze struck Xu Tong like a physical blow. His body went rigid. Unbidden, a memory surfaced: Li Baiqing at the alliance meeting, speaking up twice in his defense when no one else would.
+
+His grip on the knife handle loosened.
+
+Xu Tong couldn't say precisely why he relented. Perhaps gratitude. Perhaps he simply couldn't bear to do it. Or perhaps, as Director Wu once said, people shouldn't be held responsible for things they haven't yet done.
+
+He couldn't untangle his own thoughts. But he knew that once he made this choice, he wouldn't reverse it.
+
+His breathing steadied. The tension drained from his muscles. He reached out and gripped Li Baiqing's shoulder, leaving a damp handprint on the fabric. "Old Li, stop thinking dark thoughts. What I meant was—running blind like this won't work. We need a plan."
+
+---
+
+"Tied together, neither of us escapes," Xu Tong said. "If we fall into their hands, there's no path to survival. Torture until we break, or execution on the spot. And if we can't endure the torture and confess under duress, our families suffer too. Neither of us has anywhere to retreat."
+
+He paused. "I have an idea. Listen."
+
+Li Baiqing nodded firmly, his face pale but resolute. He had no choice but to believe. He knew that abandoning him was Xu Tong's best chance at survival.
+
+"I can't pinpoint our location," Xu Tong continued, "but we're somewhere around Liufeng Forest. I'll find a spot to hide you and set up camouflage. When the pursuers draw close, I'll hit them head-on and lead them away. Once they're gone, you move. I scouted from higher ground earlier—there's a small path not far to the west, leading down the mountain. Looks like a woodcutter's trail. Don't worry about me. Just head west. Don't look back."
+
+He met Li Baiqing's eyes. "Two separate paths give us better odds than one. Life and death are fated—it comes down to luck. If we both make it back safely, I'll hold a full jar and drink it dry with you, Brother Li."
+
+Li Baiqing's lips trembled. "Thank you, Xu—"
+
+Xu Tong cut him off with a wave. "Save the courtesies. We're out of time."
+
+---
+
+He retrieved the torn jacket from nearby and pulled several cloth strips from the hidden seams at the waist, cuffs, and hem. Each strip had slots cut into it—useful as straps, tourniquets, or camouflage bands. The key to effective concealment was breaking up the human silhouette, especially at the shoulders and head.
+
+Xu Tong scooped a handful of damp earth, added water from his canteen, and worked it into a thick mud paste. He smeared it across Li Baiqing's exposed skin—face and hands—to eliminate any reflective surfaces. He stripped away anything that might catch light: a thumb ring, a copper button loop. Then he tied the camouflage bands around Li Baiqing's head, shoulders, and back.
+
+He found a low-lying bush in a shadowed hollow, its vegetation dense enough to provide cover, and helped Li Baiqing crawl inside. From the surrounding area, he gathered branches and grass clumps that matched the local foliage and inserted them into the slots on the bands. He piled more beside Li Baiqing's body to shield his outline.
+
+Stepping back ten meters, Xu Tong assessed his work. Still slightly stiff. He returned and made fine adjustments until the contours of Li Baiqing's prone form blurred completely into the terrain—no longer a man lying in the brush, but simply part of the landscape. The camouflage colors merged seamlessly with the natural background.
+
+Satisfied, Xu Tong glanced at the sky. Dusk was settling in. The fading light would degrade visibility further—an advantage for hiding. In dim, dappled conditions, even experienced hunters sometimes couldn't distinguish a motionless person from a tree stump at first glance. But given enough time, no trace escaped a practiced eye. This hasty camouflage wouldn't fool a true tracker forever.
+
+He moved to the edge of the bush, erased the remaining traces of their presence, and leaned close. "I'm leaving now. Remember—no matter what you see or hear, don't come out. Endure. When you see your chance, don't hesitate. Good luck."
+
+---
+
+Wei Mingchen followed the footprints, tracking Xu Tong's path with relentless focus. He had examined the buried bamboo tube booby trap. Compact, but not insignificant. The bamboo casing alone took up considerable volume. He knew that before ascending the mountain, both Xu Tong and Li Baiqing had been searched. The inspection hadn't been thorough, but they'd found no weapons or unusual items. Even if concealed armaments had slipped through, there couldn't be many—three at most.
+
+Wei Mingchen had already identified the trap's weakness. Too small. Only capable of point damage. It required a concentration of personnel in a confined space to trigger reliably. On any reasonably wide trail, simply spreading out and avoiding the main path and obvious chokepoints would drastically reduce the chances of stepping on one.
+
+Still, such an ingenious device confirmed what he already suspected: the target was a Kun thief spy.
+
+He split his men into two columns and pressed forward more cautiously, accepting the scratch of branches rather than following the trampled path. Years of field experience kept their pace steady. But the absence of further obstacles nagged at him.
+
+A second trap would have slowed the pursuit considerably—made them hesitant, bought the fugitives precious time, perhaps even convinced them to abandon the chase entirely. Had they inadvertently bypassed another device? Or had the enemy simply given up?
+
+He couldn't know that Xu Tong had chosen not to waste his last booby trap on uncertain odds. Every remaining piece of equipment needed to serve its purpose.
+
+Wei Mingchen glanced upward. The sky was darkening. Once night fell, he would have no choice but to call off the hunt. He needed to move faster. His time was running out too.
+
+---
+
+Xu Tong gripped a bundle of dead branches in his left hand. In his right, he carried a tree limb he'd found along the way—thick at one end, tapering to a point at the other. With his knife, he had carved a deep hollow into the thicker end's cross-section. The last booby trap fit snugly inside, only a small portion of its head protruding. He sealed the gap with wet mud and wrapped the joint tightly with cloth straps.
+
+The result was crude but functional: a short spear with a single devastating strike hidden in its tip.
 
 **(End of Chapter)**

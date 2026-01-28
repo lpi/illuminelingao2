@@ -1,113 +1,113 @@
 # Chapter 2540: Retaking Fengshenghe
 
-Speaking to this point, Chen Lin roughly understood. In the past, the clan was a non-governmental autonomous organization. How it was managed internally, how money was distributed... the government ignored it all. The clan only needed to manage its own one-acre-three-parts of land well.
+As Chen Ding explained further, Chen Lin began to grasp the situation. In the past, clans had operated as autonomous organizations beyond government oversight. How they managed their affairs internally, how money was distributed—the authorities paid no attention. A clan only needed to tend its own small domain.
 
-If it turned into a "Company" or the unknown-meaning "Financial Group Legal Person," that would be "passing the bright road" [becoming official/legitimate]. According to the routine of companies stipulated by Australians now, one had to register, establish accounts, and pay taxes. Finances must be public. The company from clan reform would inevitably be a so-called "Joint-stock Company," and clan members would all be shareholders. The General Manager is just a "Shopkeeper," not the "Clan Leader" or "Elder" holding great power in the past. No matter how formidable the shopkeeper is, he cannot spank shareholders or drown them in pig cages.
+But transforming into a "Company" or a "Corporate Legal Entity"—whatever that meant—would bring them into the light of official legitimacy. Under the Australian-mandated regulations, they would need to register, maintain proper accounts, and pay taxes. Financial records would become public. Any company formed from clan reform would inevitably become a joint-stock corporation, with clan members as shareholders. The General Manager would be merely a "shopkeeper," not a patriarch or elder wielding absolute authority. No matter how formidable a shopkeeper might be, he couldn't beat shareholders or drown them in pig cages.
 
-Seemingly a simple "Rights Confirmation and Reform," it contained countless mysteries inside.
+What seemed like a simple "Rights Confirmation and Reform" concealed layers of complexity within.
 
-Chen Lin said: "Australians indeed have good methods!"
+"The Australians certainly know what they're doing," Chen Lin remarked.
 
-"But it is also a great opportunity for us." Chen Ding whispered.
+"But it's also a tremendous opportunity for us," Chen Ding whispered.
 
-"What?"
+"What do you mean?"
 
 "Registering the company..."
 
-Chen Lin turned his brain and understood his uncle's meaning. Don't look at Second Uncle occupying the position of "Head of Case" now; actually, this position was nothing in the government, just recognized by people in the clan—besides, he couldn't even count as the Clan Leader.
+Chen Lin's mind raced, and he grasped his uncle's meaning. Despite Second Uncle currently occupying the position of "Head of Case," the title held no official government recognition—it was merely acknowledged within the clan. He wasn't even truly the Clan Leader.
 
-If their side acted one step ahead to register the company, wouldn't they directly take back the entire clan property? Of course, things definitely weren't that simple. But now with Chen Xiaobing and two Senators backing him, and Senator Li also clearly expressing "will not intervene," as long as registration was completed, Chen Lin could "Hold the Kun to command the whole clan."
+If their faction moved first to register the company, they could seize control of the entire clan's assets. Of course, it wouldn't be that simple. But with Chen Xiaobing and two Senators backing him, and Senator Li explicitly stating she "will not intervene," completing the registration would allow Chen Lin to command the whole clan.
 
-"But if we want to register a company, we must prepare all documents and deeds of the clan property. These things are all in Mr. Lu's hands—leaving aside whether he is willing to give, even if willing, registering a company still requires holding a Shareholders' Meeting."
+"But to register a company, we need all the documents and deeds for the clan property. Those are in Mr. Lu's hands. Setting aside whether he'd be willing to hand them over—even if he were, registration still requires holding a Shareholders' Meeting."
 
-Given Chen Xuan's current power in the village and the village militia he controlled, if this Shareholders' Meeting was held, they could still elect him as Chairman. The goal of a surprise attack could not be achieved at all.
+Given Chen Xuan's current power in the village and the militia under his control, such a meeting would simply elect him as Chairman. A surprise attack would be impossible.
 
-"Registering directly is naturally not workable; we have to make a move first."
+"Direct registration won't work, of course. We need to make another move first."
 
-"What?"
+"What move?"
 
 "Fengshenghe."
 
-Chen Lin understood. Although Fengshenghe always appeared in the guise of "Clan Property," in fact, from Grandfather starting the factory to Father taking over operation, for these decades it was actually his own family operating it. Although many clan members made a living working in the factory, and Grandfather and Father often handed profits to the clan to buy clan fields and relieve the poor—of course, Fengshenghe also received financial support from the clan when turnover was difficult—the relevant owner on all documents and deeds of this factory was the family of Chen Lin.
+Chen Lin understood immediately. Though Fengshenghe had always operated under the guise of "clan property," the reality was different. From his grandfather founding the factory to his father taking over operations, the Chen family had run it for decades. Many clan members earned their living working there, and his grandfather and father had often contributed profits to purchase clan lands and provide relief to the poor. Fengshenghe had also received financial support from the clan during difficult times. But on every document and deed, the legal owner remained Chen Lin's family.
 
-虽然 Second Uncle and Third Uncle were both of this branch, they were cousins to his father, not sharing the same grandfather.
+Although Second Uncle and Third Uncle shared his family name, they were cousins to his father—not descended from the same grandfather.
 
-"These documents and deeds of your family are more than enough to register a company. Since it is wholly owned, is there still a need to hold any Shareholders' Meeting? Once you get the license for Fengshenghe, you can directly expel Chen Xuan. Rest assured, Chief Li won't put a spoke in the wheel..."
+"Your family's documents are more than sufficient to register a company. Since it's wholly owned, why would you need a Shareholders' Meeting? Once you obtain the license for Fengshenghe, you can expel Chen Xuan directly. Rest assured—Chief Li won't interfere."
 
-"Why?"
+"Why not?"
 
-"That Second Brother of mine is number one in eating, drinking, whoring, and gambling. But discussing true ability to handle affairs, let alone Big Brother, he doesn't even have one percent of your ability." Chen Ding sneered, "Chief Li is not blind; can't she see even this? It's not like she hasn't dealt with you. I think she sees clearly which is lighter and which is heavier." He continued to guide his nephew, "As long as you reveal your true feelings to Chief Li, that your attitude of cooperating with the Senate won't change, Chief Li will only be happy to see it succeed and will definitely not interfere. Besides, you are handling the cotton textile factory matters now; could she still doubt your sincerity in cooperating with the Senate?"
+"That Second Brother of mine excels at nothing but eating, drinking, whoring, and gambling. When it comes to actual capability, he doesn't possess even a fraction of your ability—let alone matching Big Brother." Chen Ding sneered. "Chief Li isn't blind. Do you think she can't see that? She's dealt with you before. I'm certain she recognizes who's worth more." He continued guiding his nephew. "As long as you make clear to Chief Li that your commitment to cooperating with the Senate remains unchanged, she'll be happy to see this succeed and won't interfere. Besides, you're handling the cotton textile factory matters now—could she still doubt your sincerity?"
 
-"That is true."
+"That's true."
 
-"As long as you retake Fengshenghe, you can turn your hand and hold the Shareholders' Meeting for clan property disposal according to Australian requirements. This was originally the Australian decree; who dares to defy? Even if Chen Xuan still holds the position of Head of Case, he dares not oppose. He can be arrogant now, bluntly speaking, firstly because Australians back him, secondly because he controls Fengshenghe, this Golden Hen, able to buy off foreign surnames and control clan members. You snatch the silk factory; he is empty-handed. Whether Australians, foreign surnames, or Chen clan members, who will still want him?"
+"Once you retake Fengshenghe, you can immediately hold a Shareholders' Meeting for clan property disposition according to Australian requirements. This follows Australian decree—who would dare defy it? Even if Chen Xuan still holds the Head of Case position, he won't dare oppose. His arrogance now stems from two things: Australian backing and control of Fengshenghe, the golden goose that lets him buy off outsiders and control clan members. Take the silk factory from him, and he has nothing. Australians, outsiders, Chen clan members—who will still want him?"
 
-"That's the logic!" Chen Lin nodded excitedly saying yes.
+"That's the logic!" Chen Lin nodded eagerly.
 
-Regarding the various documents and deeds of Fengshenghe, Chen Lin took them with him to Guangzhou when fleeing calamity back then. After returning, he quietly hid all relevant contracts in a double-walled partition in the graveyard—this was a secret only known to the eldest sons and grandsons of the upper three branches of their clan. Specially used to store important wealth and documents.
+When Chen Lin had fled during the troubles, he'd taken all of Fengshenghe's documents with him to Guangzhou. After returning, he had quietly hidden the contracts in a concealed compartment within a false wall at the graveyard—a secret known only to the eldest sons and grandsons of the upper three branches. It was meant specifically for storing important valuables and documents.
 
-Taking out the documents, Chen Lin went to Xiangshan with his uncle. Because relevant materials were complete, they handled all formalities without trouble.
+Retrieving the documents, Chen Lin traveled to Xiangshan with his uncle. With all the materials in order, the formalities proceeded without difficulty.
 
-After formalities were done, he originally wanted to go straight to Chen Xuan's residence to show his hand [confront], but was stopped by Third Uncle again.
+Once the paperwork was complete, he wanted to confront Chen Xuan directly at his residence, but Third Uncle stopped him again.
 
-"If you go directly to show your hand, given Second Brother's style, you fear to suffer loss on the spot." Chen Ding said. "The militia in his hands are all rash youths. You going there is breaking their rice bowls. If they don't beat you half to death on the spot, maybe even taking your small life is possible..."
+"If you go there now, given Second Brother's temperament, you'll likely suffer for it on the spot," Chen Ding warned. "The militia under his command are all hot-headed youths. You'd be threatening their livelihoods. If they don't beat you half to death on the spot, they might just take your life..."
 
-"Then... what to do?"
+"Then... what should I do?"
 
-"Now you are already the owner of Fengshenghe, but the factory is not in your hands; others usurped it. Since it is so, go to Xiangshan County. The Circuit Court is coming these few days; you just go directly to sue..."
+"You're now the legal owner of Fengshenghe, but the factory isn't in your hands—someone has seized it. Since that's the case, go to Xiangshan County. The Circuit Court convenes in the coming days. File a lawsuit."
 
-"Sue?!"
+"A lawsuit?!"
 
-"Correct. Someone usurped your private property and refuses to withdraw; your lawsuit is reasonable and legal. At that time, once a written judgment comes down, it's not up to him not to scram!"
+"Exactly. Someone has usurped your private property and refuses to vacate. Your case is both reasonable and legal. Once a judgment comes down, he'll have no choice but to leave."
 
-"But... going to the Yamen to sue is no small matter. The Yamen opens like the character 'Eight'; reasonable but moneyless, don't come in..."
+"But... taking matters to court is no small thing. As the saying goes, 'The yamen gates open wide; with reason but no money, don't come inside...'"
 
-"That was the Ming State times. Now Australians don't practice this rule! Do you still remember matters in Lingao?"
+"That was under Ming rule. The Australians don't follow such practices! Do you remember what happened in Lingao?"
 
-"Remember."
+"I remember."
 
-"If under Great Ming rule, even if you were an innocent person falsely accused, could you be released without spending ten-odd taels of silver once you went in?"
+"Under the Great Ming, even if you were innocent and falsely accused, could you have walked out without spending ten-odd taels of silver?"
 
-Being said like this by him, Chen Lin immediately drummed up courage. Nodding: "This matter is feasible. Just such a big action, do we need to ventilate with Chen Xiaobing first? Also have to let Chief Li have some mental preparation."
+This reasoning bolstered Chen Lin's resolve. He nodded. "This could work. But such a significant move—shouldn't we inform Chen Xiaobing first? And give Chief Li some advance warning?"
 
-"You think comprehensively." Chen Ding smiled. "Chief Li already went to Guangzhou to handle affairs the day before yesterday; she won't be back for ten days or half a month. As for Comrade Chen's side, I will speak to them. You just go sue."
+"You think thoroughly." Chen Ding smiled. "Chief Li left for Guangzhou two days ago to handle business; she won't return for ten days to half a month. As for Comrade Chen, I'll speak with them. You just file the lawsuit."
 
-Chen Lin saw he had a well-thought-out plan in his chest [was confident] and couldn't help feeling a bit strange: Third Uncle's rhetoric was seamless, set after set hitting the mark... With further careful thought, he suddenly realized: no matter how smart Third Uncle was, he had only contacted Australians for a few months. Picking these laws and regulations so accurately, could it be he was possessed by an Australian?
+Chen Lin noticed his uncle's confident demeanor and felt a twinge of curiosity. Third Uncle's arguments were airtight, each point striking true... Upon reflection, something clicked: however clever Third Uncle might be, he'd only been in contact with the Australians for a few months. How could he navigate their laws and regulations so precisely—unless he'd been coached by one?
 
-Thinking of this, his worries completely disappeared.
+With that realization, his worries vanished entirely.
 
-After Chen Lin got all document proofs, he went quietly to Xiangshan County a few days later and filed a complaint to the Circuit Court.
+A few days after obtaining all the documents, Chen Lin quietly traveled to Xiangshan County and filed his complaint with the Circuit Court.
 
-The Circuit Court received Chen Lin's complaint. Evidence was conclusive, so they immediately issued a summons to Chen Xuan. Chen Xuan was still in a muddle when he was summoned to court. Seeing it was actually his nephew suing him, he jumped in thunderous rage: didn't expect this kid's respect in former days was all disguise! He wanted to rush over to "beat this rabbit cub to death" right in court. Not only did he lose the lawsuit on the spot, but he was also sentenced to 20 lashes and one week detention for "Contempt of Court."
+The court reviewed Chen Lin's complaint. The evidence was conclusive, so they immediately issued a summons to Chen Xuan. Still bewildered when he arrived, Chen Xuan discovered his own nephew was the plaintiff. He exploded with rage—so the boy's deference had been nothing but pretense! He tried to charge across the courtroom to "beat this rabbit cub to death." Not only did he lose the lawsuit immediately, but he was also sentenced to twenty lashes and one week's detention for contempt of court.
 
-Chen Lin got the judgment and wanted to go back to retake the factory. Unexpectedly, the court was very considerate and assigned the County Police Department to dispatch a team of police to execute.
+Chen Lin obtained the judgment and prepared to reclaim the factory. To his pleasant surprise, the court proved quite accommodating, assigning a team of police from the County Police Department to execute the order.
 
-Once the police entered the village, someone went to report in panic. Several clan elders rushed over immediately, thinking something big happened.
+When the police entered the village, someone ran to spread the alarm. Several clan elders rushed over immediately, fearing something grave had occurred.
 
-"Lin'er, how is it you?" A clan elder was surprised.
+"Lin'er, is that you?" one elder exclaimed in surprise.
 
-"Granduncle An! I also had no alternative. Third Uncle Xuan [Second Uncle Chen Xuan, refering to seniority?] has been occupying Fengshenghe. You old elderly know: since my grandfather founded and father took over operation, two generations of management, this was originally my family's private property! Since he refused to withdraw, Nephew could only ask the Australians to uphold justice." Chen Lin said.
+"Granduncle An! I had no alternative. Second Uncle Xuan has been occupying Fengshenghe all this time. You elders know the truth: my grandfather founded that factory and my father operated it—two generations of management. It was always our family's private property! Since he refused to vacate, I had no choice but to ask the Australians for justice." Chen Lin spoke with careful deference.
 
-"Sigh, sigh, although this is your family affair, it is also a family affair after all..." In the urgency, this Granduncle An didn't know what to say. "Going through officials and disturbing government... this, this, improper... improper..."
+"Ah, well, though this is your family matter, it remains a family matter nonetheless..." In his confusion, Granduncle An struggled for words. "Involving officials, disturbing the government... this, this is improper... improper..."
 
-"Nephew was also forced and helpless." Chen Lin felt disdain in his heart. *Improper my ass! Why didn't you say it was improper when he seized the factory?!* He couldn't be bothered to haggle anymore, saying: "Retrieving the factory, the clan naturally has benefits. Doesn't it surpass him using this factory to raise foreign surnames now?"
+"I was left with no choice." Chen Lin felt contempt rising within him. *Improper? Where was this concern for propriety when he seized the factory?* But he couldn't be bothered to argue, instead saying: "With the factory returned, the clan will naturally benefit. Surely that's better than him using it to feed outsiders now?"
 
-The clan elders originally had complaints about Chen Xuan colluding with foreign surnames to control village administration. Now pointed out by Chen Lin to their faces, no one could refute, speechless for a time.
+The clan elders had long harbored grievances about Chen Xuan collaborating with outside surnames to control village affairs. Now that Chen Lin stated it plainly to their faces, none could offer a rebuttal. They fell silent.
 
-Chen Lin said again, "Chen Xuan is morally corrupt, seducing foreign surnames, occupying clan property. Now he roared at the court hall in court and has been stripped of the Baojia position by the County Government!" He scanned the elders of various branches from left to right. "Please, elders of each branch, go to the ancestral hall to discuss matters!"
+"Chen Xuan is morally corrupt," Chen Lin continued. "He seduced outsiders with clan resources and seized clan property. Just now, he made an outburst in court and has been stripped of his Baojia position by the County Government!" His gaze swept across the elders of the various branches. "I ask that you all proceed to the ancestral hall to discuss these matters!"
 
-Chen Lin assumed the tiger's might [borrowed authority]. Young disciples in the clan receiving the news also flocked over, clustering around him. For a time, no one dared to question anymore. Chen Xuan had no prestige within the clan usually; in times of danger, even fewer people were willing to stick their heads out for him. The clan elders had to make way.
+Chen Lin wielded borrowed authority like a tiger's roar. Young men from the clan, hearing the news, came flocking to cluster around him. For the moment, no one dared question him further. Chen Xuan had never commanded respect within the clan; in this crisis, even fewer were willing to stick their necks out for him. The elders had no choice but to step aside.
 
-Chen Lin brought the police to Fengshenghe. Mr. Lu welcomed him out, obviously stunned by the scene before him.
+Chen Lin led the police to Fengshenghe. Mr. Lu emerged to greet them, clearly stunned by the scene before him.
 
-"This is... what is this doing?!"
+"What... what is the meaning of this?!"
 
-"Mr. Lu, I came to take back the Fengshenghe Silk Factory." Chen Lin had thought about these words for a long time. "You just tell the workers not to worry. This is a private matter in my clan. Those working just work; they won't miss a penny of wages. Please come to work as usual tomorrow too!"
+"Mr. Lu, I've come to reclaim the Fengshenghe Silk Factory." Chen Lin had rehearsed these words many times. "Please inform the workers there's nothing to worry about. This is a private matter within my clan. Those who work will continue working—not a single coin will be missing from their wages. Please come in as usual tomorrow as well."
 
-"Yes..." Mr. Lu saw several police officers coming over and pasting the court notice at the factory gate, knowing this matter was not fake. He was both surprised and appreciative. Didn't expect this Chen Lin, so young, to actually have such means! Acting low and submissive at first, flattering Chen Xuan in every way; seizing the chance to defect to Australians, climbing onto a backer, returning to the village to stand as an equal; now seizing the opportunity for a thunderous strike, crushing Chen Xuan instantly... This means, this scheming!
+"I see..." Mr. Lu watched several officers approach and paste the court notice at the factory gate. He knew then this was no bluff. Both surprised and impressed, he hadn't expected someone so young to possess such cunning. Chen Lin had acted submissive at first, flattering Chen Xuan at every turn. Then he'd seized the chance to defect to the Australians, securing powerful backers, returning to the village as an equal. Now, at the opportune moment, he'd struck like thunder, crushing Chen Xuan in an instant. Such methods. Such scheming.
 
-"Since there is a government notice, this student naturally obeys." Mr. Lu responded calmly. "Ninth Master, you were originally the Young Owner here; now it counts as returning the Jade to Zhao [returning property to original owner]."
+"Since there is a government notice, I shall naturally comply," Mr. Lu responded evenly. "Ninth Master, you were always the Young Master here. Consider this the jade returning to its rightful owner."
 
-The stance of these words was already clear. Chen Lin found it very agreeable, saying: "Mr. Lu, please maintain the situation of the factory temporarily. And these police big brothers, trouble you to entertain them with tea and water. I still have to go to the clan meeting."
+The meaning behind those words was clear. Chen Lin found them most agreeable. "Mr. Lu, please maintain the factory's operations for now. And these officers—if you could see to their refreshments. I must attend the clan meeting."
 
 (End of Chapter)

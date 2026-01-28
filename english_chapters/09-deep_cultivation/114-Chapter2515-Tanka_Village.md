@@ -1,16 +1,16 @@
 # Chapter 2515: Tanka Village
 
-"Kuang Yan, let's go." The scholar called to the servant boy and walked onto a "Qiwei" mule cart.
+"Kuang Yan, let's go." The scholar beckoned to his servant boy and climbed aboard a Qiwei mule cart.
 
 "Coming, Young Master."
 
-After getting on the cart, the scholar ordered the servant boy to prepare brush and ink. At this moment, literary thoughts surged in his heart; he got a good poem.
+Once settled in the cart, the scholar ordered his servant to prepare brush and ink. A poem had taken shape in his mind, and his literary impulse demanded release.
 
-"Young Master, the cart is bumping terribly. How can one write good characters? I'm afraid the ink juice will spill all over the floor," the servant boy called Kuang Yan muttered.
+"Young Master, the cart jostles something terrible," the servant boy Kuang Yan protested. "How can anyone write properly? The ink will spill everywhere."
 
-The scholar glanced at him sideways and said, "Would your Young Master care about these?"
+The scholar shot him a sidelong glance. "When has your Young Master ever cared about such things?"
 
-Kuang Yan had no choice but to take out the Four Treasures of the Study on the bumpy donkey cart. Prepared properly, the scholar lifted the brush and wrote:
+Kuang Yan had no choice but to retrieve the Four Treasures of the Study, wrestling with brush, ink, paper, and inkstone on the lurching donkey cart. Once everything was arranged, the scholar lifted his brush and wrote:
 
 *Return Excitement*
 *Last year with books and sword returned to Xianyang,*
@@ -24,74 +24,74 @@ Kuang Yan had no choice but to take out the Four Treasures of the Study on the b
 
 *Signature: Kuang Lu, Bingzi Year*
 
-During the Longxing reign of the Southern Song Dynasty, the Kuang clan fled from Zhuji Lane in Nanxiong to Dazhen Township, Dali Fort, Nanhai County to settle down. Kuang Lu and his servant's trip this time counted as re-walking the "Long March" road of their ancestors. Walking all the way, remembering the past of ancestors moving south, couldn't help but sigh with emotion.
+During the Longxing reign of the Southern Song Dynasty, the Kuang clan had fled from Zhuji Lane in Nanxiong to settle in Dazhen Township, Dali Fort, Nanhai County. This journey of Kuang Lu and his servant amounted to retracing the "Long March" of their ancestors. Each step of the way stirred memories of that southward migration, and he could not help but sigh at the weight of history.
 
-Speaking of which, a wanderer returning home always has many expectations and joys. However, Kuang Lu had absolutely no such mood.
+A wanderer returning home should feel expectation and joy. Yet Kuang Lu harbored no such sentiment.
 
-Once entering Nanxiong, it was "Enemy Country."
+The moment he crossed into Nanxiong, he had entered "enemy country."
 
-Guangdong, where his family had lived for generations, was now actually "Great Song" territory. Kuang Lu felt both absurd and sad. Didn't know how his beloved Guangzhou city and family and friends were doing...
+Guangdong, where his family had lived for generations, now flew the banner of a "Great Song" regime. Kuang Lu found the situation both absurd and heartbreaking. He wondered constantly how his beloved Guangzhou and all his family and friends were faring...
 
-Nanxiong was the station of the Lingnan Sub-provincial Administration Commissioner in the Ming Dynasty and mostly an important distribution center for Guangdong-Jiangxi goods. Qiwei and Dachang both had distribution points along the North River trade route. In the Ming Dynasty, there were no passenger boats direct from Nanxiong to Dali. Kuang Lu, master and servant, sometimes took boats and sometimes took carts, bumping all the way. Fortunately, the whole journey was arranged by Qiwei Travel Agency. Whether taking a cart or sitting in a boat, lodging or eating a quick meal, someone arranged it properly. The road was actually smooth. Just saw patrolling Australian patrol teams and patrol boats often along the way. There were often checkpoints and towers at key passes. Frequent inspections and interrogations made the atmosphere somewhat tense.
+During the Ming Dynasty, Nanxiong had served as the station of the Lingnan Sub-provincial Administration Commissioner and a major distribution hub for goods traveling between Guangdong and Jiangxi. Both Qiwei and Dachang maintained trading posts along the North River route. Since no passenger boats ran directly from Nanxiong to Dali, Kuang Lu and his servant alternated between boats and carts, enduring a bumpy journey. Fortunately, Qiwei Travel Agency had arranged everything—whether riding in a cart or sitting in a boat, finding lodging or grabbing a quick meal, someone always had it sorted. The road itself proved smooth enough. What unsettled him were the Australian patrol teams and patrol boats that appeared constantly along the way, the checkpoints and watchtowers guarding every strategic pass, the frequent inspections and interrogations that cast a pall of tension over everything.
 
-This day they arrived at Dali Fort. This place was located on the Pearl River Delta alluvial plain. The water network was dense, river channels crisscrossed, and water transportation was very convenient. Just following the boats coming and going between various strongholds on the North River trade route, one could return home in a few days.
+This day they arrived at Dali Fort, situated on the Pearl River Delta alluvial plain. Water networks spread in every direction, river channels crisscrossing to make transportation effortless. Following the boats plying the North River trade route between various strongholds, he could be home in just a few days.
 
-Originally thought that with Kun thieves rebelling, everywhere must be broken walls and ruins, people having no way to live. But the scenes seen along the way made Kuang Lu feel quite surprised. Although collapsed houses and many traces of fire could be seen in riverside market towns, the villagers going to market came and went in bustles. Traveling merchants were endless on the road. Basically, former prosperity had been restored. Many simple shacks were newly built on waste lands along the river. Looking from afar, they looked like small villages.
+He had expected the Kun rebellion to have left nothing but broken walls and ruins, with people struggling to survive. The scenes along the way surprised him. Though riverside market towns bore collapsed houses and the scars of fire, villagers thronged to market in lively crowds, and traveling merchants filled the roads in endless streams. Much of the former prosperity had returned. Simple shacks lined the riverbanks on reclaimed wasteland, clustering together to form what looked like small villages in the distance.
 
-"Boatman, what is the matter with these stilt shacks? Why haven't I seen them before?" Kuang Lu asked the boatman rowing the oar.
+"Boatman, what are those stilt shacks?" Kuang Lu asked the man working the oar. "I don't recall seeing them before."
 
-The boatman pointed to the riverbank with his finger. "Guest is talking about Tanka villages, right? Listening to your accent, you don't sound like an outsider. Don't you know the Senate's grace?"
+The boatman gestured toward the shore. "You mean the Tanka villages? From your accent, you don't sound like an outsider. Surely you've heard of the Senate's beneficence?"
 
-Kuang Lu smiled bitterly and said, "Honestly, I offended the magistrate a few years ago and went to wander the world. Heard that the world changed in Liangguang before daring to go home to fulfill filial piety. Indeed do not know the changes in the hometown."
+Kuang Lu smiled ruefully. "To be honest, I offended a magistrate some years ago and fled to wander the world. Only when I heard that Liangguang had changed hands did I dare return home to fulfill my filial duties. I truly don't know what's happened here."
 
-Hearing this, the boatman couldn't help but rise in respect and said: "The dog officials of the former dynasty had few good things. Sir not fearing power must be a good person."
+At this, the boatman's manner grew respectful. "Those dog officials of the old dynasty—hardly a good one among them. A gentleman unafraid to defy power must be a good man indeed."
 
-"Ashamed..." Kuang Lu was a bit embarrassed. The past events between him and Magistrate Huang were actually mostly acting on impulse. That person surnamed Huang was certainly not a good thing, but he himself was just acting out of temper.
+"You flatter me..." Kuang Lu felt a twinge of embarrassment. His clash with Magistrate Huang had been mostly impulsive. The man surnamed Huang was certainly no saint, but Kuang Lu himself had simply been acting on temper.
 
-"The former dynasty not only collected fish tax from us Tanka people, but also collected feathers, fish bladders, fish oil. Poll tax silver couldn't be less either. Also wanted us to perform corvée labor. Our taxes were heavier than anyone else's, yet we weren't allowed to study and take imperial exams, not allowed to marry with us, not allowed to live on shore. Not allowed to wear shoes on shore either. Big water fish eat ants, dry water ants eat fish. Big bully small, small bully short. If none to bully, bully Tanka boys..."
+"The old dynasty didn't just collect fish tax from us Tanka people—they taxed our feathers, fish bladders, fish oil. Poll tax too, every bit of it. And they made us perform corvée labor. Our taxes were heavier than anyone's, yet we weren't allowed to study for the imperial exams, weren't allowed to intermarry with land folk, weren't allowed to live on shore. We couldn't even wear shoes when we stepped onto land. Big water, fish eat ants; dry water, ants eat fish. The strong bully the weak, the weak bully the small, and when there's no one left to bully, they bully the Tanka boys..."
 
-The boatman recounted the hardships of life. Unknown why, there was light in his eyes again: "The Senate issued an edict as soon as they came, saying everyone is equal under Great Song's heaven, abolishing all former dynasty base status. Also exempted many of our taxes, and allowed us to live on shore, allowed us to study, join the army, participate in imperial exams. Truly like dreaming! Those stilt houses Master sees were built on waste lands where the Chiefs allowed us to settle. The surrounding waste lands were also allowed for us to reclaim, exempting five years of field tax. Harvest on shore wasn't good this year; there was famine everywhere. The Senate organized many dike repair jobs. Just go work and there's a bite to eat."
+The boatman recounted these hardships, yet somehow a light kindled in his eyes. "The Senate issued an edict the moment they arrived—everyone is equal under Great Song's heaven. They abolished all the old dynasty's base statuses. Exempted many of our taxes. Allowed us to live on shore, to study, to join the army, to sit for the exams. It felt like a dream! Those stilt houses you see, Master—the Chiefs gave us permission to build on wasteland. They even let us reclaim the surrounding fields, tax-free for five years. The harvest on shore was poor this year; famine spread everywhere. But the Senate organized dike repair work. Show up to labor and you eat."
 
-Hearing this, Kuang Lu was surprised in his heart. He understood the situation of Pearl River Tanka households quite well: when water was high and fish were plentiful in spring and summer, they could have a full meal. Poverty all year round. for survival, wives and daughters selling smiles was also a common thing. Kun thieves abolished their base status as soon as they came, treating them like good citizens; these people would ultimately not be used by Great Ming.
+Kuang Lu listened with growing unease. He understood the Pearl River Tanka households well: in spring and summer when waters rose high and fish ran plentiful, they might fill their bellies. The rest of the year meant poverty. To survive, wives and daughters often had to sell their smiles. If the Kun rebels had abolished their base status immediately upon arrival, treating them as free citizens—these people would never serve the Great Ming again.
 
-Kuang Lu asked the boatman: "You also did things for the Australians, right?"
+"You've done work for the Australians too, haven't you?" Kuang Lu asked.
 
-The boatman laughed: "How could I not have! Not hiding from Master: three years ago someone sat on my boat and asked me 'If someone lets you build houses on shore, live like people on land, start a family and career the same, would you support it?' I said 'I don't understand what support means, I only know if there is such a parent official, I'll listen to him for everything.' Later, the Chief attacked Wuzhou and recruited boatmen. I brought more than a dozen brothers to help Chiefs sail boats and transport grain."
+The boatman laughed. "How could I not? I won't hide it from you, Master—three years ago, someone sat in my boat and asked me: 'If someone let you build houses on shore, live like land folk, raise a family and make a life the same as anyone—would you support them?' I said, 'I don't understand what support means. I only know that if such a parent-official existed, I'd follow him in everything.' Later, when the Chief attacked Wuzhou and recruited boatmen, I brought more than a dozen brothers to help the Chiefs sail boats and haul grain."
 
-"Oh, why didn't you mix into a half-official position?"
+"Oh? Why didn't you parlay that into some official position?"
 
-"Master is joking. Old man is sixty years old this year. Don't know a single big character, can't learn even if I try. We people beg for life on water all year round, a body full of pain. Every rainy day, joints and bones all over the body hurt. Also living in this narrow boat bending waist all year round, back is also hunched. Don't mention being an official, didn't even have the ability to be a runner."
+"Master jests. This old man is sixty this year. Can't read a single character, and too old to learn. We water folk spend our whole lives begging for survival on the river—bodies full of aches. Every rainy day, every joint and bone screams. And living bent over in these narrow boats year after year, my back has hunched. Never mind being an official—I hadn't even the ability to be a runner."
 
-The boatman's clothes were full of patches. Under the shrimp hat, temples were spotted white. Wrinkles on the face were like scars drawn by years. Once the chatterbox opened, everything poured out. "We Tanka households were base people looked down upon by others. Little old man only started a family at over fifty. Wife was a widow, also Tanka household. Remarried to me only after husband died. Originally thought she was over ten years younger than me, I could always rely on her till old age. Didn't expect she actually died before me! Didn't get to see today. She was a good woman. Washing clothes, cooking, catching fish, transporting goods, grabbed to do everything. The holes in these clothes of mine were repaired by her. Without her, I'd still be wearing clothes leaking wind and rain. I think she must have owned me a debt in previous life, came to repay in this life. She also says so. But why only repay for a few years and left? She died, my soul was like lost. Almost fell into the river to drown several times..."
+The boatman's clothes were more patches than cloth. Beneath his shrimp hat, his temples showed spots of white. The wrinkles on his face might have been scars carved by the years. Once his floodgates opened, everything poured out. "We Tanka households were base people, looked down upon by everyone. I didn't marry until past fifty. My wife was a widow, also Tanka. She remarried me after her first husband died. I thought since she was more than ten years younger, I could rely on her in my old age. Never imagined she'd die before me! Never got to see these days. She was a good woman. Washing clothes, cooking, catching fish, hauling cargo—she grabbed at every task. These patched holes in my clothes? Her handiwork. Without her, I'd still be wearing rags that let in wind and rain. I always figured she must have owed me a debt in a past life and came to repay it in this one. She said the same. But why repay for only a few years and then leave? When she died, my soul went with her. Nearly fell into the river and drowned a few times..."
 
-A cool breeze blew past. The corners of Kuang Lu's eyes were somewhat moist. Speaking truthfully, he had seen too much human suffering; this counted as nothing. These few drops of tears were not shed for this Tanka household, but for this world. He didn't want the boatman to see, walked out of the boat awning, gaze falling exactly on the couplet with blurry whitish handwriting on the boat awning. Written crookedly:
+A cool breeze swept past. The corners of Kuang Lu's eyes grew moist. In truth, he had witnessed too much human suffering for this to rank among the worst. These few tears were not for this one Tanka man, but for the whole broken world. Not wanting the boatman to see, he stepped out from under the boat awning. His gaze fell upon a couplet painted in faded, chalky characters on the canopy:
 
-*Tanka born Tanka die in boat several generations of Tanka*
-*Cross wind go cross wind come inside awning a life of cross wind*
+*Tanka born, Tanka die, in boat for generations of Tanka*
+*Cross wind go, cross wind come, inside awning a life of cross wind*
 
-*Horizontal scroll: Die early is better*
+*Horizontal scroll: Better to Die Early*
 
-Seeing him looking entranced, the boatman said: "This was written by a scholar for me a few years ago. I don't know characters; friends on water don't know characters either. Guests coming and going all laughed when seeing it. Presumably a good couplet."
+Seeing him transfixed, the boatman said, "A scholar wrote that for me some years back. I can't read. My friends on the water can't read either. Every guest who passed through laughed when they saw it. Must be a good couplet."
 
-Kuang Lu said, "Good is good, just a bit old. How about I give you a new one."
+"Good it may be," Kuang Lu said, "but it's grown old. Let me give you a new one."
 
-"Good ah. Sir is truly a person of temperament. Our village is not far ahead. Wait for me to go ashore to find a pair of red papers." The boatman spoke and sailed toward the direction of the Tanka village ahead.
+"Wonderful! Sir, you're truly a man of feeling. My village isn't far ahead. Let me go ashore and find some red paper." The boatman steered toward the Tanka village up ahead.
 
-"Also good. I just happen to want to buy some dried Xiang fish goods."
+"That suits me. I'd like to buy some dried Xiang fish while we're there."
 
-"Little old man has no silver money. These things are plenty. Since Master likes them, little old man will take some to honor you!"
+"This old man has no silver. But those goods I've got plenty of. Since Master has a taste for them, let me offer some as a gift!"
 
-Kuang Yan pulled Kuang Lu's clothes corner secretly, signaling fear of eating board blade noodles (being robbed/killed). Kuang Lu patted his shoulder, comforting in a low voice: "No harm. Young Master I am proficient in six arts, complete in civil and martial skills. Ordinary people can do nothing to me. This place has entered Fen River, not far from Dali. I heard there is a team of Australian troops right in Dali. There are also frequent Australian patrol boats on this river surface. Not a place without King's law. Also exactly right to reduce the Australian rule is what kind of River Clear Sea Calm."
+Kuang Yan tugged secretly at Kuang Lu's sleeve, signaling his fear of being robbed or worse. Kuang Lu patted his shoulder and murmured reassurance: "No harm. Your Young Master is accomplished in the six arts, complete in both civil and martial skills. Ordinary men can do nothing to me. Besides, we've entered the Fen River now, not far from Dali. I hear an Australian garrison is stationed right in Dali, and their patrol boats frequent these waters. This is no lawless place. It's also a chance to see just how peaceful and orderly Australian rule truly is."
 
-"Young Master, what couplet do you want to give him?"
+"Young Master, what couplet will you give him?"
 
-"Winter goes spring comes, joy east south west north bid farewell to old year. Bitterness ends sweetness arrives, gaze lake sea river stream celebrate new life. Horizontal scroll: Great Good River Mountain." Kuang Lu added heavy stress on the last four characters.
+"Winter goes, spring comes—joy from east, south, west, north bids farewell to the old year. Bitterness ends, sweetness arrives—gaze upon lake, sea, river, stream to celebrate new life. Horizontal scroll: Great and Good Rivers and Mountains." Kuang Lu stressed those final four characters heavily.
 
-"Young Master hates Governor Xiong for losing this Great Good River Mountain, right?"
+"Young Master resents Governor Xiong for losing this great and good land, doesn't he?"
 
-Kuang Lu did not speak. *Was it Governor Xiong who lost it?*
+Kuang Lu did not answer. *Was it truly Governor Xiong who lost it?*
 
-At this time, Saltwater Songs were hummed from the bow:
+Just then, a Saltwater Song drifted from the bow:
 
 *"Three mud piles build a stove ne, sand pot cooking rice no bottom wind stove ah li,*
 *Rice va no leftover overnight rice luo, stove pit no strip of overnight firewood ah li!*
@@ -101,16 +101,16 @@ At this time, Saltwater Songs were hummed from the bow:
 *Rattan strip bamboo strip bag bundle everywhere luo, head shake tail swing like deep sea fresh dragon ah li.*
 *Master fix boat but not prevent leak luo,*
 *Your sister-in-law sleep down at night look fish swim ah li,*
-*Master fix awning but not lay leaves luo, your sister-in-law sleep down at night also look Sky River (Milky Way) ah li."*
+*Master fix awning but not lay leaves luo, your sister-in-law sleep down at night also look Sky River ah li."*
 
-The lyrics were sad and sorrowful; the singer was in high spirits. The small boat moved forward briskly accompanied by the singing voice. Before reaching the shore, someone on shore shouted: "Uncle Salmon, Principal Tian and Doctor Hou are coming..."
+The lyrics were mournful, but the singer's spirits soared. The small boat skimmed forward to the rhythm of his voice. Before they reached the shore, someone called out: "Uncle Salmon! Principal Tian and Doctor Hou are coming..."
 
-The boatman shouted back: "Alright, I'm coming right away!"
+The boatman shouted back: "Alright, I'm on my way!"
 
-"What fish is Salmon?" Kuang Yan asked curiously.
+"What kind of fish is a salmon?" Kuang Yan asked curiously.
 
-"What milk name (childhood name)? That's only for people on shore!" The boatman said, "Little brother doesn't know. My original name was Zeng Carp. When I helped the Chief transport grain, the Chief said, carp living in ponds, the pattern is too small. Salmon is a kind of deep-sea fish. Have to be like salmon, trekking thousands of *li* to find the place one came from. This is called Salmon's Dream. If people don't have dreams, what's the difference from salted fish? I haven't seen salmon, but since the Chief said so, presumably it is very good. Later I changed my name to Zeng Salmon."
+"A childhood nickname? Those are for land folk!" The boatman said. "Young brother, you don't know. My original name was Zeng Carp. When I helped the Chief transport grain, the Chief told me: carp live in ponds—too small a pattern. Salmon is a deep-sea fish. You have to be like the salmon, trekking thousands of *li* to find the place you came from. That's called the Salmon's Dream. If a man has no dreams, what makes him different from salted fish? I've never seen a salmon myself, but since the Chief said so, it must be something fine. After that, I changed my name to Zeng Salmon."
 
-Kuang Yan sniffed at this, thinking secretly: *"Kun thieves are indeed crude."*
+Kuang Yan sniffed at this, thinking: *"These Kun rebels truly are crude."*
 
 **(End of Chapter)**

@@ -1,87 +1,87 @@
 # Chapter 2602: An Imperfect Ending
 
-Yuan Shuzhi's successful escape was a pleasant surprise for Lu Cheng. She had originally lost hope for Yuan Shuzhi, but unexpectedly, he not only ran out but also brought the approximate location of the farm estate.
+Yuan Shuzhi's escape came as a welcome surprise. Lu Cheng had written him off as lost, yet not only had he survived—he'd brought back the approximate location of the farm estate.
 
-Although Yuan Shuzhi only knew roughly how much time had passed when he was sent to and taken out of the farm estate and wasn't clear about the direction and path, he still remembered the general direction of his escape route last night.
+Though Yuan Shuzhi couldn't pinpoint the exact route he'd traveled while blindfolded and bound, he remembered the general direction of last night's desperate flight. That was enough.
 
-Lu Cheng immediately dispatched a squadron of the Agricultural Reclamation backbone force and fast-squad bailiffs familiar with the local situation. Under his guidance, they first found the wild tea stall, and then tracked along the escape route. In less than half a day, they found the ruined temple. At this moment, it had been burned into ruins.
+Lu Cheng immediately dispatched a squadron of Agricultural Reclamation veterans alongside fast-squad bailiffs who knew the local terrain. With Yuan Shuzhi guiding them, they located the wild tea stall first, then tracked his escape route backward. Within half a day, they found the ruined temple—reduced now to smoldering rubble.
 
-Clearing the ruins, they found more than ten charred corpses underneath. Obviously, these were the people who were dismissed by Steward Gao along with Yuan Shuzhi yesterday. After losing their vigilance, most people probably chose to spend the night in the ruined temple and were subsequently killed. As for those who chose to leave overnight, they likely lost their lives halfway.
+Clearing the debris, they uncovered more than ten charred corpses. These were the workers Steward Gao had dismissed alongside Yuan Shuzhi the previous day. With their guard down, most had likely chosen to shelter in the temple overnight—and paid for that decision with their lives. Those who had ventured out into the darkness probably met similar fates along the road.
 
-Since the ruined temple was found, finding the farm estate was not difficult. The mountains seemed boundless, but actually, there were only a few passable roads, especially for sedan chairs.
+From the temple, finding the estate proved straightforward. The mountains appeared endless, but only a handful of paths could accommodate sedan chairs.
 
-After a search, the backbone squadron and the retained fast-squad bailiffs found the farm estate where Yuan Shuzhi had stayed that night. Naturally, the farm estate had long been empty, with only a few tenant families and more than ten house guards responsible for protecting the estate still there. Lu Cheng interrogated them on the spot. The tenants said that this was indeed Master Quan's farm estate and originally many people lived there, but starting from a few days ago, the people inside left one after another. As for where they went, the tenants naturally didn't know, only crying out their innocence, saying they were just honest tenants cultivating Master Quan's mountain fields and guarding the estate, having never done anything illegal.
+After a systematic search, the squadron located the farm estate where Yuan Shuzhi had been held. Predictably, it stood empty. Only a few tenant families remained, along with a dozen house guards tasked with protecting the property. Lu Cheng interrogated them on the spot. The tenants confirmed this was indeed Master Quan's estate and that many people had lived there until recently—departing one by one over the past few days. Where they went, the tenants claimed not to know. They protested their innocence with practiced desperation: they were honest farmers, nothing more, cultivating Master Quan's mountain fields and watching over his property, never involved in anything unlawful.
 
-As for the house guards, nothing substantial was asked out of them either. They only said that Steward Gao was the last to leave the estate, and when he left, he instructed them to "guard it strictly."
+The house guards proved equally unhelpful. They knew only that Steward Gao had been the last to leave, instructing them to "guard it strictly" before his departure.
 
-"How many days have they been gone?"
+"How long have they been gone?"
 
-"The Daoist and the Master have been gone for three or four days. Steward Gao left yesterday."
+"The Daoist and the Master left three or four days ago. Steward Gao departed yesterday."
 
-Searching the estate naturally yielded nothing. Large amounts of paper ash were piled up in the kitchen and ash shed, obviously left by burning account books and similar material evidence. However, in the estate's warehouse, there were many drugs remaining, including a large amount of "Lushi Powder" and many "Australian drugs" in original packaging. After identification by members of the investigation team with medical backgrounds, most were antibiotics and painkillers.
+A thorough search of the estate yielded no smoking gun. Mountains of paper ash filled the kitchen and ash shed—clearly the remains of incinerated account books and other incriminating documents. However, the warehouse still held significant quantities of drugs: stockpiles of "Lushi Powder" alongside various "Australian drugs" in their original packaging. Investigation team members with medical backgrounds identified most as antibiotics and painkillers.
 
-In addition, they also found about ten thousand silver dollars and silver dollar coupons—after appraisal, they were all counterfeit. The silver dollars were cast with Zhuti silver, and the silver dollar coupons were modified from grain circulation coupons.
+They also discovered roughly ten thousand silver dollars and silver dollar coupons. Appraisal confirmed every piece was counterfeit—the coins cast from Zhuti silver, the coupons crudely modified from grain circulation vouchers.
 
-Although the harvest was bountiful, Lu Cheng was dissatisfied with such an outcome. Now, they clearly knew that the fake medicine group was colluding with the Huidaomen group and intended to rebel. But after working on the case for so long, they neither caught the mastermind nor obtained detailed relevant intelligence. This was really impossible to explain to the Senators.
+Despite this haul, Lu Cheng remained unsatisfied. The situation was now clear: the counterfeit medicine ring was collaborating with the Huidaomen to plan a rebellion. Yet after all this work, they had captured neither the mastermind nor obtained detailed intelligence. How could she possibly explain such an outcome to the Senators?
 
-She pondered for a long time at the farm estate, reading Yuan Shuzhi's report and the tenants' confessions back and forth several times. She felt that since Quan Youde and Daoist Wood Stone stayed here for a long time and asked Yuan Shuzhi to do accounts for more than a week, this place was obviously one of their important strongholds. Their silencing and burning of account books last night was a preventive action for retreat, but they definitely didn't expect Yuan Shuzhi to escape the silencing and immediately bring people to find this place. The large amount of drugs and counterfeit money left here showed that they hadn't formally abandoned this stronghold, but just took preventive measures.
+She lingered at the estate, poring over Yuan Shuzhi's report and the tenants' confessions again and again. One thing seemed certain: since Quan Youde and Daoist Wood Stone had stayed here for an extended period—long enough to have Yuan Shuzhi organize their accounts for over a week—this was clearly a major stronghold. The previous night's silencing operation and document burning had been precautionary measures for a potential retreat. But they couldn't have anticipated Yuan Shuzhi escaping the massacre and immediately leading authorities back. The substantial quantities of drugs and counterfeit currency left behind suggested they hadn't formally abandoned the location—merely taken defensive precautions.
 
-But this place obviously couldn't be used as a "trap" to lure the enemy anymore. They must have realized the stronghold was unsafe, which was why they evacuated. There might be hidden sentries watching near the farm estate. The cracking of the farm estate could no longer be kept secret.
+Still, the estate could no longer serve as bait for a trap. The conspirators must have realized the stronghold was compromised, hence their evacuation. Hidden sentries might even now be watching from the surrounding hills. There was no concealing the operation's success.
 
-Even if it couldn't be used as a trap, there should be other important things left here.
+Even if a trap was off the table, something important might remain hidden here.
 
-Immediately, Lu Cheng instructed the National Army to conduct a broader search inside and outside the farm estate, "digging three feet into the ground" to see if there were any important things left.
+Lu Cheng ordered the National Army to conduct an exhaustive search of the estate and its surroundings—"dig three feet into the ground if you have to"—to uncover anything left behind.
 
-This search indeed found other items. A large number of account books were found inside a double wall in a courtyard. After Yuan Shuzhi checked them, there were two sets of account books: one illegal set of daily records, and one set organized according to the "Australian bookkeeping method."
+The search bore fruit. A cache of account books was discovered inside a false wall in one of the courtyards. Yuan Shuzhi examined them and confirmed two separate sets: one recording daily illegal transactions, another organized according to the "Australian bookkeeping method."
 
-"I didn't write the account books, but I indeed organized them. They must have specially copied a set." Yuan Shuzhi gave an affirmative answer immediately after looking at them.
+"I didn't write these ledgers, but I did organize them," Yuan Shuzhi said after a quick review. "They must have made copies."
 
-Where the original copies he organized went was self-evident; they must have been handed over to Stone Elder.
+Where the originals he'd organized had gone was self-evident—delivered to Stone Elder.
 
-Besides that, there were preserved correspondences, basically all letters related to the fake medicine business, numbering fully over a thousand. Picking a few at random, one could tell that this fake medicine business wasn't limited to Guangdong and surrounding provinces, but also reached Nan Zhili and the Capital. In some places, the order price of Lushi Powder actually went as high as fifty taels of silver a bottle. Such huge profits were staggering.
+Beyond the ledgers, they recovered preserved correspondence: over a thousand letters pertaining to the counterfeit medicine trade. A random sampling revealed the operation's scope extended far beyond Guangdong and its neighboring provinces, reaching as far as Nan Zhili and the Capital itself. In some regions, Lushi Powder commanded prices as high as fifty taels of silver per bottle. The scale of profit was staggering.
 
-The relevant reports were quickly transmitted to Guangzhou. Neither Zheng Mingjiang nor Wu Mu showed much happiness.
+The reports reached Guangzhou swiftly. Neither Zheng Mingjiang nor Wu Mu found cause for celebration.
 
-From the perspective of the case alone, the drug leakage case was considered solved. It was just that this "solving" wasn't perfect. Although the source was dug out, on the distributor side, the mastermind escaped. Moreover, Hao Long's side didn't find out anything about the hormone leakage either.
+From a purely procedural standpoint, the drug leakage case was solved. But it was an imperfect resolution. They had traced the source, yes—but the mastermind behind the distribution network had escaped. Worse still, Hao Long's investigation into the hormone leakage had hit a dead end.
 
-The identity of this mysterious Southeast Asian man was identified through the pharmaceutical factory's experimental archives: this person was indeed a slave imported by Quark Qiong from Southeast Asia—it was not known at the time that he was a eunuch. After arriving in Lingao, this person was assigned to work in a relevant labor brigade in Sanya. Later, he was recruited as a drug test subject. The condition for recruitment was to restore his free status after the experiment ended, allowing him to return to his country or settle and choose a job freely under the Senate's rule.
+The mysterious Southeast Asian man's identity was eventually confirmed through the pharmaceutical factory's experimental archives. He was indeed a slave Quark Qiong had imported from Southeast Asia—his status as a eunuch unknown at the time. After arriving in Lingao, he'd been assigned to a labor brigade in Sanya before being recruited as a drug test subject. The terms were straightforward: upon completion of the experiment, he would be granted free status and allowed to return home or settle anywhere under Senate jurisdiction.
 
-After the hormone experiment ended, according to the agreement, this person obtained the status of a free citizen. At first, the test center kept in touch with him, asking him to have regular physical examinations to check for sequelae of the drug, but about half a year later, the test center lost contact. He disappeared from his temporary residence.
+When the hormone trials concluded, the man received his promised citizenship. Initially, the test center maintained contact, requiring regular physical examinations to monitor for side effects. But approximately six months later, communication ceased. He vanished from his temporary residence without a trace.
 
-Losing contact with test subjects after experiments ended wasn't a rare thing, so the test center didn't take it seriously, just simply marking and archiving it.
+Such disappearances weren't unusual—test subjects often drifted away once their obligations ended—so the center had simply noted the loss of contact and archived his file.
 
-Where this person went after losing contact, how he obtained the testosterone gel, and whether he had any connection with the fake medicine case, all of this was currently completely unknown. It could only be considered a cold case. Hao Long stated that he would absolutely not give up and would definitely "investigate to the end." But Zheng Mingjiang was already somewhat discouraged.
+Where he went afterward, how he obtained testosterone gel, whether he had any connection to the counterfeit medicine operation—all of it remained unknown. A cold case. Hao Long vowed he would never give up, that he would "investigate to the end." But Zheng Mingjiang could already feel her own resolve flagging.
 
-As for Wu Mu, he was naturally dissatisfied too. From the clues currently mastered, the fake medicine case, the counterfeit currency case, and the "rebellion" of Liang Cunhou and others were all done by the same gang.
+Wu Mu shared their frustration. The evidence increasingly suggested that the counterfeit medicine scheme, the currency forgery, and Liang Cunhou's brewing rebellion were all the work of a single organization.
 
-Although they had discovered more and more clues, they hadn't caught a single important figure. Not even Quan Youde, an agent selling fake medicine, was caught, which was inevitably disheartening.
+They had uncovered clue after clue, yet failed to apprehend a single significant figure. They hadn't even managed to capture Quan Youde, a mere distribution agent. The failure was dispiriting.
 
-From the current situation, whether stealing drugs to sell fake medicine or making counterfeit currency to distribute, the purpose was very clear: to obtain a large amount of money to support the future "riot."
+The pattern was becoming clear. Whether stealing drugs to sell counterfeits or manufacturing fake currency for circulation, the purpose was singular: amassing the funds necessary to finance an impending riot.
 
-Judging from the seized account books, the profit from fake medicine was shockingly high. Stone Elder, a man with such pursuits, surely wouldn't bury so much money underground waiting for it to be confiscated later, but spend it to "do big things." Like the counterfeit currency case, going to great lengths to create counterfeit currency wasn't simply to "disturb the economy" but to use counterfeit currency as "riot funds"!
+The seized ledgers revealed obscene profits from the medicine trade. A man of Stone Elder's ambition wouldn't bury such wealth underground to await confiscation—he would spend it on "great undertakings." The counterfeiting operation followed the same logic: the elaborate effort wasn't simply to destabilize the economy, but to generate riot funds.
 
-Wu Mu shuddered at the thought of how big a wave would be set off by such a massive amount of wealth converging on one goal.
+Wu Mu shuddered at the implications. Such vast resources converging toward a single violent purpose could unleash catastrophic waves.
 
-Just from Yuan Shuzhi's report, the gathered Huidaomen forces already numbered more than twenty thousand—this was certainly not all. Even the men controlled by Liang Cunhou's martial team might not be all there was.
+Yuan Shuzhi's report alone indicated the gathered Huidaomen forces already numbered over twenty thousand—and this was certainly not the full count. Even Liang Cunhou's martial teams might represent only a fraction of their true strength.
 
-Wu Mu knew this was different from Xiong Wencan's "indulging soldiers to become bandits" at the beginning of the mainland campaign. This was a rigorously organized and fully prepared riot, likely to erupt simultaneously in multiple places across the province. Once it erupted, the newly established grassroots organizations and cadres in various counties would inevitably suffer severe damage...
+This was nothing like Xiong Wencan's "indulging soldiers to become bandits" at the start of the mainland campaign. This was a meticulously organized, thoroughly prepared uprising, poised to erupt simultaneously across multiple locations throughout the province. Once it began, the newly established grassroots organizations and cadres in every county would suffer devastating losses.
 
-*We must clear up the case before the riot,* Wu Mu thought. *Strive to destroy them in the embryonic stage, wiping them out cleanly without leaving future trouble.*
+*We must resolve this before they strike,* Wu Mu thought. *Destroy them while they're still in the embryonic stage—wipe them out completely, leaving no seeds for future trouble.*
 
-With matters in Guangzhou temporarily concluded, Zheng Mingjiang had to rush back to Lingao to attend the ribbon-cutting ceremony for the establishment of the Drug Administration Office. Just as the thalidomide incident in the old timeline, which caused blood and tears for tens of thousands of families, made the FDA grow from a small office into a huge federal agency, the drug administration work in this timeline was inevitably a thorny road full of blood and tears. Physical health and inner conscience were vulnerable in the face of greed.
+With matters in Guangzhou temporarily settled, Zheng Mingjiang returned to Lingao for the ribbon-cutting ceremony establishing the Drug Administration Office. Just as the thalidomide tragedy of the old timeline—which had brought blood and tears to tens of thousands of families—had transformed the FDA from a modest office into a sprawling federal agency, drug administration in this timeline would inevitably follow its own thorny path of blood and tears. Physical well-being and moral conscience alike proved fragile when confronted with greed.
 
-Before Zheng Mingjiang left, Zheng Xiaoyu suddenly visited her, saying he came to "report on work."
+Before Zheng Mingjiang departed, Zheng Xiaoyu paid her an unexpected visit, ostensibly to "report on work."
 
-As one of the heroes who cracked the case, Zheng Mingjiang naturally received him. She heard him say that his academic performance in senior primary school was good, but the financial pressure of raising younger siblings made him give up the chance to go to middle school and apply for the medical vocational class to start working early. Now he hoped to continue advanced studies in the medical field and hoped Chief Zheng could give him this opportunity.
+As one of the heroes responsible for cracking the case, he merited her attention. She received him and listened as he explained his situation: his academic performance in senior primary school had been excellent, but the financial burden of raising his younger siblings had forced him to abandon any hope of middle school. Instead, he'd enrolled in the medical vocational program to start earning income immediately. Now he hoped to pursue advanced studies in medicine—and hoped Chief Zheng might help him secure that opportunity.
 
-After hearing this, Zheng Mingjiang expressed that he should go ahead and study, and if he had any financial difficulties, he could come directly to her.
+Zheng Mingjiang assured him he should continue his education; if finances became a problem, he could come to her directly.
 
-Supporting naturalized students and cadres who aspired to study medicine and pharmacy was something Zheng Mingjiang had done countless times. However, to her surprise, this time Zheng Xiaoyu actually knelt down and kowtowed directly, stating that Zheng Mingjiang's kindness was like "rebirth parents" and hoping to take her as his mentor and become her disciple.
+Supporting naturalized students and cadres with aspirations in medicine and pharmacy was something she had done countless times before. What she did not expect was for Zheng Xiaoyu to suddenly drop to his knees and kowtow, declaring that her kindness made her like "parents of rebirth" and asking to formally become her disciple.
 
-Zheng Mingjiang was stunned, so much so that she forgot to say the phrase "The Senate doesn't practice this."
+Zheng Mingjiang stood stunned, so caught off guard that she forgot to say the standard phrase: "The Senate doesn't practice such customs."
 
-This incident brought her a huge shock, so much so that she had an inexplicable feeling when she saw Zheng Xiaoyu at the opening ceremony of the new semester.
+The incident left a profound impression. When she spotted Zheng Xiaoyu at the new semester's opening ceremony, an inexplicable feeling stirred within her.
 
-"Do you see that advanced student?" She specifically pointed out Zheng Xiaoyu, who was taking the oath, to Shi Niaoren. "I have a feeling that he will become a very outstanding person in the future. But where his excellence will take him, I really dare not conclude."
+"Do you see that advanced student?" She pointed him out to Shi Niaoren as he stood reciting the oath. "I have a feeling he'll become someone remarkable. But where that excellence will lead him..." She paused. "That, I truly cannot say."
 
 **(End of Chapter)**

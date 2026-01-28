@@ -1,95 +1,99 @@
 # Chapter 2557: Conspiracy in the Hermitage
 
-Lin Jian saw his expression wandering, knowing his mother was seriously ill and he was anxious in his heart, so he said: "Today, Teacher came looking for you to help you. A few days ago, a long-time close friend invited me to participate in a secret meeting today. I heard that among the participants, there is an accomplished master who is quite proficient in medical arts. Perhaps he can cure your mother's illness."
+Lin Jian could see his student's thoughts drifting, his face clouded with worry over his mother's grave illness. "I came looking for you today because I want to help," the teacher said. "A trusted friend has invited me to a secret gathering this afternoon. I've heard that among those attending, there's an accomplished master well-versed in medical arts. Perhaps he could cure your mother."
 
-Zhang Jiayu perked up immediately upon hearing this. He instructed his sister Shibao to take good care of their mother, bid farewell to his father, and followed Lin Jian towards Huangcun.
+Zhang Jiayu's expression brightened at once. He instructed his sister Shibao to watch over their mother, bid farewell to his father, and set off with Lin Jian toward Huangcun.
 
-After Zhang Mu learned the meeting place was Li Yunlong's dharma site, he didn't bother to think much. He urgently ordered the servant boy to prepare the saddle and whipped his horse all the way. Encountering no obstacles on the road, in just about an incense stick's time, he arrived at Huangcun. Compared to Buddhist treasure temples like Nanhua Temple, Huashou Terrace, and Guangxiao Temple, Yan'an Hermitage's scale was very small. It was a typical Lingnan building, only two courtyards, gray brick walls, gray-molded ridge top. Because it was located in a remote area and was a newly built temple, very few people came here to burn incense.
+When Zhang Mu learned the meeting would be held at Li Yunlong's dharma site, he wasted no time deliberating. He ordered his servant boy to saddle his horse and rode hard, encountering no obstacles on the road. Within the span of an incense stick burning, he arrived at Huangcun. Compared to renowned Buddhist temples like Nanhua Temple, Huashou Terrace, and Guangxiao Temple, Yan'an Hermitage was modest in scale—a typical Lingnan structure of only two courtyards, with gray brick walls and gray-molded ridge tiles. Situated in a remote area and recently built, the temple attracted few incense-burning pilgrims.
 
-Securing his treasured horse's reins, Zhang Mu knocked on the tightly closed main door. Moments later, a thin and gaunt bald monk emerged from behind the door. Indeed, it was Li Yunlong.
+After tying his prized horse's reins to a post, Zhang Mu knocked on the heavy main doors. Moments later, a thin, gaunt monk emerged. It was Li Yunlong.
 
-Zhang Mu was quite surprised. Not having seen Yanke for so long, he had unexpectedly become so haggard. He excitedly placed both hands on Li Yunlong's shoulders and said: "Yanke, I hope you have been well since we parted!"
+Zhang Mu could hardly conceal his surprise. He hadn't seen Yanke in so long, and the man had grown terribly haggard. Gripping his old friend's shoulders, Zhang Mu exclaimed, "Yanke! I hope life has treated you well since we parted!"
 
-"Amitabha. Muzhi, separated for several years, I have missed you greatly." Li Yunlong's expression was calm as he replied.
+"Amitabha. Muzhi—after all these years apart, I have missed you greatly." Li Yunlong's expression remained serene as he replied.
 
-The two stepped into the hermitage and talked about affairs under heaven. Li Yunlong seemed not particularly interested. Zhang Mu wasn't surprised. He knew Li Yunlong had once been an advisor in Yuan Chonghuan's army. After Yuan Chonghuan died, Li Yunlong returned home in indignation and, having seen through the mortal world, resolutely chose to shave his head and become a monk. In former years, Li Yunlong shared lodging with him. Yanke had said to him: "You are a man of hot blood. Don't you know that what heroes cannot accomplish, once one turns back, all heroic tricks are but foolishness."
+The two stepped into the hermitage and spoke of worldly affairs, though Li Yunlong showed little interest in such matters. Zhang Mu wasn't surprised. He knew Li Yunlong had once served as an advisor in Yuan Chonghuan's army. After Yuan Chonghuan's execution, Li Yunlong had returned home in bitter disillusionment and, having seen through the vanity of the mortal world, shaved his head and taken monastic vows. Years ago, when they had shared lodgings, Yanke had told him: "You are a man of hot blood. But don't you see? What heroes cannot accomplish—once one turns back, all heroic schemes reveal themselves as foolishness."
 
-From then on, the world no longer had that Li Yunlong who "didn't think a scholar could remove his sword, traveling far carrying the prodigal to join the army." Thinking back to when Superintendent Yuan's command was gathered with brilliant talents, now all had withered and scattered, not knowing where they had dispersed!
+From that day forward, the world lost the Li Yunlong who once wrote, "A scholar need not set aside his sword—traveling far to join the army, carrying his prodigal spirit." Remembering how Superintendent Yuan's command had once gathered the most brilliant talents of the age, Zhang Mu felt a pang of melancholy. Now all had withered and scattered to the winds—who knew where they had gone?
 
-Zhang Mu asked: "Since Yanke is unwilling to concern himself with worldly affairs, why extend an invitation here today?"
+"If Yanke has renounced worldly affairs," Zhang Mu asked, "why extend an invitation today?"
 
-At that moment, footstep sounds came from behind. The visitor said: "Don't blame Muzhi; today it was I who extended the invitation."
+Footsteps sounded behind him, and a voice answered: "Don't blame him, Muzhi. It was I who arranged this meeting."
 
-Zhang Mu fixed his gaze. The visitor was Su Guansheng. Su Guansheng, courtesy name Yulin, a native of Dongguan city. According to what Zhang Mu knew, this person's examination record was not prominent. At thirty in the seventh year of Tianqi, he only entered the prefectural school. In the seventh year of Chongzhen, he became a *bagong* [tribute student]—this was the advancement path for *sheng yuan* [licentiates] who failed to pass the *juren* examination. Zhang Mu didn't like Confucianism but liked chivalry; his ambition wasn't in the imperial examinations. Therefore, he had little contact with Su Guansheng.
+Zhang Mu turned to look. The newcomer was Su Guansheng—courtesy name Yulin—a native of Dongguan city. As Zhang Mu recalled, the man's examination record was unremarkable. At thirty, during the seventh year of Tianqi, he had only gained admission to the prefectural school. By the seventh year of Chongzhen, he had become a *bagong* (tribute student)—the advancement path for *shengyuan* (licentiates) who failed to pass the *juren* examination. Zhang Mu himself preferred chivalry to Confucian scholarship, and his ambitions lay outside the imperial examination system. For this reason, he and Su Guansheng had rarely crossed paths.
 
-"May I ask, what matter does Master Su invite me for?" Zhang Mu asked.
+"May I ask what matter brings you to summon me, Master Su?" Zhang Mu inquired.
 
-"Naturally, it is to oppose the Bald Bandits and restore the Ming." Su Guansheng answered without concealment.
+"To oppose the Bald Bandits and restore the Ming, naturally." Su Guansheng answered without hesitation.
 
-"Isn't Master afraid I will report you to the Fake-Hairs in the city?" Zhang Mu laughed.
+Zhang Mu laughed. "Aren't you afraid I'll report you to the Fake-Hairs in the city?"
 
-"Those invited today are all loyal patriots devoted to sovereign and country; news will certainly not leak." Su Guansheng answered confidently. "It's just that the Bald Bandits have many eyes and ears in the city; we had no choice but to borrow Master Eryan's [Li Yunlong] precious temple."
+"Everyone invited today is a loyal patriot devoted to sovereign and country. Word will not leak." Su Guansheng's confidence was unshaken. "The Bald Bandits have many eyes and ears within the city walls, so we had no choice but to borrow Master Eryan's temple for our gathering."
 
-"Hahaha, seems Master Su has been preparing for a long time." Zhang Mu laughed.
+"It seems you've been preparing for some time, Master Su," Zhang Mu said with a chuckle.
 
-Before long, twenty-some people arrived at the hermitage one after another, mostly people from local wealthy families. The Lingnan region had been filled with superstition since ancient times, with various gods and Buddha beliefs flooding among the people. Temples and Taoist monasteries were numerous, and as religious sites, all manner of people might enter and exit, thus making them the best cover. After all the attendees had arrived, the hermitage doors closed tightly again. To be cautious, someone was even left at the door to keep watch.
+Before long, over twenty people had filtered into the hermitage, most of them from local wealthy families. The Lingnan region had been steeped in superstition since ancient times, with worship of various gods and Buddhas flooding through the populace. Temples and Taoist monasteries dotted the landscape, and as religious sites where all manner of people might enter and exit, they provided excellent cover. Once all attendees had arrived, the hermitage doors were sealed shut, and someone was posted outside to keep watch.
 
-After Su Guansheng surveyed once around, he cupped his hands in salute to everyone and said: "All who have come here were invited by closest relatives and friends; people whose backgrounds are known. Now that mountains and rivers have drastically changed and Guangzhou has fallen into bandit hands, we who have received the nation's grace for generations should naturally strive with all our might to repay the Sage Emperor."
+After surveying the room, Su Guansheng cupped his hands in salute to the assembly. "All who have come here were invited by their closest relatives and trusted friends—people whose backgrounds are known to us. Now that our mountains and rivers have been so drastically altered and Guangzhou has fallen into bandit hands, we who have received the nation's grace for generations must strive with all our might to repay the Sage Emperor."
 
-As soon as his words fell, someone immediately echoed: "Exactly! These sea pirates obviously aren't any Great Song descendants. Not only do they not recognize the previous dynasty's merit titles, they've collected our tax-exempt privileges, and even say they'll remeasure land and levy up to 50% progressive land tax. Simply abominable beyond measure; must drive them away."
+The moment he finished speaking, someone echoed his sentiment: "Exactly! These sea pirates are obviously no descendants of the Great Song. Not only do they refuse to recognize the previous dynasty's merit titles, but they've stripped us of our tax exemptions! Now they speak of remeasuring land and levying progressive taxes up to fifty percent. It's simply intolerable—we must drive them out."
 
-"Yes, even keeping a few slaves requires paying tax. Someone has already shouted that the Senate is 'All Taxes' [pun on 'almighty']."
+"Indeed! They even tax us for keeping a few household servants. People have started calling the Senate 'All-Taxes' instead of 'Almighty.'"
 
-"Dressed-up monkeys wearing crowns! Overseas barbarians also qualified to collect our taxes! Make them get out of Dongguan!"
+"Dressed-up monkeys wearing crowns! Since when are overseas barbarians qualified to collect our taxes? They should get out of Dongguan!"
 
-For a time, emotions were aroused in indignation, with an air of wanting to storm the county yamen and tear all the Fake-Hairs to pieces.
+Indignation swept through the room, the atmosphere charged as if the attendees were ready to storm the county yamen and tear every Fake-Hair to pieces.
 
-Su Guansheng gestured for everyone to be quiet and said: "Being able to unite against the common enemy—if the Sage Emperor knew, he would surely be very pleased. But the Bald Bandits invaded already two years ago; their foundation deepens daily. On the day the bandit army entered the city, we couldn't resist. How much less today? If we want to oppose the Bald Bandits, we must plan carefully and come up with a strategy."
+Su Guansheng gestured for quiet. "That we can unite against our common enemy—if the Sage Emperor knew, he would surely be pleased. But the Bald Bandits invaded two years ago, and their foundations grow deeper by the day. On the day their army entered the city, we could not resist. How much less can we now? If we wish to oppose them, we must plan carefully and devise a proper strategy."
 
-"What good strategy does Master Su have?" A young man named Li Zhen asked. He was friendly with Li Suiqiu. In the early Chongzhen years, he had studied at the Imperial Academy in the capital and was also on good terms with Chen Zilong.
+"What strategy do you have in mind, Master Su?" asked a young man named Li Zhen. He was a friend of Li Suiqiu, had studied at the Imperial Academy in the capital during the early Chongzhen years, and was also acquainted with Chen Zilong.
 
-Su Guansheng said: "As the saying goes, one chopstick easily breaks, ten chopsticks bundled together are solid. I believe we should now widely befriend righteous warriors, secretly practice military arts, gather firearms and blades. When the Court's punitive army arrives, we immediately respond, attacking from inside and outside, driving out the Bald Bandits!"
+"As the saying goes, one chopstick breaks easily, but ten bundled together hold firm," Su Guansheng replied. "I believe we should widely befriend righteous warriors, secretly practice military arts, and gather firearms and blades. When the Court's punitive army arrives, we rise in response—attacking from inside and out to drive the Bald Bandits from our lands."
 
-"Master Su, after the Bald Bandits came, they bestowed favors upon the rabble. The people are seduced by the bandits. Looking at the twenty-odd people at today's gathering, loyal and righteous men are few and sparse. How can great things be accomplished?"
+"Master Su, since the Bald Bandits came, they've bestowed favors upon the rabble. The common people have been seduced by their gifts. Look around at this gathering of twenty-odd souls—loyal men are few and far between. How can great things be accomplished with such numbers?"
 
-"What you don't know: I have made contact with the Dragon Mountain righteous warrior, Master Jinyan. Master Jinyan risked danger to personally enter the perilous territory and has already obtained several thousand stalwart men." Su Guansheng then pointed to one person among the attendees: "Allow me to introduce Master Jinyan's student—Guan Yuesun."
+"What you don't know is this: I have made contact with Master Jinyan, the righteous warrior of Dragon Mountain. Master Jinyan risked great danger to personally enter enemy territory and has already recruited several thousand stalwart fighters." Su Guansheng gestured toward one of the attendees. "Allow me to introduce Master Jinyan's disciple—Guan Yuesun."
 
-Su Guansheng knew in his heart that due to the Australians' bandit-suppression operations, even if Master Jinyan had three heads and six arms, it would be impossible to gather a force of several thousand. But to draw more people into joining, what did a little bragging matter?
+In truth, Su Guansheng knew that due to the Australians' bandit-suppression operations, even if Master Jinyan had three heads and six arms, gathering a force of several thousand would be impossible. But to draw more people into the cause, what harm was a little embellishment?
 
-Guan Yuesun stepped forward and saluted everyone. This person wasn't old, looking about twenty-something, named Guan Zhongxi; Yuesun was his courtesy name.
+Guan Yuesun stepped forward and saluted the assembly. He appeared to be in his mid-twenties, with the given name Guan Zhongxi—Yuesun being his courtesy name.
 
-Guan Zhongxi said: "My teacher personally went to Ganzhutan and Huashan, already persuading the Ganzhutan remnants and Huashan bandits to serve as arms. Also secretly placed disciples in the Fake-Hair National Army; they have now become familiar with the Bald Bandits' military methods. Additionally, major clans from Nanhai, Xinhui, and Xiangshan responded, and we've obtained several thousand local militia. If we could gain the assistance of everyone present, wouldn't it be like fish getting water, like tiger gaining wings?"
+"My teacher has personally visited Ganzhutan and Huashan," Guan Zhongxi said. "He has already persuaded the Ganzhutan remnants and the Huashan bandits to serve as our armed forces. He has also secretly placed disciples within the Fake-Hair National Army, where they have grown familiar with the Bald Bandits' military methods. Additionally, major clans from Nanhai, Xinhui, and Xiangshan have pledged their support, providing us with several thousand local militia. If we could gain the assistance of everyone present, wouldn't it be like a fish finding water, like a tiger gaining wings?"
 
-Su Guansheng nodded contentedly: "If each family present contributes manpower and effort, gathering an army of ten thousand would not be difficult."
+Su Guansheng nodded with satisfaction. "If each family here contributes manpower and resources, assembling an army of ten thousand would not be difficult."
 
-Zhang Mu had always harbored ambitions to serve the country. His emotions couldn't help being stirred by the atmosphere. But having entered his thirties, he was no longer an impulsive youth. After calming down and pondering briefly—opposing the Bald Bandits was a matter of great magnitude. Wang Zunde and Xiong Wencan, leading regular armies, still couldn't match them. How much less a motley crew of several thousand? He asked: "Looking at it this way, the great cause of opposing the Bald Bandits already has a small foundation. It's just that the Bald Bandits' firepower is sharp; several thousand stalwarts are probably far from being the Bald Bandits' match. Moreover, before moving troops, grain must go first. To gather military funds and firearms under the Bald Bandits' noses, we still need another reinforcement."
+Zhang Mu had always harbored ambitions to serve his country, and he felt his emotions stirring with the fervor in the room. But having passed thirty, he was no longer an impulsive youth. After calming himself to think more carefully, he recognized the magnitude of what was being proposed. Wang Zunde and Xiong Wencan had led regular armies against the Bald Bandits and still could not match them. What chance did a motley force of several thousand have?
 
-"Hahaha, Muzhi is indeed a chivalrous warrior aspiring to the frontier; thoroughly thoughtful." Su Guansheng laughed loudly. "Correct. Allow me to introduce an extraordinary person to everyone—Daoist Mushi."
+"From what I hear, our great cause already has a small foundation," he said. "But the Bald Bandits' firepower is formidable, and several thousand stalwarts are likely no match for them. Moreover, before moving troops, grain must go first. To gather military funds and weapons under the Bald Bandits' very noses, we will need additional support."
 
-"Daoist Mushi? Who?" The crowd had never heard this person's name and began whispering among themselves.
+"Hahaha! Muzhi is indeed a chivalrous warrior with frontier aspirations—thoroughly thoughtful." Su Guansheng laughed heartily. "You're correct. Allow me to introduce an extraordinary personage to everyone: Daoist Mushi."
 
-At that moment, a person emerged from behind the Buddha statue, appearing quite like having immortal wind and Taoist bone bearing.
+"Daoist Mushi?" The crowd exchanged puzzled glances, having never heard the name. Whispers rippled through the room.
 
-"The Daoist is skilled in strategy, proficient in military arts, and also has considerable accomplishment in medicine. A rare and difficult-to-find personage." Su Guansheng praised.
+At that moment, a figure emerged from behind the Buddha statue, bearing the ethereal countenance of one touched by immortal wind and Taoist cultivation.
 
-"Master Su overly praises me. Heard that Dongguan is the Lingnan hometown of Confucius and Mencius, the hometown of Sacred Teachings. Seeing today, indeed it hasn't disappointed this poor Daoist." Daoist Mushi held a whisk in one hand while stroking his beard with the other. "This poor Daoist, Mushi, was entrusted by Stone Elder to come deal with these overseas barbarians. Willing to join hands with everyone to drive out the Bald Bandits!"
+"The Daoist is skilled in strategy, proficient in military arts, and possesses considerable accomplishment in medicine," Su Guansheng praised. "A rare and difficult-to-find personage indeed."
 
-"Who is Stone Elder?" Someone asked.
+"Master Su flatters me." Daoist Mushi held a whisk in one hand while stroking his beard with the other. "I had heard that Dongguan was the Lingnan hometown of Confucius and Mencius—the hometown of Sacred Teachings. Seeing it today, this poor Daoist is not disappointed." He paused. "I was entrusted by Stone Elder to come deal with these overseas barbarians, and I am willing to join hands with all of you to drive out the Bald Bandits."
 
-Daoist Mushi replied: "Stone Elder is my master's title. Only because there are already treacherous officials in the Court who have colluded with the Bald Bandits, it is inconvenient to reveal his true identity."
+"Who is Stone Elder?" someone asked.
 
-The crowd began discussing again. Unexpectedly, there were people in the Court who had colluded with the Bald Bandits! No wonder these bandits could operate in Qiongzhou for several years so smoothly. After their wings grew full, they actually became a grave threat to the Court—truly raising a tiger to court disaster. The Bald Bandits are truly hateful! But the treacherous ministers in the Court deserve death even more!
+"Stone Elder is my master's title. Because treacherous officials in the Court have already colluded with the Bald Bandits, it is inconvenient to reveal his true identity."
 
-Su Guansheng said: "I have a plan. Since Master Jinyan could secretly place righteous warriors in the Bald Bandit National Army, why can't our Dongguan stalwarts do the same?"
+Murmurs spread through the assembly. Treacherous ministers in the Court colluding with the Bald Bandits! No wonder these pirates had operated in Qiongzhou for years with such ease. Their wings had grown full, and now they posed a grave threat to the dynasty itself—truly a case of raising a tiger only to court disaster. The Bald Bandits were hateful, yes, but the treacherous ministers at court deserved death even more!
 
-Someone sighed: "Yulin, how can you not know? The Bald Bandits' cadres are all Fake-Hairs brought from Qiongzhou; they don't want us scholars at all. The civil service exams they hold don't even test the Four Books and Five Classics; all they recruit are market rabble. As for studying the Bald Bandits' books from a young age, I've heard some families have arranged young concubine-born sons to study at Australian schools. Their thoughts and ideas are no different from the Bald Bandits—all bewitched by them."
+"I have a proposal," Su Guansheng said. "Since Master Jinyan could secretly place righteous warriors within the Bald Bandit National Army, why can't our Dongguan stalwarts do the same?"
 
-Since the eyes and ears previously planted among the Australians had been eliminated in the Witchcraft Case, Daoist Mushi urgently needed to know internal information about the Bald Bandits. At this point, he also spoke up: "If someone could infiltrate the Bald Bandit False Court, it would truly be crucial to our great cause of opposing the Bald Bandits. Are there stalwarts willing to enter the tiger's den for the Sage Emperor?"
+Someone sighed. "Yulin, how can you not know? The Bald Bandits' cadres are all Fake-Hairs brought from Qiongzhou—they have no use for scholars like us. Their civil service examinations don't even test the Four Books and Five Classics; they only recruit common rabble. As for studying the Bald Bandits' books from a young age... I've heard some families have arranged for their concubine-born sons to attend Australian schools. But those children's thoughts become indistinguishable from the Bald Bandits themselves—completely bewitched."
 
-Lin Jian, hearing Daoist Mushi say this, hurriedly nudged Zhang Jiayu and whispered: "Jiayu, this is a good opportunity. I was just thinking about how to ask this Daoist for medicine. Why don't you try?"
+Daoist Mushi had been listening carefully. Since the eyes and ears previously planted among the Australians had been eliminated in the Witchcraft Case, he urgently needed fresh intelligence about the Bald Bandits' inner workings. "If someone could infiltrate the Bald Bandit False Court," he spoke up, "it would be crucial to our great cause. Are there any stalwarts willing to enter the tiger's den for the Sage Emperor?"
 
-Zhang Jiayu had originally not planned for this but came seeking medicine. He never expected he would be participating in an "Anti-Bald Assembly." He originally had little contact with these wealthy families and was attracted here by the accomplished master Teacher Lin mentioned. Listening to this group's grand plans for opposing the Bald Bandits, he felt he couldn't join the conversation. With Teacher's reminder, he couldn't help but hesitate.
+Lin Jian, hearing this, quickly nudged Zhang Jiayu and whispered, "Jiayu, this is your opportunity. I was wondering how to ask the Daoist for medicine on your behalf. Why don't you volunteer?"
 
-From the bottom of his heart, he didn't have much aversion to the Australians. Rather, the Australians' good deeds for the poor made him quite appreciative. In Guangzhou, he had also studied Australian learning with fellow members of the Shen Ao Academy, freely discussing the general trends of the world—truly an unprecedented great transformation in a thousand years. Chief Du also paid considerable attention to him; he could feel that Chief Du and Daoist Cui both had intentions to recruit him under their command. It's just that he had studied the Four Books and Five Classics since childhood, learned the ways of Confucius and Mencius, and earned Great Ming's academic honors. Now that the Sage Emperor still lives, how could he switch allegiances? How could he face his teacher and parents?
+Zhang Jiayu hesitated. He had come here seeking medicine for his mother, never expecting to find himself at an "Anti-Bald Assembly." He had little connection to these wealthy families; he had only been drawn here by the accomplished master Lin Jian had mentioned. Listening to their grand plans for overthrowing the Bald Bandits, he felt entirely out of his depth. Yet his teacher's prompting gave him pause.
+
+In truth, he harbored no great aversion to the Australians. If anything, he appreciated their good works among the poor. In Guangzhou, he had studied Australian learning alongside fellow members of the Shen Ao Academy, freely debating the great transformations sweeping the world—changes unprecedented in a thousand years. Chief Du had shown considerable interest in him; he could sense that both Chief Du and Daoist Cui harbored intentions of recruiting him into their service.
+
+And yet—he had studied the Four Books and Five Classics since childhood, learned the ways of Confucius and Mencius, and earned his academic honors under the Great Ming. With the Sage Emperor still living, how could he switch allegiances? How could he ever face his teacher and parents?
 
 (End of Chapter)

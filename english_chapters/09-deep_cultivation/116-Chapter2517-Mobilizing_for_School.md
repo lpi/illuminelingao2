@@ -1,101 +1,99 @@
 # Chapter 2517: Mobilizing for School
 
-"Indeed, set your mind at ease. Following the Senate will always lead to good days," Hou Qing continued. "I heard that the Chiefs plan to promote fish farming techniques in Guangzhou Prefecture, adapting to local conditions. Although you've gone ashore, you can't compare to those who have farmed the land for generations; learning to till the fields now would be a difficult task for you. As for fish farming, however, it shouldn't be too hard for you to pick up."
+"Rest assured," Hou Qing continued. "Following the Senate always leads to better days. I've heard the Chiefs plan to promote fish farming throughout Guangzhou Prefecture, adapting techniques to local conditions. You've come ashore, true, but you can't compete with families who've worked the land for generations—learning to till fields at this point would be a struggle. Fish farming, though, should come naturally to people like you."
 
-He Lizhi stroked his chin, appearing somewhat concerned. "Chiefs may not know, but fish farming is no simple matter. The fish fry for the entire Canton Prefecture are all scooped from the river [West River]. Moreover, the knacks for catching fish fry are known only to the villagers of Jiujiang, who have monopolized it for hundreds of years. If the Chiefs want to promote fish farming, I'm afraid the cooperation of the Jiujiang people is indispensable."
+He Lizhi stroked his chin, looking troubled. "The Chiefs may not realize, but fish farming is no simple matter. All the fry for Canton Prefecture come from the West River, and the techniques for catching them have been monopolized by Jiujiang villagers for centuries. If the Chiefs truly want to promote fish farming, they'll need those people's cooperation."
 
-Principal Tian said, "The Chiefs do everything better than others; perhaps they have other methods."
+"The Chiefs always find a way," Principal Tian said. "Perhaps they have other methods."
 
 "What methods?"
 
-"I don't know..." Principal Tian replied. His mind was still on student recruitment. Regardless, this...
+"I don't know..." His mind remained fixed on student recruitment. Regardless, this was—
 
-Hou Qing looked at He Lizhi, and He Lizhi said, "I'll think of a way. Let's go to Sister-in-law Zhou's house and have a look."
+Hou Qing glanced at He Lizhi, who said, "I'll figure something out. Let's go see Sister-in-law Zhou."
 
-When the three left the construction site of the latrines, they found many villagers and children surrounding Zeng Guiyu and a stranger, who seemed to be writing something.
+When the three left the latrine construction site, they found a crowd of villagers and children gathered around Zeng Guiyu and an unfamiliar man who appeared to be writing something.
 
-"Wow, it's so beautiful!" a child cried out, and the onlookers also let out bursts of admiration.
+"It's so beautiful!" a child cried out, and murmurs of admiration rippled through the onlookers.
 
-"Do you know how to read? You just say it's beautiful," a villager beside him jeered.
+"What do you know about reading? You just say it's beautiful," a villager teased.
 
-"Why wouldn't I know?" the child argued. "Winter goes, spring comes... something east south west north something something... bitterness something something... something river celebration something life..."
+"I can too read!" the child protested. "Winter goes, spring comes... something east south west north something something... bitterness something... something river celebration something life..."
 
-"Hahahaha..." The crowd roared with laughter.
+The crowd erupted in laughter.
 
-"It is 'Winter goes, spring comes, joy in the east, south, west, and north as we bid farewell to the old year. A magnificent land. Bitterness ends, sweetness arrives, gazing at lakes, seas, and rivers to celebrate a new life,'" another child read out.
+Another child read aloud properly: "Winter goes, spring comes, joy in the east, south, west, and north as we bid farewell to the old year. A magnificent land. Bitterness ends, sweetness arrives, gazing at lakes, seas, and rivers to celebrate a new life."
 
-"Can you teach me to write?" a child asked.
+"Can you teach me to write?" one child asked.
 
-"Sir, please write a pair for me too..." another villager requested. "I moved into a new house and want to paste a couplet on the door!"
+"Sir, please write a pair for me too!" another villager chimed in. "I've moved into a new house and want to paste a couplet on my door!"
 
-Kuang Lu was in a not-unpleasant mood today. After the fatigue of travel these past days, he hadn't had a chance to touch a brush. Although the brush, ink, and paper brought here were coarse, they were sufficient to practice his strokes. He immediately bantered, "My calligraphy isn't given for free. Exchange it for salted fish—one fish for a pair of couplets."
+Kuang Lu was in reasonably good spirits today. After days of exhausting travel, he hadn't touched a brush in too long. Though the brush, ink, and paper here were crude, they sufficed for practice. He smiled and said, "My calligraphy isn't free. One salted fish buys one pair of couplets."
 
-"We don't have much else, but we have plenty of salted fish." Hearing this, everyone went to fetch dried and salted fish. Kuang Lu didn't mind; he just spread ink on the red paper. Writing couplets was a basic skill for a scholar, and the phrases were all ready-made. He knew that most people here were illiterate, and the Kun thieves' learning was also quite limited. If he used deep allusions or essays, they wouldn't understand, and if someone intentionally looked for faults in the text to pick a quarrel, it would only bring him trouble. So he used common, cliché auspicious words.
+"Salted fish we've got plenty of!" At this, everyone scattered to fetch their dried and salted fish. Kuang Lu didn't mind the humble payment—he simply spread ink across the red paper. Writing couplets was basic work for any scholar, and the phrases came ready-made. He knew most people here were illiterate, and the Kun rebels' learning was equally limited. Using obscure allusions or literary essays would only confuse them, and worse, might invite someone to find fault and cause trouble. Better to stick with common, auspicious platitudes.
 
-Hou Qing and Tian Liang looked at each other. The stranger's attire and temperament, and especially that hand of beautiful standard script, were better than anyone they had ever seen. Without the guidance of a famous teacher and bitter practice from a young age, it would be impossible to write like that. Anyone with a discerning eye could tell at a glance that this person must be a young master from a noble family. Why would he come to a fishing village to write couplets?
+Hou Qing and Tian Liang exchanged glances. The stranger's attire, his bearing, and especially that hand of elegant standard script—better than any they'd ever seen. Such skill was impossible without years of bitter practice under a renowned teacher. Anyone with a discerning eye could tell this was a young master from a noble family. Why would someone like him come to a fishing village to write couplets?
 
-Thinking of himself as the principal of the Nanhai National Demonstration School, who not only frequently wrote wrong characters but also wrote them crookedly, Tian Liang felt too embarrassed to show his hand. His face suddenly flushed red.
+Tian Liang thought of himself—principal of the Nanhai National Demonstration School, yet frequently writing characters wrong and always crooked. Shame flooded through him. His face flushed crimson.
 
-Hou Qing noticed it inadvertently and asked with concern, "Ah Liang, why is your face so red? Do you have a fever?" As she spoke, she reached out to touch Tian Liang's forehead.
+Hou Qing noticed and asked with concern, "Ah Liang, why is your face so red? Do you have a fever?" She reached out to touch his forehead.
 
-"No, I'm not sick..." Tian Liang answered flusteredly, but his face turned even redder.
+"No, I'm not sick..." Tian Liang stammered, his face reddening further.
 
-He Lizhi had already found Sister-in-law Zhou to discuss her eldest son's schooling. As they spoke, Sister-in-law Zhou began to cry. "I know this is ruining his future, but if I let him go, what will he eat? There are three younger siblings at home, and they need to eat too! This is just our fate!"
+Meanwhile, He Lizhi had found Sister-in-law Zhou to discuss her eldest son's schooling. As they talked, she began to cry. "I know I'm ruining his future, but if I let him go, what will he eat? There are three younger siblings at home who need food too! This is simply our fate!"
 
-Tian Liang and Hou Qing knew that Sister-in-law Zhou was speaking the truth, but at this moment, apart from begging the villagers, they could think of no other way.
+Tian Liang and Hou Qing knew she spoke the truth, but at this moment, they could think of nothing except appealing to the villagers.
 
-He Lizhi whispered with Zeng Guiyu for a while, then walked into the middle of the crowd, cleared his throat, and said, "Fellow elders and villagers, the village is very lively today. The Chiefs sent people to help us build public toilets. Sister-in-law Zhou's boy tested the best and can go to the school run by the Chiefs to study. This is a big event for our village. But everyone knows the situation in Sister-in-law Zhou's family. Everyone, speak your thoughts."
+He Lizhi whispered with Zeng Guiyu for a while, then walked into the center of the crowd, cleared his throat, and addressed them. "Fellow elders and villagers, our village is lively today. The Chiefs sent people to help us build public toilets. Sister-in-law Zhou's boy scored highest on the test and can attend the Chiefs' school. This is a significant event for our village. But everyone knows the situation in Sister-in-law Zhou's family. Let's hear your thoughts."
 
-"Lizhi, why do I feel that reading books is useless?" a villager replied.
+"Lizhi, I've got to be honest—reading books seems pretty useless to me," one villager replied.
 
-"Yeah, the Chiefs exempted our fish tax and allowed us to go ashore. That's enough."
+"The Chiefs exempted our fish tax and let us come ashore. That's already more than enough."
 
-...
+More voices joined in, but none expressed any willingness to help Sister-in-law Zhou's family.
 
-The crowd spoke one after another, but no one expressed any willingness to help Sister-in-law Zhou's family.
+He Lizhi felt humiliated. He glanced nervously at Hou Qing and Tian Liang.
 
-He Lizhi felt he had lost face and glanced carefully at Hou Qing and Tian Liang.
+By now, Tian Liang had steadied himself. He decided to seek help from the noble young master before him. "Sir, your calligraphy is exceptional—you must be a scholar. I'm just a soldier, not good with words. Would you speak about the benefits of reading?"
 
-At this time, Tian Liang had calmed his emotions. He decided to ask for advice from the noble young master before him. "This gentleman, you write such a good hand; you must be a scholar. I am a soldier and not very good at talking. Could you please speak about the benefits of reading?"
+The request surprised Kuang Lu. He hadn't expected this fake Kun rebel to ask for his advice. He'd grasped the situation well enough: the Kun rebels recruited students regardless of background, which actually aligned with Confucius's principle of "education for all without discrimination."
 
-Tian Liang's action surprised Kuang Lu. He hadn't expected this fake Kun to ask for his advice. He had roughly understood the situation: the Kun thieves recruited students regardless of background, which actually fit Confucius's principle of "education for all without discrimination."
+The problem was that since ancient times, education had never been something the poor could afford. A family needed at least ten *mu* of fertile land to support one scholar. As the saying went, "Poverty breeds wicked schemes; wealth nurtures conscience." These villagers were former Tanka people who'd drifted on the water, already struggling to survive. Little friendship existed among them—they'd become neighbors only because the Kun rebels had allowed them to come ashore and build houses. Expecting mutual aid now was naive. High-sounding principles like "ordaining conscience for Heaven and Earth, securing life and fortune for the people, continuing lost teachings for past sages, and establishing peace for all future generations" would accomplish nothing, no matter how eloquently spoken.
 
-It was just that since ancient times, reading had not been something the poor could afford. A family needed at least ten *mu* of fertile land to support a scholar. As the saying goes, "Poverty breeds wicked schemes; wealth nutures a conscience." These villagers were originally Tanka people drifting on the water, already struggling for a living. There was not much friendship between them; they became fellow villagers only because the Kun thieves allowed them to go ashore and build houses. Expecting them to help each other at this time was unlikely. High-sounding principles like "ordaining conscience for Heaven and Earth, securing life and fortune for the people, continuing lost teachings for past sages, and establishing peace for all future generations" would serve no purpose even if spoken to the heavens.
+Kuang Lu straightened his clothes. "Reading has many benefits. You can become an official, a clerk, an apprentice in a shop. At the very least, you can teach village children and scrape by with food and clothing. Isn't that easier than scratching for a living on the water or in the mud? Take my couplets—everyone sees my calligraphy is beautiful, so everyone wants a pair. In this short time, I've earned dozens of salted fish. This is the countryside. In Guangzhou City, unless you're close friends or relatives, you couldn't get one from me without paying several taels of silver as a writing fee."
 
-Kuang Lu straightened his clothes and said, "Reading, well, has many benefits. You can become an official, you can become a clerk, you can be an apprentice in a shop, and at the very least, you can teach young children in the countryside and scrape by with enough food and clothing. Isn't that easier than scratching for food in the water or mud? For example, everyone sees that my spring couplet calligraphy is beautiful, so you all want a pair. In this short moment, I've also earned dozens of salted fish. This is in the countryside; if it were in Guangzhou City, unless for close friends or relatives, without a few taels of silver as a writing fee, you absolutely couldn't get one."
+The villagers laughed at this. The man talked big—several taels for a pair of spring couplets!
 
-The villagers laughed again upon hearing this. This man talked big—a few taels of silver for a pair of spring couplets!
+Seeing these unruly folk clearly didn't believe it, Kuang Yan felt compelled to defend his young master. "Truly, summer insects cannot comprehend ice! My young master is from the Kuang clan of Dali, a family of scholars for generations. His calligraphy and painting are pieces that even Master Qiu Tao couldn't put down, sighing that he himself was inferior. What would any of you know!"
 
-Seeing these unruly people didn't believe it at all, Kuang Yan, bent on defending his young master, shouted loudly, "Truly, summer insects cannot speak of ice! My young master is from the Kuang clan of Dali, a family of scholars for generations. My young master's calligraphy and painting are things even Master Autumn Waves [Qiu Tao] couldn't put down, sighing that he was inferior. What the hell do you know!"
+"So arrogant! Who is Master Qiu Tao?" someone asked.
 
-"So arrogant! Who is Master Autumn Waves?" someone asked.
+"The Vice Minister of Rites, Master Chen Jisheng!"
 
-"He is the Vice Minister of Rites, Master Chen Jisheng [Chen Zizhuang]!" Kuang Yan said.
+Silence fell. Fear spread across every face, and no one dared speak.
 
-Now no one spoke. Everyone showed fear on their faces and dared not say a word.
+Though common folk possessed little formal knowledge, they knew something of the top gentry in their region. Chen Zizhuang's paternal and maternal families were both prominent in Nanhai, with clan members serving as officials for generations. He himself had placed Third in the imperial examinations—*Tanhua*—rising to Right Vice Minister of Rites and Academician Reader-in-Waiting, lecturing daily before the Chongzhen Emperor. His reputation was immense. Similarly, Li Daiwen of Foshan had risen to Right Vice Minister of Revenue, establishing the Li clan as the undisputed premier family of Foshan Fort.
 
-Although the bottom-tier commoners didn't have much knowledge, they knew a thing or two about the top gentry in the local area. Chen Zizhuang's paternal and maternal families were both prominent in Nanhai, with clan members serving as officials for generations. He himself had passed the imperial examination as *Tanhua* (Third Place), rising to the rank of Right Vice Minister of Rites and Academician Reader-in-Waiting, lecturing the Chongzhen Emperor daily. His reputation was extremely high. Another example was Li Daiwen of Foshan, who rose to Right Vice Minister of Revenue, establishing the Li clan as the undisputed premier family of Foshan Fort.
+The awkward silence hung heavy. Tian Liang, already slow of speech and clumsy with words, felt completely lost. Fortunately, Hou Qing rescued him.
 
-The silent atmosphere was a bit awkward. Tian Liang was already clumsy of speech and inarticulate. Facing this situation, he immediately felt at a loss. Fortunately, Hou Qing helped him out of the predicament.
+Her voice wasn't loud, but it carried that unique penetrating quality characteristic of women. "Folks, the Great Song Chiefs excel at everything because they've read many books. They sent literacy teams to teach everyone to read and admit your children to school because they want better lives for you—lives where you're no longer bullied. Soon, the Chiefs will send agricultural technicians to teach fish farming. Don't laugh—without education, you won't even raise fish as well as the Chiefs do. Sister-in-law Zhou's child has this opportunity to attend school. He represents our whole village's hope. Distant relatives aren't as good as close neighbors. We've all endured hard times. Let's support each other."
 
-Hou Qing's volume wasn't high, but it had a unique penetrating power characteristic of women. "Folks, the Great Song Chiefs are better at everything than others; that is the result of reading many books. The Chiefs sent literacy teams to teach everyone to read and admit your children to school because they hope you will live better lives and no longer be bullied. In a while, the Chiefs will send agricultural technicians down to teach everyone how to raise fish. Don't laugh—without reading books, you won't even raise fish as well as the Chiefs. Since Sister-in-law Zhou's child has this opportunity to go to school, he represents the hope of our whole village. Distant relatives are not as good as close neighbors. Everyone has suffered through hard times; let's support each other."
+The crowd remained silent. Kuang Lu suppressed a wry smile. *Your intentions are good,* he thought, *but this is asking a tiger for its skin. The Tanka have no clan system. This hastily-formed village is just a motley gathering—why would anyone respond to a few calls from village elders?* Yet he felt it would be a pity for the child not to attend school—even an Australian school. He spoke up: "These dozens of catties of salted fish will count as my donation. Sell them to provide living expenses for Sister-in-law Zhou's eldest son."
 
-The crowd remained silent. Kuang Lu secretly found it funny. He thought, *Your intentions are good, but this is asking a tiger for its skin. The Tanka have no clan system; this temporarily formed village is just a mob of rabble. Who will respond to a few calls from the village elders?* He also felt it was a pity for the child not to go to school—even if it was an Australian school. He immediately said, "These dozens of catties of salted fish will count as my donation. Sell them to provide living expenses for this Sister-in-law Zhou's eldest son."
+With him taking the lead, Zeng Guiyu felt his face had been saved. He immediately responded, "Look, everyone! This guest has helped Sister-in-law Zhou. We're all Tanka—we must do our part! I'll state my position first: I don't have money, but if anything useful is needed, I'll contribute my labor."
 
-With him taking the lead, Zeng Guiyu felt his face had been saved and immediately responded, "Everyone look! The guest has helped Sister-in-law Zhou; we are all of the Tanka lineage, we must show something! I'll state my position first: although I don't have money, if there is anything useful needed, I will definitely contribute my effort."
+Someone else spoke up: "Doctor Hou saved my life. Whatever she says, goes. I truly can't spare anything either, but tell me how I can help—count me in for physical work!"
 
-Immediately, someone else said, "Doctor Hou saved my life; whatever she says goes. I really can't bring out anything either! You say how I can help? Count me in for physical labor!"
+"Count me in!" Several more voices joined.
 
-"Count me in!" several more people responded.
+He Lizhi struck while the iron was hot. "I count eighty-five households in our village. Regardless of family size, each household contributes five catties of fish per month. The village will collect them, sell them in town, and use the money as a living allowance for her eldest son. When he succeeds someday, he can repay everyone. What do you say?"
 
-He Lizhi also struck while the iron was hot, saying, "I see that there are a total of eighty-five households in our village. Regardless of size, each household will contribute five catties of fish per month. The village will collect them and sell them in the town, and the money obtained will count as the living allowance subsidy for her eldest son. In the future, when her eldest son has success, let him repay everyone. What do you think?"
+Five catties of fish per month wasn't burdensome. Everyone agreed it was manageable and voiced their approval. Sister-in-law Zhou thanked them profusely and brought her child to kowtow to Kuang Lu.
 
-Five catties of fish per month wasn't a large amount; everyone felt it was acceptable and expressed their agreement. Sister-in-law Zhou thanked them excessively and specifically brought her child to kowtow to Kuang Lu.
+He raised his hand slightly. "No need to kowtow. I only hope he studies hard and never forgets to repay the village elders who helped him."
 
-Kuang Lu raised his hand slightly and said, "No need to kowtow. I only hope that he studies hard in the future and does not forget to repay the village elders who helped him here!"
+With that, he nodded to Zeng Guiyu and turned to leave, but Tian Liang stopped him. Kuang Lu tensed, wondering if his identity had been exposed and this simple-minded fake Kun intended him harm.
 
-After speaking, he greeted Zeng Guiyu and was about to leave, but was stopped by Tian Liang. Kuang Lu became vigilant, thinking his identity was exposed and this simple-minded fake Kun wanted to harm him.
-
-Who would have thought that Tian Liang would say to him naively, "Mr. Kuang's handwriting is truly good; you must have read many books. I am Tian Liang, the principal of the Nanhai National Demonstration School. Our school has just been prepared, and there is still a shortage of teachers. We are currently recruiting suitable teachers. If you could come to the school to teach the children to write, it would definitely make our school better."
+Instead, Tian Liang spoke with guileless sincerity: "Mr. Kuang, your handwriting is truly excellent—you must have read many books. I'm Tian Liang, principal of the Nanhai National Demonstration School. Our school has just been established, and we still need teachers. We're currently recruiting qualified candidates. If you could come teach the children to write, it would make our school so much better."
 
 (End of Chapter)

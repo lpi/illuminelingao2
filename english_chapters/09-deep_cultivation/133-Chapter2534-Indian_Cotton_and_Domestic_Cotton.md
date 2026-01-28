@@ -1,84 +1,89 @@
 # Chapter 2534: Indian Cotton and Domestic Cotton
 
-In the Textile Industrial Park of Nanbao, most workshops in the formerly lively cotton textile factory were now quiet. The noise of the past was no more.
+The Textile Industrial Park of Nanbao had grown quiet. Where the cotton textile factory once hummed with ceaseless activity, most workshops now stood silent.
 
-If you went in, you would find that many workshops were empty. Equipment had flown away without wings, leaving only the bases. The equipment had all been dismantled weeks ago and sent to the General Machinery Plant in Lingao for comprehensive overhaul and refurbishment, ready to be shipped to Guangdong.
+A walk through the complex revealed empty halls, their floors marked only by the bolted-down bases where machinery had once stood. The equipment itself had been dismantled weeks earlier and shipped to the General Machinery Plant in Lingao for comprehensive overhaul before being sent on to Guangdong.
 
-Some new equipment had arrived successively and began installation and trial operation.
+New equipment had since arrived in stages and was now undergoing installation and trial operation.
 
-Li Shan was very concerned about the new equipment because this set of new equipment was "designed" according to the process flow he came up with. The specific implementation was by Zou Biao.
+Li Shan took particular interest in these new machines—they had been designed according to the process flow he'd developed, with Zou Biao handling the specific implementation.
 
-Several months ago, after determining to carry out "capacity diffusion" in Guangdong and preparing to sell all the old equipment of the Demonstration Factory, Li Shan took out a demand plan for spinning machinery to Zou Biao.
+Several months prior, after the decision to carry out "capacity diffusion" in Guangdong and sell off all the old Demonstration Factory equipment, Li Shan had presented Zou Biao with his specifications for the new spinning machinery.
 
-However, after邹 Biao looked at it, he raised doubts: "The equipment is not difficult; current machinery plants can all manufacture it. But there is a tiny problem inside. The Model 54 spinning frame is an all-electric model with a rotation speed of 12,000 r/min, while we can only make things of 4,500 r/min. Perhaps it cannot reach the output of 15 kg per hour."
+Zou Biao had studied the proposal and raised concerns. "The equipment itself isn't difficult—our current machinery plants can manufacture all of it. But there's one issue. The Model 54 spinning frame is an all-electric design with a spindle speed of 12,000 revolutions per minute. We can only achieve 4,500. That might prevent us from reaching the target output of 15 kilograms per hour."
 
-"You are talking about the spindle speed of the ring spinning frame. Model 54 refers not just to the machine; it is a whole set of process flow. I don't know about other industries, but in the textile industry, process flow and shaft rotation speed have no absolute relationship. Moreover, many processes are not mandatory, although they will affect output and quality. Using Model 54 process and us making the ring spinning frame within Model 54 are two different things. Why, in the Model 54 process, scutching is changed from two passes to single pass, and drawing is changed from three passes to two passes? These processes have no direct relationship with rotation speed, yet they can greatly save time and increase output. I think you know this too, right?"
+"You're talking about the spindle speed of the ring spinning frame," Li Shan replied. "But Model 54 isn't just a machine—it's an entire process flow. I can't speak for other industries, but in textiles, process flow and spindle speed don't have an absolute relationship. Many steps aren't mandatory, though skipping them affects output and quality. Using the Model 54 process and building a ring spinning frame that matches Model 54 specifications are two different things entirely."
 
-Actually, it was equivalent to allocating things previously done by machines in peripheral procedures to people. Although social productivity decreased, the output of the machine alone increased. However, for an agricultural society that originally had no machines, it had already skyrocketed.
+He continued, "Consider this: in the Model 54 process, scutching is reduced from two passes to one, and drawing from three passes to two. These changes have no direct relationship to spindle speed, yet they dramatically save time and increase output. You're aware of this, surely?"
 
-"I know this, but spindle speed has a great influence on output. I'm just giving you a vaccination [warning]; perhaps the finished product cannot meet expectations." Zou Biao said.
+In effect, it meant shifting work previously done by machines in peripheral procedures onto human labor. While overall social productivity decreased, the output of the machines themselves increased. For an agricultural society that had never possessed such machinery, this still represented an enormous leap forward.
 
-It was now the second week of the Model 25 Ring Spinning Machine's operation. Li Shan and Zou Biao observed the production situation of the new-style machine inside the textile factory. Today, Cheng Milian also came to visit.
+"I understand that," Zou Biao said. "But spindle speed still has a significant impact on output. I'm just giving you fair warning—the finished product may not meet expectations."
 
-The Model 25 Ring Spinning was manufactured with reference to the Model 54 process flow, driven by steam power. The output per thousand spindles per hour was roughly around 13-15 kg.
+Now, in the second week of the Model 25 Ring Spinning Machine's operation, Li Shan and Zou Biao were observing production inside the textile factory. Cheng Milian had also come to visit that day.
 
-"It seems actual production cannot consistently reach the output of 15 kg." Zou Biao concluded through the production record sheet. The actual stable production efficiency was about 13 kg.
+The Model 25 Ring Spinning Machine had been manufactured according to the Model 54 process flow, powered by steam. Output per thousand spindles per hour came to roughly 13 to 15 kilograms.
 
-Overall, it was much better than he estimated. Model 54 was an early domestic spinning machine in the old timeline. Although Li Shan's demand was based on Model 54, it did not follow Model 54 completely; there was also some content from the Model 65 process flow.
+"It seems actual production can't consistently reach 15 kilograms," Zou Biao concluded after reviewing the production records. The stable output hovered around 13 kilograms.
 
-"Although spindle rotation speed is a factor affecting output, it is not the only factor. For example, roller speed, package size, yarn count, etc., will all affect output. Output is not determined merely by a spindle rotation speed." Li Shan said.
+Overall, this exceeded his estimates. Model 54 had been an early domestic spinning machine in the old timeline. Though Li Shan's specifications drew heavily from Model 54, they didn't follow it rigidly—he had incorporated elements from the Model 65 process flow as well.
 
-"Is our product different from the Model 54 process?" Cheng Milian asked.
+"Spindle speed is one factor affecting output, but it's not the only one," Li Shan said. "Roller speed, package size, yarn count—they all play a role. Output isn't determined by spindle speed alone."
 
-"Although spindle speed is not the only factor, if the rotation speed is low, output and quality are still much worse. The standard Model 54 spinning machine in the old timeline produced 25 kg per thousand spindles per hour for 20 English count yarn, while we produce 14 English count and barely manage 15 kg per thousand spindles per hour." Zou Biao said after putting the record back.
+"How does our product differ from standard Model 54?" Cheng Milian asked.
+
+"While spindle speed isn't everything, when it's low, both output and quality suffer noticeably." Zou Biao set down the records. "The standard Model 54 spinning machine in the old timeline produced 25 kilograms per thousand spindles per hour for 20 English count yarn. We're producing 14 English count and barely managing 15 kilograms."
 
 "English count?"
 
-"A unit of measurement from the British fellows; explaining it is very complicated. You just need to know that in international cotton textile trading, the higher the count, the higher the cost, and the finer the yarn. The count of top-grade Songjiang cloth is around 14S-16S, while the coarser the yarn, the greater the output." Li Shan pulled out a roll of finished product to observe before his eyes. Honestly, in the old timeline, this was generally used to make jeans, and the rougher kind at that.
+"A British measurement unit—explaining it in detail gets complicated." Li Shan pulled out a roll of finished product and examined it. "Just know that in international cotton trading, the higher the count, the higher the cost, and the finer the yarn. Top-grade Songjiang cloth runs around 14S to 16S. Coarser yarn means greater output." Honestly, in the old timeline, yarn like this would generally be used for denim—and the rougher kind at that.
 
-The higher the count, the finer the yarn, which also meant the yarn was more expensive. However, under current circumstances, the greatest demand was for low-count yarn: such as canvas (which is denim), fireproof cloth, cloth for labor protection suits, etc. The higher the count of cotton products, the more delicate and precious they were, generally used for knitted underwear, high-grade clothing, or high-end bedding. Some counts reached as high as 80S. But in this era, cotton products generally wouldn't be made so high because limited by manual craftsmanship, single ply topped out at 16S. Striving for high-count fabric generally meant using silk products rather than cotton products.
+Higher count meant finer yarn, which also meant more expensive yarn. But under current circumstances, the greatest demand was for low-count products: canvas, fireproof cloth, fabric for work uniforms, and the like. The higher the count of cotton products, the more delicate and precious they became—typically reserved for knitted undergarments, fine clothing, or high-end bedding. Some counts reached as high as 80S. But in this era, cotton products generally weren't made that fine because manual craftsmanship limited single-ply yarn to about 16S. Anyone seeking high-count fabric typically turned to silk rather than cotton.
 
-"Since there is English Count, is there also Metric Count?" Cheng Milian asked. Length had inches, feet, miles, and corresponding metric units like kilometers, so naturally, people would wonder if there was a Metric Count.
+"Since there's English Count, is there also Metric Count?" Cheng Milian asked. Length had inches, feet, and miles alongside metric equivalents like kilometers—naturally one would wonder about the same for yarn measurements.
 
-"Of course there is, but it's generally used on wool and silk textiles. I'm used to it; the cotton textile industry in the old timeline was greatly influenced by Britain, and everyone used it that way. Converting it, 14 English Count is about 20 Metric Count. The standard Model 54 is around 33 Metric Count, much finer than ours."
+"Of course, but metric is generally used for wool and silk textiles. It's just habit—the cotton textile industry in the old timeline was heavily influenced by Britain, so everyone adopted their system. To convert: 14 English Count is roughly 20 Metric Count. Standard Model 54 was around 33 Metric Count—much finer than what we're producing."
 
-"Won't we unify using Metric Count in the future?" Cheng Milian thought of the vigorous standardization initiative in the industrial sector before, requiring the removal of all baffling industry standards from the old timeline—especially the Imperial system.
+"Won't we standardize to Metric Count in the future?" Cheng Milian recalled the vigorous standardization initiative the industrial sector had undertaken, which called for eliminating all the confusing legacy standards from the old timeline—especially the Imperial system.
 
-"Too troublesome. Isn't it just a title? The symbol for English Count is S; can't we just say it's the abbreviation for Song Count? It's best not to move standards. Look, the industrial sector still has quite a few standard parts in Imperial system—once the influence of this thing is formed, it's not something you can avoid just by changing a timeline."
+"Too troublesome. Besides, it's just terminology. The symbol for English Count is 'S'—we can simply say it stands for Song Count. Standards are best left alone. Look at how many Imperial-system parts remain in the industrial sector. Once a standard gains influence, changing timelines doesn't make it go away."
 
-"Like that bizarre 1435 standard gauge." Zou Biao laughed.
+"Like that bizarre 1435 standard gauge," Zou Biao laughed.
 
-"Correct. Once a standard is formed, modifying it isn't that simple." Li Shan didn't want to change the English system partly because of this factor; too many technical materials and industry standards were formulated according to the Imperial system of the old timeline.
+"Exactly. Once a standard takes hold, modifying it isn't simple." Li Shan's reluctance to change the English system stemmed partly from this reality—too many technical materials and industry standards from the old timeline had been formulated around the Imperial system.
 
-"However, the Planning Academy seems to have doubts about the cotton yarn production line with a daily output of eight tons. Now they only approved this two-ton production line." Zou Biao said. The previous proposal was to build multiple production lines with a daily output of eight tons in the Demonstration Factory, requiring about twenty-five thousand spindles. But the Planning Academy was very hesitant about developing cotton textiles.
+"However, the Planning Academy seems to have doubts about the cotton yarn production line with a daily output of eight tons," Zou Biao said. "They've only approved this two-ton line." The original proposal had called for multiple production lines in the Demonstration Factory, each capable of eight tons daily, requiring roughly twenty-five thousand spindles. But the Planning Academy remained hesitant about expanding cotton textiles.
 
-"What the Planning Academy fears is nothing more than raw material and market problems. The cotton textile industry was cancelled like this during the First Five-Year Plan period." Li Shan said.
+"What the Planning Academy fears is nothing more than raw material supply and market demand. That's why cotton textiles were scaled back during the First Five-Year Plan," Li Shan said.
 
-"Yes. If twenty-five thousand spindles produce at full capacity under ideal conditions, it requires consuming 1,200 tons of cotton annually. Hainan itself produces almost no usable industrial cotton. Leaving aside whether we can collect that much cotton from outside, if we exclude the internal circulation of the Senate-controlled areas, at least 400 tons of products need to be sold externally." Zou Biao said.
+"Yes. If twenty-five thousand spindles operate at full capacity under ideal conditions, they'd consume 1,200 tons of cotton annually. Hainan itself produces almost no industrial-grade cotton. Setting aside whether we can even source that much from outside—if we exclude internal circulation within Senate-controlled territories, at least 400 tons of product would need to be sold externally." Zou Biao laid out the numbers.
 
-400 tons of cotton products were enough for two hundred thousand well-off people to use for a year. However, this was also maximized production under ideal conditions. Actually, twenty-five thousand spindles wouldn't consume that much cotton annually.
+Four hundred tons of cotton products would be enough for two hundred thousand well-off households for a year. Of course, this assumed maximum production under ideal conditions. In practice, twenty-five thousand spindles wouldn't consume nearly that much cotton annually.
 
-"I know what they are worried about. If we say we avoid large-scale development of the weaving industry, I agree. But avoiding the development of spinning is a very unreasonable situation."
+"I understand their concerns," Li Shan said. "If we're talking about avoiding large-scale development of weaving, I agree. But avoiding the development of spinning? That's unreasonable."
 
-"Under the tax system of the Ming Dynasty, regardless of whether it is backward or not, about sixty percent of households in Hainan own manual looms. This is a fairly high proportion. The characteristics of textile determine that most of the time the loom is waiting for yarn; the vacancy rate is quite high."
+"Under the Ming Dynasty's tax system—regardless of how backward it may be—roughly sixty percent of Hainan households own manual looms. That's a remarkably high proportion. And the nature of textile production means that most of the time, the loom sits idle waiting for yarn. The vacancy rate is quite high."
 
-"Weaving a bolt of cloth takes an average of seven days. Among them, spinning accounts for four to five days, and weaving only takes one day. For the remaining six days, the loom is almost vacant. If we sell yarn, we can fill this vacancy." Li Shan said.
+"Weaving a bolt of cloth takes an average of seven days. Of that, spinning accounts for four to five days, while the actual weaving takes only one. For the remaining six days, the loom stands essentially vacant. If we sell yarn, we fill that vacancy."
 
-In the old timeline, the so-called "native cloth resisting foreign cloth" of the Great Qing was actually not accurate. Before the Opium War, Guangdong native cloth already contained a large amount of foreign yarn. The vigorous development of manual native cloth actually relied on the import of foreign yarn. But this process was quite complicated and could not be summarized in one sentence.
+In the old timeline, the so-called "native cloth resisting foreign cloth" narrative of the Great Qing was actually misleading. Even before the Opium War, Guangdong native cloth already incorporated substantial quantities of foreign yarn. The vigorous survival of manual native cloth production had actually depended on imported foreign yarn. But the full story was complicated—too nuanced to summarize in a sentence.
 
-"What about the raw material part?" Cheng Milian asked.
+"What about raw materials?" Cheng Milian asked.
 
-"Judging from historical statistics, Songjiang alone sells 13 million bolts of cotton cloth annually, roughly having more than ten thousand tons of cotton every year. And at this time, there is still a lot of commodity cotton from the north flowing in. However, considering the disaster situation in the north, perhaps our cotton needs to be obtained in India."
+"Judging from historical statistics, Songjiang alone sells 13 million bolts of cotton cloth annually, representing more than ten thousand tons of cotton each year. And during this period, considerable commodity cotton from the north still flows south. However, given the disaster conditions up north, we may need to source our cotton from India."
 
-"The problem is, how do we make them not weave cloth locally but ship cotton to us? Previously we also purchased a lot of Indian cloth." Zou Biao said. This wasn't just his question. Historically, Indian cloth was famous. If Europeans were willing to purchase Indian cloth, they would process it locally rather than shipping cotton over.
+"The problem is, how do we convince them to ship cotton to us instead of weaving cloth locally? We've purchased substantial quantities of Indian cloth ourselves," Zou Biao pointed out. This wasn't merely his own question. Historically, Indian cloth had been famous throughout the world. If Europeans were willing to buy Indian cloth, why would anyone process it locally rather than shipping the finished product?
 
-"Cough! Mo Xiaoan might have taken bribes from Quark Qiong [possible transliteration for a character name or reference], but I have no evidence." Li Shan jokingly said, "According to the figures in the *Trade Yearbook* of the Ministry of Colonial Trade, the FOB average price of the Indian cotton cloth we purchased is about 2 yuan per bolt, while the FOB average price of Songjiang cloth is much cheaper, only 0.5 yuan. Of course, the Songjiang cloth we import is inferior to Indian cotton cloth in quality."
+"Ahem. Mo Xiaoan may have taken bribes from Quark Qiong, but I have no evidence," Li Shan said with a joking tone. "According to the *Trade Yearbook* from the Ministry of Colonial Trade, the FOB average price for the Indian cotton cloth we've purchased runs about 2 yuan per bolt, while the FOB average for Songjiang cloth is much cheaper—only 0.5 yuan. Granted, the Songjiang cloth we import is inferior to Indian cotton cloth in quality."
 
-"Ssi! Then didn't the Senate spend a lot of extra money before?" Cheng Milian was quite surprised. He heard that schools used Indian cloth. So many students over so many years—how much money was that!
+Cheng Milian drew a sharp breath. "Then hasn't the Senate spent a fortune unnecessarily?" He'd heard that schools used Indian cloth. So many students over so many years—how much money had that cost?
 
-"That's not necessarily true. Looking at the imported cotton cloth figures over the years, we imported large quantities of both Songjiang cloth and Indian cloth. The import proportion of low-end undyed Songjiang cloth is the highest among all textiles. It can only be explained that application scenarios are different, and each has a different market."
+"Not necessarily. Looking at the imported cotton cloth figures over the years, we've brought in large quantities of both Songjiang and Indian cloth. Low-end undyed Songjiang cloth accounts for the highest import proportion among all textiles. The only explanation is that different applications require different products—each serves its own market."
 
-"But high FOB price of Indian cloth doesn't it also mean high FOB price of cotton?" Zou Biao asked. "If we want to import Indian cotton, high price means we certainly can't compete with local cotton. In that case, our cotton import can only be mainly domestic."
+"But doesn't a high FOB price for Indian cloth also mean a high price for Indian cotton?" Zou Biao asked. "If we want to import Indian cotton and it costs more, we certainly can't compete with domestic sources. In that case, our cotton imports would have to come primarily from within the country."
 
-"In normal years, perhaps Indian cotton is really not cheaper than domestic cotton. But now with war in the north, farmers probably find it hard to plant cotton with peace of mind. Whether the original cotton producing areas in the Central Plains and Huang-Huai region can be counted on is a question mark. So the domestic raw cotton price will inevitably rise. We may not lose by importing Indian cotton. Even if we lose a bit, it's no problem. As long as we can import raw materials, with our production efficiency, we will quickly compress costs to the minimum. At that time, we will dump into India again, easily crushing its local manual cotton textile industry. Then we can suppress the cotton price."
+"In normal years, Indian cotton may indeed be no cheaper than domestic cotton. But with war raging in the north, farmers can hardly plant cotton in peace. Whether the traditional cotton-producing regions of the Central Plains and Huang-Huai can still be relied upon is an open question. Domestic raw cotton prices will inevitably rise. We may not lose money importing from India. Even if we take a small loss, it's not a problem."
+
+Li Shan's voice grew more confident. "As long as we can import raw materials, our production efficiency will quickly compress costs to a minimum. At that point, we dump our goods back into India and crush their local manual cotton textile industry with ease. Then we'll be in a position to suppress cotton prices on our own terms."
+
 (End of Chapter)

@@ -1,119 +1,117 @@
 # Chapter 2585 - Investigation (Part 12)
 
-Yuan Shuzhi arrived in Boluo county seat and rested at an inn for a day. Upon inquiry, he learned the medicine market was still fifty or sixty li from the county seat. To get there, one had to leave early to arrive before nightfall. Seeing he looked like a scholar, the innkeeper suggested he hire a donkey for the trip. Otherwise, he'd have to stop for meals and lodging along the way—very inconvenient.
+Yuan Shuzhi arrived at the county seat of Boluo and rested at an inn for a day. Upon inquiry, he learned the medicine market lay another fifty or sixty li beyond—a journey requiring an early departure to arrive before nightfall. The innkeeper, sizing him up as a scholar, suggested he hire a donkey. Otherwise, he'd need to stop for meals and lodging along the way, which would prove inconvenient.
 
-"No matter. My legs are strong. Walking sixty or seventy li in a day is nothing unusual for me. I just wonder whether the roads are peaceful?"
+"No matter. My legs are strong. Sixty or seventy li in a day is nothing unusual for me." Yuan Shuzhi paused. "I only wonder—are the roads peaceful?"
 
-"Since the Australians came, the roads have been peaceful. But travelers best not go alone," the innkeeper said. "Travel in groups for safety."
+"Since the Australians came, the roads have been peaceful enough. But travelers shouldn't go alone," the innkeeper said. "Best travel in groups."
 
-Though Huizhou was called one of the four Hakka prefectures, there were actually many Cantonese and Chaoshan people too. The three ethnic groups had conflicts with each other, with villages and hamlets often clashing. Yao people also operated in the mountains, so public security was definitely not very peaceful. The Senate's "liberation" had only restored basic social order—traveling far still required caution.
+Though Huizhou was counted among the four Hakka prefectures, Cantonese and Chaoshan people were also numerous. The three groups clashed frequently, with villages and hamlets often coming to blows. Yao tribesmen operated in the mountains as well, so security remained far from ideal. The Senate's "liberation" had restored only basic social order—traveling any distance still required caution.
 
-Fortunately, there were no longer openly armed bandit gangs here, making things considerably safer for merchants.
+Still, openly armed bandit gangs no longer plagued these parts, making conditions considerably safer for merchants.
 
-Yuan Shuzhi confirmed the route and set off early the next morning.
+Yuan Shuzhi confirmed the route and set off at dawn.
 
-The road to the medicine market wasn't desolate. Since the Tang dynasty, Luofu Mountain had been a famous mountain for "cultivating immortality"—the seventh Daoist grotto-heaven and thirty-fourth blessed land. Ge Hong was said to have practiced here. So its reputation was great. Inside and outside the mountain, temples and Daoist monasteries stood in abundance, with thriving incense offerings.
+The road to the medicine market was far from desolate. Since the Tang dynasty, Luofu Mountain had been a renowned site for "cultivating immortality"—the seventh Daoist grotto-heaven and thirty-fourth blessed land. Ge Hong himself was said to have practiced here, lending the mountain great renown. Temples and Daoist monasteries dotted the slopes inside and out, their incense offerings thriving.
 
-The medicine market was located at the foot of Luofu Mountain beside Chongxu Temple. This market had a very long history, dating back to the Song dynasty. By the Ming dynasty, it was called one of the four great markets of Lingnan along with Guangzhou Fangcun's flower market, Hepu's pearl market, and Dongguan Liaobu's incense market. At its peak, medicine shops and stalls stretched for several li. Not only did it cover the Two Guangs and neighboring provinces, but merchants from Southeast Asia came to trade here.
+The medicine market itself stood at the foot of Luofu Mountain, beside Chongxu Temple. Its history stretched back to the Song dynasty. By the Ming, it had earned recognition as one of Lingnan's four great markets, alongside Guangzhou Fangcun's flower market, Hepu's pearl market, and Dongguan Liaobu's incense market. At its height, medicine shops and stalls stretched for several li, drawing traders not only from the Two Guangs and neighboring provinces, but from as far as Southeast Asia.
 
-When Yuan Shuzhi reached the medicine market, his jaw nearly dropped. This wasn't some "market"—it was practically a county seat!
+When Yuan Shuzhi reached the medicine market, his jaw nearly dropped. This was no mere "market"—it was practically a county seat.
 
-Except for lacking a city wall and yamen, this place's prosperity surpassed many small county towns.
+Except for lacking city walls and a yamen, its prosperity surpassed that of many small county towns.
 
 ---
 
-There was no yamen here, only a Medicine Market Guild, housed inside Chongxu Temple. Knowing he planned to operate here in the future, Yuan Shuzhi decided to first get the lay of the land—see what local rules existed to avoid violating them and causing trouble.
+No yamen stood here—only a Medicine Market Guild, housed within Chongxu Temple. Knowing he planned to operate in this area, Yuan Shuzhi decided to first learn the lay of the land and understand the local rules, lest he violate them and invite trouble.
 
-Arriving at the temple, he indeed saw posted "prohibition plaques" and several stone-carved stele texts with "Market Regulations," "Huizhou Prefect's Proclamation," "Boluo County Magistrate's Proclamation," and so on. Yuan Shuzhi looked through them—mostly various regulations for merchants. Nothing specifically concerning someone like him—just prohibitions against committing crimes.
+At the temple, he found posted "prohibition plaques" and several stone stele inscribed with "Market Regulations," "Huizhou Prefect's Proclamation," "Boluo County Magistrate's Proclamation," and the like. Yuan Shuzhi read through them carefully—mostly regulations governing merchants. Nothing specifically concerning someone in his position, beyond the usual prohibitions against criminal conduct.
 
-With merchants gathered here, there were naturally inns. There was also a Qiwei branch. As long as there was no special reason, he mostly stayed at Qiwei—first because it was clean, second for the privacy.
+With so many merchants gathered here, inns naturally abounded. A Qiwei branch operated here as well. Unless circumstances demanded otherwise, Yuan Shuzhi preferred Qiwei establishments—first for their cleanliness, second for their privacy.
 
-After settling at the inn, he began touring the medicine market, holding up his specially-made sign for "Bookkeeping and Tax Filing Services" as he wandered around.
+After settling in, he began touring the medicine market, carrying his specially-made sign advertising "Bookkeeping and Tax Filing Services" as he wandered the streets.
 
-However, reality differed from his expectations. Though this profession was flourishing in the Pearl River Delta areas like Guangzhou and Foshan, with a sense of being a "new occupation," outside the "Deep Governance Zones," merchants knew very little about the new financial and tax systems, and local tax bureaus couldn't fully implement them. So local demand for this profession wasn't large. After three days of soliciting business at the medicine market, Yuan Shuzhi only secured one client—and it had nothing to do with the new tax system, just helping a stall owner organize and register their casually-kept running accounts.
+Reality, however, diverged sharply from his expectations. Though this profession was flourishing in Pearl River Delta areas like Guangzhou and Foshan—with all the novelty of a "new occupation"—outside the Deep Governance Zones, merchants knew little about the new financial and tax systems, and local tax bureaus couldn't fully implement them. Demand for his services proved sparse. After three days of soliciting at the medicine market, Yuan Shuzhi had secured only a single client—and one with nothing to do with the new tax system at that. He'd merely helped a stall owner organize their carelessly-kept running accounts.
 
-Upon inquiry, Yuan Shuzhi learned that the medicine market currently used a tax system similar to a fixed-rate tax. The Medicine Market Guild paid a unified "land rent" to Boluo County Tax Bureau. This was essentially a continuation of the old Ming dynasty system.
+Through his inquiries, Yuan Shuzhi learned that the medicine market currently operated under a tax system resembling a fixed-rate levy. The Medicine Market Guild paid a unified "land rent" to the Boluo County Tax Bureau—essentially a continuation of the old Ming dynasty arrangement.
 
-Besides land rent, the market collected "entry tax" on goods coming in and "exit tax" on goods going out, charged at a fixed percentage of each medicine's daily "official estimated price."
+Beyond this land rent, the market collected an "entry tax" on incoming goods and an "exit tax" on outgoing ones, calculated as a fixed percentage of each medicine's daily "official estimated price."
 
-Beyond that, there were no other taxes or fees. Because the tax system was simple, merchants found it convenient and were happy to pay. Neither Boluo County nor Huizhou Prefecture needed to expend much effort to collect large amounts of tax revenue. Combined with a shortage of professional personnel, there was little motivation to implement the "new tax system."
+No other taxes or fees existed. The system's simplicity suited the merchants, who paid willingly. Neither Boluo County nor Huizhou Prefecture needed to expend much effort to collect substantial revenue. Combined with a shortage of trained personnel, little motivation existed to implement the "new tax system."
 
-Naturally, Yuan Shuzhi's "bookkeeping and tax filing services" had no customers. After five or six days at the medicine market, he'd only done three small jobs.
+Yuan Shuzhi's "bookkeeping and tax filing services" naturally found no customers. After five or six days at the medicine market, he'd completed only three small jobs.
 
-He still had money, of course—business trips always came with travel expenses. But if he had no business for days yet appeared to be living comfortably, that would seem too suspicious. So he could only put on an appearance of skipping meals and scrimping, searching everywhere, hoping to first find some work to settle down locally.
+He still had money, of course—business trips always came with travel expenses. But appearing to live comfortably while having no work for days would seem suspicious. So he adopted the appearance of someone skipping meals and scrimping, searching everywhere for employment to establish himself locally.
 
-Unexpectedly, finding work proved difficult.
+Finding work, however, proved unexpectedly difficult.
 
 "We don't know you here."
 
-"Who are you? Everyone we employ is the boss's relatives and fellow townsmen. You're an outsider trying to steal our rice—hurry up and get lost!"
+"Who are you? Everyone we employ is the boss's kin or fellow townsmen. You're an outsider trying to steal our rice bowl—get lost!"
 
-"Our master's concubine's brother still can't be placed—go, go, go, hurry up."
+"Our master's concubine's brother still can't be placed. Go on, off with you."
 
-"We're all locals here for generations. We don't use outsiders."
+"We're locals here, going back generations. We don't use outsiders."
 
-...
+It wasn't that no shops would consider hiring him, but employment here still followed the old rules: every worker needed a guarantor from the shop. In the Deep Governance Zones of the Pearl River Delta, the guarantor system had been abolished thanks to well-developed police and baojia networks.
 
-It wasn't that no shops were willing to hire him, but employment here still followed old rules: requiring a shop guarantor. In the Deep Governance Zones of the Pearl River Delta, the guarantor system had been abolished due to well-developed police and baojia systems.
+As an outsider unfamiliar with the area, where could he possibly find a guarantor? Yuan Shuzhi felt transported back to those painful days of sheltering in temples with nowhere to turn.
 
-As an outsider unfamiliar with the local area, where could he find a guarantor? Yuan Shuzhi felt as if he'd returned to those painful days of sheltering in temples with nowhere to turn.
+After seven or eight days at the medicine market with nothing to show for it—not even a plausible reason to remain—Yuan Shuzhi was preparing to return to Boluo in a few days, meet up with the investigation team, and decide his next move.
 
-After seven or eight days at the medicine market with nothing to show for it—not even a reason to stay any longer—Yuan Shuzhi was planning to return to Boluo in a few days to meet up with the investigation team and decide what to do next.
+Then one day, as he strolled along the street holding his sign, a voice called out from behind.
 
-Unexpectedly, one day as he was strolling along the street holding his sign, someone called out from behind.
+"Bookkeeper! Wait!"
 
-"Bookkeeper! Please wait!"
+Yuan Shuzhi turned. A young man dressed like a senior clerk from some shop was approaching. Probably another small job. He offered a slight bow. "Young man, were you calling for me?"
 
-Yuan Shuzhi turned to look. It was a young man dressed like a senior clerk at some shop. Probably another small job for him. He slightly bowed: "Young man, were you calling for me?"
+"'Me' what 'me'—I'm calling you!" The young man spoke impatiently, pointing at the sign. "You claim to know Australian bookkeeping methods?"
 
-"'Me' what 'me'—I'm calling you!" The young man spoke impatiently, pointing at his sign. "You say you know Australian bookkeeping methods?"
+"Yes, yes. I even attended training classes in Guangzhou and have a completion certificate..." Hearing the meaningful tone, Yuan Shuzhi sensed the visitor had genuine need for his professional knowledge. His spirits lifted. Just as he was about to launch into his pitch like a peddler hawking wares, he was cut off.
 
-"Yes, yes. I even attended training classes in Guangzhou and have a completion certificate..." Hearing the meaningful tone, Yuan Shuzhi knew the visitor wanted to use his "professional knowledge." His eyebrows flew up in delight. Just as he was about to boast like a peddler hawking his wares, he was mercilessly cut off.
+"Fine, fine. Since you know how, that's enough. Follow me."
 
-"Fine, fine. Since you know how, that's enough. Just follow me!"
+Yuan Shuzhi followed the young man along the street. After a hundred meters or so, he spotted a small storefront by the roadside—quite inconspicuous—with a sign reading "Jubao Tang" hanging at the door.
 
-Yuan Shuzhi followed the young man along the street. After just a hundred meters or so, he saw a small storefront by the roadside—very inconspicuous—with a sign reading "Jubao Tang" [Treasure-Gathering Hall] hanging at the door.
+*Treasure-Gathering Hall*. What a peculiar name, Yuan Shuzhi thought. It sounded like an antique shop! What medicine dealer would choose such a name?
 
-What a peculiar name, Yuan Shuzhi thought. It sounded like an antique and curio shop! What medicine shop would have such a name!
+Strange as the name was, and small as the storefront appeared, business at the medicine market didn't depend on shop size. Some major drug merchants didn't even maintain proper shops—just a stall and a hoisted sign to conduct business. Yet their annual turnover could reach tens of thousands of taels. Yuan Shuzhi suspected this shop had hidden depths.
 
-Though the name was strange and the storefront even smaller, business at the medicine market didn't depend on shop size. Some big drug merchants didn't even have shops—just setting up a stall and hoisting a sign to do business. Yet their annual turnover could reach tens of thousands of taels. Yuan Shuzhi knew this shop probably had hidden depths.
+Indeed, passing through the storefront to the back revealed a small courtyard—tranquil and serene. It felt like another world from the clamor outside.
 
-Indeed, passing through the storefront to the back hall revealed a small courtyard—very tranquil. It seemed like another world from the noise outside.
+The young man led him into a side room. Pushing open the door, Yuan Shuzhi started—several bookshelves stood crammed full of ledgers.
 
-The young man led him into a side room. Pushing open the door, Yuan Shuzhi was startled—the several bookshelves inside were crammed full of ledgers.
+"Wait here. My master will arrive shortly."
 
-"Sit here for now. My master will be here shortly."
+Moments later, an unremarkable middle-aged man entered—the very picture of a typical local merchant.
 
-Moments later, an unremarkable-looking middle-aged man arrived—looking like a typical local merchant.
+He exchanged pleasantries with Yuan Shuzhi, introduced himself as Manager Gao, and asked:
 
-Entering the room, he first exchanged pleasantries with Yuan Shuzhi, introduced himself as surnamed Gao, the shop's manager, and asked:
+"May I inquire where sir hails from? How did you come to be here?"
 
-"May I ask where sir is from? How did you come to be here?"
+"I'm from Panyu county, Guangzhou Prefecture..." Yuan Shuzhi launched into his fabricated history, explaining how he'd lost his position in Guangzhou and been recommended to Huizhou. But the acquaintance he'd been sent to find had left, and without a guarantor, no shop would take him on.
 
-"I'm from Panyu county, Guangzhou Prefecture..." Yuan Shuzhi immediately recited his fake history, saying he'd lost his job in Guangzhou and been recommended to Huizhou. But the acquaintance of the shop owner was no longer there, and without a guarantor, the shop owner wouldn't hire him.
+"...I lingered in Huizhou for many days, caught in a dilemma. Then I heard about the medicine market in Boluo, and thought—I still have this skill. I came to try my luck, hoping to at least earn some money before deciding my next steps."
 
-"...I lingered in Huizhou for many days, in a dilemma. Hearing there was a medicine market in Boluo, and thinking I still had this skill, I came to try my luck—hoping to at least earn some money before deciding my next steps."
+"I see." Manager Gao nodded. "I wonder whether Mr. Shu intends to seek a long-term position here, or simply earn travel money before returning to Huizhou Prefecture or Guangzhou to pursue other opportunities?"
 
-"I see," Manager Gao nodded. "I wonder if Mr. Shu plans to find a long-term position here, or earn some travel money and return to Huizhou Prefecture or Guangzhou to seek other opportunities?"
+"Manager, you jest." Yuan Shuzhi assumed a worried expression. "I'm over fifty and have accomplished nothing. I have no family, no house in Guangzhou—just drifting wherever work takes me. If long-term employment exists here, naturally I'd wish to stay."
 
-"Manager, you must be joking." Yuan Shuzhi affected a worried expression. "I'm over fifty and have accomplished nothing. I have no family or house in Guangzhou—just drifting around for a living. If there's long-term work here, naturally I'd want to stay."
+At the words "no family," Manager Gao's eyes brightened subtly. "If sir wishes to seek long-term work, that's easily arranged. Our shop happens to have just such an opening. I simply don't know whether sir has the capability..."
 
-Hearing Yuan Shuzhi say "no family," Manager Gao's eyes brightened slightly. He said: "If sir is willing to seek long-term work, that's easy. Right now our shop has just such an opening. I just don't know if sir has the capability..."
+"Manager, please test me!" Yuan Shuzhi said quickly.
 
-Yuan Shuzhi quickly said: "Manager, you may test me!"
+Manager Gao nodded. "A test is naturally required." Rising, he selected several ledgers from the shelf and placed them on the table. "Please convert these running accounts into Australian-style accounts according to Australian rules. Remember—I'm taking these accounts for tax filing, so ensure every item is properly done. Don't let the owner pay more than necessary."
 
-Manager Gao nodded: "A test is naturally required." With that, he rose and took several ledgers from the shelf, placing them on the table. "Please convert these running accounts into Australian-style accounts according to Australian rules. Remember, I'm taking these accounts for tax filing, so make sure every item is properly done—don't let the owner pay more than necessary."
+Yuan Shuzhi was startled. During his days at the medicine market, he'd encountered many people, but very few understood Australian bookkeeping, and fewer still grasped the connection between bookkeeping and tax filing. Yet Manager Gao clearly knew the intricacies.
 
-Yuan Shuzhi was startled, thinking—during his days at the medicine market, he'd encountered quite a few people, but very few knew about Australian bookkeeping, and even fewer understood the connection between bookkeeping and tax filing. Yet Manager Gao actually knew the intricacies.
+He thumped his chest. "Rest assured, Manager. I understand the connection between Australian accounts and tax filing better than anyone. I'll make certain everything is in order!"
 
-He immediately pounded his chest: "Rest assured, Manager. I know the connection between Australian accounts and tax filing better than anyone. I'll make sure everything is proper for you!"
+Manager Gao smiled. "Good. I trust you. Work on the accounts here—I'll have someone bring tea and snacks." He paused. "How long will you need to finish?"
 
-Manager Gao smiled: "Good. I trust you. Work on the accounts here. I'll have someone bring tea and snacks later." He asked: "How long will it take you to finish these accounts?"
+Yuan Shuzhi opened the ledgers and flipped through briefly. "I'll have them done by evening."
 
-Yuan Shuzhi opened the ledgers and briefly flipped through. "I'll have them done by evening."
+"Very well. I'll return at five. If you prove suitable, you can stay at the shop from now on. If not, you won't have worked for nothing."
 
-"Very well. I'll return at five in the afternoon. If you're suitable, you can stay at the shop from now on. If not, you won't have worked for nothing."
-
-"Yes, yes. Thank you, Manager." Yuan Shuzhi quickly agreed.
+"Yes, yes. Thank you, Manager." Yuan Shuzhi bowed quickly in agreement.
 
 **(End of Chapter)**

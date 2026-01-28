@@ -1,89 +1,91 @@
 # Chapter 2512: Burning the Tower (25)
 
-Zhao Manxiong exhaled lightly and said, "Not entirely. This operation at least limitedly split the enemy's alliance, provided opportunities for us to plant dispatched personnel to win over wavering targets, obtained data on the hostile organizations' direct leaders and backbone organizations, and preliminarily saw clearly the true face of Liang Cunhou's so-called martial background. Moreover, we had no losses. Having results means it wasn't a failure. At least our goal at the beginning of the operation was just to obtain direct intelligence on the enemy. We must allow them to make mistakes; maturity requires a process."
+Zhao Manxiong exhaled softly. "Not entirely. This operation achieved several objectives: it created fractures in the enemy's alliance, gave our embedded agents opportunities to turn wavering targets, yielded intelligence on the leadership and core structure of hostile organizations, and provided our first clear look at the true nature of Liang Cunhou's martial background. Moreover, we suffered no casualties. Results mean it wasn't a failure. Our initial goal was simply to gather direct intelligence on the enemy. We must allow our people room to make mistakes—maturity is a process."
 
-Wu Mu shook his head, sighed lightly, and said, "Too backward. In this backward era, we ourselves have started to degenerate."
+Wu Mu shook his head with a quiet sigh. "Too backward. In this backward era, we ourselves have begun to degenerate."
 
-Zhao Manxiong smiled: "A major theory of evolution is 'survival of the fittest.' So losing certain abilities is not necessarily 'degeneration,' but rather a kind of 'evolution' to adapt to the environment."
+Zhao Manxiong smiled. "A central tenet of evolutionary theory is 'survival of the fittest.' Losing certain abilities isn't necessarily degeneration—it's adaptation to the environment."
 
-Wu Mu didn't dwell on this issue further: "Yang Cao's report has already been sent up. She seems to have objections to Xu Tong's actions. I also think it seems a bit too emotional, not decisive enough at the critical moment."
+Wu Mu let the point drop. "Yang Cao's report has already gone up the chain. She seems to have objections to Xu Tong's actions. I agree—his conduct appeared too emotional, not decisive enough at the critical moment."
 
-"I've already read the report," Zhao Manxiong said. "Her personal judgment certainly has her reasons. However, as I see it: in that situation, there was no optimal solution, nor a standard answer. The decision each person makes might be different. Since we sent them to execute the mission, we must trust their choices and defend their decisions within the framework of the rules."
+"I've read the report," Zhao Manxiong said. "Her judgment certainly has its merits. However, as I see it, there was no optimal solution in that situation—no textbook answer. Different people would have made different calls. Since we sent them to execute the mission, we must trust their choices and defend their decisions within the rules."
 
-Wu Mu said, "They are very different."
+"They are very different from each other," Wu Mu observed.
 
-Zhao Manxiong said, "Everyone is a unique individual. I am glad our system has such people. Our organization is currently in a transitional period. We are now in an extraordinary time and have to use some unconventional means. This is determined by the specific characteristics of the special period. However, this particularity cannot be from beginning to end, nor can it be unscrupulously used. Do you remember the history of the Stasi I told you about?"
+"Everyone is unique. I'm glad our system has room for such people." Zhao Manxiong paused. "Our organization is in a transitional period. These are extraordinary times, and we've had to employ unconventional means—that's the nature of special circumstances. But this exceptionalism cannot be permanent, nor can it be used without restraint. Do you remember what I told you about the Stasi?"
 
 "I remember."
 
-"The Stasi really achieved 'omnipotence' in the end, but it failed to protect the regime—and that was the reason for its existence. This is a very good lesson: the cart cannot be put before the horse." Zhao Manxiong lit a cigar. "Our ruled area is expanding. In about less than twenty years, the Senate will build a real country. 'Governing a large country is like cooking a small fish'; using any means necessary does not suit us. Xu Tong's performance might be 'not decisive enough' by Yang Cao's standards, but I personally appreciate him."
+"The Stasi truly achieved something close to omnipotence in the end—yet it failed to protect the very regime it existed to serve. That's a lesson worth remembering: we must never put the cart before the horse." Zhao Manxiong lit a cigar. "Our territory is expanding. Within twenty years, the Senate will build a real nation. 'Governing a large country is like cooking a small fish'—ruthlessness at any cost doesn't suit us. Xu Tong's performance might seem insufficiently decisive by Yang Cao's standards, but I personally appreciate him."
 
-Wu Mu said, "Building from the bottom to prevent trouble before it happens?"
+"Building foundations now to prevent future trouble?"
 
-Zhao Manxiong nodded in agreement and said, "Liu Fuqing is a representative of the old era, useful but without potential, and unable to adapt to the changes of the new era; Yang Cao is a sharp sword we forged with our own hands, accepting our governing philosophy entirely, incomparably loyal, and peerlessly sharp; Xu Tong is the scabbard, used to contain the sharp edge, avoiding the sword going astray. King Arthur pulled out the Sword in the Stone, and Merlin warned him that the value of the scabbard was ten times that of the sword blade. But King Arthur eventually lost his own scabbard. Without knowing how to hide the sharpness, it is hard to have a good end."
+Zhao Manxiong nodded. "Liu Fuqing represents the old era—useful but limited, unable to adapt to the new order. Yang Cao is a sharp sword we forged ourselves: she accepts our governing philosophy completely, is utterly loyal, and devastatingly effective. Xu Tong is the scabbard—meant to contain that edge and prevent the blade from going astray. When King Arthur drew the Sword from the Stone, Merlin warned him that the scabbard's value was ten times that of the blade itself. But Arthur eventually lost his scabbard. Those who cannot sheathe their sharpness seldom meet good ends."
 
-Speaking to this point, Zhao Manxiong slowly opened his five fingers and said, "So, only children make multiple-choice questions." After speaking, his five fingers closed abruptly, tightly clenching together.
+He slowly spread his five fingers. "So, only children are forced to choose." Then his hand closed into a tight fist.
 
-This could be considered very intimate words. Wu Mu didn't pick up his words but said, "Synthesizing intelligence from all aspects, the enemy has likely completed the initial integration of forces. Next, they will likely launch a comprehensive counterattack. It's just that currently we are unclear whether this counterattack is merely in the Liangguang region or if it will receive support from external forces."
+These were unusually candid words. Wu Mu didn't pursue them, instead shifting topics. "Synthesizing intelligence from all sources, the enemy appears to have completed their initial consolidation of forces. A comprehensive counterattack is likely imminent. What remains unclear is whether this will be confined to the Liangguang region or supported by external powers."
 
-"If I were the Great Ming Emperor or the Governor-General, I would naturally tend to have internal forces blossom in the center before the grand army begins the counteroffensive. This is also the optimal solution. However, judging from the relevant intelligence provided by the Foreign Intelligence Bureau, whether the Ming court has such capability is in doubt."
+"If I were the Great Ming Emperor or the Governor-General, I would prefer internal forces to strike first, blooming chaos at the center before the main army launched its offensive. That's the optimal strategy. However, intelligence from the Foreign Bureau casts doubt on whether the Ming court actually possesses such capability."
 
-"Solely in terms of shocking the court and the public, us capturing two provinces as giant bandits is stronger than the roving bandits and Wild Boar Skin (Manchus), right?"
+"In terms of shocking the realm, surely our capture of two provinces as 'giant bandits' outweighs the threat from the roving bandits and Wild Boar Skin?"
 
-"The words are correct," Zhao Manxiong said. "We captured Liangguang, taking two of the eighteen provinces. To the court and public, it is an unprecedented huge shock. But to the Ming court, the Manchus strolling just outside the Fifth Ring Road clearly pose a greater threat."
+"True enough," Zhao Manxiong conceded. "We've taken Liangguang—two of the eighteen provinces. To the court and public, this is an unprecedented shock. But to the Ming throne itself, the Manchus prowling just outside the Fifth Ring Road pose the more immediate threat."
 
-In a medieval society lacking effective communication means, capturing the capital would cause immense shock and a power vacuum. The central court would spare no cost to defend the capital. Yuan Chonghuan's death was largely because he failed to "keep the enemy outside the country's gate," letting the Eight Banners cavalry appear under the city walls of the capital.
+In a medieval society lacking effective communications, capturing the capital meant immense upheaval and a catastrophic power vacuum. The central court would spare no expense to defend it. Yuan Chonghuan's execution stemmed largely from his failure to "keep the enemy beyond the nation's gates"—allowing the Eight Banners cavalry to appear beneath the capital's walls.
 
-For the Great Ming, where "the Son of Heaven guards the gate of the country," the fall of Liangguang thousands of *li* away and the Manchus wandering just a few hundred *li* away were completely different concepts: one was far on the horizon, the other was imminent.
+For the Great Ming, where "the Son of Heaven guards the gate of the realm," the fall of distant Liangguang, thousands of *li* away, and the Manchus lurking mere hundreds of *li* distant were entirely different propositions: one threat was remote, the other imminent.
 
-This resulted in the Ming court strictly speaking being "shocked" by the fall of Liangguang, but actually remaining in a state of "discussing without deciding." Although the Ming court hadn't reached the end of its rope yet, the heavy troop group in Liaodong couldn't be transferred, and the few remaining mobile army groups in the Central Plains had to deal with the roving bandits, stretching them to the limit.
+The result was that the Ming court, while technically "shocked" by Liangguang's fall, remained in a state of paralysis—discussing endlessly, deciding nothing. Though the court hadn't yet reached its final extremity, the heavy troop concentrations in Liaodong couldn't be redeployed, and what remained of the mobile forces in the Central Plains were already stretched thin dealing with roving bandits.
 
-"...Although it is so," Zhao Manxiong said, "we cannot take it lightly either. The Foreign Intelligence Bureau comprehensively judges that the Ming court might launch a counteroffensive at the end of this year—the specific scale is unknown."
+"Even so," Zhao Manxiong continued, "we cannot afford complacency. The Foreign Intelligence Bureau's comprehensive assessment suggests the Ming court may launch a counteroffensive by year's end—though the scale remains unknown."
 
-"So saying..."
+"Which means..."
 
-"This can also explain why these opposition forces have suddenly become active again now." Zhao Manxiong said in a low voice: "On one hand, they want to seize this opportunity of counteroffensive. On the other hand, they don't have much time. The pace of our strategic adjustment is accelerating. The deployment of some bandit suppression troops has begun to adjust. The transformation of the grassroots level has also unfolded. Armed work teams in various places have started to form. But the Senate's policy is dragging its feet here. Issues like land have not yet been sorted out, and the gentry among the people hold a lot of discourse power. Our internal differences of opinion are too great."
+"This also explains why these opposition forces have suddenly grown active again." Zhao Manxiong's voice dropped. "On one hand, they want to seize this opportunity. On the other, time is running out for them. Our strategic adjustments are accelerating. Bandit suppression forces are being redeployed. Grassroots transformation has begun. Armed work teams are forming across the territories. But the Senate's policies remain mired in delay. Land reform hasn't been sorted out, and local gentry still hold enormous sway over public discourse. Our internal divisions are too deep."
 
-He didn't say the rest of the words, but Wu Mu knew that in the final analysis, the Senate's "New Deal" didn't have enough benefit output. From this point of view, the common people certainly wouldn't come to "rebel," but neither would they "carry food to follow the army like a shadow."
+He left the rest unsaid, but Wu Mu understood. Fundamentally, the Senate's "New Deal" hadn't delivered sufficient benefits. The common people wouldn't rise up to "rebel" against them—but neither would they "follow the army like shadows, carrying grain in their support."
 
-Merely creating a "peaceful time" is not enough; there must also be sufficient "benefits"—whether real or fictional.
+Creating peaceful times wasn't enough; there had to be tangible benefits as well—whether real or merely promised.
 
-"...So, they won't resist if we come, but if someone incites and coerces them to rebel, it's not difficult either. After all, the common people lack the ability to think independently and have a superstitious blind obedience to the traditional dynasty and ruling order. It's only been a few years since the dynasty change; the remaining prestige of Great Ming is still there."
+"So they won't resist when we arrive," Wu Mu said, "but if someone incites and coerces them to rebel, that's not difficult either. The common people lack independent political judgment and retain a superstitious reverence for the traditional dynastic order. It's only been a few years since the change of dynasty; the Ming's residual prestige endures."
 
-"But policy adjustment and implementation cannot be achieved overnight..."
+"But policy adjustment and implementation cannot happen overnight..."
 
-"Needs time, needs time," Zhao Manxiong closed his eyes. "You go first. Before the case is closed, no need to come report to me again—I need to consider other issues now."
+"Time. It all takes time." Zhao Manxiong closed his eyes. "You may go. Don't report to me again until this case is closed—I need to consider other matters now."
 
-"Yes. Are you going back to Lingao?"
+"Understood. Are you returning to Lingao?"
 
-"I'm going to stay here for a period of time." Zhao Manxiong said, "Lingao is already past tense..."
+"I'll remain here for a while." He paused. "Lingao is already the past..."
 
-Wu Mu pushed the door and went out. Zhao Manxiong slowly leaned back in the genuine leather office chair. Sunlight scattered over the office desk in front of him, bringing traces of warmth. He suddenly really wanted to touch it, but when he reached out his hand, the sunlight shifted slightly, still leaving him in the dark, seeming to deliberately avoid him. Zhao Manxiong smiled bitterly, leaned back, and closed his eyes. Opposite the sunlight, there was only the shadow of Lingao.
+Wu Mu pushed open the door and departed. Zhao Manxiong slowly reclined in his leather office chair. Sunlight scattered across the desk before him, carrying a trace of warmth. He found himself wanting to touch it, but when he reached out, the light shifted—almost deliberately—leaving him in shadow. Zhao Manxiong smiled bitterly, leaned back, and closed his eyes. Opposite the sunlight, there was only the shadow of Lingao.
 
-Wu Mu returned to his own office. Yang Cao had been waiting for a long time and began to report recent work to him.
+---
 
-The most urgent thing, besides Liang Cunhou's case, was the "Backbone Training Class" recently organized by the Civil Affairs Department. Although this training class was led by the Civil Affairs Department, the Political Security Bureau was also within the training organization. On one hand, it was to screen "suspicious targets"; on the other hand, it was to conduct necessary "security work training" for the backbone personnel.
+Wu Mu returned to his office. Yang Cao had been waiting and immediately began her briefing on recent developments.
 
-Many among this batch were illiterate. Needless to say, the training work was very arduous, but things always had to have a start.
+The most pressing matter, aside from Liang Cunhou's case, was the "Cadre Training Program" recently organized by the Civil Affairs Department. Though led by Civil Affairs, the Political Security Bureau was part of the training apparatus—both to screen for suspicious individuals and to provide essential security training for backbone personnel.
 
-If their cadre training and placement had been concentrated in towns so far, then the next step was to go deep into rural areas.
+Many in this cohort were illiterate. The training work was arduous, needless to say, but everything had to start somewhere.
 
-"According to current intelligence, in areas where clan forces are currently not strong, there is a tendency for secret societies and religious sects to flood, producing many civil and criminal disputes."
+Their cadre training and placement had so far concentrated on towns; the next phase would push deep into rural areas.
 
-"Has the legal article regarding banning secret societies been promulgated?"
+"According to current intelligence," Yang Cao reported, "in regions where clan power is weak, secret societies and religious sects have proliferated, generating numerous civil and criminal disputes."
 
-"Already promulgated. The National Police are rushing to make relevant proclamations..."
+"Has the legal ban on secret societies been promulgated?"
 
-"Wait for the newspaper to come out, then transfer all relevant materials except the 'White List' to Section Nine." Wu Mu said, "Our people are only responsible for collecting intelligence. Specific banning actions are executed by the police and the National Army." Wu Mu said: "I am not too knowledgeable in this aspect. Various bandit gangs and Daoist sects are as numerous as ox hairs. Including the Heavenly Soldier Daoist Spirit Society, I only paid key attention when hearing your report last time. Is there a group specifically responsible for contacting this kind of person?"
+"Already done. The National Police are distributing relevant proclamations..."
 
-"We have a group specifically responsible for the reconnaissance work of secret societies. But a while ago, an intelligence officer lost contact. His work scope included inciting defection of Xue Tu. He has likely died in the line of duty; inciting defection should have failed. Combined with the leak incident of the bandit situation notification document some time ago, Xue Tu should have a major operation after completing the integration of underground forces this time. After the failure of peaceful negotiation, it will inevitably be accompanied by armed struggle. However, our main enemy is not secret societies—their power is the weakest in Liangguang. Far inferior to clans and gentry landlords."
+"Once the newspaper publishes it, transfer all materials except those on the 'White List' to Section Nine." Wu Mu said, "Our people gather intelligence only. Actual suppression operations are handled by the police and National Army." He paused. "I'm not well-versed in this area. Bandit gangs and Daoist sects are as numerous as ox hairs. I only started paying close attention to groups like the Heavenly Soldier Daoist Spirit Society after your last report. Do we have a unit specifically handling contact with these people?"
 
-"The Ming state will likely organize a major counterattack. These people must also be guarded against... How is the work on the gentry going?"
+"We have a group dedicated to reconnaissance of secret societies. Recently, though, one of our intelligence officers went dark. His work included cultivating defections from Xue Tu's organization. He's likely dead—which means the defection attempt probably failed. Combined with the leaked bandit situation document from a few weeks ago, Xue Tu is almost certainly planning a major operation now that he's consolidated the underground forces. With peaceful negotiation having failed, armed struggle is inevitable. However, secret societies are not our primary concern—their power is the weakest in Liangguang, far inferior to the clans and gentry landlords."
 
-"All advancing according to plan."
+"The Ming court will likely mount a major counterattack. We must guard against all of them... How is the work on the gentry progressing?"
 
-Yang Cao asked, "Will they accumulate strength to wait for coordination and rear riots?"
+"Advancing according to plan."
 
-"I see they can't wait. Liang Cunhou's martial background gives him a keen sense of smell. They are like rats in a bellows, feeling the pressure from the outside world. Not much time is left for them. They will definitely step up integration recently. You plant intelligence personnel inside as soon as possible. If necessary, controlled materials can be used. We need to grasp first-hand information! Get their movement direction, hiding locations, action plans, and times as soon as possible. At the same time, strengthen information communication with the military. Operation of such scale is not something we can handle," Wu Mu said.
+Yang Cao asked, "Will they conserve their strength, waiting to coordinate with riots in our rear?"
+
+"I don't think they can afford to wait. Liang Cunhou's martial background gives him sharp instincts. They're like rats trapped in a bellows, squeezed from all sides. Time is running out for them. They'll certainly accelerate their integration. Plant intelligence personnel inside as soon as possible—use controlled materials if necessary. We need first-hand information: their movements, hiding locations, operational plans, timing. And strengthen coordination with the military. Operations of this scale are beyond what we can handle alone."
 
 **(End of Chapter)**

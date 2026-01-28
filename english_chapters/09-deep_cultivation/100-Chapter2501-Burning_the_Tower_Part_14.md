@@ -1,93 +1,135 @@
 # Chapter 2501: Burning the Tower (14)
 
-Sun Gang said, "What Li Jian? He is a Kun thief spy. I saw him leading Kun soldiers to make arrests in Guangzhou."
+"Li Jian?" Sun Gang scoffed. "He's no Li Jian—he's a Kun spy. I saw him myself, leading Kun soldiers through the streets of Guangzhou making arrests."
 
-Xu Tong's expression changed slightly. He rarely took action personally during his activities in Guangzhou. He hadn't expected to be bumped into by this person!
+Xu Tong's expression flickered. He had been careful during his operations in Guangzhou, rarely showing himself. To be spotted by this man of all people—
 
-Li Baiqing immediately said, "What proof do you have? Are you just speaking empty words? If you want to pick a quarrel, just say so. You, Sun Gang, rely on the power of Pockmarked Chen of the One Universe Primordial Chaos Dao in the Seven Upper Villages. On ordinary days, you oppress us Six Lower Villages, pushing us down on irrigation water and tax payments. Now you're making trouble at the banquet. Do you really take the thousand-plus able-bodied men of our Six Lower Villages as easy to bully?"
+Li Baiqing cut in before the silence could stretch too long. "And what proof do you have? Empty accusations? If you're looking to start a fight, just say so plainly." His voice rose for the crowd's benefit. "You, Sun Gang, hide behind Pockmarked Chen of the One Universe Primordial Chaos Dao in the Seven Upper Villages. Day after day, you lord over us in the Six Lower Villages—stealing our irrigation water, shifting tax burdens onto our backs. And now you stir up trouble at the banquet itself. Do you really think the thousand able-bodied men of our Six Lower Villages are so easily cowed?"
 
-Hearing this, Xu Tong immediately understood that Li Baiqing wanted to muddy the waters. Regardless of whether Sun Gang had truly recognized him, this matter couldn't be cleared up. The more he explained, the more passive he would become. It was better to shift the focus, seize the initiative, and drag more people into the water. So he also immediately said loudly, "This humble person was originally in the Green Dragon Society in Jiangnan. I just got into a lawsuit and offended someone powerful, so I helplessly sought shelter in this treasured land. I really don't know the grievances here. I ask Hero Sun not to indiscriminately implicate me. If Hero Sun really has some old grudge with my Li family of Old Li Village, then bring it out with open bright swords and spears. I, Li, will naturally keep you company to the end. There's no need to use such dirty means." After speaking, he winked at Li Baiqing.
+Xu Tong immediately grasped Li Baiqing's intent: muddy the waters. Whether Sun Gang had truly recognized him no longer mattered—the accusation couldn't be talked away. Explanations would only make him look guilty. Better to seize the initiative and drag others into the fray.
 
-Li Baiqing understood and immediately continued loudly, "Sun Gang, you are biting randomly here. Could it be that you were incited by someone? Leader Liao just rebelled against the society, and not even the time for a meal has passed before you jump out to point fingers randomly. Where do so many internal thieves come from? Or are you saying that everyone sitting here is an internal thief? What, do you want to eat everything clean and leave no path for others to live?"
+"This humble one was originally with the Green Dragon Society in Jiangnan," Xu Tong declared loudly. "A lawsuit gone wrong forced me to flee from powerful enemies, and I sought shelter in this land. I know nothing of your local feuds. I ask Hero Sun not to implicate me in matters I have no part in. If you truly hold some grudge against the Li family of Old Li Village, then bring it out openly—bright swords and sharp spears. I'll face you to the end. But spare me these underhanded tactics." He shot Li Baiqing a quick look.
 
-Hearing these words, the faces of Yang Tiezhou of the Eight Immortals Society and Ge Yaoxian of the Yellow Tassel Society sitting nearby couldn't help but change abruptly, looking around nervously. Others who were not direct descendants of the Daoist Spirit Society also whispered and discussed among themselves.
+Li Baiqing picked up the thread without missing a beat. "Sun Gang, you're biting at shadows! Who put you up to this? Leader Liao only just rebelled against the society—not even enough time to finish a meal has passed—and already you're pointing fingers at random. Where are all these spies supposedly coming from? Or perhaps you mean to say everyone seated here is a traitor?" He swept his arm across the gathered crowd. "What, do you want to swallow everything whole and leave nothing for the rest of us?"
 
-Sun Gang's face was ashen, and he said furiously, "Li Baiqing, you old man are the most gutless here. You never dare to fight the Kun thieves head-on vigorously, only shrinking in the back, and you still have the face to shout."
+These words struck home. Yang Tiezhou of the Eight Immortals Society and Ge Yaoxian of the Yellow Tassel Society both went pale, glancing nervously around them. Whispers rippled through the crowd—particularly among those who weren't direct members of the Daoist Spirit Society.
 
-Li Baiqing snorted coldly. "Naturally, I can't compare to Hero Sun Gang. On that day, you led troops to fight fiercely with the Kun thieves, but before you finished a shit, you threw away your pole (ran away)."
+Sun Gang's face darkened with fury. "Li Baiqing, you gutless old man! You never dare fight the Kun head-on—always cowering in the back—and you have the gall to shout accusations at me?"
 
-Sun Gang said angrily, "I fought with open bright swords and spears against the Kun thieves! I still have scars left by the Kun thieves' bayonets on my body!"
+Li Baiqing gave a cold snort. "Naturally I can't compare to the great Hero Sun Gang. On that day you led troops against the Kun, you fled before a man could finish taking a shit."
 
-Li Baiqing nodded. "Indeed. Only this scar is not on your chest but left on your buttocks. Presumably, Brother Sun's martial arts are high and strong, and his Iron Buttocks Kung Fu is practiced to perfection, facing the enemy with his back, entering the bare blade with an empty buttock when facing the enemy."
+"I fought them openly!" Sun Gang roared. "With swords and spears! I still carry scars from their bayonets!"
 
-Sun Gang flew into a rage from shame, cursing about ancestors and grandsons, having long forgotten his original intention. He came up wanting to tear into and fight Li Baiqing.
+Li Baiqing nodded sagely. "Indeed you do. Only the scar isn't on your chest—it's on your backside. One can only assume Brother Sun's Iron Buttocks Kung Fu has reached perfection. You must face your enemies rear-first, presenting your bare cheeks to the blade."
 
-With the quarreling, the crowd gathered together, each standing up for the person they favored, noisily pushing and shoving each other. Amidst the chaos and noise, Xue Tu led a group of people and separated the crowd, striding in. Seeing him, everyone bowed and saluted. Xue Tu asked the reason and couldn't help frowning, glancing at Pockmarked Chen. Pockmarked Chen secretly blamed Sun Gang for being meddlesome and asked, "Are you certain?" Seeing that the matter had blown up, Sun Gang had neither clear proof nor a clue. Originally, he was certain in his heart, but at this moment, he couldn't help but be somewhat vague. He secretly regretted his recklessness. Just now, in a moment of excitement thinking about establishing a great merit, he hadn't expected to create a deadlock. He could only say, "He looks extremely like him." Pockmarked Chen pressed, "Is he extremely like him, or is it him?" Sun Gang smacked his lips and said, "Extremely like."
+Sun Gang's face went crimson with rage. He spat curses invoking ancestors and descendants alike, his original purpose forgotten entirely. He lunged forward, ready to tear into Li Baiqing with his bare hands.
 
-Xue Tu felt irritable. If it really was a spy, he naturally couldn't let him off lightly. But if this situation truly created a second rebellion against the society, the non-direct descendants of the Daoist Spirit Society would all feel insecure, and the hearts that had just been gathered would instantly scatter. He couldn't help but hesitate.
+The argument drew a crowd, men clustering around their favored champions, shoving and shouting over one another. Into this chaos strode Xue Tu with his retinue, parting the crowd like a blade through water. At the sight of him, the noise subsided and heads bowed in deference.
 
-While he was in a dilemma, Wooden Stone Daoist walked over slowly and said, "I just heard Brother Li say you were previously in the Green Dragon Society in Jiangnan?" After speaking, he suddenly coiled his left hand over his right, thumbs together, forming a Coiling Dragon Button knot. This was the starting gesture for checking one's background in the Green Dragon Society. Then he added, "Who comes?"
+Xue Tu demanded an explanation. As he listened, his brow furrowed deeper. He glanced at Pockmarked Chen, who was silently cursing Sun Gang for his meddling.
 
-Seeing this, Xu Tong immediately crossed his left and right hands, forming a Probing Dragon Hand in front of his right chest. His right palm faced forward, his left hand faced backward, and the upper edge of his left palm pressed on the third knuckle of his right middle finger. The higher the knuckle pressed, the higher the status. Pressing one knuckle meant higher than the other party; two meant equality; three meant admitting to being a low-level member of the society, or it could be understood as modesty, admitting to being one level lower than the other party. He said loudly, "Mountain connects to mountain, ridge connects to ridge, a dragon's shadow hides in a pool of cold water. Younger brother is untalented, a Dragon-steed Armored Warrior under the Green Dragon seat."
+"Are you certain?" Pockmarked Chen asked.
 
-Wooden Stone Daoist nodded and said, "Do you have martial arts?"
+Now that the matter had escalated, Sun Gang found himself without clear evidence or leads. He had been so sure only moments ago, but under scrutiny, doubt crept in. He cursed his own recklessness—in his eagerness to claim a great merit, he had painted himself into a corner.
 
-Xu Tong said, "I am proficient in all eighteen types of martial arts. A strong man wins a hundred battles with martial arts; swords, spears, swords, and halberds show their power. Civil virtue and martial brilliance have much strategy, supporting the Sage Lord to sit in the Dragon Court."
+"He looks extremely like him," Sun Gang muttered.
 
-Wooden Stone Daoist asked again, "Do you have loyalty and righteousness?"
+"Does he look extremely like him," Pockmarked Chen pressed, "or is it him?"
 
-Xu Tong said, "Loyal liver and righteous gall, red blood always red. A journey of ten thousand *li* penetrates the Jade Pass; the constellations of the nine heavens descend to the mortal world. The loyal and good can subdue an army of thousands; the treacherous and sycophantic henceforth find it hard to keep their lives."
+Sun Gang wet his lips. "Extremely like."
 
-Wooden Stone Daoist asked again, "I wonder what matter brings this brother here?"
+Xue Tu felt his irritation mounting. If this truly was a spy, he couldn't simply let the man walk free. But if this confrontation sparked a second rebellion, every member who wasn't part of the Daoist Spirit Society's inner circle would feel threatened. The unity he had just managed to forge would shatter in an instant. He stood paralyzed by indecision.
 
-Xu Tong said, "Younger brother was reckless and was injured by outsiders. I ask all senior brothers to raise an arm high and shelter me under your wings, planting a peach and plum hero tree to gather heroes from the four seas. Younger brother has just arrived; my etiquette is incomplete, my clothes and cap are incorrect, my path is unclear, and I do not know everyone fully. I hope all the elders and young ones will show magnanimity and forgiveness. Here I offer a gold card and silver calling card to present a hall full of superior clothing for younger brother." After speaking, he tapped the ground with one knee, took out his identity calling card from his bosom—said to be gold and silver, but actually just two ordinary pieces of paper—and presented them to Wooden Stone Daoist with both hands.
+While he wavered, Wooden Stone Daoist approached with an unhurried gait. "I heard Brother Li say you were previously with the Green Dragon Society in Jiangnan?"
 
-Wooden Stone Daoist took it, looked at it carefully for a while, his expression unchanged, and only asked again, "Peach blossoms in the full garden open on the same tree; a string of river water gathers worthy talents. I wonder which road this brother walks?"
+As he spoke, he coiled his left hand over his right, thumbs pressed together, forming the Coiling Dragon Button—the opening gesture for verifying one's credentials in the Green Dragon Society.
 
-Xu Tong said, "The dry road is walkable; the water road is also walkable."
+"Who comes?" he asked.
 
-Wooden Stone Daoist said, "How is the dry road? How is the water road?"
+Xu Tong responded immediately. He crossed his hands before his right chest in the Probing Dragon Hand, right palm facing forward, left palm facing back, the upper edge of his left palm pressing against the third knuckle of his right middle finger. The higher the knuckle, the higher one's claimed status—one knuckle meant superiority, two meant equality, three meant humility, acknowledging oneself as a junior member.
 
-Xu Tong said, "Vast dust and sand, no mountains seen; seething water mist, no rivers seen."
+"Mountain connects to mountain, ridge connects to ridge," Xu Tong intoned. "A dragon's shadow hides in a pool of cold water. This younger brother is untalented—a Dragon-steed Armored Warrior under the Green Dragon seat."
 
-Wooden Stone Daoist said, "The Green Dragon swings its tail without saying its surname; the Green Dragon hits its back without speaking its name. What is Brother's honorable surname and great name? How many high mountains have you climbed? How many gates have you hung the gold medal on? Where does a bright road lead?"
+Wooden Stone Daoist nodded. "Do you have martial arts?"
 
-Xu Tong said, "Indebted to the society's cultivation, my humble place is the East Pavilion of the Green Dragon Society. Younger brother is Li Jian, hanging two bronze medals at the mountain gate. My master's gate leads from Tong Jiong of the Suppressing River Tide. When traveling outside, a fallen phoenix rests on a parasol tree; a swimming dragon coils on a sea-spanning beam. I hope brothers of all families will look after me."
+"I am proficient in all eighteen forms. A strong man wins a hundred battles through martial skill; swords and spears and halberds show their power. Civil virtue and martial brilliance, strategy in abundance—to support the Sage Lord upon the Dragon Throne."
 
-Hearing this, Wooden Stone Daoist looked at the card in his hand again, staring at Xu Tong's eyes with a burning gaze. Xu Tong did not dodge but faced him calmly. The two looked at each other for a moment. Wooden Stone Daoist suddenly laughed loudly and said, "The card is real, and the slang is correct. He really is a disciple of the society. This poor Daoist spent a long time in Jiangnan and had diverse friendships with people from the Green Dragon Society, which is why I know these slang terms. No need to ask further. Brothers of each family, disperse."
+"And do you have loyalty and righteousness?"
 
-After he spoke, everyone let out a sigh of relief. As they were about to disperse, Xu Tong slowly stood up from the ground and said to Sun Gang, "Is Brother Sun leaving just like this?"
+"A loyal liver and righteous gall, blood that runs forever red. Ten thousand *li* I've traveled, piercing the Jade Pass; the nine heavens' constellations descend to the mortal realm. The loyal and good can subdue an army of thousands; the treacherous and sycophantic shall never keep their lives."
 
-Sun Gang was just about to return to his seat. Hearing the call, he turned his head, stiffened his neck, and said viciously, "What?"
+"What business brings you here, Brother?"
 
-Xu Tong said, "My humble face isn't worth anything. I, this kid, can endure the staining of my innocence. But Brother Sun's words just now insulted my cousin-uncle and ancestors. Although I am unfilial, I cannot let my elders and ancestors be humiliated in public."
+"This younger brother was reckless and ran afoul of dangerous men. I ask my senior brothers to extend their protection, shelter me beneath your wings. Plant a peach and plum tree to gather heroes from across the four seas. I have only just arrived—my etiquette incomplete, my robes improper, my path unclear. I do not yet know everyone's names and faces. I beg the elders' magnanimity and forgiveness." He dropped to one knee, drew his identity cards from his robe—called gold and silver by tradition, though in truth they were ordinary paper—and presented them with both hands.
 
-Sun Gang sneered, "What do you intend to do?"
+Wooden Stone Daoist accepted the cards and studied them carefully. His expression betrayed nothing.
 
-Xu Tong said, "Two options, Brother Sun chooses. First, pour a bowl of wine, apologize to my cousin-uncle, and toast me a bowl as an apology to my ancestors. Second, wild grass isn't neat if not trimmed; the dock isn't flat if not stepped on. For those who run in the *jianghu*, reason is spoken with fists."
+"Peach blossoms in the full garden open on the same tree," he recited. "A string of river water gathers worthy talents. Which road do you walk, Brother?"
 
-After speaking, he made a circle bow to the surroundings and said, "This is a private grudge and does not involve gang rules. Let's sign a life-and-death contract and fight. If Brother Sun is afraid, he only needs to say one sentence, 'I, Sun Gang, submit.' I won't pursue it deeply. Consider Brother Sun having apologized, and we'll turn over this page."
+"The dry road is walkable. The water road is also walkable."
 
-Sun Gang had a reckless and explosive temper; how could he endure such goading? He immediately threw a wine bowl over and shouted violently, "Apologize to your ancestors! We'll just see who wins or loses with fists." Xu Tong tilted his head, and the wine bowl shattered on the ground with a *crash*. Seeing the excitement, the crowd immediately made a noise. Xue Tu intended to stop it, but the society had a custom of settling private grudges with duels, and the surrounding crowd was jeering. While he hesitated slightly, Ge Yaoxian of the Yellow Tassel Society went down to the field. He was resentful about his society being merged today and intended to fan the flames and stir up trouble to vent the evil fire in his chest. So he said clearly, "Since it is so, I will be a witness. Bring paper and brush. Let the two brothers establish a contract."
+"How is the dry road? How is the water road?"
 
-Immediately, a small minion presented brush and ink. Ge Yaoxian held the brush, wrote two life-and-death contracts, and each pressed their handprints. Tables and chairs were cleared away, leaving an empty space. The two stood on the left and right. Ge Yaoxian asked Xu Tong in a low voice, "I wonder which sect and school this brother belongs to?"
+"Vast dust and sand, no mountains seen. Seething water mist, no rivers seen."
 
-Xu Tong was stunned. He practiced the comprehensive fighting techniques taught by the Senate, integrating boxing punches, Muay Thai knees and elbows, Brazilian Jiu-Jitsu, wrestling throws, and Karate kicks. Where would there be any sect? In a hurry, he remembered an internal high-confidentiality special issue of an Australian illustrated book and said casually, "This humble one is originally from Chongming. What I learned is the Fist of the North Star. My single given name is Jian, and I rank second in my family. People call me Kenshiro (Jian Erlang). Just say it like that."
+"The Green Dragon swings its tail without saying its surname; the Green Dragon strikes its back without speaking its name. What is your honorable surname and given name? How many high mountains have you climbed? How many gates bear your gold medal? Where does a bright road lead?"
 
-Ge Yaoxian nodded and chanted loudly, "Today, Kenshiro of the Fist of the North Star and Sun Gang of the Wen Family Seventy-Two Rows of Fists will compete in martial arts on the spot to resolve enmity. Life and death are their own responsibility; each rests their fate with Heaven."
+"Indebted to the society's cultivation, my place is the East Pavilion of the Green Dragon Society. This younger brother is Li Jian, bearing two bronze medals at the mountain gate. My master's line descends from Tong Jiong of the Suppressing River Tide. When traveling abroad, a fallen phoenix rests on a parasol tree; a swimming dragon coils upon a sea-spanning beam. I trust my brothers of all houses will look after me."
 
-A smile flashed across the corner of Xu Tong's mouth. This martial arts competition would inevitably cause a subtle rift between the two forces in the society. Regardless of victory or defeat, he was the winner.
+Wooden Stone Daoist examined the card once more, then fixed Xu Tong with a piercing stare. Xu Tong met his gaze without flinching.
 
-Xu Tong gently twisted his neck and moved his wrists. His cervical vertebrae and joints made light *crack* sounds. Today, everyone would remember his fists.
+They regarded each other for a long moment. Then Wooden Stone Daoist burst into laughter.
 
-Yun Ting hid his figure under the eaves, quietly watching everything in the field. Wooden Stone Daoist walked slowly to his side and whispered, "How is it?"
+"The card is genuine, and the cant is correct. He is indeed a disciple of the society." He turned to address the crowd. "This poor Daoist spent many years in Jiangnan and knew men of the Green Dragon Society well—that's how I recognize these phrases. No further questions are needed. Brothers, disperse."
 
-Yun Ting said indifferently, "Sun Gang can't win."
+A collective breath of relief swept through the gathering. As people began drifting back to their seats, Xu Tong rose slowly from his kneel.
 
-Wooden Stone Daoist said "Oh" and asked, "Why?"
+"Is Brother Sun leaving just like that?"
 
-Yun Ting paused for a moment and did not answer. Instead, he changed the subject and said, "What does the Daoist think?"
+Sun Gang had already turned away. At the call, he stopped and twisted back, jaw set. "What do you want?"
 
-Wooden Stone Daoist pondered for a moment and said, "This person's calling card is real, and he knows the secret language of the society. He should be a fellow traveler. Looking at his knotted muscles, he also looks like a martial artist. He looks like someone who runs in the *jianghu*. But outsiders... one can never fully figure out their background."
+"My own face means nothing," Xu Tong said. "This humble person can endure having his innocence stained. But your words just now insulted my cousin-uncle and my ancestors. Though I am an unfilial wretch, I cannot allow my elders and forebears to be publicly humiliated."
+
+Sun Gang's lip curled. "And what do you intend to do about it?"
+
+"Two choices, Brother Sun. First—pour a bowl of wine and apologize to my cousin-uncle. Then toast me a bowl as apology to my ancestors. Second—wild grass won't lie flat unless you trim it; the dock won't be level unless you tread it down. Those who run the *jianghu* settle matters with their fists."
+
+He made a sweeping bow to the crowd. "This is a private grudge, separate from gang affairs. Let us sign a life-and-death contract and fight it out. If Brother Sun is afraid, he need only say five words: 'I, Sun Gang, submit.' I'll consider that an apology and trouble him no further."
+
+Sun Gang had a reckless temper, quick to ignite. Such goading was more than he could swallow. He hurled a wine bowl at Xu Tong's head and bellowed, "Apologize to your ancestors? Let's see whose fists speak louder!"
+
+Xu Tong tilted his head. The bowl sailed past and shattered on the ground with a sharp crash.
+
+The crowd erupted with excitement. Xue Tu moved to intervene, but duels to settle private grudges were an established tradition, and the jeering mob made hesitation costly. Before he could act, Ge Yaoxian of the Yellow Tassel Society stepped into the clearing. Still bitter about his society's absorption earlier that day, he seized the chance to fan the flames and vent his frustration.
+
+"Since that is how it stands, I will serve as witness," he declared. "Bring paper and brush. Let the two brothers establish a contract."
+
+A subordinate scurried forward with ink and writing materials. Ge Yaoxian drafted two copies of the life-and-death contract. Both men pressed their handprints to the paper.
+
+Tables and chairs were cleared away, leaving an open space. The two fighters took their positions on opposite sides. Ge Yaoxian leaned close to Xu Tong and asked in a low voice, "Which school does Brother practice?"
+
+Xu Tong hesitated. His training came from the Senate's comprehensive combat curriculum—boxing fundamentals, Muay Thai knees and elbows, Brazilian Jiu-Jitsu, wrestling throws, Karate kicks. There was no sect to name. Scrambling for an answer, he remembered a classified special issue from an Australian publication.
+
+"I am originally from Chongming," he said with a straight face. "What I learned is the Fist of the North Star. My given name is Jian, and I am second in my family. People call me Kenshiro. Announce it as such."
+
+Ge Yaoxian nodded and proclaimed to the crowd: "Today, Kenshiro of the Fist of the North Star and Sun Gang of the Wen Family Seventy-Two Rows of Fists shall compete in martial arts to resolve their enmity! Life and death rest with Heaven; each man bears his own fate!"
+
+A faint smile flickered at the corner of Xu Tong's mouth. This fight would inevitably drive a wedge between the two factions in the society. Win or lose, he had already won.
+
+He rolled his neck slowly, then twisted his wrists. His vertebrae and joints popped softly. Today, everyone would remember his fists.
+
+---
+
+Yun Ting watched from the shadows beneath the eaves, his figure concealed as he observed the scene below.
+
+Wooden Stone Daoist drifted to his side and murmured, "What do you think?"
+
+"Sun Gang cannot win," Yun Ting said flatly.
+
+"Oh?" Wooden Stone Daoist raised an eyebrow. "Why do you say that?"
+
+Yun Ting paused, then deflected rather than answer. "What is the Daoist's assessment?"
+
+Wooden Stone Daoist considered the question. "His credentials are genuine, and he knows the society's secret language. He should be one of us. Those knotted muscles mark him as a martial artist, and he carries himself like a man who has run the *jianghu*." He paused. "But with outsiders... one can never fully discern the truth of their origins."
 
 **(End of Chapter)**

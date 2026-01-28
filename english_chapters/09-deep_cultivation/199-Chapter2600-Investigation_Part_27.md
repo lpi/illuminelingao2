@@ -1,87 +1,87 @@
 # Chapter 2600: Investigation (27)
 
-But why would she have this dream? As an atheist, Zheng Mingjiang didn't believe in "visitations in dreams" or "divine revelations." She believed that "one dreams at night what one thinks about during the day." She had been investigating the case and hadn't thought about any research-related issues. Could it be that her subconscious thought this case had some connection to scientific research?
+But why would she have such a dream? As a committed atheist, Zheng Mingjiang put no stock in "visitations from the dead" or "divine revelations." She believed that dreams reflected waking preoccupations—yet she'd been consumed by the case, not research matters. Could her subconscious have sensed a connection between this investigation and scientific methodology?
 
-Taking advantage of breakfast time, Zheng Mingjiang quickly straightened out the logical relationships of the case in her mind—the drugs must have leaked during the time from the Bairen General Hospital to the hands of the test subjects. The potential suspects involved were hospital doctors, the test subjects themselves, and unknown persons who collected drugs from the test subjects. Every time they leaked a portion of the drugs, it meant one less portion of drugs used for clinical trials. And if some of them privately disposed of the drugs, the possible impact would be?
+As she ate breakfast, she rapidly traced the logical threads of the case. The drugs must have leaked somewhere between the Bairen General Hospital and the test subjects. The potential suspects included hospital doctors, the subjects themselves, and unknown intermediaries who collected medications from participants. Each portion siphoned off meant one less dose for clinical trials. And if some parties had privately disposed of the drugs, what would be the observable impact?
 
-"The results data of the clinical trials." In the dream, or rather under the guidance of the subconscious mind brought by years of scientific research experience, Zheng Mingjiang had a new idea.
+"The clinical trial data." Whether from the dream or from instincts honed by years of scientific research, a new idea crystallized in her mind.
 
-By checking the experimental data backwards and sorting through suspicious data, it should be possible to find the specific time period of the drug outflow!
+By working backward through the experimental data and flagging anomalies, she should be able to pinpoint exactly when the drugs had leaked!
 
-She telegraphed this hypothesis to Hao Long—he had presided over the drug trials back then, so the specific data and the files of the test subjects should be preserved in the Pharmaceutical Factory's archives.
+She sent this hypothesis to Hao Long via telegram. He had overseen the drug trials, so the detailed records and subject files should still exist in the Pharmaceutical Factory's archives.
 
-Then she told Wu Mu her idea.
+Then she shared her thinking with Wu Mu.
 
-"I think it won't be difficult to trace the origin of this Southeast Asian man," Wu Mu said. "His characteristics are too obvious. It's very likely he was trafficked from some slave market through Quark Qiong's channels. Checking the relevant entry records will definitely find identifying suspects; likely a single check will reveal him."
+"Tracing that Southeast Asian man shouldn't be difficult," Wu Mu said. "His features are too distinctive. He was most likely trafficked through Quark Qiong's slave market channels. Cross-referencing entry records should identify him quickly—probably a single query would do it."
 
-"If he's a slave, how did he run to the medicine market?"
+"If he's a slave, how did he end up at the medicine market?"
 
-"That's for us to investigate!" Wu Mu became a bit curious. "Actually, this androgen business is very small; why do you care so much?"
+"That's what we need to find out!" Wu Mu grew curious. "This androgen business is penny-ante stuff. Why does it matter so much to you?"
 
-"Although the case value is very small, there are too many things in it I can't figure out." Zheng Mingjiang voiced her doubts.
+"The case value may be small, but too many pieces don't fit together." Zheng Mingjiang voiced her doubts.
 
-Although she didn't state her doubts explicitly, Wu Mu understood her meaning: from the beginning, she suspected that Senators had a hand in the drug leakage case and had tried hard to investigate in that direction. However, while there were many suspicions, there was no hard evidence, not even a clue worth mentioning.
+Though she didn't elaborate, Wu Mu understood her meaning: from the start, she had suspected Senate members were involved in the drug leakage and had pressed hard in that direction. But while suspicions abounded, hard evidence remained elusive—not even a thread worth pulling.
 
-"I see the biggest problem with this case is why it's linked to Daoist Wood Stone again," Wu Mu said. "He's always haunting the Senate like a lingering ghost."
+"The biggest problem with this case," Wu Mu said, "is why Daoist Wood Stone keeps appearing. He haunts the Senate like a ghost that won't be exorcised."
 
-"Rather than saying it's him, it's better to say it's his superior, Stone Elder," Zheng Mingjiang said. "To this day, the External Intelligence Bureau doesn't even know who Stone Elder is."
+"It's less about him than his superior—Stone Elder," Zheng Mingjiang replied. "To this day, the External Intelligence Bureau has no idea who Stone Elder actually is."
 
-"Who he is isn't important. The key is that at this crucial moment when the Liang family is secretly networking and plotting rebellion, why would they intervene in this fake medicine case? Could it be they even bring their own rations to rebel against the 'Kun'? It really doesn't make sense." Wu Mu shook his head.
+"His identity matters less than his motives. At this critical moment, with the Liang family secretly building alliances and plotting rebellion, why would they meddle in a counterfeit medicine case? Are they bringing their own provisions to rebel against the 'Kun'? It makes no sense." Wu Mu shook his head.
 
-Actually, this was also the hardest part for him to understand. It was one thing for people like Liang Cunhou to rebel against the Senate, after all, their vital interests were involved. But why would "Stone Elder," a court bigshot far away in the capital with no ritual ties in the Two Guangs, fight the Senate to the death? Could it really be foresight and concern for the country and people? Such ministers did exist in the late Ming, but they could rarely mobilize resources as large as "Stone Elder," let alone organize wave after wave of actions.
+This was the question that most confounded him. He could understand why people like Liang Cunhou would rebel against the Senate—their vital interests were at stake. But why would Stone Elder, a court grandee in the distant capital with no ritual ties in the Two Guangs, fight the Senate to the death? Was it genuine foresight and patriotic concern? Such ministers had existed in the late Ming, but they rarely commanded resources on Stone Elder's scale, let alone orchestrated wave after wave of coordinated operations.
 
-Under Zheng Mingjiang's suggestion, the Senators in Guangzhou held another joint meeting on the drug leakage issue to deploy the next steps work. The meeting decided: First, urge rectification and supervise the implementation of problems found by various departments' self-examinations, plugging all loopholes found. Second, regarding the current personnel involved, launching relevant talk-and-return-loot activities for those whose case value is small or who have an "accomplice" nature. As long as relevant personnel realize their mistakes and make a written self-criticism that gets approved, they can be exempted from criminal punishment. Other related penalties would be discussed separately. Third, divide forces to Huizhou to implement large-scale searches and arrests, striving to catch people and loot together.
+At Zheng Mingjiang's urging, the Senators in Guangzhou convened another joint meeting on the drug leakage issue to plan their next moves. The meeting produced three decisions: First, expedite corrections and verify that all departments had implemented the fixes identified in their self-examinations, closing every discovered loophole. Second, for current personnel involved in minor violations or acting as mere accomplices, launch confession-and-restitution activities. Those who acknowledged their mistakes and submitted approved written self-criticisms would be exempt from criminal punishment, with other penalties determined separately. Third, deploy forces to Huizhou to conduct large-scale searches and arrests, aiming to capture both people and contraband.
 
-Because Huizhou belonged to an area where the Senate's rule was relatively weak, both administrative and military-police forces were thin, and grassroots organizations were practically non-existent. Expecting the locally mixed and limited National Army and police to conduct a comprehensive search and suppression of the area around Boluo was unrealistic. Zheng Mingjiang proposed mobilizing other troops.
+Huizhou fell within an area where Senate control remained weak. Both administrative and military-police forces were thin, and grassroots organizations were practically nonexistent. Expecting the locally recruited National Army and police—undermanned and of mixed quality—to thoroughly sweep the Boluo area was unrealistic. Zheng Mingjiang proposed mobilizing additional troops.
 
-Finally, it was decided that the newly organized troops training in Huizhou: four battalions of the Northern Vietnam Agricultural Reclamation Detachment would execute this task. Although in these four battalions, the only ones with real combat effectiveness were the armed cadre squadron of each battalion, four squadrons were still a considerable armed force.
+The final decision was to assign the newly organized units training in Huizhou: four battalions of the Northern Vietnam Agricultural Reclamation Detachment. Though only the armed cadre squadron of each battalion possessed genuine combat effectiveness, four squadrons still constituted a considerable force.
 
-After arriving at the farm estate, Yuan Shuzhi was basically considered to have completely "joined the gang." Although the account books sent by Steward Gao were fewer than before, an ominous flavor appeared: many "soldier pay registers" and "grain inventory registers" appeared.
+Since arriving at the farm estate, Yuan Shuzhi had effectively become a full member of the operation. The account books Steward Gao delivered grew thinner, but their contents took on an ominous character: "soldier pay registers" and "grain inventory registers" now appeared regularly.
 
-Yuan Shuzhi knew from the pay registers and grain books he handled that this gang wasn't simply reselling the Senate's medicine, but "plotting rebellion." Judging from the accounts handled, this gang had secretly gathered thirty or forty factions of various sizes. According to the numbers in the pay registers, there were fully more than twenty thousand people. Just the monthly pay allocation required more than twenty thousand yuan, plus other scattered expenses. This unknown Daoist had to spend thirty thousand a month just to maintain these troops. It was truly spending money like water.
+From these ledgers, Yuan Shuzhi gleaned that this gang wasn't merely reselling Senate medicine—they were plotting armed rebellion. The accounts revealed that thirty or forty factions of various sizes had been secretly assembled. According to the pay registers, they numbered over twenty thousand men. Monthly wages alone required more than twenty thousand yuan, and with miscellaneous expenses, this mysterious Daoist spent thirty thousand a month just maintaining his forces. Money flowing like water.
 
-Yuan Shuzhi was secretly alarmed watching this; it turned out this Daoist had huge ambitions! To be honest, he never dreamed anyone would plan to rebel against the Australians. These Australians had done nothing but good deeds since arriving in Guangdong; everyone had benefited from them, so why would anyone think of rebelling? Truly ungrateful!
+Yuan Shuzhi was secretly alarmed. This Daoist harbored enormous ambitions! Honestly, he'd never imagined anyone would dare rebel against the Australians. Since arriving in Guangdong, the Australians had done nothing but good—everyone had benefited from them. Who would think of rebelling? Such ingratitude!
 
-So, they painstakingly resold the Senate's "Divine Medicine" not to get rich themselves, but to raise such an armed force. Thinking of this, Yuan Shuzhi couldn't help but secretly despise them.
+So this was why they'd painstakingly smuggled the Senate's "Divine Medicine"—not to enrich themselves, but to fund an army. Thinking this, Yuan Shuzhi couldn't help but feel contempt.
 
-If they did it to get rich themselves, Old Yuan would still look up to them a bit more; although doing bad things, they were at least smart people. But to use money earned at the risk of losing their heads to fill this bottomless pit was simply both bad and stupid! Thinking of this, contempt spontaneously rose in his heart.
+If they'd done it for personal gain, he might have respected them more. Bad, certainly, but at least clever. But to pour money earned at the risk of their necks into this bottomless pit? That was both wicked and idiotic. Contempt rose unbidden in his heart.
 
-Obviously, such huge expenses couldn't be borne even by the Daoist earning "pecks of gold daily." Because Steward Gao brought the account books and wanted him to verify them one by one according to the Australian accounting book model, especially to clear out the falsely reported parts and suspicious points inside.
+Obviously, even the Daoist's substantial earnings couldn't sustain such enormous expenses. Steward Gao brought the account books specifically for Yuan Shuzhi to verify against Australian accounting standards, particularly to expose falsified entries and suspicious discrepancies.
 
-This was a piece of cake for Yuan Shuzhi, who had been trained over these days. He was actually not very familiar with Australian accounting laws originally, only at the level of having passed a certification exam, but doing accounts day and night these days had trained him somewhat. In just three to five days, he had cleared out hundreds of empty pay slots, and listed dozens of obvious floating reports, false reports, and contradictory or suspicious points in various expenses on the grain platform, involving an amount of fully more than two thousand yuan.
+This was easy work for Yuan Shuzhi after his intensive training. Originally, his knowledge of Australian accounting had been superficial—enough to pass a certification exam, nothing more. But working on accounts day and night had sharpened his skills considerably. Within three to five days, he'd identified hundreds of ghost positions on the payrolls and compiled a list of dozens of obvious inflations, fabrications, and contradictions across various expense categories. The total came to over two thousand yuan.
 
-Once this figure came out, the Daoist looked solemn and specifically called him over to ask if there were any mistakes.
+When this figure emerged, the Daoist's expression turned grave. He summoned Yuan Shuzhi specifically to ask whether there might be any errors.
 
-Yuan Shuzhi then detailed his clearing logic and the suspicious points found one by one. He spoke logically and flawlessly. Daoist Wood Stone listened and remained silent for a long time. After a while, he asked:
+Yuan Shuzhi then walked him through his audit methodology and the suspicious entries, one by one. His explanations were logical, his reasoning airtight. Daoist Wood Stone listened in silence for a long while. Finally, he asked:
 
-"Mr. Shu, if everything is cleared up, roughly how much is the amount of false claims and false listings?"
+"Mr. Shu, if everything were fully investigated, roughly how much would be falsely claimed?"
 
-"If verified completely, out of the nearly thirty thousand expenses every month, about ten thousand is falsely listed." Yuan Shuzhi said in a low voice.
+"If thoroughly verified, out of nearly thirty thousand in monthly expenses, perhaps ten thousand is fraudulent." Yuan Shuzhi kept his voice low.
 
-"So much!" The Daoist involuntarily exclaimed, then immediately stopped. He thought for a moment and asked, "Does Mister have any method to curb these false claims?"
+"That much!" The Daoist exclaimed involuntarily, then caught himself. After a moment's thought, he asked, "Does Mister have any method to curb these false claims?"
 
-"This..." Yuan Shuzhi pretended to be in difficulty, lowered his head to think for a long time before saying, "This student has never served in the army and knows nothing about the tricks in the army. However, as long as account books are sent for verification, mostly they can be found out."
+"This..." Yuan Shuzhi feigned difficulty, bowing his head in extended thought before answering. "This student has never served in the army and knows nothing of military stratagems. However, as long as account books are submitted for verification, most irregularities can be detected."
 
-"It seems that is the only way," Daoist Wood Stone sighed deeply. "I didn't expect the Australian bookkeeping method to have such efficacy! Alas, what a pity!"
+"It seems that is the only way." Daoist Wood Stone sighed deeply. "I never expected Australian bookkeeping methods to be so effective! Alas, what a pity!"
 
-He added, "Mr. Shu indeed has great talent in finance! I will need Mister's assistance much in the future!"
+He added, "Mr. Shu possesses genuine talent in finance. I shall need Mister's assistance extensively in the future."
 
-"Yes, this student will definitely serve with all his might." Yuan Shuzhi bowed deeply.
+"Yes, this student will serve with all his might." Yuan Shuzhi bowed deeply.
 
-Back at the accountant's quarters, he almost laughed out loud:
+Back in the accountant's quarters, he nearly laughed aloud.
 
-"Let you earn black money! Let you rebel against the 'Kun' to restore the Ming!" He felt smug in his heart while clearing the accounts.
+*So much for your black money! So much for rebelling against the 'Kun' to restore the Ming!* He gloated inwardly as he worked through the accounts.
 
-Although he hadn't served in the army, he had heard many things about the army. He knew that "pay" was the easiest thing to have problems with in the army. Whether it was high officials of the court or the Emperor, they actually tacitly allowed various corruptions and false claims in the army.
+Though he'd never served in the army, he'd heard plenty about military affairs. He knew that pay was where problems festered most readily. Whether court mandarins or the Emperor himself, all tacitly tolerated various forms of corruption and inflated rosters in the military.
 
-*This Daoist is a novice*, Yuan Shuzhi thought. *Rebelling and fighting wars is a matter of people risking their heads. Those recruited are all kinds of villains, rascals, bandits, and thieves. What righteousness do these people have? They are all held together by money. Once you get serious with them about money, they will immediately cause trouble. At that time, will you still be able to rebel?*
+*This Daoist is a novice*, Yuan Shuzhi thought. *Rebellion and warfare mean asking men to risk their necks. The recruits are rogues, vagabonds, bandits, and thieves—what loyalty could such men possess? They're held together by money alone. Once you start scrutinizing their purses, they'll make trouble immediately. And then where will your rebellion be?*
 
-So he worked even harder on clearing the account books, almost to the point of fussing over every penny. Not only did he list all obvious false claims and floating reports, but even wherever there was a slight suspicion, he listed it all. His work attitude was simply that of a model worker.
+So he threw himself into auditing with renewed vigor, fussing over every last coin. He listed not only obvious frauds and inflations but every entry that raised the slightest suspicion. His work ethic was that of a model employee.
 
-Daoist Wood Stone also praised him greatly, called him over multiple times to commend him, and rewarded him with money several times. Although Yuan Shuzhi was undercover, he was always happy to have his work affirmed by a superior.
+Daoist Wood Stone praised him effusively, summoning him multiple times for commendations and rewarding him with money on several occasions. Though Yuan Shuzhi was undercover, he was always pleased to have his work appreciated by a superior.
 
-However, this happiness was only momentary. Undoubtedly, the more he knew, the more dangerous his situation became. Escaping was impossible; the security here was stricter than at the Jubao Hall, with absolutely no news from inside or outside. In leisure time, let alone walking around, even standing in the yard for a while longer would result in someone "persuading" him to go back. He could only stay cooped up in the room all day. Every day was doing accounts, auditing accounts, and transcribing and writing "summaries."
+But this satisfaction proved fleeting. The more he learned, the more precarious his position became. Escape was impossible. Security here was even tighter than at the Jubao Hall, with information flowing neither in nor out. During his spare time, he couldn't wander freely—even lingering in the courtyard too long brought someone to "suggest" he return inside. He remained confined to his room, day after day: processing accounts, auditing ledgers, transcribing reports, writing summaries.
 
-As he got deeper and deeper involved, he understood more and more about the scale of this lurking rebellion. He completely didn't expect that more than two years after the Senate had liberated Guangdong, someone could gather a rebel force of such scale, and it was already poised to strike!
+As he sank deeper into the operation, he came to grasp the true scale of this lurking rebellion. He'd never imagined that barely two years after the Senate had liberated Guangdong, someone could assemble a rebel force of this magnitude—one already poised to strike.
 
 **(End of Chapter)**

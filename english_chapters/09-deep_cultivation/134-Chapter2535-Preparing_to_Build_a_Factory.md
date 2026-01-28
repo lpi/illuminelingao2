@@ -1,101 +1,105 @@
 # Chapter 2535: Preparing to Build a Factory
 
-"In the early Qing, with the opening of trade at the Thirteen Factories, Guangdong's manual cotton textile industry, oriented towards foreign demand, developed rapidly. At that time, Guangdong was still not a cotton-producing area. Before the 1820s, the British East India Company shipped large amounts of Indian cotton to Guangzhou. At that time, the Indian manual textile industry had not yet been completely defeated. However, this matter cannot be explained clearly in one sentence." Actually, after the British textile industry began to develop, domestic cotton was also insufficient. The European continent had France as its competitor, causing cotton prices to skyrocket. In the end, Britain also relied on American colonies and external conquest to continuously obtain cotton. Therefore, the Senate should also let the private sector develop the cotton textile industry. When raw materials are insufficient, the Senate's colonization will gain assistance.
+"In the early Qing dynasty, when trade opened at the Thirteen Factories, Guangdong's manual cotton textile industry flourished to meet foreign demand. At the time, Guangdong wasn't a cotton-producing region. Before the 1820s, the British East India Company shipped vast quantities of Indian cotton to Guangzhou—this was before India's manual textile industry had been fully crushed by British competition. But it's a complicated story." Li Shan paused, gathering his thoughts. After Britain's textile industry took off, they too faced cotton shortages. Competition with France on the European continent drove prices skyward, and in the end, Britain relied on American colonies and foreign conquest to secure a steady supply. "The Senate should encourage private development of the cotton textile industry. When raw materials run short, the Senate's colonization efforts will gain valuable allies."
 
-"Moreover, we have Jacquard looms, wide-width cloth, and future chemical dyes." Punch cards had been successfully born, and the flying shuttle was not a particularly difficult craft. Once chemical dyes were mass-produced, they would also be very cheap. The printing and dyeing advantage of Indian cloth was not worth mentioning in front of the Senate.
+"Besides, we have the Jacquard loom, wide-width cloth, and soon, chemical dyes." Punch cards had already been successfully developed, and the flying shuttle wasn't a particularly difficult craft. Once chemical dyes entered mass production, they would become remarkably cheap. The printing and dyeing advantages that made Indian cloth famous would be nothing compared to what the Senate could offer.
 
-"Did you call me over to design patterns?" Cheng Milian keenly perceived Li Shan's intention. One must know that besides cost, the pain point of consumer goods popularity lies in design. These three machines were almost all selling points centered on product design.
+"Did you call me over to design patterns?" Cheng Milian asked, quickly grasping Li Shan's intent. After all, beyond production costs, the real challenge with consumer goods lay in design—and all three innovations they'd discussed were selling points centered on product aesthetics.
 
-"Of course. Among the few of us, only you have a bit of artistic talent, so we need your help." Li Shan said.
+"Exactly. Among us, you're the only one with any artistic talent, so we need your help."
 
-"17th-century European *nouveau riche* style?" Unconsciously, designs of those real estate properties in the old timeline floated into Cheng Milian's mind. Although always criticized by the art design circle, one had to say, if brought to this era in Lingao, it seemed quite trendy.
+"Seventeenth-century European *nouveau riche* style?" The words slipped out before Cheng Milian could stop them, his mind drifting to those gaudy real estate developments from the old timeline. The art world had always mocked such designs, but here in Lingao, transported to this era, they might actually seem fashionable.
 
-"Alright, this side depends on you. Brother Zou and I are going to Guangzhou in some time." Li Shan patted Cheng Milian's shoulder and said.
+"That settles it—this side is in your hands. Brother Zou and I will be heading to Guangzhou soon." Li Shan clapped him on the shoulder.
 
-After the Chen uncle and nephew and Wu Yijun returned from Lingao, they did not return to Nansha immediately. Instead, they began the preparatory work for the Nansha Textile Factory in Guangzhou.
+---
 
-According to the textile factory blueprint designed for them by Li Shan and Zou Biao, the scale of the Nansha Textile Factory was not large, implemented in two phases. This was to accommodate the investors' financial capacity. The first phase was spinning, with a scale of eight hundred spindles; the second phase was spinning and weaving, with a scale of one thousand two hundred spindles and sixty looms.
+When Chen Ding and his nephew Chen Lin returned from Lingao with Wu Yijun, they didn't go straight back to Nansha. Instead, they began preparatory work for the Nansha Textile Factory in Guangzhou.
 
-In Guangzhou, they held a preparatory meeting and decided on their respective divisions of labor.
+The blueprint Li Shan and Zou Biao had designed called for a modest facility, implemented in two phases to accommodate the investors' financial capacity. The first phase would focus on spinning alone, with a scale of eight hundred spindles. The second phase would add weaving operations: twelve hundred spindles and sixty looms.
 
-According to the division of labor, Wu Yijun would stay in Guangzhou, responsible for the procurement and transportation of various raw materials and cotton needed for building the factory; the others went to Nansha. Among them, Uncle and Nephew Chen would carry out land acquisition, river canal excavation, and factory building construction. Chen Xiaobing was responsible for coordinating with the local government. The four-person group of textile interns would be responsible for assisting in building the factory and training workers.
+In Guangzhou, they held a preparatory meeting and divided responsibilities.
 
-After the division of labor was set, Chen Xiaobing called Chen Lin over and asked, "Are there enough houses in your village? Soon, an engineering team and many technical personnel will be dispatched; they all need places to live."
+Wu Yijun would remain in the city, overseeing procurement and transportation of construction materials and cotton. The others would proceed to Nansha. Uncle Chen Ding and his nephew would handle land acquisition, canal excavation, and building construction. Chen Xiaobing would coordinate with local authorities. The four textile interns would assist with construction and begin training workers.
 
-"If you don't disdain it, they can all be arranged to stay in various villagers' homes." Chen Lin said. "The ancestral hall, silk workshop, and graveyard all have houses available for borrowing. It depends on how many people come."
+Once these assignments were settled, Chen Xiaobing called Chen Lin aside. "Does your village have enough housing? We'll be sending an engineering team and technical personnel soon—they'll all need places to stay."
 
-"Not too many people, thirty or forty. It's just coming and going; staying in others' homes is also quite annoying."
+"If they're not too particular, we can arrange for them to stay with various villagers," Chen Lin replied. "The ancestral hall, silk workshop, and graveyard all have buildings we could borrow. It depends on how many are coming."
 
-"Then arrange them to the graveyard. If not particular, the *Yang* dwellings [houses for living people, usually caretakers] in the graveyard have no problem accommodating a hundred or so people."
+"Thirty or forty, perhaps. But having them constantly coming and going from private homes would be an imposition."
 
-Because the workshop was to be built on Nansha's land, although Wu Yijun bought a lot of land locally, growing cotton on these lands was fine, but they might not be suitable as factory sites; moreover, water-powered machines involved the issue of river usage rights. Although Wu Yijun was an investor and Chen Lin's relative, close brothers must also settle accounts clearly. This involved the issue of the Chen family's shareholding in the new cotton textile factory.
+"Then the graveyard would work best. The *Yang* dwellings there—the houses for caretakers—could easily accommodate a hundred people."
 
-Wu Yijun was quite open-minded about this, stating that if factory land needed to be purchased separately, he could spend the money, and could give the Chen family clan one share for free as reward for their assistance in opening the factory.
+The question of land proved thornier. The workshop would be built on Nansha's territory, and although Wu Yijun had purchased considerable acreage in the area, land suited for growing cotton wasn't necessarily suitable for a factory site. Water-powered machinery also raised the issue of river usage rights. Though Wu Yijun was an investor and Chen Lin's relative, close brothers still must settle accounts clearly. This brought up the matter of the Chen family's shareholding in the new textile factory.
 
-The total number of shares of Nansha Textile Factory was thirteen. The Chen family occupying one share without spending a penny was considered very generous terms, but Uncle and Nephew Chen hesitated.
+Wu Yijun approached the issue generously, stating that if factory land needed to be purchased separately, he would cover the cost. He also offered the Chen clan one free share as reward for their assistance in establishing the factory.
 
-It wasn't that they disliked the terms, but that this involved a fatal problem: who in the Chen family had the final say.
+The Nansha Textile Factory would have thirteen shares in total. One share without investing a penny was generous by any measure—yet uncle and nephew hesitated.
 
-The Chen family of Nansha was not a "family" but a "clan," containing dozens of households and hundreds of people. Theoretically speaking, the "Chen family land" in Nansha Village belonged to the "clan." Regardless of who specifically exerted effort or money when buying land or reclaiming wasteland, disposing of land required the consent of clan members.
+It wasn't that they found the terms unfavorable. The problem was more fundamental: who in the Chen family had the authority to make such decisions?
 
-Currently, the position of clan leader was vacant, and the "Head of Case" [manager of clan affairs] was usurped by Second Uncle. Any contract he and Third Uncle and Wu Yijun signed, Second Uncle Chen Xuan could declare invalid. He might not be able to accomplish things, but putting a spoke in the wheel was absolutely no problem.
+The Chen family of Nansha wasn't a single household but an entire clan, comprising dozens of families and hundreds of people. In theory, all "Chen family land" in Nansha Village belonged to the clan collectively. Regardless of who had actually spent the money or effort to purchase or reclaim specific parcels, disposing of any land required the consent of clan members.
 
-Moreover, Second Uncle had a female Australian backing him. Chen Xiaobing was only a "Fake Kun" after all. If Li Yao'er really came forward to support Second Uncle, Chen Xiaobing's appearance would be useless.
+Currently, the position of clan leader sat vacant, and Second Uncle had usurped the role of "Head of Case"—the manager of clan affairs. Any contract Chen Ding and Chen Lin signed with Wu Yijun, Second Uncle Chen Xuan could simply declare invalid. He might not be able to accomplish much on his own, but obstructing others was well within his power.
 
-Chen Lin told Wu Yijun his worries in detail. Wu Yijun also felt this was a thorny matter, so he took Chen Lin to ask Chen Xiaobing for a plan.
+Worse still, Second Uncle had a female Australian backing him. Chen Xiaobing was only a "Fake Kun" after all—a naturalized citizen. If Li Yao'er truly stepped forward to support Second Uncle, Chen Xiaobing's authority wouldn't matter.
 
-"...If this Chen Xuan doesn't cooperate, we can't buy land or build canals and houses in Nansha."
+Chen Lin laid out his concerns to Wu Yijun in full. Wu Yijun agreed it was a thorny situation, so together they went to seek Chen Xiaobing's advice.
 
-Chen Xiaobing nodded: "What you say, the Chief has somewhat thought of."
+"If Chen Xuan refuses to cooperate, we can't buy land or build canals and buildings in Nansha."
 
-Guangdong's clan forces were very strong, so Li Shan and others had thought of this long ago. Knowing they were from Nansha, they greeted Li Yao'er in advance.
+Chen Xiaobing nodded. "Chief Li anticipated this to some extent."
 
-"Chief Li has already written a letter to Senator Li and said hello. You can rest assured. Chief Li went to Nansha to promote the new silk industry and won't mix into the conflicts between clans." Chen Xiaobing deliberated over his words. "Of course, specifically how to resolve conflicts in your clan still depends on yourselves. As for this contract..." He pondered for a moment. "Do you uncle and nephew have land under your own names?"
+Guangdong's clan networks wielded considerable power, and Li Shan's team had thought of this long ago. Knowing the investors hailed from Nansha, they had already contacted Li Yao'er.
 
-"This naturally we have," Chen Lin said indignantly. "Not only do we have it, but the house and land of the silk workshop were also bought by my father; there are deeds too..."
+"Chief Li wrote to Senator Li in advance," Chen Xiaobing said, choosing his words carefully. "You can rest easy. Chief Li's mission to Nansha is promoting the new silk industry—she won't involve herself in internal clan disputes." He paused. "Of course, resolving conflicts within your clan is ultimately your own affair. As for this contract..." He considered for a moment. "Do you and your uncle hold land in your own names?"
 
-"That's it. Since you have real estate and land under your names, this contract doesn't specify which specific piece of land is taken out to 'invest'. You just sign boldly with confidence. The Senate doesn't recognize the concept of clan land. Zhang San's land is Zhang San's; Li Si's house is Li Si's." After saying that, he looked at Chen Lin meaningfully. "Do you understand?"
+"Naturally we do," Chen Lin said, his indignation rising. "Not only that, but the house and land for the silk workshop were purchased by my father. We have the deeds."
 
-"Yes! The small one understands!" Chen Lin responded loudly. Immediately he thought of something again and asked in a low voice, "But Chief Li..."
+"Then there's your answer. Since you hold property in your own names, the contract doesn't need to specify which particular parcel constitutes your 'investment.' Sign with confidence. The Senate doesn't recognize the concept of clan land. Zhang San's land belongs to Zhang San; Li Si's house belongs to Li Si." He gave Chen Lin a meaningful look. "Do you understand?"
 
-"No need to be too anxious about Chief Li's side." Chen Xiaobing said. "As long as you can get the textile factory running, Chief Li will naturally have other considerations."
+"Yes! I understand!" Chen Lin's response came out louder than intended. A thought struck him, and he lowered his voice. "But Chief Li—"
 
-Now Chen Lin had taken a reassurance pill. After discussing with Third Uncle, he signed the shareholding agreement with Wu Yijun in Third Uncle's name.
+"Don't worry too much about Chief Li's position." Chen Xiaobing's tone was reassuring. "Once you get the textile factory running, Chief Li will naturally have other considerations."
 
-After the agreement was signed, everyone went separate ways to handle affairs. Wu Yijun rented a big house in Guangzhou as a temporary office. Most construction materials were ordered from Guangzhou. Li Shan gave him a detailed order list of construction materials, detailed to model and quantity without omission, including markings for backup manufacturers and reference purchase prices. He just needed to follow the list.
+This put Chen Lin's mind at ease. After consulting with Third Uncle, he signed the shareholding agreement in his uncle's name.
 
-Uncle and Nephew Chen then took a boat back to Nansha with the others to begin preparatory work.
+With the agreement finalized, everyone dispersed to their respective tasks. Wu Yijun rented a large house in Guangzhou to serve as a temporary office. Most construction materials would be ordered from the city, and Li Shan had provided a detailed list—specifications down to model numbers and quantities, with notes on backup suppliers and reference prices. Wu Yijun simply had to follow it.
 
-Uncle and Nephew Chen returning openly and swaggering together made Chen Xuan angry in his heart but helpless. Because this uncle and nephew pair not only colluded with Wu Yijun but also brought the Australian's cadres, securing a Senate "capacity diffusion project."
+Uncle and nephew then took a boat back to Nansha with the others to begin preparations.
 
-Of course, in terms of status, Chen Xiaobing, this naturalized citizen cadre, could not compare to Li Yao'er. But in the past, as long as he served well and cooperated well with Li Yao'er's work, he could almost "cover the sky with one hand." Now with a Chen Xiaobing, it was difficult—their words carried more weight between them. Moreover, since Chen Xiaobing arrived, Li Yao'er clearly distanced herself from him. Probably Chen Xiaobing gave him some eye drops [badmouthed him].
+---
 
-And Han Changfu and the others he specially sent to Guangzhou, let alone "fixing" Chen Ding, had even lost contact. Chen Xuan secretly cursed himself for stuffing ten taels of silver into a dog hole!
+Their return—openly and without shame—infuriated Chen Xuan, though he found himself powerless to act. This uncle and nephew pair had not only allied themselves with Wu Yijun but had also brought an Australian cadre and secured a Senate "capacity diffusion project."
 
-But now, he could only swallow his anger and make do with "cooperating" with Uncle and Nephew Chen.
+In terms of status, of course, Chen Xiaobing—a mere naturalized citizen cadre—couldn't compare to Li Yao'er. In the past, as long as Chen Xuan served her well and cooperated with her work, he could practically rule Nansha unchallenged. But Chen Xiaobing's arrival complicated matters. Their words now carried more weight between them, and since the cadre's appearance, Li Yao'er had clearly distanced herself from Chen Xuan. No doubt Chen Xiaobing had been poisoning her ear against him.
 
-Uncle and Nephew Chen did not go home either, moving into the *Yang* dwelling of the graveyard with the work team. Subsequently, the internship group began the site exploration work around Nansha Village.
+And Han Changfu, whom he had specifically dispatched to Guangzhou to "deal with" Chen Ding? Not only had he failed to accomplish anything, he had vanished entirely. Chen Xuan cursed himself for throwing ten taels of silver down a hole.
 
-Because the water power textile factory involved the use of water power, site selection was particularly important. The four students of the textile internship group had a special course in school called "How to Build a Factory." This might be unimaginable for the textile major in another spacetime, but at this moment, it was very useful knowledge.
+For now, he could only swallow his anger and make a show of "cooperating" with uncle and nephew.
 
-Accompanied by Chen Lin, the internship group conducted extensive exploration around the larger rivers in Nansha to choose a suitable factory site.
+Chen Ding and Chen Lin didn't return to their family home either. They moved into the *Yang* dwelling at the graveyard alongside the work team. The internship group immediately began surveying sites around Nansha Village.
 
-The factory site itself had many requirements, such as flat land and good foundation conditions. But the most important condition, Li Guo told Chen Lin, was the flow of river water.
+Because the water-powered textile factory depended on harnessing river current, site selection was crucial. Back at school, the four students of the textile internship group had taken a special course called "How to Build a Factory." Such practical training might seem unimaginable for textile majors in another timeline, but here it proved invaluable.
 
-"...Because we need to use water power to drive machines, there must be faster water volume. So the factory site must be as close to the river as possible, and nearby transportation must also be convenient, the closer to navigable rivers the better. At the same time, this land must have enough area to have enough space when expanding."
+Accompanied by Chen Lin, the group conducted extensive surveys along the larger rivers near Nansha, searching for a suitable factory location.
 
-"So building an Australian factory requires such complicated work!" Chen Lin sighed. Watching them fiddle with various equipment and instruments, he felt ashamed of his unworthiness—he was truly too ignorant.
+The site itself had numerous requirements—level ground, solid foundation conditions—but the most critical factor, Li Guo explained to Chen Lin, was the river's flow.
 
-"The demonstration textile factory in Nanbao doesn't have a big river nearby." He remembered something and asked.
+"Since we're using water power to drive the machinery, we need sufficient current. The factory must be as close to the river as possible, with convenient transportation nearby—ideally near navigable waterways. At the same time, the land needs enough area for future expansion."
 
-"Good question," An Jiu looked up and smiled. "They use steam engines there—which need to burn coal. Do you have coal here?"
+"Building an Australian factory requires such complicated preparations!" Chen Lin sighed. Watching them work with their various instruments and equipment, he felt a pang of shame at his own ignorance.
 
-"Coal... we have, but it's expensive..."
+A thought occurred to him. "The demonstration textile factory in Nanbao doesn't have a big river nearby."
 
-"That's it. Whether burning coal or wood, it's a big expense. This water is free to use; isn't that good?"
+"Good observation," An Jiu replied, looking up with a smile. "They use steam engines there—which burn coal. Do you have coal around here?"
 
-"Then why didn't the Demonstration Factory use water power? Could it be because there was no river?"
+"Coal... we have it, but it's expensive."
 
-"That's not it. Actually, if conditions allow, using steam engines is more cost-effective. It can drive more machines, tens of thousands of spindles, hundreds of machines. And you can open it wherever you want."
+"Exactly. Whether burning coal or wood, fuel is a major expense. River water costs nothing—why not use it?"
+
+"Then why doesn't the Demonstration Factory use water power? Is there no river?"
+
+"That's not it. Actually, when conditions allow, steam engines are more cost-effective. They can drive far more machinery—tens of thousands of spindles, hundreds of machines. And you can build wherever you want, river or no river."
 
 (End of Chapter)

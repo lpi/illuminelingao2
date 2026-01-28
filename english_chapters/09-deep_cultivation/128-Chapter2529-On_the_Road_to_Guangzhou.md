@@ -1,97 +1,95 @@
 # Chapter 2529: On the Road to Guangzhou
 
-To pass the boring travel time, Zhang Xiao and Lin Motian discussed the situation in Nanhai County all the way. Unknowingly, it was mealtime, and the "grumbling" sounds from their stomachs reminded the two they should go to the dining room. Walking on the deck, they met a young man of sixteen or seventeen supporting a middle-aged man with inconvenient legs also slowly heading towards the dining room.
+To pass the tedious hours of travel, Zhang Xiao and Lin Motian discussed the situation in Nanhai County at length. Before they knew it, mealtime had arrived, announced by the unmistakable grumbling of their stomachs. They made their way across the deck toward the dining room and encountered a young man of sixteen or seventeen helping a middle-aged man with limited mobility shuffle slowly in the same direction.
 
-"Liu Sixian, why didn't you let your father sit in a wheelchair? The wind and waves at sea are big; falling would be terrible." Lin Motian's original profession was orthopedics; seeing this situation, his occupational disease flared up, afraid the middle-aged man would break a bone from falling.
+"Liu Sixian, why didn't you put your father in a wheelchair?" Lin Motian's orthopedic background kicked in at the sight. "The sea can get rough—a fall would be disastrous."
 
-"Chief Lin, it doesn't matter; I wanted to walk myself. This student has lain down for most of his life. Fortunately, thanks to the Chief's miraculous hands bringing back spring, I had the opportunity to stand up. Just let me walk more in the remaining days, using these legs and feet to measure this great land of rivers and mountains."
+"It's quite alright, Chief Lin. I wanted to walk," the middle-aged man interjected. "I've spent most of my life bedridden. Thanks to your miraculous healing, I finally have the chance to stand again. Let me use these legs while I can, to measure what I may of this vast land."
 
-The middle-aged man speaking was none other than Liu Dalin. According to modern standards, his age of forty-one was just middle-aged. But by the cognition of Ming people, "Since ancient times, people rarely reach seventy"; more than half of his life had passed. His health had also always been poor, so his speech and movements inadvertently revealed the appearance of an old man.
+The speaker was Liu Dalin. By modern standards, forty-one was merely middle age. But Ming Dynasty people lived by the saying "since ancient times, few reach seventy"—more than half his life had already passed. His chronic poor health had given him the bearing of someone far older than his years.
 
-According to the history of the old timeline, Liu Dalin would have died many years ago by now. However, in this parallel timeline, benefiting from the careful care of modern medicine brought by the Senate, he not only extended his life but also recovered some mobility.
+According to the original timeline, Liu Dalin would have died years ago. In this parallel history, however, modern medicine brought by the Senate had not only extended his life but restored some of his mobility. With improving health and better spirits in recent years, his face bore fewer marks of time than most natives his age.
 
-With his health improving and his mood good in recent years, Liu Dalin's face didn't retain too many traces of time, looking younger than ordinary natives.
+As Lingao General Hospital's most prominent native patient, Liu Dalin was well acquainted with the Senators in the medical sector, Zhang Xiao included.
 
-As the number one native VIP client of Lingao General Hospital, Liu Dalin was very familiar with Senators in the medical sector, and Zhang Xiao was no exception.
+Zhang Xiao smiled. "Committee Member Liu, the Government Affairs Council worried that traveling by civilian ship might be risky given your condition, so they arranged for you to take the *Nemesis* with us to Guangzhou. Weather at sea is unpredictable—perhaps we should have another person help support you?" He moved to take Liu Dalin's other arm.
 
-Zhang Xiao laughed, "Committee Member Liu, the Government Affairs Yuanyuan was worried that you, with inconvenient mobility, might have an accident traveling on a civilian ship, so they let you take the 'Nemesis' with us to Guangzhou. Wind and rain at sea are unpredictable; how about adding another person to support you?" Saying this, Zhang Xiao was about to support Liu Dalin.
+"That's too much—I couldn't possibly trouble you, Chief!" Liu Dalin protested, clearly flustered by the attention. But before he could refuse, Zhang Xiao had already taken hold of him.
 
-"Can't do that, can't do that... How dare I trouble the Chief!" Liu Dalin felt quite "overwhelmed by favor." Before he could refuse, his other arm was already firmly held by Zhang Xiao.
+"Committee Member Liu, if you keep being so polite, we'll have no choice but to force you into the wheelchair," Lin Motian laughed.
 
-"Committee Member Liu, if you are polite again, we will have to press you into the wheelchair." Lin Motian laughed.
+Liu Dalin could only smile helplessly and let them settle him into the chair.
 
-Liu Dalin could only respond with a helpless smile, letting them settle him into the wheelchair.
+Once seated, he said, "I couldn't help overhearing you two discussing Xiqiao Mountain earlier. It sounded like you might be interested in visiting. I studied there in my youth—if you don't mind, I could serve as your guide."
 
-After taking a seat, he said, " just now I vaguely heard the two Chiefs discussing Xiqiao Mountain, seeming to have intentions to visit this famous mountain. This student also studied there when I was young. If the two Chiefs don't disdain it, this student can be a guide then."
+Zhang Xiao had no real interest in the mountain, but brushing off such good intentions felt rude. "That sounds wonderful. If time permits, certainly!" he said politely.
 
-Zhang Xiao was actually not interested in Xiqiao Mountain, but it was inconvenient to brush off his good intentions to his face, so he perfunctorily said, "Good, definitely if there is time!"
-
-Liu Dalin added, "Not hiding it from the two Chiefs, this old man going to Guangzhou this time, besides participating in the activities of the Guangdong Region Advisory Bureau, was also invited by a fellow graduate (*tongnian*). This fellow graduate has a much deeper connection with Xiqiao Mountain than I do."
+"I won't hide it from you," Liu Dalin continued. "Beyond attending the Guangdong Region Advisory Bureau activities, I'm also visiting at the invitation of a fellow graduate—a *tongnian*. His connection to Xiqiao Mountain runs far deeper than mine."
 
 "You mean Chen Zizhuang?"
 
-Liu Dalin was slightly stunned but immediately understood: with the Australians' intelligence capabilities, they probably investigated this background clearly long ago.
+Liu Dalin blinked in surprise, then quickly understood: the Australians' intelligence network had likely uncovered this connection long ago.
 
-"The Chief truly sees clearly into every detail; it is indeed Chen Jisheng [Chen Zizhuang]." Liu Dalin answered.
+"As perceptive as ever, Chief. Yes, it's Chen Jisheng."
 
-Zhang Xiao nodded. "I know a bit about this person Chen Jisheng. He has talent and principles, and must be loyal to the Ming State. Asking him to come out and serve the Senate is probably impossible."
+Zhang Xiao nodded. "I know something of this Chen Jisheng. He's talented and principled, and devoted to the Ming State. Asking him to serve the Senate is probably futile."
 
-"The Chief is right; he indeed has some 'ignorance of current affairs.'"
+"You're right. He does have a certain... stubborn idealism."
 
-"Ignorance of current affairs isn't necessarily a bad thing. I think Chen Jisheng's character is still okay. If you see him, just pass a message for us: My Great Song's laws are all different from the Ming State. We won't force an invitation on him. Just as long as he contentedly stays a rich man and absolutely doesn't harbor other thoughts."
+"Stubborn idealism isn't necessarily a flaw. I think Chen Jisheng's character is respectable enough. If you see him, pass along a message for us: Great Song's laws are entirely different from those of the Ming State. We won't force an invitation. So long as he's content to remain a wealthy private citizen and harbors no other ambitions, there will be no trouble."
 
-Zhang Xiao knew that when it came to playing conspiracies and tricks, compared to this group of native human spirits, none of them few hundred modern people were good enough to watch. Since they could crush with strength, what the Senate played was open strategy, so they might as well open the skylight and speak brightly.
+Zhang Xiao understood that when it came to intrigue and scheming, none of the few hundred modern people could match these native masters of political cunning. Since the Senate could rely on overwhelming strength, their approach was open strategy—they might as well speak plainly.
 
-Liu Dalin repeatedly said yes. "Will definitely pass it on!"
+"Absolutely. I'll convey your words," Liu Dalin assured him.
 
-The Senate Special Ship they rode was steam-powered. To improve the quality of Senators' travel, the ship was equipped with a high-class dining room and even refrigeration equipment produced in Lingao. When the wind was calm, fire could be lit in the ship's galley, allowing Senators to eat fragrant hot meals. Of course, if luck was bad and they encountered big wind and waves, to prevent fire, they could only extinguish the stove in the galley. In this situation, eating cold rice wasn't necessary; using the steam on the steam-powered ship to make some steamed dishes and steamed rice was still a simple matter.
+The Senate Special Ship was steam-powered. To improve travel comfort for Senators, it featured a first-class dining room and even refrigeration equipment manufactured in Lingao. On calm days, the galley could be lit, allowing hot meals. If the weather turned foul, the stove had to be extinguished to prevent fire—but even then, the steam engine could heat steamed dishes and rice easily enough.
 
-Today, the luck of the "Nemesis" was quite good, with calm wind and waves. The food placed on the table in the high-class dining room included: Double Cooked Pork, Mapo Tofu, Roast Lamb, Roast Duck, Tomato Stewed Beef Brisket, Fuqi Feipian [Sliced Beef and Ox Tongue in Chili Sauce], White Cut Chicken, Potatoes, Smashed Cucumbers, and Fruit Salad.
+Today, the *Nemesis* enjoyed favorable conditions with gentle seas. The spread in the dining room included: Twice-Cooked Pork, Mapo Tofu, Roast Lamb, Roast Duck, Tomato-Braised Beef Brisket, Fuqi Feipian, White Cut Chicken, Potatoes, Smashed Cucumbers, and Fruit Salad.
 
-Liu Dalin was invited by Zhang Xiao to dine at the same table. Over the years, the Senate's actions in Hainan had greatly improved local public security and the lives of common people, gaining Liu Dalin's sincere approval. The Senate also treated him as one of their own.
+Zhang Xiao invited Liu Dalin to dine at their table. Over the years, the Senate's governance of Hainan had dramatically improved public safety and living conditions, earning Liu Dalin's genuine approval. The Senate treated him as one of their own.
 
-Liu Sixian was originally going to retreat to a small table to eat. He was still a student now and underage. According to ancient rules, he was not qualified to eat at the table with officials. If this were in the Great Ming, this treatment would be equivalent to dining with the Chongzhen Emperor. However, the Senate never had so much etiquette and let him stay.
+Liu Sixian initially moved toward a smaller table. Still a student and underage, he wasn't qualified by ancient custom to dine alongside officials. In the Great Ming, this would be the equivalent of sharing a meal with the Chongzhen Emperor himself. But the Senate had never stood on such ceremony, and they insisted he stay.
 
-Zhang Xiao took a piece of roast duck and said, "Back to the topic just now. As the saying goes, hooligans aren't scary; what's scary is hooligans having culture."
+Zhang Xiao took a piece of roast duck. "Back to our earlier topic. As the saying goes, thugs aren't frightening—what's frightening is educated thugs."
 
-Lin Motian summarized, "That is to say, Nanhai, and even Guangzhou, is a base for stubborn forces. Here, and even elsewhere in Guangzhou, there still exist many independent local military forces. Even though Guangzhou opened its gates bloodlessly at the beginning, a storm of blood is unavoidable later. Just like Li Chengdong entered Guangdong without blood on his blade occupying Guangzhou initially, but later fought repeatedly back and forth in Guangdong and Guangxi for many rounds, and even massacred Guangzhou City once."
+Lin Motian summarized: "In other words, Nanhai—and Guangzhou more broadly—is a stronghold of entrenched opposition. Independent local military forces remain scattered throughout the region. Even though Guangzhou surrendered without bloodshed initially, conflict is inevitable. It's just like when Li Chengdong entered Guangdong and took Guangzhou peacefully at first, only to fight back and forth across Guangdong and Guangxi for years afterward—eventually massacring Guangzhou City."
 
-"May I ask Chief, who is Li Chengdong? When did he enter Guangzhou?" Liu Dalin listened with a head full of fog, especially hearing the word "massacre," his spine involuntarily chilled.
+"May I ask, who is Li Chengdong? When did he enter Guangzhou?" Liu Dalin listened in confusion. At the word "massacre," a chill ran down his spine.
 
-Lin Motian knew he accidentally slipped his tongue and feigned calmness to ask, "You haven't read the newly released novel? It's that sci-fi novel about a parallel world where the Jin Tartars unified the world in the Pre-Song period. Li Chengdong is the general sent by the Tartars to suppress Guangdong and Guangxi."
+Lin Motian realized his slip and feigned nonchalance. "Haven't you read that new novel? The science fiction one about a parallel world where the Jin Tartars conquered everything during the Pre-Song period? Li Chengdong is the general they sent to subjugate Guangdong and Guangxi."
 
-"This student has never read novels." Liu Dalin knew it wasn't the case, but he had no intention to get to the bottom of it. He just listened to the two Chiefs talk while eating and spoke no more.
+"I've never read novels." Liu Dalin knew this was a cover story but had no desire to press further. He simply ate in silence while the two Senators continued their conversation.
 
-Zhang Xiao finished gnawing on the roast duck and picked up a roast lamb skewer, gnawing while saying, "The complexity of Guangzhou's current situation far exceeds ordinary people's imagination. Without absolute military superiority, wanting to establish a foothold is no different from ascending to heaven. In this background, how to insert the Senate's rule into the grassroots in an area like Nanhai County where feudal forces are exceptionally strong is a massive challenge for anyone. Little Hou is too tender and lacks grassroots experience."
+Zhang Xiao finished his duck and picked up a lamb skewer, eating as he spoke. "The complexity of Guangzhou's current situation far exceeds what most people imagine. Without absolute military superiority, establishing a foothold there would be near-impossible. Given that reality, inserting Senate governance at the grassroots level in a place like Nanhai County—where feudal forces are exceptionally strong—is a massive challenge for anyone. Young Hou is still too green, without enough experience at the local level."
 
-"Isn't this a shortage of cadres? No, accurately speaking, it's a shortage of qualified cadres. We can only let Senators go personally!" Lin Motian drank kvass, burped from his stomach, let out a long breath, and enjoyed the leisure moment, exclaiming, "*Seamen, love their bellies above everything else.*"
+"It comes down to a shortage of cadres. Or rather, qualified cadres. We have no choice but to send Senators personally." Lin Motian sipped his kvass, let out a satisfied burp, and savored the moment of leisure. "*Seamen love their bellies above everything else.*"
 
-Zhang Xiao saw Lin Motian intentionally changing the topic, so he shifted the topic to food. "Current conditions are much better than when we first arrived. I still remember eating Spanish Seafood Paella until I wanted to vomit for a while; smelling that scent gave me psychological shadows. Pity this cook's skill is still far behind Li Mei." Zhang Xiao had some regrets. He and Ming Qiu were fellow provincials from Sichuan. Ming Qiu had now retreated to the second line, so Zhang Xiao caught chances to go to Ming Qiu's house to mooch Sichuan food when in Lingao.
+Seeing Lin Motian deliberately shift the topic, Zhang Xiao followed his lead toward food. "Conditions are vastly better now than when we first arrived. I remember eating Spanish seafood paella until I couldn't stand the sight of it. The smell alone still gives me flashbacks. Though I have to say, this cook's skills don't hold a candle to Li Mei's." Zhang Xiao sighed with regret. He and Ming Qiu were both from Sichuan Province. Since Ming Qiu's semi-retirement, Zhang Xiao took every opportunity to visit his home in Lingao and enjoy proper Sichuan cuisine.
 
-Li Mei was a very busy person and rarely had time to cook at home. However, she trained a very good Sichuan cuisine chef team in the Commercial Hall Restaurant. Every now and then, she would call the chefs to her home to host a "family feast" to entertain Senators, which counted as her way of connecting feelings.
+Li Mei was perpetually busy and rarely had time to cook at home. However, she had trained an excellent team of Sichuan chefs at the Commercial Hall Restaurant. Occasionally, she would bring them to her home to prepare a "family feast" for fellow Senators—her own way of maintaining connections.
 
-"To be honest, I didn't see you as a person picky about food," Lin Motian said.
+"Honestly, I never took you for someone picky about food," Lin Motian remarked.
 
-"But I reserve the right to evaluate food." Zhang Xiao wiped his hands with a napkin and asked, "Do you know why the Old Lord of Heaven created Sichuan?"
+"I reserve the right to evaluate it." Zhang Xiao wiped his hands with a napkin. "Do you know why the Old Lord of Heaven created Sichuan?"
 
-"I don't know." Lin Motian answered honestly.
+"I don't."
 
-"That is to create chefs for the world!" Zhang Xiao said confidently, even though he never cooked himself whilst in Lingao.
+"To provide chefs for the world!" Zhang Xiao declared with absolute confidence—never mind that he hadn't cooked a single meal since arriving in Lingao.
 
-"Sichuan rats being tasty indeed lives up to the reputation."
+"Sichuan rats being delicious certainly lives up to its reputation."
 
-"Speaking of which, Sichuan cuisine is authentic commoner food, with extensive ingredients and seasoning that goes well with rice." Zhang Xiao was quite proud. "If you changed to other cuisines, it would be quite hard to replicate in Lingao. After all, ingredients aren't easy to obtain."
+"The thing about Sichuan cuisine is that it's authentic common people's food. The ingredients are diverse, and the flavors go perfectly with rice." Zhang Xiao spoke with pride. "Other regional cuisines would be much harder to replicate here—the ingredients simply aren't available."
 
-"As a doctor, I hold reservations."
+"As a doctor, I have reservations."
 
-"Che! Don't eat if you have the guts!"
+"Tch! Then don't eat it if you're so principled!"
 
-When the "Nemesis" docked at the Guangzhou Great World Military Pier, the sedan chair of the Guangzhou Municipal Government was already waiting at the Great World entrance. The Provincial-Port General Hospital was located inside the Guangzhou Great World. Lin Motian bid farewell to everyone and returned to his post. Liu Sixian supported Liu Dalin to go a step ahead to the Region Advisory Bureau.
+When the *Nemesis* docked at the Guangzhou Great World Military Pier, sedan chairs from the Municipal Government were already waiting at the entrance. The Provincial-Port General Hospital was located inside Guangzhou Great World, so Lin Motian bid everyone farewell and returned to his duties. Liu Sixian helped his father proceed ahead to the Region Advisory Bureau.
 
-The one who came to welcome Zhang Xiao was precisely Hou Wenyong. Years earlier, Zhang Xiao had seen him in Ma Qianzhu's office. At that time, Hou Wenyong was just a green kid; now he was in his early twenties.
+The one who came to welcome Zhang Xiao was Hou Wenyong himself. Zhang Xiao had first met him years ago in Ma Qianzhu's office. Back then, Hou Wenyong had been just a green kid; now he was in his early twenties.
 
-Zhang Xiao felt somewhat strange about his arrival. "Yi, affairs in Guangzhou are piled up like a mountain now. Little Hou, you should be handling ten thousand machines a day managing Nanhai; why did you come to pick us up?"
+Zhang Xiao found his presence curious. "Strange—Guangzhou is swamped with work right now. Little Hou, shouldn't you be juggling a thousand things as Nanhai's administrator? Why did you come to pick us up?"
 
-Hou Wenyong scratched his head awkwardly. "Chief, Nanhai County is not under my management. Senator Little Zhang was transferred to serve as the Director of the Management Committee of Foshan Economic Development Zone. No one could take over her job as Secretary-General of the Municipal Government. Because I originally did secretarial work, Chief Liu transferred me to replace Senator Little Zhang's post. Now the Magistrate of Nanhai County is concurrently held by Chief Liu himself."
+Hou Wenyong scratched his head awkwardly. "Chief, Nanhai County isn't under my management anymore. Senator Little Zhang was transferred to serve as Director of the Foshan Economic Development Zone Management Committee. No one could take over her role as Secretary-General of the Municipal Government. Since I had experience in secretarial work, Chief Liu reassigned me to fill her position. The Magistrate of Nanhai County is now Chief Liu himself, in a concurrent role."
 
 (End of Chapter)

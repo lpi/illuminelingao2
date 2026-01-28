@@ -1,125 +1,125 @@
 # Chapter 2538: Chen Qing's Secret
 
-Immediately, he recounted one by one how he visited the textile park and how he participated in Wu Yijun's cotton textile project.
+Chen Lin recounted his visit to the textile park and his participation in Wu Yijun's cotton textile project, laying out each detail in turn.
 
-Then Chen Lin spoke out the general plan: intending to rebuild a cotton textile factory on that piece of sandy land along the river in the south, producing with Australian secret techniques.
+Then he unveiled his grand plan: to build a cotton textile factory on the sandy riverbank land in the south, employing Australian production techniques.
 
-"...Now what the Australians lack most is various colored cotton cloths. As long as we weave them, we won't worry about selling..." Chen Lin blew the market prospects up to the sky with flowers falling. "Now the silk workshop is in depression, and the days of clan members are also difficult. If we have this cotton textile factory, everyone will have a livelihood, and the lives of clan relatives can also be slightly more relaxed."
+"The Australians are desperate for colored cotton cloth," Chen Lin declared, painting the market prospects in the rosiest terms imaginable. "Whatever we weave, they'll buy. The silk workshops are struggling now, and clan members are having a hard time of it. With this factory, everyone will have steady work, and our kinfolk can finally breathe a little easier."
 
-Although the Chen Clan of Nansha had a prominent reputation and considerable power locally, its foundation was still shallow. Because the clan had never had a major breakthrough in the Civil Service Examination path all these years. Benefiting from collective support under the clan system, some scholars were produced, but not even a single *Juren* was passed. The highest degree was just a *Bagong*, and he never held a substantive office.
+Though the Chen Clan of Nansha enjoyed a prominent reputation and wielded considerable local influence, its foundations remained shallow. The clan had never achieved a true breakthrough on the Civil Service Examination path. Collective support under the clan system had produced a few scholars, but not a single *Juren* among them. Their highest-ranking member held only the degree of *Bagong*, and he had never obtained a substantive office.
 
-Although the Nansha Chen Clan claimed to be a family of farming and studying, the gold content in this "studying" was obviously not much. Without the degrees of *Juren* and *Jinshi*, they couldn't mix into the ranks of the gentry. The power in the local area was very limited, relying entirely on living together as a clan and having many people to become a force in the county.
+The Nansha Chen Clan styled itself a family of farming and scholarship, but the gold content of their "scholarship" was obviously lacking. Without *Juren* or *Jinshi* degrees, they could never break into the ranks of the true gentry. Their local power remained limited, resting entirely on the strength of numbers that came from living together as a clan.
 
-Because of this, apart from a few clan members engaged in industry and commerce, the Chen clan members still had to rely on farming and working for a living. Working in the silk workshop was a major source of income for Chen clan members in the past.
+Because of this, apart from the few members engaged in trade and industry, most of the Chen clan still depended on farming and manual labor. Working in the silk workshops had long been a major source of income for them.
 
-Now although the silk workshop had recovered, because Chen Xuan's "position was improper," he quoted [hired] a large number of foreign-surname workers, and Chen clan members were excluded instead—although the reason on the surface was insufficient start of work, Chen clan members understood what was going on and had many complaints.
+Now, although the silk workshops had recovered, Chen Xuan's "improper position" meant he had hired large numbers of workers from outside the clan while excluding Chen members—the official excuse was insufficient work, but everyone understood what was really happening. Resentment ran deep.
 
-The Chen family was looted by rogue soldiers not long ago, and everyone from top to bottom was destitute. Once Chen Lin's "Grand Plan of Building a Factory" was thrown out, it immediately gained the support of the young people.
+The Chen family had been looted by rogue soldiers not long ago, leaving everyone from top to bottom destitute. The moment Chen Lin unveiled his "Grand Plan of Building a Factory," it won immediate support from the younger generation.
 
-"After everyone goes back, blow more wind to parents and elders, talk about the benefits of this cotton textile factory." Seeing the heat was about right, Chen Lin immediately ordered people to distribute the "gifts" he brought to everyone.
+"When you go home, talk to your parents and elders," Chen Lin instructed once the enthusiasm had reached the right pitch. He signaled for his men to distribute the gifts he'd brought. "Explain the benefits of this cotton textile factory. These are small items I picked up in Lingao—nothing valuable, but practical things for the household. Take them home to your families."
 
-"These are some small objects I purchased in Lingao. Not valuable things, but they are all practical items for home. You take them back to your family members."
+The gifts were simple enough: candles, matches, candies, mosquito repellent, common household medicines. Nothing extravagant, but useful and effective.
 
-These things were actually just: candles, matches, candies, mosquito repellent water, common household medicines... Although not valuable, they were practical and effective items.
+Chen Lin offered a few more words of encouragement, asking everyone to await news of the factory construction. When hiring began, clan members would receive first consideration.
 
-Chen Lin said some encouraging words to everyone again, asking everyone to await the news of the start of the cotton textile factory construction at any time. When hiring workers, clan members would definitely be considered first.
+After the gathering dispersed, Chen Lin walked into the courtyard, his heart swelling with excitement. He gazed up at the star-filled sky, feeling as though infinite possibilities stretched before him. His eyes drifted to the east and west wing rooms where the internship group was staying. Lights still burned within—what were they working on at this hour? Probably still hammering out details for the new textile factory. Though it would be the Wu Yijun family's property, the clan had a stake in it too. More importantly, if this project succeeded, he would have proven himself in the Australians' eyes. He would have his chance to board that great ship.
 
-After everyone dispersed, Chen Lin walked into the courtyard with excitement, looking at the stars filling the sky, feeling that there were infinite possibilities before his eyes. He glanced at the east and west wing rooms where the internship group lived. The lights were still on: what were they busy with? Probably still for the new textile factory. Although it was the Wu Yijun family's property, their clan also had a share here. The key was, once this project could be done well, he would be considered to have entered the Australian's method eye [favor], and would have a great chance to board the big ship of the Australians in the future.
+He was just planning to visit the internship group's quarters to discuss matters when movement in a shadowy corner caught his attention. Chen Qing was nestled close to someone there, speaking in intimate whispers. Chen Lin felt a flicker of surprise—he hadn't heard anything about Chen Qing having a sweetheart in the village. The boy was more resourceful than he'd given him credit for.
 
-He was just planning to go to the internship group's wing room to "discuss matters," but suddenly saw Chen Qing nestling with someone in the corner saying something, looking very intimate. He was secretly surprised: hadn't heard Chen Qing had any sweetheart in the village; didn't expect this kid to be quite capable...
+He crept closer for a better look and felt as though lightning had struck him: the person wrapped in Chen Qing's arms was his own cousin, Chen Yue.
 
-Quietly walking over to look, he was instantly struck as if by five thunders: the one nestling in Chen Qing's arms was his cousin/sister Chen Yue!
+Chen Lin was no hidebound pedant or feudal relic—he was a young man himself. Nor did he look down on Chen Qing's family for being poor. But his sister's behavior was simply too brazen: a grown girl nestled in a man's arms in the darkness of night—what was this? And the fatal detail, from the clan law's perspective, was that Chen Yue was technically Chen Qing's Clan Aunt.
 
-Speaking of it, Chen Lin was not some old pedant, old fogey, or old feudal type of character—he himself was a young man. Nor was it that he looked down on Chen Qing's family being poor. But the sister's behavior was inevitably too unbridled: a big girl nestling in a man's arms in the dark of night, what kind of matter was this? The most fatal thing was, from the clan law perspective, Chen Yue was Chen Qing's Clan Aunt!
+Though Chen Qing's branch of the family was only distantly connected to Chen Lin's grandfather's line, they all descended from the same founding ancestor. Such a thing would bring great shame upon the entire clan. Both man and woman would be drowned in pig cages.
 
-Although Chen Qing's family lineage was far from Chen Lin's grandfather's family, they were passed down from one founding ancestor after all. Such a thing was simply a great shame and humiliation for the clan. The man and woman would both be immersed in a pig cage and executed!
+If this came to light, Second Uncle would seize it as a weapon against him—accusing him of lax discipline, driving him from the village. The clan members wouldn't say a word in his defense. Never mind reclaiming clan leadership or promoting industry and commerce; whether he could even maintain a foothold in the village would become a serious question.
 
-If this matter was exposed, Second Uncle could grasp the handle and accuse him of lax discipline! Directly expelling him from the village. Clan members wouldn't have a second word. Leaving aside taking back clan power and promoting industry and commerce, even whether he could establish a footing in the village in the future would be a huge question mark!
-
-Thinking of this, he broke out in a cold sweat. Afraid of alerting others, he didn't shout to stop immediately. He only emerged from the dark after Chen Yue handed Ah Qing something and left hurriedly.
+Cold sweat broke out across his skin. Afraid of alerting others, he didn't shout for them to stop. He waited in the shadows until Chen Yue pressed something into Ah Qing's hands and hurried away.
 
 "Ah Qing!"
 
-"Ninth Uncle!" Ah Qing was awakened from his daze by this voice at once, unconsciously pressing his chest.
+"Ninth Uncle!" The voice jolted Chen Qing from his reverie. His hand flew unconsciously to his chest.
 
-"Hand it over!" Chen Lin stretched out his hand with a sunken face.
+"Hand it over." Chen Lin extended his palm, face dark as thunderclouds.
 
 "What..."
 
-"Don't play dumb!" Chen Lin lowered his voice. "You have such bold guts! Are you not afraid of death?!"
+"Don't play dumb." Chen Lin kept his voice low. "You've got some nerve! Are you courting death?"
 
-Chen Qing stammered, taking the thing out from his bosom with a heart full of reluctance.
+Chen Qing stammered, reluctantly drawing the object from inside his shirt.
 
-Chen Lin took it and looked; it was a handkerchief. He carefully put away the handkerchief and reprimanded in a low voice: "What death are you courting! You and Chen Yue have the nominal status of aunt and nephew! You dare to do such rebellious things against human relations! If the clan knows, neither you nor she can save your lives!"
+Chen Lin examined it—a handkerchief. He tucked it away carefully, then rebuked him in an undertone: "What kind of death wish is this? You and Chen Yue have the nominal relationship of aunt and nephew! You dare commit such an offense against proper human relations? If the clan finds out, neither of you will survive!"
 
-Since ancient times, same surnames did not marry, let alone they were clan members passed down from one founding ancestor.
+Since ancient times, those of the same surname did not marry—and they were clan members descended from a common ancestor.
 
-Chen Qing's face was full of loss and he was extremely afraid, begging in a small voice: "Uncle Lin, Chen Yue and I share mutual affection. Don't tell the clan..."
+Chen Qing's face was a mask of loss and terror. "Uncle Lin," he begged quietly, "Chen Yue and I truly care for each other. Please don't tell the clan..."
 
-"It's good you know the weight!" Chen Lin said. "Besides you two, who else knows this matter?! Do your parents know?"
+"You'd better understand the gravity of this!" Chen Lin snapped. "Besides you two, who else knows? Do your parents?"
 
-Chen Qing shook his head hurriedly and said, "No one knows!"
+Chen Qing shook his head frantically. "No one knows!"
 
-"No one knows, then how did I know? Don't assume your deeds are secret and no one knows. Others probably just didn't want to meddle!" Chen Lin breathed a heavy sigh. "Consider it Heaven's grace that let me see it."
+"No one knows? Then how did I find out? Don't assume your secrets are safe. Others have probably just chosen not to get involved." Chen Lin exhaled heavily. "Consider it Heaven's mercy that I'm the one who caught you."
 
-After speaking, he asked again: " besides this handkerchief, what other tokens of affection have you and Ah Yue exchanged? Take them all out early! Save getting caught by others and treated as ironclad evidence!"
+He fixed Chen Qing with a hard stare. "Besides this handkerchief, what other tokens have you and Ah Yue exchanged? Bring them all out now—before someone else finds them and uses them as iron-clad evidence."
 
-"Gone... Gone..." Chen Qing said trembling.
+"Gone... They're gone..." Chen Qing said, trembling.
 
-Chen Lin said nothing more and kicked him, reprimanding in a low voice: "If you want to seek death, go to the river outside the village early; don't implicate others! I ask you one more time, are there anymore?"
+Chen Lin said nothing. He kicked the boy and hissed, "If you want to die so badly, go throw yourself in the river outside the village—don't drag others down with you! I'll ask once more: are there any others?"
 
-Seeing Ninth Uncle who was usually always pleasant becoming so ferocious tonight, Chen Qing was afraid in his heart and had to admit "there are still more."
+Seeing his usually amiable Ninth Uncle turn so ferocious, Chen Qing's courage crumbled. "There are more," he admitted.
 
-"Go, to your room, take all the things out!" Chen Lin "escorted" his nephew to the sleeping room. Forcing him to take out all the objects Chen Yue gave him. Besides the handkerchief, there were also shoes and socks she made by hand. Finally, unexpectedly, there was a close-fitting *Dudou* [bellyband]...
+"Go. To your room. Bring everything out." Chen Lin escorted his nephew to the sleeping quarters and forced him to produce every object Chen Yue had given him. Besides the handkerchief, there were shoes and socks she had sewn by hand. And finally, to his shock, a close-fitting *dudou*—an intimate bellyband.
 
-This angered Chen Lin badly; this was simply injuring morals and corrupting customs! He slapped Chen Qing twice and asked: "You shameless low-class seed! Honestly say: where did this come from?!"
+This sent Chen Lin's fury boiling over. Such corruption of morals and decency! He slapped Chen Qing twice across the face. "You shameless wretch! Tell me the truth—where did you get this?"
 
-"No, no," Chen Qing covered his face, scared bad by Ninth Uncle, defending, "This was given to me by Yue'er."
+"No, it's not—" Chen Qing covered his face, terrified. "Yue'er gave it to me herself."
 
-This made Chen Lin so angry his skull cap almost flew up. He didn't expect his sister, who was always well-behaved and obedient, to actually do such a "shameless" thing!
+Chen Lin felt his skull cap nearly lift off. He had never imagined his sister—always so well-behaved and obedient—would do something so utterly shameless.
 
-He really wished he could kick this nephew to death. But he calmed down immediately. Chen Qing was his capable helper, and Chen Yue was his sister. He had to protect them from harm.
+He wanted nothing more than to kick this nephew to death. But he forced himself to calm down. Chen Qing was his capable helper, and Chen Yue was his sister. He had to protect them both from harm.
 
-He took a breath and calmed his mood: asked in a low voice: "Are all the things here? Don't lie to me. If something happens, both of you can't escape death!"
+Drawing a steadying breath, he asked in a low voice, "Is this everything? Don't lie to me. If anything happens, you'll both die."
 
 "All here, all here..."
 
-Chen Qing wrapped up all the objects and took him to the kitchen. Seeing no one around, he stuffed them directly into the stove head.
+Chen Lin bundled up the objects and took Chen Qing to the kitchen. Finding no one about, he stuffed everything directly into the stove.
 
-There were still embers in the stove head, and it burned up at once. Chen Lin was still worried, poking it with a firewood stick again, going back only after confirming everything was burned.
+Embers still smoldered within, and the bundle caught fire at once. Still not satisfied, Chen Lin prodded it with a stick until he was certain nothing remained but ash. Only then did he turn to leave.
 
-"Honestly tell me: did you and Chen Yue have... have..." Chen Lin felt it uncomfortable to mention.
+"Tell me honestly: did you and Chen Yue ever... ever..." He couldn't bring himself to finish.
 
-Chen Qing hurriedly said: "No! Definitely no!"
+"No!" Chen Qing said quickly. "Absolutely not!"
 
-"That's good!" Chen Lin asked again: "Did you send her any tokens?"
+"Good." Chen Lin pressed further. "Did you give her any tokens?"
 
-"Only a pair of silver earrings, bought by myself."
+"Only a pair of silver earrings. I bought them myself."
 
-"Any special marks?"
+"Any special marks on them?"
 
-"No, just the chop name of the silversmith shop."
+"No, just the shop's stamp."
 
-"What's the chop name?"
+"What shop?"
 
-"Maoyu. Just in the county seat..."
+"Maoyu. In the county seat..."
 
-"Doesn't have your name?"
+"Your name isn't on them?"
 
 "No, no." Chen Qing shook his head repeatedly in fright.
 
-Chen Lin breathed a slight sigh of relief. A pair of silver earrings couldn't count as proof. He warned in a low voice: "I'll treat this matter as never happened. You restrain yourself and cut off this improper thought early. Otherwise, neither you nor Yue'er will have a good end! In the future, I will naturally find a good wife for you; you don't need to be anxious for this moment." After speaking, he turned and left, leaving Ah Qing with a face full of loss.
+Chen Lin allowed himself a small breath of relief. A pair of unmarked silver earrings couldn't serve as proof. He warned in a low voice: "I'm going to treat this matter as if it never happened. You will restrain yourself and cut off these improper thoughts immediately. Otherwise, neither you nor Yue'er will come to a good end. When the time is right, I'll find you a proper wife—don't be so desperate."
 
-After disciplining the nephew, Chen Lin called his sister over again and reprimanded her in a low voice.
+He turned and left, leaving Ah Qing standing there with a face full of loss.
 
-"...You, a perfectly good girl, how could you do such a shameless thing! Actually... actually..." Chen Lin couldn't bring himself to mention seeing his sister's bellyband for a moment, so he took a turn, "Ah Qing is your nephew! Do you want your life! If the clan knows, you will be drowned in a pig cage!"
+Having dealt with the nephew, Chen Lin summoned his sister and rebuked her in hushed tones.
 
-Chen Yue was so scared she knelt on the ground, repeatedly admitting mistakes, begging her brother not to report it.
+"You're supposed to be a proper young lady—how could you do something so shameless? To actually..." He couldn't bring himself to mention seeing her bellyband, so he shifted course. "Ah Qing is your nephew! Do you have a death wish? If the clan finds out, they'll drown you in a pig cage!"
 
-"...Don't be afraid. I am your Big Brother, and also Qing'er's Uncle! Even if you did such an ugly thing, I have to cover for you. I already ordered him to burn all the objects you gave. The earrings he sent don't matter; just keep them—and don't wear them out. If anyone asks where they came from, say I bought them for you—understand?"
+Chen Yue fell to her knees in terror, admitting fault again and again, begging her brother not to report her.
 
-"Yes, Brother." Chen Yue was already scared out of her wits at this moment; whatever her brother said went.
+"Don't be afraid." Chen Lin's voice softened slightly. "I'm your elder brother, and Qing'er's uncle too. Even though you've done something disgraceful, I have to cover for you. I've already ordered him to burn everything you gave him. The earrings he gave you don't matter—keep them, but don't wear them in public. If anyone asks where they came from, tell them I bought them for you. Understand?"
 
-Chen Lin breathed a heavy sigh and whispered: "Now danger lurks on every side. Don't go down the wrong path. One step wrong, every step wrong. At that time, not only will your lives not be saved, but I will also find it difficult to exist in the clan! You should see Qing'er less, and don't live alone anymore." He thought for a while, "Last time Big Girl Li told me she wanted to bring an apprentice textile worker to help. You move into her room and learn from her!"
+"Yes, Brother." Chen Yue was frightened out of her wits; whatever her brother said, she would obey.
+
+Chen Lin sighed heavily. "Danger lurks everywhere right now. Don't stray onto the wrong path. One misstep leads to another, and before you know it, there's no way back. At that point, not only will your lives be forfeit, but I won't be able to survive in this clan either. Stay away from Qing'er as much as possible, and stop living alone." He considered for a moment. "Big Girl Li mentioned wanting to take on an apprentice textile worker. You'll move into her room and learn from her."
 
 (End of Chapter)

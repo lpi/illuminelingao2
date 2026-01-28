@@ -1,113 +1,119 @@
 # Chapter 2511: Burning the Tower (24)
 
-The enemy continued to walk toward him carrying a saber. Closer. He saw that leader's face. Xu Tong used his last accumulated strength to stand up suddenly. His right hand spun, reversing the dagger, five fingers pinching the blade. Right arm swung back, throwing the dagger in his hand fiercely. The dagger rotated twice, then under the action of gravity, the point faced forward, flying toward Wei Mingchen's throat. Wei Mingchen gently flicked with the Cloud Ladder saber in his hand, knocking aside the oncoming flying knife. The flying knife just now was weak and powerless. A trace of a smug smile appeared at the corner of Wei Mingchen's mouth. But when thinking of the price paid, his face turned gloomy again instantly.
+The enemy kept advancing, saber in hand. Closer now. Xu Tong could make out the leader's face. Summoning his last reserves of strength, he lurched to his feet. His right hand spun, reversing the dagger so his five fingers pinched the blade. He drew his arm back and hurled it with everything he had left. The dagger tumbled twice through the air before gravity tilted its point forward, sending it spinning toward Wei Mingchen's throat.
 
-Wei Mingchen calmly cocked the hand crossbow string, raised his right hand, and aimed at Xu Tong. He never took risks. He wouldn't get close to Xu Tong either. A dying beast might be even more dangerous. He would use the hand crossbow to weaken the opponent before going up to finish him off.
+Wei Mingchen flicked his Cloud Ladder saber with casual precision, swatting the knife aside. It had been a weak throw, powerless. A smug smile tugged at the corner of his mouth—but when he thought of the price they'd paid to get here, his expression darkened again.
 
-"Bang." A dull gunshot broke the silence of the mountain forest. A flock of returning birds roosting in the forest was startled into sudden flight, circling and crying in the pale gray sky.
+With methodical calm, Wei Mingchen cocked his hand crossbow and raised it, taking aim at Xu Tong. He never took unnecessary risks. He wouldn't close the distance, not with this one. A cornered beast could still be dangerous. Better to weaken him with bolts first, then move in for the kill.
 
-Amidst the gunshot, Wei Mingchen's head tilted back. His hand crossbow did not fire. A small bullet hole appeared in the center of his brow. A bright red flower mixed with brain matter bloomed at the back of his head. His body swayed, and a gurgling sound came from his throat. This was his last testament to the world. He tilted to the side and fell slowly. The last image remaining on his retina was a slender figure in a canvas hunting suit holding a gun with one hand, tilting constantly.
+A dull gunshot shattered the silence of the mountain forest. A flock of roosting birds exploded from the trees, circling and crying against the pale gray sky.
 
-Yang Cao blew gently away the curling gunpowder smoke from the muzzle, walking forward from behind Xu Tong. The remaining four stared dumbfounded at everything before them, not knowing whether to retreat or advance. One of them woke up suddenly, shouting: "It's a woman, kill her!" At this moment, a black shadow jumped out from the flank, cutting in behind him. That person grabbed the swordsman's hair bun with his left hand, pulling his head and cervical vertebrae backward to the left. The prismatic short awl in his right hand thrust straight into the brainstem from the right side, below the jawbone. A twist, and a "swish" sound as it was pulled out neatly. That person flicked the short awl crisply in the air, leaving a string of crystal blood beads.
+Wei Mingchen's head snapped backward. His crossbow never fired. A small bullet hole had appeared in the center of his forehead. At the back of his skull, a bright red flower of blood and brain matter bloomed outward. His body swayed. A gurgling sound rose from his throat—his final testament to the world. He tilted sideways and collapsed slowly. The last image burned onto his retinas was a slender figure in a canvas hunting suit, holding a pistol one-handed, the image tilting as consciousness fled.
 
-More than ten black shadows flashed continuously. The remaining three swordsmen were pounced to the ground almost simultaneously in an instant. Resistance ended before it even began, leaving only a few cold corpses.
+Yang Cao blew gently at the curling smoke rising from the muzzle and walked forward from behind Xu Tong. The remaining four swordsmen stood frozen, uncertain whether to retreat or advance. Then one of them snapped awake and shouted: "It's a woman—kill her!"
 
-Yang Cao opened her backpack, took out a water bag, and handed it to Xu Tong, whispering, "Glucose." Xu Tong took it with his right hand, sipping small mouthfuls.
+At that instant, a black shadow launched from the flank, cutting in behind the man. The attacker seized the swordsman's hair bun with his left hand, wrenching his head and neck backward and to the left. A prismatic short awl in his right hand drove upward from beneath the jawbone, punching straight into the brainstem. A twist. A wet sound as it pulled free. The attacker flicked the awl crisply through the air, scattering a string of crystalline blood droplets.
 
-An action team member opened a first aid kit, treated Xu Tong's wounds, and said, "It's fine, won't die." Another member came over, asked about Li Baiqing's whereabouts, and reported to Yang Cao.
+More than a dozen shadows burst from concealment. The remaining three swordsmen were tackled to the ground almost simultaneously. The resistance ended before it had truly begun, leaving only cold corpses behind.
 
-Yang Cao shouted, "Xiao Wu."
+Yang Cao opened her backpack, withdrew a water bag, and handed it to Xu Tong. "Glucose," she said quietly.
 
-A lean young man with an excessively young face walked over quickly. His face carried an indescribable insidiousness. He wiped the fresh blood on the prismatic short awl with a cloth, retracted it into the scabbard at his waist, and responded, "Chief Yang."
+He took it with his right hand and sipped in small mouthfuls.
 
-Yang Cao said, "Look after him. I'll contact Team Two to see how things are over there. Ask if the few horse stakes (horse watchers) have been taken out. Then have them receive Li Baiqing—he might need first aid measures. Once stable, send him to the hospital quickly!" After speaking, she walked downward.
+One of the action team members opened a first aid kit and began treating Xu Tong's wounds. "You'll live," he said. Another member approached, asked about Li Baiqing's whereabouts, and reported to Yang Cao.
 
-Xiao Wu squatted beside Xu Tong, smiled at Xu Tong, and said, "Stop drinking that stuff; it has no kick. Have one stick and you'll have strength."
+"Xiao Wu," Yang Cao called out.
 
-After speaking, he took out a pack of cigarettes, pulled one out and lit it, took a deep drag himself first, then handed the remaining half to Xu Tong.
+A lean young man with a surprisingly youthful face walked over quickly. Despite his age, something unsettling lurked in his expression. He wiped the fresh blood from his prismatic awl with a cloth and slid it back into the scabbard at his waist. "Chief Yang."
 
-Xu Tong took a puff and coughed twice. He realized there was something mixed in the cigarette and immediately handed it back: "I don't smoke your stuff. You'd best smoke less yourself. Killing the hen to get the eggs!"
+"Look after him," Yang Cao said. "I'll contact Team Two, find out how things went on their end. See if the lookouts have been dealt with. Then have them retrieve Li Baiqing—he might need first aid. Once he's stable, get him to the hospital fast." She turned and headed downhill.
 
-Xiao Wu laughed *hei hei* twice and said, "Take a few more puffs. At least relieve it a bit."
+Xiao Wu squatted beside Xu Tong and grinned at him. "Stop drinking that stuff. No kick to it." He pulled out a cigarette, lit it, took a long drag, then offered the remaining half to Xu Tong. "One of these'll put the strength back in you."
 
-Seeing him ignore him, Xiao Wu said, "Chief Yang organized two tracking teams, two support teams, and one logistics team to provide support for you. You know this. This time, five walkie-talkies were urgently borrowed from the Special Reconnaissance Team for communication. Several newly arrived flashlights were also requisitioned. You also know that these original Australian treasures are getting fewer and fewer these years. For this matter, Chief Yang even went to Director Wu's place to slam the table. Field tracking is difficult. The river flats and tidal creeks here turn a thousand times; we couldn't figure out the way at all. We could only stay on the periphery. When we came back, the support team hadn't arrived yet, and you took Old Li and entered the reed marshes. You ran too fast. In this ghost place, we couldn't pinpoint your bearing at all. The support team was far away too. Always just that little bit of distance short. Until you pulled that signal flare, we didn't know you were so close to us. Why didn't you use that thing earlier?"
+Xu Tong took a puff and coughed twice. He recognized immediately that something had been mixed into the tobacco and handed it back. "I don't touch your stuff. You'd do well to smoke less of it yourself. You're killing the hen to get at the eggs."
 
-Xu Tong said, "Whoever exposes first is unlucky."
+Xiao Wu laughed—a dry *hei hei* sound. "Take a few more puffs. At least take the edge off."
 
-Xiao Wu grinned and said, "True."
+When Xu Tong ignored him, Xiao Wu continued talking. "Chief Yang organized two tracking teams, two support teams, and a logistics team just for you. You know that, right? We had to borrow five walkie-talkies from the Special Reconnaissance Team for this operation. Requisitioned several of their new flashlights too. You know how it is—those original Australian imports get rarer every year. Chief Yang even went to Director Wu's office and slammed the table over it." He shook his head. "Field tracking out here is brutal. The river flats and tidal creeks twist around a thousand times. We couldn't figure out the paths at all, had to stay on the perimeter. By the time we got back, the support team still hadn't arrived, and you'd already taken Old Li into the reed marshes. You moved too fast. In this godforsaken place, we couldn't get a fix on your bearing. The support team was too far out. Always just that little bit short." He gave Xu Tong a look. "It wasn't until you popped that signal flare that we realized how close you were. Why didn't you use it earlier?"
 
-Xiao Wu stood up, patted the dust off his body, supported Xu Tong's shoulder, and said, "Chief Yang treats you well. I'll send you back now..."
+"Whoever reveals themselves first loses," Xu Tong said.
 
-"No rush," Xu Tong asked. "Where is this place?"
+Xiao Wu grinned. "Fair point."
 
-"This is Cao River in Panyu County."
+He stood up, dusted himself off, and put a hand on Xu Tong's shoulder. "Chief Yang takes good care of you. Let me get you back now—"
 
-"Cao River?!"
+"No rush." Xu Tong looked around. "Where are we?"
 
-Xu Tong realized that his "Secret Record of Distance Art" had a huge loophole. He originally thought it was very close to Guangzhou, but didn't expect to have arrived at such a far place!
+"Cao River, in Panyu County."
 
-Thinking again, the other party blindfolded him and placed him inside the boat awning; he had actually completely lost the concept of time and space.
+"Cao River?"
 
-"This place isn't easy to find, right?"
+Xu Tong realized his "Secret Record of Distance Art" had a massive blind spot. He'd thought they were still close to Guangzhou. He never imagined they'd traveled this far.
 
-"Very hard to find," Xiao Wu laughed. "Without brothers of Tanka origin as guides, we would still be circling around here!"
+Then again, they'd blindfolded him and kept him inside the boat's covered awning. He'd completely lost all sense of time and space.
 
-Seeing his lost expression, Xiao Wu comforted, "You don't need to be heavy-hearted. Since we know this is their old nest, go back and ask the Special Reconnaissance Team's air reconnaissance team to come out and search. No matter how deep they hide, they'll be found just the same."
+"This place wasn't easy to find, was it?"
 
-"No need. Even if found, it would have long been empty of people. They aren't that stupid." Xu Tong felt extreme fatigue attack again. "Find me a stretcher. I'm falling asleep."
+"Damn near impossible," Xiao Wu said with a laugh. "Without brothers of Tanka origin as guides, we'd still be going in circles out here."
 
-When he woke up, Xu Tong had already returned to the Bureau in Guangzhou city. Not only were his wounds re-bandaged, but even the clothes on his body had been changed. How dead he must have slept.
+Seeing Xu Tong's dejected expression, he tried to reassure him. "Don't be so hard on yourself. Now that we know this is their base, we can have the Special Reconnaissance Team's air reconnaissance unit sweep the area. No matter how well they hide, they'll be found."
 
-He felt for the watch by the pillow. It was already five in the morning. He had slept for quite a while. At this moment, his brain was as clear as washed by water. He remembered almost every minute of everything that happened yesterday. Xu Tong knew this memory was temporary; he had to seize the time to write the report quickly. Especially everything seen at the alliance meeting scene.
+"Don't bother. Even if you find it, it'll be long abandoned. They're not that stupid." Xu Tong felt exhaustion crashing over him again like a wave. "Find me a stretcher. I'm going to sleep."
 
-After a simple wash, he rang the bell and called in the guard on duty outside the door:
+When he woke, Xu Tong was back at the Bureau in Guangzhou. Not only had his wounds been re-bandaged, but someone had changed his clothes as well. He must have slept like the dead.
 
-"Get me a breakfast, and a cup of strong tea. Send them all to the office."
+He felt for the watch by his pillow. Five in the morning—he'd been out for quite a while. His mind felt sharp now, clear as water. He could recall almost every minute of everything that had happened the day before. But Xu Tong knew this clarity was temporary. He needed to write the report while his memory was still fresh. Especially everything he'd witnessed at the alliance meeting.
 
-Subsequently, he came to the office, opened the curtains, and began to write his action report by the morning light.
+After washing up, he rang the bell and summoned the guard on duty outside his door.
 
-Recalling the whole process, he felt he had no errors. Why did Xue Tu suddenly develop killing intent? He could sense that after the fight ended, Xue Tu had no killing intent toward him. But after the meeting dismissed, he was immediately pursued—and this pursuit was prepared in advance.
+"Bring me breakfast and a cup of strong tea. Send them both to my office."
 
-Could it be that they long knew he was an undercover agent? Xu Tong's thoughts were a bit messy. He didn't delve deeper. He thought of the old Daoist who stood by Xue Tu's side all along; he was likely the "Wooden Stone Daoist" mentioned many times in intelligence. This Wooden Stone Daoist was very mysterious. Since the Witchcraft Case, they knew such a person existed, but had never touched his edge.
+He made his way to the office, drew back the curtains, and began writing his action report by the pale morning light.
 
-However, judging from this behavior, these Ming Dynasty underground forces were gathering unprecedentedly. I'm afraid it won't be long before a violent counterattack is set off.
+As he reconstructed the events, he couldn't identify where he'd made an error. Why had Xue Tu suddenly developed killing intent? Xu Tong could sense that after their fight, Xue Tu harbored no desire to kill him. Yet the moment the meeting adjourned, the pursuit began—a pursuit that had clearly been prepared in advance.
 
-The counterattack was bound to fail; Xu Tong firmly believed this. But the beacon fire caused by the counterattack would cause countless innocent common people to suffer broken families and death...
+Had they known all along that he was an undercover agent? Xu Tong's thoughts tangled together. He didn't press deeper. His mind turned to the old Daoist who had stood at Xue Tu's side throughout—likely the "Wooden Stone Daoist" mentioned repeatedly in intelligence reports. This Wooden Stone Daoist remained a mystery. Ever since the Witchcraft Case, they'd known such a person existed, but had never gotten close to him.
 
-Two nights later, in front of a porridge stall outside the Political Security Bureau in Guangzhou city. Yang Cao sat quietly alone at a table. This was a place where many night-shift Political Security Bureau employees ate late-night snacks. The dim flame of the oil lamp with a glass cover on the table jumped restlessly, illuminating the range of a few feet in front of eyes. A figure came to Yang Cao's side. Xu Tong's voice sounded from behind: "Working overtime again?"
+Still, judging by what he'd witnessed, these Ming Dynasty underground forces were gathering in unprecedented numbers. A violent counterattack couldn't be far off.
 
-Yang Cao gave an "En" and said, "Didn't rest a few more days?"
+The counterattack was doomed to fail—Xu Tong was certain of that. But the flames it ignited would leave countless innocent common people with shattered families and unmarked graves.
 
-Xu Tong said, "No need. Have to report to Director Wu tomorrow. I'll organize the report again."
+Two nights later, at a porridge stall outside the Political Security Bureau in Guangzhou. Yang Cao sat alone at a table. The stall was a favorite haunt of Bureau employees working the night shift. The dim flame of an oil lamp under its glass cover flickered restlessly on the table, casting a pool of light barely a few feet across. A figure approached and stopped beside her. Xu Tong's voice came from behind: "Working overtime again?"
 
-Yang Cao was silent for a moment, then said, "At that time, you didn't know when support would arrive. You should have eliminated Li Baiqing and escaped yourself."
+Yang Cao gave a soft "Mm" of acknowledgment. "Shouldn't you be resting a few more days?"
 
-Xu Tong said, "A life loyal to the Senate shouldn't be deprived like this. Cannot only look at the result and not ask about the means."
+"No need. I report to Director Wu tomorrow. I'm just organizing my notes."
 
-Yang Cao said, "We only need rationality, not sensibility."
+Yang Cao was silent for a moment. Then: "Back there, you didn't know when support would arrive. You should have eliminated Li Baiqing and escaped on your own."
 
-Xu Tong said, "This perhaps is the humanity the Senators often speak of."
+"A life loyal to the Senate shouldn't be thrown away like that," Xu Tong said. "We can't only care about results and ignore the means."
 
-Yang Cao said, "Your choice could bring disaster. If you and Li Baiqing fell into enemy hands, the consequences would be unimaginable."
+"We need rationality," Yang Cao replied. "Not sentiment."
 
-Xu Tong said, "I wouldn't be captured alive."
+"Perhaps this is the humanity the Senators always speak of."
 
-Yang Cao exhaled lightly and said, "I don't believe in humanity, including myself. because humanity cannot withstand testing. I will write this part into the report."
+"Your choice could have brought disaster. If you and Li Baiqing had fallen into enemy hands, the consequences would have been unimaginable."
 
-Xu Tong didn't answer again. He turned to leave, stopped after two steps, hesitated, and said, "This time, thank you." After speaking, he didn't look back and strode away.
+"I wouldn't have been taken alive."
 
-Yang Cao gently stirred the steaming white porridge in front of her. Using a wooden spoon to send it into her mouth, the scalding hot porridge slid down her throat, warming Yang Cao's icy body and cold soul.
+Yang Cao exhaled softly. "I don't believe in humanity. Including my own. Because humanity can't withstand testing." She paused. "I'll be including this in my report."
 
-After a long time, Yang Cao whispered to herself, "You're welcome."
+Xu Tong didn't respond. He turned to leave, then stopped after two steps. He hesitated. "Thank you. For this." Without looking back, he strode away into the darkness.
 
-Zhao Manxiong gently pressed his temples with his hands, relieving his tense nerves. Wu Mu sat on the leather sofa opposite the desk, silently reading the report of this operation. The hands of the rosewood table clock custom-made by Zizhenghai in the corner of the room made a monotonous *tick-tock* sound, like a hypnotic pendulum, making people unconsciously drowsy.
+Yang Cao stirred the steaming white porridge before her. She lifted the wooden spoon to her lips. The scalding porridge slid down her throat, warming her icy body and cold soul.
 
-After a long time, Wu Mu raised his head and threw the two reports in his hand onto the coffee table.
+A long time passed.
 
-A short silence appeared in the office. After a moment, Zhao Manxiong raised his head and asked, "How is it?"
+"You're welcome," she whispered to herself.
 
-Wu Mu asked back, "How is what?"
+Zhao Manxiong pressed his fingers gently against his temples, trying to ease the tension. Wu Mu sat on the leather sofa across from the desk, reading the operation report in silence. In the corner, a rosewood table clock—custom-made by Zizhenghai—ticked with monotonous regularity, like a hypnotic pendulum that made one drowsy despite every effort to stay alert.
 
-Zhao Manxiong pointed to the report. Wu Mu said, "From a reconnaissance perspective, a failure. A thorough failure. Undercover personnel exposed, civilian informants exposed. Intense armed conflict occurred, causing large personnel casualties—although they were enemies. Is this individual heroism? Does Xu Tong really think he is Kenshiro?"
+Finally, Wu Mu raised his head and tossed the two reports onto the coffee table.
+
+Silence settled over the office. After a moment, Zhao Manxiong looked up. "Well?"
+
+"Well what?" Wu Mu asked.
+
+Zhao Manxiong gestured at the reports. Wu Mu's voice was flat. "From a reconnaissance perspective? A failure. A complete failure. Undercover operative exposed. Civilian informants exposed. Intense armed conflict resulting in significant casualties—even if they were the enemy's." His tone sharpened. "Is this individual heroism? Does Xu Tong really think he's Kenshiro?"
 
 **(End of Chapter)**

@@ -1,101 +1,101 @@
 # Chapter 2539: Clan Property
 
-Not long after the meeting ended, Chen Lin hung out a sign in the graveyard in the name of the "Senate Demonstration Private Nansha Cotton Textile Factory Preparatory Office" and began recruiting laborers to start civil engineering works.
+Shortly after the meeting concluded, Chen Lin posted a sign in the graveyard bearing the title "Senate Demonstration Private Nansha Cotton Textile Factory Preparatory Office" and began recruiting laborers for construction work.
 
-This "Senate Demonstration" was specially applied for from Chiefs Li and Zou under Chen Xiaobing's reminder. The purpose was self-evident: to invite a protective talisman.
+The "Senate Demonstration" designation had been specifically requested from Chiefs Li and Zou at Chen Xiaobing's suggestion. Its purpose was obvious—to secure a protective talisman for the venture.
 
-Once the Preparatory Office was established, the recruitment of civil construction workers began. Although the professional construction team came from Guangzhou, the project still needed a large number of manual laborers. These job opportunities were all reserved for the Chen clan members of Nansha.
+With the Preparatory Office established, recruitment for construction workers commenced. Although the professional building team would come from Guangzhou, the project still required substantial manual labor. These positions were reserved exclusively for Chen clan members from Nansha.
 
-The internship group explored around Nansha for a long time and finally selected a nameless river bend as the factory site. For convenience, the internship group called this place "Factory Bay."
+The internship group had spent considerable time exploring the area before settling on an unnamed river bend as the factory site. For convenience, they dubbed the location "Factory Bay."
 
-According to Li Guo's on-site observation, there was a terrain drop of nearly 3 meters from the upper reaches of the river to here. This head was not too ideal, but enough to drive a water wheel.
+According to Li Guo's on-site survey, the terrain dropped nearly three meters from the upper reaches of the river to this point. The head wasn't ideal, but it would suffice to drive a water wheel.
 
-After the factory site was determined, Zou Feng of the "Textile Worker Four-Man Group" began to design a water wheel that could effectively utilize river water. He found a room with good lighting conditions in the graveyard as a design room, set up a drawing board and equipment, and started the design work.
+Once the site was finalized, Zou Feng of the "Textile Worker Four-Man Group" began designing a water wheel to harness the river's flow. He commandeered a well-lit room in the graveyard as his design studio, set up a drawing board and equipment, and threw himself into the work.
 
-Although the four-person group were all "textile workers," their professional directions were actually different. The textile school run by the Senate could not yet achieve the detailed division of labor in the old timeline, and according to the status quo of this timeline, they had to make some "suit measures to local conditions" changes. So Zou Feng's professional direction was textile machinery and textile architecture, and he also knew a bit of printing and dyeing, worthy of being called a jack-of-all-trades.
+Though all four members were classified as "textile workers," their specializations differed considerably. The Senate's textile school couldn't yet achieve the refined division of labor that existed in the old timeline, so adaptations had been made to suit current circumstances. Zou Feng's expertise encompassed textile machinery and factory architecture, with some knowledge of printing and dyeing thrown in—a true jack-of-all-trades.
 
-Zou Feng was male, and his age was older than the three girls, relatively more prudent. He went to explore and collect data every morning and drew blueprints in the "design room" in the afternoon.
+Zou Feng was the eldest of the group and more methodical than the three young women. Each morning he ventured out to survey and gather data; each afternoon he returned to the design room to draft blueprints.
 
-The three girls helped copy blueprints and do related calculation and paperwork. For the time being, they had no place to use their skills. Besides helping, they wrote various process flows and specification books. Once entering the factory construction stage, they would shoulder the recruitment and training of workers.
+The women assisted by copying blueprints and handling calculations and paperwork. Their specialized skills would come into play later. For now, besides helping Zou Feng, they drafted process flows and specification manuals. Once factory construction began, they would shoulder the burden of recruiting and training workers.
 
-Zou Feng's design plan was actually the "localization" implementation of the Senators' design plan. And this kind of hydraulic machine had been set up many times throughout Hainan; it was a very mature plan.
+Zou Feng's design was essentially a localized adaptation of existing Senate plans. Similar hydraulic systems had been installed throughout Hainan numerous times—the approach was well-proven.
 
-The specific plan was to build a dam in the river to form a head of about 2 meters. As for the water wheel, the Senate's industrial data had multiple water wheel schemes, each with pros and cons. After comparing objective conditions, Zou Feng chose the breastshot water wheel [Middle Shot].
+The specific plan called for constructing a dam to create approximately two meters of head. As for the water wheel itself, the Senate's industrial archives contained multiple designs, each with distinct advantages and drawbacks. After comparing them against local conditions, Zou Feng selected the breastshot water wheel.
 
-The principle of the breastshot water wheel relies on the weight of the water in the water wheel buckets to rotate. River water pours into the bucket from the upstream side, driving the water wheel to rotate. Unlike the common overshot water wheel that pours from the top. So its rotation direction is opposite to the flow direction of the river water.
+The breastshot wheel operates on a simple principle: water pours into buckets on the upstream side, and the weight of the trapped water drives rotation. Unlike the more common overshot wheel, which receives water from above, the breastshot wheel rotates in the direction opposite to the river's flow.
 
-The advantage of doing this is that it can carry away backwater and does not require a large head to drive.
+This design offered key advantages: it could carry away backwater efficiently and didn't require a substantial head to operate.
 
-Its pit needs to be carefully built to form a straight line with the edge of the breastshot water wheel. This curved supplement is called the curved section. The gap between the bottom of the pit and the water wheel is very narrow, forcing water to stay in the bucket until it rotates to the very bottom of the rotation cycle before discharging.
+The pit beneath the wheel required careful construction. Its curved section had to align precisely with the wheel's edge, maintaining a very narrow gap at the bottom. This forced water to remain trapped in each bucket until it rotated to the lowest point of its cycle before discharging.
 
-After the water wheel plan was selected, Zou Feng began designing the power transmission system. This could also be said to be one of the cores of the entire factory. Without the design plan of the transmission system, even the specific dimensions of the factory building could not be determined.
+With the water wheel design settled, Zou Feng turned to the power transmission system—arguably the heart of the entire factory. Without this plan finalized, even the building's dimensions couldn't be determined.
 
-The rotation of the water wheel drives a vertical shaft to rotate through bevel gears, then transmits to a horizontal shaft known as the "Sky Shaft" [Line Shaft] through another set of bevel gears. This is the "Line Shaft" present in all workshops of the Senate's current factories. All equipment is connected to this main shaft through vertical transmission shafts or belts, utilizing the rotation above to drive the machines. It's just that in most factories, power is provided more by steam engines than water turbines.
+The rotating water wheel would drive a vertical shaft through bevel gears, which would then transmit power via another set of bevel gears to a horizontal shaft known as the "line shaft." This overhead line shaft was standard in all Senate factory workshops. Every piece of equipment connected to it through vertical drive shafts or belts, drawing power from its rotation. The only difference was that most Senate factories relied on steam engines rather than water turbines.
 
-How long the Line Shaft needs to be depends on the number of equipment and the layout of the production process. After determining the length of the main shaft, Zou Feng could determine the length of the factory building. As for the width of the factory building, it first depended on the range of machines arranged along the main shaft, and second, the machines should be as close to the walls as possible so that workers could get the best lighting when working.
+The line shaft's length depended on the number of machines and the production workflow layout. Once Zou Feng determined this, he could calculate the building's length. The width was governed by two factors: the range of machines arranged along the main shaft, and the need to position equipment close to walls so workers would benefit from natural lighting.
 
-The factory building was a brick and wood structure. Even though the Senate's steel industry had made considerable development, wood remained one of the most common building materials for the Senate. This factory building was no exception.
+The factory building would be brick-and-wood construction. Despite considerable advances in the Senate's steel industry, wood remained one of their most common building materials, and this project was no exception.
 
-Although it was a wood structure, the main structure adopted modern structural materials. Whether it was trusses, beams and columns, floor slabs, wall panels... all were produced by sawmills according to certain standards and could also be customized according to dimensions.
+Though wood-framed, the main structure incorporated modern engineering. Trusses, beams, columns, floor slabs, and wall panels were all manufactured to standard specifications by sawmills, with custom dimensions available on request.
 
-Zou Feng naturally couldn't be said to have "design" ability; he more or less "spliced" according to countless plans he had studied, based on site conditions and specific data. So his design was very fast.
+Zou Feng couldn't claim to be designing from scratch—he was essentially splicing together elements from countless plans he had studied, adapting them to site conditions and specific requirements. This approach made his work proceed rapidly.
 
-The Phase I factory building of this Nansha Cotton Textile Factory was 20 meters long and 10 meters wide, a brick and wood structure house with a sloped roof and an attic. Although from the outside this building had two layers of windows, it actually had only one floor, only having an attic at the very bottom. To achieve good lighting effects, the windows on the walls were opened very large; part was fixed and unopenable, part was set to be openable for ventilation.
+The Phase I factory building measured twenty meters long by ten meters wide: a brick-and-wood structure with a sloped roof and attic space. From outside, two rows of windows suggested two floors, but the interior was actually single-story with only a low attic at one end. To maximize natural light, the wall windows were generously sized—some fixed for illumination, others operable for ventilation.
 
-At one end of the factory building, a small shed was designed to cover the canal, used to accommodate and protect the water wheel.
+At one end of the building, a small shed was designed to shelter the canal and protect the water wheel from the elements.
 
-After all these designs were completed, the girls calculated the dimensions and quantities of building materials to be ordered according to the design drawings, and added a five percent margin, forming several order lists. Chen Qing personally delivered them to Guangzhou to Wu Yijun. He would come forward to order.
+Once all designs were complete, the women calculated material dimensions and quantities from the drawings, added a five percent margin, and compiled several order lists. Chen Qing personally delivered these to Wu Yijun in Guangzhou, who would handle the purchasing.
 
-Chen Lin and Chen Ding these days were busy negotiating with the owners of "Factory Bay" and surrounding lands to obtain the land use rights.
+Meanwhile, Chen Lin and Chen Ding spent their days negotiating with the owners of Factory Bay and the surrounding lands to secure usage rights.
 
-Negotiations did not go smoothly. First, Chen Lin was not the clan leader and could not use clan power to coerce clan members into submission; second, he really couldn't bring out anything to compensate the landlords. After all, the riverside lands were all good lands, and holders were mostly unwilling to let go; moreover, the designated area involved eleven land owners. Nine clan members, two foreign surnames. The magnitude of difficulty could be imagined.
+The negotiations proved difficult. First, Chen Lin wasn't the clan leader and couldn't leverage clan authority to pressure fellow members into compliance. Second, he genuinely had nothing substantial to offer as compensation. The riverside plots were prime agricultural land, and most holders were reluctant to part with them. Worse, the designated area involved eleven different landowners—nine clan members and two outsiders. The magnitude of the challenge was daunting.
 
-Uncle and Nephew Chen had prestige in the clan and village, so negotiations were not desperate, but over more than a month, they only concluded deals with three families.
+The uncle and nephew commanded respect within both clan and village, so the situation wasn't hopeless. Still, after more than a month of talks, they had reached agreements with only three families.
 
-"This land is too hard to buy; I've added to three times the market price..." Chen Lin muttered, "They still won't sell. Could it be I have to add to ten times?"
+"This land is proving impossible to buy," Chen Lin muttered. "I've offered triple the market price, and they still won't sell. Do I need to go to ten times?"
 
-Chen Ding was silent for a long time before opening his mouth: "Just adding price won't work... Even if you add ten times, it won't work. After all, this is people's 'root' for survival. If you buy it, isn't it equivalent to cutting off their 'root'?"
+Chen Ding was silent for a long moment before speaking. "Simply raising the price won't work. Even ten times wouldn't do it. This land is people's livelihood—their root. Buying it means cutting off that root."
 
-"But they can buy new land; isn't buying more land good?"
+"But they could purchase new land. Wouldn't owning more land be better for them?"
 
-"I thought about it just now; swap me in, and I wouldn't be willing to sell either. These lands are mostly by the river bank. Embankments and canals have taken shape over so many years. Unless encountering a great disaster, they are all good fields with guaranteed harvest despite drought or flood. You buy it with three or five times the money, but whether they can buy such good land again is hard to say. Besides, repairing water conservancy is a matter of several generations. Buying land again means starting repairs from scratch; no matter how much money you give, people aren't willing."
+"I've been thinking about this. If I put myself in their position, I wouldn't sell either. These plots are mostly along the riverbank. The embankments and irrigation canals took shape over generations. Barring major disasters, these are guaranteed fields—harvest secured through drought or flood. You offer three or five times the price, but whether they could find land of equal quality is uncertain. Besides, the water conservancy infrastructure represents generations of work. Buying new land means starting those improvements from scratch. No amount of money makes that worthwhile to them."
 
-"Then what to do? Change places?" Chen Lin spread his hands.
+"Then what do we do? Find a different location?" Chen Lin spread his hands in frustration.
 
-"They spent many days finding such a place. If you say the matter can't be done, how will the two Chiefs view us?" Chen Ding stroked his small mustache. "We have to give them a long-term plan, a long-term plan..."
+"They spent ages finding this site. If we report that the project has stalled, how will the two Chiefs view us?" Chen Ding stroked his thin mustache. "We need to offer them something long-term. A lasting stake in this..."
 
-"Let them work in the factory..."
+"Let them work in the factory?"
 
-"This doesn't count as a benefit. In the future when the factory gets big, everyone can enter the factory to work; what kind of benefit is that?" Chen Ding rejected it, but this gave him a spark of inspiration. "Right! We can give shares!"
+"That's no real benefit. Once the factory grows, anyone can seek employment there. How is that special?" Chen Ding dismissed the idea, but it sparked something. "Wait—we could offer shares!"
 
-"Third Uncle! Our Chen family as a whole only occupies one share; how can you give them shares? We can't take out Master Wu's shares to distribute..."
+"Third Uncle! Our entire Chen family holds only one share. How can we give away shares? We certainly can't distribute Master Wu's portion..."
 
-"Speaking of which, going to Lingao some days ago, when Comrade Chen and I chatted during idle times, I heard him talk about a lot of Australian commercial laws. Quite inspiring. I have an idea..."
+"You know, when I visited Lingao recently, Comrade Chen and I chatted during our free time. He explained quite a bit about Australian commercial law. It was rather enlightening. I have an idea..."
 
-"What?"
+"What is it?"
 
-"You probably also know that the Australians have issued an order now, saying to clarify land and standardize property rights."
+"You're probably aware that the Australians have issued new directives about clarifying land ownership and standardizing property rights."
 
-"Indeed there is such a thing. But we have nothing to say. There are not many people with degrees in the Chen family, and there have never been matters of land commendation [tax evasion via gentry]."
+"I've heard something about it. But it shouldn't affect us much. Few in the Chen family hold degrees, and we've never engaged in tax evasion through gentry commendation."
 
-"Sigh, it's not that simple!" Chen Ding said he had roughly studied the relevant regulations. Several articles were specifically aimed at clans.
+"It's not that simple." Chen Ding explained that he had studied the relevant regulations. Several provisions specifically targeted clans.
 
-"You also know, clan land, part is individual, part is the clan's. These clan lands all need to confirm rights this time."
+"As you know, clan land falls into two categories: individual holdings and collective clan property. All of it requires formal rights confirmation this time."
 
-"Confirm rights then confirm rights; could the land deeds be fake?" Chen Lin felt strange.
+"So we confirm the rights. Could the land deeds possibly be fake?" Chen Lin looked puzzled.
 
-"Virtuous Nephew, this is your juvenile impetuousness. Government documents all need careful pondering."
+"Nephew, that's youthful impatience speaking. Government documents require careful interpretation."
 
-According to the new policy, clan lands are confirmed separately. Individual belongs to individual; property under the clan name must transform into "Limited Liability Company" or "Financial Group Legal Person" ownership.
+According to the new policy, clan lands would be categorized separately. Individual property remained with individuals, but assets held under the clan's name had to be converted to ownership by either a "Limited Liability Company" or a "Collective Legal Entity."
 
-"So in the future, the Chen Clan's land will definitely convert to Chen Clan Company ownership."
+"So the Chen Clan's collective lands will inevitably become Chen Clan Company property."
 
-"And then?" Chen Lin still didn't understand.
+"And then?" Chen Lin still didn't see where this was heading.
 
-"The one share Master Wu gifted us, logically speaking, should also be incorporated into this company. We will give dry shares [profit-only shares] to the people whose land is requisitioned in the name of this company. Letting them sit and collect profits every year; they will naturally be willing."
+"The share Master Wu gifted us should logically be incorporated into this company. We can then issue profit-sharing shares to those whose land we're acquiring, all in the company's name. Let them collect dividends every year, and they'll naturally be willing to cooperate."
 
-"But this doesn't have much meaning. Now, isn't the clan land income also enjoyed by everyone? Every year's annual customary distribution, male heads more or less get a bit, and families with matters get some subsidies..."
+"But what difference does that make? Currently, everyone already benefits from clan land income. The annual distribution gives every male head at least something, and families facing hardships receive subsidies..."
 
-"Hehe, why don't you open your mind! Now, regarding income from clan sacrifice land—how to use, give to whom or not—it's all a matter of one sentence from the Clan Leader or Head of Case. At most a few clan elders can express some opinions; others have no share in speaking. Giving or not, giving more or less, is all up to the Clan Leader and Head of Case. Accounts are even more muddled accounts. Changed to a company, that is doing business seriously. How much income a year, how much retained, how much public expense, how much everyone should divide according to shares, are all clear. Isn't this clear share much better than the arbitrary annual distribution? Which one do you think clan members will like?"
+"Think bigger! Right now, income from clan sacrifice lands—how it's used, who receives what—all comes down to a word from the Clan Leader or Head of Case. At most, a few elders might voice opinions; everyone else has no say. Whether to give, and how much, is entirely at their discretion. The accounts are murky at best." Chen Ding leaned forward. "Transform it into a proper company, and suddenly you're running a legitimate business. Annual income, retained earnings, operating expenses, dividends calculated by shareholding—everything becomes transparent. Don't you think clan members would prefer clearly defined shares over arbitrary handouts? Which system do you suppose they'd choose?"
 
 (End of Chapter)

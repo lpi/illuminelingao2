@@ -1,89 +1,89 @@
 # Chapter 2518: Principal Tian Liang
 
-Tian Liang's words set Kuang Lu's mind slightly at ease. So this was his plan. But these Kun thieves were too undiscriminating, appointing such a person as a school principal. Still, he cupped his hands in a salute and said, "You are too kind, too kind. However, Kuang has just returned to his hometown. Let me settle down before making any plans. I will definitely pay a visit another day." With that, he headed toward Zeng Guiyu's small boat.
+Tian Liang's words put Kuang Lu somewhat at ease. So that was his game. Still, these Kun thieves were remarkably undiscriminating, appointing such a man as school principal. He cupped his hands in a polite salute. "You flatter me, truly. However, I've only just returned home. Allow me to settle in before making any plans. I shall certainly pay you a visit in due time." With that, he made his way toward Zeng Guiyu's small boat.
 
-Watching Kuang Lu's receding figure, Tian Liang didn't forget to shout, "Please come participate in the Civil Service Examination!"
+Watching Kuang Lu's retreating figure, Tian Liang called after him, "Please come take the Civil Service Examination!"
 
-"We shall meet again," came Kuang Lu's drifting response as he walked further away.
+"We shall meet again," Kuang Lu's voice drifted back as he walked on.
 
-"Young Master, are you really going to be a teacher at the Kun thieves' school?" Kuang Yan was somewhat curious.
+"Young Master, are you really going to teach at the Kun thieves' school?" Kuang Yan asked, curiosity getting the better of him.
 
-Kuang Lu reached back and tapped him on the head with his fan. "You and I have just returned and don't know the situation in our hometown. Petty officials like this are the most tricky and vicious, and they hold power in their hands. If we offend him, there will be endless trouble. For now, don't get entangled with him; agreeing casually does no harm."
+Kuang Lu reached back and rapped the boy on the head with his fan. "You and I have just returned and know nothing of affairs here. Petty officials like him are the most treacherous and vicious, and they wield real power. Cross him, and there'll be no end of trouble. Best not to get entangled—agreeing casually costs nothing."
 
-Kuang Yan covered his head, muttering, "I know, Young Master. The Master said, 'The superior man understands what is right; the inferior man understands what is profitable.' Today I learned the Sage's words are not false; these mud-legs even have to talk about 'profit' when sending their children to study."
+Kuang Yan rubbed his head, muttering, "I understand, Young Master. The Master said, 'The superior man understands what is right; the inferior man understands what is profitable.' Today I learned the Sage spoke true—even when sending their children to study, these mud-legs must talk of 'profit.'"
 
-Kuang Lu said indifferently, "Are you and I any different?"
+"Are you and I any different?" Kuang Lu replied indifferently.
 
-Watching Kuang Lu leave, the villagers also dispersed. Tian Liang said somewhat embarrassedly to Hou Qing, "Sister Qing, I feel I'm particularly stupid. I can't do anything well, my promotion is always a few beats slower than my peers, and I can't speak..."
+As Kuang Lu departed, the villagers dispersed as well. Tian Liang turned to Hou Qing with an embarrassed expression. "Sister Qing, I feel like such a fool. I can't do anything properly, my promotions always lag behind my peers, and I can never find the right words..."
 
-Hou Qing comforted him, "Blockhead, people with glib tongues may not be reliable in handling matters. The Chiefs arranged for you to be the principal of the Nanhai Demonstration School presumably because they also think you are loyal and reliable."
+Hou Qing reassured him gently. "Blockhead, those with glib tongues aren't always reliable when it comes to getting things done. The Chiefs assigned you as principal of the Nanhai Demonstration School precisely because they trust you—they know you're loyal and dependable."
 
-"But I'm afraid I won't do it well."
+"But what if I fail?"
 
-"Don't worry, I'm here, and Wen Yong will also help you."
+"Don't worry. I'm here, and Wen Yong will help you too."
 
-Before the Northern Expedition, Tian Liang had been promoted to company commander. The 3rd Company of the 1st Battalion of the Line, which he commanded, belonged to the East Road Army and, under the leadership of Fu Sansi, captured the Chaoshan region.
+Before the Northern Expedition, Tian Liang had risen to company commander. His unit, the 3rd Company of the 1st Battalion of the Line, served under the East Road Army and, following Fu Sansi's lead, had captured the Chaoshan region.
 
-The East Road Army didn't expend much effort to crush the Ming army group led by the Guangdong Vice Commander-in-Chief, sweeping across the entire eastern Guangdong like breaking dry weeds and smashing rotten wood. However, not long after, like the troops in other directions, they fell into a protracted security war.
+The East Road Army had crushed the Ming forces under the Guangdong Vice Commander-in-Chief with little effort, sweeping through eastern Guangdong like wind through dry grass. Yet soon after, like units on every other front, they found themselves mired in a grinding security war.
 
-The clan forces in the Chaoshan region were powerful, and the folk customs were fierce. The powerful local clans had never bought much into the government's authority, let alone outsiders like them. Although the prefectures and counties were easily taken, the directors appointed to each county found their government orders could not leave the city gates. To implement orders, clerks dared not leave the city without a National Army escort. Even if they went into the countryside, they were often attacked by local braves, suffering heavy casualties.
+The clan powers in Chaoshan were formidable, and the people fierce. The great local families had never bowed readily to government authority, let alone to outsiders like them. Though the prefectures and counties fell easily enough, the directors appointed to each county soon discovered their orders couldn't reach beyond the city gates. Clerks dared not venture into the countryside without a National Army escort, and even then they were frequently ambushed by local braves, suffering heavy casualties.
 
-To establish the Senate's ruling dignity, the East Road Army fought almost daily, attacking cities and strongholds everywhere. He also engaged in close combat with enemy forces several times, luckily escaping serious injury. However, after falling into the water during a battle and choking on sewage, he contracted aspiration pneumonia and was sent to the field hospital for treatment. It was there that he met Hou Qing.
+To establish the Senate's authority, the East Road Army fought almost daily, storming strongholds and fortified villages. Tian Liang himself had clashed with enemy forces in close combat several times and counted himself lucky to have escaped serious injury. His luck ran out during a battle when he fell into the water and choked on sewage, contracting aspiration pneumonia. He was sent to the field hospital for treatment. That was where he met Hou Qing.
 
-As the head nurse of the East Road Army Field Hospital, Hou Qing's duty was to organize the care of the wounded. Due to a shortage of manpower, she, as a cadre, often had to check the wards in the middle of the night. One night while adding medicine to Tian Liang's IV bottle, she was grabbed by the hand and he wouldn't let her go, his mouth crying "Sanniang, Sanniang." Hou Qing angrily thought this wounded soldier was intentionally taking advantage of her, but it turned out to be gibberish caused by a high fever, so she forgave him.
+As head nurse of the East Road Army Field Hospital, Hou Qing organized care for the wounded. Chronic understaffing meant she often had to check the wards herself in the middle of the night. One evening, while changing Tian Liang's IV bottle, he seized her hand and wouldn't let go, calling out "Sanniang, Sanniang" in his delirium. Hou Qing's first thought was that this soldier was deliberately taking liberties with her—until she realized it was fever-induced rambling, and she forgave him.
 
-As the antibiotics took effect, Tian Liang gradually woke up from the high fever and realized that the person taking care of him day and night was not his Sanniang, but this thin and small "Sister Qing" before him. Amidst his disappointment, he was grateful. Over time, they became familiar. Tian Liang would tell her stories about his past, how he and Sanniang came to Lingao, how they grew up after arriving in Lingao, vividly describing the thrilling details of the Chengmai Battle to her, as well as his feelings for Sanniang.
+As the antibiotics took effect, Tian Liang gradually emerged from his fevered haze and realized the person who had been caring for him day and night was not his Sanniang, but this slight, small-framed "Sister Qing." Disappointment mingled with gratitude. Over time, they grew familiar with each other. Tian Liang would tell her stories of his past—how he and Sanniang had come to Lingao, how they had grown up after arriving, describing the harrowing details of the Chengmai Battle in vivid color, along with his feelings for Sanniang.
 
-Hou Qing asked him if he knew Guo Fu's feelings. He said he didn't know.
+Hou Qing asked if he understood Guo Fu's feelings. He said he didn't.
 
-Tian Liang asked her if she knew Sanniang's feelings. She said she didn't know; she herself was an older leftover woman and didn't understand these things.
+Tian Liang asked if she understood Sanniang's feelings. She said she didn't either—she was just an aging spinster who knew nothing of such matters.
 
-Tian Liang listened with his mouth wide open. According to the concepts of the Ming Dynasty, a woman unmarried at twenty was already an old maid. Hou Qing was twenty-seven and still hadn't found a husband's family.
+Tian Liang gaped at her. By Ming Dynasty standards, a woman unmarried at twenty was already an old maid. Hou Qing was twenty-seven and still had no husband's family.
 
-Hou Qing told him she originally had a marriage contract, but encountered a natural disaster before the wedding. Her parents died one after another, and she had to flee everywhere with her younger brother Hou Wenyong, finally being taken in by the Senate in Guangzhou. She was assigned to the sanitation school. By then she was already twenty, but under Dean Shi, there was too much knowledge to learn and too many patients to save; there was simply no time to consider personal issues, so she was "left over."
+She told him she had once been betrothed, but a natural disaster struck before the wedding. Her parents died one after the other, and she was forced to flee with her younger brother Hou Wenyong, wandering until the Senate took them in at Guangzhou. She was assigned to the sanitation school. By then she was already twenty, but under Dean Shi there was too much to learn and too many patients to save—there was simply no time for personal matters. And so she had been "left over."
 
-Tian Liang comforted her, saying not to worry, a good woman like her would surely find a good home. Hou Qing laughed when she heard it, but she knew very well in her heart that given her situation, a good home was impossible. Her face and figure had no advantage compared to those female secretaries in the College of Arts and Sciences, so naturally, she wouldn't catch the eyes of the Chiefs. Naturalized citizen cadres of similar conditions and age had all started families and careers, and growing up under the Red Flag of the Senate, she couldn't possibly be someone's concubine. She looked down on men with poor conditions, and men younger than her looked down on her. Her brother Hou Wenyong grew up and began to worry, relying on connections with the Chiefs to introduce several partners to Hou Qing, but all ended without result. In short, it was such an awkward situation: unable to reach the high, unwilling to settle for the low.
+Tian Liang comforted her, saying not to worry—a fine woman like her would surely find a good home. Hou Qing laughed when she heard this, but she knew the truth well enough. A good home was beyond her reach now. Her face and figure held no advantage over the female secretaries at the College of Arts and Sciences, so naturally she wouldn't catch the Chiefs' eyes. Naturalized citizen cadres of similar age and standing had long since established families and careers. Having grown up under the Red Flag of the Senate, she could never accept becoming someone's concubine. Men of lesser means she looked down upon; men younger than herself looked down on her. Her brother Hou Wenyong, now grown, had taken to worrying on her behalf, leveraging connections with the Chiefs to introduce several prospective matches. All had come to nothing. In short, her situation was the old familiar bind: the heights were out of reach, the depths beneath her dignity.
 
-That day, just as Tian Liang was about to be discharged, Hippo Senator led a team to inspect the sanitary work of the troops in the Chaoshan region. In the ward of the field hospital, Tian Liang finally met the Sister Fu he had been thinking about day and night. She had come out with Hippo to guide the sanitary work. He was so excited he couldn't speak.
+Then came the day of Tian Liang's discharge. Hippo Senator arrived leading a team to inspect the army's sanitary conditions throughout the Chaoshan region. There in the field hospital ward, Tian Liang finally saw the Sister Fu he had been dreaming of day and night. She had come along to guide the sanitary work. He was so overcome he couldn't speak.
 
-Guo Fu knew it was time to clarify some things, so she asked Tian Liang to chat alone. He thought that after not seeing each other for so many years, there would be countless things to say, but in reality, they fell into silence after ten minutes or so. After chatting a bit more, both realized that the other was no longer on the same path.
+Guo Fu sensed the time had come to settle certain matters. She asked Tian Liang for a private word. He had imagined that after so many years apart, they would have endless things to say—but in truth, the conversation faltered after ten minutes or so. As they talked on, both came to realize the other had long since walked a different path.
 
-"Is the Chief good to you?" Tian Liang remembered that as the last sentence he asked.
+"Is the Chief good to you?" That was the last thing Tian Liang remembered asking.
 
-"Good," Guo Fu replied, wearing a faint smile. Her face, which had lost its childishness, was so dignified and beautiful.
+"He is," Guo Fu replied with a faint smile. Her face, now shed of its girlish softness, was dignified and beautiful.
 
-After Guo Fu left, Tian Liang sat in a daze in the ward for a long time. When Hou Qing made her rounds, she found he hadn't left yet. Tian Liang told Hou Qing about his meeting with Guo Fu, saying he felt life had suddenly lost its goal and he didn't know the meaning of his existence.
+After she left, Tian Liang sat in a daze in the ward for a long time. When Hou Qing made her rounds, she found him still there. He told her about his meeting with Guo Fu—how life had suddenly lost its purpose, how he no longer knew what meaning his existence held.
 
-Hou Qing wasn't good at comforting others either. She held back for a long time, then suddenly remembered a philosophical sentence she once heard Chief Lin Motian say, so she gave it to Tian Liang. She said, "There are two great tragedies between old friends: one is that you can never see the person you want to see, and the other is that you see them."
+Hou Qing was never one for consolation. She struggled for words, then suddenly remembered a philosophical saying she had once heard Chief Lin Motian utter, and offered it to Tian Liang. "There are two great tragedies between old friends," she said. "One is never seeing the person you long to see. The other is seeing them."
 
-Tian Liang cried, weeping bitterly in front of a woman for the first time.
+Tian Liang wept—crying openly before a woman for the first time in his life.
 
-Later, when the fighting settled down a bit, the Senate decided to launch a vigorous construction movement in Guangdong and Guangxi. Due to an extreme shortage of local cadres, they selected some soldiers and officers unsuited for further development in the army to transfer to civilian jobs and support local construction. Tian Liang was on the list of these cadres. Hou Qing's younger brother, Hou Wenyong, first served as the district mayor of Nanhai District, then was transferred to be the Secretary-General of Guangzhou Special City, still in charge of Nanhai District. So, through this relationship, Hou Qing arranged for Tian Liang to be placed in the important position of the Nanhai National Demonstration School.
+Later, as the fighting subsided, the Senate launched an ambitious construction campaign across Guangdong and Guangxi. The desperate shortage of local cadres led them to transfer soldiers and officers ill-suited for continued military service into civilian posts to support the effort. Tian Liang was among them. Hou Qing's younger brother, Hou Wenyong, had first served as district mayor of Nanhai District before being promoted to Secretary-General of Guangzhou Special City, though he remained in charge of Nanhai District. Through this connection, Hou Qing arranged for Tian Liang to be placed in the important position at the Nanhai National Demonstration School.
 
-Of course, Tian Liang might not know all the stories behind this.
+Of course, Tian Liang might never know the full story behind his appointment.
 
-When he received the notice, he was completely bewildered. With his education and qualifications, any position was possible for his retirement arrangement, except that he never thought he would be sent to the education department.
+When he received the notice, he was utterly bewildered. Given his education and qualifications, any number of positions might have been possible for his retirement placement—but he had never imagined being assigned to the education department.
 
-The two hats of Principal of Nanhai National Demonstration School and Education Inspector of Nanhai County—setting aside the size—made Tian Liang, who knew his own level well, hurriedly go to the personnel department to ask if there was a "mistake."
+The twin titles of Principal of Nanhai National Demonstration School and Education Inspector of Nanhai County—whatever their prestige—sent Tian Liang, who knew his own limitations well, hurrying to the personnel department to ask if there had been some "mistake."
 
-Unexpectedly, the personnel department insisted there was no mistake. Tian Liang had no choice but to take office.
+The personnel department insisted there had been none. Tian Liang had no choice but to take up the post.
 
-This Nanhai National School was one of the three "basic points" of the Senate's educational institutions in Guangdong. The first was naturally the Guangzhou National Demonstration School, a comprehensive full-time school replicated from the Fangcaodi model. It included three levels of education: junior primary, senior primary, and middle school. A ten-year education model. Based on the students' academic performance, both the senior primary and middle school stages would eliminate students who couldn't keep up and admit excellent students. Those who could finally graduate were the elite among the naturalized citizens.
+This Nanhai National School was one of three "anchor points" for the Senate's educational institutions in Guangdong. The first was naturally the Guangzhou National Demonstration School, a comprehensive full-time institution modeled after Fangcaodi. It encompassed three levels—junior primary, senior primary, and middle school—following a ten-year curriculum. Based on academic performance, students were culled at both the senior primary and middle school stages, while outstanding students from elsewhere were admitted. Those who ultimately graduated represented the elite among naturalized citizens.
 
-Because resources were limited, there was only one such "high-level school" across Guangdong and Guangxi. What would be established next with slight universal significance were the "National Schools" in various places.
+Because resources were limited, only one such "high-level school" existed across all of Guangdong and Guangxi. What would follow—with somewhat broader reach—were the "National Schools" established throughout the region.
 
-Although these National Schools were called National Schools, they were essentially "primary schools." According to Hu Qingbai's plan, during the Second Five-Year Plan, Guangdong was to establish a "National Demonstration Senior Primary School" in every county and a "National Demonstration Junior Primary School" in every town.
+Though called National Schools, these were essentially primary schools. According to Hu Qingbai's plan, during the Second Five-Year Plan, Guangdong was to establish a "National Demonstration Senior Primary School" in every county and a "National Demonstration Junior Primary School" in every town.
 
-And the Nanhai National Demonstration School that Tian Liang served as principal of was actually such a "National Senior Primary School."
+The Nanhai National Demonstration School where Tian Liang served as principal was precisely such a "County Senior Primary School."
 
-Although called "Nanhai County National Demonstration School," because a Guangzhou Demonstration School was already established within Guangzhou City, to embody the ideology of serving the townships, the Nanhai National Demonstration School was located west of Guangzhou City, adjacent to Dali Town in the newly built Foshan County.
+Despite bearing the name "Nanhai County National Demonstration School," a Guangzhou Demonstration School already existed within the city proper. To embody the ideology of serving the townships, the Nanhai school was located west of Guangzhou City, adjacent to Dali Town in the newly established Foshan County.
 
-When Tian Liang arrived at Dali, he had on hand only five naturalized citizen normal school students and five "old-man soldiers" and "half-disabled soldiers" discharged to serve as both handymen and guards. Exactly a squad of people formed the team for the Nanhai County National Demonstration School.
+When Tian Liang arrived at Dali, his staff consisted of five naturalized citizen normal school graduates and five "old-timer soldiers" and "half-disabled soldiers" discharged to serve as both handymen and guards. Exactly a squad's worth of people formed the entire team for the Nanhai County National Demonstration School.
 
-Although it was a key project of the education sector, Hu Qingbai couldn't bring out extra investment to build school buildings—not to mention this county demonstration school, even the Guangzhou Demonstration School currently had to occupy the Guangzhou Prefecture Confucian Temple to make do. So the school site Tian Liang received was confiscated "enemy property." It was originally the ancestral shrine of a large local family. Hanging up a sign, the school opened for business.
+Though it was a key educational project, Hu Qingbai had no extra funds for constructing school buildings. Never mind this county demonstration school—even the Guangzhou Demonstration School was currently making do by occupying the Guangzhou Prefecture Confucian Temple. So the site Tian Liang received was confiscated "enemy property": the ancestral shrine of a powerful local clan. They hung up a sign, and the school opened for business.
 
-Once the school opened, it had to recruit students. The Senate couldn't yet achieve compulsory education. Students still needed to bear the tuition themselves for enrollment. For tuition, Hu Qingbai actually set it very low. Strictly calculated, even if this national school was fully enrolled, the tuition received wouldn't be enough for the wages of these eleven people. Not to mention that ten percent of them were public-funded students.
+Once open, they had to recruit students. The Senate could not yet mandate compulsory education; families still had to pay tuition themselves. Hu Qingbai had actually set tuition quite low—strictly speaking, even at full enrollment, the fees collected wouldn't cover the wages of these eleven staff members. And ten percent of the spots were reserved for publicly funded students.
 
-That said, more than two months after Tian Liang took office, having spent great effort running around promoting it, and seeing the spring semester opening imminent, there were still more than thirty vacancies in the two hundred spots for the first academic year.
+That said, more than two months after Tian Liang took office—having exhausted himself running around promoting the school—with the spring semester's opening imminent, over thirty of the two hundred spots for the first academic year remained unfilled.
 
 (End of Chapter)
