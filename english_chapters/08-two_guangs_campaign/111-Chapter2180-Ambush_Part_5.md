@@ -14,11 +14,11 @@ Among them, one Luo Shisan ran the fastest, but not paying attention to the ston
 
 Many of the militia in the rear echelon were farmers who'd never fought before, incomparable to the first batch of militia who rushed out for bayonet combat. However, seeing the main general leading the charge, even though reluctant, most followed along to charge at the oncoming Fubo Army.
 
-Yang Erhu called over a former Ming army musketeer named Ma Huliang and ordered him to take a small squad of bird-gunners to outflank the side, waiting for a chance to catch the Hair Rebels off guard from the flank.
+Yang Erhu called over a former Ming army musketeer named Ma Huliang and ordered him to take a small squad of bird-gunners to outflank the side, waiting for a chance to catch the Kun off guard from the flank.
 
 "You get close before shooting, catch them off guard!"
 
-After instructing him, seeing the Hair Rebels lining up to reload, with one officer-looking man waving a command sword very conspicuously, he immediately called over Pan Datou.
+After instructing him, seeing the Kun lining up to reload, with one officer-looking man waving a command sword very conspicuously, he immediately called over Pan Datou.
 
 "You, shoot that Hair Rebel leader dead!"
 

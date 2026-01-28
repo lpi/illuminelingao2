@@ -14,7 +14,7 @@ Wang Ci flopped down onto a bamboo couch and drank several gulps of the cold tea
 
 Wang Ci had heard that his servant had recently found some kind of job and could earn a few coins each month to supplement the household. He hadn't thought much of it before, but today he became suddenly alert—could Wang An be working for the Australians?
 
-The more he considered it, the more possible it seemed. In this Lingao city, the only ones who always had work available were the Short Hairs! He resolved that when Wang An returned, he would question him properly. If he really was working for the Short Hairs, he'd better tell him to stop. These people were skilled at bewitching minds; he shouldn't let Wang An be led astray too.
+The more he considered it, the more possible it seemed. In this Lingao city, the only ones who always had work available were the Kun! He resolved that when Wang An returned, he would question him properly. If he really was working for the Kun, he'd better tell him to stop. These people were skilled at bewitching minds; he shouldn't let Wang An be led astray too.
 
 Thinking of the Australians, Wang Ci could only sigh. Their educational efforts had dealt him a tremendous shock. Lu Da's retort had left him speechless—"No discrimination in education"—could he live up to that? The Australians were the ones truly practicing it.
 
@@ -40,7 +40,7 @@ The doorman panted: "The Short—the Australians have come to visit!"
 
 This Australian Master Xiong had never come to his place before. Wang Ci found it strange. What business could he have at the county school for no reason? He couldn't sell land here, nor did he have yamen runners to dispatch. It was the coldest of cold sinecures. What did the Australians see in it?
 
-Could it be that his conversation with Lu Da earlier had already been reported to the Short Hairs, and this Master Xiong was here to find fault? At this thought, Educational Director Wang grew alarmed. He was just a scholar. Even if the other side didn't bring soldiers, in a one-on-one confrontation, given his physique, he would certainly be at a disadvantage. Being beaten was one thing; losing his scholarly dignity was another.
+Could it be that his conversation with Lu Da earlier had already been reported to the Kun, and this Master Xiong was here to find fault? At this thought, Educational Director Wang grew alarmed. He was just a scholar. Even if the other side didn't bring soldiers, in a one-on-one confrontation, given his physique, he would certainly be at a disadvantage. Being beaten was one thing; losing his scholarly dignity was another.
 
 "Tell him that the master is—hmm—not here."
 
@@ -54,7 +54,7 @@ Wang Ci let out a sigh of relief. Bringing gifts didn't sound like coming for a 
 
 Xiong Buyou openly brought his attendants and gifts into the hall. He offered a simple bow and gave his name. He had no official title—the ancients couldn't make sense of the "committee member" designations the Crossing Group used anyway.
 
-Wang Ci studied the man before him: tall and sturdy, wearing the Short Hairs' button-down jacket with a canvas belt around his waist and a green cloth satchel slung diagonally across his back. A machete hung from his waist. Though he didn't know Xiong Buyou personally, he had long heard of him. Word had it that last year this man had swaggered into the city with several hundred pirate heads and met with Magistrate Wu at the county yamen. Since then, he was constantly heard going in and out of the yamen as a major figure handling the Short Hairs' external communications.
+Wang Ci studied the man before him: tall and sturdy, wearing the Kun' button-down jacket with a canvas belt around his waist and a green cloth satchel slung diagonally across his back. A machete hung from his waist. Though he didn't know Xiong Buyou personally, he had long heard of him. Word had it that last year this man had swaggered into the city with several hundred pirate heads and met with Magistrate Wu at the county yamen. Since then, he was constantly heard going in and out of the yamen as a major figure handling the Kun' external communications.
 
 "This student is Wang Ci. May I ask what instruction Chief Xiong has for visiting here?" Wang Ci feigned calm and cupped his hands.
 
@@ -72,13 +72,13 @@ Wang Ci studied the man before him: tall and sturdy, wearing the Short Hairs' bu
 
 "I heard your esteemed student met an untimely end, leaving behind a widow and orphans in difficult circumstances?"
 
-Even this he knew. The Short Hairs were remarkably well-informed. Wang Ci nodded and sighed: "Indeed. He left behind a widow and three children. Without the pillar of the family, who knows what will become of them. The school and his fellow students pooled some condolence money, so for now they should be able to manage."
+Even this he knew. The Kun were remarkably well-informed. Wang Ci nodded and sighed: "Indeed. He left behind a widow and three children. Without the pillar of the family, who knows what will become of them. The school and his fellow students pooled some condolence money, so for now they should be able to manage."
 
 As for what would happen in the future, Wang Ci didn't even want to contemplate it. This family had some meager property, and before the deceased's body was even cold, clansmen were already eyeing it, planning to seize it. A family of widow and orphans was bound to suffer. As a minor Educational Director and an outsider, he couldn't help at all.
 
 "This is a small token of our regard." Xiong Buyou extracted a white paper package from his bag. "Please pass it on, Educational Director Wang."
 
-Wang Ci was stunned. What was this from the Short Hairs? Could this *xiucai* have had dealings with them? He had never heard of it. Why send condolence money to complete strangers?
+Wang Ci was stunned. What was this from the Kun? Could this *xiucai* have had dealings with them? He had never heard of it. Why send condolence money to complete strangers?
 
 "How can this be?" Wang Ci thought the money highly questionable and absolutely couldn't be accepted. He shook both hands vigorously. "First, we're complete strangers. Second, it would harm one's reputation—"
 
@@ -92,7 +92,7 @@ These words were fairly appropriate. Xiong Buyou didn't pursue it further, but h
 
 His tone was quite firm. Wang Ci originally wanted to storm off in indignation to demonstrate the moral backbone of a Ming literatus, but seeing Xiong Buyou's fierce eyes and the machete at his waist, he nodded slightly:
 
-"I'll accept this kindness on her behalf." Whatever the case, this was a good deed. Besides, he couldn't see what the Short Hairs could possibly use this widow and orphans for.
+"I'll accept this kindness on her behalf." Whatever the case, this was a good deed. Besides, he couldn't see what the Kun could possibly use this widow and orphans for.
 
 Xiong Buyou watched this sour scholar finally accept after much dithering and felt contempt inside. He had been prepared to be righteously scolded by the Educational Director. He hadn't expected the so-called "moral backbone of scholars" to amount to just this.
 
@@ -104,9 +104,9 @@ Wang Ci was momentarily stunned. A monthly subsidy too?! His mind couldn't proce
 
 "Ah? Oh, yes, yes." Wang Ci's feelings became very complex—both pleased and uneasy. Pleased because with this money, the *xiucai*'s family wouldn't starve or freeze, and the clansmen eyeing the meager property, seeing the Australians' involvement, wouldn't dare act rashly. This was a tremendous kindness for the family.
 
-Uneasy because the Short Hairs' intentions were transparently obvious. In the past, they had shown favor to ignorant common folk in the countryside. Then they had co-opted the officials in the county yamen. Now their hand was reaching toward the scholars. Step by step, meticulous planning, calculating everything—it truly deserved the phrase "their hearts are punishable."
+Uneasy because the Kun' intentions were transparently obvious. In the past, they had shown favor to ignorant common folk in the countryside. Then they had co-opted the officials in the county yamen. Now their hand was reaching toward the scholars. Step by step, meticulous planning, calculating everything—it truly deserved the phrase "their hearts are punishable."
 
-Wang Ci now felt that handing the school lands over to the Australians to farm had been a mistake. When autumn came and they could distribute money and grain to the stipend students, wouldn't everyone know this was the Short Hairs' doing? Thinking of this, Wang Ci was filled with regret. He had truly been shortsighted. For some money and grain, he had allowed the Short Hairs to get their foot in the door.
+Wang Ci now felt that handing the school lands over to the Australians to farm had been a mistake. When autumn came and they could distribute money and grain to the stipend students, wouldn't everyone know this was the Kun' doing? Thinking of this, Wang Ci was filled with regret. He had truly been shortsighted. For some money and grain, he had allowed the Kun to get their foot in the door.
 
 Xiong Buyou observed this Educational Director's face turning blue and red and had no idea what he was thinking. In truth, Wang Ci was overestimating his own importance. According to the Executive Committee's long-term plan, cultivating local intellectuals would have proceeded regardless. Whether or not the school land matter existed, Lingao's scholars wouldn't escape.
 

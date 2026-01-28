@@ -1,6 +1,6 @@
 # Chapter 424 - Moli Xuan Work
 
-Wang Ci found he couldn't refuse. Reasoning that regardless of the Short Hairs' intentions, the aid would ultimately benefit this family, he stood and said: "This student will thank you on their behalf." With that, he made a deep bow.
+Wang Ci found he couldn't refuse. Reasoning that regardless of the Kun' intentions, the aid would ultimately benefit this family, he stood and said: "This student will thank you on their behalf." With that, he made a deep bow.
 
 "Hehe, no need for ceremony." Xiong Buyou watched his attitude soften and estimated the plan had a seventy or eighty percent chance of success. Of course, whether or not this sour scholar agreed wouldn't affect the final outcome, but with his participation, things would proceed more smoothly. The work of cultivating native intellectuals would benefit from the County Educational Director's assistance.
 
@@ -34,7 +34,7 @@ Wang Ci's face reddened. "It's all this student's incompetence..."
 
 "This can't be blamed on you," Xiong Buyou said casually. "The county hasn't given you a single coin or grain of rice for years. To have held on to this point is already remarkable. For Lingao's cultural atmosphere, Educational Director Wang truly deserves to be called wholeheartedly devoted and exhausting oneself!"
 
-Hearing these words from a Short Hair's mouth, Wang Ci's eyes almost reddened.
+Hearing these words from a Kun's mouth, Wang Ci's eyes almost reddened.
 
 Heaven have mercy! he thought. Ever since I came to this remote southern county of Lingao as Educational Director, not a day has passed without me running about. I've thought of every possible method, going everywhere to solicit donations from the gentry, wearing out several pairs of shoes, being robbed by bandits and almost losing my life, encountering a hurricane by the sea and nearly being buried in the fish's belly, seeing enough of the gentry's cold faces—barely maintaining things until now. The county magistrate only says "you've worked hard" and nothing more. Who would have thought that these Australians, who've only arrived a little over a year ago, could see things so clearly? Suddenly he felt a great sense of having found kindred spirits.
 
@@ -44,7 +44,7 @@ Heaven have mercy! he thought. Ever since I came to this remote southern county 
 
 He then deliberately sighed: "If only all of the Great Ming's officials could live up to 'a clear conscience,' that would be wonderful!"
 
-These words carried a flavor of criticizing current affairs. Though Wang Ci was just a minor Educational Director, he was no frog at the bottom of a well. What he had seen and heard on the way to take up his post and while in office, combined with correspondence from friends and classmates at home, made him feel the situation was declining day by day. He was unwilling to comment on such matters in front of a Short Hair, so he simply kept silent and only sighed.
+These words carried a flavor of criticizing current affairs. Though Wang Ci was just a minor Educational Director, he was no frog at the bottom of a well. What he had seen and heard on the way to take up his post and while in office, combined with correspondence from friends and classmates at home, made him feel the situation was declining day by day. He was unwilling to comment on such matters in front of a Kun, so he simply kept silent and only sighed.
 
 Xiong Buyou sensed the moment was right. "I see Moli Xuan next to the county school has become so dilapidated. If it's not repaired, I'm afraid it will collapse. This piece of Lingao's literary history will be lost..."
 
@@ -54,7 +54,7 @@ Xiong Buyou sensed the moment was right. "I see Moli Xuan next to the county sch
 
 "Since the county has no money, we can help repair Moli Xuan." Xiong Buyou seized the opportunity to make his proposal.
 
-"You will repair it?" Wang Ci looked at him in surprise. What were the Short Hairs scheming? Helping repair buildings for no apparent reason—what benefit was there for them?
+"You will repair it?" Wang Ci looked at him in surprise. What were the Kun scheming? Helping repair buildings for no apparent reason—what benefit was there for them?
 
 "Exactly. Not just Moli Xuan, but here too." Xiong Buyou pointed outside. "Your Confucian temple and county school also need proper repairs. Otherwise, it's really an eyesore."
 

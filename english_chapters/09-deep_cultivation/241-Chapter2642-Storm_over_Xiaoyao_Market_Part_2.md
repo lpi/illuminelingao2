@@ -2,27 +2,27 @@
 
 With that, the apprentice produced several coins from his pocket.
 
-Li Guangyuan took one and examined it. The coin was noticeably smaller than a Yongle Tongbao and lighter in weight. Though it gleamed with a silvery sheen and carried a satisfying heft, it was clearly not silver currency. He had previously handled the One Yuan, Half Yuan, and Twenty Cent silver coins issued by the Australians, studying each with care. This coin felt entirely different in size, texture, and weight.
+Li Guangyuan accepted one and turned it over in his fingers. The coin was noticeably smaller than a Yongle Tongbao and lighter too. It gleamed with a silvery sheen and carried a satisfying heft, yet it was clearly not silver. He had previously examined the Australians' One Yuan, Half Yuan, and Twenty Cent silver coins with considerable care; this felt entirely different in size, texture, and weight.
 
-He raised the coin toward the light for closer inspection. One face bore the characters "One Wen" (*Yi Wen*) in Song typeface, rendered in convex relief. Beneath them curved a wreath of wheat ears, accompanied by Tashik numerals and Western script. The reverse featured a large Tashik numeral "1" as its centerpiece, with a pointed-prowed vessel serving as the background—unmistakably one of the Kun Thieves' great iron ships.
+He raised it toward the light for closer inspection. One face bore the characters "One Wen" (*Yi Wen*) in Song typeface, rendered in convex relief. Beneath them curved a wreath of wheat ears, accompanied by Tashik numerals and Western script. The reverse featured a large Tashik numeral "1" at its center, with a pointed-prowed vessel as the background—unmistakably one of the Kun Thieves' great iron ships.
 
-The Senate had previously issued Yuan and Fen denominations, with one Yuan exchanging for one hundred Fen. In practice, however, even the Fen proved too large for everyday small transactions. Consequently, the populace continued using the miscellaneous bronze coins still circulating in society, sometimes even bartering goods directly. These bronze coins varied wildly in type, weight, and quality, resulting in inconsistent exchange rates—five wen to one Fen in some places, ten in others, sixteen elsewhere. This chaos hampered the Senate's internal economic activities and commodity circulation while also impeding their efforts to recover copper resources from old coinage. Thus, issuing subsidiary currency in denominations smaller than the Fen quickly became a top priority.
+The Senate had previously issued Yuan and Fen denominations, with one Yuan exchanging for one hundred Fen. In practice, however, even the Fen proved too large for everyday transactions. The populace continued using whatever miscellaneous bronze coins still circulated, sometimes resorting to direct barter. These bronze coins varied wildly in type, weight, and quality, resulting in exchange rates that shifted from place to place—five wen to one Fen here, ten there, sixteen elsewhere. Such chaos hampered the Senate's internal economic activities and commodity circulation while impeding their efforts to recover copper from old coinage. Issuing subsidiary currency in denominations smaller than the Fen had thus become a pressing priority.
 
-The unit for this subsidiary currency was designated "Wen," accommodating the common people's established habits and colloquial usage. The question of what material to use, however, proved contentious. Ordinary bronze was out of the question. Since landing on these shores, the Senate had always suffered from copper shortages. Trade with Japan and mining operations had provided some relief, but copper prices remained stubbornly high. Minting bronze coins would yield no seigniorage whatsoever, and might even invite private melting as people sought to profit from the metal content.
+The unit for this subsidiary currency was designated "Wen," accommodating the common people's established habits and colloquial usage. The question of what material to use, however, proved contentious. Ordinary bronze was out of the question. Since landing on these shores, the Senate had always suffered from copper shortages. Trade with Japan and mining operations had provided some relief, but copper prices remained stubbornly high. Minting bronze coins would yield no seigniorage whatsoever and might even invite private melting as people sought to profit from the metal content.
 
 Steel coins seemed the optimal solution, but the Senate lacked the capability to produce stainless steel. Carbon steel coins would corrode rapidly in circulation, severely undermining the currency's credibility.
 
 As for nickel—the most common material for small-denomination subsidiary currency in the Old Time Space—this supposedly cheap non-ferrous metal was unfortunately scarce under Senate control. The same applied to aluminum.
 
-The final compromise was paper money. Since the existing Yuan and Fen were already issued as paper currency with acceptable circulation and public acceptance, the Wen debuted entirely as paper notes, exchanging at a rate of ten Wen per Fen.
+The final compromise was paper money. Since the existing Yuan and Fen already circulated as paper currency with acceptable public acceptance, the Wen debuted entirely as paper notes, exchanging at ten Wen per Fen.
 
-Li and Luo were both well-accustomed to the Kun Thieves' Fen and Wen paper currency. The sudden appearance of hard coinage naturally surprised them.
+Both Li and Luo were well-accustomed to the Kun Thieves' Fen and Wen paper currency. The sudden appearance of hard coinage naturally took them by surprise.
 
 *This deserves careful examination*, Li Guangyuan thought.
 
-Judging by its texture and weight, this new "Wen" shared the refined characteristics of the Australian Silver Dollar. The material was smooth and lustrous, the pattern exquisitely rendered. The outer rim featured the raised edge typical of coins, beautifully finished—though it lacked the fine milled grooves found on silver dollars. Yet when he tilted it toward the light, he discovered that the raised rim bore foreign characters so minuscule they resembled mosquito legs. How they had managed to engrave such fine detail remained a mystery.
+Judging by its texture and weight, this new "Wen" shared the refined characteristics of the Australian Silver Dollar. The material was smooth and lustrous, the pattern exquisitely rendered. The outer rim featured the raised edge typical of coins, beautifully finished—though it lacked the fine milled grooves found on silver dollars. Yet when he tilted it toward the light, he discovered minuscule foreign characters along the raised rim, so tiny they resembled mosquito legs. How they had managed to engrave such fine detail remained a mystery.
 
-"This is a One Wen coin?!" Luo Heying exclaimed in disbelief. Though the coin was clearly neither silver nor copper, such exquisite craftsmanship could not have come cheap. And yet it represented the smallest possible denomination?
+"This is a One Wen coin?!" Luo Heying exclaimed in disbelief. The coin was clearly neither silver nor copper, yet such exquisite craftsmanship could not have come cheap. And it represented the smallest possible denomination?
 
 "Shall we cut it open to check the interior?" Li Guangyuan suggested.
 
@@ -32,17 +32,17 @@ Judging by its texture and weight, this new "Wen" shared the refined characteris
 
 His words held truth. From Qin Shi Huang's casting of the Half Tael (*Ban Liang*) onward, Chinese coinage had always been copper. Across the rise and fall of dynasties, the copper content might vary and the size and weight might fluctuate, but apart from certain Tang Dynasty regional warlords and minor local regimes, no legitimate government had formally minted iron currency.
 
-Seeing the Kun Thieves resort to iron coinage, Luo Heying felt a surge of excitement. To his mind, this signaled that their treasury was running dry—the first steps down a dead-end road to ruin.
+Seeing the Kun Thieves resort to iron coinage, Luo Heying felt a surge of excitement. To his mind, this signaled a treasury running dry—the first steps down a dead-end road to ruin.
 
 Li Guangyuan knew better. The Australians now issued paper money across all denominations, and it circulated freely throughout the Two Guangs. Merchants, travelers, and common folk alike accepted it without question. What material they used for their coins was ultimately inconsequential.
 
-Neither Li Guangyuan nor Luo Heying realized that the "One Wen" coin they held represented the first batch of small-denomination hard currency manufactured by the Hong Kong Mint. It had only just arrived from the Central Reserve Bank in Guangzhou, dispatched to Dongguan to begin circulation. The coin was still pristine, never yet exchanged.
+What neither Li Guangyuan nor Luo Heying realized was that the "One Wen" coin in their hands represented the first batch of small-denomination hard currency manufactured by the Hong Kong Mint. It had only just arrived from the Central Reserve Bank in Guangzhou, dispatched to Dongguan to begin circulation. The coin was still pristine, never yet exchanged.
 
 Manufacturing subsidiary hard currency was not a sudden whim but a necessary improvement compelled by the practical realities of currency circulation.
 
-Paper money certainly offered convenience in printing, usage, transport, and storage. However, actual implementation had generated considerable complaints from Senators in both Finance and Financial Departments. While currency at various denominations did circulate normally as paper notes, the problems grew more apparent with each passing day.
+Paper money certainly offered convenience in printing, usage, transport, and storage. However, actual implementation had generated considerable complaints from Senators in both the Finance and Financial Departments. While currency at various denominations did circulate normally as paper notes, problems grew more apparent with each passing day.
 
-Yuan and Half Yuan notes caused the fewest issues, primarily because they circulated only in Guangzhou and Hainan. People in outlying areas rarely handled such large denominations and lacked the confidence to hoard paper of such high value—trusting their family's livelihood to a mere slip of paper.
+Yuan and Half Yuan notes caused the fewest issues, primarily because they circulated only in Guangzhou and Hainan. People in outlying areas rarely handled such large denominations and lacked the confidence to entrust their family's livelihood to a mere slip of paper.
 
 In Guangzhou and Hainan, where Senate policy had penetrated deepest, everyone from ninety-year-old elders to young children had attended lectures on counterfeit prevention and seen anti-counterfeiting propaganda posters. They had handled genuine notes countless times. Even the most skilled forger could not replicate the authentic look and feel.
 
@@ -50,7 +50,7 @@ Consequently, although counterfeit cases did occasionally surface, large-scale c
 
 Moreover, people treated high-denomination notes with care, storing them in dedicated wallets and handling them gently. Such bills could pass through many hands and still appear nearly new.
 
-The problems lay with small-denomination currency, particularly Fen and Wen notes. On one hand, cost considerations had led the Senate to forgo sophisticated anti-counterfeiting measures for low-value currency, relying solely on special paper and steel-plate printing. The consequence was a wave of currency alteration cases in the areas surrounding Guangzhou. Steel-plate printing techniques were not difficult to master; counterfeiters carved tin plates and devised methods to wash away the printed denominations on small notes before reprinting them with higher values. Some even repurposed defunct Grain Circulation Coupons as base material. While such forgeries were easily detected upon careful examination, they proved highly effective at deceiving those unfamiliar with anti-counterfeiting features. This type of altered currency had already become the dominant form of counterfeit.
+The problems lay with small-denomination currency, particularly Fen and Wen notes. On one hand, cost considerations had led the Senate to forgo sophisticated anti-counterfeiting measures for low-value currency, relying solely on special paper and steel-plate printing. The consequence was a wave of currency alteration cases in the areas surrounding Guangzhou. Steel-plate printing techniques were not difficult to master; counterfeiters carved tin plates and devised methods to wash away printed denominations on small notes before reprinting them with higher values. Some even repurposed defunct Grain Circulation Coupons as base material. While such forgeries were easily detected upon careful examination, they proved highly effective at deceiving those unfamiliar with anti-counterfeiting features. This type of altered currency had already become the dominant form of counterfeit.
 
 The other problem was the severe deterioration of small-denomination paper money.
 

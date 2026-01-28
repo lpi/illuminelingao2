@@ -1,125 +1,125 @@
 # Chapter 2806 Rare Moments Of Ignorance
 
-Tan Shuangxi continued to speak: "It was very chaotic when the night raid happened. We were all firing in the direction of the bandits. We only heard him cry out 'Ouch.' By the time we found him, he was already gone."
+Tan Shuangxi continued: "Everything was chaos during the night raid. We were all firing toward the bandits. All we heard was him cry out, just once—'Ouch.' By the time we found him, he was already gone."
 
-"Did he bleed a lot?" she asked in a husky voice.
+"Did he bleed much?" Her voice was hoarse.
 
-"Didn't bleed much. A feathered arrow hit his chest, almost right at the heart. We gathered around him; he gasped for a moment and left. He didn't suffer." As if trying his best to comfort her, Tan Shuangxi added, "Although his service time wasn't too long, he performed very bravely. He received two Second Class Courage Medals and one Second Class Distinguished Service Medal, and was commended in general orders by the South China Army..."
+"Not much. A feathered arrow struck his chest, almost directly over the heart. We gathered around him. He gasped for a moment, and then he was gone. He didn't suffer." As if straining to offer some comfort, Tan Shuangxi added, "Although his service wasn't long, he fought with great bravery. He received two Second Class Courage Medals and one Second Class Distinguished Service Medal. The South China Army commended him in general orders..."
 
-"But he's gone," she said. "Never coming back."
+"But he's gone," she said. "He's never coming back."
 
-No one could speak. Tan Shuangxi looked powerlessly at the medal box on the table. Yes, he was never coming back. What use was giving his wife more medals? These medals would not be worn on their owner's chest to show off his bravery and distinguished military service...
+No one could speak. Tan Shuangxi looked helplessly at the medal box on the table. Yes, he was never coming back. What good did it do to give his wife more medals? These medals would never be worn on their owner's chest, never displayed as proof of his bravery and distinguished service...
 
-"Please restrain your grief and take care of yourself." Tan Shuangxi stood up and saluted again. "We are leaving."
+"Please take care of yourself in your grief." Tan Shuangxi rose and saluted again. "We are leaving."
 
-Coming out of Tan Haonan's house, the *Paijia* invited them to eat. Tan Shuangxi refused; this was a town with restaurants as numerous as cattle hair, unlike the countryside where they had to rely on the village head to assign meals.
+After they emerged from Tan Haonan's house, the *Paijia* invited them to eat. Tan Shuangxi declined—this was a town where restaurants were as numerous as hairs on an ox, unlike the countryside where they had to rely on the village head to arrange meals.
 
 "Let's find a place to have a drink," Tan Shuangxi said.
 
-"That woman..." Zhang Laicai said somewhat impatiently, "Unruly!" His voice was a bit loud. After blurting it out, he hurriedly looked around to see if he had disturbed others, then said indignantly: "There were men's things in her room!"
+"That woman..." Zhang Laicai said with barely concealed impatience. "Shameless!" His voice came out louder than intended. He glanced around quickly to make sure he hadn't disturbed anyone, then continued indignantly: "There were men's things in her room!"
 
-Tan Shuangxi didn't speak. After a long while, he opened his mouth: "A man's hat doesn't prove anything..."
+Tan Shuangxi said nothing. After a long pause, he finally spoke: "A man's hat doesn't prove anything..."
 
-"A hat really doesn't prove anything, but did you see the things in the kitchen sink?" Zhang Laicai said angrily. "Bowls, chopsticks, spoons, and cups were all in pairs! Why would she wash tableware for two living alone? And the unfinished food in the kitchen was all carefully prepared—don't tell me the man who came was her relative... even if it was her relative..."
+"A hat really doesn't prove anything, but did you see what was in the kitchen sink?" Zhang Laicai's anger was rising. "Bowls, chopsticks, spoons, cups—all in pairs! Why would a woman living alone wash tableware for two? And the unfinished food in the kitchen was all carefully prepared—don't tell me the man who visited was a relative... even if he was a relative..."
 
-He didn't continue; intermarriage between cousins wasn't rare.
+He trailed off. Intermarriage between cousins wasn't rare.
 
-"Even if a man visited, it doesn't prove anything, right?" Tan Shuangxi comforted. "The Great Ming Law requires catching adulterers in pairs. You only saw these few things; you can't catch a fart!"
+"Even if a man visited, it doesn't prove anything, does it?" Tan Shuangxi offered. "The Great Ming Law requires catching adulterers together in the act. You only saw a few clues—you can't prove a thing."
 
-"That man was upstairs!" Zhang Laicai said. "Didn't you hear the noise on the floorboards?"
+"That man was upstairs!" Zhang Laicai insisted. "Didn't you hear the floorboards creaking?"
 
-"I'm hungry. Hurry up and find a place to eat." Tan Shuangxi interrupted his grumbling and dragged him into a small restaurant by the street.
+"I'm hungry. Let's find somewhere to eat." Tan Shuangxi cut short his grumbling and pulled him into a small restaurant along the street.
 
-It wasn't lunch time yet, and the shop was empty. The boss cheered up seeing two soldiers enter—recently many returning soldiers had come, sharing the characteristic of being generous and loose with money; they were good customers. He hurried to greet them.
+It wasn't yet lunchtime, and the shop was empty. The owner perked up at the sight of two soldiers entering—lately, many returning veterans had been coming through, and they all shared one trait: they spent freely and generously. Good customers. He hurried over to greet them.
 
 "Comrades, what will you have?"
 
-"Do you have a private room?" Tan Shuangxi knew Zhang Laicai was full of anger and had to vent it; they needed a safe place for him to let it out.
+"Do you have a private room?" Tan Shuangxi knew Zhang Laicai was brimming with anger and needed to vent somewhere safe.
 
-"Yes, yes, just that the conditions are average. Please forgive us; the small shop isn't a big establishment..."
+"Yes, yes, though the conditions are modest. Please forgive us—we're just a small establishment, nothing fancy..."
 
-"As long as you have it, cut the crap!"
+"As long as you have one, save the excuses."
 
-The boss hurriedly ordered the shop assistant to take them to a private room in the back. The conditions were indeed average; apart from being an independent space, it was no different from the outside. But Tan Shuangxi was satisfied. "This is it."
+The owner quickly ordered the shop assistant to show them to a private room in the back. The conditions were indeed modest; apart from being a separate space, it was no different from the main dining area. But Tan Shuangxi was satisfied. "This will do."
 
-"What will you two eat..."
+"What will you gentlemen eat..."
 
-"Bring four refreshing cold dishes to go with wine, and half a dozen 'Wenlan River' beers!" Tan Shuangxi ordered four cold dishes like salted peanuts and marinated jellyfish, then asked, "I saw you hanging a sign for Dongshan Mutton outside. Is it authentic?"
+"Bring four cold dishes to go with the wine, and half a dozen bottles of 'Wenlan River' beer." Tan Shuangxi ordered four appetizers—salted peanuts, marinated jellyfish, and the like—then asked, "I noticed you have a sign outside for Dongshan Mutton. Is it authentic?"
 
-"Look at you, comrade," the boss immediately switched to dialect accent. "I'm from Wanning. Can it be inauthentic? Everything is raised by my family back home! Sent alive to Lingao, freshly butchered only yesterday!"
+"Look at you, comrade," the owner replied, slipping into his local dialect. "I'm from Wanning. Would I serve anything less than authentic? Everything's raised by my family back home! Shipped here alive to Lingao, slaughtered fresh just yesterday!"
 
-"Bring two *jin* of boiled sliced mutton, skin on!" Tan Shuangxi said. "And a plate of stir-fried lamb tripe!"
+"Bring two *jin* of boiled sliced mutton, skin on," Tan Shuangxi said. "And a plate of stir-fried lamb tripe."
 
-"Okay, okay," the boss nodded repeatedly, then whispered, "The shop has fresh sheep testicles (*yangbao*). Do you two want a portion? Guaranteed to be good for you!"
+"Right away, right away," the owner nodded eagerly, then leaned in and whispered, "The shop has fresh sheep testicles—*yangbao*. Would you gentlemen like a portion? Guaranteed to do you good."
 
-"Is it gamey?"
+"Is there any gamey smell?"
 
-"The shop has a secret recipe; absolutely not gamey."
+"We have a secret recipe. Absolutely no gamey smell."
 
 "Bring a portion," Tan Shuangxi said.
 
 "Coming right up!"
 
-Zhang Laicai waved his hands repeatedly: "Brother Shuangxi! You don't have a woman at home; why eat this? No, no."
+Zhang Laicai waved his hands in protest. "Brother Shuangxi! You don't have a woman at home—why order that? No, no."
 
-"I don't need it, but you do. Aren't you going to meet your lover after delivering the letters?"
+"I don't need it, but you do. Aren't you going to meet your lover after we finish delivering the letters?"
 
-"What lover? I have absolutely zero interest now." Zhang Laicai sighed. "Seeing Brother Haonan's end, my heart is really chilled..."
+"What lover? I have absolutely no interest now." Zhang Laicai sighed heavily. "After seeing how things ended for Brother Haonan, my heart's gone cold..."
 
-As they were talking, the shouts of the waiter came from outside. Soon, wine and dishes were all set.
+As they talked, the waiter's shouts rang out from the front. Soon the wine and dishes were all laid out before them.
 
-"The sheep testicles are stewing in the pot; they'll be ready soon." The boss greeted. "Do you want staples?"
+"The sheep testicles are still stewing in the pot—they'll be ready shortly," the owner informed them. "Will you want rice or noodles?"
 
-"Not for now." Tan Shuangxi sent the boss away. Zhang Laicai finally couldn't hold back and asked, "Brother Shuangxi! I don't understand why you wanted to protect her! She is stealing a man! The adulterer is upstairs. With the *Paijia* as a witness, we should have rushed up and caught the adulterers on the spot!"
+"Not yet." Tan Shuangxi waved him away. The moment they were alone, Zhang Laicai burst out: "Brother Shuangxi! I don't understand—why did you want to protect her? She's carrying on with another man! The adulterer was upstairs! With the *Paijia* representative as our witness, we should have charged up there and caught them in the act!"
 
-"Do you think this man was waiting on the bed bare-assed for us to catch him?" Tan Shuangxi said leisurely.
+"You think this man was waiting naked in bed for us to catch him?" Tan Shuangxi replied evenly.
 
-"Even if dressed, a lone man and widow in a room together, plus evidence of eating and drinking together, if not adultery, what is it?" Zhang Laicai said indignantly. "Catch him and beat him half to death first. Even if the police station can't convict him, it would vent this anger for Brother Haonan!"
+"Even fully clothed—a lone man and widow under one roof, plus evidence of eating and drinking together—if that's not adultery, what is it?" Zhang Laicai's voice rose with indignation. "We should have seized him and beaten him half to death first! Even if the police station couldn't convict him, at least we'd have vented our anger for Brother Haonan!"
 
-"You know too that you can't convict him." Tan Shuangxi said. "Yes, you beat the man, you feel satisfied. But Tan Haonan's green hat would be solidly worn—not only worn, but everyone in Bairen would know. Besides, what if there's no such thing at all? Maybe it was a relative, maybe a neighbor, or maybe a messenger she kept to chat with! She is a woman, not a prisoner."
+"You said it yourself—you can't convict him." Tan Shuangxi's tone remained calm. "Yes, you beat the man, you feel satisfied. But then Tan Haonan's disgrace would be set in stone—not only real but known to everyone in Bairen. Besides, what if there's nothing going on at all? Maybe it was a relative, maybe a neighbor, or maybe just a messenger she invited in for conversation. She's a woman, not a prisoner."
 
-Zhang Laicai thought about it; it was indeed true. But he still couldn't swallow this anger and said resentfully: "I've seen Chiefs wear that hat. No matter how rich Tan Haonan's family is, he wouldn't buy it! This adulterer's family is very rich! Brother Haonan fought in the front, and she messed around with someone in the rear! She sure knows how to pick people..."
+Zhang Laicai considered this. It was true enough. But he still couldn't swallow his anger and said resentfully: "I've seen officials wear that hat. No matter how wealthy Tan Haonan's family might be, he would never buy something like that! This adulterer must come from money. Brother Haonan was fighting at the front while she carried on with someone in the rear! She certainly knows how to pick them..."
 
-"I dare not say whether she messed around or not, but her feelings for Brother Haonan were genuine. I could see that."
+"I can't say whether she carried on with anyone or not, but her feelings for Brother Haonan were genuine. I could see that."
 
-"When did you become so knowledgeable about women?" Zhang Laicai said sullenly.
+"When did you become such an expert on women?" Zhang Laicai muttered sullenly.
 
-"Yeah, how could I understand?" Tan Shuangxi thought silently. Before leaving the army, better not think about getting married. He didn't want the day to come when his woman would cry holding a piece of paper. Men shouldn't be like that.
+"You're right—what would I understand?" Tan Shuangxi thought to himself in silence. Better not to think about marriage before leaving the army. He didn't want the day to come when his woman would be left crying over a piece of paper. A man shouldn't live like that.
 
-"Brother Haonan is already gone; do you want him to become gossip behind people's backs now?" Tan Shuangxi saw him still sulking and persuaded him.
+"Brother Haonan is already gone. Do you want him to become idle gossip now?" Seeing Zhang Laicai still brooding, Tan Shuangxi tried to persuade him.
 
-"True," Zhang Laicai deflated. "Making a scene would be too ugly."
+"True," Zhang Laicai deflated. "Making a scene would only be ugly."
 
-Tan Shuangxi picked up a piece of jellyfish skin and put it in his mouth: "In the end, Brother Haonan knows nothing anymore. The living have to continue living. I spent more time with Brother Haonan; I know a bit about their couple's affairs: she treated Haonan really well, not fake affection..."
+Tan Shuangxi picked up a piece of jellyfish and put it in his mouth. "In the end, Brother Haonan knows nothing anymore. The living have to go on living. I spent more time with Brother Haonan, so I know something about their marriage. She treated Haonan well—it wasn't an act..."
 
-He remembered Tan Haonan mentioning that almost all his wages were used to buy books, newspapers, and stationery. Just the postage for submitting articles and writing letters to literary friends cost a lot every month, and his wife never complained.
+He remembered Tan Haonan mentioning that almost all his wages went toward buying books, newspapers, and stationery. The postage alone for submitting articles and corresponding with literary friends cost a considerable sum each month, yet his wife never complained.
 
-"...The key is she understands me, do you get it? She knows what I think and what I want. Being with her is a tacit understanding; I feel particularly comfortable..."
+"...The key is, she understands me. Do you know what I mean? She knows what I'm thinking, what I want. Being with her, there's a tacit understanding between us—I feel completely at ease..."
 
-Recalling these words of Tan Haonan, Tan Shuangxi couldn't quite understand what "understand me" meant, but he could understand this "brother's" mood.
+Recalling these words of Tan Haonan's, Tan Shuangxi couldn't quite grasp what "she understands me" really meant, but he could understand his brother's feelings.
 
-Did she really mess around? He didn't want to believe it, but what Zhang Laicai said was irrefutable. Since they were so affectionate, why would another man intervene...
+Had she really been unfaithful? He didn't want to believe it, but what Zhang Laicai had pointed out was hard to refute. If they had been so devoted to each other, why would another man have come between them...
 
-Zhang Laicai gulped down wine and said, "I don't care if the affection is fake or not, I just... just feel Brother Haonan was so wronged!" He tore open the chest lapel of his uniform as he spoke. "Just thinking for him makes me feel blocked up."
+Zhang Laicai gulped down his wine. "I don't care whether the affection was real or fake. I just... I just feel Brother Haonan was so wronged!" As he spoke, he tore open the front of his uniform. "Just thinking about it for his sake makes my chest feel tight."
 
-"Stop thinking about it. There are plenty of things you can't figure out. If you think about everything, won't you stifle yourself to death?"
+"Stop dwelling on it. There's plenty in this world you'll never figure out. If you tried to think through everything, you'd only suffocate yourself."
 
-As they spoke, the waiter shouted and brought a steaming small clay pot. He whispered, "Stewed sheep testicles, you two eat while it's hot."
+As they spoke, the waiter announced himself and brought in a steaming clay pot. He whispered, "The stewed sheep testicles. You two enjoy them while they're hot."
 
-Lifting the lid, inside was white thick soup sprinkled with green garlic leaves. The translucent sheep testicles trembled in the simmering thick soup. Indeed, as the owner said, there was no fishy smell at all, only a strong aroma.
+Lifting the lid, they found a rich white broth sprinkled with green garlic leaves. The translucent testicles quivered in the simmering soup. Just as the owner had promised, there was no gamey smell at all—only a deep, savory aroma.
 
-"Come eat. After eating, go meet your lover tonight." Tan Shuangxi comforted. "If you're tired, have a good sleep. There's still work to do tomorrow."
+"Come on, eat up. Then go see your lover tonight," Tan Shuangxi said, trying to lift the mood. "If you're tired, get a good night's sleep. There's more work to do tomorrow."
 
-Suddenly, the sound of military music played by flutes and drums came from outside, along with the noisy cheers of many people. The two looked at each other. Tan Shuangxi called the waiter: "What's happening outside?"
+Suddenly, the sound of military music drifted in from outside—flutes and drums—accompanied by the boisterous cheers of a crowd. The two men exchanged glances. Tan Shuangxi called to the waiter: "What's happening out there?"
 
 "The local *jia* is sending off new recruits!"
 
-The two left their wine glasses and went out to watch. On the street, military drums and flutes were playing the "Farewell March." Amidst the rousing march, a crowd clustered around several young men wearing "Year One Pattern" military uniforms without rank or branch insignia. Someone held a banner reading: "Farewell to East Gate Town 17th Jia 3rd Pai..." followed by probably a few names.
+They set down their cups and went outside to watch. On the street, a military band was playing the "Farewell March" on drums and flutes. Amid the rousing music, a crowd surrounded several young men wearing the "Year One Pattern" military uniforms—without rank or branch insignia. Someone held aloft a banner reading: "Farewell to East Gate Town 17th Jia 3rd Pai..." followed by what were probably the recruits' names.
 
-Under the banner were three young men with shy smiles—they probably had never been so glorious in their lives. Flags flew over their heads. The prominent figures of the street—the president of the *Paijia* chamber of commerce, the *Pai* head and *Jia* head, the president of the *Paijia* women's association—all came to see them off. People waving flowers and small flags cheered for them. Police cleared the way in front. Passing citizens cheered for them, some throwing confetti. They tried hard to look brave and fearless, walking to the beat of the march.
+Beneath the banner walked three young men with bashful smiles—they had probably never experienced such glory in their lives. Flags flew above their heads. The street's prominent figures had all come to see them off: the president of the *Paijia* chamber of commerce, the *Pai* head and *Jia* head, the president of the *Paijia* women's association. People waving flowers and small flags cheered for them. Police cleared the way ahead. Passersby called out encouragement; some threw confetti. The three recruits did their best to appear brave and fearless as they marched in step with the music.
 
-Seeing two Fubo Army soldiers by the street, the three young men suddenly stopped together and saluted them unevenly. Tan Shuangxi and Zhang Laicai hurried to return the salute together.
+When they spotted the two Fubo Army soldiers standing by the street, the three young men stopped together and raised uneven salutes. Tan Shuangxi and Zhang Laicai quickly returned the gesture in unison.
 
-"Serve the Senate and the People!" "Restore China!"... With the loud slogans, the music rang out again, and the farewell procession continued to move forward.
+"Serve the Senate and the People!" "Restore China!" The slogans rang out, the music swelled again, and the farewell procession marched on.
 
 (End of Chapter)

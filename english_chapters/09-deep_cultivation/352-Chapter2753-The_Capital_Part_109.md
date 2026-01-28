@@ -1,139 +1,139 @@
 # Chapter 2753: The Capital (Part 109)
 
-Xu Ke was increasingly surprised in his heart. What is the background of this "Mr. Le"? To actally be so familiar with the Senate!
+Xu Ke grew increasingly astonished. What exactly was the background of this "Mr. Le"? How could he be so intimately familiar with the Senate?
 
-"This Mr. Le is widely knowledgeable."
+"This Mr. Le possesses remarkably broad knowledge."
 
-"His capabilities are very great." Liu Sha smiled bitterly. "It is a pity..."
+"His abilities are considerable." Liu Sha smiled bitterly. "It's a pity..."
 
-He only said half of "it is a pity" and did not continue. The things he wanted to say now were waiting for a good price to sell; how could he say them easily?
+He left the sentence unfinished. The information he possessed was currency he intended to trade at the highest price—why would he give it away freely?
 
-Xu Ke naturally understood his mind and did not question further, waiting quietly for him to make demands.
+Xu Ke understood his calculations perfectly and pressed no further, waiting patiently for the man to state his terms.
 
-Everyone has a soft spot, and Liu Sha was naturally no exception.
+Everyone has their vulnerabilities, and Liu Sha was no exception.
 
-"I have a daughter." He whispered, "She is an ill-fated connection I unintentionally made while wandering in dissipation outside. The mother and daughter are now in Yingtian Prefecture..."
+"I have a daughter," he said quietly. "She came from a fleeting liaison during my years of dissolute wandering. The mother and child now reside in Yingtian Prefecture..."
 
-"Nanjing?!" Xu Ke wondered, "You are a local; why arrange for them to go to Nanjing?"
+"Nanjing?!" Xu Ke was puzzled. "You're a local man. Why would you send them to Nanjing?"
 
-"The scenery of Jiangnan nurtures people. Besides, the child's mother is from Nanjing. Naturally, there are people to look after them locally." Liu Sha said feebly, "I do a business of licking blood from the blade tip; I dare not keep the child by my side."
+"The landscapes of Jiangnan are gentle on the soul. Besides, the child's mother hails from Nanjing—she has people there who can look after them." Liu Sha's voice grew feeble. "Mine is a profession of licking blood from knife-edges. I dared not keep the child close."
 
-Xu Ke was quite puzzled because the Foreign Intelligence Bureau had no news at all about him having a child. Probably even the people around him didn't know. Why did he say it himself? Could it be that the Senate's reputation was good enough to be trusted even by enemies?
+Xu Ke found this deeply perplexing. The Foreign Intelligence Bureau had no intelligence whatsoever about Liu Sha having a child—likely even those closest to him were unaware. Why reveal it now? Could the Senate's reputation truly be trusted even by its enemies?
 
-Although with the Senate's size and status, it would decidedly not make things difficult for a child. There were also judicial principles of "no implication of family" and "crime does not extend to wife and children," but doing one thing while saying another has happened in all dynasties. Who could guarantee that there were no Senators intending to "cut the weeds and remove the roots"?
+True, given the Senate's stature and standing, they would certainly never harm a child. There were also judicial principles of "no punishment extending to families" and "crimes shall not implicate wives and children." Yet throughout history, saying one thing while doing another was commonplace. Who could guarantee that no Senator harbored intentions to "uproot the weeds entirely"?
 
-As Liu Sha, rationally and emotionally, the wisest choice would be to keep his mouth shut about this matter.
+By any rational measure, Liu Sha's wisest choice would have been to keep this matter buried in silence.
 
-Holding such doubts, he continued to listen.
+Holding these doubts, he continued listening.
 
-Liu Sha smiled bitterly: "I am not entrusting an orphan! You and I are enemy states; it was originally you die or I live. But in this matter, now that things have come to a head, I can only entrust you."
+Liu Sha smiled bitterly. "I am not entrusting an orphan to your care. You and I serve enemy nations—it has always been kill or be killed between us. But in this matter, now that circumstances have reached this point, I have no choice but to rely on you."
 
-"Just speak."
+"Speak freely."
 
-"This woman was originally a girl from a brothel by the Qinhuai River. Since she had my flesh and blood, I bought a house in Yingtian to settle the mother and daughter. Unexpectedly, a guest from when she was doing business, a villainous young master from the Wei Duke's clan, actually kidnapped both mother and daughter."
+"This woman was once a courtesan by the Qinhuai River. After she bore my flesh and blood, I purchased a house in Yingtian to settle mother and daughter. But unexpectedly, a former patron from her days in the trade—a villainous young master from the Wei Duke's clan—abducted them both."
 
-Xu Ke was startled. The Wei Duke was the descendant of Xu Da. In the early Ming Dynasty, Xu Da was posthumously titled King of Zhongshan, and the Prince's mansion was set up in Nanjing City. The mansion was inside the Jubao Gate at Dagongfang. Later generations inherited the title of Duke of Wei (Wei Guogong). They were a prominently famous noble family in Nanjing City.
+Xu Ke started. The Wei Duke was a descendant of Xu Da. In the early Ming Dynasty, Xu Da had been posthumously titled King of Zhongshan, and the Prince's mansion was established inside Nanjing's walls at Dagongfang, within the Jubao Gate. Later generations inherited the title of Duke of Wei. They were among the most prominent noble families in all of Nanjing.
 
-One can imagine the power of such a family with generations of official tassels in the local area. Let alone the Prefect of Yingtian, even the Governor of Yingtian had to give the Xu family some face. Even if it was not the direct main branch, wanting to demand people back was very difficult.
+One could well imagine the power such a family commanded after generations of hereditary privilege. Let alone the Prefect of Yingtian—even the Governor of Yingtian had to show the Xu family deference. Even if this culprit was merely a distant branch relative rather than direct lineage, recovering the captives would prove exceedingly difficult.
 
-"It's just a villainous young master from the clan, not the young master of the Duke's own family. You work for Master Wang and formerly served in the Jinyiwei. You also have people in Nanjing. Couldn't you pull some strings?"
+"He's merely some villainous young master from the clan, not the Duke's own heir. You work for Master Wang and formerly served in the Jinyiwei. You have connections in Nanjing. Couldn't you pull some strings?"
 
-"If it were a legitimate young master of the Duke's family committing a crime, it would be easier to handle." Liu Sha sighed, "Generations of nobles still want some face. These distant relatives and close branches are the most scoundrelly. Moreover, he is a fox friend and dog friend (bad influence) of the Second Young Master of the Duke's family, receiving his protection. Usually, he acts lawlessly in Yingtian Prefecture, and no one dares to question him. Even if I have some connections, I have no way to start."
+"If it were a legitimate young master of the Duke's household committing a crime, the matter would actually be simpler." Liu Sha sighed. "Generations of nobility still care about preserving face. It's these distant relatives and collateral branches who are the most shameless. Moreover, this one is a boon companion of the Duke's Second Young Master and enjoys his protection. He acts lawlessly throughout Yingtian Prefecture, and no one dares challenge him. Even with my connections, I found no angle of approach."
 
-After the incident, he went to ask Master Wang for advice. However, Master Wang was unwilling to offend the nobles and only gave him a sum of silver, letting him "solve it secretly." Liu Sha knew the Master was unwilling to stick his head out, so he had to find another way.
+After the incident, he had sought Master Wang's counsel. But Master Wang was unwilling to offend the nobility and merely gave him a sum of silver, telling him to "resolve it quietly." Liu Sha understood that his master refused to stick his neck out, so he had to find another way.
 
-"...Speaking of serving in the Jinyiwei in the past, the duties of the Southern Township Guard (*Nan Zhenfu*) and the Northern Township Guard were originally poles apart. They are called Township Guard Offices (*Zhenfu Si*), but in reality, they don't count as colleagues, so there is no friendship or connection. Furthermore," he sighed long, "I don't serve in the Northern Township Guard Office now either."
+"...As for my former service in the Jinyiwei, the Southern Guardianship Office and the Northern Guardianship Office were always worlds apart. They share the name of Guardianship Offices, but in truth they barely count as colleagues—there's no fellowship or connection between them. Furthermore," he sighed deeply, "I no longer serve in the Northern Guardianship Office either."
 
-After the Jinyiwei Southern Township Guard Office moved north to the Capital, only duties like managing military artisan registries and weapon manufacturing remained. It was not a popular yamen in Yingtian Prefecture.
+After the Southern Guardianship Office relocated north to the Capital, only mundane duties remained—managing military artisan registries and overseeing weapon manufacturing. It was hardly a prestigious institution in Yingtian Prefecture.
 
-Liu Sha's activity energy was very great, but the black and gray forces of Yingtian Prefecture were unwilling to offend the Wei Duke's family for him. "A bare stick (bachelor/loner) does not fight power"; this is the iron law of mixing in society through the ages.
+Liu Sha's ability to navigate the underworld was considerable, but the black and gray forces of Yingtian Prefecture refused to antagonize the Wei Duke's family on his behalf. "A lone wolf doesn't fight power"—this was the iron law of survival through the ages.
 
-"...Originally, I planned to get this large sum of silver, then head straight south to Yingtian Prefecture. Recruit a few desperadoes and settle this matter directly. Take the mother and daughter to fly far away. Unexpectedly, the silver did not come to hand..."
+"...Originally, I planned to collect this large sum of silver, then head straight south to Yingtian Prefecture. I would recruit a few desperadoes and settle the matter directly—take the mother and daughter and flee far away. But the silver never came to hand..."
 
-"I see, you want us to save them?"
+"I see. You want us to rescue them?"
 
-"Exactly." Liu Sha said, "You are foreign powerhouses, with no cares or ties. You even kill the Emperor's old man, let alone a mere villainous young master of the Wei Duke's mansion."
+"Precisely." Liu Sha said, "You are foreign powers with no local ties or entanglements. You've even killed emperors—what is a mere villainous young master of the Wei Duke's household to you?"
 
-Xu Ke laughed loudly: "What you say is true. A trivial matter." After speaking, he restrained his smile and said, "There is no need to report this matter; I can decide it myself. I give you three promises: First, I will immediately telegraph headquarters to send people to Nanjing to do this. As long as the mother and daughter are still in Nanjing, they will definitely be rescued. Second, after rescue, they will be settled in a place of your choice, whether Nanjing or elsewhere, and sent there by personnel, with an additional sum of settlement silver given. Third, if you like, this person's head will be offered with both hands."
+Xu Ke laughed heartily. "What you say is true. A trifling matter." Then he sobered and continued, "There's no need to report this up the chain; I can decide it myself. I give you three promises: First, I will immediately telegraph headquarters to dispatch agents to Nanjing. As long as the mother and daughter remain in the city, they will absolutely be rescued. Second, after rescue, they will be settled in a location of your choosing—Nanjing or elsewhere—escorted there by our personnel, with an additional sum for their establishment. Third, if you wish it, this man's head will be delivered to you with both hands."
 
-"Straightforward!" Liu Sha nodded, "I know Australians have always kept their word the most. Presumably, Sir is no exception."
+"Straightforward!" Liu Sha nodded. "I know Australians have always been the most reliable keepers of their word. Presumably, you are no exception."
 
-"I will also tell you a truth. I am a dignified Senator of the Great Song; how could I break my word?" Xu Ke chuckled, "Not to mention a villainous young master from the Wei Duke's clan, even for the Wei Duke himself, taking his head is as easy as turning over a hand."
+"Let me tell you something as well. I am a dignified Senator of Great Song; how could I break my word?" Xu Ke chuckled. "Forget a mere villainous young master from the Wei Duke's clan—even if it were the Wei Duke himself, taking his head would be as easy as turning my hand."
 
-"Good. With these words from Sir, I am at ease."
+"Good. With these words from you, Sir, I am at ease."
 
-Xu Ke immediately asked for the names of the mother and daughter, the original residence, the name of the villainous young master, and a series of details. He had someone register them in a book and let Liu Sha look over it to ensure no errors, then sent it back to "Center" for processing.
+Xu Ke immediately requested the names of mother and daughter, their original residence, the name of the villainous young master, and a series of other details. He had someone record everything in a ledger and showed it to Liu Sha to verify its accuracy, then dispatched it to "Center" for action.
 
-"Now, let's talk about Mr. Le." Xu Ke was most concerned about this person.
+"Now, let us discuss Mr. Le." This was the person Xu Ke was most eager to learn about.
 
-"He is not surnamed Le, but Zhou." Liu Sha revealed important information in the first sentence.
+"His surname is not Le, but Zhou." Liu Sha revealed crucial information in his very first sentence.
 
-"Surnamed Zhou? What is the full name?"
+"Surnamed Zhou? What is his full name?"
 
-"Hehe, it's strange to say." Liu Sha said, "Called Zhou Lezhi."
+"Heh, it's quite peculiar." Liu Sha said, "He's called Zhou Lezhi."
 
-"Good name." Xu Ke said, "What's strange about it?"
+"A fine name." Xu Ke remarked. "What's peculiar about it?"
 
-"Originally he wasn't called Zhou Lezhi, only after a certain day did he become Zhou Lezhi."
+"Originally he wasn't called Zhou Lezhi. Only after a certain day did he become Zhou Lezhi."
 
-Xu Ke didn't understand for a moment and asked: "What does this mean?"
+Xu Ke didn't immediately grasp his meaning. "What do you mean by that?"
 
-"The current Zhou Lezhi is not Zhou Lezhi, but Zhou Lezhi's apprentice. Later, Zhou Lezhi disappeared, and he became Zhou Lezhi."
+"The current Zhou Lezhi is not the original Zhou Lezhi, but Zhou Lezhi's apprentice. Later, Zhou Lezhi disappeared, and the apprentice became Zhou Lezhi."
 
-"Damn, isn't this inheriting a name? We don't have this tradition either!" Xu Ke thought, then asked, "So what?"
+"Damn—isn't that inheriting a name? We don't have that tradition!" Xu Ke thought, then asked aloud, "So what of it?"
 
-"The current Zhou Lezhi inherited his master's mantle." Liu Sha said with a shiver, "These two, master and apprentice, didn't look alike at all to speak of, but in recent years, one increasingly feels the two are indistinguishable..."
+"The current Zhou Lezhi inherited his master's mantle." Liu Sha spoke with a visible shudder. "These two, master and apprentice, looked nothing alike originally. But in recent years, one increasingly feels the two have become indistinguishable..."
 
-"Speak more clearly." Xu Ke said, "What is the background of this old Zhou Lezhi, and how did the new one come out?"
+"Explain more clearly." Xu Ke said. "What is the background of this original Zhou Lezhi, and how did the new one come about?"
 
-Liu Sha smiled bitterly: "What I know is also limited. I came later than them. Their matters were mostly heard from others' mouths."
+Liu Sha smiled bitterly. "What I know is limited. I arrived later than they did. Most of what I know about them came from others' accounts."
 
-At that moment, he roughly recounted how the master and apprentice Zhou Lezhi came to the Wang mansion. He heard most of these things from Liu Zhao, Jin Wenchi, and others.
+He then roughly recounted how the master and apprentice Zhou Lezhi had come to the Wang mansion. Most of these details he had heard from Liu Zhao, Jin Wenchi, and others.
 
-Xu Ke was more surprised the more he listened. From his description, this "Old Zhou Lezhi" was very likely an accidental transmigrator like Black (*Heier*). But the description concerning him had a lot of supernatural plot points, like "flying heads in the sky" and such—that could be let pass, but the key was that "New Zhou Lezhi" was originally just a young lad who had studied for a few years in the countryside of Guangzhou. Under the master's teaching, his learning advanced by leaps and bounds. The most crucial thing was that Leng Ningyun said with certainty that "Mr. Le's" thinking was not like a scholar of this spacetime.
+The more Xu Ke listened, the more astonished he became. From this description, the "Old Zhou Lezhi" very likely was an accidental transmigrator like Hei'er. The accounts concerning him contained numerous supernatural elements—"flying heads in the sky" and such could perhaps be dismissed—but the crucial point was that "New Zhou Lezhi" had originally been merely a young lad with a few years of rural education near Guangzhou. Under his master's tutelage, his learning had advanced by leaps and bounds. Most critically, Leng Ningyun had stated with certainty that "Mr. Le's" thinking was unlike any scholar of this spacetime.
 
-Could it be that there really is "body seizing" or "soul travel" in this world? Thinking again, didn't we ourselves transmigrate from another spacetime...
+Could "body possession" or "soul transmigration" truly exist in this world? Then again, hadn't they themselves transmigrated from another spacetime...
 
-His materialistic view began to waver, but finally, pure rationality gained the upper hand. These were all just what Liu Zhao heard; it might not be impossible that Wang Yehao fabricated them to fool people. But one thing was certain: this Zhou Lezhi, whether new or old, definitely could not be separated from the old spacetime.
+His materialistic worldview began to waver, but ultimately pure rationality prevailed. All of this was merely hearsay through Liu Zhao—it wasn't impossible that Wang Yehao had fabricated these tales to deceive people. But one thing was certain: this Zhou Lezhi, whether new or old, was definitely connected to the old spacetime.
 
-"This Zhou Lezhi is indeed a strange man!" Xu Ke said, "I originally thought he was just an ordinary strategist, expectedly he has such hills and valleys in his chest!"
+"This Zhou Lezhi is truly an extraordinary figure!" Xu Ke exclaimed. "I originally assumed he was merely an ordinary strategist, yet he conceals such profound depths within!"
 
-"Yes, everyone around Stone Elder admires him tightly." Liu Sha said, "Master Wang says he knows the thoughts of the Australians like the palm of his hand."
+"Indeed, everyone around Stone Elder admires him greatly." Liu Sha said. "Master Wang claims he understands the Australians' thinking as clearly as the palm of his own hand."
 
-Xu Ke nodded slightly, calculating in his heart. This confession was too valuable, even more valuable than the Stone Elder group! This Liu Sha is a rare commodity to hoard!
+Xu Ke nodded slightly, calculating inwardly. This confession was extraordinarily valuable—even more valuable than the Stone Elder group itself! This Liu Sha was a rare prize worth hoarding!
 
-"Could this Mr. Zhou be the Daoist Furnace Stone in the correspondence?"
+"Could this Mr. Zhou be the 'Daoist Furnace Stone' mentioned in the correspondence?"
 
-"Yes, it is precisely him." Liu Sha said, "People around Stone Elder all use 'Daoist [Something]-Stone' as a code name."
+"Yes, that's precisely him." Liu Sha confirmed. "Everyone around Stone Elder uses 'Daoist [Something]-Stone' as a code name."
 
-"You are Daoist Wood-Stone, he is Daoist Furnace Stone. Who else?"
+"You are Daoist Wood-Stone, he is Daoist Furnace Stone. Who else is there?"
 
-"The private assistant around the Master who specializes in handling matters under Stone Elder's name, named Jin Wenchi; he is Daoist Gold Stone. There may be others, but I am not clear either."
+"The personal assistant at Master Wang's side who specializes in handling matters under Stone Elder's name is called Jin Wenchi—he is Daoist Gold Stone. There may be others, but I'm not aware of them."
 
-"Do these people all live inside the Wang mansion?"
+"Do all these people reside within the Wang mansion?"
 
-"Naturally not. Except for Daoist Gold Stone, each has a lodging. They absolutely do not leverage unless there is something. Someone mediates contact, meeting at designated places to discuss matters. If there is no urgent matter, they won't go to the Wang mansion either."
+"Naturally not. Except for Daoist Gold Stone, each has their own separate lodging. They never mobilize unless there's a specific need. Someone mediates contact, and they meet at designated locations to discuss matters. Unless it's urgent, they don't visit the Wang mansion either."
 
-Xu Ke nodded secretly. This set of practices had quite the concept of modern clandestine work. Wang's side used single-line contacts. There was no lateral contact between them. In this way, even if a heavyweight figure was netted, they couldn't provide too much intelligence.
+Xu Ke nodded to himself. These practices bore quite the hallmarks of modern clandestine tradecraft. Wang's organization operated through single-line contacts with no lateral communication between operatives. This way, even if a major figure was captured, they couldn't provide much intelligence.
 
-The key is that this is still in the Ming Dynasty's ruled area! The caution of the Stone Elder group can be seen.
+The key point was that this was still Ming Dynasty-controlled territory! The Stone Elder group's caution was remarkable.
 
-"Who was that person killed by you?"
+"Who was the person you killed?"
 
 "He was one of Master Wang's trusted aides, named Wang Liang."
 
 "He knew your lodging in Tongzhou?"
 
-"Yes. Usually, he was the one contacting me."
+"Yes. He was usually the one who contacted me."
 
-"You killed this person; was it because he knew your intention?"
+"You killed this man because he discovered your intentions?"
 
-"Exactly. I originally wanted to buy him off with silver, but unexpectedly he refused both soft and hard tactics. I could only finish him off." Liu Sha said resentfully, "Unexpectedly, he was already on guard!"
+"Precisely. I originally wanted to buy his silence with silver, but he refused both enticement and threats. I had no choice but to eliminate him." Liu Sha said resentfully, "But he was already on his guard!"
 
-Xu Ke had already mastered these situations. Asking again this time was to check for loop holes against the previous confession.
+Xu Ke was already familiar with these details. Asking again now served to check for inconsistencies against the earlier confession.
 
 "Did this Wang Liang know Zhou Lezhi?"
 
-"He knew him. He was an old servant by Master Wang's side."
+"He did. He was an old retainer at Master Wang's side."
 
 "Do you know Zhou Lezhi's whereabouts?"

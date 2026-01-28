@@ -1,191 +1,191 @@
 # Chapter 2709: The Capital (Part 65)
 
-The arrow flew parallel to the ground, maintaining its forward momentum.
+The arrow flew level with the ground, maintaining its forward momentum.
 
-The bowstring was drawn to the ear, the fletching paused by the corner of the mouth—"mouth holding the feather flower, ear listening to the string."
+The bowstring was drawn back to his ear, the fletching resting at the corner of his mouth—"mouth holding the feather flower, ear listening to the string."
 
-Eyes stared straight ahead, aiming with the arrowhead.
+His eyes fixed straight ahead, aiming along the arrowhead.
 
-Traditional bows had no sights; archers used the arrowhead or a point on the bow limb as a reference for aiming.
+Traditional bows had no sights; archers used the arrowhead or a point on the bow limb as their reference for aim.
 
-Liu Chang narrowed his eyes slightly. In his vision, the arrowhead was solid while the target was blurred. Based on his daily practice and feel, the aim point was too high. He adjusted the envisioned impact point, shifting his aim downward.
+Liu Chang narrowed his eyes slightly. In his vision, the arrowhead stood sharp and solid while the target blurred behind it. Drawing on years of practice and instinct, he sensed the aim point was too high. He adjusted his mental projection of the impact point, shifting his aim downward.
 
-Without a thumb ring, at the moment of release, the friction between the string and fingers would exacerbate string vibration, disturbing the stability of flight and lowering accuracy.
+Without a thumb ring, the friction between string and fingers at the moment of release would worsen string vibration, disturbing the arrow's flight and lowering accuracy.
 
-The bone thumb ring was smooth, creating low friction and little disturbance. The release was crisp and clean, increasing accuracy.
+The bone thumb ring was smooth, creating little friction and minimal disturbance. The release came crisp and clean, increasing accuracy.
 
-Liu Chang's thumb and index finger relaxed naturally, and the bowstring slid off the thumb ring.
+Liu Chang's thumb and index finger relaxed naturally, and the bowstring slipped from the thumb ring.
 
-After releasing the string, his drawing hand swung backward naturally with the momentum.
+After the release, his drawing hand swung backward with the momentum, following through.
 
-At the sound of the bowstring, the arrow slipped away like a swimming fish.
+At the twang of the bowstring, the arrow slipped away like a swimming fish.
 
-It was a good arrow with eagle fletching. The shaft twisted as it flew, its posture stable.
+It was a fine arrow with eagle fletching. The shaft spun as it flew, its posture stable.
 
-The arrow left the string. In his heart, he expected a hit; where it hit was up to fate.
+The arrow left the string. In his heart, he expected a hit; where it struck was up to fate.
 
-The archer opposite swayed; an arrow shaft was inserted in his throat.
+The enemy archer swayed. An arrow shaft protruded from his throat.
 
-Hit by the arrow, the enemy's hands lost strength. The bow and arrow in his hands went out of control. The arrow flew off, shooting diagonally into the sky—not high, falling powerlessly.
+Struck by the arrow, the enemy's hands lost their strength. His bow and arrow slipped from his control. His own shot flew wild, arcing diagonally into the sky—not high, falling powerlessly to earth.
 
-The archer fell to the ground, legs kicking, hands scratching the earth in a final death struggle.
+The archer collapsed, legs kicking, hands clawing at the dirt in a final death struggle.
 
-One step ahead of the enemy, a hair's breadth difference between life and death.
+One step ahead of the enemy. A hair's breadth difference between life and death.
 
-Seeing his companion fall, the second archer immediately turned and shot an arrow back.
+Seeing his companion fall, the second archer immediately spun and loosed an arrow in return.
 
-Disturbed by his companion's injury, the enemy's shot was slightly off.
+Shaken by his companion's fate, the enemy's shot flew slightly off.
 
-The enemy arrow grazed past Liu Chang's face, the whistle passing his ear. Liu Chang's heart was like an ancient well with no waves, unmoved.
+The arrow grazed past Liu Chang's face, its whistle passing his ear. Liu Chang's heart remained still as an ancient well, unmoved by ripples.
 
-Liu Chang took three arrows from his quiver, holding them in his front hand.
+Liu Chang drew three arrows from his quiver, holding them in his bow hand.
 
-Holding arrows in the front hand, using the "Jade Maiden Shuttling" style, was a rapid-fire method.
+Holding arrows in the bow hand and using the "Jade Maiden Shuttling" technique was a method for rapid fire.
 
-Pushing the back, drawing the bow, rapid continuous shooting.
+Pushing from the back, drawing the bow, shooting in swift succession.
 
-Sharp arrow energy, horn bow singing, the wind sobbing, arrow lights turning into starlight.
+Sharp arrow energy sang through the air, the horn bow humming, the wind sobbing as arrow lights became streaks of starlight.
 
-The first arrow hit the leg. The enemy dropped his bow, dragging the injured leg to flee.
+The first arrow struck the leg. The enemy dropped his bow and dragged his wounded leg as he tried to flee.
 
-The second arrow hit the back. The arrowhead entered from the back, piercing the chest. The enemy fell.
+The second arrow struck his back. The arrowhead entered from behind, piercing through to his chest. The enemy fell.
 
-The third arrow hit the back again. The two arrows clustered front and back, shafts almost sticking together. The enemy twitched, and in a moment, was silent.
+The third arrow struck his back again. The two arrows clustered close together, their shafts nearly touching. The enemy twitched once, and in a moment, fell silent.
 
-Old Feng, holding a short gun, advanced with the Mandarin Duck Formation. An enemy suddenly attacked from the side.
+Old Feng, gripping a short gun, advanced with the Mandarin Duck Formation. An enemy suddenly attacked from the flank.
 
-Old Feng let him get within two meters, held the gun with both hands, and knocked him down with one shot.
+Old Feng let him close to within two meters, braced the gun with both hands, and dropped him with a single shot.
 
-The gun flame flashed like a torch, and the report was heavy as a drum, stealing away the bandits' three souls and six spirits.
+The muzzle flash blazed like a torch, and the report boomed heavy as a drum, stealing the bandits' courage whole.
 
-Roving bandits were a rabble, seeking victory in one decisive rush. Once the battle turned unfavorable and morale wavered, they had no heart for prolonged fighting and collapsed immediately.
+Roving bandits were nothing but rabble, seeking victory in a single decisive rush. Once the battle turned against them and morale wavered, they had no stomach for prolonged fighting and collapsed immediately.
 
-As if hearing a starting gun, the remaining men's mental state collapsed. Losing all will to fight, they shouted and fled in all directions.
+As if a starting gun had fired, the remaining men's resolve shattered. Losing all will to fight, they shouted and scattered in every direction.
 
-Seeing the enemies fleeing, a commotion rose in the Mandarin Duck Formation.
+Seeing the enemies flee, a commotion stirred within the Mandarin Duck Formation.
 
-Zhao Liangjian shouted loudly: "Do not pursue poor bandits! Do not disorder the formation! Stabilize the line, let them flee for their lives."
+Zhao Liangjian shouted: "Do not pursue fleeing bandits! Do not break formation! Hold the line and let them run for their lives."
 
-Martial Yama knew the situation was hopeless. He turned to run, but his knee flared with pain—he had been hit by an arrow. *Plop*, he fell to his knees.
+Martial Yama saw that the situation was hopeless. He turned to flee, but his knee flared with pain—an arrow had found its mark. With a heavy thud, he dropped to his knees.
 
-Looking back, he saw a sturdy man standing sideways in the distance, holding a bow aimed at him.
+Looking back, he saw a sturdy man standing sideways in the distance, bow raised and aimed at him.
 
-Martial Yama gritted his teeth and forced himself up. The arrow shaft in his knee swayed, causing the arrowhead to tremble. His knee couldn't support him, and he fell to his knees a second time.
+Martial Yama gritted his teeth and forced himself up. The arrow shaft in his knee swayed, causing the embedded arrowhead to shift. His knee buckled under him, and he fell to his knees a second time.
 
-Pain in his shoulder—another arrow hit.
+Pain lanced through his shoulder—another arrow had struck home.
 
-Martial Yama dropped his saber, broke the shafts of the arrows in his two wounds with his bare hands, and walked with difficulty, limping. After running a distance, his breathing became ragged, his lungs burned, his injured leg seemed about to break, and the world in his eyes grew blurry. The sound of wind came from behind his head. *Bang*, a blow, and he lost consciousness.
+Martial Yama dropped his saber. With his bare hands, he snapped the shafts of the arrows in both wounds, then limped forward with agonizing effort. After staggering some distance, his breathing grew ragged. His lungs burned. His wounded leg felt ready to snap beneath him, and the world blurred before his eyes. Wind rushed behind his head. A heavy blow landed, and consciousness fled.
 
-When Martial Yama woke up, he was bound, his lungs still burning with pain.
+When Martial Yama awoke, he was bound, his lungs still burning with pain.
 
-He looked at the main road. The corpses were gone, surely dragged into the woods to be hidden. He turned his face and saw a guard beside him tilting a water skin, clear water flowing out.
+He looked toward the main road. The corpses were gone—surely dragged into the woods to be hidden. Turning his head, he saw a guard beside him tilting a waterskin, clear water flowing out.
 
-A charming woman bent over in front of him, lathering soap, scooping a handful of clear water to wash the blood from her hands and face.
+A striking woman bent before him, lathering soap, scooping handfuls of clear water to wash the blood from her hands and face.
 
-Martial Yama's throat gurgled. He swallowed a mouth of saliva with difficulty to moisten his cracked throat.
+Martial Yama's throat worked. He swallowed with difficulty, trying to moisten his cracked throat.
 
-Hearing the sound, the woman turned to look at him and said, "Pity, you woke up late. We don't need you to speak anymore; your companions have confessed everything."
+Hearing the sound, the woman turned to look at him. "Pity," she said. "You woke too late. We don't need you to talk anymore; your companions have already confessed everything."
 
-Martial Yama saw the two leading men behind the woman, clearly the bosses. He asked, "How about my brothers in the woods? Why didn't they charge out?"
+Martial Yama glimpsed the two men standing behind the woman, clearly the ones in charge. He asked, "What about my brothers in the woods? Why didn't they charge out?"
 
-The woman took a towel handed by Old Feng, wiped her hands, and smiled. "That group has already been completely killed by me."
+The woman accepted a towel from Old Feng, wiped her hands, and smiled. "That group has already been killed. By me."
 
-Martial Yama was startled. He looked at the woman and asked, "May I ask your great name?"
+Martial Yama started. He studied the woman and asked, "May I know your name?"
 
-The woman said, "I am Liao Sanniang."
+"I am Liao Sanniang," she said.
 
-Martial Yama nodded and said stiffly, "Good. Knowing whose hands I died in, I can be a ghost with understanding."
+Martial Yama nodded stiffly. "Good. At least I'll know whose hands killed me. I can be a ghost with understanding."
 
-Liao Sanniang wore a brimming smile and asked, "Won't you beg for mercy? Perhaps I'll spare your life."
+Liao Sanniang wore a bright smile. "Won't you beg for mercy? Perhaps I'll spare your life."
 
-Martial Yama spat on the ground and said, "The world is in decline, violent and evil; it's hard for people to find peace. This life has been useless—couldn't become an official, and even as a bandit, couldn't become a great fierce rebel. Eating grass roots and floating mud, living is boring. I've killed enough in this life, already worth it. Why beg like a convex pus bag? Besides..."
+Martial Yama spat on the ground. "The world has fallen into decline—violent and wicked. It's hard for anyone to find peace. This life has been worthless. Couldn't become an official, and even as a bandit, couldn't become a great and fearsome rebel. Eating grass roots and mud to survive—living has grown tiresome. I've killed enough in this life. It was already worth it. Why grovel and beg? Besides..."
 
-At this point, Martial Yama glanced at Liao Sanniang. "You definitely won't spare me."
+He paused, glancing at Liao Sanniang. "You'll never spare me anyway."
 
-Liao Sanniang raised her eyebrows slightly. "How so?"
+Liao Sanniang raised an eyebrow. "How do you figure?"
 
-Martial Yama sneered, "Hehe. Your eyes hold ruthlessness (*liqi*), and the corners of your mouth have killing lines. You are like me, both vicious tigers, always wanting to eat people. Saying this is just a cat playing with a mouse. I ask one thing before death: use my sword to cut off my head."
+Martial Yama sneered. "Heh. Your eyes hold ruthlessness, and the corners of your mouth carry killing lines. You and I are alike—both vicious tigers, always hungry for blood. This talk of mercy is just a cat toying with a mouse. I ask only one thing before I die: use my own sword to take my head."
 
-Liao Sanniang stared at Martial Yama. The smile lines at the corners of her mouth slowly retracted, her expression turning cold. After a while, she said, "A blood feud is settled between us. Letting you go back would make this route unsafe in the future, only adding trouble. To eliminate evil, one must pull up the root. I'll fulfill your wish. Brother Liu, trouble you to send him on his way."
+Liao Sanniang held his gaze. The smile lines at the corners of her mouth slowly faded, her expression turning cold. After a long moment, she spoke. "A blood debt lies between us now. Letting you go would only make this route unsafe in the future—nothing but trouble. To uproot evil, one must pull out the root. I'll grant your wish." She turned. "Brother Liu, please see him off."
 
-Liu Chang nodded, picked up Martial Yama's long saber from the ground, and with a guard, dragged Martial Yama into the woods.
+Liu Chang nodded, picked up Martial Yama's long saber from the ground, and with a guard's help, dragged him into the woods.
 
-A bit away from the main road, Liu Chang saw a huge basin-like pit ahead, suitable for dumping corpses. He and the guard dragged him to the edge of the pit and pressed Martial Yama down to kneel.
+Some distance from the main road, Liu Chang spotted a huge basin-shaped pit ahead—suitable for disposing of corpses. He and the guard hauled Martial Yama to the pit's edge and pressed him down to kneel.
 
-Kneeling by the pit, Martial Yama raised his head and said to Liu Chang, "If it were a foot battle with sabers, I would definitely beat you. Pity my martial arts couldn't be displayed. Just now, I should have been the one to go up and fight."
+Kneeling at the rim, Martial Yama raised his head and said to Liu Chang, "In a fair saber duel on foot, I would have beaten you. Pity my skills never got the chance. I should have been the one to step forward and fight."
 
-Liu Chang said, "I can draw a heavy hard bow; my waist and back are tough. I wouldn't necessarily crash to you in a saber fight. No matter who came up, it would be in vain. Our martial arts, formation, and equipment are all above yours. Even with twenty more men, you aren't our match."
+Liu Chang replied, "I can draw a heavy hard bow; my waist and back are strong. You wouldn't necessarily best me in a saber fight either. But it wouldn't have mattered who stepped forward—the result would have been the same. Our martial arts, our formation, our equipment—all surpass yours. Even with twenty more men, you'd be no match for us."
 
-Martial Yama looked at Liu Chang, snorted coldly, and said, "The Mandarin Duck Formation you use was created by Guardian Qi (*Qi Shaobao*). It's a military formation, most effective against roving soldiers. I'm a deserter; losing to the Mandarin Duck Formation is like being executed by military law. I die without injustice."
+Martial Yama looked at him, snorted coldly, and said, "The Mandarin Duck Formation you use was created by Guardian Qi. It's a military formation, most effective against scattered soldiers. I'm a deserter. Losing to the Mandarin Duck Formation is like being executed by military law. I die without injustice."
 
-Liu Chang looked around. Suddenly, he saw two half-rotted skeletons at the bottom of the big pit. The skeletons were covered in grass and mud, their eye sockets deep and terrifying.
+Liu Chang glanced around. Suddenly, at the bottom of the great pit, he caught sight of two half-rotted skeletons. They lay covered in grass and mud, their empty eye sockets dark and terrible.
 
-Liu Chang was stunned seeing them.
+Liu Chang froze at the sight.
 
-Seeing Liu Chang's strange expression, Martial Yama followed his gaze. Seeing the two skeletons, he was stunned at first, then laughed crazily.
+Noticing his strange expression, Martial Yama followed his gaze. When he saw the two skeletons, he stiffened—then burst into wild laughter.
 
-Liu Chang looked at him strangely and asked, "What are you laughing at?"
+Liu Chang looked at him oddly. "What are you laughing at?"
 
-Martial Yama said, "Those two skeletons are the daughters of a retired official. We robbed their family some time ago. After raping and playing with the two girls, we killed them. It was very enjoyable. Afterwards, we cut off their heads and threw them here. I had long forgotten. I didn't expect to meet them again at the brink of death. It's an ill-fated affinity (*nieyuan*)."
+Martial Yama said, "Those two skeletons are the daughters of a retired official. We robbed their family some time ago. After we raped and had our fill of the two girls, we killed them. Great fun, it was. Afterward, we cut off their heads and threw them here. I'd long forgotten. Didn't expect to meet them again at death's door. An ill-fated connection."
 
-Liu Chang frowned. "The dead haven't gone far; retribution is unfailing. The Way of Heaven claims lives; just right to use your head to sacrifice to the wronged souls."
+Liu Chang's brow furrowed. "The dead haven't gone far; retribution never fails. Heaven claims its debts. How fitting to use your head as a sacrifice to the wronged souls."
 
-Martial Yama glared ferociously at Liu Chang. "In eighteen years, I'll be reborn as a bandit again to rob and kill you lot."
+Martial Yama glared at him with fierce eyes. "In eighteen years, I'll be reborn a bandit again—to rob and kill your kind once more."
 
-Liu Chang cracked a mocking grin. "Good. At that time, I'll kill you again."
+Liu Chang cracked a mocking grin. "Good. When that time comes, I'll kill you again."
 
-After speaking, Liu Chang lifted the long saber in his hand, inspected it, and flicked the blade with his middle finger. *Ding*, a clear and melodious sound.
+With that, Liu Chang lifted the long saber in his hand, inspected the blade, and flicked it with his middle finger. A clear, melodious ring echoed out.
 
-Martial Yama turned his face and said, "I sharpened this knife all day yesterday; it's very sharp."
+Martial Yama turned his face aside. "I sharpened that blade all day yesterday. It's very sharp."
 
-Liu Chang said, "Sending you off well."
+Liu Chang said, "I'll send you off well."
 
-Martial Yama chuckled, "No need. Chop a few more times, let me savor the taste of death in detail."
+Martial Yama chuckled. "No need. Chop a few extra times. Let me savor the taste of death in full."
 
-Liu Chang shook his head. "I don't wish to torture others. My hand is steady; I guarantee it will be quick."
+Liu Chang shook his head. "I take no pleasure in torturing others. My hand is steady. I guarantee it will be quick."
 
-Martial Yama chuckled. "Alright, trouble you."
+Martial Yama gave a low laugh. "Fine, then. Much obliged."
 
-On Martial Yama's mud-covered neck, there was a flesh-white neck crease, like a marker line, blindingly white—the "beheading line."
+On Martial Yama's mud-caked neck, a pale crease of flesh stood out like a marker line, blindingly white—the beheading line.
 
-Liu Chang rubbed Martial Yama's neck with his left thumb, making the beheading line clear. His fingertips felt the clear joints.
+Liu Chang pressed his left thumb against Martial Yama's neck, making the line clear. His fingertips felt the distinct joints of the spine.
 
-Sure enough, as Martial Yama said, once the condemned man's neck was rubbed, his neck stiffened immediately, stretching straight to accept the blade.
+Sure enough, as Martial Yama had claimed, once the condemned man's neck was touched this way, it stiffened immediately, stretching straight to receive the blade.
 
-The long saber waved. The angle of the edge matched the trajectory of the swing. The sound of the blade was sharp. The cutting line perfectly overlapped the beheading line.
+The long saber swept down. The angle of the edge matched the arc of the swing. The blade sang through the air. The cutting line perfectly aligned with the beheading line.
 
-The head fell. The cross-section of the neck was smooth and flat. A jet of fresh blood spurted from the neck cavity. The head rolled down the slope of the pit edge to the bottom.
+The head fell. The cross-section of the neck was smooth and flat. A jet of fresh blood spurted from the severed cavity. The head tumbled down the slope of the pit's edge, rolling to the bottom.
 
-The head rolled, stained with crushed leaves and mud. Vaguely, the mouth moved twice, seemingly saying: "Good knife."
+The head rolled on, smeared with crushed leaves and mud. Faintly, the mouth seemed to move twice, as if saying: "Good blade."
 
-Martial Yama's head rolled to the bottom of the pit, colliding with the two skeletons, gathering into a triangle shape.
+Martial Yama's head came to rest at the pit's bottom, colliding with the two skeletons. The three skulls gathered into a triangle.
 
-Looking at the three skulls at the bottom of the pit, Liu Chang chanted silently: *Not human, not ghost; separation and chaos are miserable; life and death are impermanent. May the chaotic world end, protect you all, and may you all be people of peace in the next life.*
+Looking down at them, Liu Chang chanted silently: *Not human, not ghost; separation and chaos bring only suffering; life and death are impermanent. May this chaotic world end. May you all find protection. May you all be people of peace in your next lives.*
 
-Liu Chang kicked the headless corpse into the pit. Just as he lifted the saber to leave, a wisp of yin wind blew by his feet, making him cold.
+Liu Chang kicked the headless corpse into the pit. Just as he raised the saber to leave, a wisp of yin wind curled past his feet, and a chill ran through him.
 
-Liu Chang stopped and thought. He turned back to the pit edge, thrust the long saber into the earth with a *cha*, and said, "Your knife, returned to you."
+Liu Chang stopped. After a moment's thought, he turned back to the pit's edge, thrust the long saber into the earth with a solid sound, and said, "Your blade. Returned to you."
 
 Then he left the woods.
 
-Little Bazi looked into the woods and asked, "Those corpses..."
+Little Bazi gazed toward the trees. "Those corpses..."
 
-Old Feng interjected, "Every day in the Capital, more street corpses and starved bodies are hauled to Zuojiazhuang by cart than this. These roving bandits have no *Baojia* or village registration; no one looks for them, no one cares. If someone is kind enough to collect them, it's their luck; otherwise, heaven and earth will take them."
+Old Feng cut in, "Every day in the Capital, more street corpses and starved bodies get hauled to Zuojiazhuang by cart than lie here. These roving bandits have no village registration, no one to look for them, no one to care. If someone's kind enough to collect their remains, that's their fortune. Otherwise, heaven and earth will take them back."
 
-Pausing briefly, Old Feng added, "Not a single man lost. Good luck."
+After a brief pause, Old Feng added, "Not a single man lost. Good fortune."
 
 "What did the captives confess?" Sanniang asked casually.
 
-"There's a piece of news," Old Feng's eyes flashed. "I'll explain in detail at the estate. Should we bring them along to question further?"
+"There's one piece of news," Old Feng said, his eyes flashing. "I'll explain in detail at the estate. Should we bring them along for further questioning?"
 
-"No need," Liao Sanniang said. "These small fry won't know the key joints. Behead them all."
+"No need," Liao Sanniang said. "These small fry won't know anything important. Behead them all."
 
-Old Feng turned back into the woods.
+Old Feng turned back toward the woods.
 
-Seeing Little Bazi looking at her with a hint of fear in his eyes, Liao Sanniang asked, "What? Blaming me for being cruel?"
+Seeing the hint of fear in Little Bazi's eyes as he looked at her, Liao Sanniang asked, "What? Do you blame me for being cruel?"
 
-Little Bazi shook his head. "If a person isn't ruthless, it's hard to establish oneself. Living is hard to begin with."
+Little Bazi shook his head. "If a person isn't ruthless, it's hard to survive. Living is difficult enough as it is."
 
-Liao Sanniang fished out a copper coin. Flicking it with her thumb, she sent it flying far away and asked, "Guess which side is up? Words or back?"
+Liao Sanniang fished out a copper coin. With a flick of her thumb, she sent it spinning far through the air. "Guess which side lands up," she asked. "Words or back?"
 
 (End of Chapter)

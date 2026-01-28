@@ -1,77 +1,77 @@
 # Chapter 2859: Ma'niao Burger (1)
 
-Tan Shuangxi held the photography coupon tightly, his heart filled with gratitude. Without her help, today's trip would likely have been in vain.
+Tan Shuangxi clutched the photography coupon tightly, his heart swelling with gratitude. Without her help, today's outing would likely have been for nothing.
 
-For him, bringing his parents to Bairen Town wasn't easy. It wasn't because of inconvenient transportation, but because convincing them to "go into the city" was difficult. His parents were traditional "country folk" who harbored an instinctive fear of the city. Generations of experience had equated "going into town" with "being cheated" and "spending big money." For them, going to the "market" to attend the fair was the most formal outing. As for the county seat or prefectural capital, those were places one would absolutely never go unless necessary. Even after the Australians came and their son became a soldier, the couple's range of activity remained around the village. The "market" they frequented was the nearby "Ma'niao Town." In their view, Ma'niao was already a very bustling place that "had everything," so there was no need to go elsewhere.
+Bringing his parents to Bairen Town had not been easy. The difficulty lay not in transportation, but in convincing them to "go into the city" at all. His parents were traditional country folk who harbored an instinctive wariness of urban places. Generations of accumulated wisdom had taught them that "going to town" meant "getting swindled" and "spending big money." For them, attending the local fair at the "market" constituted the most formal outing imaginable. As for the county seat or prefectural capital—those were places one simply never went unless absolutely necessary. Even after the Australians arrived and their son enlisted as a soldier, the elderly couple's range of activity remained confined to the area around their village. The "market" they frequented was nearby Ma'niao Town, which they considered quite bustling—a place that "had everything," rendering trips elsewhere unnecessary.
 
-He looked back at his parents. They were looking at everything around them with trepidation, as if these things appeared fragile and terrifying. His mother was still nagging his father for dawdling and making them miss the public carriage. The Salt Field Village wasn't far from Bairen Town, especially with the public carriage and city rail; a round trip in one day was a very relaxing journey. Yet, he, a son who had traveled all over Liangguang, had unexpectedly not taken his parents on this trip for so many years. Thinking of this, a wave of guilt welled up in Tan Shuangxi's heart. He was determined to treat his parents well today.
+He glanced back at his parents. They surveyed their surroundings with visible trepidation, as though everything appeared simultaneously fragile and threatening. His mother was still chiding his father for dawdling and making them miss the public carriage. Salt Field Village wasn't far from Bairen Town, especially with the public carriage and city rail available; a round trip in a single day was perfectly relaxed. Yet he—a son who had traveled all across Liangguang—had inexplicably failed to bring his parents on such an outing for so many years. The realization stirred a wave of guilt in Tan Shuangxi's chest. He resolved to treat them well today.
 
-Leaving the photo studio, the family strolled all over Bairen Town, visiting those famous big shops. As noon approached, Tan Shuangxi planned to find a decent restaurant here to let his parents experience the enjoyment of a big meal. However, regarding what to eat, he met with resolute resistance from his parents. Just now, passing by the Peony Tower, he had already stepped inside but was dragged out by his parents. As they pulled him, they muttered, "It's so expensive, it's practically robbery," making him feel quite embarrassed.
+Leaving the photo studio, the family strolled through Bairen Town, visiting the famous large shops. As noon approached, Tan Shuangxi planned to find a respectable restaurant where his parents could experience the pleasure of a proper meal. However, his choice of dining venue met with resolute resistance. Passing by Peony Tower, he had already stepped inside when his parents dragged him back out, muttering "It's so expensive—practically robbery!" as they hauled him away, leaving him rather embarrassed.
 
-Next, they went to "South Country," but were again rejected by his parents. His father requested a bowl of Lingao rice noodles at a roadside stall, while his mother hoped to find a tea stall just to rest her feet, saying she had brought dry rations. Tan Shuangxi knew his parents were partly unaccustomed to eating at restaurants and partly acting out of an instinct to save money, but he still refused firmly.
+Next, they tried South Country, but his parents rejected that as well. His father requested a simple bowl of Lingao rice noodles from a roadside stall; his mother hoped to find a tea stall where she could rest her feet, claiming she had brought dry rations. Tan Shuangxi understood that his parents were partly unaccustomed to eating at restaurants and partly driven by an instinct to save money, but he refused firmly nonetheless.
 
-"We finally came out for a trip; we have to eat something good," he persuaded earnestly. "Besides, I have money now, a lot of money."
+"We've finally come out for a trip—we should eat something good," he urged. "Besides, I have money now. Plenty of it."
 
-"You haven't taken a wife yet! Besides, when you retire and come back, don't you have to set up some family property? Do you know everything has gone up in price now? Land has a price but no market!"
+"You haven't even taken a wife yet! And when you retire and come home, won't you need to establish some property? Do you know how much prices have risen? Land has value but no buyers!"
 
-"Yes, it's true you get paid a lot now, but what about the future? Can you be a soldier and get paid for a lifetime? You have to consider the future!"
+"Yes, you're paid well now, but what about the future? Can you be a soldier and draw wages forever? You have to think ahead!"
 
-Tan Shuangxi talked until his mouth was dry but couldn't convince his parents. Instead, he was scolded for "not knowing how to live a frugal life." Amidst this tug-of-war, the three of them arrived at the entrance of an inconspicuous small eatery.
+Tan Shuangxi talked until his mouth went dry, yet he couldn't sway his parents. Instead, they scolded him for "not knowing how to live frugally." Amid this tug-of-war, the three of them found themselves at the entrance of an inconspicuous little eatery.
 
-Posters were pasted at the entrance:
+Posters were pasted by the door:
 
-"Delicacies from the Fubo Army, the favorite of Army brothers!"
+"Delicacies from the Fubo Army—the favorite of Army brothers!"
 
 "The Army's strongest weapon is still the Ma'niao Burger!"
 
 "50% discount for soldiers during the trial operation period!"
 
-The three stood at the door of the eatery, looking at the signboard in confusion. What was a Ma'niao Burger? Tan Shuangxi knew Ma'niao Fort was the formal name for the Army's Ma'niao Base, essentially a place name.
+The three stood before the eatery, studying the signboard in confusion. What was a Ma'niao Burger? Tan Shuangxi knew that Ma'niao Fort was the formal name for the Army's Ma'niao Base—essentially just a place name.
 
-The eatery's facade was very "Australian style" in its simplicity, unlike the luxury of the cooperatives. If not for the words on the signboard, one wouldn't be able to tell it was a restaurant.
+The eatery's facade was simple in an "Australian style," unlike the ornate luxury of the cooperatives. Without the words on the signboard, one would never have guessed it was a restaurant.
 
-Although he didn't understand what Ma'niao Burger meant here, he understood that it sold cheap fast food and had "military style."
+Though he didn't understand what Ma'niao Burger meant in this context, he gathered that it sold cheap fast food with a "military style."
 
-"How about we taste our unit's food? They even offer a half-price discount."
+"How about we sample our unit's food? They're even offering half-price."
 
-This argument easily moved Tan Shuangxi's parents. The family walked in.
+This argument easily swayed Tan Shuangxi's parents. The family walked inside.
 
-The layout of the restaurant was a bit like a unit canteen. More than ten four-person tables were arranged neatly. There weren't many customers, and half the tables were empty, but there was no waiter to greet them. Just as they were dazed, a voice came from afar: "Guests at the door, find a seat yourselves, then come here to order."
+The restaurant's layout resembled a military canteen. More than a dozen four-person tables stood in neat rows. There weren't many customers—half the tables sat empty—yet no waiter came to greet them. Just as they stood there bewildered, a voice called out from within: "Guests at the door—find a seat yourselves, then come here to order!"
 
-Tan Shuangxi looked in the direction of the voice. Behind a half-height counter inside the restaurant, a man who looked like the owner was waving at him. After settling his parents at a table, Tan Shuangxi went to the owner.
+Tan Shuangxi looked toward the voice. Behind a half-height counter inside the restaurant, a man who appeared to be the owner was waving at him. After settling his parents at a table, Tan Shuangxi approached the counter.
 
-The owner wore an old uniform without rank or branch insignia and an apron printed with "Ma'niao Burger." On his chest, uncovered by the apron, was a red war wound ribbon. Undoubtedly, this was a veteran.
+The owner wore an old uniform stripped of rank and branch insignia, with an apron printed with "Ma'niao Burger" tied over it. On his chest, uncovered by the apron, a red war wound ribbon was pinned. Clearly, this was a veteran.
 
-"Sergeant Comrade, what would you like to eat? Our shop is newly opened!" The owner introduced with brows dancing. "Military style food! Especially the Grassland Series..."
+"Sergeant Comrade, what would you like to eat? Our shop just opened!" The owner introduced the fare with animated enthusiasm. "Military-style food! Especially the Grassland Series..."
 
-Hearing "Grassland Series," Tan Shuangxi's stomach instinctively produced some resistance. He thought, *Wait, are they really selling grassland dry rations?* For a moment, he regretted coming in.
+At the mention of "Grassland Series," Tan Shuangxi's stomach instinctively recoiled. *Wait—are they actually selling grassland dry rations?* For a moment, he regretted stepping inside.
 
-Seeming to see through his comrade's thoughts, the owner immediately explained: "The food sold in our shop is all military style, market products improved based on unit meals. The ingredients are exquisite, the flavor is superb, suitable for all ages..."
+Seeming to read his fellow soldier's thoughts, the owner quickly explained: "Everything we sell here is military-style, market products improved upon unit meals. Premium ingredients, superb flavor, suitable for all ages..."
 
-As he spoke, he took out an illustrated menu for Tan Shuangxi to order. Although he recognized every character, Tan Shuangxi didn't recognize any of the dishes. After looking for a while, he simply put a few bills on the table.
+As he spoke, he produced an illustrated menu for Tan Shuangxi to peruse. Though he recognized every character, Tan Shuangxi couldn't identify a single dish. After studying it for a moment, he simply laid several bills on the counter.
 
-"There are three of us. This is the money; you prepare whatever you see fit."
+"There are three of us. This is the money—prepare whatever you think best."
 
-This was his budget for the big meal today. He would let this unknown comrade arrange what to eat. Even if it wasn't delicious, he would treat it as helping a retired comrade.
+This was his budget for today's proper meal. He would let this unknown comrade decide what to serve. Even if it wasn't delicious, he could consider it helping a retired fellow soldier.
 
-"Where would I need this much?" The owner laughed, taking only one bill and pushing the others back. "I'll arrange it for you right away. Guaranteed satisfaction!" He then gave him a number plate.
+"This is far too much!" The owner laughed, taking only one bill and pushing the rest back. "I'll have it ready for you shortly. Satisfaction guaranteed!" He handed over a number plate.
 
-Returning to the table, his parents were taking out the results of the morning's shopping one by one to discuss. His mother lovingly stroked the fabric of the new clothes while complaining about Tan Shuangxi spending money recklessly and blaming his father for picking such a bright color. His father watched his mother's nagging cheerfully, putting on and taking off the new straw hat.
+Returning to the table, Tan Shuangxi found his parents examining the morning's purchases one by one. His mother stroked the fabric of the new clothes lovingly while complaining about Tan Shuangxi spending money recklessly and blaming his father for choosing such a bright color. His father watched his wife's nagging with cheerful contentment, putting on and taking off the new straw hat.
 
-The East Gate Market wasn't too lively in the morning. Only a small portion of shops were open, and most shop assistants were lazy and lacked enthusiasm for sales. Instead, Tan Shuangxi, holding a heart of filial piety, bought some new clothes and fabric for his parents. Seeing his parents saying no with their mouths but honestly loving the items, Tan Shuangxi felt an unprecedented satisfaction. The joy of his loved ones' happiness somewhat compensated for the regret of being in the army for years and unable to share his parents' worries.
+The East Gate Market hadn't been particularly lively that morning. Only a handful of shops had opened, and most of the shop assistants had been lazy, showing little enthusiasm for sales. Nevertheless, Tan Shuangxi, holding filial piety close to his heart, had bought new clothes and fabric for his parents. Watching them demur with their words while honestly cherishing the items, he felt an unprecedented satisfaction. The joy of seeing his loved ones happy somewhat compensated for the regret of spending years in the army, unable to share in his parents' burdens.
 
-"Customer Number 12, please come to the window to pick up your meal." Following the owner's shout, Tan Shuangxi got up and went to the counter. It turned out this shop didn't have waiters serving dishes; one had to pick them up directly when the number was called.
+"Customer Number 12, please come to the window to collect your meal." Following the owner's call, Tan Shuangxi rose and went to the counter. It seemed this shop didn't employ servers to bring dishes; customers had to retrieve their own orders when their number was called.
 
-Tan Shuangxi arrived at the pick-up cabinet. It was a large glass window, with the kitchen inside. Dishes were transported from there to the pick-up counter outside. At this moment, several plates were placed on a large tray, covered with oil paper lids for warmth. A heavy aroma of spices and grease wafted out, causing Tan Shuangxi to swallow involuntarily.
+Tan Shuangxi arrived at the pickup window—a large glass partition with the kitchen visible inside. Dishes were transported from there to the pickup counter outside. Several plates now sat on a large tray, covered with oil paper lids to retain warmth. A rich aroma of spices and grease wafted out, causing Tan Shuangxi to swallow involuntarily.
 
-The owner personally introduced the food to Tan Shuangxi: "Three Chicken Steak Ma'niao Burgers. Eat them while they're hot; they get a bit oily when cold. Six braised chicken wings. This is the Grassland Nutritious Porridge. The blanched vegetables are free; no charge. Come get more if not enough. There are also three bowls of Miso Soup; take these over first then come back for them."
+The owner personally introduced the food: "Three Chicken Steak Ma'niao Burgers. Eat them while they're hot—they get a bit greasy when cold. Six braised chicken wings. This is the Grassland Nutritious Porridge. The blanched vegetables are complimentary—no charge. Come get more if it's not enough. There are also three bowls of Miso Soup; take these over first, then come back for them."
 
-Since the dining table was small, it was filled to the brim with food, looking very lavish. The fragrance made the three of them drool, but for a moment, they didn't know how to start. Although there were chopsticks, this thing with two thick buns sandwiching meat and vegetables made them hesitate: if it were a steamed bun or biscuit, they would pick it up and eat it, but obviously, this wasn't a steamed bun. If they used chopsticks to pick it up, such a big thing would nine out of ten fall apart.
+The small dining table was filled to the brim with food, creating a lavish spread. The fragrance made all three of them salivate, yet for a moment, none knew quite how to begin. Though chopsticks were provided, this thing—two thick buns sandwiching meat and vegetables—gave them pause. If it were a steamed bun or biscuit, they would simply pick it up and eat. But this was clearly not a steamed bun. And if they tried to lift it with chopsticks, something this large would almost certainly fall apart.
 
-Pretending to be experienced, Tan Shuangxi stole a glance at the surrounding customers. Seeing them all using their hands, he relaxed. He mimicked the others, picking up a so-called Ma'niao Burger with oil paper and introducing it to his parents: "Time is tight when the Fubo Army marches and fights. Many times we eat directly with our hands like this." Saying so, he took a big bite. Instantly, a strong fragrance of fat filled his mouth. It turned out the Ma'niao Burger was two toasted rice cakes sandwiching a chicken meat patty. The meat patty was toasted crispy on the outside and tender on the inside, overflowing with juices as soon as he bit into it. Tiny bombs within the meat patty seemed to explode on the tip of his tongue, spraying the taste wrapped in rich meat fragrance violently, sprinting from the tongue tip to the forehead. Instantly, his face was slightly sweaty, and fragrance filled his lips. The rice cakes, having absorbed the meat juice, provided a crispy texture. The light vegetable leaves didn't destroy the rich meat fragrance but instead served as an embellishment. Taking another big bite, Tan Shuangxi remembered he had indeed eaten this thing, only separately. At that time, he held a rice cake in one hand and a meat patty in the other, and his eating manner was quite unsightly.
+Feigning experience, Tan Shuangxi stole a glance at the surrounding customers. Seeing them all eating with their hands, he relaxed. Mimicking the others, he picked up a so-called Ma'niao Burger with the oil paper and introduced it to his parents: "Time is tight when the Fubo Army is marching and fighting. Often, we eat directly with our hands like this." So saying, he took a generous bite. Instantly, a rich, fatty fragrance flooded his mouth. The Ma'niao Burger was two toasted rice cakes sandwiching a chicken meat patty. The patty was crispy on the outside and tender within, juices bursting forth with each bite. Tiny explosions of flavor seemed to detonate across his tongue, releasing the taste wrapped in rich meat essence, sprinting from tongue tip to forehead. In an instant, his face grew slightly damp with perspiration, and fragrance lingered on his lips. The rice cakes, having absorbed the meat juices, provided a satisfying crispness. The light vegetable leaves didn't overwhelm the rich meat flavor but served instead as a delicate accent. Taking another large bite, Tan Shuangxi recalled that he had indeed eaten this before—only the components had been separate. Back then, he'd held a rice cake in one hand and a meat patty in the other, and his manner of eating had been rather unsightly.
 
-His parents also carefully picked it up and took a bite, expressions of appreciation appearing on their faces. Watching the changes in his parents' expressions, Tan Shuangxi's heart was filled with happiness. His mother ate two bites, stopped, and asked Tan Shuangxi: "Do you eat this well every day in your unit?"
+His parents also picked up their burgers carefully and took tentative bites. Expressions of appreciation spread across their faces. Watching the change in their expressions, Tan Shuangxi's heart swelled with happiness. His mother ate two bites, then paused and asked: "Do you eat this well every day in your unit?"
 
-Regarding his mother's naive question, Tan Shuangxi felt a bit proud. Of course, it was impossible to eat this well in the unit; many times it was just about getting full. But to show off, and also to keep his parents from worrying, he couldn't help exaggerating the facts. "Not every day, but close enough. I can eat three of these in one meal." As soon as the words left his mouth, he regretted it because his parents stopped in unison. His mother handed over the Ma'niao Burger she had bitten twice and said softly: "I've tasted it; it is indeed quite delicious. You should eat this one. I brought dry rations." Saying so, she went to reach for her bundle.
+Regarding his mother's innocent question, Tan Shuangxi felt a touch of pride. Of course, it was impossible to eat this well in the unit—most of the time it was simply about getting full. But wanting to show off, and also to keep his parents from worrying, he couldn't help exaggerating. "Not every day, but close enough. I can eat three of these in one meal." The moment the words left his mouth, he regretted them, because his parents stopped eating in unison. His mother handed over the Ma'niao Burger she had bitten twice and said softly: "I've had a taste—it is indeed quite delicious. You should have this one. I brought dry rations." As she spoke, she reached for her bundle.
 
 **(End of Chapter)**

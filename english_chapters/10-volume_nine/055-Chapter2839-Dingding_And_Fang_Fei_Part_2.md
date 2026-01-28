@@ -1,99 +1,99 @@
 # Chapter 2839 Dingding and Fang Fei (Part 2)
 
-This question immediately stumped Dingding. The 1634 organizational restructuring had eliminated the "overseas station" institution. Hangzhou Station and similar behind-enemy-lines units came under the External Intelligence Bureau's jurisdiction. But Jeju Island, Kaohsiung, and Qimu Island, which had already received the Senate's blessings, were administratively assigned to Hainan Greater Region. In practice, being so far from the emperor, they were actually closer to Hangzhou Station and Qimu Island and Shengjing Station, while Hainan Greater Region's various documents never proactively mentioned these two places. There was a subtle trend toward becoming French overseas departments.
+The question left Dingding stumped. The 1634 organizational restructuring had abolished the "overseas station" system entirely. Hangzhou Station and similar behind-enemy-lines units now fell under the External Intelligence Bureau's jurisdiction. But Jeju Island, Kaohsiung, and Qimu Island—all having received the Senate's blessing—were administratively assigned to Hainan Greater Region. In practice, however, being so far from imperial oversight, these outposts maintained closer ties with Hangzhou Station, Qimu Island, and Shengjing Station, while Hainan Greater Region's official documents never proactively mentioned them. A subtle trend was emerging—something akin to French overseas departments.
 
-"What do you mean?" Dingding still couldn't grasp Fang Fei's point. What he hated most was the management art of state enterprise leaders speaking half-sentences and making people guess. He never expected Fang Fei, this bushy-browed showgirl mommy, to also enjoy this game.
+"What do you mean?" Dingding still couldn't grasp Fang Fei's point. What he despised most was the managerial art practiced by state enterprise leaders: speaking in half-sentences and forcing people to guess their meaning. He'd never expected Fang Fei—this bushy-browed former showgirl madam—to enjoy playing the same game.
 
-Of course, Fang Fei couldn't see Dingding's real thoughts. He silently finished his coffee—putting on a little show—before continuing.
+Of course, Fang Fei couldn't read Dingding's true thoughts. He silently finished his coffee—putting on a small performance—before continuing.
 
-"About half of these more complex matters are actually stuck at Jeju Island, Kaohsiung, and Qimu Island. I suspect that's why these departments are coming to us for coordination. I believe if we send telegrams one by one, we can definitely work it all out. But that's too inefficient. We need them to send people to interface and cooperate, to do the ground-level work for us. Of course, if we could send people to take positions inside their organizations, that would be even better. But there's definitely no time for that now."
+"About half of these more complex matters are actually stuck at Jeju Island, Kaohsiung, and Qimu Island. I suspect that's precisely why these departments have come to us for coordination. I believe if we send telegrams one by one, we can certainly work it all out. But that's far too inefficient. We need them to send people to interface and cooperate—to handle the ground-level work for us. Of course, if we could embed our own people within their organizations, that would be even better. But there's definitely no time for that now."
 
 "So you're saying we should ask Qian Shuiting to help coordinate?"
 
-Fang Fei set down the coffee cup. Seeing Dingding's still confused expression, he felt a twinge of pearls cast before swine. Places that Qian Shuiting himself didn't want to manage—if you went begging him to help coordinate, how could that possibly work out? If it could, people would've gone directly to Qian Shuiting. If Dingding showed up in Qian Shuiting's office tomorrow, it'd probably be worse than sending telegrams himself.
+Fang Fei set down his coffee cup. Seeing Dingding's still-confused expression, he felt a twinge of casting pearls before swine. These were places Qian Shuiting himself didn't want to manage—if you went begging him to help coordinate, how could that possibly work? If it could, people would have approached Qian Shuiting directly long ago. If Dingding showed up at Qian Shuiting's office tomorrow, the outcome would probably be worse than sending telegrams himself.
 
-"Qian Shuiting doesn't necessarily have more influence over these places than you..."
+"Qian Shuiting doesn't necessarily have more influence over these places than you do..."
 
-"I get it—you mean we need to find someone higher up!" Dingding slapped Fang Fei's thigh, pointing at the ceiling. "Right?"
+"I understand now—you mean we need to find someone higher up!" Dingding slapped Fang Fei's thigh and pointed at the ceiling. "Right?"
 
-"Yes and no." Fang Fei actually didn't have a complete answer to this question himself. But Dingding's Cultural Infiltration project had become Cultural Propaganda's flagship project—all prosper together. So he had to come offer strategies.
+"Yes and no." Fang Fei didn't actually have a complete answer to this question himself. But Dingding's Cultural Infiltration project had become Cultural Propaganda's flagship initiative—they would all prosper or fail together. So he had to come and offer strategies.
 
-"Stop being so mysterious. Spit it out." Dingding was getting impatient, raising his hand for another slap.
+"Stop being so mysterious. Just spit it out." Dingding was growing impatient, raising his hand for another slap.
 
-"Don't!" Fang Fei quickly grabbed his still-descending palm. "Slap your own leg."
+"Don't!" Fang Fei quickly caught his still-descending palm. "Slap your own leg."
 
-"Alright, alright, just tell me."
+"Alright, alright. Just tell me."
 
-Fang Fei thought for a moment: "Our Cultural Propaganda sector is just a second-tier department in the Council of State system. We can't shoulder a project this big. By protocol, Old Hu should be our project team leader. But..."
+Fang Fei considered for a moment. "Our Cultural Propaganda sector is merely a second-tier department in the Council of State system. We can't shoulder a project this large on our own. By protocol, Old Hu should serve as our project team leader. But..."
 
-He left the "but" unfinished, but Dingding understood his meaning. Hu Qingbai actually cared about his education work. He took a laissez-faire approach to research and propaganda—just nominally serving as administrative head. Actual matters were decided by the second-tier department heads.
+He left the "but" unfinished, yet Dingding understood his meaning. Hu Qingbai genuinely cared about his education work. He took a laissez-faire approach toward research and propaganda—serving only nominally as administrative head. Actual decisions fell to the second-tier department heads.
 
-So expecting Hu Qingbai to step up was unrealistic. In a sense, he was also someone Dingding needed to "coordinate" with.
+So expecting Hu Qingbai to step up was unrealistic. In a sense, he too was someone Dingding needed to "coordinate" with.
 
-The project team leader had to be someone at "Minister" level, or though not currently a Minister, a Senator who'd previously held such positions.
+The project team leader had to be someone at Minister level—or, though not currently a Minister, a Senator who had previously held such positions.
 
-Counting on fingers, there weren't more than a dozen such people.
+Counting on their fingers, there were no more than a dozen such people.
 
 "What if they're unwilling?"
 
-"They actually have no reason to be unwilling. The so-called project leadership is basically nominal. Borrow a name and hang it up." Fang Fei said. "If Director Wen hadn't gone to Guangzhou, I think he'd be quite suitable."
+"They actually have no reason to refuse. The so-called project leadership is essentially nominal—borrow a name and hang it up." Fang Fei said. "If Director Wen hadn't gone to Guangzhou, I think he'd be quite suitable."
 
-"But isn't Director Wen in Guangzhou even more suitable? This is our Mainland Infiltration Plan after all."
+"But isn't Director Wen being in Guangzhou even more suitable? This is our Mainland Infiltration Plan, after all."
 
-"He's in Guangzhou managing the Two Guangs. It's hard for him to exert influence on Council of State matters here." Fang Fei reminded him. "Others can all be considered. The downside is they might not be willing to stand up for us now."
+"He's in Guangzhou managing the Two Guangs. It's difficult for him to exert influence on Council of State matters from there." Fang Fei reminded him. "Others can all be considered. The downside is they might not be willing to stand up for us right now."
 
 "So that means Ma Qianzhu won't work either."
 
-"That depends on his mood." Fang Fei said. "I'm more optimistic about Comrade Wu De. His current position is very important, but he can't hold it forever. If he can add some achievements, next General Congress there's potential for a push at Council of State Premier or Senate Chairman."
+"That depends on his mood." Fang Fei said. "I'm more optimistic about Comrade Wu De. His current position is very important, but he can't hold it forever. If he can add some achievements to his record, next General Congress there's potential for a push at Council of State Premier or Senate Chairman."
 
-"With him as team leader, things would work out." Dingding nodded repeatedly. "Or Minister Cheng would work too."
+"With him as team leader, things would definitely work out." Dingding nodded repeatedly. "Or Minister Cheng would work too."
 
-These two were both "gods of wealth." Pulling in either would benefit the whole project.
+These two were both "gods of wealth." Pulling in either would benefit the entire project.
 
 "Cheng Dong is unlikely. He doesn't like getting involved in other affairs."
 
-"Your suggestion really opens my mind." Dingding slapped his own thigh. "Many hands make light work! You're really our Cultural Propaganda sector's Zhuge Liang..."
+"Your suggestion really opens my mind." Dingding slapped his own thigh. "Many hands make light work! You're truly our Cultural Propaganda sector's Zhuge Liang..."
 
-"Don't—don't call me Zhuge Liang." Fang Fei waved his hands quickly. "But for a project this big, you need to get yourself a capable assistant to help."
+"Don't—don't call me Zhuge Liang." Fang Fei waved his hands quickly. "But for a project this large, you need to get yourself a capable assistant to help."
 
 "Aren't you suitable?"
 
-"Count me out." Fang Fei shook his head. "Among us in Cultural Propaganda, the most suitable to be your deputy is He Fanghui. He's in Sanya now. I suggest you quickly transfer him back specifically for this..."
+"Count me out." Fang Fei shook his head. "Among us in Cultural Propaganda, the most suitable person to serve as your deputy is He Fanghui. He's in Sanya now. I suggest you transfer him back quickly, specifically for this..."
 
-At the mention of He Fanghui, Dingding hesitated. Because this Senator, though not ignorant of "Culture" and "Propaganda," basically knew very little. So within Cultural Propaganda, He Fanghui rarely worked at headquarters. Most of his time was spent leading the "Touring Propaganda Team" everywhere, doing "mobile propaganda" work.
+At the mention of He Fanghui, Dingding hesitated. This Senator, though not entirely ignorant of "Culture" and "Propaganda," essentially knew very little about either field. So within Cultural Propaganda, He Fanghui rarely worked at headquarters. Most of his time was spent leading the "Touring Propaganda Team" around the territories, conducting "mobile propaganda" work.
 
-Apparently seeing Dingding's doubts, Fang Fei continued: "Though his expertise might be slightly lacking, he knows how to work with people and can get things done. You'll have plenty to deal with..."
+Apparently sensing Dingding's doubts, Fang Fei continued: "Though his expertise might be somewhat lacking, he knows how to work with people and can get things done. You'll have plenty to deal with already..."
 
-Dingding thought about it and indeed that was true. Seeing the leader's expression relaxing, Fang Fei quickly got back on topic. He pulled out a stack of papers and handed them to Dingding: "These are some crosstalk draft scripts. Please review them and see what needs revision."
+Dingding thought it over, and indeed that was true. Seeing the leader's expression soften, Fang Fei quickly returned to the matter at hand. He pulled out a stack of papers and handed them to Dingding: "These are some crosstalk draft scripts. Please review them and see what needs revision."
 
-This was a project Fang Fei and Wang Tao had collaborated on: prematurely birthing crosstalk. This art form had low requirements for venue and costumes—particularly suitable for cultural promotion. So it had recently been added to the Drama Society's innovation list by Wang Tao.
+This was a project Fang Fei and Wang Tao had collaborated on: prematurely birthing the art of crosstalk. This performance form had minimal requirements for venue and costumes—making it particularly suitable for cultural promotion. So it had recently been added to the Drama Society's innovation list by Wang Tao.
 
-The stack Fang Fei brought was all crosstalk routines. This project had been discussed before. Initially, the reference direction was traditional crosstalk like "Hawking Cloth" and "Snatching the Ma Gua." But later they discovered these crosstalk pieces had too much Qing-era and Republican-era Beijing local flavor—too traditional for Senators, too "modern" for natives. They'd need massive revision. In the end, only pieces like "Fortune-Telling" with social criticism elements were selected; other routines would be rewritten by people under Fang Fei's direction. Some "modern" crosstalk was selectively referenced.
+The stack Fang Fei brought consisted entirely of crosstalk routines. This project had been discussed before. Initially, they had looked to traditional crosstalk pieces like "Hawking Cloth" and "Snatching the Ma Gua" for reference. But later they discovered these routines carried too much Qing-era and Republican-era Beijing local flavor—too traditional for Senators, too "modern" for natives. They would require massive revision. In the end, only pieces like "Fortune-Telling" with social criticism elements were selected; other routines would be rewritten by people under Fang Fei's direction. Some "modern" crosstalk was selectively referenced as well.
 
-Dingding picked up one page. The title was "Western Expedition Dream." Below the title, instead of the crosstalk script, was a text explanation: "This work is primarily performed in Mandarin, suitable for Senate-ruled territories, not suitable for Ming-occupied areas. Optimal audience: naturalized citizens with Mandarin listening and speaking ability. For performance in Jeju Island, Kaohsiung, and Two Guangs regions, versions may use Mandarin with Shandong dialect accent or Cantonese version based on audience composition. No Korean version provided."
+Dingding picked up one page. The title read "Western Expedition Dream." Below the title, instead of the crosstalk script itself, was a text explanation: "This work is primarily performed in Mandarin, suitable for Senate-ruled territories, not suitable for Ming-occupied areas. Optimal audience: naturalized citizens with Mandarin listening and speaking ability. For performance in Jeju Island, Kaohsiung, and the Two Guangs regions, versions may use Mandarin with a Shandong dialect accent or a Cantonese version based on audience composition. No Korean version provided."
 
-"Pretty thorough—even promoting Mandarin is included." Dingding silently approved.
+*Pretty thorough—even Mandarin promotion is included*, Dingding silently approved.
 
-Dingding flipped through randomly. The other scripts were similar—local adaptations of existing material. But the effect was somewhat unsatisfying. Always felt like scratching an itch through clothes. Clearly these scripts needed to be written based on real life.
+Dingding flipped through randomly. The other scripts were similar—local adaptations of existing material. But the effect was somewhat unsatisfying. It always felt like scratching an itch through one's clothes. Clearly, these scripts needed to be written based on real life.
 
 "And the performers?"
 
-"Wang Tao's opinion is to select from Drama Society performers—quite a few vagrant artists there, lots of people desperate to make money. As long as you're willing to teach, they'll learn like their lives depend on it..."
+"Wang Tao's opinion is to select from Drama Society performers—quite a few vagrant artists there, plenty of people desperate to make money. As long as you're willing to teach, they'll learn like their lives depend on it..."
 
-"They might not need to stake their lives." Dingding was unimpressed. "Most vagrant artists recruited by Drama Society have poor education levels. C-grade diploma rate isn't even half. Too low. Even if we produce a few star performers, without creative ability, relying on others for material, they'll hit a dead end eventually."
+"They might not need to stake their lives." Dingding was unimpressed. "Most vagrant artists recruited by the Drama Society have poor education levels. The C-grade diploma rate isn't even half. Far too low. Even if we produce a few star performers, without creative ability and relying on others for material, they'll hit a dead end eventually."
 
-"Yes, yes, you're absolutely right." Fang Fei nodded repeatedly. "I'll talk to Wang Tao properly!"
+"Yes, yes, you're absolutely right." Fang Fei nodded repeatedly. "I'll speak with Wang Tao properly!"
 
-"Also, the large group calisthenics you said you'd prepare—need to hurry that up." Dingding suddenly remembered. "Though welcome ceremonies were held as troops came back, I'm guessing there'll most likely be some kind of victory celebration. Group calisthenics will definitely be needed then—how's the background card section training going?"
+"Also, the large group calisthenics you said you'd prepare—we need to hurry that up." Dingding suddenly remembered. "Though welcome ceremonies were held as troops returned, I'm guessing there'll most likely be some kind of victory celebration. Group calisthenics will definitely be needed then—how's the background card section training going?"
 
-"Hu Qingbai won't approve leave time. Says it's a waste. You know how he always is..." Fang Fei was helpless.
+"Hu Qingbai won't approve the leave time. He says it's a waste. You know how he always is..." Fang Fei was helpless.
 
-Dingding furrowed his brow, thinking this really was troublesome. Would have to get Ma Qianzhu to coordinate again. Department leadership not even supporting internal department matters—difficult!
+Dingding furrowed his brow, thinking this was truly troublesome. He would have to get Ma Qianzhu to coordinate again. When department leadership wouldn't even support internal department matters—that was difficult indeed!
 
-"This is all public sentiment," Dingding said earnestly at the Council of State regular meeting. After reporting the Cultural Strategy's interim results, he threw out this coordination organizer question: "I personally agree. In terms of professional fit, Chairman Wang commanded Operation Giant—far more complex than our little project."
+"This is all public sentiment," Dingding said earnestly at the Council of State regular meeting. After reporting the Cultural Strategy's interim results, he raised the coordination organizer question: "Personally, I agree with the proposal. In terms of professional fit, Chairman Wang commanded Operation Giant—far more complex than our modest project."
 
-Wang Luobin was quite pleased with Dingding's flattery. He did rather miss commanding large forces. But thinking about how tedious, complex, and lacking in short-term results this work was, a wave of irritation rose in his heart. Where was the fun compared to tinkering on optical rangefinders with Lin Hanlong?
+Wang Luobin was quite pleased with Dingding's flattery. He did rather miss commanding large forces. But thinking about how tedious, complex, and lacking in short-term results this work would be, a wave of irritation rose in his heart. Where was the satisfaction compared to tinkering on optical rangefinders with Lin Hanlong?
 
-"Thanks to Comrade Ding and everyone's trust. But currently I really don't have the energy. Besides my regular duties, the optical rangefinder project really can't spare me. Last week the sample was tested at the range—at 3,000 meters, error 150 meters; at 1,000 meters, error 10 meters. I'd say it already has practical value. I estimate with a few more months of effort, if we can halve the error, that'll be a force multiplier for our artillery."
+"Thanks to Comrade Ding and everyone for their trust. But currently I truly don't have the energy. Besides my regular duties, the optical rangefinder project really can't spare me. Last week the sample was tested at the range—at three thousand meters, the error was a hundred and fifty meters; at one thousand meters, the error was just ten meters. I'd say it already has practical value. I estimate with a few more months of effort, if we can halve the error, that'll be a force multiplier for our artillery."
 
 (End of Chapter)

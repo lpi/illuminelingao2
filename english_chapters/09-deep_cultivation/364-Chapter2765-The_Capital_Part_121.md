@@ -2,156 +2,156 @@
 
 "Where are this father and son now?"
 
-"The last time I saw them was in Guangzhou. Afterward, I didn't know their whereabouts." Liu Sha said, "This Gou Xunli has now changed into monk's robes, with the Dharma name Haixiang. However, ever since you required monks and Daoists to register, he probably doesn't dare to operate under this identity anymore. But, he is definitely still in Guangdong."
+"The last time I saw them was in Guangzhou. After that, I lost track of their whereabouts." Liu Sha paused. "This Gou Xunli has since donned monk's robes and taken the Dharma name Haixiang. However, ever since you required monks and Daoists to register, he probably doesn't dare operate under that identity anymore. But I'm certain he's still in Guangdong."
 
-"You are this certain?"
+"You seem quite sure of that."
 
-"He is completely useless in the Capital, so naturally he must stay in Guangdong. He is deeply involved in the affairs of the religious sects."
+"He's completely useless in the Capital, so naturally he'd stay in Guangdong. He's deeply entangled in the affairs of the religious sects."
 
 "What about Gou Chengxuan?"
 
-"This person's whereabouts are unknown to this Poor Daoist as well." Liu Sha spread his hands. "He disappeared after Master Wang left his post in Guangdong. I don't know if he stayed in Guangdong or went elsewhere."
+"That person's whereabouts are unknown to this Poor Daoist as well." Liu Sha spread his hands. "He vanished after Master Wang left his post in Guangdong. Whether he remained there or went elsewhere, I cannot say."
 
 "Does this Monk Haixiang have an ordination certificate?"
 
-"Where in the Great Ming do monks have ordination certificates?" Liu Sha sneered, "It would be strange if they did. However, he did burn ordination scars."
+"Where in the Great Ming do monks have ordination certificates?" Liu Sha sneered. "It would be strange if they did. He did burn ordination scars into his scalp, though."
 
-In the early Ming, the management of Buddhist and Daoist monks was extremely strict, and the procedures for becoming a monk were cumbersome. Such strict management resulted in monks and Daoists generally having no ordination certificates by the middle of the dynasty. exactly how many monastics there were became a messy account.
+In the early Ming, the management of Buddhist and Daoist clergy had been extremely strict, with cumbersome procedures for taking monastic vows. Such stringent control ironically resulted in most monks and Daoists lacking ordination certificates by the middle of the dynasty. The exact number of monastics became impossible to account for.
 
-This piece of intelligence from Liu Sha, apart from explaining that the Gou father and son were still around, actually didn't have much significant meaning. Moreover, based on his description, compared to the "simulation portraits" seen in the archives in the past, the appearances of both men had undergone major changes.
+This intelligence from Liu Sha, apart from confirming that the Gou father and son were still active, held little practical significance. Moreover, based on his description, both men's appearances had changed drastically compared to the "simulation portraits" in the archives.
 
-"Daoist Priest, this news of yours is quite important. The Senate indeed has long wanted to eliminate the Gou father and son quickly. It's just that the appearances of these two are already vastly different from the past." Xu Ke was slightly disappointed. "I'm afraid even if he stood in front of me now, I wouldn't recognize them."
+"Daoist Priest, your news is quite valuable. The Senate has long wished to eliminate the Gou father and son." Xu Ke's voice carried a note of disappointment. "It's just that these two now look vastly different from before. I'm afraid even if one of them stood before me now, I wouldn't recognize him."
 
-"I do have another piece of news that can help you capture this Gou Xunli."
+"I do have another piece of information that might help you capture this Gou Xunli."
 
 "Oh?"
 
-"Although this Poor Daoist is unclear about this person's specific location in Guangdong, the last place he went was Xiangshan County. It seems they are preparing some action there."
+"Though this Poor Daoist is uncertain of his exact location in Guangdong, the last place he traveled to was Xiangshan County. It seems they're preparing some kind of operation there."
 
-This was an extremely crucial piece of news. Xu Ke asked with interest, "Is the uprising planned by Master Liang waiting for the Imperial Court's grand army before launching?"
+This was crucial intelligence. Xu Ke leaned forward with interest. "Is the uprising planned by Master Liang waiting for the Imperial Court's grand army before launching?"
 
-"This, this Poor Daoist is also unclear." Liu Sha shook his head, "Mr. Le strongly disapproved of Master Liang's uprising. He said that apart from sending many loyal and brave men to their deaths in vain, it had no other use."
+"That, this Poor Daoist is also unclear about." Liu Sha shook his head. "Mr. Le strongly disapproved of Master Liang's uprising. He said it would accomplish nothing except sending many loyal and brave men to their deaths in vain."
 
 "What about Master Wang?"
 
-"He was indifferent." Liu Sha said, "Anyway, the losses would be Liang Cunhou's men and horses."
+"He was indifferent." Liu Sha shrugged. "After all, the losses would be Liang Cunhou's men and horses, not his."
 
-"So, ‘Old Stone’ has no intention of getting involved in this matter."
+"So 'Old Stone' has no intention of involving himself in this matter."
 
-"Precisely." Liu Sha said, "Old Stone doesn't have many people and can't afford to waste them on this. Mr. Le's intention was for the various forces in Guangdong to hide; the teams don't need to be large, and definitely shouldn't establish strongholds. They should gather only when taking action. giving the Australian thieves a cold blow: killing a few Fake Australians, setting fire to Australian properties, kidnapping merchants attached to the Australians, ambushing cargo ships halfway..."
+"Precisely." Liu Sha nodded. "Old Stone doesn't have many people and can't afford to waste them on such ventures. Mr. Le's strategy was for the various forces in Guangdong to go into hiding. Keep the teams small, he said, and absolutely avoid establishing fixed strongholds. Gather only when striking, then scatter again. Deal the Australian thieves cold, unexpected blows: assassinate a few Fake Australians, set fire to Australian properties, kidnap merchants collaborating with the Australians, ambush cargo ships en route..."
 
-"Harassment." Xu Ke thought this Zhou Lezhi was really cunning enough; this was planning to wage guerrilla warfare!
+"Harassment." Xu Ke recognized the approach immediately. This Zhou Lezhi was truly cunning—he was planning to wage guerrilla warfare!
 
-"This Mr. Le of yours is truly a rare talent!"
+"This Mr. Le of yours is a rare talent indeed!"
 
-"Who says he isn't? This Poor Daoist also admires him tight."
+"Who would disagree? This Poor Daoist admires him greatly as well."
 
-"I want to catch this Mr. Le now; do you have any methods?" Xu Ke smiled.
+"I'd very much like to catch this Mr. Le. Do you have any suggestions?" Xu Ke smiled.
 
-"This Poor Daoist has said, he operates alone; this Poor Daoist also does not know his whereabouts..."
+"As this Poor Daoist has said, he operates alone. I don't know his whereabouts either..."
 
-"The Capital is only so big; presumably, he won't run around everywhere. There must be some places he frequents."
+"The Capital is only so large. Surely he doesn't wander everywhere at random. There must be places he frequents."
 
-Liu Sha hesitated for a moment and said, "There is a residence Mr. Le used to live in that this Poor Daoist has been to. It's just that Mr. Le hasn't lived there for a long time."
+Liu Sha hesitated before answering. "There is a residence where Mr. Le once lived that this Poor Daoist has visited. However, Mr. Le hasn't been there for quite some time."
 
 "Where is it?"
 
-"Right at the Wanggong Factory."
+"At Wanggong Factory."
 
-"Wanggong Factory?" This name was thunderous to the ears of all Senators. After all, that "Tianqi Explosion" as an "inconceivable event" had long callused their ears.
+"Wanggong Factory?" The name was thunderous in the ears of all Senators. After all, the "Tianqi Explosion" had long been classified as an "inconceivable event," and they had heard about it until their ears were calloused.
 
-"Wasn't that place blown up?"
+"Wasn't that place destroyed in the blast?"
 
-"After it was blown up, people naturally went back to live there. The land in the Capital is worth an inch of gold; how could there be vacant places? It's just that the markets haven't recovered to their former state yet."
+"After it was destroyed, people naturally returned to live there. Land in the Capital is worth its weight in gold—how could any plot remain vacant? The markets simply haven't recovered to their former glory yet."
 
 "Where specifically?"
 
-Liu Sha did not hide it either and described the orientation and appearance of the residence on the spot.
+Liu Sha didn't withhold the information, describing the residence's location and appearance in detail.
 
-"Is anyone still living inside?"
+"Is anyone still living there?"
 
 "Mr. Zhou's two concubines and two children."
 
-"Children? He has children?!" Xu Ke felt like he heard big news. "What are their names?"
+"Children? He has children?!" Xu Ke felt as though he'd stumbled upon major news. "What are their names?"
 
-"The older one is a girl, called Zhou Juli (Curie), and the younger one is a boy, called Zhou Niudun (Newton)."
+"The elder is a girl, called Zhou Juli. The younger is a boy, named Zhou Niudun."
 
-These two names were given with extreme badassery. Needless to say, Zhou Lezhi was definitely a science and engineering man. He also married two wives; impressive, impressive.
+These two names were given with extreme audacity—Curie and Newton. Needless to say, Zhou Lezhi was definitely a man of science and engineering. And he'd married two wives besides. Impressive, truly impressive.
 
-"It will be easy to handle if he has family dependents." Xu Ke laughed.
+"Having family dependents makes things much easier to handle." Xu Ke laughed.
 
-Liu Sha looked at him somewhat strangely, and Xu Ke realized he had thought in the wrong direction.
+Liu Sha regarded him with a strange expression, and Xu Ke realized his thinking had veered in the wrong direction.
 
-"Does this disciple not go to visit his mistress-mother?"
+"Does this disciple not visit his mistresses?"
 
-"Mr. Le said it's safer not to visit them. With Master Wang looking after them, they won't suffer grievances."
+"Mr. Le said it's safer not to visit them. With Master Wang looking after the household, they won't suffer any grievances."
 
-"Are there any letters, notes, or similar things remaining in the residence?"
+"Are there any letters, notes, or similar materials remaining in the residence?"
 
-"None. Mr. Le took everything away; a total of three large carts of things."
+"None. Mr. Le took everything away—a full three carts of belongings."
 
-"Where were they transported to?"
+"Where were they transported?"
 
-"Probably to Master Wang's residence. This Poor Daoist does not know the specific whereabouts."
+"Probably to Master Wang's residence. This Poor Daoist doesn't know the specific location."
 
-Although Liu Sha spoke very certainly and had no need to deceive him, this Zhou Lezhi very likely still hid some important documents inside the residence. Just like the correspondence Liu Sha hid in his study.
+Although Liu Sha spoke with certainty and had no reason to deceive him, Zhou Lezhi might very well have hidden important documents inside that residence. Just as Liu Sha had concealed correspondence in his own study.
 
-A lonely visitor from another spacetime inevitably has a strong desire to confide, and nine out of ten times would not be resigned to letting his unique encounter vanish just like that. It was very possible he secretly left written materials.
+A lonely visitor from another spacetime inevitably harbored a strong desire to confide. Nine times out of ten, such a person wouldn't be content to let their extraordinary experience vanish without a trace. It was entirely possible he had secretly left written materials behind.
 
-As for his wives and children, for the sake of caution, it was best to control them too. While the children were small, the wives were adults. It was hard to say what this Zhou Lezhi had told them, or what they had seen.
+As for his wives and children, caution dictated they should be brought under control as well. The children were young, but the wives were adults. There was no telling what Zhou Lezhi might have revealed to them, or what they themselves had observed.
 
-"So, this Mr. Zhou had quite a few things in the residence at that time?"
+"So this Mr. Zhou had quite a few belongings in the residence at that time?"
 
-"More than quite a few; it was several rooms full of objects."
+"More than quite a few—several rooms were packed full."
 
-"What kind of things were they?" Xu Ke immediately became interested.
+"What kind of things?" Xu Ke's interest sharpened immediately.
 
-"Mostly Australian goods." Liu Sha said that whether Zhou Lezhi was accompanying Wang Yehao to his post in Guangdong or staying in the Capital, he would send people to secretly purchase all kinds of Australian goods and some Australian books. These Australian goods were mostly unpopular Australian scientific instruments and experimental equipment.
+"Mostly Australian goods." Liu Sha explained that whether Zhou Lezhi was accompanying Wang Yehao to his post in Guangdong or remaining in the Capital, he would send people to secretly purchase all manner of Australian merchandise and books. These goods were mostly unpopular Australian scientific instruments and experimental equipment.
 
-"...He had a study room specifically where he had tables and cabinets made to order. It was filled with these Australian artisan tools. Every three or five days he would toss and turn in there for a while. He also told Wang Zhi and his apprentice to search for all kinds of weird and bizarre gadgets everywhere, sometimes getting their faces covered in dirt..."
+"...He had a dedicated study where he'd commissioned custom tables and cabinets, all filled with these Australian artisan tools. Every few days he would shut himself inside, fiddling and tinkering for hours. He also instructed Wang Zhi and his apprentice to scour everywhere for strange and peculiar gadgets. Sometimes they'd return with dirt caked on their faces from the search..."
 
-At this point, Liu Sha couldn't help but laugh, probably recalling some amusing scene.
+At this, Liu Sha couldn't suppress a laugh, probably recalling some amusing scene from those days.
 
-"Did he ever build any utensils?"
+"Did he ever build any devices?"
 
-"He did. He drew many blueprints and made small models by hand. Asking craftsmen to make them resulted in very exquisite items, heavily leaning towards clever techniques and excessive ingenuity. He loved to discuss weaponry, speaking logically, and drew countless sharp weapons on paper. But when it came to actually making them, it was always 'this won't work' or 'that is missing.' Wang Yehao asked him to imitate the Nanyang Rifle's cartridges, he pushed it away saying he didn't know how; asked him to cast cannons, he said he wasn't good at casting. He did build a waterwheel on the Dongyang Farm estate, saying it was to blow wind for a small blast furnace to make steel. In the end, steel wasn't made either. That waterwheel was quite useful for hulling rice and grinding flour."
+"He did. He drew many blueprints and crafted small models by hand. When he commissioned craftsmen to produce them, the results were exquisite pieces—though they leaned heavily toward clever contrivances and excessive ingenuity. He loved discussing weaponry, speaking with great logic and conviction, and drew countless fearsome weapons on paper. But when it came to actual production, it was always 'this won't work' or 'that component is missing.' When Wang Yehao asked him to replicate the Nanyang Rifle's cartridges, he pushed the task away claiming ignorance. Asked to cast cannons, he said foundry work wasn't his specialty. He did manage to build a waterwheel on the Dongyang Farm estate, claiming it would blow air into a small blast furnace to produce steel. In the end, no steel was ever made. That waterwheel proved quite useful for hulling rice and grinding flour, though."
 
-When Liu Sha spoke, his face was full of mocking. Xu Ke, however, felt a wave of desolation.
+Liu Sha's face was full of mockery as he spoke. Xu Ke, however, felt a wave of desolation wash over him.
 
-Putting himself in his shoes, being alone among a crowd of people who completely couldn't understand you, although controlling many resources, one couldn't turn the ideas in one's head into reality. Even if one was from a science and engineering background, knowing astronomy above and geography below, proficient in gunpowder, glass, and soap formulas... when actually starting to do it, only then did one discover the lack of too many preconditions and process details.
+Putting himself in the other man's position, he could imagine what it was like—being utterly alone among people who couldn't begin to understand you, commanding substantial resources yet unable to transform the ideas in your head into reality. Even with a background in science and engineering, knowing astronomy and geography, memorizing formulas for gunpowder, glass, and soap... when you actually set out to make something, only then did you discover how many prerequisites and process details were missing.
 
-There wasn't a single person beside him who could help him implicitly; they might not even understand what he was saying.
+There wasn't a single person at your side who could truly help you, who might understand what you were trying to say.
 
-This kind of terrible sense of loneliness and helplessness... Xu Ke thought, *Thanks to the Senate!*
+That terrible sense of loneliness and helplessness... Xu Ke thought, *Thank heavens for the Senate!*
 
-"Were there books too?"
+"Were there books as well?"
 
-"Many, all Australian books. I don't know who you prepare to sell these printed things to; probably ninety-nine out of a hundred people can't understand them..."
+"Many, all Australian publications. I don't know who you expect to sell these printed materials to—probably ninety-nine out of a hundred people couldn't make sense of them..."
 
-"Did he write any books or notes himself? Apart from the 'Heavenly Book'."
+"Did he write any books or notes himself? Apart from the 'Heavenly Book.'"
 
-"According to Wang Zhi: he wrote every night. After writing, he would teach his apprentice, lecturing late into the night."
+"According to Wang Zhi, he wrote every night. After writing, he would teach his apprentice, lecturing deep into the night."
 
-Although Liu Sha didn't know what was written in the manuscripts, Xu Ke roughly guessed they were mostly various technology and military books, perhaps content similar to *Illustrated Treatise on the Maritime Kingdoms*. Essentially, not much difference from the various books published by the Senate.
+Though Liu Sha didn't know what was contained in those manuscripts, Xu Ke could roughly guess. They were most likely various texts on technology and military matters, perhaps content similar to *Illustrated Treatise on the Maritime Kingdoms*. Essentially not much different from the various books the Senate itself had published.
 
 ...
 
-The interrogation of Liu Sha yielded a large amount of valuable information, basically figuring out the hidden cards of the Old Stone group. Especially the intelligence on "Mr. Le," which could be called a breakthrough.
+The interrogation of Liu Sha yielded a wealth of valuable information, essentially mapping out the hidden cards of the Old Stone group. The intelligence on "Mr. Le" in particular could be called a breakthrough.
 
-The most valuable intelligence was still clarifying the mastermind and the network behind the series of cases that occurred in Guangzhou since its liberation.
+The most valuable revelation was clarifying the mastermind and network behind the series of incidents that had plagued Guangzhou since its liberation.
 
-Overall, Liang Cunhou wasn't deeply involved in the Witchcraft Case, and even the Counterfeit Currency Case had little to do with him. But judging from the intelligence provided by Liu Sha, he was dead set on "doing something big." Once he succeeded, the consequences would be unimaginable.
+Overall, Liang Cunhou hadn't been deeply involved in the Witchcraft Case, and even the Counterfeit Currency Case had little connection to him. But judging from the intelligence Liu Sha provided, he was dead set on "doing something significant." Should he succeed, the consequences would be unimaginable.
 
-Currently, it seemed the "remnants" everywhere had gradually merged after several years of turbulence, forming a group that was loose yet tightly connected.
+At present, the "remnants" scattered throughout the region appeared to have gradually coalesced after several years of turmoil, forming a network that was loose yet tightly interconnected.
 
-However, their integration might not necessarily be a bad thing. Xu Ke thought, *At least it gives the Senate a chance to catch them all in one net.* Especially Liang Cunhou, who had always endured silently and resigned himself to adversity, leaving the Political Security Bureau unable to grasp any leverage on him. If there wasn't hard evidence to punish him by law, it would inevitably invite public opinion of "burning the bridge after crossing the river." This was also why the Political Security Bureau had only monitored and never acted over these years.
+However, their consolidation might not necessarily be a disadvantage. Xu Ke mused, *At least it gives the Senate a chance to catch them all in one net.* This was especially true of Liang Cunhou, who had always endured in silence and resigned himself to adversity, leaving the Political Security Bureau unable to find any leverage against him. Without hard evidence to punish him by law, any action would inevitably invite accusations of "burning the bridge after crossing the river." This was precisely why the Bureau had only maintained surveillance over the years without taking action.
 
-As for those gentry and nobles flying like moths to the flame, it was a perfect opportunity to administer a thorough cleansing. The remaining gentry and big households, although not necessarily loyal to the Senate, would at least not be potential threats plotting rebellion.
+As for those gentry and nobles flying like moths toward the flame—they presented a perfect opportunity for a thorough cleansing. The remaining gentry and prominent households, though not necessarily loyal to the Senate, would at least no longer pose potential threats of rebellion.
 
 After this sweep of blood and fire, the situation in Guangdong would be completely stabilized.
 
-In comparison, knowing that "Old Stone" was Wang Yehao was conversely not a very urgent matter. After all, this Lord Wang didn't have much capital; he relied entirely on "Mr. Le" who came from unknown origins. As long as Mr. Le was eliminated, the Old Stone group would collapse without attack.
+By comparison, learning that "Old Stone" was in fact Wang Yehao was not nearly as urgent a matter. After all, Lord Wang didn't possess much capital of his own; he relied entirely on "Mr. Le," whose origins remained mysterious. As long as Mr. Le was eliminated, the Old Stone group would crumble on its own.
 
-The primary work next was to catch this Zhou Lezhi. Whether he was a transmigrator, a body snatcher, or a disciple, catching him would naturally make it clear.
+The primary task ahead was to apprehend this Zhou Lezhi. Whether he was a transmigrator, had taken over another's body, or was merely a disciple—capturing him would make everything clear.
 
 (End of this chapter)

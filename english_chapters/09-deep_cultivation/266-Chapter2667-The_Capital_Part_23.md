@@ -1,107 +1,107 @@
 # Chapter 2667: The Capital (Part 23)
 
-"This, I will tell you later. For now, you just need to follow me and study seriously." The Teacher avoided answering.
+"That, I will tell you later. For now, you need only follow me and study diligently." The Teacher deflected the question.
 
-Zhou Lezhi heard from Wang Liang that the Teacher was a person from the Yongle Era. He had once gone to sea with the Sanbao Eunuch and cultivated the Dao and achieved immortality overseas. However, most people thought this was just a common trick used by monks and Taoists and not to be taken seriously.
+Zhou Lezhi had heard from Wang Liang that the Teacher was a man from the Yongle Era—that he had once sailed the seas with the Sanbao Eunuch and cultivated the Dao until he achieved immortality overseas. Most people, of course, dismissed this as the typical boasting of monks and Taoists, not worth taking seriously.
 
-If there was anything strange about the Teacher, it was that his appearance was at most thirty years old, yet he was knowledgeable and well-informed. This was the surprising part, so it wasn't impossible that the Teacher might have cultivated the art of eternal youth.
+Still, there was something undeniably strange about the Teacher. His face appeared no older than thirty, yet his knowledge and learning ran impossibly deep. This alone lent some credence to the notion that he might have mastered the art of eternal youth.
 
-However, every time others said the Teacher had supernatural powers, the Teacher always said very humbly that he was just a mortal, only having obtained a little "wisdom root" by chance.
+Whenever others spoke of his supernatural powers, however, the Teacher would demur with great humility, insisting he was merely a mortal who had been fortunate enough to obtain a small measure of "wisdom root."
 
-As for what this "wisdom root" actually was, everyone up and down the Wang residence kept it a deep secret, and even Zhou Lezhi, as a "disciple," didn't know. This made the Teacher even more enveloped in a mysterious color.
+As for what this "wisdom root" actually was, everyone in the Wang residence guarded the secret closely. Even Zhou Lezhi, despite his status as a "disciple," remained in the dark. This only deepened the aura of mystery that surrounded the Teacher.
 
-After following the Teacher for a few days, one night just after he had gone to sleep, Wang Liang came to summon him to see Master Wang.
+After following the Teacher for a few days, Zhou Lezhi was roused one night just after falling asleep. Wang Liang had come to summon him for an audience with Master Wang.
 
-Zhou Lezhi already knew that this Master Wang was the chief official of the Office of Transmission, an incredibly high official for a commoner like him. Hearing that he was to be seen alone, he couldn't help feeling a bit timid in his heart.
+Zhou Lezhi already knew that Master Wang served as Chief Official of the Office of Transmission—an impossibly lofty position for a commoner like himself. The prospect of a private audience made his heart quiver with apprehension.
 
-He quickly got up, put on his clothes, and followed Wang Liang through winding paths to a courtyard. Entering the room, he saw a middle-aged man sitting upright in the center, looking very dignified. It was the first time Zhou Lezhi had seen such a high official. His knees went soft, and he knelt down with a *thump* and kowtowed.
+He dressed hastily and followed Wang Liang through a maze of winding paths to a secluded courtyard. Upon entering the chamber, he found a middle-aged man seated in the center, his bearing stern and imposing. It was Zhou Lezhi's first time standing before such a high official. His knees buckled, and he dropped to the floor with a *thump*, pressing his forehead to the ground.
 
 "You are that child?"
 
-"Yes, yes, it is exactly this small commoner." Zhou Lezhi replied hurriedly.
+"Yes, yes, this lowly commoner is he," Zhou Lezhi replied quickly.
 
-"Has Wang Liang told you everything when bringing you here?"
+"Has Wang Liang explained everything to you?"
 
-"Yes, told this small commoner to study with Mr. Zhou and be his disciple."
+"Yes, he instructed this lowly commoner to study under Mr. Zhou and become his disciple."
 
-"You must learn from Mr. Zhou diligently," Master Wang nodded slightly. "Mr. Zhou is full of learning and possesses extraordinary knowledge, and it is rare that he is willing to teach. You must not be slack."
+"You must learn from Mr. Zhou with the utmost diligence," Master Wang said, nodding slightly. "Mr. Zhou possesses vast learning and extraordinary insight, and it is rare indeed that he is willing to take on a student. You must not grow complacent."
 
-"This small commoner dares not!" Zhou Lezhi hurriedly kowtowed again, then felt that this answer wasn't quite appropriate, so he quickly added, "This small commoner will definitely learn with my life at stake!"
+"This lowly commoner would never dare!" Zhou Lezhi kowtowed again hurriedly, then realized his answer sounded improper and quickly amended, "This lowly commoner will dedicate his very life to learning!"
 
-"Hehe, risking your life is not necessary. As long as you understand it yourself. This is a great future."
+"Hehe, risking your life won't be necessary. So long as you understand its importance. This represents a great future for you."
 
-"I also ask the Master to cultivate me more." Seeing the Master's words were gentle and were meant to admonish him, Zhou Lezhi felt slightly relaxed and quickly expressed his stance.
+"I humbly ask the Master to continue guiding me." Sensing that Master Wang's words were gentle admonitions rather than reprimands, Zhou Lezhi relaxed slightly and hastened to express his loyalty.
 
-"Good child." Master Wang seemed to smile. "Since you have come to my residence, it is also fate. Work hard; I won't treat you unfairly. In the future, earning a future for yourself and bringing glory to your ancestors won't be a difficult thing."
+"Good child." A faint smile seemed to cross Master Wang's face. "Since you have come to my residence, it must be fate. Work hard, and I will not treat you unfairly. Earning a future for yourself and bringing glory to your ancestors—these need not be difficult things."
 
-Zhou Lezhi wasn't exactly exquisite in mind, but he could hear that Master Wang was taking him as a private follower. He was warning him to distinguish between primary and secondary, prioritizing his master-servant relationship with Master Wang, and making the master-disciple relationship with the Teacher secondary.
+Zhou Lezhi was not the most perceptive of young men, but he understood Master Wang's meaning clearly enough: he was being taken on as a personal retainer. The implication was plain—he should recognize where his primary loyalty lay. His relationship with Master Wang as servant to master came first; his status as the Teacher's disciple was secondary.
 
-He quickly said, "This small one understands. If the Master has any orders, just instruct this small one!"
+He spoke quickly. "This servant understands. If the Master has any orders, he need only command me!"
 
-"Studying with Mr. Zhou, you naturally have to apply your heart." Master Wang listened and seemed to be deliberating how to say what followed. "Do not harbor a disrespectful heart. It's just that he is alone in my residence. Since I am his employer, I inevitably have to care for him more. But usually I have many matters and can't attend to some small things—you look after him more for me."
+"Naturally, you must apply yourself wholeheartedly to your studies with Mr. Zhou." Master Wang paused, seeming to weigh his next words carefully. "Do not harbor any disrespectful thoughts toward him. However, he resides alone in my household. As his employer, I cannot help but concern myself with his welfare. Yet I am occupied with many matters and cannot attend to every small thing—keep an eye on him for me."
 
-This was asking Zhou Lezhi to monitor the Teacher. Although somewhat unexpected, Zhou Lezhi had no psychological barrier and agreed immediately.
+This was an order to monitor the Teacher. Though somewhat unexpected, Zhou Lezhi felt no qualms about accepting immediately.
 
-After all, he had only been with the Teacher for a dozen days. There wasn't any deep friendship to speak of, let alone any visible benefits. Speaking of which, even the Teacher's food, clothing, and shelter were burdened by Master Wang, so he naturally wouldn't have any independent thoughts.
+After all, he had only been with the Teacher for a dozen or so days. There was no deep bond between them to speak of, nor had he seen any tangible benefits. When he considered it honestly, even the Teacher's food, clothing, and lodging were provided by Master Wang. What reason would he have to develop independent loyalties?
 
-"This small one understands!"
+"This servant understands!"
 
-"You are indeed a smart person." Wang Yehao praised. "In the future, if you have anything, just speak to Wang Liang alone. No need to mention it in front of others."
+"You are indeed a clever one," Wang Yehao praised. "From now on, if you have anything to report, speak to Wang Liang privately. There is no need to mention such matters in front of others."
 
-"Yes [Nuo]." Zhou Lezhi bowed.
+"Yes [Nuo]." Zhou Lezhi bowed deeply.
 
-"If there are urgent matters, you can also come directly to find me." Wang Yehao stared at Zhou Lezhi and said sternly.
+"If there is an urgent matter, you may also come directly to me." Wang Yehao fixed Zhou Lezhi with a stern gaze.
 
-From then on, Zhou Lezhi began his career as both a student and an undercover agent.
+From that day forward, Zhou Lezhi began his dual career as student and spy.
 
-To be honest, apart from some inexplicable words usually, appearing a bit crazy, Mr. Zhou didn't have any outrageous speech.
+In truth, apart from occasionally spouting inexplicable words and appearing somewhat unhinged, Mr. Zhou said nothing particularly outrageous.
 
-They didn't stay in the capital for too long. Zhou Lezhi followed the Teacher to Shaoxing Prefecture. This trip to Shaoxing was actually Wang Yehao's idea, specially asking for leave from the court. The reason was to "repair parents' graves," but in reality, there was also the matter of discussing land property with his younger brother.
+They did not remain in the capital for long. Zhou Lezhi followed the Teacher to Shaoxing Prefecture. This journey south had actually been Wang Yehao's idea; he had specially requested leave from the court. The official reason was "to repair his parents' graves," but in reality, there was also the matter of discussing land and property with his younger brother.
 
-Zhou Lezhi didn't know about any of this. He just followed the main group heading south. Fortunately, they could take the Grand Canal going south. Master Wang was an incumbent high official, so whether it was using boats, requesting services, or accommodation, local officials provided support, making it very convenient. Taking a boat south also saved the fatigue of carts and horses along the way. During the long boring days, the Teacher gave lectures on the boat.
+Zhou Lezhi knew nothing of these affairs. He simply followed along with the main party as they traveled south. Fortunately, they could take the Grand Canal for most of the journey. As an incumbent high official, Master Wang received support from local authorities at every turn—whether requisitioning boats, requesting services, or securing accommodations. Everything proved remarkably convenient. Traveling by boat also spared them the exhaustion of overland travel by cart and horse. During the long, tedious days on the water, the Teacher held his lectures aboard the vessel.
 
-The content of the lectures, besides that awkward "Teacher's Mandarin," added arithmetic.
+The content of these lessons, beyond that awkward "Teacher's Mandarin," now included arithmetic.
 
-He had learned arithmetic before. For the future of the clan's children, the clan elders had invited scholars good at mathematics to teach some arithmetic. So Zhou Lezhi not only knew how to use an abacus and calculate "chickens and rabbits in the same cage," but had also studied content from the *Mathematical Manual of Zhang Qiujian* and *The Nine Chapters on the Mathematical Art*.
+Zhou Lezhi had studied arithmetic before. The clan elders, concerned for the future of the clan's children, had once hired scholars skilled in mathematics to teach them. As a result, Zhou Lezhi not only knew how to use an abacus and solve problems like "chickens and rabbits in the same cage," but had also studied material from the *Mathematical Manual of Zhang Qiujian* and *The Nine Chapters on the Mathematical Art*.
 
-Although most of these taught contents belonged to the practical category and were not strong in theory, they covered a wide range, including plane geometry area algorithms, volume calculation formulas, solutions to systems of linear equations, etc. So he wasn't a blank sheet of paper. Except for some difficulty in accepting brand-new numbers and formulas at the beginning, he soon delved into it.
+Although most of what he had learned was practical in nature rather than theoretical, it covered considerable ground—plane geometry and area calculations, volume formulas, solutions to systems of linear equations, and more. He was no blank slate. Once he overcame his initial difficulty accepting the unfamiliar numbers and formulas, he soon immersed himself in the subject.
 
-Zhou Lezhi could tell that the Teacher was very hesitant about what exactly to teach him. Sometimes he taught arithmetic, sometimes he taught the study of investigating things [*Gewu*/Science]. Sometimes he lectured on the geographical patterns of mountains and rivers. In summary, the Teacher understood everything, and his rich knowledge made one prostrate in admiration—it was just that his kung fu in writing characters was really too poor. Not to mention his handwriting looked like a dog crawling, it was also full of vulgar [simplified] characters. If he had to recite poetry and couplets, it was even more difficult upon difficult. Let alone a proper scholar, even he, a child who hadn't even passed the opening of the pen, couldn't be compared with.
+Zhou Lezhi could tell the Teacher was uncertain about exactly what to teach him. Sometimes he taught arithmetic; sometimes he lectured on the study of investigating things [*Gewu*/Science]. Other times he expounded upon the geographical patterns of mountains and rivers. In short, the Teacher seemed to understand everything, and his vast knowledge inspired genuine awe. There was just one glaring weakness: his calligraphy was truly abysmal. His handwriting looked as though a dog had crawled across the page, and it was riddled with vulgar simplified characters. As for composing poetry or crafting parallel couplets—that proved even more hopeless. Never mind comparing him to a proper scholar; even Zhou Lezhi, a child who hadn't yet passed his first formal examinations, far surpassed him.
 
-Arriving in Shaoxing, the Wang family members returned to their ancestral home, but Zhou Lezhi and the Teacher's group were quietly sent to a separate villa.
+Upon arriving in Shaoxing, the Wang family members returned to their ancestral home, while Zhou Lezhi and the Teacher's group were quietly dispatched to a separate villa.
 
-In the villa, they lived a leisurely life of daily study just like in the capital. If there was a change, it was that Master Wang transferred a pair of beautiful maids sent by the Prefect of Quzhou to the Teacher, and sent the Liu brothers as the Teacher's guards.
+At the villa, they resumed their leisurely routine of daily study, just as they had in the capital. If anything changed, it was that Master Wang transferred a pair of beautiful maids—a gift from the Prefect of Quzhou—to attend the Teacher, and assigned the Liu brothers to serve as the Teacher's personal guards.
 
-Since the arrival of this pair of beautiful maids, Zhou Lezhi saw another side of the Teacher in this separate property. Originally, although the Teacher lacked literary grace, he was still a modest gentleman: treating the maids and servant women in the residence with respect. At this time, Zhou Lezhi realized suddenly that his previous calmness was just because he hadn't met the right people.
+After these beautiful maids arrived, Zhou Lezhi witnessed another side of the Teacher at this secluded property. Previously, though the Teacher lacked literary refinement, he had conducted himself as a modest gentleman, treating the maids and servant women of the residence with proper respect. Now Zhou Lezhi realized that his earlier composure had simply been because he hadn't yet encountered the right temptations.
 
-Originally, food and sex are human nature, nothing strange. But the Teacher's style was truly unrestrained. As a disciple living in the same courtyard, Zhou Lezhi was also a young lad full of vigor. This torment every other night made him wish he were dead. The next morning, the Teacher would be radiant, while the disciple would be listless.
+Food and desire were, after all, basic human nature—nothing surprising there. But the Teacher's appetites proved truly uninhibited. As a disciple living in the same courtyard, Zhou Lezhi was himself a young man in the prime of his vigor. The sounds that carried through the walls every other night left him in torment, wishing he were dead. Come morning, the Teacher would appear radiant and refreshed, while his disciple could barely keep his eyes open.
 
-Mr. Zhou stayed in Shaoxing Prefecture for quite a few days and made a special trip to the Cao'e Temple. It was said that the Teacher's hometown was in Shangyu County. But wandering around Shangyu County, they never found the location of the ancestral home or graves. Master Wang asked the Prefect of Shaoxing to investigate, but nothing came of it.
+Mr. Zhou stayed in Shaoxing Prefecture for quite some time and made a special trip to visit the Cao'e Temple. It was said that the Teacher's hometown lay in Shangyu County. But despite wandering throughout Shangyu, they never found the location of his ancestral home or family graves. Master Wang even asked the Prefect of Shaoxing to conduct an investigation, but nothing came of it.
 
-Looking at the Teacher's daily mood, he seemed indifferent to all this. Zhou Lezhi felt that his so-called "tour inspection" was mostly sightseeing, with absolutely no intention of searching for roots and ancestors, and he never mentioned a word about his ancestors. This was quite shocking to Zhou Lezhi, who had lived in a clan village since childhood and was raised by the clan.
+Judging by the Teacher's daily demeanor, he seemed utterly indifferent to all of this. Zhou Lezhi suspected that his so-called "inspection tour" was mostly sightseeing, with no real intention of tracing his roots or honoring his ancestors. He never mentioned his forebears even once. This struck Zhou Lezhi as deeply strange—he who had grown up in a clan village, raised by the collective efforts of his kinsmen.
 
-Zhou Lezhi naturally didn't know what Master Wang did in Shaoxing, except that every three to five days, Master Wang would inevitably come to gather with the Teacher. The two would close the door for secret talks. The Master also summoned Zhou Lezhi from time to time, asking if there were any abnormalities with the Teacher and how his behavior was in private.
+Zhou Lezhi naturally knew nothing of what Master Wang was doing in Shaoxing. He only observed that every three to five days, Master Wang would inevitably come to meet with the Teacher. The two would closet themselves away for private discussions. The Master also summoned Zhou Lezhi from time to time, asking whether the Teacher had displayed any abnormalities and how he conducted himself in private.
 
-To this, Zhou Lezhi reported everything truthfully. However, from Master Wang's suspicious eyes, the other party seemed unsatisfied with his answers.
+To all of this, Zhou Lezhi reported everything truthfully. Yet from the suspicious look in Master Wang's eyes, his employer seemed unsatisfied with these answers.
 
-What exactly did this Mr. Zhou talk about with the Master to make the Master so eager to know his "true face"? Zhou Lezhi was very curious amidst his worry.
+What exactly did this Mr. Zhou discuss with the Master that made him so eager to discover the Teacher's "true face"? Zhou Lezhi was deeply curious, though his curiosity mingled with unease.
 
-However, Master Wang's mood seemed to be very good. He was already familiar with the Master's long-time follower Wang Liang. Hearing Wang Liang say that since Mr. Zhou entered the staff, the Master's state of mind had greatly improved. He trusted Mr. Zhou even more, often asking the Teacher for plans before doing big things.
+Nevertheless, Master Wang's mood seemed quite good these days. Zhou Lezhi had grown familiar with Wang Liang, the Master's longtime attendant. According to Wang Liang, ever since Mr. Zhou had joined the staff, the Master's spirits had improved dramatically. He trusted Mr. Zhou implicitly, often consulting the Teacher before undertaking any major decision.
 
-"Everyone says Mr. Zhou has the ability of foreknowledge. You are his disciple; has he taught you?"
+"Everyone says Mr. Zhou possesses the gift of foreknowledge. You're his disciple—has he taught you any of it?"
 
-Zhou Lezhi shook his head and laughed, "He teaches a lot of things, but they have nothing to do with divination. This nephew has never heard him speak of these either."
+Zhou Lezhi shook his head with a laugh. "He teaches many things, but none of them have anything to do with divination. I've never even heard him speak of such matters."
 
-"That makes sense. This is his tool for eating; how can he easily pass it to others? Without three to five years, I'm afraid you won't even see the fur." Wang Liang said, patting Zhou Lezhi's shoulder with envy. "Little brother, you are really lucky! With such a master, regardless of high or low in the future, at least you won't worry about food and drink."
+"That makes sense. It's his livelihood, after all—how could he pass it on so easily? Without three to five years of study, I doubt you'll catch even a glimpse of its surface." Wang Liang clapped Zhou Lezhi on the shoulder, his expression envious. "Little brother, you're truly fortunate! With a master like that, whatever heights you reach in the future, at the very least you'll never want for food or drink."
 
-"Uncle Wang is joking. How could I have such fortune? To be able to serve Mr. Zhou and mix a mouthful of rice in the residence, this nephew is already very satisfied."
+"Uncle Wang flatters me. How could I possess such fortune? To serve Mr. Zhou and earn my bowl of rice in this residence—that already satisfies me beyond measure."
 
-"Eh! You probably don't know how much my Master values Mr. Zhou!" Wang Liang lowered his voice. "The Master has now bet half his life and fortune on him. One can say he obeys his every word!"
+"Bah! You probably have no idea how much my Master values Mr. Zhou!" Wang Liang dropped his voice to a conspiratorial whisper. "The Master has staked half his career and fortune on him. You could say he obeys the man's every word!"
 
-Zhou Lezhi was stunned. He had never expected Master Wang to trust the Teacher so much. He doubted, "Although Mr. Zhou has great ability, everyone says he is a person without roots or background..."
+Zhou Lezhi was stunned. He had never imagined Master Wang's trust in the Teacher ran so deep. Doubt crept into his voice. "Although Mr. Zhou is clearly capable, everyone says he's a man without roots or background..."
 
-"You are right, but he just has the ability. Not a single sentence misses the mark. No wonder the Master trusts him." Wang Liang acted mysteriously. "A few days ago, the Master also instructed us to go to the areas of Dongyang and Jinhua to look for suitable land, preparing to buy it to make a manor and give it to this Mr. Zhou as property."
+"You're right about that, but the man simply has the ability. Not a single prediction has missed its mark. No wonder the Master trusts him so completely." Wang Liang's manner grew conspiratorial. "Just a few days ago, the Master instructed us to scout for suitable land around Dongyang and Jinhua. He's preparing to purchase property there—to establish a manor and gift it to Mr. Zhou as his own estate."
 
-Zhou Lezhi's eyes widened. He didn't know where Dongyang and Jinhua were, but Master Wang actually wanted to gift a manor to Mr. Zhou. This generosity was truly extraordinary! what supernatural power did the Teacher have that Master Wang valued him so much?
+Zhou Lezhi's eyes went wide. He had no idea where Dongyang and Jinhua were, but Master Wang intended to gift Mr. Zhou an entire manor? Such generosity was truly extraordinary! What supernatural power did the Teacher possess that made Master Wang value him so greatly?
 
 **(End of Chapter)**

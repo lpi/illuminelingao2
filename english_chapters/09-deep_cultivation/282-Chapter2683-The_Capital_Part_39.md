@@ -1,119 +1,119 @@
 # Chapter 2683: The Capital (Part 39)
 
-"Is the news reliable?" He still somewhat dared not believe it.
+"Is the news reliable?" He still could scarcely believe it.
 
-"Reliable. The Tangbao [official gazette] from Guangdong will arrive in a few days. The text may have embellishments, but the fact that Shorn-hair Thieves broke into the Pearl River and are pressing on the city walls is something no one dares to conceal."
+"Entirely reliable. The Tangbao from Guangdong will arrive within a few days. The official text may contain some embellishments, but the fact that Shorn-hair Thieves have breached the Pearl River and now threaten the city walls—that is something no one would dare conceal."
 
-The intelligence he obtained now was first-hand material sent directly from Guangzhou by Liu Sha; the reliability was much higher than the gazette. No matter the details, the Shorn-hair Thieves' invasion was already an iron-clad matter.
+The intelligence he possessed was first-hand material sent directly from Guangzhou by Liu Sha, far more reliable than any gazette. Whatever the specific details might be, the Shorn-hair Thieves' invasion was now an iron-clad certainty.
 
-Things having reached this point, he could only discuss with this Hearthstone Immortal, wondering how his Heavenly Book recorded this matter.
+With matters having progressed this far, he could only consult with Hearthstone Immortal and discover how his Heavenly Book recorded these events.
 
-He was just about to instruct Wang Liang to invite Hearthstone Daoist, then thought that the situation in Guangzhou was still unclear at this moment. Moreover, this matter was not simply asking him to predict the future trend of the situation; more of it was wanting to probe his background. Nowadays, the gazette and memorial subjects hadn't reached the capital yet, and the news of Shorn-hair Thieves' invasion hadn't spread. Letting him know now, wouldn't it show that he had private individuals in Guangzhou secretly inquiring about news? Better to wait.
+He was about to instruct Wang Liang to invite the Hearthstone Daoist when a thought gave him pause. The situation in Guangzhou remained unclear, and this was not simply a matter of asking the man to predict future developments—it was also an opportunity to probe his background. At present, neither the gazette nor the memorial subjects had reached the capital, and news of the Shorn-hair Thieves' invasion had not yet spread. To inform him now would reveal that he maintained private agents in Guangzhou, secretly gathering intelligence. Better to wait.
 
-Thus, another five or six days passed. Only after the Guangdong gazette arrived in the capital did Wang Liang receive orders to invite Mr. Zhou.
+Thus another five or six days passed. Only after the Guangdong gazette arrived in the capital did Wang Liang receive orders to invite Mr. Zhou.
 
-To avoid people's eyes and ears, every face-to-face talk with Hearthstone Immortal was either getting him carried quietly into the Wang Residence in a small sedan chair at night or Master Wang visiting in plain clothes himself.
+To avoid prying eyes and wagging tongues, every face-to-face consultation with Hearthstone Immortal followed one of two patterns: either he was carried quietly into the Wang Residence in a small sedan chair under cover of night, or Master Wang himself paid a visit in plain clothes.
 
-However, recently Master Wang rarely came to consult. When Wang Liang came to invite, Zhou Lezhi saw the Teacher's face looked quite surprised—and had a trace of unhappiness.
+Recently, however, Master Wang had seldom come to consult. When Wang Liang arrived with the invitation, Zhou Lezhi noticed that his Teacher's expression was one of considerable surprise—tinged with a trace of displeasure.
 
-As for why he was unhappy, naturally, it was because the Teacher had recently successfully quelled domestic conflicts and intended to go perform some "plowing" tonight.
+The reason for this displeasure was not difficult to discern. The Teacher had recently succeeded in quelling certain domestic conflicts and had intended to engage in some "plowing" that very evening.
 
-Arriving at the Wang family, the consultation would end at the third watch at least. The capital at night was not safe, so he would stay overnight at the Wang family, returning only at the fifth watch. If the Teacher wanted to plow, he would have to wait until dark again.
+Visiting the Wang household meant the consultation would last until at least the third watch. The capital's streets were dangerous at night, so he would need to stay at the Wang residence, departing only at the fifth watch. If the Teacher wished to plow, he would have to wait until darkness fell again.
 
-Zhou Lezhi was in his youth and naturally understood this sense of urgency when blood rushed to the brain. Seeing the Teacher's face full of unhappiness, he felt both sympathy and amusement.
+Zhou Lezhi was young and understood perfectly well that sense of urgency when blood rushes to a man's brain. Observing his Teacher's obvious displeasure, he felt both sympathy and amusement.
 
-*Humph humph, serves you right for being a full man who doesn't know the hunger of a hungry man!*
+*Hmph, serves you right for being a well-fed man who cannot understand the hunger of the starving!*
 
-Since Master Wang came to invite, there was absolutely no part for refusal. Although Mr. Zhou relied on "foreseeing the future," he also knew that understanding friends were not easy to find. In this capital, Immortals and Demons were only one step apart.
+Since Master Wang had issued the invitation, there was absolutely no refusing. Although Mr. Zhou relied on his ability to "foresee the future," he also understood that sympathetic patrons were not easily found. In this capital, the distance between Immortal and Demon was but a single step.
 
-Immediately, two sedan chairs carried the Zhou master and apprentice into the Wang Residence.
+Without delay, two sedan chairs carried the Zhou master and apprentice into the Wang Residence.
 
-Wang Liang didn't say what the specific reason was. Mr. Zhou originally thought it was probably just an ordinary consultation like usual, but as soon as he stepped into the study, he felt things seemed somewhat abnormal. On the desk were placed many boxes of different sizes, and the room was also inexplicably piled with several iron pipes. Just as he was wondering, Wang Yehao had already welcomed him: "Mr. Zhou, something bad has happened!"
+Wang Liang did not disclose the specific reason for the summons. Mr. Zhou assumed it was merely another routine consultation, but the moment he stepped into the study, he sensed something was amiss. The desk was covered with boxes of various sizes, and the room was inexplicably piled with several iron pipes. While he was still puzzling over this, Wang Yehao came forward to greet him: "Mr. Zhou, something terrible has happened!"
 
-"Oh, what happened?"
+"Oh? What has occurred?"
 
-"There is news of the Australians." Wang Yehao pointed at the various objects on the table and floor, saying, "Teacher please look; these are Australian objects this Official asked people to find."
+"There is news of the Australians." Wang Yehao gestured toward the assorted objects on the table and floor. "Please examine these, Teacher. These are Australian artifacts that this Official commissioned people to find."
 
-"That isn't good news?" Mr. Zhou's eyes lit up after hearing this, his face full of excitement. "Where are they? Let's go quickly."
+"Is that not good news?" Mr. Zhou's eyes lit up, his face suffused with excitement. "Where are they? Let us go at once."
 
-*Master Wang is indeed right; this Mr. Zhou is an Australian!* Zhou Lezhi thought.
+*Master Wang was indeed correct—this Mr. Zhou is an Australian!* Zhou Lezhi thought.
 
-Regarding the matter that Mr. Zhou was an Australian, Master Wang had talked with him. Usually when learning with Mr. Zhou, Mr. Zhou also unreservedly said his learning was all "Australian learning." However, he didn't say so earliest on, only claiming it was "overseas secret learning." Only after seeing Australian glass vessels did he change his tune.
+Regarding the matter of Mr. Zhou being an Australian, Master Wang had discussed it with him previously. During their studies together, Mr. Zhou had openly declared that all his learning was "Australian learning." However, he had not said so from the beginning, initially claiming only that it was "overseas secret learning." He had changed his story only after seeing certain Australian glass vessels.
 
-"This matter is quite tortuous; Teacher please listen to this Official explain slowly." Wang Yehao signaled Mr. Zhou to sit, then said, "Last time we talked about Australians opening shops in Guangzhou to sell treasure vessels. This time, more than five hundred Australian sea bandits set up a stockade in Lingao County, Qiongzhou Prefecture..."
+"This matter is rather convoluted; please allow this Official to explain slowly." Wang Yehao gestured for Mr. Zhou to sit, then continued, "Last time we discussed how the Australians had opened shops in Guangzhou to sell treasure vessels. This time, more than five hundred Australian sea bandits have established a stockade in Lingao County, Qiongzhou Prefecture..."
 
-"What situation?" Mr. Zhou face was full of disbelief. "Five hundred people?" He muttered to himself: "Impossible, impossible, wormhole has mass limits; last time just a cart of things started shaking..."
+"What did you say?" Mr. Zhou's face filled with disbelief. "Five hundred people?" He muttered under his breath: "Impossible, impossible—the wormhole has mass limits. Last time, just a cart of materials started causing instability..."
 
-Suddenly he realized he had made a slip of the tongue and immediately shut his mouth.
+Suddenly realizing his slip of the tongue, he clamped his mouth shut.
 
-Aunque Wang Yehao was far away and didn't hear clearly what he said, he heard the words "five hundred people," "impossible," and "wormhole." Combining with his expression, he immediately understood that this Immortal Zhou indeed had a universe inside him [knew the secrets].
+Although Wang Yehao sat at some distance and could not hear everything clearly, he caught the words "five hundred people," "impossible," and "wormhole." Combined with Mr. Zhou's expression, he immediately grasped that this Immortal Zhou indeed harbored secrets of great significance.
 
-Not only was he an Australian, but he probably also knew the Australians' background very well!
+Not only was he an Australian, but he likely understood the Australians' origins intimately!
 
-If he himself went to become an official in Liangguang, this person would be of great use!
+If he himself were to become an official in Liangguang, this man would prove immensely useful!
 
-Mr. Zhou checked the various objects on the desk with doubts. these tattered scraps were picked up by villagers near the Australian camp after the Australians left—actually, they were all worthless trash, purely out of curiosity. Liu Sha specially collected them after receiving Master Wang's instructions and sent fast horses to deliver them to the capital.
+Mr. Zhou examined the various objects on the desk with a skeptical eye. These tattered scraps had been gathered by villagers living near the Australian camp after the Australians departed—worthless refuse, really, collected purely out of curiosity. Following Master Wang's instructions, Liu Sha had specially gathered these items and dispatched them to the capital by fast horse.
 
-In anyone's eyes, this was garbage. Although there were some broken glass vessels, broken glass vessels had no great value besides inlaying windows.
+To anyone else, this was mere garbage. True, there were some broken glass vessels among the pieces, but broken glass held little value beyond use in window panes.
 
-Hearthstone Daoist looked through this pile of trash carefully. The more he looked, the weirder his expression became: sometimes surprised, sometimes disdainful, sometimes confused... In short, the richness of expressions was something Zhou Lezhi had never seen before.
+Hearthstone Daoist scrutinized this pile of refuse with care. The longer he looked, the stranger his expression became: now surprised, now disdainful, now confused... In short, he displayed a richness of expressions that Zhou Lezhi had never before witnessed.
 
-"These are also Australian objects?" Mr. Zhou pointed at a pile of copper and iron piping and castings on the ground and asked.
+"Are these also Australian objects?" Mr. Zhou pointed at a heap of copper and iron piping and castings lying on the floor.
 
-"Proprietor Guo also built a place of wind and moon in Guangzhou Prefecture called 'Purple Ming Pavilion' [*Ziminglou*], where it is said one can use magic to drive the power of water and fire. These are the tools of the ritual altar. In the Teacher's view, did these all come from the Qiankun Mirror?"
+"Proprietor Guo also constructed a pleasure house in Guangzhou Prefecture called 'Purple Ming Pavilion'—Ziminglou—where it is said that magic can be used to harness the power of water and fire. These are the implements of that ritual altar. In the Teacher's estimation, did all of these come from the Qiankun Mirror?"
 
-Mr. Zhou looked grave, repeatedly examining this pile of metal trash: "Looks like they should be. Did those five hundred Australians just fiddle with these all the time? Not worth it, right."
+Mr. Zhou's expression grew grave as he repeatedly examined the pile of metal debris. "It would appear so. Did those five hundred Australians spend their time just tinkering with such things? Hardly seems worth the effort."
 
-"Indeed, glazed glass vessels are the majority. Heard recently they also sold granulated sugar and paper, all not worth mentioning."
+"Indeed, glazed glass vessels constitute the majority of their trade. I hear they have recently begun selling granulated sugar and paper as well—nothing of particular note."
 
-"Just now you said they are all entrenched in what Gao place?"
+"You said just now that they are entrenched in some place called Gao?"
 
 "Lingao County, Qiongzhou Prefecture."
 
-"That is on Hainan Island. Does this county have any special features?"
+"That would be on Hainan Island. Does this county possess any notable characteristics?"
 
-"Lingao County is located remotely, has no significant produce, and possesses a small population; it is truly unknown."
+"Lingao County lies in a remote location, produces nothing of significance, and has a sparse population. It is truly an obscure place."
 
-"They don't do business properly in Guangzhou but ran to that poor country and remote soil to do what?"
+"They neglect proper business in Guangzhou to take themselves off to such impoverished and isolated soil—for what purpose?"
 
-"Teacher please look; these are the relevant memorial subjects and gazettes; I asked the private advisor to copy them together." Wang Yehao pushed the booklets on the table over. "According to the report from Lingao County at that time, Australian sea thieves came driving big iron ships..."
+"Please examine these, Teacher. Here are the relevant memorial subjects and gazettes; I had my private advisor copy them together." Wang Yehao pushed the booklets across the table. "According to the report from Lingao County at the time, the Australian sea thieves arrived aboard great iron ships..."
 
-"Wait a moment!" Before Wang Yehao finished speaking, Mr. Zhou felt something was wrong. "How come there are also big iron ships?"
+"Wait a moment!" Before Wang Yehao could finish, Mr. Zhou sensed something was wrong. "How can there be great iron ships as well?"
 
-"Oh, Teacher don't blame me. Although this matter is unthinkable, there are many memorials corroborating it; it should not be a false rumor. According to reports, this ship is more than ten *zhang* high, more than half a *li* long, completely black throughout, without oars or sails..."
+"Ah, please do not blame me, Teacher. Although this matter strains credulity, numerous memorials corroborate it; it should not be mere rumor. According to the reports, this vessel stands more than ten zhang high, stretches over half a li in length, is completely black throughout, and possesses neither oars nor sails..."
 
-Mr. Zhou listened to Wang Yehao's introduction, his mouth opening wider and wider. It seemed the surprise in his heart had reached the peak.
+Mr. Zhou listened to Wang Yehao's description, his mouth falling progressively wider open. The astonishment in his heart seemed to have reached its peak.
 
-"Holy crap! Even the mobile base was driven over; the ambition is big enough! Master, I think it is necessary for us to go find those Australians quickly. Delay is inadvisable."
+"Holy crap! They even brought the mobile base over—their ambitions are enormous! Master, I believe we must find these Australians as quickly as possible. Any delay is inadvisable."
 
-"This matter is probably inappropriate." Wang Yehao's finger tapped on the booklet. "Australians used the sharpness of firearms to occupy Lingao and plot for Qiongzhou. Viceroy Wang gathered the power of the whole province to suppress but could do nothing. The whole army collapsed—now the Australians have arrived outside Guangzhou City..."
+"That course of action is probably unwise." Wang Yehao's finger tapped against the booklet. "The Australians used the devastating power of their firearms to occupy Lingao and now scheme to seize all of Qiongzhou. Viceroy Wang marshaled the strength of the entire province to suppress them, yet could accomplish nothing. His army collapsed entirely—and now the Australians have arrived at the walls of Guangzhou City..."
 
-Mr. Zhou couldn't care about reserve anymore at this moment. He directly picked up the copy and read it carefully. Zhou Lezhi knew that although the Teacher claimed to have great learning, his skill in reading books was very terrible; most likely he couldn't understand these memorial subjects. Immediately he said: "Teacher, let me read it."
+Mr. Zhou could no longer maintain his composure. He snatched up the copy and began reading intently. Zhou Lezhi knew that although his Teacher claimed to possess great learning, his actual skill in reading classical texts was quite poor; most likely he could not comprehend these memorial subjects. He immediately offered: "Teacher, allow me to read it for you."
 
-Just like this, Zhou Lezhi read while explaining in vernacular, finally letting Mr. Zhou know what the official documents meant: A guy named Wen claimed to be a remnant of the Song Dynasty, brought more than 500 men to land in Lingao, grabbed territory to engage in infrastructure, and incidentally traded materials. Then the government couldn't stand it and sent troops to suppress the bandits, resulting in being chased around by those 500 people. Now the 500 people were under Guangzhou City.
+And so Zhou Lezhi read aloud while explaining in vernacular speech, finally enabling Mr. Zhou to understand what the official documents meant: A man named Wen, claiming to be a remnant of the Song Dynasty, had brought more than five hundred men ashore at Lingao, seized territory to develop infrastructure, and traded materials on the side. The government could not tolerate this and dispatched troops to suppress the bandits—only to find themselves chased in every direction by those five hundred men. Now those same five hundred stood beneath the walls of Guangzhou.
 
-After listening, Mr. Zhou couldn't care about any demeanor or etiquette. He turned seven or eight circles back and forth in the study, then suddenly said to Wang Yehao: "Master, the Qiankun Mirror is definitely in the hands of that guy named Wen. Since the government army failed to suppress bandits, don't know if the court has any intention to offer amnesty? I am willing to go persuade them."
+After hearing all this, Mr. Zhou could no longer concern himself with demeanor or etiquette. He paced seven or eight circuits back and forth across the study, then suddenly addressed Wang Yehao: "My Lord, the Qiankun Mirror is definitely in the hands of that man named Wen. Since the government forces failed to suppress the bandits, is there any intention at court to offer amnesty? I am willing to go and persuade them."
 
-"This matter is being discussed in the court; there is no conclusion yet. It's just that Viceroy Wang has tried to recruit them before, but the Australian sea bandits have no heart to submit."
+"This matter is currently under discussion at court; no conclusion has yet been reached. However, Viceroy Wang previously attempted to recruit them, but the Australian sea bandits showed no inclination to submit."
 
-"If I go talk to them, maybe they will be willing. After all, that Qiankun Mirror is mine." Mr. Zhou was unwilling to give up.
+"If I were to speak with them, perhaps they would be willing. After all, that Qiankun Mirror is mine." Mr. Zhou was unwilling to abandon the idea.
 
-"This Official thinks this matter is absolutely impermissible."
+"This Official believes such a course is absolutely impermissible."
 
-"Why?" Mr. Zhou asked with a face full of confusion.
+"Why not?" Mr. Zhou asked, his face full of confusion.
 
-"Teacher is confused!" Wang Yehao stomped his foot and beat his wrist, making a heartbroken appearance. "Did the Teacher forget Emperors Huizong and Qinzong?"
+"Teacher, you are not thinking clearly!" Wang Yehao stamped his foot and struck his wrist, assuming an expression of profound distress. "Have you forgotten Emperors Huizong and Qinzong?"
 
-Mr. Zhou had a face full of incomprehension: "Those two captured emperors of the Song Dynasty? What about them?"
+Mr. Zhou looked utterly bewildered. "Those two captured emperors of the Song Dynasty? What have they to do with this?"
 
-Wang Yehao sighed long and spoke娓娓 [tirelessly/in detail]: "In the past, Emperors Huizong and Qinzong were trapped in thieves' hands. Emperor Gaozong not only delayed rescue but also issued twelve gold medals to recall Yue Wumu [Yue Fei] to the capital for punishment. What was the purpose of all these actions? All for power and position. Now there is the thief named Wen, with the merit of being the first initiator, occupying the position of bandit chief, falsely claiming to be a descendant of the former Song, not submitting to the Great Ming's enlightenment, and faintly already having the intention of splitting the earth [separatism]. That the Qiankun Mirror is the Teacher's object is true, but how would that sea thief be willing to acknowledge it! If the Teacher goes, do you still think of being the Retired Emperor?"
+Wang Yehao heaved a long sigh and spoke with patient deliberation: "In former times, Emperors Huizong and Qinzong were held captive by barbarian enemies. Emperor Gaozong not only delayed any rescue but also issued twelve gold medals recalling Yue Wumu to the capital for punishment. What was the purpose of these actions? All for the sake of power and position. Now there exists this bandit named Wen who, bearing the merit of being the first to act, occupies the position of chieftain. He falsely claims descent from the former Song, refuses to submit to the Great Ming's enlightened rule, and clearly harbors intentions of carving out his own domain. That the Qiankun Mirror is the Teacher's possession may be true, but how would such a sea thief ever acknowledge it! If the Teacher goes to them, do you imagine they will treat you as a Retired Emperor?"
 
-Mr. Zhou had to admit Master Wang spoke very reasonably. Since it was an armed group, the water inside must be very deep. His own identity was indeed a bit awkward. If he went rashly, maybe he would really be reimbursed [killed] by a gun. However, since that gang opened a base, they should be planning a long-term operation; estimated they wouldn't leave in a short while. Rather than rushing over to send a head [get killed], better to make good preparations before probing.
+Mr. Zhou had to admit that Master Wang spoke with considerable logic. Since this was an armed group, the internal dynamics must be extremely complex. His own position was indeed rather awkward. If he went rashly, he might very well end up with a bullet in his head. However, since that gang had established a base, they were clearly planning for the long term; they would not likely depart anytime soon. Rather than rushing over to present his head as a gift, it would be wiser to make thorough preparations before attempting contact.
 
-Wang Yehao saw the other party's eyes shifting, wanting to speak but stopping. He knew the rhetoric just now had taken effect, so he asked along the flow: "This Qiankun Mirror is so amazing; does the Teacher have a method to crack it?"
+Wang Yehao observed the other man's shifting gaze, his lips parting as if to speak before stopping. He knew his rhetoric had taken effect and pressed his advantage: "This Qiankun Mirror is so extraordinary—does the Teacher possess any method to overcome it?"
 
-"Not easy to handle; this Qiankun Mirror is quite hard to deal with." After expressing the difficulty, Mr. Zhou suddenly had his eyes light up and said, "Right, isn't the Lord taking over as Viceroy of Liangguang next year? At that time, we can think of a way to contact the Australians?"
+"That is not easily managed; this Qiankun Mirror is quite formidable to deal with." Having expressed the difficulty, Mr. Zhou's eyes suddenly brightened. "Ah, but wait—is not my Lord assuming the position of Viceroy of Liangguang next year? At that time, we could devise a means to contact the Australians, could we not?"
 
-"What did the Teacher say just now?" This time it was Wang Yehao's turn to be surprised. Although some people in the court were discussing this matter, it was firmly blocked by him at home. The Hearthstone Immortal, into whose ears "outside words did not enter," could not possibly know. Speaking so decisively showed it must be written in the "Heavenly Book."
+"What did the Teacher just say?" This time it was Wang Yehao's turn to be startled. Although certain parties at court had discussed this matter, he had firmly blocked all such talk within his own household. Hearthstone Immortal, into whose ears "outside words did not enter," could not possibly have learned of it. For him to speak with such certainty meant it must be recorded in the "Heavenly Book."
 
 **(End of Chapter)**

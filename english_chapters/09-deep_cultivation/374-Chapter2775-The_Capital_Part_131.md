@@ -1,119 +1,119 @@
 # Chapter 2775: The Capital (Part 131)
 
-Xu Yong spat out the grass stalk in his mouth and slowly retracted his body.
+Xu Yong spat out the grass stalk he had been chewing and slowly drew back from his vantage point.
 
-Just a few minutes ago, he had smelled something abnormal in front of the Zhou residence at Wanggong Factory.
+Just minutes ago, he had sensed something amiss near the Zhou residence at Wanggong Factory.
 
-After Mr. Zhou disappeared, his family members still lived here, but this residence, which used to be full of laughter and joy, had now lost its happiness and become deserted and fearful.
+Since Mr. Zhou's disappearance, his family still lived here, but this residence—once filled with laughter and warmth—had grown desolate and fearful, its former happiness extinguished entirely.
 
-In the past, Xu Yong often followed Liu Zhao and Liu Sha here. Mr. Zhou was a very easy-going and interesting person. He never put on the airs of a master. Every time he went to the master's residence, not only did he not need to stand on ceremony, but he could also eat a lot of good things—the master especially liked to eat. Talking and laughing, it was much better than following Liu Sha and Liu Zhao. So every time they said they were going to the Zhou residence, he was impatient (eager).
+In the old days, Xu Yong had often accompanied Liu Zhao and Liu Sha on visits here. Mr. Zhou was an easygoing and engaging man who never put on the airs of a master. Each visit to his residence required no standing on ceremony, and there was always an abundance of good food to enjoy—the gentleman had a particular fondness for eating. With conversation flowing freely and laughter filling the rooms, these visits were far more pleasant than merely following Liu Sha and Liu Zhao on their errands. Whenever they mentioned going to the Zhou residence, Xu Yong could barely contain his eagerness.
 
-Of course, the reason he was so willing to go to the Zhou residence was also because he could see Zhou Juli. Although Liu Sha didn't say it explicitly, Xu Yong knew that the fair and chubby little girl held in Mr. Zhou's arms was his younger sister.
+Of course, his willingness to visit also stemmed from the chance to see Zhou Juli. Though Liu Sha had never said so explicitly, Xu Yong knew that the fair, chubby little girl cradled in Mr. Zhou's arms was his own younger sister.
 
-So every time he went to the Zhou residence, he would find a chance to hug Zhou Juli and tease her. Every time he saw Juli smiling at him, he almost wanted to shed tears.
+So each time he visited the Zhou residence, he would find an opportunity to hold Zhou Juli and play with her. Whenever Juli smiled at him, he nearly wept.
 
-Liu Sha once subtly reminded him: Zhou Juli is the gentleman's biological daughter, and her mother is Yui. The gentleman is heavily used by Master Wang. Zhou Juli is now a young lady with beautiful clothes and jade-like food, and she will inevitably marry into a good family in the future.
+Liu Sha had once hinted subtly: Zhou Juli was the gentleman's biological daughter, and her mother was Yui. The gentleman enjoyed Master Wang's high favor. Zhou Juli was now a young lady blessed with fine clothes and rich food, destined to marry into a good family someday.
 
-Although Xu Yong was only a teenager, he understood the implication. He knew that this love of his could only be kept at the bottom of his heart and could not be revealed.
+Though Xu Yong was only a teenager, he understood the implication perfectly. He knew this affection of his could only remain buried in his heart, never to be revealed.
 
-Juli has a good home. Following Liu Sha properly, although the work he did was not glorious, at least he was serving the master and didn't have to worry about food and drink. Liu Sha treated him as a "closed-door disciple" and taught him many tricks of the trade in the *Jianghu*. With these skills, making a living in the future would always be no problem.
+Juli had a good home. Following Liu Sha faithfully—though the work was hardly glorious—meant serving the master without worrying about food or shelter. Liu Sha treated him as a "closed-door disciple" and taught him many tricks of the *Jianghu* trade. With such skills, earning a living in the future would never be a problem.
 
-One day, Mr. Zhou suddenly disappeared without a trace. He still remembered that day when he was called out by his master. They came to the residence together, and amidst the weeping of women and children, they carefully searched the entire residence, not even letting go of You Rong and Yui's boudoirs.
+Then one day, Mr. Zhou vanished without a trace. Xu Yong still remembered that day clearly—his master had summoned him, and together they came to the residence. Amid the weeping of women and children, they searched every corner of the house, sparing not even the private chambers of You Rong and Yui.
 
-Subsequently, under Liu Zhao's order, all of Mr. Zhou's items, from clothes and hats to pens and ink, together with all kinds of strange and weird little gadgets in his study... as long as they were the gentleman's things, not a single one was left behind. They were all packed into boxes and carried away on the shoulders of the porters from the coolie guild.
+Afterward, under Liu Zhao's orders, all of Mr. Zhou's possessions—from clothes and hats to brushes and ink, along with every strange little gadget in his study—were gathered. Not a single item belonging to the gentleman was left behind. Everything was packed into boxes and carried away on the shoulders of porters from the coolie guild.
 
-What remained in this residence were only the two concubines left by the gentleman, two children, and a few servants. From then on, there was no more laughter and joy in the residence.
+What remained in the residence were only the two concubines the gentleman had left behind, two children, and a handful of servants. From that day forward, the house knew no more laughter or joy.
 
-Later, he went back to the residence several times with Liu Sha or Zhou Lezhi. Even as a teenager, he could feel the desolation of things remaining while people had changed. Whether it was Yui or You Rong, as soon as they came, they would frantically grab them and ask where the gentleman had gone. And every time, all they could get was silence.
+Later, Xu Yong returned to the residence several times with Liu Sha or Zhou Lezhi. Young as he was, even he could feel the melancholy of familiar surroundings emptied of familiar faces. Whether Yui or You Rong, as soon as the visitors arrived, they would clutch at them frantically, demanding to know where the gentleman had gone. And each time, their pleas were met only with silence.
 
-Zhou Lezhi would always comfort the two mistresses every time, but this kind of comfort, even in Xu Yong's eyes, was better than nothing. At the same time, the two children always widened their eyes and looked at them with faces full of fear.
+Zhou Lezhi always tried to comfort the two mistresses, but even in Xu Yong's eyes, such comfort was hollow at best. Meanwhile, the two children invariably stared at the visitors with wide, fearful eyes.
 
-Xu Yong couldn't bear it, so he always brought some snacks and candies for the children every time. Fortunately, although Mr. Zhou was gone, Master Wang still took care of them, so they didn't lack food and clothing, and servants were sent to continue serving. Zhou Lezhi and others would also visit from time to time.
+Unable to bear it, Xu Yong began bringing snacks and candies for the children on every visit. Fortunately, though Mr. Zhou was gone, Master Wang continued to provide for the family. They lacked neither food nor clothing, and servants were still sent to attend them. Zhou Lezhi and others also visited from time to time.
 
-One day, Xu Yong couldn't help asking Liu Sha: Where did Mr. Zhou go? Did he die?
+One day, Xu Yong could not help but ask Liu Sha: Where had Mr. Zhou gone? Was he dead?
 
-Liu Sha asked back: "Do you think Mr. Zhou is still alive?"
+Liu Sha countered with a question of his own: "Do you think Mr. Zhou is still alive?"
 
-Xu Yong pondered for a moment and said: "Mr. Zhou is probably still alive."
+Xu Yong considered this for a moment. "Mr. Zhou is probably still alive."
 
-"Oh, why is that?"
+"Oh? Why do you say that?"
 
-"If Mr. Zhou were really gone, why would Master Wang still need to take care of his family? I'm afraid he would have given some silver to dismiss them long ago."
+"If Mr. Zhou were truly gone, why would Master Wang still bother caring for his family? He would have simply given them some silver and dismissed them long ago."
 
-"You kid, cruel enough!" Liu Sha laughed, but there was a look of relief on his face, "Maybe it was Mr. Zhou's deathbed entrustment? Asking Master Wang to take good care of his family."
+"You've got a cruel streak in you, boy!" Liu Sha laughed, though his face showed a hint of approval. "Perhaps it was Mr. Zhou's dying wish? Asking Master Wang to look after his family."
 
-"In this apprentice's opinion, if it were really so, Master Wang would have sent them back to the estate in Jinhua to settle them, and certainly would not keep them in the Capital. It shows that Mr. Zhou is not only still alive but probably also still in the Capital, or at worst within the territory of Northern Zhili..."
+"In this apprentice's view, if that were truly the case, Master Wang would have sent them back to the estate in Jinhua to settle there rather than keeping them in the Capital. The fact that they remain here suggests Mr. Zhou is not only alive but likely still in the Capital—or at worst, somewhere within Northern Zhili..."
 
-Keeping the family members in the Capital to be taken care of on the spot showed that Master Wang had scruples. He was also guarding against Mr. Zhou wanting to go home one day.
+Keeping the family in the Capital for close supervision showed that Master Wang harbored concerns. He was also guarding against the possibility that Mr. Zhou might want to return home someday.
 
-Liu Sha nodded slightly and said: "What you said makes sense. However, whether he is dead or alive, I'm afraid only Master Wang himself knows."
+Liu Sha nodded slightly. "Your reasoning is sound. However, whether he is dead or alive, I'm afraid only Master Wang himself knows."
 
-"Master Wang..." Xu Yong hesitated for a long time, not knowing if he should say it.
+"Master Wang..." Xu Yong hesitated for a long time, uncertain whether he should continue.
 
-"What do you want to say?"
+"What is it you wish to say?"
 
-"There is something, I don't know if Master knows?"
+"There is something—I don't know if Master is aware of it."
 
 "What matter?"
 
-Xu Yong lowered his voice and said: "Once when this apprentice was waiting for orders at the Wang family, I saw Wang Liang rush into the study and come out again, muttering 'This fellow has such big dog guts!'."
+Xu Yong lowered his voice. "Once, while this apprentice was waiting for orders at the Wang residence, I saw Wang Liang storm into the study and emerge again, muttering, 'This fellow has such audacious gall!'"
 
-Liu Sha didn't think much of it: "What's so special about this..."
+Liu Sha seemed unimpressed. "What is so remarkable about that?"
 
-"There were only Mr. Zhou and Master Wang in the study at that time!"
+"At that time, only Mr. Zhou and Master Wang were in the study!"
 
-Liu Sha immediately became nervous: "What did they say?"
+Liu Sha's expression immediately grew tense. "What did they say?"
 
-"This apprentice couldn't hear the words in the inner study." Xu Yong said, "But later when Wang Liang and Wang Zhi were chatting, this apprentice heard a few sentences. Roughly speaking, Mr. Zhou 'fell out with the Master over a woman,' and they also mentioned a name called 'Zhiling'..."
+"This apprentice could not hear the conversation from the inner study," Xu Yong said. "But later, when Wang Liang and Wang Zhi were chatting, I overheard a few words. Roughly speaking, Mr. Zhou 'fell out with the Master over a woman.' They also mentioned a name—'Zhiling'..."
 
-Speaking of this, Liu Sha's face changed! After a long while, he instructed him not to mention this matter to anyone again.
+At this, Liu Sha's face changed dramatically. After a long silence, he instructed Xu Yong never to mention this matter to anyone again.
 
-The master didn't explain the reason, but judging from his expression, he completely knew why Master Wang and Mr. Zhou quarreled. He vaguely felt that Mr. Zhou's disappearance was related to this matter.
+His master offered no explanation, but judging from his expression, he clearly knew why Master Wang and Mr. Zhou had quarreled. Xu Yong sensed vaguely that Mr. Zhou's disappearance was connected to this affair.
 
-Although Mr. Zhou was gone, since Master Wang was still taking care of his family, his younger sister would be fine. Regardless of You Rong or Yui, they both understood that the two children were their reliance, and they wouldn't mistreat the children.
+Though Mr. Zhou was gone, since Master Wang still cared for his family, his younger sister would be safe. Whether You Rong or Yui, both understood that the two children were their lifeline, and neither would mistreat them.
 
-Liu Sha also instructed him to go around the Zhou residence in the Wanggong Factory area every now and then.
+Liu Sha also instructed him to patrol the area around the Zhou residence at Wanggong Factory from time to time.
 
-Two "widowed" women with young children, beautiful as flowers and jade, with some wealth, but without a head of the household to support the family, only a few servants. This was a piece of big fat meat coveted by all parties. Master Wang had greeted the official circles, so the yamen and the local *baojia* (community self-defense system) would not make trouble for them, but the *Jianghu* characters couldn't care about these. Especially those villains who specialized in abducting and kidnapping lone women were eyeing them covetously.
+Two "widowed" women with young children—beautiful as flowers and jade, possessed of some wealth, yet without a man to head the household—attended by only a few servants. This was a succulent morsel that drew covetous eyes from all directions. Master Wang had made arrangements with the authorities, so the yamen and local *baojia* would not trouble them. But *Jianghu* characters cared nothing for such protections. Particularly those villains who specialized in abducting and trafficking vulnerable women watched the household with hungry anticipation.
 
-The soft approach involved teasing with words and exchanging letters, finally instigating them to pack up their valuables and run away privately; if they refused to run away, they would continue to be affectionate and ambiguous to figure out the routine of the residence. Waiting for an opportunity, they would break into the residence and abduct the women and their valuables. This was a specific profession in the *Jianghu*. There were especially many such villains in the Capital.
+The subtle approach involved teasing with words and exchanging letters, gradually luring them to pack their valuables and elope. If they refused to flee, the seducers would continue their intimate games while studying the household's routines. When the moment was right, they would break in and abduct both women and valuables. This was an established profession in the *Jianghu*, and the Capital harbored especially many such predators.
 
-Speaking of defense, it couldn't be said that it wasn't strict. After all, Liu Zhao was an old hand in the *Jianghu* and knew the dangers inside. After receiving orders to clear out Mr. Zhou's items, he dismissed most of the servants in the residence, leaving only two families of Wang family's household servants to guard the doors and serve for purchases. Usually, the main gate was tightly closed. Except for purchasing items daily and clearing out feces and garbage, the doors were never opened. As for the people in the residence, they rarely went out. You Rong and Yui only went out once a month to burn incense. The stewards of the Wang family also visited the residence from time to time for inspection.
+As for the residence's defenses—they could not be called lacking. After all, Liu Zhao was a veteran of the *Jianghu* who understood these dangers intimately. After receiving orders to clear out Mr. Zhou's belongings, he had dismissed most of the servants, retaining only two families of Wang household retainers to guard the doors and handle purchases. The main gate was kept tightly closed at all times. Except for daily shopping trips and removing waste, the doors never opened. As for those inside, they rarely ventured out. You Rong and Yui left the residence only once a month to burn incense. The Wang family stewards also inspected the premises periodically.
 
-But as time went on, thoughts of change arose from extreme quietness, and naturally, trouble emerged. Especially You Rong, recently in this past year, probably felt that there was no hope for the gentleman to return, and she had some actions of unwillingness to be lonely. Xu Yong knew that as long as she had this heart, someone would naturally take advantage of the gap to enter.
+But as time passed, restlessness grew from prolonged confinement, and trouble naturally followed. Especially You Rong—over the past year, she had apparently lost hope of the gentleman's return and begun showing signs of unwillingness to remain lonely. Xu Yong knew that once she harbored such thoughts, someone would inevitably find an opening.
 
-He didn't care about You Rong's fate, but once something happened, the villains wouldn't let go of Yui and the two children either. For them, these were all high-quality "goods." Even if they only abducted You Rong, what if Master Wang got angry and stopped caring about Yui and the children? He, Xu Yong, didn't have the ability to raise his sister alone.
+He cared nothing for You Rong's fate, but once disaster struck, the villains would not spare Yui and the two children either. To them, these were all premium "goods." Even if they only abducted You Rong, what if an angry Master Wang then withdrew his protection from Yui and the children? Xu Yong certainly lacked the means to raise his sister alone.
 
-Therefore, every now and then, he would hover around the Zhou residence to see if there were any suspicious characters.
+Therefore, he made a habit of circling the Zhou residence regularly, watching for suspicious characters.
 
-Today, as soon as he arrived near the Zhou residence, he discovered suspicious circumstances.
+Today, the moment he arrived near the residence, he spotted something amiss.
 
-Three idlers were separated in a triangle formation on the street in front of the main gate of the Zhou residence. They seemed unrelated to each other, but they were staring fixedly at the main gate of the Zhou residence.
+Three idlers had positioned themselves in a triangular formation along the street before the main gate. They appeared unconnected to one another, yet each kept his eyes fixed steadily on the Zhou residence's entrance.
 
-Xu Yong knew something was abnormal. After observing for a few minutes, he turned to the back door.
+Xu Yong recognized the signs of trouble. After observing for several minutes, he made his way to the back door.
 
-The back door of the residence was a cold alley and a shabby street. There weren't many people walking around even in broad daylight, but today, a fruit stall was rarely set up not far from the back door.
+The rear of the residence faced a deserted alley and a shabby street. Few people passed through even in broad daylight, yet today, unusually, a fruit stall had been set up not far from the back door.
 
-Although there were peddlers in such back streets and cold alleys, doing business with the servants of the residences, most of them were mobile peddlers who shouted while walking. No one set up a stall in a fixed place.
+While peddlers did sometimes work these back streets and quiet alleys, trading with servants from the residences, they were typically mobile vendors who called out their wares as they walked. No one set up a fixed stall in such a place.
 
-When he saw this peddler, Xu Yong knew that someone was targeting the Zhou residence.
+The moment Xu Yong saw this peddler, he knew someone was targeting the Zhou residence.
 
-Since they were only staking it out, it meant they wouldn't make a move for the time being. Xu Yong slowly retreated a few steps, turned around, and left.
+Since they were only conducting surveillance, it meant they would not act immediately. Xu Yong slowly retreated a few steps, turned, and departed.
 
-Neither Master Wang nor his master had instructed him to guard the Zhou residence, but now that there was something strange around the Zhou residence, logically he should report it to his master immediately.
+Neither Master Wang nor his own master had instructed him to guard the Zhou residence, but now that something suspicious lurked around it, he should logically report to his master at once.
 
-However, his master was now as newsless as Mr. Zhou. The only person he could ask for advice right now was Mr. Le.
+However, his master had now vanished as completely as Mr. Zhou. The only person he could turn to for advice was Mr. Le.
 
-Xu Yong didn't dare to delay and immediately went towards the Wanping County Yamen.
+Xu Yong dared not delay and immediately set off toward the Wanping County Yamen.
 
-Just at the moment he turned to leave, in a dilapidated house he hadn't noticed, someone nodded in the direction he left. Two men who looked like street idlers immediately followed him, one in front and one behind.
+At the very moment he turned to leave, in a dilapidated house he had failed to notice, someone nodded in his direction. Two men dressed as street idlers immediately followed him, one ahead and one behind.
 
-Although Xu Yong was young, he was quite courageous and had been influenced by his master and Mr. Le. Even though the matter was urgent, he knew that the more anxious he was, the less he could break the rules. So he followed his usual practice, left Wanggong Factory, but didn't go north. Instead, he went all the way east, along the outer wall of the Elephant House to Xuanwu Gate.
+Though young, Xu Yong possessed considerable courage and had absorbed much from his master and Mr. Le. Despite the urgency of the situation, he knew that haste was precisely when one must not break protocol. Following his usual practice, he left Wanggong Factory but did not head north. Instead, he went east along the outer wall of the Elephant House toward Xuanwu Gate.
 
-He circled around the corridor shops in the barbican of Xuanwu Gate, where he discovered the idlers tailing him. He immediately gave up the idea of going back immediately, went directly out of Xuanwu Gate, arrived in the Southern City, and walked all the way south to enter Yongguang Temple.
+Circling through the corridor shops in the barbican of Xuanwu Gate, he detected the idlers tailing him. He immediately abandoned any thought of returning directly. Exiting Xuanwu Gate, he entered the Southern City and walked south until he reached Yongguang Temple.
 
-Today was exactly the temple fair at Yongguang Temple. Xu Yong shook off the tracking here and went straight to Liulichang. After confirming that he had shaken off the tail here, only then did he re-enter the Inner City from Zhengyang Gate, made a big circle, came to the Wanping County Yamen, and dodged into a shabby alley on the side of the yamen.
+Today happened to be the temple fair at Yongguang Temple. Xu Yong shook off his pursuers amid the crowds, then proceeded straight to Liulichang. Only after confirming he had lost his tail did he re-enter the Inner City through Zhengyang Gate, make a wide circle, and finally arrive at the Wanping County Yamen, slipping into a shabby alley beside it.
 
-This shabby alley was extremely long and the ground was full of mud and dirty water. The alleyway was even more tortuous. Xu Yong went around a crooked elm tree and dodged into the well house on the side. He waited quietly for a few minutes, seeing that no one followed behind, only then did he come out of the well house. Beside the well house was an inconspicuous small alley, allowing only one person to pass. He walked in.
+This narrow alley stretched on endlessly, its ground thick with mud and filth. The passage twisted and turned. Xu Yong navigated around a crooked elm tree and ducked into a well house at the side. He waited silently for several minutes, and only when certain no one had followed did he emerge. Beside the well house lay an inconspicuous side passage, just wide enough for one person to squeeze through. He entered it.
 
 (End of Chapter)

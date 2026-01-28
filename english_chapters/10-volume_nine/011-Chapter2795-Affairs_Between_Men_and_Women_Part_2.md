@@ -1,81 +1,81 @@
 # Chapter 2795: Affairs Between Men and Women (Part 2)
 
-Zhang Berlin said "too" twice but didn't find a very suitable word. Best to use a sentence "a fresh flower stuck in cow dung" to describe.
+Zhang Berlin said "too" twice but couldn't find quite the right word. The best description would be "a fresh flower planted in cow dung."
 
-But he immediately chose a moral high ground with more lethality: "This person Liu Xiang has engaged several Life Secretaries; even has children. Speaks with full daddy flavor (condescending/patriarchal), greasy (sleazy) cannot be greasier. Little Zhang marrying him?!"
+But he quickly seized upon higher moral ground with greater rhetorical force: "This Liu Xiang has gone through several Life Secretaries—he even has children! He speaks with that condescending, patriarchal tone, and he's as sleazy as they come. Little Zhang marrying *him*?!"
 
-Dongmen Chuiyu thought it wasn't very good for you to say these heartfelt words out loud. Although in his view the possibility of Zhang Yunmi fancying Liu Xiang was not necessarily greater than fancying him. But Little Zhang had tempered in local places for these years, faintly already having the momentum of governing a region. What about Liu Xiang? Also a rising new star in the Senate galaxy. Future Regional Governor or "Minister" were all within range.
+Dongmen Chuiyu thought it wasn't particularly wise to voice such heartfelt complaints aloud. Though in his view, the likelihood of Zhang Yunmi taking a fancy to Liu Xiang wasn't necessarily greater than her fancying him. But Little Zhang had tempered herself in local postings for years now, already showing the momentum of someone capable of governing a region. And Liu Xiang? Also a rising star in the Senate's constellation. Future Regional Governor or "Minister"—both were well within reach.
 
-If Little Zhang was a woman with quite some ambition, taking the route of strong-strong alliance through marriage mode was not impossible. Just that this possibility was very small. At least in Dongmen Chuiyu's view, Zhang Yunmi was not such a person.
+If Little Zhang was a woman of considerable ambition, taking the route of a strong alliance through marriage wasn't impossible. It was just that such a possibility seemed quite small. At least in Dongmen Chuiyu's view, Zhang Yunmi was not that kind of person.
 
-Of course these could only count as conjectures. After all, no one knew Zhang Yunmi's true inner thoughts.
+Of course, these were merely conjectures. After all, no one knew Zhang Yunmi's true inner thoughts.
 
-Dongmen deliberated a bit: "Berlin, when Little Zhang was a student, she liked wearing beautiful clothes singing and jumping, being an idol. This is the privilege of young girls. But idols eventually have to graduate. Little Zhang has already graduated. She now has her own work, life. Little Zhang is already an adult now. Who she gets close to, who she likes, is her personal freedom. Senators are all equal."
+Dongmen considered his words carefully: "Berlin, when Little Zhang was a student, she enjoyed wearing beautiful clothes, singing and dancing, being an idol. That's the privilege of young girls. But idols eventually have to graduate. Little Zhang has already graduated. She now has her own work, her own life. She's already an adult. Whom she grows close to, whom she likes—that's her personal freedom. All Senators are equal."
 
-"I understand, I understand." Zhang Berlin said urgently, "But, I just feel breath not smooth (unhappy/resentful). Yunmi doesn't like me; I can completely accept. My temper is sometimes impulsive, but I am not unreasonable. Of course she has freedom of choice. Little Zhang dating others, this matter I completely accept. But, why specifically Mayor Liu? I see the grandson surnamed Liu utilized work convenience to cheat Little Zhang!"
+"I understand, I understand," Zhang Berlin said urgently. "But I just feel this... resentment inside me. Yunmi doesn't like me; I can accept that completely. My temper is sometimes impulsive, but I'm not unreasonable. Of course she has freedom of choice. Little Zhang dating others—this I can accept entirely. But why specifically Mayor Liu? The way I see it, that bastard surnamed Liu exploited his position to deceive Little Zhang!"
 
-Dongmen Chuiyu persuaded: "Who said Zhang Yunmi and Mayor Liu are dating? Aren't you creating a friend out of nothing (making things up)?"
+Dongmen Chuiyu tried to reason with him: "Who said Zhang Yunmi and Mayor Liu are dating? Aren't you conjuring up a couple out of thin air?"
 
-"Guangzhou all spread this..."
+"Everyone in Guangzhou is saying it..."
 
-"This is a rumor. Didn't they just have a bit more work relationship dealings?"
+"That's just rumor. They merely had a few more work-related dealings, nothing more."
 
-Zhang Berlin was like not hearing, continuing to vent dissatisfaction: "Right, he Liu Xiang is now the Mayor of Guangzhou Special City, a high provincial official. Because of work relationship, can still display his so-called political wrist and ability in front of Little Zhang every day. Following Liu Xiang, whether now or future, can have much political support and help.
+Zhang Berlin continued venting his dissatisfaction as if he hadn't heard: "Right, so Liu Xiang is now the Mayor of Guangzhou Special City, a high provincial official. Because of their work relationship, he can show off his so-called political skill and ability in front of Little Zhang every day. Following Liu Xiang—whether now or in the future—would bring considerable political support and assistance.
 
-"But so what? Without his Liu Xiang's support and help, can't Little Zhang stand out?!
+"But so what? Without Liu Xiang's support and help, can't Little Zhang stand out on her own?!
 
-"The Senate has only 500 or so heads in total, and not everyone has to do administrative work. Wait until controlled areas expand; by then positions will be largely vacant. Even Soy Sauce Senators have to be pushed up hard. Even if they are just conservative talents following routine, probably can't fill vacancies. Have or have not Liu Xiang's so-called support and help. Little Zhang at least mixing a Regional Leader is no problem."
+"The Senate has only about five hundred seats total, and not everyone needs to pursue administrative work. Wait until our controlled territories expand—positions will be largely vacant then. Even the do-nothing Senators will have to be pushed up to fill spots. Even if they're just conservative talents following established routines, there still probably won't be enough to fill all the vacancies. With or without Liu Xiang's so-called support and help, Little Zhang becoming at least a Regional Leader won't be a problem."
 
-Dongmen spread hands: "Doesn't this conclude it? With or without Mayor Liu's support, Little Zhang will become a Big Leader. She is young too; plenty of opportunities."
+Dongmen spread his hands: "Doesn't that settle it then? With or without Mayor Liu's support, Little Zhang will become a Big Leader. She's young too; she has plenty of opportunities ahead."
 
-"I'm just afraid Little Zhang didn't think clearly for a time, letting this grandson Liu take advantage of a weak point to enter." Zhang Berlin had a face of worry, "Wait until thought through, understood, can she stab this fellow?"
+"I'm just afraid Little Zhang didn't think things through clearly, and that bastard Liu seized on a moment of vulnerability to worm his way in." Zhang Berlin's face was full of worry. "What happens when she's thought it through and realized her mistake? Can she just cast him aside then?"
 
-"I understand your concern for Little Zhang." Dongmen paused. "My personal view. These things you thought of, Little Zhang has already thought of. As for whether she will be confused by Mayor Liu's 'advantage' for a time, accidentally boarding the pirate sip, I feel, won't."
+"I understand your concern for Little Zhang." Dongmen paused. "Here's my personal view: everything you've thought of, Little Zhang has already considered. As for whether she might be momentarily dazzled by Mayor Liu's 'advantages' and accidentally board the wrong ship—I don't think she will."
 
 "Why?" Zhang Berlin didn't understand.
 
-"No why. No confirmative evidence. Just believe Little Zhang can think clearly. Mayor Liu's so-called 'advantage' is just a special state of this period."
+"No particular reason. No concrete evidence. I just trust Little Zhang to think things through clearly. Mayor Liu's so-called 'advantages' are merely a special circumstance of this particular period."
 
-Zhang Berlin was still not assured. "My other fear is that this rumor has already spread among naturalized citizen cadres. Afraid she can't withstand pressure for a time, letting Mayor Liu push the boat with the current."
+Zhang Berlin was still uneasy. "My other worry is that this rumor has already spread among the naturalized citizen cadres. I'm afraid she might yield to the pressure for a moment and let Mayor Liu push things along."
 
-"Since you like her, you have to trust her. Besides these are all rumors. As long as she makes up her mind, others have no way to shake it."
+"If you like her, you have to trust her. Besides, these are all just rumors. As long as she's made up her mind, no one can shake her resolve."
 
-Dongmen Chuiyu thought: Regarding Zhang Yunmi's matter, Liu Xiang has no chance, you also have no chance!
+Dongmen Chuiyu thought to himself: *Regarding Zhang Yunmi—Liu Xiang has no chance, and neither do you!*
 
-Suddenly, thundering cheers and applause sounded in the field, interrupting the whispers on the stands. Senators also followed to applaud perfunctorily.
+Suddenly, thundering cheers and applause erupted from the field, interrupting the whispered conversation in the stands. The Senators joined in with perfunctory applause.
 
-Navy People's Commissar Ming Qiu stood at the most dashing position on the rostrum of Bairen Grand Stadium. Looked around the neatly dressed students and naturalized citizen workers on the stands, then looked down at the several neat Fubo Army squares in the field. At He Ming's request, he made a brief speech. Nothing more than making persistent efforts to strive for greater victories and the like. Ming Qiu didn't have much excitement in heart, nor much joy. Navy People's Commissar Ming Qiu stayed forever on the sea surface of Kinmen. Staying here was just a retired former naval officer. He had already submitted resignation to the Senate, resigning from the position of Navy People's Commissar. In the future, being an instructor at Hong Kong Naval Academy, teaching and educating people to spend the remaining life, laying the foundation for the future navy.
+Navy People's Commissar Ming Qiu stood at the most prominent position on the rostrum of Bairen Grand Stadium. He surveyed the neatly dressed students and naturalized citizen workers in the stands, then looked down at the several orderly squares of Fubo Army soldiers on the field. At He Ming's request, he delivered a brief speech—nothing more than the usual exhortations to continue striving for greater victories and the like. Ming Qiu felt no particular excitement, nor much joy. Navy People's Commissar Ming Qiu had remained forever on the waters off Kinmen. The man standing here was merely a retired former naval officer. He had already submitted his resignation to the Senate, stepping down from his position as Navy People's Commissar. In the future, he would serve as an instructor at Hong Kong Naval Academy, teaching and nurturing the next generation for his remaining years, laying the foundation for the future navy.
 
-Tan Shuangxi stood in the center of Bairen Stadium. The feeling of being surrounded and cheered by tens of thousands of people made him a bit tipsy. Having such glory in this life, worth it! He listened to the two Chiefs' speeches very seriously. The deafening sounds coming from all directions made it hard for him not to be serious.
+Tan Shuangxi stood at the center of Bairen Stadium. The sensation of being surrounded and cheered on by tens of thousands of people left him slightly intoxicated. To have such glory in this lifetime—it was worth it! He listened to the two Chiefs' speeches with utmost seriousness. The deafening sounds coming from all directions made it impossible not to be serious.
 
-"...We all come from five lakes and four seas. For a common goal, walked together. We today already lead the whole Hainan and Guangdong, but still not enough. Need more resources, and more people to walk together with us, to achieve national liberation..."
+"...We all come from the five lakes and four seas. For a common goal, we have walked together. Today we already lead all of Hainan and Guangdong, but it is still not enough. We need more resources, and more people to walk together with us, to achieve national liberation..."
 
-Tan Shuangxi remembered the flash of thought during the march in the morning again. Why do we fight. he was originally a refugee from Guangdong. After purification, because knowing how to dry salt, was assigned to settle in Manya.
+Tan Shuangxi recalled once more the fleeting thought that had crossed his mind during the morning march. *Why do we fight?* He had originally been a refugee from Guangdong. After completing the purification process, he was assigned to settle in Manya because he knew how to work salt.
 
-During the Battle of Chengmai, went to the frontline as a laborer, participated in transporting ammunition and treating wounded. Smoke and blood on the battlefield stimulated his blood nature (courage); participated in battle on the firing line. Wrestled with government troops on the earthen dike, rushed to transport wounded. At that time, his thought was very simple: never want to live the past days again.
+During the Battle of Chengmai, he had gone to the front as a laborer, participating in transporting ammunition and treating the wounded. The smoke and blood of the battlefield had stirred something courageous within him; he ended up joining the battle on the firing line. He grappled with government troops atop earthen dikes and rushed to evacuate the wounded. At that time, his thinking had been simple: *I never want to live those old days again.*
 
-Post-war recruit company trained near Chengmai, organized everyone to visit the Ming Army's Chengmai Grand Camp. Some Chengmai common folks were invited to tell them the experience at that time. A woman described weeping bitterly: Her husband served as village brave to defend the city, but was captured by government troops and beheaded, treated as a Fubo Army head to report military merit. An old man cried and shouted saying before government troops fled, they robbed everything in his home, and insulted his daughter-in-law. He then secretly made up his mind never to allow government troops to step into this new hometown again, letting family be beheaded to report merit. This belief supported his military career he participated in. But inside the transport ship going north, he started to be confused again once more. Here was not his own hometown; why should I go to "liberate" these people irrelevant to me? This morning, by the Wenlan River, he seemed to have found the answer. To defend the peaceful life of hometown, he really was willing to risk life; but seemed not quite there yet. But the North? Guangdong and Guangxi, even further Great Ming land? Seemed not so worth it.
+After the battle, during recruit training near Chengmai, they were organized to visit the Ming Army's Chengmai Grand Camp. Some Chengmai common folk were invited to share their experiences. One woman described her ordeal through bitter weeping: her husband had served as a village militia defender, but was captured by government troops and beheaded, his head passed off as a Fubo Army soldier's to claim military merit. An old man cried out that before the government troops fled, they had robbed everything from his home and violated his daughter-in-law. Tan Shuangxi had then silently vowed never to let government troops set foot in this new homeland again, never to let his family be beheaded for someone else's merit. This belief had sustained him throughout his military career. But inside the transport ship heading north, confusion had crept back in. This place was not his hometown—why should he go "liberate" people who had nothing to do with him? This morning, by the Wenlan River, he had seemed to find an answer. To defend the peaceful life of his hometown, he truly was willing to risk his life; but even that didn't feel quite enough. And what of the north? Guangdong and Guangxi, and even further—the vast lands of Great Ming? It seemed not quite worth it.
 
-Days and nights fighting in Guangdong and Guangxi. Every soldier fallen by his side suddenly returned to his side in an instant. "...Save me..." A soldier with blood bubbling on chest, mouth spraying blood foam, two hands grabbing disorderly in the air.
+Days and nights of fighting in Guangdong and Guangxi. Every soldier who had fallen by his side suddenly returned to him in that instant. "...Save me..." A soldier with blood bubbling from his chest, mouth spraying foam, hands grasping blindly at the air.
 
-"Platoon Leader, Company Commander orders you to go to Battalion Headquarters for meeting after arriving at camp. New task." A messenger ran over from the front of the team, pulling Tan Shuangxi from Guangdong and Guangxi back to the peaceful world of Lingao. Tan Shuangxi took the chance of replying the messenger to organize his own emotions. At this time the welcome ceremony had ended. There were still quite a few cheering crowds on the stands, but no one on the rostrum. The team ahead already began to form up to march out of the stadium.
+"Platoon Leader, the Company Commander orders you to report to Battalion Headquarters for a meeting after we arrive at camp. New assignment." A messenger ran over from the front of the column, pulling Tan Shuangxi back from Guangdong and Guangxi to the peaceful world of Lingao. Tan Shuangxi took the opportunity of replying to the messenger to collect his emotions. By this time, the welcome ceremony had ended. Quite a few cheering crowds still remained in the stands, but the rostrum was empty. The column ahead had already begun forming up to march out of the stadium.
 
-It was already dusk when Tan Shuangxi arrived at the station. This bit of distance from Bairen to Manya was not worth mentioning for soldiers accustomed to marching. Let alone they were walking on a road paved flat—this was much stronger than the "Official Roads" and various sheep gut small trails walked in Guangdong and Guangxi.
+It was already dusk when Tan Shuangxi arrived at the station. This stretch from Bairen to Manya was nothing worth mentioning for soldiers accustomed to marching—especially since they were walking on a properly paved road. This was far superior to the "Official Roads" and various narrow mountain trails they had traversed in Guangdong and Guangxi.
 
-This road was most familiar to soldiers. Especially for veterans like Tan Shuangxi, he knew not how many times he walked the road from Bairen to Manya. When troops "Supported Industry and Agriculture," most work locations were reached by marching along this road. Even this road itself was left with their sweat.
+This road was most familiar to the soldiers. Especially for veterans like Tan Shuangxi, who had walked the route from Bairen to Manya more times than he could count. When the troops had "Supported Industry and Agriculture," most work sites were reached by marching along this road. Even the road itself bore the marks of their sweat.
 
-From a simple highway barely passable for vehicles, to a great road paved with coal ash and gravel, flat enough for carriages to drive briskly past. How many changes inside; could really be said "changing with each passing day" (rapidly changing).
+From a crude highway barely passable for vehicles to a proper road paved with cinder and gravel, smooth enough for carriages to travel at a brisk pace—how many changes it had seen. It could truly be said to be "changing with each passing day."
 
-People coming and going on the County Road. People clustered in groups by the roadside, watching the return trip of troops. Constantly someone inquired about news. Marching speed couldn't be fast all along. Only arrived at Manya Fortress after noon.
+People came and went along the County Road. Groups clustered by the roadside, watching the troops return. Someone was constantly inquiring about news. The marching pace couldn't stay fast throughout. They only arrived at Manya Fortress past noon.
 
-Manya Fortress also set up a battle array of welcome. The 1st Battalion Stay-behind Detachment and sick and wounded sent to Manya Army Hospital for recuperation earlier all came to the camp gate to welcome. Comrades meeting, exceptionally affectionate. Inquiring about recent situation of this journey and news of acquaintances. Surprise and happiness, also sorrow and sighing.
+Manya Fortress had also arranged a grand welcome. The 1st Battalion's Stay-behind Detachment and the sick and wounded who had been sent earlier to Manya Army Hospital for recuperation all came to the camp gate to greet them. Comrades reuniting, the affection was exceptional. They inquired about recent events from the campaign and news of mutual acquaintances—surprise and happiness, but also sorrow and sighing.
 
-Returning to Manya Fortress counted as returning home. The canteen had long prepared steaming meals. Chicken, duck, fish, meat, having everything that one could expect. And it was buffet mode. Eat as much as wanted; pipe enough (guaranteed enough). Even alcohol usually forbidden to drink, this time was also supplied openly. Crates of Wenlan River Beer. As long as not drinking until lying down (drunk), at will.
+Returning to Manya Fortress counted as coming home. The canteen had long prepared steaming meals. Chicken, duck, fish, meat—everything one could expect. And it was served buffet style—eat as much as you want, with plenty guaranteed. Even alcohol, usually forbidden, was supplied openly this time. Crates of Wenlan River Beer. As long as you didn't drink yourself under the table, help yourself.
 
-Tan Shuangxi didn't eat and drink gluttonously like others. As Acting Platoon Leader, he and all Company/Platoon Leaders received orders to maintain clear-headedness, so as to handle matters at any time when things happen at night.
+Tan Shuangxi did not indulge like the others. As Acting Platoon Leader, he and all the other Company and Platoon Leaders had been ordered to remain clear-headed, ready to handle any situation that might arise during the night.
 
-Although the battalion didn't say "handle" what, everyone knew clearly in heart. Guarding against night disturbance (riot).
+Although the battalion hadn't specified what kind of situation, everyone understood clearly: they were guarding against night disturbances.
 
-People who served in Ming Army before said this was called "Camp Howl" (Ying Xiao). Someone having nightmare howling madly at midnight, the whole battalion would follow to create disturbance. Also mutual hacking and trampling. In the past Tan Shuangxi and others only felt it was "story." After all he never encountered similar things.
+Those who had previously served in the Ming Army called it "Camp Howl." If someone had a nightmare and started screaming madly at midnight, the whole battalion might follow suit, descending into chaos—even hacking at each other and trampling one another. In the past, Tan Shuangxi and the others had thought it was merely a story. After all, he had never encountered such a thing himself.
 
 (End of Chapter)

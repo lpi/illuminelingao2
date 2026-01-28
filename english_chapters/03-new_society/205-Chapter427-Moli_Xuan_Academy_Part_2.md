@@ -28,7 +28,7 @@ Based on Xiong Buyou's observations, the scholars regarded the Crossing Group wi
 
 *This old man still harbors doubts about us,* Xiong Buyou mused. *But we have sugar-coated bullets aplenty.*
 
-Meanwhile, Wu Mingjin observed with relief that nearly every provincial graduate and *xiucai* in the county had attended, and none appeared to have "gone over to the bandits." Drawing Wang Ci aside, he asked in a low voice whether the Short Hairs had made any attempts to recruit local scholars. Had they attached any conditions to the Moli Xuan renovation—perhaps requiring scholars to do something in return?
+Meanwhile, Wu Mingjin observed with relief that nearly every provincial graduate and *xiucai* in the county had attended, and none appeared to have "gone over to the bandits." Drawing Wang Ci aside, he asked in a low voice whether the Kun had made any attempts to recruit local scholars. Had they attached any conditions to the Moli Xuan renovation—perhaps requiring scholars to do something in return?
 
 Wang Ci hastened to assure him that the renovation of Moli Xuan and the county school came with no strings attached; no demands had been placed upon the scholars. Wu Mingjin looked skeptical and pressed him repeatedly, until Wang Ci grew quite vexed. At last he let out a cold laugh: "The scholars are all outside. I'll summon them at once, Your Honor, and you may question them yourself!"
 

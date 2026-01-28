@@ -1,86 +1,86 @@
 # Chapter 2748: The Capital (Part 104)
 
-He suddenly shivered: Xu Guangqi was conductung tuntian (military farming) in Tianjin and had introduced many Western agricultural methods and machinery, with outstanding results. This so-called "Western," might well contain things from the Kun scoundrels.
+A sudden shiver ran through him. Xu Guangqi was conducting tuntian—military farming—in Tianjin, where he had introduced numerous Western agricultural methods and machinery to outstanding effect. This so-called "Western" knowledge might very well contain elements from the Kun.
 
-If he rashly claimed that Sun Yuanhua was colluding with the Kun and so on, wouldn't he also offend Xu Guangqi!
+If he rashly accused Sun Yuanhua of colluding with the Kun, would he not also offend Xu Guangqi in the process?
 
-Xu Guangqi had been an official for many years and had deep connections. Moreover, as the leader of the believers of the Western religion in China, he was surrounded by a group of gentry who followed the religion. Offending him would make his own official position unstable.
+Xu Guangqi had served as an official for many years and cultivated deep connections throughout the court. Moreover, as the leader of Western religion believers in China, he commanded a following of gentry who had embraced the faith. To offend such a man would render his own position precarious.
 
-Even if Sun Yuanhua was involved with the Kun scoundrels, it was probably just some Australian sea merchants wanting an extra way to seek profit. The land of Denglai was barren and known for its poverty, unlike the fertile soil and water of Qiongzhou. Without years of operation on land, they could not become a major trouble immediately. Even if one day the Kun scoundrels invaded Dengzhou, Sun Yuanhua would be the first to be blamed, having nothing to do with himself. Thinking of this, Yang Sichang replied:
+Even if Sun Yuanhua were truly involved with the Kun, it was likely nothing more than Australian sea merchants seeking additional avenues for profit. The land of Denglai was barren and notorious for its poverty—nothing like the fertile soil and abundant waters of Qiongzhou. Without years of establishing themselves on land, the Kun could not become a serious threat immediately. And should they one day invade Dengzhou, Sun Yuanhua would bear the blame first; the matter would have nothing to do with him. With this reasoning settled in his mind, Yang Sichang replied:
 
-"Since the Dengzhou Mutiny, Sun Yuanhua has pacified Dongjiang, pinned down the Tartars, and repeatedly achieved strange merits. His loyalty and diligence are clear for the sun and moon to see. If the Kun scoundrels really have dealings with him, presumably it is just merchants under his rule selling Kun goods. Denglai is located along the coast, so there must be maritime merchants coming. Merchants value profit; it is not surprising that they sell items made by the Kun scoundrels, or even weapons. Your Majesty, in today's world, where are Kun goods not sold? Who does not use Kun goods? Your servant believes that since Kun goods have uses for the Great Ming, there is no need to temporarily ban them."
+"Since the Dengzhou Mutiny, Sun Yuanhua has pacified Dongjiang, contained the Tartars, and achieved remarkable victories time and again. His loyalty and diligence shine as clearly as the sun and moon. If the Kun truly have dealings with him, it is presumably only merchants under his jurisdiction trading in Kun goods. Denglai lies along the coast, so maritime merchants naturally come and go. Merchants pursue profit above all else—it is hardly surprising that they sell items made by the Kun, or even weapons. Your Majesty, in today's world, where are Kun goods not sold? Who does not use them? Your servant believes that since these goods serve the Great Ming, there is no need to impose a temporary ban."
 
-Chongzhen nodded after listening. Regarding Sun Yuanhua, there were not a few people who impeached him, and he was also suspicious. So he instructed the guarding eunuch of Denglai and the Jinyiwei to investigate. Although the results were not entirely as Yang Sichang said, the report stated there were no signs of Kun scoundrels operating on the ground in Denglai. However, it was reported that Sun Yuanhua's Dengzhou Army had purchased fowling pieces and cannons claiming to be from Nanyang (Southeast Asia) from sea merchants, which were extremely sharp and seemed to be obtained from the Kun scoundrels. But later, when Chongzhen questioned the Ministry of War about this matter, he found that such fowling pieces claimed to be from Nanyang were equipped by many elite units of the town markers and governor's markers, including the Guan-Ning Army. So this matter was left unsettled.
+Chongzhen nodded as he listened. Regarding Sun Yuanhua, those who impeached him were not few, and the Emperor himself harbored suspicions. He had therefore instructed the guarding eunuch of Denglai and the Jinyiwei to investigate. While the results did not entirely match Yang Sichang's account, the report confirmed no signs of Kun forces operating on the ground in Denglai. However, it noted that Sun Yuanhua's Dengzhou Army had purchased fowling pieces and cannons from sea merchants—weapons claimed to originate from Nanyang but reportedly of exceptional quality, seemingly obtained from the Kun. Yet when Chongzhen later questioned the Ministry of War about this matter, he discovered that such fowling pieces supposedly from Nanyang equipped many elite units among the town and governor's markers, including the renowned Guan-Ning Army. And so the matter was left unsettled.
 
-Yang Sichang's words hit Chongzhen's appetite exactly. In the current situation, he did not want to lose this capable minister. The reversal of the situation in Denglai and Jiangdong greatly pinned down the activities of the Tartars. Because Sun Yuanhua and others were serving while wearing their guilt from the Dengzhou rebellion, their tone in asking the Imperial Court for grain and pay was much softer. Memorials allowed him to recruit refugees, reclaim land for military colonies, and substitute grain for pay. Coupled with the direct shipment of grain from the Taicang Granary to Lushun in Dengzhou, Sun Yuanhua now saved the Imperial Court nearly 100,000 taels of expenses annually. Such a minister who was good at reducing costs and increasing efficiency and convenient for the leader to shift blame to was naturally a sweet pastry in Chongzhen's eyes. As for whether the Kun scoundrels really made trouble in Denglai, it would not be too late to investigate and punish him then.
+Yang Sichang's words struck precisely at Chongzhen's inclinations. Under current circumstances, he had no wish to lose such a capable minister. The reversal of fortunes in Denglai and Jiangdong had significantly contained Tartar activities. Because Sun Yuanhua and his colleagues served while bearing guilt from the Dengzhou rebellion, their tone when requesting grain and pay from the Imperial Court was notably more subdued. Memorials permitted them to recruit refugees, reclaim land for military colonies, and substitute grain for pay. Combined with grain shipments sent directly from the Taicang Granary to Lushun in Dengzhou, Sun Yuanhua now saved the Imperial Court nearly one hundred thousand taels annually. A minister so skilled at reducing costs and increasing efficiency—and conveniently positioned to absorb blame—was naturally a treasured asset in Chongzhen's eyes. As for whether the Kun were truly causing trouble in Denglai, there would be time enough to investigate and punish him if that day came.
 
-"Zhen heard that the Kun scoundrels are also of the Huaxia lineage, exiled overseas after the complete extinction of the Song limit. Although they now occupy Liangguang, if they can refrain from creating chaos so the common people suffer less from the suffering of war, they are also Zhen's innocent children."
+"Zhen has heard that the Kun are also of the Huaxia lineage—descendants exiled overseas after the complete destruction of the Song dynasty. Though they now occupy Liangguang, if they can refrain from creating chaos and spare the common people the suffering of war, they too are Zhen's innocent children."
 
-The Emperor's sentence was somewhat abrupt, but Yang Sichang had long heard Wen Tiren hint that the Emperor did not consider the Kun scoundrels a heart's disease and vaguely had the intention of recruiting them. The policy of "pacifying the interior before resisting external aggression" seemed to fit the Emperor's mind exactly.
+The Emperor's statement came somewhat abruptly, but Yang Sichang had long ago heard Wen Tiren hint that the Emperor did not consider the Kun a pressing threat and vaguely harbored intentions of recruiting them. The policy of "pacifying the interior before resisting external aggression" seemed to align perfectly with His Majesty's thinking.
 
-"Yes, the Emperor is benevolent. Since the Kun scoundrels are descendants of Huaxia, as long as the Emperor gives them a chance, they can always realize their errors and reform their past misdeeds."
+"Indeed, the Emperor is benevolent. Since the Kun are descendants of Huaxia, so long as Your Majesty grants them an opportunity, they may yet realize their errors and reform their ways."
 
-The monarch and minister talked back and forth for nearly an hour before Yang Sichang withdrew. Chongzhen stretched his body and walked out of the Palace of Heavenly Purity (Qianqinggong). Since ascending the throne, fires had broken out in all eight directions of the Great Ming, and smoke rose everywhere. This young Son of Heaven, only twenty-six years old, had a demeanor and gait as haggard as a middle-aged man. This time he felt incomparably clear. since the world-famous Chuang King Gao Yingxiang was escorted to Beijing and executed a few months ago, and Sun Yuanhua reported the great victory at Zhenjiang Fort a few days ago, and now Yang Sichang offered him a strategy to pacify the bandits, he seemed to see the restoration of the Great Ming right before his eyes. So he ordered Wang Chengen:
+Monarch and minister conversed back and forth for nearly an hour before Yang Sichang withdrew. Chongzhen stretched and walked out of the Palace of Heavenly Purity. Since ascending the throne, fires had broken out in all eight directions of the Great Ming, smoke rising from every corner. This young Son of Heaven, only twenty-six years old, carried himself with the haggard demeanor of a middle-aged man. Yet today he felt remarkably clear-headed. The world-famous Chuang King, Gao Yingxiang, had been escorted to Beijing and executed just months ago. Sun Yuanhua had reported the great victory at Zhenjiang Fort only days past. And now Yang Sichang had presented him with a strategy to pacify the bandits. He seemed to glimpse the restoration of the Great Ming within reach. He ordered Wang Chengen:
 
-"Go to the Rear Garden (aka the Imperial Garden)."
+"To the Rear Garden."
 
-He hadn't been to the Rear Garden for a long time. The Capital was not like Jiangnan; although there were some evergreen trees, in the freezing weather, the Imperial Garden was bleak and desolate, with nothing to admire in terms of landscaping. Moreover, the inner garden was cramped, so when the Emperor went for an outing, he mostly went to places like the West Garden or Wansui Mountain.
+He had not visited the Rear Garden for some time. The Capital was nothing like Jiangnan; though a few evergreen trees stood here and there, in such freezing weather the Imperial Garden appeared bleak and desolate, offering little to admire in terms of landscaping. Moreover, the inner garden was cramped, so when the Emperor wished for an outing, he typically went to places like the West Garden or Wansui Mountain.
 
-The inner eunuchs were in a flurry after receiving the decree. By the time the Emperor arrived at the Rear Garden, the garden had been prepared. A fire was lit in the Yufang Pavilion (now Weiyu Studio), where the Emperor usually sat and rested when visiting the Rear Garden. Fresh flowers sent from Haidian were arranged in the warm cave.
+The inner eunuchs scrambled upon receiving the decree. By the time the Emperor arrived at the Rear Garden, preparations were complete. A fire had been lit in the Yufang Pavilion—now known as Weiyu Studio—where the Emperor usually sat and rested during visits to the Rear Garden. Fresh flowers sent from Haidian had been arranged within the heated chamber.
 
-The Emperor came to this Rear Garden, which had nothing to admire, not on a whim, but to summon an important person.
+The Emperor had come to this unremarkable garden not on a whim, but to summon an important person.
 
-This person was not a high-ranking official or dignitary, nor a trusted heavy minister, but the Emperor was quite touched after reading his memorial not long ago, so he specially summoned him for an audience today.
+This person was neither a high-ranking official nor a trusted minister of great weight. Yet the Emperor had been deeply moved upon reading his memorial not long ago and had therefore arranged this special audience.
 
-Because his identity was quite special, the Emperor chose the Inner Court instead of places like the Palace of Heavenly Purity where he usually summoned officials.
+Because the man's identity was rather unusual, the Emperor chose the Inner Court rather than places like the Palace of Heavenly Purity, where he typically received officials.
 
-Not long after sitting down, someone came to report that Cao Huachun, the Admiral of the Eastern Depot (Dongchang), had arrived.
+Shortly after he had settled himself, someone came to report that Cao Huachun, Admiral of the Eastern Depot, had arrived.
 
 "This slave greets the Imperial Grandfather."
 
-Chongzhen nodded silently and asked, "I heard that some days ago, something happened to the Delong Bank. What is the situation now?"
+Chongzhen acknowledged him with a silent nod and asked, "I heard that something happened to the Delong Bank some days ago. What is the situation now?"
 
-Cao Huachun had long received news from Wang Dehua: The Emperor was sending the Jinyiwei to secretly investigate Delong's affairs.
+Cao Huachun had already received word from Wang Dehua: the Emperor was dispatching the Jinyiwei to secretly investigate Delong's affairs.
 
-He had roughly found out the ins and outs of the kidnapping of Shopkeeper Leng of Delong. But he couldn't speak too clearly, guarding against the Emperor suspecting he had come prepared.
+He had roughly pieced together the circumstances of Shopkeeper Leng's kidnapping. But he could not speak too clearly, lest the Emperor suspect he had come prepared.
 
-"Replying to the Imperial Grandfather, there was indeed such a matter. It is said that some bandits from the outskirts of the Capital banded together to kidnap Shopkeeper Leng and demanded one hundred thousand taels of silver. After the Shuntian Prefecture investigated and arrested them, Shopkeeper Leng was rescued before the New Year." He paused and added a few sentences, "Because Shopkeeper Leng was kidnapped, Delong was unstable for a time, and the common people all went to make runs on the bank. Now that he is back, the market has calmed down."
+"Replying to the Imperial Grandfather, there was indeed such a matter. It is said that bandits from the outskirts of the Capital banded together to kidnap Shopkeeper Leng and demanded one hundred thousand taels of silver. After the Shuntian Prefecture investigated and made arrests, Shopkeeper Leng was rescued before the New Year." He paused, then added, "Because of the kidnapping, Delong was unstable for a time, and the common people rushed to withdraw their deposits. Now that he has returned, the market has calmed."
 
-"Is this Delong the bank specialized in remittances with Liangguang?"
+"Is this Delong the bank that specializes in remittances with Liangguang?"
 
-"Yes, it is this one," Cao Huachun said, becoming more careful in his heart.
+"Yes, it is that one," Cao Huachun replied, growing more cautious.
 
-"I heard that for remittances with Liangguang, they have so-called telegraphic transfers (dianhui), which can arrive in two days. I wonder if there is such a thing?"
+"I have heard that for remittances with Liangguang, they offer so-called telegraphic transfers—dianhui—which arrive in two days. Is there truth to this?"
 
-"This slave has never handled bank drafts at Delong, nor do I have relatives or friends in Guangdong, so I do not know if this statement is true. However, Delong's handling of remittances is indeed known for being 'fast', 'secret', and 'swift'. As for saying it arrives in two days, it is probably a market rumor and largely exaggerated."
+"This slave has never handled bank drafts at Delong, nor do I have relatives or friends in Guangdong, so I cannot speak to whether this claim is accurate. However, Delong's handling of remittances is indeed known for being fast, discreet, and swift. As for arriving in two days, that is likely market rumor, largely exaggerated."
 
-"Zhen also thinks so," the Emperor nodded. He originally thought this statement was very absurd. Now that the reports from the Jinyiwei and the Eastern Depot were roughly the same, it dispelled his worries about Delong having "sorcery". He asked again:
+"Zhen believes so as well," the Emperor nodded. He had originally thought the claim absurd. Now that reports from both the Jinyiwei and the Eastern Depot were roughly consistent, his concerns about Delong possessing some manner of "sorcery" were dispelled. He asked again:
 
-"Zhen heard that there are inner officials (eunuchs) holding shares in this Delong. Is there such a thing?"
+"Zhen has heard that inner officials hold shares in this Delong. Is there truth to this?"
 
-Cao Huachun had long been waiting for him to ask this sentence. Wang Dehua had already greeted him about this matter. He immediately said: "Such banks mostly worship at the gates in the Capital, relying on them as backers. Every family is like this, not just Delong. Presumably, perhaps this Shopkeeper Leng worshiped under the gate of a certain inner official..."
+Cao Huachun had long anticipated this question. Wang Dehua had already briefed him on the matter. He replied promptly: "Such banks typically cultivate patrons at the gates of the Capital, relying on them as backers. Every establishment does this—Delong is hardly unique. Presumably, this Shopkeeper Leng has worshipped under the gate of some inner official..."
 
-Chongzhen had already received Wu Mengming's report, which was roughly the same as what Cao Huachun said. However, Wu Mengming also explicitly stated that Leng Ningyun worshipped under the gate of Eunuch Yang of the Bell and Drum Division.
+Chongzhen had already received Wu Mengming's report, which accorded roughly with Cao Huachun's account. However, Wu Mengming had explicitly stated that Leng Ningyun worshipped under the gate of Eunuch Yang of the Bell and Drum Division.
 
-Cao Huachun's report made him feel very satisfied. Comparing the two, neither Wu Mengming nor Cao Huachun dared to deceive him.
+Cao Huachun's report pleased him greatly. Comparing the two, neither Wu Mengming nor Cao Huachun had dared deceive him.
 
-Cao Huachun withdrew. On the way, he saw inner eunuchs leading Wu Mengming and a few others over. He did not speak, only nodded slightly at the other party, indicating that he accepted his favor this time.
+Cao Huachun withdrew. On his way out, he passed inner eunuchs leading Wu Mengming and several others toward the pavilion. He did not speak, merely offering a slight nod to acknowledge that he appreciated the favor.
 
-Wu Mengming came to the Yufang Pavilion. The Emperor said: "How is the matter I asked you to investigate last time?"
+Wu Mengming came before the Yufang Pavilion. The Emperor said: "What progress on the matter I asked you to investigate?"
 
-"Replying to the Imperial Grandfather, this small official has sent people to investigate secretly. This Zhou Lezhi has no connection with Qian Taichong."
+"Replying to the Imperial Grandfather, this small official has sent people to investigate discreetly. This Zhou Lezhi has no connection with Qian Taichong."
 
 "Where is the person now?"
 
-"He checked out of Chongxiao Temple before the New Year, saying he had something to do and had to go back south first. He will come again after the New Year and asked for the room to be kept for him," Wu Mengming said. "Around the second or third month after the New Year, he will naturally return to the Capital."
+"He checked out of Chongxiao Temple before the New Year, saying he had matters to attend to and had to return south first. He will come again after the New Year and asked for his room to be held for him," Wu Mengming said. "Around the second or third month after the New Year, he will naturally return to the Capital."
 
-"How do you know?"
+"How do you know this?"
 
-"He is slightly famous locally and has many patients. After going back, how can there be such good business as in the Capital?"
+"He has gained some local fame and has many patients. After returning home, how could he find business as good as what the Capital offers?"
 
-"That is true." Chongzhen laughed suddenly. "Zhen heard of officials leaving the Capital and monks entering the Capital. Presumably, besides monks, the likes of Daoists, doctors, and physiognomists are also like this."
+"That is true." Chongzhen laughed suddenly. "Zhen has heard of officials leaving the Capital and monks entering it. Presumably, besides monks, Daoists, physicians, and physiognomists follow the same pattern."
 
-"Yes, after all, the Capital is at the foot of the Son of Heaven, the place of supreme goodness."
+"Indeed, after all, the Capital lies at the foot of the Son of Heaven—the place of supreme virtue."
 
 "Where is Qian Taichong?"
 
@@ -88,20 +88,20 @@ Wu Mengming came to the Yufang Pavilion. The Emperor said: "How is the matter I 
 
 "Summon him in."
 
-In just a short moment, Qian Taichong was brought into the Yufang Pavilion. He was somewhat confused when he was brought here. For these few months, he had been living in the Fujian Guild Hall, active everywhere doing things for Zheng Sen.
+In moments, Qian Taichong was brought into the Yufang Pavilion. He felt somewhat bewildered at being brought here. For months now, he had been living in the Fujian Guild Hall, busying himself with tasks for Zheng Sen.
 
-Since Zheng Zhilong was harmed by the Kun scoundrels, although under his miraculous calculations, Zheng Sen recaptured Anping and gathered a batch of soldiers and ships left by his father, within Zhangzhou Bay, the powerful figures of the original Zheng family clique each occupied a corner and did not take this young man seriously.
+Since Zheng Zhilong had been brought low by the Kun, Zheng Sen had managed—thanks to Qian Taichong's shrewd calculations—to recapture Anping and gather a portion of the soldiers and ships his father had left behind. Yet within Zhangzhou Bay, the powerful figures of the former Zheng family faction had each staked out their own territory and refused to take this young man seriously.
 
-Internal trouble was not yet settled when external aggression arrived. After the Kun scoundrels occupied Tainan and built "Kaohsiung City," their fleet cruised the coast of Fujian all year round. The originally lucrative trade with Japan and Nanyang was gradually seized by the Kun scoundrels. This made the struggle for limited resources among the various factions more intense.
+Internal troubles had not yet been settled when external threats arrived. After the Kun occupied Tainan and constructed "Kaohsiung City," their fleet patrolled the Fujian coast year-round. The once-lucrative trade with Japan and Nanyang was gradually seized by the Kun. This intensified the struggle for limited resources among the various factions.
 
-Zheng Zhilong left behind not only a huge fleet but also a large amount of land and commercial networks. The struggle for ownership of these real estate assets had become an "invisible war" in Zhangzhou Bay. Although the parties did not fight openly, private skirmishes had never ceased.
+Zheng Zhilong had left behind not only a formidable fleet but also vast landholdings and commercial networks. The battle for ownership of these assets had become an "invisible war" throughout Zhangzhou Bay. Though the parties refrained from open conflict, private skirmishes had never ceased.
 
-As a young son, Zheng Sen naturally suffered in this battle for scrambled. Although Qian Taichong mediated in the middle, Tong Taro served externally, and he obtained the support of the Fujian Governor, so far he was only the nominal "Head of the Zheng Family" and could not command the warlords. Even the Zheng family's core "Zhongzuosuo" was not under his rule.
+As a young son, Zheng Sen naturally suffered in this scramble for inheritance. Although Qian Taichong mediated from within, Tong Taro served the external front, and he had obtained the Fujian Governor's support, thus far Zheng Sen remained only the nominal "Head of the Zheng Family"—unable to command the warlords. Even the Zheng family's core force, the "Zhongzuosuo," lay beyond his authority.
 
-What he could keep now was only Anping City and a few thousand mu of land nearby. With only these, let alone taking revenge, he couldn't even command the Zheng family.
+All he could hold now was Anping City and a few thousand mu of nearby land. With only these meager resources, let alone taking revenge, he could not even command the Zheng family.
 
-Qian Taichong had racked his brains in Anping these past few years, thinking through and trying every routine he had read in books, but he couldn't find a strategy to break the deadlock.
+Qian Taichong had racked his brains during these years in Anping, thinking through and attempting every stratagem he had ever read in books, yet he could not find a way to break the deadlock.
 
-After Fujian Governor Zou Weilian left office, he lost this biggest official backer. This made their situation in Zhangzhou Bay even more difficult.
+After Fujian Governor Zou Weilian left office, Zheng Sen lost his greatest official backer. Their position in Zhangzhou Bay grew more precarious still.
 
-Although Anping was stripped bare by the Kun scoundrels back then, there were large tracts of fertile fields around Anping. In a state where overseas trade was almost cut off, these lands that could produce a fixed output every year became sweet pastries, eyed covetously by various forces.
+Though the Kun had stripped Anping bare years ago, vast tracts of fertile farmland surrounded the city. In their current state—with overseas trade all but severed—these lands, capable of producing fixed yields each year, had become coveted prizes, eyed hungrily by every faction.

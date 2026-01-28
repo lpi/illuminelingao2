@@ -1,123 +1,123 @@
 # Chapter 2801 Father-in-law And Daughter
 
-After walking for another ten minutes or so, they saw a solitary "Five Phoenix" enclosed house standing abruptly under a small hillside in the distance. Chen Linhuang said, "That is the East Estate."
+After another ten minutes of walking, they spotted a solitary "Five Phoenix" enclosed house standing stark against a small hillside in the distance. Chen Linhuang pointed toward it. "That's the East Estate."
 
-"What a magnificent house." Zhang Laicai was somewhat surprised. This house was clearly an "old house." Zhang Laicai spoke Fujian dialect but was a native-born Lingao local; he knew that families who could build such houses in the past were not simple.
+"What a magnificent house." Zhang Laicai couldn't hide his surprise. This was clearly an "old house." Though Zhang Laicai spoke Fujian dialect, he was a native-born Lingao local and knew that families capable of building such residences in the old days were no ordinary folk.
 
-"Father Fang was originally a landlord. this house is his ancestral property. It was renovated again two years ago because his daughter was recruiting a husband."
+"Father Fang was originally a landlord. This house is his ancestral property. It was renovated again two years ago when his daughter was seeking a husband to marry in."
 
-There was a pond in front of the house and a very large flat drying yard. All were old items. Just looking at these two things, one knew the Fang ancestors were also wealthy.
+A pond lay before the house, fronted by a vast, level drying yard. Both were relics of an earlier age. Just these two features alone proclaimed that the Fang ancestors had been wealthy people.
 
-Zhang Youcai stretched his neck, looking around east and west, clicking his tongue in praise at the stone mill on the yard, the frame for tethering oxen, and the piles of mats.
+Zhang Youcai craned his neck, looking this way and that, clicking his tongue in admiration at the stone mill in the yard, the frame for tethering oxen, and the stacks of mats.
 
-Those who made their fortune after the Senate arrived were not rare in Lingao; one could say they were everywhere. But families that could accumulate such an estate under the Great Ming rule were quite rare.
+Those who had made their fortunes after the Senate's arrival were common enough in Lingao—one could say they were everywhere. But families that had accumulated such an estate under Great Ming rule were quite rare.
 
-The main gate of the Five Phoenix House was wide open. A middle-aged woman sat at the door doing needlework. Zhang Youcai called out:
+The main gate of the Five Phoenix House stood wide open. A middle-aged woman sat at the threshold doing needlework. Zhang Youcai called out:
 
-"Sister-in-law Qinghe! Go call the Young Miss out; people from the troops are here."
+"Sister-in-law Qinghe! Go fetch the Young Miss—people from the troops are here."
 
-The woman called Sister-in-law Qinghe looked up, her face instantly turning somewhat flustered. She hurriedly put down her needlework and went inside. Before long, a young woman came out.
+The woman called Sister-in-law Qinghe looked up, her face instantly flustered. She hurriedly set down her needlework and disappeared inside. Before long, a young woman emerged.
 
-In terms of looks, she wasn't outstanding. It was just that her attire was still in the style of the Great Ming from over a decade ago, and even her hairstyle hadn't changed. Coupled with this house, it gave the two a moment of trance, a strong feeling of returning to the Great Ming era.
+In terms of looks, she was unremarkable. But her attire remained in the style of the Great Ming from over a decade past, and even her hairstyle hadn't changed. Combined with this house, it gave the two men a momentary sense of displacement—a powerful feeling of having stepped back into the Great Ming era.
 
-"This... you are..." Tan Shuangxi was tongue-tied, not knowing what to say for a moment.
+"This... you are..." Tan Shuangxi found himself tongue-tied, uncertain what to say.
 
-The woman nodded silently. Although her face was pale, her expression was calm.
+The woman nodded silently. Though her face was pale, her expression remained calm.
 
-Zhang Youcai saluted: "Miss... Fang, we are under orders to deliver the death notification and personal effects of Volunteer Soldier Hu Weide. Please accept our condolences." Saying this, he took out a kraft paper bag from his satchel.
+Zhang Youcai saluted. "Miss... Fang, we are under orders to deliver the death notification and personal effects of Volunteer Soldier Hu Weide. Please accept our condolences." With that, he produced a kraft paper bag from his satchel.
 
-Another set of the same rhetoric, routine business. Tan Shuangxi thought.
+Another recitation of the same rhetoric, routine business. Tan Shuangxi thought to himself.
 
-The woman didn't take the envelope, nor did she speak. Zhang Youcai went through the content according to procedure: "...If you have anything unclear, you can write a letter or go to the Military Affairs Section of the County Civil Affairs Bureau for consultation..."
+The woman neither took the envelope nor spoke. Zhang Youcai proceeded through the content according to protocol: "...If you have any questions, you can write a letter or visit the Military Affairs Section of the County Civil Affairs Bureau for consultation..."
 
-Before he finished speaking, several people entered from outside. Leading them was a robust man around fifty, with greying hair and a square face. He wore a faded indigo blue "labor suit," held a torn straw hat in his hand, had his pant legs rolled up, and his calves and feet were covered in mud.
+Before he could finish, several people entered from outside. Leading them was a robust man of about fifty, with graying hair and a square, stern face. He wore a faded indigo "labor suit," clutched a tattered straw hat in one hand, and had his trouser legs rolled up high—his calves and feet caked with mud.
 
-He ladled a few scoops of water from the water jar at the door to rinse his feet before walking in.
+He ladled several scoops of water from the jar by the door to rinse his feet before walking in.
 
-"This is the head of the household," Chen Linhuang whispered a sentence, then said towards the comer: "Father! These two are comrades from the Fubo Army..."
+"This is the head of the household," Chen Linhuang whispered, then addressed the newcomer: "Father! These two are comrades from the Fubo Army..."
 
-"I have eyes; I can see." The comer gave a cold harrumph, his gaze sweeping over the Fang girl. "Why did you come out?"
+"I have eyes; I can see." The newcomer gave a cold harrumph, his gaze sweeping over the Fang girl. "Why did you come out?"
 
-The woman couldn't help but tremble. Tan Shuangxi was too familiar with such scenes; women and children who had been beaten into fear at home had this expression. He sighed secretly in his heart. Before he could speak, the Fang girl whispered, "Two officers came to handle official business; someone in the family has to come out..." She started to get up to retreat as she spoke.
+The woman couldn't help but tremble. Tan Shuangxi recognized such scenes all too well—women and children beaten into fearfulness at home always wore that expression. He sighed inwardly. Before he could speak, the Fang girl whispered, "Two officers came on official business; someone from the family had to receive them..." She began rising to withdraw as she spoke.
 
-"Miss Fang is Comrade Hu Weide's wife. This notification was meant to be delivered to her personally regardless; there is nothing improper." Tan Shuangxi originally didn't want to confront anyone to their face, but he couldn't hold back at this moment.
+"Miss Fang is Comrade Hu Weide's wife. This notification was meant to be delivered to her personally regardless. There is nothing improper about it." Tan Shuangxi had originally intended to avoid confrontation, but he couldn't restrain himself.
 
-"Heh, putting on the airs of public officials." Old Man Fang smiled disdainfully, took out a cigarette, and a helper behind him immediately struck an Australian match to light it for him. He took a drag, walked over with a swagger, sat down on the central chair, and extended his hand casually.
+"Heh, putting on the airs of public officials." Old Man Fang smiled disdainfully, produced a cigarette, and a helper behind him immediately struck an Australian match to light it for him. He took a drag, swaggered over, settled into the central chair, and extended his hand with casual authority.
 
-The Fang girl reacted as if electrocuted, hurriedly handing the unopened envelope to him.
+The Fang girl reacted as if electrocuted, hurriedly passing him the unopened envelope.
 
-Tan Shuangxi felt uncomfortable all over. He and Zhang Laicai were sitting on benches, already "a level lower." Looking at Hu Weide's father-in-law's domineering arrogance without a shred of sadness in his eyes, and then at the Fang girl's sorrowful eyes daring not to cry, a ball of fire instantly burned in his heart. And this was a Heaven and Earth Society model household!
+Tan Shuangxi felt uncomfortable all over. He and Zhang Laicai sat on benches, already "a level lower." Looking at Hu Weide's father-in-law with his domineering arrogance—not a shred of grief in those eyes—and then at the Fang girl's sorrowful gaze that dared not release its tears, a fire ignited in his chest. And this was supposed to be a Heaven and Earth Society model household!
 
-Old Man Fang tore open the envelope and poured the contents onto the table. HE first picked up a paper stamped with an official seal and asked, "What is this?"
+Old Man Fang tore open the envelope and spilled its contents onto the table. He first picked up a document stamped with an official seal. "What's this?"
 
-Chen Linhuang leaned over to look and said, "This is Ah Wei's death notification. I'll read it..."
+Chen Linhuang leaned over to look. "This is Ah Wei's death notification. I'll read it..."
 
-Old Man Fang paid no heed, tossing it aside casually. He picked up another slip of paper and scrutinized it—evidently, he recognized it as a check and understood the numbers on it:
+Old Man Fang paid him no heed, tossing it aside carelessly. He snatched up another slip of paper and scrutinized it—clearly recognizing it as a check and understanding the numbers printed on it.
 
-"Only eighty yuan?" The old man said with dissatisfaction. "Didn't they say six hundred yuan for a dead soldier before?!"
+"Only eighty yuan?" The old man spoke with undisguised dissatisfaction. "Didn't they say six hundred yuan for a dead soldier before?!"
 
-"That was before the currency reform. Five hundred and thirty yuan was in grain circulation vouchers; now it's silver exchange vouchers. How much grain could one yuan buy in the past, and how much can it buy now? Actually, it has risen significantly," Tan Shuangxi explained patiently.
+"That was before the currency reform. Five hundred and thirty yuan was in grain circulation vouchers; now it's in silver exchange vouchers. How much grain could one yuan buy in the past, and how much can it buy now? In real terms, the amount has actually increased significantly." Tan Shuangxi explained with patience he didn't feel.
 
-Old Man Fang didn't speak again. He picked up another list and shoved it into Chen Linhuang's hand: "Look at this, what is it?"
+Old Man Fang said nothing more. He picked up another list and shoved it into Chen Linhuang's hand. "Look at this—what is it?"
 
-"It's a list of Ah Wei's personal effects," Chen Linhuang said, "One thick and one thin military blanket, two sets of service uniforms, one satchel..."
+"It's a list of Ah Wei's personal effects," Chen Linhuang said. "One thick and one thin military blanket, two sets of service uniforms, one satchel..."
 
-"Enough, enough, a pile of junk." Old Man Fang interrupted him impatiently. "Where are the things?"
+"Enough, enough—a pile of junk." Old Man Fang cut him off impatiently. "Where are the things?"
 
-"They will be mailed subsequently," Chen Linhuang said. "It's written right here."
+"They'll be mailed subsequently," Chen Linhuang said. "It's written right here."
 
-"Just divide them among you guys when they come."
+"Just divide them among yourselves when they arrive."
 
-Chen Linhuang was somewhat terrified. He looked at the Fang girl and whispered, "Father, this isn't appropriate. Ah Wei's mementos should still be given to the Young Miss."
+Chen Linhuang looked alarmed. He glanced at the Fang girl and whispered, "Father, this isn't appropriate. Ah Wei's mementos should go to the Young Miss."
 
-Chen Linhuang's voice was very low, but it still reached everyone's ears. The Fang girl couldn't hold back anymore and began to sob quietly. The long-term laborers and women nearby all showed expressions of unbearable pity.
+Chen Linhuang's voice was very low, but it still reached everyone's ears. The Fang girl could hold back no longer and began to sob quietly. The long-term laborers and women nearby all wore expressions of unbearable pity.
 
-"What use are they to her?" Hu Weide's father-in-law harrumphed coldly. "She can't wear them; just looking at them makes her cry. No Fulao is any good; I shouldn't have married my daughter to him in the first place."
+"What use are they to her?" Hu Weide's father-in-law snorted coldly. "She can't wear them, and just looking at them makes her cry. No Fulao is any good. I never should have married my daughter to him in the first place."
 
-"Dad," his daughter finally spoke, "Don't say these things. They came with good intentions to deliver the letter..."
+"Dad," his daughter finally spoke, "don't say such things. They came with good intentions to deliver the letter..."
 
-"It's their errand; what good or bad intentions are there?" Old Man Fang looked at the items on the table, saw another check, and hurriedly grabbed it. "Seventy-three yuan, three dimes, four cents, one wen." He muttered, reading it, then turned to ask Chen Linhuang, "What money is this?"
+"It's their errand—what good or bad intentions have anything to do with it?" Old Man Fang surveyed the items on the table, spotted another check, and snatched it up. "Seventy-three yuan, three dimes, four cents, one wen," he muttered, reading aloud, then turned to ask Chen Linhuang, "What money is this?"
 
-Tan Shuangxi hurriedly explained: "It's the military pay he saved up."
+Tan Shuangxi interjected quickly: "It's the military pay he saved up."
 
-"Just this much?" Old Man Fang said. "I heard that going to war pays a lot. He went for over a year and a month, and it's just this bit of money?"
+"Just this much?" Old Man Fang said. "I heard that going to war pays well. He was gone for over a year and a month, and this is all there is?"
 
-Tan Shuangxi was indignant but still had to explain: "Sir! Comrade Hu Weide sacrificed himself over four months ago. He was deployed overseas for a total of three months. So he didn't save much money."
+Tan Shuangxi was indignant but forced himself to explain: "Sir! Comrade Hu Weide sacrificed himself over four months ago. He was deployed overseas for a total of only three months. So he didn't save much money."
 
-"Don't try to fool me." The old man said, eyeing the two NCOs up and down while holding the check. "Does issuing military pay come without details? Even factories give... payrolls!"
+"Don't try to fool me." The old man eyed the two NCOs up and down while clutching the check. "Doesn't issuing military pay come with details? Even factories give out... payrolls!"
 
-"The standards for military pay and subsidies are determined by the Senate. The personal effects package contains his soldier's handbook and pay stubs; you can verify item by item. If you have questions, please inquire at the Military Affairs Section of the County Civil Affairs Bureau." Reaching this point, Tan Shuangxi couldn't bear it anymore and questioned, "You... Hu Weide was your daughter's husband, half a son to you. Do you not care at all about how he died?"
+"The standards for military pay and subsidies are determined by the Senate. The personal effects package contains his soldier's handbook and pay stubs; you can verify every item. If you have questions, please inquire at the Military Affairs Section of the County Civil Affairs Bureau." Having reached this point, Tan Shuangxi could bear it no longer and challenged him directly: "You... Hu Weide was your daughter's husband—half a son to you. Do you not care at all about how he died?"
 
-"So what if I know how he died? Can he come back to life?" The old man sneered. " The weather is so hot, sorry to trouble you to make this trip."
+"What difference does it make if I know? Can knowing bring him back to life?" The old man sneered. "The weather is so hot. Sorry to trouble you with making this trip."
 
-"Hu Weide was our comrade-in-arms; of course we had to come." Tan Shuangxi was about to explode. What kind of attitude was this old thing showing?!
+"Hu Weide was our comrade-in-arms; of course we had to come." Tan Shuangxi was on the verge of explosion. What kind of attitude was this old wretch displaying?!
 
-"So you came, so what? You still have to leave just the same..."
+"So you came—so what? You still have to leave just the same..."
 
-"Dad," his daughter finally exploded, crying and shouting at the old man, "I beg you, stop talking!"
+"Dad!" His daughter finally erupted, crying and shouting at the old man. "I'm begging you, stop talking!"
 
-The old man's eyes bulged, and he opened his mouth to lose his temper. Tan Shuangxi couldn't hold back anymore and stood up with a "swish," his eyes wide with rage, glaring at the old fellow, saying: "We are delivering Comrade Hu Weide's personal effects to his widow by order of the Senate! Unrelated personnel, please conduct yourselves with dignity!"
+The old man's eyes bulged, and he opened his mouth to unleash his temper. But Tan Shuangxi could contain himself no longer. He shot to his feet, eyes blazing with fury as he glared at the old fellow. "We are delivering Comrade Hu Weide's personal effects to his widow by order of the Senate! Unrelated personnel, please conduct yourselves with dignity!"
 
-He was seasoned by war. The aura of ferocity and courage honed on the battlefield exploded at this moment. The originally arrogant Old Man Fang opened his mouth but withered, daring not speak again.
+He was battle-hardened. The aura of ferocity and courage honed on the battlefield erupted from him in that moment. The previously arrogant Old Man Fang opened his mouth to retort but wilted, not daring to speak again.
 
-Speaking, she looked towards Tan Shuangxi, "When did my man die? Did he suffer?"
+The Fang girl looked toward Tan Shuangxi. "When did my husband die? Did he suffer?"
 
-Tan Shuangxi had been righteous and stern just now, but facing the woman's sorrowful gaze, he choked up. Zhang Laicai had to speak for him, using the story they had agreed upon on the road: "He caught miasma. The miasma in the forests of Liangguang is very poisonous. He had a high fever for several days... We took turns caring for him. The company medic tried several medicines. But this miasma was too fierce; we did our best. He woke up for a moment before he died, said he didn't feel uncomfortable, and said... the person he missed most was you."
+Tan Shuangxi had been righteous and stern just moments ago, but facing the woman's grief-stricken gaze, he choked up. Zhang Laicai had to speak in his place, recounting the story they had agreed upon during their journey: "He caught miasma. The miasma in the forests of Liangguang is terribly poisonous. He had a high fever for several days... We took turns caring for him. The company medic tried several medicines. But this miasma was too fierce—we did everything we could. He woke for a moment before he died, said he wasn't uncomfortable, and said... the person he missed most was you."
 
-Hu Weide's wife nodded as she listened, her head lowering further and further until she covered her face with her hands, her body convulsing in spasms.
+Hu Weide's wife nodded as she listened, her head sinking lower and lower until she covered her face with both hands, her body wracked with convulsive sobs.
 
-Old Man Fang, unwilling to be lonely, sneered: "When a man is about to die, his words are also kind. Just pretty words to bluff people!"
+Old Man Fang, unwilling to be ignored, sneered: "When a man is about to die, his words turn kind. Just pretty talk to deceive people!"
 
 "Where is he buried now?" The Fang girl ignored her father and asked.
 
-"Comrade Hu Weide was cremated on the spot after his sacrifice. His ashes are now buried in the military cemetery in Chaozhou. The specific address is on the death notification."
+"Comrade Hu Weide was cremated on site after his sacrifice. His ashes are now interred in the military cemetery in Chaozhou. The specific address is on the death notification."
 
-Hearing the word "cremated," the Fang girl could no longer hold back and wailed aloud.
+At the word "cremated," the Fang girl could no longer contain herself. She wailed aloud.
 
-Tan Shuangxi knew most people couldn't accept the concept of "cremation," so he hurriedly explained: "He sacrificed himself near Fujian. The weather was extremely hot and the roads were bad, so we had to act according to circumstances. If you want to bring him back for burial later, you can submit an application..."
+Tan Shuangxi knew most people couldn't accept the concept of cremation, so he hastened to explain: "He sacrificed himself near Fujian. The weather was extremely hot and the roads were bad, so we had to act according to circumstances. If you wish to bring him back for burial later, you can submit an application..."
 
-"Burned is burned, saves the trouble of bringing him back." The old fellow nodded, his tone full of sarcasm, sounding almost as if he laughed at the end.
+"Burned is burned—saves the trouble of bringing him back." The old fellow nodded, his tone dripping with sarcasm, a sound almost like laughter escaping at the end.
 
-Tan Shuangxi wished he could kick him, but seeing the wailing Fang girl, the fire in his heart extinguished: Hu Weide was dead, and his wife still had to live in this family. They were father and daughter after all; what could he do?
+Tan Shuangxi wanted nothing more than to kick him, but seeing the wailing Fang girl, the fire in his heart died away. Hu Weide was dead, and his wife still had to live in this family. They were father and daughter after all—what could he possibly do?
 
 (End of Chapter)

@@ -1,139 +1,139 @@
 # Chapter 2693: The Capital (Part 49)
 
-"This person has a lot of background?"
+"This person has considerable backing?"
 
-"Deep and unfathomable." Wang Yehao lowered his voice unconsciously when speaking here. "Not mentioning others, even with the Slave Chieftain [Nurhaci/Hong Taiji], he can speak words."
+"Deep and unfathomable." Wang Yehao unconsciously lowered his voice. "Not to mention anyone else—even with the Slave Chieftain himself, he can exchange words."
 
-"To actually have such a person!" Mr. Zhou was greatly surprised.
+"To think such a person exists!" Mr. Zhou was greatly surprised.
 
-"This Li Luoyou's ancestors were originally big households doing Liaodong business," Wang Yehao said with great interest. "With the Mongol tribes outside the pass and the Old Slave [Nurhaci] of Jianzhou, they all count as generational friends. So this business in Mongolia and Liaodong has never been broken. Nowadays he makes eyes with Shorn-hair Thieves again—it is said Shorn-hair Thieves buy many cattle and sheep skins from him every year. In the Court he also has big backers; several Grand Secretaries before and after, and Eunuchs inside the Palace all have connections with him. Ordinarily, no one dares to move him."
+"Li Luoyou's ancestors were originally wealthy merchants dealing in Liaodong trade," Wang Yehao said with evident interest. "With the Mongol tribes beyond the pass and the Old Slave of Jianzhou, they've maintained generational friendships. So their business in Mongolia and Liaodong has never been interrupted. Nowadays he's even making eyes at the Kun—it's said the Kun purchase vast quantities of cattle and sheep hides from him every year. Within the Court, he also has powerful backers; several Grand Secretaries past and present, along with Eunuchs inside the Palace, all maintain connections with him. Ordinarily, no one dares touch him."
 
-"If his assistance can be obtained, wouldn't the matter of opposing Thieves be smoother?"
+"If we could obtain his assistance, wouldn't the matter of opposing the Thieves proceed more smoothly?"
 
-"I also thought so. It's just this Master Li's scheming heart is deep and unfathomable. Can't read him, can't figure him out!"
+"I thought the same. It's just that this Master Li's scheming heart runs deep and unfathomable. I can't read him, can't figure him out!"
 
 "If not a friend, then an enemy..."
 
-Master Wang and Zhou Lezhi were both greatly startled; they didn't expect the Teacher would actually say such decisive words. Looking at the Teacher's expression, these words were not a joke.
+Master Wang and Zhou Lezhi were both greatly startled; they hadn't expected the Teacher to speak such decisive words. Looking at his expression, this was clearly no jest.
 
-"Teacher be cautious in speech. If this Master Li really becomes enemies with us, I fear Shorn-hair Thieves will be like tigers adding wings." Wang Yehao said, "He is now wavering and undecided; although unwilling to oppose Thieves [openly?], he can still be counted as loyal and devoted to the Court..."
+"Teacher, please be cautious in your speech. If this Master Li truly becomes our enemy, I fear the Kun will be like tigers given wings." Wang Yehao said, "He is currently wavering and undecided; though unwilling to openly oppose the Thieves, he can still be counted as loyal and devoted to the Court..."
 
-Returning to his own courtyard, Mr. Zhou couldn't attend to teasing Curie and Newton, plunging headlong into his study, not knowing what he was busy with.
+Returning to his own courtyard, Mr. Zhou had no patience for teasing Curie and Newton, instead plunging headlong into his study, busying himself with unknown matters.
 
-Zhou Lezhi was ordered to meet Li Luoyou and gained much from the conversation. Returning to the Teacher's side, he reported the process from beginning to end.
+Zhou Lezhi had been ordered to meet Li Luoyou and gained much from the conversation. Upon returning to the Teacher's side, he reported the process from beginning to end.
 
-"You feel what exactly is this person's attitude towards Shorn-hair Thieves?"
+"What do you feel is this person's true attitude toward the Kun?"
 
-"En, as Teacher said, it is 'Conflicted [Jiu Jie]'."
+"As Teacher suggested—it's 'conflicted.'"
 
-"Conflicted? Haha, you said it well!" Mr. Zhou laughed. "Although I haven't seen him, hearing people speak of this person's deeds, I can roughly guess his mindset."
+"Conflicted? Haha, well said!" Mr. Zhou laughed. "Though I haven't seen him myself, hearing others speak of this person's deeds, I can roughly guess his mindset."
 
-"Yes, he is incomparably disappointed with the government and Court; but asking him to assist Shorn-hair Thieves and become a meritorious official of a new dynasty, he also can't accept it." Zhou Lezhi recalled the whole meeting process. "If speaking of any true heart, that is being unwilling for barbarians like Shorn-hair Thieves and Eastern Captives to enter and master Hua Xia..."
+"Indeed. He is incomparably disappointed with the government and Court; yet asking him to assist the Kun and become a meritorious official of a new dynasty—that he cannot accept either." Zhou Lezhi recalled the entire meeting process. "If there's any true conviction in him, it's his unwillingness to see barbarians like the Kun and the Eastern Captives enter and master Hua Xia..."
 
-"Barbarians? Shorn-hair Thieves are also barbarians?" Mr. Zhou seemed startled, then laughed loudly, "Correct, correct, they are indeed barbarians!"
+"Barbarians? The Kun are also barbarians?" Mr. Zhou seemed startled for a moment, then laughed loudly. "Correct, correct—they are indeed barbarians!"
 
-Zhou Lezhi didn't know what exactly the Teacher found so funny—these Shorn-hair Thieves came from overseas; even if calling themselves descendants of Great Song, it was entering into barbarian lands and changing from Xia. If not barbarians, what were they?
+Zhou Lezhi didn't understand what exactly the Teacher found so amusing. These Kun came from overseas; even if they called themselves descendants of the Great Song, they had entered barbarian lands and transformed from Xia. If not barbarians, what were they?
 
-"Speaking so, as long as a Hua Xia hero becomes Emperor, regardless of who, he doesn't care, right."
+"So then, as long as a Hua Xia hero becomes Emperor, regardless of who, he doesn't care?"
 
-"These words he dares not say. I see his true heart is probably just like this."
+"He wouldn't dare speak such words openly. But I believe his true heart is probably just so."
 
-"Of course he dares not say." The Teacher nodded slightly. "He differs from the Liang family."
+"Of course he wouldn't dare say it." The Teacher nodded slightly. "He differs from the Liang family."
 
-Don't look at the Liang family earning Australians' money; inwardly they were irreconcilable with Shorn-hair Thieves. If really reaching a critical moment, destroying family to relieve national disaster wasn't impossible. The Li family was different.
+Despite the Liang family earning money from the Australians, inwardly they remained irreconcilable with the Kun. If matters truly reached a critical moment, destroying their family fortune to relieve national disaster wasn't beyond them. The Li family was different.
 
-"Regarding the matter of making guns and cannons, does he still have intention to do it?"
+"Regarding the matter of making guns and cannons—does he still have intention to pursue it?"
 
-"This Li Luoyou cares most about refreshing firearms. The Court originally told Guangdong here to cast cannons, only the labor price silver given was too low. Moreover, he feels the cannons cast now are too poor, might as well get the Shorn-hair Thieves' cannon-making techniques..."
+"This Li Luoyou cares most about improving firearms. The Court originally commissioned Guangdong to cast cannons, but the labor payment was too meager. Moreover, he feels the cannons currently being cast are too poor in quality—better to acquire the Kun's cannon-making techniques..."
 
-"Damn [Kao], what logic is this," Mr. Zhou cursed a sentence, then asked, "What else did he say about Shorn-hair Thieves?"
+"Damn, what logic is that?" Mr. Zhou cursed, then asked, "What else did he say about the Kun?"
 
-"Said Shorn-hair Thieves treat common people like children, and the Yamen talks credit... Anyway, just said many good words."
+"He said the Kun treat common people like their own children, and their Yamen keeps its word... Anyway, he spoke many flattering words."
 
-"Fart!" Mr. Zhou sniffed disdainfully, "Killing so many people in Guangdong, and casually hanging people on street lamps, yet treating common people like children!"
+"Nonsense!" Mr. Zhou sniffed disdainfully. "Killing so many people in Guangdong, casually hanging people from street lamps—yet treating common people like children!"
 
-"Teacher quell anger; Master Li also said Shorn-hair Thieves lack Great Righteousness, blindly using petty favors to tempt ignorant common people. Matters like shaving heads and changing clothes, contrary to ethics and constants, were done countless times."
+"Please calm your anger, Teacher. Master Li also said the Kun lack Great Righteousness, blindly using petty favors to tempt ignorant common people. Matters like shaving heads and changing dress, contrary to ethics and proper conduct—such things they've done countless times."
 
-Hearing these, Mr. Zhou was surprisingly calm. He turned a few circles in the room, saying: "When you go to see him, tell him you have a Shorn-hair Thief gunnery pamphlet. Although mainly discussing gunnery, within it there are also some cannon-making techniques. If he is interested, you can gift it to him."
+Hearing this, Mr. Zhou grew surprisingly calm. He paced several circles around the room before speaking: "When you next visit him, tell him you possess a Kun gunnery pamphlet. Though it primarily discusses gunnery techniques, it also contains some cannon-making methods. If he's interested, you may gift it to him."
 
-"Yes, Student understands." Zhou Lezhi knew this small pamphlet should be written by the Teacher. Speaking of which, the Teacher was truly an "All-talent"; understood everything, knew everything.
+"Yes, this student understands." Zhou Lezhi knew this small pamphlet was likely written by the Teacher himself. Speaking of which, the Teacher was truly a man of all talents—he understood everything, knew everything.
 
-"He will definitely be interested; slowly fish him. I still have a few books here; wait until the timing is mature then give him."
+"He will certainly be interested. Reel him in slowly. I have a few more books here; wait until the timing is ripe before giving them to him."
 
-"Student knows."
+"This student understands."
 
-"You go." The Teacher said, "Did you finish reading the few books I asked you to read?"
+"You may go." The Teacher paused. "Did you finish reading the books I assigned you?"
 
-"All finished reading."
+"I've finished them all."
 
-"Bring the reading notes tonight; I will take a look."
+"Bring your reading notes tonight. I will review them."
 
-The Teacher grasped Zhou Lezhi's study very tightly. Not only frequently giving him books to read, but also requiring him to write reading notes based on insights, then lecturing the next day based on book content and notes. Although study was tense, Zhou Lezhi enjoyed it.
+The Teacher maintained a tight grip on Zhou Lezhi's studies. Not only did he frequently give him books to read, but he also required written notes based on his insights, then lectured the following day based on both the book's content and the notes. Though the study regimen was demanding, Zhou Lezhi found great satisfaction in it.
 
-After eating dinner at night, he took the notes to the Teacher's courtyard. Unexpectedly, before stepping into the courtyard gate, he heard a burst of clamor in the main room. Mixed within was the Teacher's angry shouting sound.
+After eating dinner that evening, he took his notes to the Teacher's courtyard. Unexpectedly, before even stepping through the courtyard gate, he heard a burst of clamor from the main room. Mixed within was the Teacher's furious shouting.
 
-This was strange; Zhou Lezhi had followed the Teacher for many years and rarely saw him lose his temper; scolding maids and servants was even rarer. How come he was cursing people now?
+This was strange indeed. Zhou Lezhi had followed the Teacher for many years and rarely saw him lose his temper; scolding maids and servants was even rarer. How had it come to this—cursing at people?
 
-Hurriedly stepping in, he saw a servant woman holding Zhou Curie fleeing from the main room in panic. The little girl still had tears in her eyes, sobbing in the servant woman's arms. Looking again, Yourong stood under the corridor of the West Wing with a face full of smugness, a servant woman holding Zhou Newton standing beside her.
+He hurried inside and saw a servant woman clutching Zhou Curie as she fled from the main room in a panic. The little girl still had tears in her eyes, sobbing in the servant woman's arms. Looking further, Yourong stood beneath the West Wing's corridor wearing a smug expression, a servant woman holding Zhou Newton at her side.
 
-Wang Zhi was under the main room corridor. Seeing Zhou Lezhi come, he hurriedly welcomed him, whispering: "You came just right! Quickly go in to persuade..."
+Wang Zhi stood under the main room's corridor. Seeing Zhou Lezhi arrive, he hurriedly approached and whispered: "You've come at just the right time! Quickly go in and calm things..."
 
 "What happened inside?"
 
-"It's Miss Jieyi..." Wang Zhi stopped speaking, "The Master values you most; you go persuade."
+"It's Miss Jieyi..." Wang Zhi trailed off. "The Master values you most. Please, go and reason with him."
 
-"Hmph, I fear this kind of rebellious matter can't be persuaded," Yourong said eccentrically [yin-yang weird air] under the corridor, "Still better quickly invite Family Law to beat while questioning!"
+"Hmph, I fear this sort of rebellious matter cannot be reasoned away," Yourong remarked in a strange, needling tone from beneath the corridor. "Better to quickly fetch the Family Law and beat the truth out of her!"
 
-Zhou Lezhi frowned. Honestly speaking, he had no special impression of the Teacher's two concubines—towards the Teacher's women he was consistently cautious. Whether Jieyi, Yourong, or the vanished Zhiling, all were kept at a distance, respecting but staying away.
+Zhou Lezhi frowned. Honestly speaking, he held no particular impression of the Teacher's two concubines—toward the Teacher's women, he was consistently cautious. Whether Jieyi, Yourong, or the vanished Zhiling, all were kept at a respectful distance.
 
-However, compared to Jieyi and Zhiling, he was somewhat disgusted with women of brothel origin like Yourong, feeling they "knew too much." After Yourong gave birth to a son, her arrogance became even more rampant, speech and conduct quite immoderate.
+However, compared to Jieyi and Zhiling, he felt some distaste for women of brothel origin like Yourong, feeling they "knew too much." After Yourong gave birth to a son, her arrogance had grown even more rampant, her speech and conduct quite immodest.
 
-He pretended not to hear Yourong's words, only saying to Wang Zhi: "You just close the courtyard gate, assign people to guard. Don't alarm others in the General's Office."
+He pretended not to hear Yourong's words, saying only to Wang Zhi: "Close the courtyard gate and post guards. Don't alarm anyone else in the General's Office."
 
-"Need to immediately send people to report to the Master?"
+"Should we immediately send someone to report to the Master?"
 
-"Temporarily no; wait until the matter subsides then say." Zhou Lezhi felt this was probably the Master's "Family Ugliness," better not to spread it out.
+"Not yet. Wait until the matter subsides before deciding." Zhou Lezhi felt this was likely the Master's "family ugliness"—better not to spread it abroad.
 
-Coming under the main room corridor, the partition doors were wide open. On the square brick floor were smashed teapots and tea cups. Jieyi knelt prostrate on the ground, only crying blindly. The Teacher's face was flushed red, so angry his speech was incoherent.
+Approaching the main room's corridor, he found the partition doors thrown wide open. On the square brick floor lay the shattered remains of teapots and cups. Jieyi knelt prostrate on the ground, weeping blindly. The Teacher's face had flushed crimson, so furious his speech came out incoherent.
 
-"You... you... you, dare to dose Laozi [me/father]?! Speak! Who told you to do this!"
+"You... you... you—dare to dose me?! Speak! Who ordered you to do this?!"
 
-With a *Peng* sound, another flower vase shattered on the ground.
+With a crash, another flower vase shattered on the ground.
 
-Zhou Lezhi's scalp went numb: Dosing! This was terrible. Originally wanting to open his mouth to persuade, now he dared not even speak.
+Zhou Lezhi's scalp went numb. Dosing! This was terrible. He had intended to speak up and calm things, but now he dared not even open his mouth.
 
-Jieyi kowtowed on the ground like a chicken pecking broken rice: "Master clearly inspect! This bondmaid [did this] is tonic medicine ah. Master is bondmaid's Sky; how dare bondmaid deceive Sky! Bondmaid is wronged! Wronged!"
+Jieyi kowtowed against the floor like a chicken pecking at scattered grain: "Master, please examine this clearly! What this bondmaid gave was tonic medicine! Master is this bondmaid's very sky—how would this bondmaid dare deceive heaven? This bondmaid is wronged! Wronged!"
 
-"Since it's tonic medicine, what cannot be said to me? Sneakily putting it into tea water; no wonder the tea taste wasn't right these days! What is your motive?!" The Teacher's expression was already distorted, roaring, "Come! Call Liu Sha! Isn't he from the Town-soothing Division? Beat and question for me!"
+"If it's merely tonic medicine, why couldn't you tell me directly? Sneaking it into my tea—no wonder the taste has been off these past few days! What is your true motive?!" The Teacher's expression had grown distorted as he roared, "Someone! Summon Liu Sha! Isn't he from the Town-soothing Division? Beat and question her for me!"
 
-"Master spare life ah!"
+"Master, spare my life!"
 
-Seeing Jieyi's forehead already swollen and skin broken, and no one around dared to make a sound, Zhou Lezhi had to brace his scalp to say: "Teacher..."
+Seeing that Jieyi's forehead was already swollen and the skin broken, and that no one around dared make a sound, Zhou Lezhi steeled himself to speak: "Teacher..."
 
-Mr. Zhou glanced at him once, instantly making him feel what was called "killing with eyes." Zhou Lezhi had never seen the Teacher so furious, but for the Teacher's face and family harmony, he had to force himself to speak.
+Mr. Zhou glanced at him once, and Zhou Lezhi instantly understood what it meant to kill with one's eyes. He had never seen the Teacher this furious. But for the sake of the Teacher's dignity and family harmony, he forced himself to continue.
 
-"Teacher, please don't be furious. Didn't you teach me in past days not to make decisions when emotionally impulsive? Also said 'No investigation, no right to speak.' Even if Miss Jieyi has some fault, must also clarify the matter before dealing with it..."
+"Teacher, please do not be so furious. Didn't you teach me in the past never to make decisions when emotionally impulsive? You also said, 'No investigation, no right to speak.' Even if Miss Jieyi has committed some fault, the matter must first be clarified before dealing with it..."
 
-"I saw it all! What else is there to say." Although the Teacher's voice was loud, the imposing momentum had come down. Zhou Lezhi knew there was hope, hurriedly continuing to remonstrate:
+"I saw it with my own eyes! What else is there to discuss?" Though the Teacher's voice remained loud, his imposing momentum had begun to subside. Zhou Lezhi sensed hope and hurriedly pressed on:
 
-"Although seeing is believing, Miss Jieyi has served Teacher for many years and also has an emotional foundation. Teacher and she also have Curie; what motive does she have to harm Teacher? Teacher hasn't always taught me, everything must talk logic and look at motive, must investigate and study..."
+"Though seeing is believing, Miss Jieyi has served Teacher for many years and shares an emotional bond with you. Teacher and she also have Curie together. What motive could she possibly have to harm you? Hasn't Teacher always taught me that everything must follow logic and examine motive—that we must investigate and study before acting..."
 
-With these words going up, the Teacher seemed moved. Zhou Lezhi busily signaled Wang Zhi at the door with his eyes. Wang Zhi understood and immediately poked the servant woman holding Curie.
+These words seemed to move the Teacher. Zhou Lezhi quickly signaled Wang Zhi at the door with his eyes. Wang Zhi understood at once and immediately nudged the servant woman holding Curie.
 
-The servant woman understood at once, immediately running into the room holding Curie, kneeling and crying: "Master! Master! Miss Jieyi has a thousand mistakes and ten thousand wrongs; beg you to look at Curie's sake, spare her..."
+The servant woman grasped the meaning instantly. She rushed into the room carrying Curie, knelt, and cried out: "Master! Master! Miss Jieyi may have a thousand faults and ten thousand wrongs, but we beg you—for Curie's sake, spare her..."
 
-Curie was originally scared pale; now she wailed loudly even more. A look of helplessness filled the Teacher's face; he panted a rough breath saying: "Fine! Since so, follow what you said—investigate first!"
+Curie, already frightened pale, now wailed even louder. A look of helplessness crossed the Teacher's face. He let out a rough breath and said: "Fine! Since you put it that way—we shall investigate first!"
 
-The servants seeing the Master loosen his mouth, hurriedly surrounded up. Some swept the floor and tidied the room, some hurriedly supported Jieyi away, some served tea water...
+The servants, seeing the Master relent, hurried forward. Some swept the floor and tidied the room; others quickly helped Jieyi away; still others prepared fresh tea...
 
-Zhou Lezhi just sighed a breath of relief, but heard the Teacher say: "Jieyi is not allowed to leave; I have words to ask!"
+Zhou Lezhi had just exhaled in relief when he heard the Teacher say: "Jieyi is not to leave. I have questions for her!"
 
-Zhou Lezhi knew if today's matter wasn't asked until water fell and stones appeared [clarified completely], the Teacher couldn't sleep. Immediately he instructed: "Everyone go busy with what you should be busy with; what excitement to watch."
+Zhou Lezhi knew that if today's matter wasn't pursued until every detail was exposed, the Teacher wouldn't be able to sleep. He immediately instructed the others: "Everyone go attend to your duties. What spectacle is there to watch?"
 
-Hearing the sound, servants hurriedly retreated out. Only hearing Yourong's voice from under the West Wing corridor again: "Hmph, even if speaking out, it is still..."
+At his words, the servants hurriedly withdrew. But then Yourong's voice drifted once more from beneath the West Wing corridor: "Hmph, even if she speaks, it will still be..."
 
-The Teacher grabbed a teapot, throwing it out the door water and pot together. With a crisp shattering sound, someone cried a few times in the courtyard, then it was silent and soundless.
+The Teacher seized a teapot and hurled it out the door, water and vessel together. There came a crisp shattering sound, followed by a few startled cries in the courtyard—then silence.
 
-Zhou Lezhi busily signaled Wang Zhi to close all partition doors. Turning around, he persuaded again: "Teacher don't get angry. Even if Miss Jieyi has some fault, asking clearly before dealing with it isn't too late."
+Zhou Lezhi quickly signaled Wang Zhi to close all the partition doors. Turning back, he offered further counsel: "Teacher, please don't torment yourself with anger. Even if Miss Jieyi bears some fault, it won't be too late to deal with her after we've asked everything clearly."
 
 **(End of Chapter)**

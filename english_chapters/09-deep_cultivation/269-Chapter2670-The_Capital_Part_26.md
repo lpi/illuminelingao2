@@ -1,124 +1,125 @@
 # Chapter 2670: The Capital (Part 26)
 
-"Many thanks for the *Lao Gong Zu*'s good intentions." Wang Yehao cupped his hands in thanks and turned to ask Mr. Zhou, "Does Mr. Zhou have elegance interest?"
+"Many thanks for the *Lao Gong Zu*'s kind intentions." Wang Yehao cupped his hands in thanks, then turned to Mr. Zhou. "Would Mr. Zhou care to partake in such refined diversions?"
 
-Mr. Zhou was quite satisfied seeing Wang Yehao being so sensible. Judging by his appearance, he was originally prepared to act polite pretentiously, but fearing the cooked duck would fly away, he held back for half a day before squeezing out a sentence: "Haha, if the Master is busy, then I'll go have a look."
+Mr. Zhou was quite satisfied to see Wang Yehao being so sensible. Judging by his expression, he had originally prepared to demur with false politeness, but fearing the cooked duck might fly away, he restrained himself for half a moment before finally squeezing out: "Haha, if the Master is occupied, then perhaps I shall go have a look."
 
-Zhou Lezhi almost couldn't hold back seeing the Teacher's coy manner. He felt that after getting along these days, the Teacher's true face was being revealed bit by bit. But he didn't dislike it.
+Zhou Lezhi nearly burst out laughing at his Teacher's coy manner. He reflected that over these past days of traveling together, the Teacher's true nature was revealing itself bit by bit. Yet he found he didn't dislike it.
 
-Beside them, Prefect Zhou saw Wang Yehao yielding the courtesan queen to a *Qingke* and being perfunctory during the banquet. He knew this must be a person Master Wang valued. Immediately, he carefully scrutinized this "eccentric" with a peculiar accent and vulgar language. This person's face was white as jade, fingers slender as scallions; he should be a son of a wealthy family, probably hadn't read much, likely a dandy with considerable wealth and power at home. Thinking of this layer, Prefect Zhou hurriedly asked a servant boy to lead Mr. Zhou to seek fragrance.
+Nearby, Prefect Zhou observed Wang Yehao yielding the courtesan queen to a mere *Qingke* while remaining perfunctory throughout the banquet. Clearly, this must be someone Master Wang valued highly. He immediately scrutinized this "eccentric" with his peculiar accent and vulgar speech more carefully. The man's face was white as jade, his fingers slender as scallion shoots—evidently the son of a wealthy family. Probably hadn't read much, likely a dandy whose household possessed considerable wealth and power. With this assessment in mind, Prefect Zhou hastily summoned a servant boy to lead Mr. Zhou in his pursuit of fragrant pleasures.
 
-The Teacher went to seek fragrance. Zhou Lezhi was hesitating whether to follow and serve, only to see Master Wang give him a wink, so he hurriedly followed.
+The Teacher departed to seek fragrance. Zhou Lezhi hesitated over whether to follow and attend him, but then Master Wang gave him a meaningful wink, so he hurried after.
 
-Mr. Zhou followed the turtle slave [brothel servant] through winding paths to a small building. The turtle slave nodded and bowed, saying, "Great Master, this is the place."
+Mr. Zhou followed the turtle slave through winding paths until they reached a small building. The turtle slave bowed and scraped, saying, "Great Master, this is the place."
 
-Zhou Lezhi quickly took out a string of copper coins to reward the turtle slave and ordered him to withdraw. He waited downstairs himself. He saw the Teacher bounding up the stairs in three steps or two, then asking inside with feigned refinement at the door: "Is this Miss Youqing's boudoir?"
+Zhou Lezhi quickly produced a string of copper coins to reward the servant and dismissed him. He stationed himself downstairs to wait. Above, he watched the Teacher bound up the stairs two or three steps at a time, then pause at the door to ask in an affected tone of refinement: "Is this Miss Youqing's boudoir?"
 
-"Is it Master Wang?" A young woman's voice came from the room.
+"Is that Master Wang?" A young woman's voice drifted from within.
 
-Zhou Lezhi originally thought the Teacher would announce his own name. Unexpectedly, he actually coughed and dragged his tone, putting on an official air: "It is exactly this Official."
+Zhou Lezhi had expected the Teacher to announce his own name. Instead, the man cleared his throat, dragged out his words, and adopted an official air: "It is indeed this Official."
 
-This sentence almost made Zhou Lezhi laugh out loud.
+The response nearly made Zhou Lezhi laugh aloud.
 
-He only heard a soft female voice coming from the pavilion: "Master Wang, please come in. This slave is changing clothes and it is inconvenient to welcome you. Hope the Master forgives the sin."
-Although Zhou Lezhi was downstairs and didn't hear very clearly, the tone of charm directly made his blood boil, causing an unstoppable physiological change. He thought, *A famous courtesan is indeed a famous courtesan, truly formidable! The Teacher is blessed! Wonder when I can be like the Teacher...*
+From the pavilion came a soft, feminine voice: "Master Wang, please enter. This slave is changing clothes and cannot properly receive you. I hope the Master will forgive the discourtesy."
 
-Mr. Zhou upstairs wasn't much better than him, anxiously saying, "This Official is coming!"
+Though Zhou Lezhi was downstairs and couldn't hear clearly, the tone of seduction alone was enough to set his blood racing, stirring an involuntary physical response. He thought, *A famous courtesan is truly a famous courtesan—formidable indeed! The Teacher is blessed! I wonder when I might be like the Teacher...*
 
-Hearing the sound of a door, he probably went in.
+Upstairs, Mr. Zhou was faring no better, calling out eagerly: "This Official is entering!"
 
-Then he heard the woman say with a slightly teasing tone, "Master Wang, remember to close the door."
+The sound of a door opening followed—he had probably gone inside.
 
-Hearing a creak, followed by the sound of the door bolt dropping. Zhou Lezhi thought: *The Teacher is quite cautious!*
+Then the woman's voice came again, carrying a slight tease: "Master Wang, do remember to close the door."
 
-Unexpectedly, not a moment after this show of entering, he heard the Teacher let out a miserable scream: "Going to die!"
+A creak sounded, followed by the thunk of a door bolt dropping into place. Zhou Lezhi thought: *The Teacher is quite cautious!*
 
-Zhou Lezhi laughed secretly in his heart: *Teacher, isn't this too fast!*
+Yet scarcely a moment after this theatrical entrance, the Teacher let out a blood-curdling scream: "I'm going to die!"
 
-Unexpectedly, he then heard a woman's crisp shout: "Shameless Eunuch Party, die quickly!" Then came the sounds of tables and chairs overturning and objects falling. It scared Zhou Lezhi into a shudder all over. knowing there was a change inside, he immediately got up and rushed upstairs.
+Zhou Lezhi chuckled to himself: *Teacher, isn't this rather too fast!*
 
-Before he could get upstairs, he heard a clatter of chaos inside. Intermixed was the Teacher's scream: "You! What do you want to do! Don't come over! Help! Help!"
+What followed, however, was a woman's sharp cry: "Shameless Eunuch Party lackey—die!" Then came the crash of overturning tables and chairs, objects clattering to the floor. A shudder ran through Zhou Lezhi's entire body. Realizing something had gone terribly wrong, he leapt up and rushed for the stairs.
 
-Zhou Lezhi pushed the door violently, but it didn't move a bit; the door bolt inside was stuck firmly. In desperation, he pushed the door with all his might, shouting loudly for help: "Come quickly! Come quickly! There is an assassin!!!"
+Before he could reach the top, a chaotic clamor erupted from within. Amid the noise came the Teacher's desperate screams: "You! What do you want! Don't come any closer! Help! Someone help!"
 
-"Dog official! Go die!" The woman's hate-filled killing voice almost tore his eardrums. Suddenly, it became quiet inside instantly, followed by a *thump*, seemingly the sound of a person falling to the ground. Zhou Lezhi was so anxious that sweat streamed down his back, and he shouted for help continuously.
+Zhou Lezhi threw himself against the door, but it refused to budge—the bolt inside held firm. In desperation, he slammed against it with all his might while shouting for help: "Come quickly! Quickly! There's an assassin!"
 
-Turtle slaves and nursing home guards heard the cries for help from upstairs and panicked to come up to check. Unfortunately, the room door was bolted. Several people, together with Zhou Lezhi, took a good half day to pry it open. When the door opened and they looked, everyone was dumbfounded. The room was in a mess, with various objects thrown all over the room. On the ground, a scholar was pressing down a girl, still shouting for help incessantly. Helping wasn't right, not helping wasn't right either; the scene was very awkward.
+"Dog official! Die!" The woman's hate-filled voice nearly split his eardrums. Then, suddenly, silence fell inside, followed by a heavy thump—the sound of a body hitting the floor. Zhou Lezhi's anxiety sent sweat streaming down his back as he continued shouting for help.
 
-A turtle slave said, "You don't understand. This is learning the play 'Guo Ai Drunkenly Beating the Golden Branch.' The person offended represents the Princess, so after beating, he has to beg for forgiveness."
+Turtle slaves and household guards heard the cries and scrambled upstairs in a panic. Unfortunately, the door remained bolted. It took several of them, working together with Zhou Lezhi, a considerable while to pry it open. When they finally looked inside, everyone stood dumbfounded. The room was in complete disarray, objects strewn everywhere. On the floor, a scholar was pinning down a young woman while still crying for help without pause. To intervene seemed wrong; not to intervene seemed equally wrong. The scene was thoroughly awkward.
 
-Another guard quickly expressed a different opinion: "Pure nonsense. Beating the Golden Branch involves begging for forgiveness; this is shouting for help! This is clearly 'Tang Sanzang Trapped in the Daughter Kingdom'!"
+One turtle slave offered, "You don't understand. They're performing 'Guo Ai Drunkenly Beats the Golden Branch.' The person who gave offense represents the Princess, so after the beating, he must beg forgiveness."
 
-Zhou Lezhi jumped anxiously: "This is a rebellion/assassination! Save Master Zhou quickly!"
+A guard quickly presented a different theory: "Nonsense. 'Beating the Golden Branch' involves begging for forgiveness—this is calling for help! Clearly this is 'Tang Sanzang Trapped in the Daughter Kingdom'!"
 
-Mr. Zhou heard this and was depressed, shouting with a crying tone: "This is a female assassin! Look, there is a dagger over there!"
+Zhou Lezhi stamped his foot in agitation: "This is an assassination! Save Master Zhou at once!"
 
-Hearing it was an assassination, everyone then hurriedly rushed forward and helped Mr. Zhou up. At this time, a yard worker screamed, "This... this is not Miss Youqing!"
+Mr. Zhou heard this and felt utterly aggrieved, shouting in a voice near tears: "She's a female assassin! Look—there's a dagger over there!"
 
-Only then did everyone realize the situation was bad. Several people quickly twisted the arms of the woman trying to get up and pressed her to the ground. Others quickly went to the front to report.
+Upon hearing the word assassination, everyone finally surged forward and helped Mr. Zhou to his feet. Just then, a yard worker let out a shriek: "This... this isn't Miss Youqing!"
 
-In a moment, Wang Yehao and his party rushed over. The crowd onlookers at the door quickly parted. Prefect Zhou immediately greeted the accompanying bailiffs: "Tie [him/her] up quickly for me!"
+Only then did the gravity of the situation dawn on everyone. Several men quickly twisted the arms of the woman attempting to rise and forced her to the ground. Others rushed to the front hall to report.
 
-The bailiffs immediately stepped forward, held Mr. Zhou up, dragged him aside, twisted his arms, and were about to tie him.
+Within moments, Wang Yehao and his entourage arrived. The crowd of onlookers at the door parted hastily. Prefect Zhou immediately barked at the accompanying bailiffs: "Bind the prisoner at once!"
 
-"Wrong! Tie that woman!" Prefect Zhou found the target wrong and corrected quickly.
+The bailiffs stepped forward promptly, seized Mr. Zhou, dragged him aside, wrenched his arms behind his back, and prepared to tie him up.
 
-The woman was twisted by arms and pressed down by several big men at this moment, having no power to resist anymore. After being bound, she still cursed endlessly. Prefect Zhou gave a wink, and the guards quickly found a piece of rag to gag the woman's mouth.
+"Wrong one! Bind the woman!" Prefect Zhou caught the error and corrected himself hurriedly.
 
-"Teacher is startled. This..." Wang Yehao asked.
+By now the woman's arms were twisted behind her, pinned down by several burly men, with no strength left to resist. Even after being bound, she continued cursing without pause. Prefect Zhou gave a pointed look, and the guards quickly found a rag to stuff in her mouth.
 
-"This female thief wanted to assassinate Master Wang. Fortunately, she was subdued by me." Mr. Zhou recovered his breath and said with lingering fear, "The dagger is still over there."
+"Teacher, you must be shaken. This..." Wang Yehao began.
 
-As soon as these words came out, Prefect Zhou was scared pale. Someone assassinated a high minister in the venue he arranged, and when he came over just now, he had heard the woman vaguely shouting curses at the "Eunuch Party." If something happened, let alone his black gauze cap [official hat], his head might not be kept.
+"This female thief attempted to assassinate Master Wang. Fortunately, I managed to subdue her." Mr. Zhou caught his breath, still visibly shaken. "The dagger is still over there."
 
-His face was gloomy, saying, "To have such a bold bandit dare to cause chaos here! Summon the Procuress!"
+At these words, Prefect Zhou went pale. Someone had attempted to assassinate a high minister at a venue he had arranged. When he arrived just now, he had heard the woman shouting something about the "Eunuch Party." If anything had happened, never mind his black gauze cap—he might not keep his head.
 
-Hearing this, the Procuress was already ash-faced. Not to mention the target of assassination was Master Wang's staff member, even if an ordinary guest had an accident, she couldn't explain it easily. Trembling, she came upstairs, knelt down with a *thump*, and defended herself repeatedly: "Two Masters! This slave also doesn't know what is going on..."
+His expression darkened. "What brazen banditry, daring to cause chaos here! Summon the Procuress!"
+
+The Procuress was already ashen-faced before she was called. Never mind that the assassination target was Master Wang's staff member—even if an ordinary guest had met with mishap, she could hardly explain it away. Trembling, she ascended the stairs, fell to her knees with a thump, and began defending herself frantically: "Two Masters! This slave truly has no idea what happened..."
 
 "Who is this woman? Why is she in Miss Youqing's room?"
 
-"Reporting to the Master, this slave doesn't know. This girl isn't a person in this slave's courtyard..."
+"Reporting to the Master, this slave doesn't know. This girl isn't anyone from this slave's establishment..."
 
-"Bold! If she isn't a girl in your shop, could it be that this Official brought her?" Prefect Zhou snorted coldly and ordered: "Men! Beat her twenty small boards!"
+"Impudent! If she doesn't belong to your house, did this Official bring her?" Prefect Zhou snorted coldly. "Men! Twenty strokes of the small board!"
 
-The accompanying bailiffs answered in unison, dragged the Procuress to the ground, and beat her with a crackling sound. The Procuress screamed miserably and cried injustice repeatedly.
+The bailiffs answered in unison, dragged the Procuress to the floor, and began beating her with a sharp, crackling rhythm. The Procuress screamed in agony, crying her innocence repeatedly.
 
-"This slave really doesn't know... really doesn't know... Aiya! Aiya... Master spare my life..."
+"This slave truly doesn't know... truly doesn't know... Aiya! Aiya... Master, spare my life..."
 
-Zhou Lezhi was already scared out of his wits at this moment, shrinking in the back seeking not to speak. Looking at the Teacher again, his face was iron-blue, unknown what brains he was moving.
+Zhou Lezhi was already frightened out of his wits, shrinking into the background and keeping silent. Glancing at the Teacher, he saw the man's face had turned iron-blue, his expression inscrutable—clearly deep in troubled thought.
 
-After the beating, Prefect Zhou asked slowly, "Do you know now?"
+After the beating concluded, Prefect Zhou asked slowly, "Do you know now?"
 
-The Procuress cried, "This slave truly doesn't know. Tonight this slave arranged for Miss Youqing to wait in the room. Before the banquet ended, I even checked, and the Miss was still there then... Master spare my life..." After speaking, she kowtowed repeatedly for mercy.
+The Procuress wept: "This slave truly does not know. Tonight, this slave arranged for Miss Youqing to wait in this room. Before the banquet ended, I even came to check—the Miss was still here then... Master, spare my life..." She kowtowed repeatedly, begging for mercy.
 
-At this time, the lamps and candles were all lit, and the room was finally brighter. Liu Zhao poked his head to look at the female thief, instantly shocked with eyes wide open and spine chilling. He hurriedly leaned to Wang Yehao's ear and whispered, "My Lord, this is the daughter of Mr. Guo Yuan."
+By now the lamps and candles had all been lit, and the room was finally bright enough to see clearly. Liu Zhao poked his head in to look at the female thief and instantly froze, eyes widening, a chill running down his spine. He hurriedly leaned close to Wang Yehao's ear and whispered, "My Lord, this is the daughter of Mr. Guo Yuan."
 
-After hearing this, Wang Yehao's look of surprise only flashed for a moment, and he immediately began to take control of the scene: "Master Zhou, in this Official's opinion, this matter should not be publicized."
+Upon hearing this, Wang Yehao's look of surprise flickered for only an instant before he moved to take control of the situation: "Master Zhou, in this Official's opinion, this matter should not be made public."
 
-Seeing that Wang Yehao not only didn't blame him but actively helped him out of the predicament, Prefect Zhou quickly followed up: "What Master Wang says is very true!"
+Seeing that Wang Yehao not only bore him no blame but was actively helping him out of this predicament, Prefect Zhou quickly agreed: "What Master Wang says is most wise!"
 
-"There are many people and mixed eyes. I have to trouble Master Zhou to clear the venue. As for this female thief stealing late at night, this Official should interrogate her personally."
+"There are too many people here, and the situation is complicated. I must trouble Master Zhou to clear the venue. As for this female thief's attempted nighttime burglary, this Official shall interrogate her personally."
 
-Hearing Wang Yehao define the matter as theft instead of assassination, Prefect Zhou knew his official hat was guaranteed. Moreover, the assassinating woman repeatedly mentioned "Eunuch Party" just now; he was even more afraid of fire burning his body. So he agreed hurriedly: "Yes, yes, yes, all depends on Master Wang to decide." After speaking, he instructed his subordinates to send this female thief quietly to Master Wang's boat.
+Hearing Wang Yehao define the incident as theft rather than assassination, Prefect Zhou knew his official position was secure. Moreover, the would-be assassin had repeatedly mentioned the "Eunuch Party" just now—he was even more eager to avoid any fire that might burn him. He agreed hastily: "Yes, yes, of course. Everything shall be as Master Wang decides." He then instructed his subordinates to transport the female thief quietly to Master Wang's boat.
 
-Here, the yard workers and turtle slaves searched and found Miss Youqing. It turned out she was on the canopy bed, tied solidly with skirt ribbons, and her mouth was also stuffed with cloth. Hearing her say she was originally applying makeup in the room when she was suddenly hit heavily from behind, she fainted.
+Meanwhile, the yard workers and turtle slaves conducted a search and finally located Miss Youqing. She was on the canopy bed, bound tightly with strips of skirt fabric, her mouth stuffed with cloth. According to her account, she had been applying makeup in the room when suddenly she was struck hard from behind and lost consciousness.
 
-"This slave lay on the bed groggy and didn't know what happened outside..." Youqing cried. Seeing the situation, she knew something was fishy, so she insisted on knowing nothing.
+"This slave lay on the bed in a daze and knew nothing of what happened outside..." Youqing wept. Seeing how the situation had developed, she knew something suspicious was afoot and insisted she knew nothing.
 
-"Old Ancestor, since there is a theft case in this Moon Plucking Tower, this student shouldn't disturb much more. I'll take my leave now." After speaking, he smiled slightly.
+"Old Ancestor, since there has been a theft at this Moon Plucking Tower, this student should not impose any longer. I shall take my leave." Wang Yehao finished speaking and smiled faintly.
 
-Prefect Zhou knew clearly in his heart and immediately said: "Men! Take down this Procuress and the Whore! Send them back to the Prefectural Yamen for interrogation!"
+Prefect Zhou understood perfectly and immediately ordered: "Men! Take this Procuress and this whore into custody! Deliver them to the Prefectural Yamen for interrogation!"
 
-The Procuress and Youqing cried injustice repeatedly. However, the bailiffs were like wolves and tigers, wrapping iron chains around their necks, dragging and pulling the two down.
+The Procuress and Youqing protested their innocence repeatedly. But the bailiffs descended upon them like wolves and tigers, wrapping iron chains around their necks, dragging and hauling the two women away.
 
-Zhou Lezhi was dumbstruck. It was his first time seeing a high official trying a case. When the clan handled disputes, favoring and bending the law was common, but at least they paid attention to a reason that passed on the face. This high official was good; directly disregarding right and wrong, inverting black and white. He turned back to Youqing's boudoir and saw Mr. Zhou sitting on the bed, panting heavily, seemingly still in shock.
+Zhou Lezhi stood stunned. It was his first time witnessing a high official adjudicate a case. When his clan handled disputes, favoritism and bent laws were common enough, but at least they maintained some pretense of reason to save face. This high official was something else entirely—directly disregarding right and wrong, inverting black and white. He turned back toward Youqing's boudoir and saw Mr. Zhou sitting on the edge of the bed, breathing heavily, still clearly in shock.
 
-Zhou Lezhi went over and whispered, "Teacher, how are you? Master Wang is going back..."
+Zhou Lezhi approached and whispered, "Teacher, are you all right? Master Wang is preparing to depart..."
 
-Mr. Zhou shook his head and whispered, "Bring me that powder compact."
+Mr. Zhou shook his head and whispered back, "Bring me that powder compact."
 
-"Powder compact?" Zhou Lezhi was stunned. Following his gaze, among the overturned objects all over the floor, a pink compact of peculiar material caught his eye. He quickly picked it up and handed it to the Teacher. The Teacher took it in his hand and examined it for a moment, his face full of horror. His hands trembled uncontrollably.
+"Powder compact?" Zhou Lezhi was puzzled. Following the Teacher's gaze among the overturned objects scattered across the floor, his eye caught a pink compact made of some peculiar material. He quickly retrieved it and handed it over. The Teacher took it and examined it for a moment. His face filled with horror. His hands began to tremble uncontrollably.
 
-With a *clang*, the powder compact fell to the ground. Zhou Lezhi quickly picked it up. At this time, he saw a line of Western text impressively printed on the back of the compact—"Made in China."
+With a clang, the powder compact slipped from his fingers and fell to the floor. Zhou Lezhi hurried to pick it up. As he did, he saw a line of Western text printed prominently on the back of the compact—"Made in China."
 
 **(End of Chapter)**

@@ -1,101 +1,101 @@
 # Chapter 2849: A Dilemma of a Letter
 
-Thus, the matter went through the "Summary Procedure" like the various trivial disputes that occurred daily in East Gate Market. After the police arrived, the Qu family offered apologies, compensated for the damage to store items, and paid a fifty-yuan fine for "disturbing business order," bringing the matter to a close.
+And so the matter was resolved through the "Summary Procedure," much like the countless petty disputes that arose daily in East Gate Market. Once the police arrived, the Qu family offered their apologies, paid compensation for the damaged store items, and accepted a fifty-yuan fine for "disturbing business order." With that, the incident was officially closed.
 
-Of course, He Xiaoyue and Guo Xi'er also warned the Qu family group that this was Australian Song, not the Great Ming. If they did anything excessive to Zhou Suniang after returning, they would face legal sanctions. However, apart from this, there was really nothing else they could do.
+He Xiaoyue and Guo Xi'er did warn the Qu family contingent that this was Australian Song, not the Great Ming. Should they do anything excessive to Zhou Suniang upon returning home, they would face legal sanctions. Beyond this, however, there was truly nothing more they could do.
 
-When Zhou Suniang left, He Xiaoyue glanced at her, thinking of how she had taken such a great risk to come here for Wu Xinsheng, yet she herself had tried every means to decline. She couldn't help but feel guilty. Just as she opened her mouth to say some comforting words, Zhou Suniang turned and left before she could speak. He Xiaoyue watched as she disappeared at the end of the corridor, surrounded by several maids.
+As Zhou Suniang was leaving, He Xiaoyue glanced at her, struck by the thought of how this woman had taken such an enormous risk to come here for Wu Xinsheng's sake—while she herself had tried every possible means to decline helping. A pang of guilt struck her. She opened her mouth to offer some words of comfort, but before she could speak, Zhou Suniang turned and walked away. He Xiaoyue watched her disappear at the end of the corridor, surrounded by several maids.
 
-"What a mess!" Guo Xi'er let out a long sigh. "Zhou Suniang is really something! What's so good about Old Wu? It has to be him."
+"What a mess!" Guo Xi'er let out a long sigh. "Zhou Suniang really is something else! What's so special about Old Wu anyway? Why does it have to be him?"
 
-He Xiaoyue didn't speak. She felt there was something inappropriate and guilt-inducing about today's events.
+He Xiaoyue said nothing. She couldn't shake the feeling that something about today's events had been inappropriate—something that left her conscience unsettled.
 
-Now that Zhou Suniang had gone back, she would inevitably suffer. Even though she was favored, a female family member going out privately was a "felony" in any wealthy household. The Madam had every justification to punish her—not to mention her protective talisman, Master Qu, was away.
+Now that Zhou Suniang had returned, she would inevitably suffer for this. Even though she was favored, a female family member venturing out without permission was a grave offense in any wealthy household. The Madam had every justification to punish her—and to make matters worse, her protective talisman, Master Qu, was away.
 
-Thinking of this, she felt even more guilty. If she had known earlier, she should have accepted the letter, saving her from risking trip after trip to deliver it.
+The more she thought about it, the guiltier she felt. If she had known this would happen, she should have simply accepted the letter, sparing Zhou Suniang the need to make these dangerous trips again and again.
 
-However, if she really helped her connect with Wu Xinsheng, wouldn't the aftermath be even harder to clean up? Sigh, actually, if they just eloped, it would be clean and done with. The Qu family could only stare in anger...
+Yet if she truly helped connect her with Wu Xinsheng, wouldn't the aftermath be even more difficult to untangle? She sighed inwardly. Actually, if the two of them simply eloped, that would settle everything cleanly. The Qu family could only fume in helpless rage...
 
-While she was wavering, a discerning salesgirl had already brought fresh tea for guests to help them "calm their nerves."
+While she was caught in this internal tug-of-war, a perceptive salesgirl brought fresh tea for the guests to help them "calm their nerves."
 
-The fragrance of the tea wafted through the studio, rich and aromatic, soothing their momentarily chaotic states of mind.
+The fragrance wafted through the studio, rich and soothing, easing their momentarily troubled states of mind.
 
-"A perfectly good day ruined!" Guo Xi'er continued to mutter continually. "I originally wanted to draw two more sketches this afternoon."
+"A perfectly good day, ruined!" Guo Xi'er continued muttering. "I had planned to finish two more sketches this afternoon."
 
-He Xiaoyue had no mood to chat. She casually pulled up the blinds. The sunlight was blindingly white, making her dizzy.
+He Xiaoyue had no desire to chat. She casually pulled up the blinds. The sunlight poured in, blindingly white, making her feel dizzy.
 
-She suddenly felt a familiar fear—when she was young, her own mother had been ostracized by the first wife in the family. It was that feeling of being helpless, alone, and trembling with fear, afraid that others wouldn't love her anymore, wouldn't want her anymore, and that she would have to abandon all dignity just to kneel and survive...
+A familiar fear suddenly gripped her—memories from her childhood, when her own mother had been ostracized by the first wife in their household. That feeling of being helpless, alone, and trembling with terror. The fear that others would stop loving her, would no longer want her. That she would have to abandon all dignity and kneel just to survive...
 
-He Xiaoyue vaguely felt she shouldn't think about it anymore.
+He Xiaoyue sensed vaguely that she shouldn't dwell on such thoughts anymore.
 
-She took a deep breath, shook her head, and was about to return to the design room when, in a glance, she discovered a paper edge sticking out from the crevice of the sofa in the reception room.
+She drew a deep breath, shook her head, and was about to return to the design room when something caught her eye—a paper edge protruding from a crevice in the reception room's sofa.
 
-The color and pattern... it seemed to be the letter Zhou Suniang had just asked her to give to Wu Xinsheng.
+The color and pattern... it appeared to be the letter Zhou Suniang had just asked her to deliver to Wu Xinsheng.
 
-Regardless of further thought, He Xiaoyue hurriedly pulled the paper out—it was indeed the letter! The envelope was the kind custom-made for wealthy families, with very subdued tones and patterns. There wasn't a single word on the cover, only Zhou Suniang's personal mark affixed to the seal.
+Without further thought, He Xiaoyue hurried over and pulled the paper free. It was indeed the letter. The envelope was the kind custom-made for wealthy families, with subdued tones and elegant patterns. Not a single word graced the cover—only Zhou Suniang's personal seal affixed to the closure.
 
-The contents of the envelope felt very thin; there was likely only a single sheet of letter paper inside, with no additional enclosures.
+The envelope felt very thin; there was likely just a single sheet of letter paper inside, with no other enclosures.
 
-This was probably stuffed in there deliberately by Zhou Suniang. He Xiaoyue thought to herself, *She still harbors that intention.* Sighing inwardly, she no longer felt as repulsed by the matter as before. After thinking for a moment, she stuffed the letter into her pocket.
+Zhou Suniang must have deliberately tucked it there. He Xiaoyue understood at once—*She still harbors that intention.* With an inward sigh, she found herself no longer feeling as repulsed by the matter as before. After a moment's thought, she slipped the letter into her pocket.
 
-She didn't tell Guo Xi'er about the letter. Not only would Guo be unable to come up with an idea, but she would also likely blab about it until the whole world knew.
+She didn't tell Guo Xi'er about it. Not only would Guo be unable to offer any useful ideas, but she would also probably chatter about it until the whole world knew.
 
-Back in the design room, she immediately got busy. Recently, Wanzi Pavilion had hired Senator Liu Shuixin as a "Consultant" and was pushing "New Fashion." Besides meeting the needs of wealthy households, they also began to consider the "light luxury" demands of the upper-middle class of naturalized citizens. Following her creative direction, He Xiaoyue had been racking her brains drawing new design drafts.
+Back in the design room, He Xiaoyue immediately threw herself into work. Recently, Wanzi Pavilion had hired Senator Liu Shuixin as a "Consultant" and was promoting "New Fashion." Beyond catering to wealthy households, they had also begun considering the "light luxury" demands of the upper-middle class among naturalized citizens. Following this creative direction, He Xiaoyue had been racking her brains over new design drafts.
 
-Since the "Drizzle on Duckweed" design she first led achieved good performance, both the long and short versions had garnered considerable success—of course, the short version orders were mostly from female Senators and those close to Senators. The matter of skirt length simply couldn't be rushed.
+Ever since the "Drizzle on Duckweed" design she first led had performed well, both the long and short versions had achieved considerable success—though orders for the short version came mostly from female Senators and those in their circles. The matter of skirt length simply couldn't be rushed.
 
-However, He Xiaoyue had since become a key candidate for Liu Shuixin's cultivation. Anyone could read fashion books; copying styles from the old timeline would be enough for them to use for decades. But cultivating a "fashion sense"... that was a discipline both scientific and metaphysical. Designers like Guo Xi'er, who relied on flipping through *Reference Materials* and piecing things together, would be dime a dozen in the future, but individuals with a certain fashion intuition were hard to find.
+Nevertheless, He Xiaoyue had since become a prime candidate for Liu Shuixin's personal cultivation. Anyone could read fashion books; copying styles from the old timeline would provide enough material for decades. But cultivating genuine "fashion sense"—that was a discipline both scientific and intuitive. Designers like Guo Xi'er, who relied on flipping through *Reference Materials* and cobbling things together, would be a dime a dozen in the future. But individuals with natural fashion intuition were rare indeed.
 
-Talents like He Xiaoyue were likely numerous among the naturalized citizens, just not yet discovered. When Pei Lixiu was in Lingao, she had said she would bring fashion magazines to Guangzhou to start a new wave of fashion and excavate fashion talents. Back then, Liu Shuixin had only echoed her sentiments, but now she was seriously considering it.
+Talents like He Xiaoyue likely existed in abundance among the naturalized citizens—they simply hadn't been discovered yet. When Pei Lixiu had been in Lingao, she mentioned bringing fashion magazines to Guangzhou to spark a new wave of style and unearth fashion talents. At the time, Liu Shuixin had merely echoed the sentiment, but now she was giving it serious consideration.
 
-Liu Shuixin knew well that changing clothing habits wasn't something achieved overnight. She had always sneered at the rhetoric of some people claiming "changing customs must start with skirt length." The conservatism or openness of women's clothing was directly linked to social environment and social status. Women in the civilized world of the old timeline could unscrupulously wear short skirts and off-shoulder tops because, in that environment, such attire was ordinary in the eyes of others, and they wouldn't face moral criticism or physical attacks for it.
+Liu Shuixin understood well that changing clothing habits couldn't happen overnight. She had always scoffed at the rhetoric of those who claimed "changing customs must start with skirt length." The conservatism or openness of women's clothing was directly tied to social environment and women's status within it. Women in the civilized world of the old timeline could unabashedly wear short skirts and off-shoulder tops because, in that environment, such attire was unremarkable in others' eyes. They faced neither moral criticism nor physical attacks for their choices.
 
-In today's Lingao, women's clothing had become much more open over the past ten years. While the trend-following effect brought by the Senate's power played a part, the most essential reason was the improvement of women's social status. He Xiaoyue's transformation was the best proof.
+In today's Lingao, women's clothing had become considerably more open over the past decade. While the trend-following effect driven by the Senate's influence played a role, the fundamental reason was the improvement of women's social standing. He Xiaoyue's own transformation was the clearest proof of this.
 
-Changing customs was easy to say but hard to do. Lingao was a blank sheet of paper easy to draw on, but Guangzhou had deep-rooted traditional culture, and its public order couldn't compare to Lingao's.
+Changing customs was easy to proclaim but difficult to achieve. Lingao was a blank canvas, simple to paint upon. But Guangzhou had deep-rooted traditional culture, and its public order couldn't compare to Lingao's.
 
-Liu Shuixin pondered hard on how to open the market and how to "change customs." Promoting through Purple Ming Pavilion was the wrong path; this was normal clothing, and it shouldn't be too associated with the... special service industry of Purple Ming Pavilion, lest people be afraid to wear it out. Opening a shop in the Great World? It looked simple but had big problems; who would buy these things? Female family members of Guangzhou's wealthy households? They couldn't be counted on.
+Liu Shuixin had pondered at length how to crack open the market and how to "change customs." Promoting through Purple Ming Pavilion was the wrong approach; these were ordinary clothes, and they shouldn't be too closely associated with the... special services of Purple Ming Pavilion, lest women be afraid to wear them in public. Opening a shop in the Great World? It seemed straightforward but presented significant problems—who would actually buy these things? The female family members of Guangzhou's wealthy households? They couldn't be counted on.
 
-Liu Shuixin thought long and hard. Apart from opening a Guangzhou version of Wanzi Pavilion—which had some practical significance—she couldn't come up with other methods, so she had to shelve the matter for now.
+Liu Shuixin thought long and hard. Apart from opening a Guangzhou version of Wanzi Pavilion—which held some practical promise—she couldn't devise any other methods, so the matter had been shelved for now.
 
-Although there was no method yet, talents could be cultivated first. Under her instruction, He Xiaoyue was formally appointed by Wanzi Pavilion as an Assistant Designer to undergo systematic design knowledge study. Assistant Designer was a step up from her previous position as Trainee Designer.
+Though no clear strategy had emerged yet, talent cultivation could proceed in the meantime. Under her direction, He Xiaoyue had been formally appointed by Wanzi Pavilion as an Assistant Designer and enrolled in systematic design studies. Assistant Designer represented a step up from her previous position as Trainee Designer.
 
-This afternoon, Liu Shuixin was coming to "guide the work" at Wanzi Pavilion and incidentally check the "homework" she had assigned to He Xiaoyue.
+This afternoon, Liu Shuixin was coming to Wanzi Pavilion to "guide the work" and incidentally review the "homework" she had assigned to He Xiaoyue.
 
-What she was currently drawing on the drafting board was a women's outfit intended for sale in "New Areas" like Guangzhou. Thematically, it was "Han Element" fashion. This type of fashion was a common project for Wanzi Pavilion; He Xiaoyue had designed several before. But this time, Liu Shuixin emphatically raised the concept of sales regions: "We must fit the needs of customers in New Areas like Guangzhou."
+The outfit currently taking shape on He Xiaoyue's drafting board was a women's ensemble intended for sale in "New Areas" like Guangzhou. Thematically, it fell under "Han Element" fashion. This type of design was a common project for Wanzi Pavilion; He Xiaoyue had created several before. But this time, Liu Shuixin had pointedly raised the concept of sales regions: "It must fit the needs of customers in New Areas like Guangzhou."
 
-This statement was worth pondering. It meant not only did it have to be "good-looking," "new style," and "contain traditional elements," but it also had to cater to "demand."
+That statement was worth pondering. It meant the design not only had to be "attractive," "fresh in style," and "incorporate traditional elements"—it also had to cater to "demand."
 
-Yet this demand was the most elusive. Liu Shuixin had discussed concepts like "customer personas" and "cultural conflict" with her, but for He Xiaoyue, understanding and applying these concepts was still a bit too profound. No matter how she pondered, the resulting drafts were always lacking something.
+Yet this demand was the most elusive aspect of all. Liu Shuixin had discussed concepts like "customer personas" and "cultural conflict" with her, but for He Xiaoyue, truly understanding and applying these ideas remained somewhat beyond her grasp. No matter how she pondered, the resulting drafts always seemed to be missing something.
 
-"This Australian NewspEAK is really hard to understand." He Xiaoyue looked at the sketch on the drafting board and sighed. Let alone Liu Shuixin, even she herself was dissatisfied looking at it.
+"This Australian Newspeak is really hard to understand." He Xiaoyue gazed at the sketch on her drafting board and sighed. Never mind Liu Shuixin—even she herself was dissatisfied with what she saw.
 
-While she was worrying, the salesgirl pushed open the door of the design room again, peering in tentatively.
+While she was fretting over this, the salesgirl pushed open the design room door again, peering in tentatively.
 
-"What is it?" Guo Xi'er was startled.
+"What is it?" Guo Xi'er looked up, startled.
 
 "Master Wu is here!"
 
-Now, both He Xiaoyue and Guo Xi'er revealed incredulous expressions: *Did these two arrange this?!*
+At this, both He Xiaoyue and Guo Xi'er's expressions turned incredulous: *Did those two arrange this?!*
 
-After Wu Xinsheng returned, he had sent a liaison letter. Originally, besides bringing the female workers from the Nansha Mill back for training, he also brought two other female workers—they were scheduled to learn lace-making techniques at Wanzi Pavilion's garment factory to promote it as a household sideline industry upon their return.
+After Wu Xinsheng had returned, he had sent a liaison letter. Originally, besides escorting the female workers from the Nansha Mill back for training, he had also brought two others—they were scheduled to learn lace-making techniques at Wanzi Pavilion's garment factory, with plans to promote it as a household sideline industry upon their return.
 
-But when he contacted them regarding business that time, Wu Xinsheng hadn't shown anything unusual, nor had he expressed interest in any customer.
+But when he had contacted them regarding business matters that time, Wu Xinsheng had shown nothing unusual, nor had he expressed any interest in a certain customer.
 
-Could this be just a coincidence? He Xiaoyue was full of suspicion.
+Could this simply be coincidence? He Xiaoyue was filled with suspicion.
 
-Should she give the letter to him? In her heart, she sympathized greatly with Zhou Suniang. Zhou had gone to such lengths, risking danger time and again to transmit the letter. If she heard no response at all, wouldn't it be too cruel?
+Should she give him the letter? In her heart, she sympathized deeply with Zhou Suniang. The woman had gone to such extraordinary lengths, risking danger time and again to transmit that letter. If she received no response whatsoever, wouldn't that be too cruel?
 
-But if she gave him the letter, the situation would become uncontrollable. If it caused a disturbance, harming Zhou Suniang and Wu Xinsheng aside, she herself would be implicated.
+But if she handed it over, the situation could spiral beyond anyone's control. If it caused a scandal, Zhou Suniang and Wu Xinsheng would suffer—and she herself would be implicated as well.
 
-She struggled internally for a long time, unsure whether to hand over the letter.
+She struggled internally for a long while, unable to decide whether to surrender the letter.
 
-Before she could make up her mind, Wu Xinsheng had already arrived. Since leaving for Nansha, he had become thinner and darker, but his complexion was much sharper than when he was at Wanzi Pavilion. Upon entering the design room, he greeted them enthusiastically.
+Before she could make up her mind, Wu Xinsheng had already arrived. Since leaving for Nansha, he had grown thinner and more sun-darkened, but his features appeared sharper than during his days at Wanzi Pavilion. Upon entering the design room, he greeted them with warm enthusiasm.
 
 "Sister Xi!" "Xiaoyue!"
 
-"Oh my, Brother Xinsheng!" Guo Xi'er didn't have the letter, nor did she have as many thoughts as He Xiaoyue. Seeing an old acquaintance, she immediately welcomed him warmly. "What brings you here?"
+"Oh my, Brother Xinsheng!" Guo Xi'er didn't have the letter, nor did she carry as many worries as He Xiaoyue. Seeing an old acquaintance, she immediately welcomed him with open arms. "What brings you here?"
 
-"Coming to catch up." Looking at Wu Xinsheng's expression, he seemed very happy, without a trace of worry. "Also coming to ask a favor."
+"Coming to catch up." Judging by Wu Xinsheng's expression, he seemed quite pleased, without a trace of worry clouding his features. "Also coming to ask a favor."
 
 **(End of Chapter)**

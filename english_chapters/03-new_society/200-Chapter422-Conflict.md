@@ -22,9 +22,9 @@ Wang Ci wasn't entirely convinced. Though he didn't understand the Australians' 
 
 "That must be Zhang Xingjiao!"
 
-Wang Ci knew this person because Zhang Xingjiao was a registered *tongsheng* in the county. Though he hadn't passed the examination, he still fell under Wang Ci's jurisdiction as County Educational Director. The Zhang Xingjiao family had originally been reasonably well-off, but they were later oppressed by Gou Da and had their family ruined. Zhang Xingjiao had been arrested and brought to the county yamen, nearly cangued for unpaid grain taxes. Only after Wang Ci personally interceded was his life spared. After that, there had been no news of him for a long time. Wang Ci hadn't expected him to have joined the Short Hairs! Considering that the Short Hairs had attacked the Gou Family Manor as soon as they landed, he had probably been the one who guided them there.
+Wang Ci knew this person because Zhang Xingjiao was a registered *tongsheng* in the county. Though he hadn't passed the examination, he still fell under Wang Ci's jurisdiction as County Educational Director. The Zhang Xingjiao family had originally been reasonably well-off, but they were later oppressed by Gou Da and had their family ruined. Zhang Xingjiao had been arrested and brought to the county yamen, nearly cangued for unpaid grain taxes. Only after Wang Ci personally interceded was his life spared. After that, there had been no news of him for a long time. Wang Ci hadn't expected him to have joined the Kun! Considering that the Kun had attacked the Gou Family Manor as soon as they landed, he had probably been the one who guided them there.
 
-Wang Ci didn't blame him for this—it was revenge for family wrongs! Besides, the Gou Family were not good people to begin with; destroying them removed a scourge from Lingao. But to continue associating with bandits after exacting his revenge showed a failure of moral principle. Wang Ci resolved to find a way to see him and advise him not to mix with the Short Hairs any longer—after all, he was also Zhang Xingjiao's teacher.
+Wang Ci didn't blame him for this—it was revenge for family wrongs! Besides, the Gou Family were not good people to begin with; destroying them removed a scourge from Lingao. But to continue associating with bandits after exacting his revenge showed a failure of moral principle. Wang Ci resolved to find a way to see him and advise him not to mix with the Kun any longer—after all, he was also Zhang Xingjiao's teacher.
 
 With this in mind, he nodded. "Are there any other scholars?"
 
@@ -88,7 +88,7 @@ Lu Da listened impatiently and said: "Since it's all wrong, is Master Wang willi
 
 Wang Ci heard the sarcasm in this and his expression changed greatly. He thought resentfully: *Truly bewitched!* Then he reflected: he had no money, no people. He couldn't even raise the stipend silver for a few *xiucai*. The other side not only taught, but was willing to provide food and clothing. In comparison, he was weak and incompetent to the extreme. He felt lost and dejected.
 
-What the common people sought was nothing more than having enough food and clothing. The Short Hairs had seized upon this point to bewitch the people. Even if he were Confucius reborn with all his learning, he could only sigh helplessly!
+What the common people sought was nothing more than having enough food and clothing. The Kun had seized upon this point to bewitch the people. Even if he were Confucius reborn with all his learning, he could only sigh helplessly!
 
 Thinking of this, he was utterly disheartened. Wang Ci rebuked weakly: "What do you know! Go!" He dragged his feet toward the county town.
 

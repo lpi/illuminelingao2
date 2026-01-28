@@ -1,133 +1,133 @@
 # Chapter 2681: The Capital (Part 37)
 
-"The Master wants to seize his family's property?"
+"The Master wishes to seize his family's property?"
 
-"If the Qiankun Mirror is obtained, what are these properties worth mentioning? Just probing the bottom first. You send a message to Liu Sha, saying weapons and soldiers are approaching; find a way to search for the treasure."
+"Once the Qiankun Mirror is obtained, what significance do such properties hold? This is merely a preliminary probe. Send word to Liu Sha—tell him that weapons and soldiers are approaching, and he should find a way to search for the treasure."
 
-Since the plan was set, there should be no delay. Immediately after returning to the residence, Wang Yehao called Jin Wenchi to arrange two tasks. One was an invitation to Tian Hongyu, inviting him to go to the Lantern Festival lamp viewing together; the gift list accompanying the invitation specially listed a pair of Australian glazed glass cups. The other was a reply to Wang Zunde, saying Viceroy Xiong [Xiong Wencan] pacified the Zheng family and settled the seas of Fujian and Zhejiang, for which the Emperor was quite appreciative. In comparison, the ocean surface of Liangguang was full of group bandits rising everywhere; there were even thieves occupying a county for two years without leaving. If Lord Wang still had no achievements, probablly the court discussions would be unfavorable to him.
+With the plan settled, there was no reason to delay. Immediately upon returning to the residence, Wang Yehao summoned Jin Wenchi to arrange two matters. The first was an invitation to Tian Hongyu, requesting his company for the Lantern Festival lamp viewing; the accompanying gift list specifically included a pair of Australian glazed glass cups. The second was a reply to Wang Zunde, noting that Viceroy Xiong Wencan had pacified the Zheng family and brought peace to the seas of Fujian and Zhejiang—achievements the Emperor regarded quite favorably. In contrast, the waters of Liangguang were overrun with bandit groups rising everywhere; there were even thieves who had occupied a county for two years without being dislodged. If Lord Wang continued to show no accomplishments, the court discussions would likely turn unfavorable toward him.
 
-Sending away Wang Yehao, Mr. Zhou didn't go back to the courtyard to play with snow but sat blankly alone in the room. Seeing the Teacher lost in thought, Zhou Lezhi went up and whispered: "Teacher! Should these precious vessels be put away and given to Jieyi?"
+After seeing Wang Yehao off, Mr. Zhou did not return to the courtyard to play in the snow but sat alone in the room, lost in thought. Observing his teacher's distant expression, Zhou Lezhi approached and whispered, "Teacher, should these precious vessels be put away and given to Jieyi for safekeeping?"
 
-This sound woke him up like from a dream. The Teacher gave an "En" and said: "Don't give them to Jieyi for safekeeping; store these things in the study."
+The words roused him as if from a dream. The Teacher gave a soft "En" and said, "Don't give them to Jieyi. Store these things in the study instead."
 
-"Wait!" Zhou Lezhi was just about to tidy up when the Teacher stopped him again. He walked to the table alone and carefully examined these few "rare goods."
+"Wait!" Zhou Lezhi was just about to begin tidying when the Teacher stopped him again. He walked to the table alone and examined the "rare goods" with careful attention.
 
-He picked up a fruit-plate-like glass vessel and whispered: "Ten yuan." Then picked up a powder box, looked carefully, and muttered: "Ivory [fake?]"; finally picked up that wine bottle clear as water, studied it for half a day, looked at the cap on top again, shook his head, and put it down.
+He picked up a glass vessel shaped like a fruit plate and murmured, "Ten yuan." Then he picked up a powder box, studied it closely, and muttered, "Ivory... fake?" Finally, he lifted the wine bottle, clear as water, and examined it for quite some time. He inspected the cap on top, shook his head, and set it down.
 
-"You look; what problems do these things have?" The Teacher suddenly asked Zhou Lezhi.
+"Tell me—what problems do you see with these items?" the Teacher suddenly asked Zhou Lezhi.
 
-Zhou Lezhi picked them up carefully to examine for a while: "Made really well; not done by clumsy hands."
+Zhou Lezhi picked them up and examined each carefully for a while. "They're beautifully made. Clearly not the work of clumsy hands."
 
-"Fart!" The Teacher sniffed disdainfully. "How did I teach you to look at matter?!"
+"Nonsense!" the Teacher scoffed. "How did I teach you to analyze materials?"
 
-"Yes, yes," Zhou Lezhi hurriedly looked again and said, "This glass vessel is transparent throughout, but there are a small number of air bubbles inside the vessel, indicating limited degassing technology..."
+"Yes, yes," Zhou Lezhi hurriedly looked again. "This glass vessel is transparent throughout, but there are a small number of air bubbles within, indicating limited degassing technology..."
 
 "Correct."
 
-"Glass is pure and clear, decolorization technology is relatively good, but still has relatively obvious green color, indicating the raw material contains iron, and decolorization during smelting was not thorough."
+"The glass is pure and clear—the decolorization technology is relatively good—but it still carries a noticeable green tint, suggesting the raw material contains iron, and the decolorization during smelting was incomplete."
 
-"Precisely speaking, it is ferrous iron [divalent iron]." Mr. Zhou corrected.
+"To be precise, it's ferrous iron—divalent iron," Mr. Zhou corrected.
 
-"Yes," Zhou Lezhi was still a mess of confusion regarding concepts like monovalent and divalent, so he could only agree casually at this moment.
+"Yes," Zhou Lezhi agreed casually. He was still thoroughly confused about concepts like monovalent and divalent.
 
-"Material spoken well. What about shape?"
+"Well said regarding the material. What about the form?"
 
-"The surface has marks left during demolding, indicating this plate was cast using a mold. Possibly an iron mold."
+"The surface bears marks left during demolding, indicating this plate was cast using a mold. Possibly an iron mold."
 
-"En," Mr. Zhou seemed satisfied with his answer. "If you were to do it, assuming all conditions are met, could you make glass vessels of similar level?"
+"En." Mr. Zhou seemed satisfied with the answer. "If you were to attempt it yourself, assuming all conditions were met, could you produce glass vessels of similar quality?"
 
-Zhou Lezhi thought for a moment: "Cannot. There are too many processes inside that I don't know."
+Zhou Lezhi considered for a moment. "I could not. There are too many processes involved that I don't understand."
 
-Mr. Zhou nodded: "Very good. Regarding glass making processes, I also only know one or two things; I understand the principles, but really doing it involves too many details that need study. Here, craftsmen regard these craft technologies as secrets not to be passed on..."
+Mr. Zhou nodded. "Very good. Regarding glass-making processes, I myself only know fragments—I understand the principles, but the actual execution involves countless details requiring study. Here, craftsmen treat such techniques as closely guarded secrets, never to be passed on..."
 
-"But technology needs exchange to progress." Zhou Lezhi hurried to repeat the words the Teacher had said countless times.
+"But technology requires exchange to progress," Zhou Lezhi hastened to recite the words his teacher had spoken countless times.
 
-"Exactly so." Mr. Zhou's interest in talking seemed very high today. "Why is everyone unwilling to disclose?"
+"Exactly so." Mr. Zhou's enthusiasm for discourse seemed particularly high today. "Then why is everyone so unwilling to share their knowledge?"
 
-"Master, teaching the apprentice starves the master..." Zhou Lezhi blurted out only to realize this was extremely inappropriate, after all, their relationship was securely master and apprentice.
+"Master teaching apprentice starves the master..." Zhou Lezhi blurted out, then immediately realized how inappropriate this sounded—after all, their relationship was firmly that of master and apprentice.
 
-"Hahaha, what you said is not wrong. In the 17th... now, teaching the apprentice will starve the master. So whether apprentices or various workshops, all view their craft as a secret, absolutely not teaching it easily, let alone disclosing it." Mr. Zhou said, "Then tell me why such a situation appears?"
+"Hahaha! What you said is not wrong. In the seventeenth... in this era, teaching the apprentice will starve the master. So whether apprentices or various workshops, all treat their craft as secrets, never teaching them easily, let alone disclosing them publicly." Mr. Zhou continued, "Then tell me—why does such a situation arise?"
 
-"Because... originally only a few families could do it. If everyone can do it, it won't be valuable."
+"Because... originally only a few families possessed the skill. If everyone could do it, it would no longer be valuable."
 
-"Do you say this glass vessel is good or not?"
+"Would you say this glass vessel is good or not?"
 
-"Of course good. Beautiful and clean. Good for holding anything; once dirty, wash with water and it's clean."
+"Of course it's good. Beautiful and clean. Excellent for holding anything—once dirty, a simple wash with water makes it spotless again."
 
-"It has many other benefits."
+"It has many other benefits as well."
 
-"Corrosion resistant, aging resistant..." Zhou Lezhi had been accompanying the Teacher to fiddle with the laboratory recently; his ears had grown calluses hearing glass's advantages.
+"Corrosion resistant, aging resistant..." Zhou Lezhi had been accompanying his teacher in the laboratory recently; his ears had practically grown calluses from hearing about glass's advantages.
 
-"With so many benefits, logically everyone should like to use it. Why does no one use it?"
+"With so many benefits, logically everyone should want to use it. So why does no one?"
 
-"Few. Expensive."
+"Too few. Too expensive."
 
-In the following half an hour, Zhou Lezhi listened to a class on market supply and demand relationships, gaining a preliminary but comprehensive understanding of concepts like "productive forces," "market," "technological progress," "cost," "profit," etc.
+In the following half hour, Zhou Lezhi listened to a lesson on market supply and demand, gaining a preliminary yet comprehensive understanding of concepts such as "productive forces," "market," "technological progress," "cost," and "profit."
 
-When the Teacher imparted knowledge, he would always start from concrete examples and combine them with reality. Often, things difficult to understand could be explained clearly. This kind of instruction was not limited to class time but happened anytime and anywhere. So learning many courses was not boring at all—even quite interesting.
+When the Teacher imparted knowledge, he always began with concrete examples and connected them to reality. Often, concepts that seemed difficult to grasp could be explained with remarkable clarity. This kind of instruction was not limited to formal class time but occurred anytime and anywhere. As a result, learning many subjects was never boring—quite interesting, in fact.
 
-Sometimes he would also talk about things in "Australia" where he cultivated Dao, including how abundant the productive forces in "Australia" were, everyone could eat white rice, had meat to eat, and lived in big houses... making Zhou Lezhi burst with envy while also suspecting the Teacher was bragging.
+Sometimes the Teacher would speak of things in "Australia," where he had cultivated the Dao, including how abundant the productive forces were there—everyone could eat white rice, had meat to eat, and lived in large houses. Such descriptions filled Zhou Lezhi with envy, though he also suspected his teacher was exaggerating.
 
-However, one point he was sure of: whether everyone in Australia could eat big rice meals was hard to say, but the Teacher definitely ate them every meal. Just looking at the Teacher's fine skin and tender flesh was enough to know—toiling people couldn't have that.
+However, one thing he was certain of: whether everyone in Australia truly ate well was difficult to say, but the Teacher undoubtedly enjoyed fine meals regularly. One only needed to observe the Teacher's smooth, delicate skin to know—laboring people simply couldn't possess such complexion.
 
-"Teacher, is this object produced in Australia?" Zhou Lezhi asked.
+"Teacher, was this object produced in Australia?" Zhou Lezhi asked.
 
-"No." The Teacher answered very crisply. "This object is made right in the Great Ming. If it were an Australian product, it absolutely wouldn't be this rough."
+"No." The Teacher's answer was crisp and definitive. "This object was made right here in the Great Ming. If it were an Australian product, it certainly wouldn't be this rough."
 
-"So speaking, it is Australians manufacturing locally. Maybe right in Guangzhou."
+"So it seems Australians are manufacturing locally. Perhaps right in Guangzhou."
 
-"Your analysis makes sense." A smile appeared at the corner of Mr. Zhou's mouth. "Tell me, if you were an Australian, why manufacture in Guangzhou? Clearly, Australian glass vessels are worthless [cheap], and cost is lower."
+"Your analysis makes sense." A smile appeared at the corner of Mr. Zhou's mouth. "Tell me—if you were an Australian, why would you manufacture in Guangzhou? After all, Australian glass vessels are inexpensive, and production costs there are lower."
 
-"Didn't the Teacher just say? The market price of goods is affected by many factors. Although glass products are cheap in Australia, the transport over thousands of li entails huge water transport fees [freight], plus the round trip takes a year. As the saying goes, tofu becomes the price of meat. Of course, making and selling locally is more cost-effective..."
+"Didn't you just explain, Teacher? The market price of goods is affected by many factors. Although glass products are cheap in Australia, transporting them over thousands of li incurs enormous freight costs, and the round trip takes a year. As the saying goes, tofu becomes the price of meat. Naturally, making and selling locally is far more cost-effective..."
 
-"Well said." Mr. Zhou nodded, seemingly asking and seemingly muttering to himself: "Wonder where they are?"
+"Well said." Mr. Zhou nodded, then asked—or perhaps muttered to himself—"I wonder where they are?"
 
-"Find that Master Guo, ask and we'll know." Zhou Lezhi suggested. "Even if he refuses to say, these goods can't appear out of thin air; there must be transportation and loading/unloading. As long as we let Big Brother Liu buy more spies to stare outside, finding the source is also easy."
+"Find that Master Guo and ask—then we'll know," Zhou Lezhi suggested. "Even if he refuses to tell, these goods can't appear from thin air; there must be transportation and loading involved. As long as we have Big Brother Liu hire more informants to watch the routes, finding the source should be simple enough."
 
-"Hehe, didn't expect your comprehension in this aspect is also good!" Mr. Zhou patted the table lightly. "Let's do this! Us men will go to Guangzhou again as soon as spring starts!"
+"Heh! I didn't expect your comprehension in this area to be so sharp!" Mr. Zhou tapped the table lightly. "It's decided then—we men will travel to Guangzhou again as soon as spring arrives!"
 
 "He wants to go to Guangzhou?" Wang Yehao frowned slightly after hearing Wang Liang's report.
 
-"Yes, Zhou Lezhi said he prepares to set off when spring warms and flowers bloom. Said at that time he also prepares to ask the Master to allocate a few more people with high martial arts, like the two Liu brothers, to accompany them."
+"Yes. Zhou Lezhi mentioned they're preparing to set off when spring warms and flowers bloom. He also said they plan to request that the Master assign several more men with advanced martial skills—like the two Liu brothers—to accompany them."
 
-"Understood. You go."
+"Understood. You may go."
 
-Obviously, this Hearthstone Immortal discovered some clues from *Zizhenzhai*'s vessels, so he was anxious to find Guo Yi and the source of the vessels.
+Obviously, this Hearthstone Immortal had discovered some clues from *Zizhenzhai*'s vessels, which was why he was so eager to find Guo Yi and trace the source of the goods.
 
-He naturally knew the source of the vessels; it was in Lingao County. But this matter temporarily couldn't be known by him.
+Wang Yehao naturally knew the source—it was in Lingao County. But this information could not yet be revealed to him.
 
-In case he found clues in Guangzhou and went to Lingao, obtained the Qiankun Mirror or found Australians to join and return to their country, this greatly useful chess piece would be wasted.
+If he found clues in Guangzhou and proceeded to Lingao, obtained the Qiankun Mirror or found Australians to join and return with them to their country, this immensely useful chess piece would be squandered.
 
-Only by holding the channel of information in his own hands could he effectively control Hearthstone Immortal and make him generate greater value for himself.
+Only by controlling the channels of information could he effectively manipulate the Hearthstone Immortal and extract even greater value from him.
 
-Moreover, Wang Zunde had already submitted a memorial to the court, preparing to suppress the shorn-hair bandits in Lingao. If Immortal Zhou went to Guangzhou at this time, with his careless and straightforward way of speaking, he might be caught as a spy. If he really found Lingao and didn't leave in time, he might also die amidst the chaos of soldiers—that loss would be big!
+Moreover, Wang Zunde had already submitted a memorial to the court, preparing to suppress the shorn-hair bandits in Lingao. If Immortal Zhou traveled to Guangzhou at this time—given his careless and forthright manner of speaking—he might be seized as a spy. If he actually found his way to Lingao and failed to leave in time, he might perish amid the chaos of battle. That would be a tremendous loss!
 
-There must be something to trip him up!
+Something must be done to obstruct him.
 
-What method to use? Wang Yehao thought hard. Persuading face-to-face was definitely not okay; if forbidden forcefully, it would hurt harmony. Best to have some "inevitable" method.
+But what method to use? Wang Yehao pondered deeply. Direct persuasion was certainly out of the question; forcible prohibition would damage their relationship. The ideal approach would be something that appeared "inevitable."
 
-He quietly called Liu Zhao and asked if he had any method—after all, these Jinyiwei investigators were best at manipulating human hearts.
+He quietly summoned Liu Zhao and asked if he had any ideas—after all, these Jinyiwei investigators excelled at manipulating human hearts.
 
-"This is not difficult," Liu Zhao said almost without thinking. "I have a method."
+"This is not difficult," Liu Zhao replied almost without thinking. "I have a method."
 
 "What method?"
 
-"Simplest really, just needs someone by Hearthstone Immortal's side to do it. Don't know if they are reliable or not."
+"The simplest approach merely requires someone close to the Hearthstone Immortal to carry it out. I'm uncertain whether they can be trusted."
 
-"Speak without harm."
+"Speak freely."
 
-Thus, a change occurred in Mr. Zhou's "Spring Guangzhou Australian Search Trip" when he was preparing to set off enthusiastically—Zhou Juli suddenly fell ill.
+Thus, a change befell Mr. Zhou's enthusiastic "Spring Guangzhou Australian Search Trip" just as he was preparing to depart—Zhou Juli suddenly fell ill.
 
-The illness came extremely fast. The day before, Zhou Juli was still walking all over the ground, babbling with a rattle drum, flesh on her face bulging out. The second day, she was actually bedridden, the whole person groggy, seemingly asleep but not asleep.
+The illness struck with frightening speed. The day before, Zhou Juli had been toddling about everywhere, babbling happily with her rattle drum, her cheeks plump with baby fat. The very next day, she was bedridden, her entire being groggy, seeming to sleep yet not truly asleep.
 
-Seeing the baby daughter fall into lethargy, Immortal Zhou was so anxious he spun in circles, personally accompanying and nursing at the bedside.
+Seeing his infant daughter lapse into such lethargy, Immortal Zhou grew frantic with worry, spinning in circles and personally keeping vigil at her bedside.
 
-Speaking of symptoms, it was truly rare. First, no fever; second, no cough... except for sleeping groggily, there were no other symptoms.
+As for symptoms, they were truly peculiar. First, no fever; second, no cough... aside from her drowsy stupor, there were no other signs of illness.
 
-Don't look at how Hearthstone Immortal started his career with the name of "Divine Doctor" and now occasionally treated people with reportedly good effects. But facing his daughter's illness, he was helpless, only anxious enough to spin circles in the room continuously. The Teacher's temper also became irritable. Cursing Zhou Lezhi, cursing Jieyi, cursing maids, cursing Liu Zhao... in short, everyone in the Zhou Residence was cursed by him once.
+Though the Hearthstone Immortal had built his reputation on the title of "Divine Doctor" and still occasionally treated patients with reportedly good results, he was utterly helpless before his daughter's ailment. He could only pace the room in anxious circles. The Teacher's temper grew increasingly volatile—he scolded Zhou Lezhi, scolded Jieyi, scolded the maids, scolded Liu Zhao... in short, everyone in the Zhou Residence received a tongue-lashing.
 
-Under Master Wang's care, several famous local doctors were invited, but they had different rhetorics regarding the illness, and the prescriptions opened also had their own merits. The Teacher originally forbade using any, but unable to withstand Zhou Juli not taking water or rice and her face becoming dimmer daily, he had to order trying.
+Under Master Wang's attentive care, several renowned local physicians were summoned. Yet they offered differing diagnoses regarding the illness, and the prescriptions they wrote each had their own particular emphases. The Teacher initially forbade using any of them, but he could not bear to watch Zhou Juli refuse both food and water while her complexion grew dimmer by the day. Eventually, he had no choice but to order them tried.
 
-Quite a few decoctions were drunk. Finally, Zhou Juli's condition gradually improved. Because the body was weak, and doctors were invited to recuperate, the tossing lasted until June. Summer was not suitable for long-distance travel, so the Teacher postponed the plan to go to Guangzhou until autumn.
+Quite a few decoctions were administered. At last, Zhou Juli's condition gradually improved. Because her body remained weak and physicians were called repeatedly for recuperation, the ordeal dragged on until June. Summer was unsuitable for long-distance travel, so the Teacher postponed his plan to visit Guangzhou until autumn.
 
 **(End of Chapter)**

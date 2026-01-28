@@ -42,7 +42,7 @@ A teeth-setting "crack" sound came from the joining of the skull bones. The stur
 
 The first wave of bayonet combat ended very quickly. Though the militia had many people, their training and quality were far inferior. After the brave warriors among the militia were killed off at maximum speed, the remaining people scattered and fled. More than thirty Fubo Army soldiers chased fiercely with bayonets. They only had four wounded in the melee. Apart from the Fubo Army soldier whose abdomen was pierced by a spear, Ye Canming with a cut on his back was already the most seriously injured. However, the excessive secretion of adrenaline made him completely unaware of his wound. Platoon Leader Li Gangsheng's martial prowess roused his heavenly fighting will. Holding the rifle level, he shouted and followed his platoon leader closely, as if all enemies in front would be easily trampled flat by them.
 
-"Hold! Hold!" Seeing the defeat like a mountain collapsing, Master Yang was exasperated. Two hundred elites ambushing less than forty people, yet beaten to flowing water in the time it takes to eat a meal. He suddenly realized how ridiculous his idea of "Opposing Hair Rebels and Supporting Ming" to win fame and "glorify ancestors" was. With their combat power, once those hundred-plus men arrived in full force, they could swallow his little bit of manpower whole without leaving even bone dregs.
+"Hold! Hold!" Seeing the defeat like a mountain collapsing, Master Yang was exasperated. Two hundred elites ambushing less than forty people, yet beaten to flowing water in the time it takes to eat a meal. He suddenly realized how ridiculous his idea of "Opposing Kun and Supporting Ming" to win fame and "glorify ancestors" was. With their combat power, once those hundred-plus men arrived in full force, they could swallow his little bit of manpower whole without leaving even bone dregs.
 
 He knew deeply that if he failed here today, his family was finished—the gentry and powerful local households all watched the wind to hoist their flags. If he lost today, there would be no need for the Australians to act; the surrounding powerful families, Hakkas, Yao people... every one of them would jump out to tear him apart first.
 
@@ -54,9 +54,9 @@ Only then did the routed troops stabilize their order slightly. Yang Erhu, with 
 
 "Advance, no retreat! Everyone attack! Rush up, one tael of silver for hacking a Hair Rebel once! Five taels for beheading one! Whoever dares to retreat, don't blame me for being heartless and unjust! Not only will I kill him, I'll kill his whole family!"
 
-Seeing the militia didn't dare run wildly anymore, Yang Erhu said: "Don't be afraid, everyone. The Hair Rebels only have a few dozen people. If we go up and each take a chop, we'll hack them to death!"
+Seeing the militia didn't dare run wildly anymore, Yang Erhu said: "Don't be afraid, everyone. The Kun only have a few dozen people. If we go up and each take a chop, we'll hack them to death!"
 
-Originally, the militia were somewhat terrified, but hearing the Master offering unprecedentedly heavy rewards, and seeing that the rushing Hair Rebels were only thirty-odd men—after all, their own side had numbers and strength—if they rushed up and each took a chop, they could hack them all to death. Immediately, they all clamored. Seeing morale was usable, Yang Erhu called his cousin Yang Xiaodong to lead the team to charge and kill.
+Originally, the militia were somewhat terrified, but hearing the Master offering unprecedentedly heavy rewards, and seeing that the rushing Kun were only thirty-odd men—after all, their own side had numbers and strength—if they rushed up and each took a chop, they could hack them all to death. Immediately, they all clamored. Seeing morale was usable, Yang Erhu called his cousin Yang Xiaodong to lead the team to charge and kill.
 
 "Xiaodong, it's up to you!"
 

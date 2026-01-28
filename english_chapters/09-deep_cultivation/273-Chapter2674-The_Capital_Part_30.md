@@ -1,121 +1,123 @@
 # Chapter 2674: The Capital (Part 30)
 
-"This nephew wants to trouble Fourth Uncle with a matter." Since it was a secret talk, Wang Yehao didn't beat around the bush.
+"There is a matter this nephew wishes to trouble Fourth Uncle with." Since this was a private discussion, Wang Yehao dispensed with formalities and spoke plainly.
 
-"Easy to say, easy to say." Wang Xiantong said with a grin, "Fourth Uncle got his wish this time and owes you a big favor!"
+"Of course, of course." Wang Xiantong grinned broadly. "Fourth Uncle achieved his heart's desire this time—I owe you a great favor!"
 
-"With Fourth Uncle's talent and prestige, it is naturally so. This nephew just did a favor by pushing the boat with the current." Wang Yehao made a few polite remarks, then handed over a wax-sealed paper roll. "This nephew wants to send a message to Liu Zhao. I wonder if it is convenient on Fourth Uncle's side."
+"With Fourth Uncle's talent and reputation, it was only natural. This nephew merely helped push the boat along with the current." After exchanging a few courtesies, Wang Yehao produced a wax-sealed paper scroll and handed it over. "I wish to send a message to Liu Zhao. Would that be convenient for Fourth Uncle to arrange?"
 
-"What difficulty is there." Wang Xiantong took the paper roll. "Although it is the New Year festival, the *Zhenfusi* [Jinyiwei Office] also has people on duty. I will send someone to send it out today."
+"What difficulty could there be?" Wang Xiantong accepted the scroll. "Though we're in the midst of New Year festivities, the *Zhenfusi* [Jinyiwei Office] still has men on duty. I'll have someone dispatch it today."
 
-"Then many thanks to Fourth Uncle." Wang Yehao cupped his hands and asked again, "I wonder when this news can arrive?"
+"Then many thanks to Fourth Uncle." Wang Yehao cupped his hands in gratitude. "May I ask when the message will arrive?"
 
-Wang Xiantong thought for a moment and said, "The postal deadline to Guangzhou Prefecture is fifty-six days. If it is an urgent document, it is thirty-two days. The *Zhenfusi* here also has a flying pigeon transmission line, but it can only communicate a few words and cannot deliver formal documents. Moreover, birds may suffer damage on the way, so mostly secret messages are sent together through multiple routes to ensure the news is not lost."
+Wang Xiantong considered for a moment. "The standard postal deadline to Guangzhou Prefecture is fifty-six days. For urgent documents, thirty-two. The *Zhenfusi* also maintains carrier pigeon routes, though those can only convey brief messages—nothing formal. And birds may come to harm along the way, so we typically send critical intelligence through multiple channels simultaneously to ensure nothing is lost."
 
-Wang Yehao calculated the dates, then said, "It's not an urgent matter. No need for express. Ensuring it arrives is enough."
+Wang Yehao calculated the dates in his head, then nodded. "It's not an urgent matter. No need for express delivery. So long as it arrives safely, that will suffice."
 
-"Haha, with our *Zhenfusi* handling things, my worthy nephew can rest assured."
+"Ha! With our *Zhenfusi* handling the matter, my worthy nephew may rest easy."
 
-Wang Yehao drank a mouthful of tea to relax, thinking that having someone serving in the *Zhenfusi* was indeed convenient. Recently, he had gradually realized its benefits; whether inquiring about news or secret contact, it was "swifter" and "more secret" than official channels. No wonder the Emperors relied on the Factory and Guard as their belly and heart.
+Wang Yehao took a sip of tea and allowed himself to relax. Having a relative serving in the *Zhenfusi* truly was convenient. He had come to appreciate its benefits more and more of late—whether gathering intelligence or arranging secret communications, the *Zhenfusi* proved both swifter and more discreet than official channels. Small wonder the Emperors relied on the Factory and Guard as their most trusted instruments.
 
-Putting down the teacup, he said, "Speaking of the *Zhenfusi* personnel, Liu Zhao said he has a brother named Liu Sha who also serves in the *Zhenfusi*, only he has no assignment nowadays. He begged me to give his brother a job. Does Fourth Uncle recognize this person?"
+Setting down his teacup, he continued, "Speaking of *Zhenfusi* personnel—Liu Zhao mentioned a brother of his named Liu Sha who also serves there, though he currently has no assignment. He asked me to find his brother some employment. Does Fourth Uncle know of this person?"
 
-"Have some impression. Seems he sets up a fortune-telling stall in the South City market; should have hereditary skills in geomancy."
+"The name rings a bell. I believe he runs a fortune-telling stall in the South City market. Should have hereditary expertise in geomancy."
 
-"Oh? Liu Zhao recommended this person. I wonder if Fourth Uncle thinks he is usable?"
+"Oh? Liu Zhao recommended him. Does Fourth Uncle think he'd be useful?"
 
-"Before, it was hard to say, but recently maybe it can work. Don't know what bewildering soup those Donglin people fed the Emperor, he actually banned official surveillance, causing many children to lose their livelihood." Wang Xiantong complained a bit, then said, "Liu Sha's batch should have also suffered the cut. If you want to recruit him now, it shouldn't be difficult. If my worthy nephew is interested, I will let him go to your residence to serve tomorrow."
+"Before, it would have been hard to say, but lately there might be an opportunity. Who knows what bewitching nonsense those Donglin men fed the Emperor—he actually banned official surveillance, leaving many of our people without their livelihood." Wang Xiantong grumbled briefly, then added, "Liu Sha's group should have been caught up in those cuts as well. If you wish to recruit him now, it shouldn't prove difficult. If my worthy nephew is interested, I'll have him report to your residence tomorrow."
 
-"Good." Wang Yehao nodded thoughtfully. "Speaking of the Emperor cutting the Factory and Guard, I wonder what plans Fourth Uncle has?"
+"Good." Wang Yehao nodded thoughtfully. "Speaking of the Emperor's cuts to the Factory and Guard—what plans does Fourth Uncle have?"
 
-Wang Xiantong frowned and said, "This is the Sacred Will; subjects naturally should follow. It's just quite thorny. After the Wei Rebel committed suicide in fear of punishment, the Eunuch Party personnel are all in a state of constant anxiety. Back then, he repeatedly instigated major prison cases, killing many people and owing so many blood debts. How could the Donglin Party spare them! Only those serving in the Factory and Guard under orders, I fear, will also be implicated."
+Wang Xiantong's brow furrowed. "This is the Sacred Will; naturally, subjects must comply. Yet it is a thorny situation. After the Wei Rebel took his own life to escape punishment, the Eunuch Party has been in a constant state of dread. Wei repeatedly instigated major prison cases during his time—he killed many and accumulated countless blood debts. How could the Donglin Party possibly spare them? I fear even those who merely served in the Factory and Guard under orders will be implicated."
 
-"Fourth Uncle need not worry. This Nephew will naturally mediate on the Donglin side. However, Tian Ergeng probably cannot be saved. Fourth Uncle might as well contact secretly and report him first, avoiding the disaster of pond fish [collateral damage] and establishing the merit of restoring order."
+"Fourth Uncle need not worry. This nephew will naturally intercede on the Donglin side. However, Tian Ergeng is beyond saving. Fourth Uncle would do well to make contact quietly and report him first—thus avoiding the disaster of collateral damage while establishing merit for restoring order."
 
-Wang Xiantong was stunned, then praised immediately: "What my worthy nephew says is reasonable..."
+Wang Xiantong started, then immediately offered his praise: "What my worthy nephew says is most reasonable..."
 
-Seeing Fourth Uncle still hesitating slightly, Wang Yehao added: "Fourth Uncle, do not hesitate. This Tian Ergeng attached himself to the Wei Rebel, repeatedly instigated major prison cases, and his methods were cruel. Not to mention the Donglin lineage, even other ministers in the court mostly want to put him to death—the 'Five Tigers' are people who must die; everyone wants to beat the drowning dog. Fourth Uncle reporting him is just complying with the general trend."
+Seeing that Fourth Uncle still harbored some hesitation, Wang Yehao pressed on: "Fourth Uncle, you mustn't waver. Tian Ergeng attached himself to the Wei Rebel and repeatedly instigated major prison cases with brutal methods. Not just the Donglin faction—ministers across the court want him dead. The 'Five Tigers' are marked men; everyone is eager to beat the drowning dog. For Fourth Uncle to report him is simply following the prevailing tide."
 
-If it were in the past, Wang Yehao wouldn't have spoken so absolutely. Ever since "Immortal Zhou's" greatest prophecy—"Eunuch Party destruction, Nine Thousand Years suicide, Prince Xin ascension"—came true, he had believed the prophecies in the "Codebook" without reservation.
+In the past, Wang Yehao would never have spoken with such certainty. But ever since "Immortal Zhou's" greatest prophecy—"the Eunuch Party's destruction, the Nine Thousand Years' suicide, Prince Xin's ascension"—had proven true, he trusted the predictions in the "Codebook" without reservation.
 
-Who to impeach, who not to impeach, "Hearthstone Daoist" had already given him a list. He only needed to follow the pattern to draw the gourd and submit memorials. Hundred shots, hundred hits.
+Whom to impeach, whom to spare—the Hearthstone Daoist had already provided him with a list. He need only trace the pattern and submit his memorials accordingly. Every strike found its mark.
 
-"Good, good, I'll listen to you!"
+"Very well, very well—I shall heed your counsel!"
 
-"Just now Fourth Uncle said many children lost their livelihood. This Nephew's residence is short of hands recently. If there are suitable ones, I hope Fourth Uncle can recommend one or two."
+"Just now, Fourth Uncle mentioned that many of your people have lost their livelihoods. This nephew's residence happens to be short-handed at present. If there are any suitable candidates, I hope Fourth Uncle might recommend one or two."
 
-"Easy to say, easy to say."
+"Of course, of course."
 
-In the afternoon of the next day, Wang Yehao indeed heard servants report that a face-reading Daoist was begging to see him at the gate. He wouldn't leave even when given money, insisting on seeing the Master. When the guards wanted to drive him away, they couldn't move with just a brush of his hand.
+---
 
-"...He also said he came by recommendation, not some wandering wild Daoist."
+The following afternoon, servants reported to Wang Yehao that a face-reading Daoist was seeking an audience at the gate. He refused to leave even when offered money, insisting he must see the master of the house. When the guards tried to remove him, they found they could not budge him with so much as a brush of his hand.
 
-"Oh? Came by recommendation?" Wang Yehao knew this was likely Liu Zhao's brother. It seemed he had some skills.
+"...He also claims he came by recommendation—that he's no wandering charlatan."
 
-"Let him in." Wang Yehao instructed the servants to bring him to the study.
+"Oh? By recommendation?" Wang Yehao surmised this must be Liu Zhao's brother. It seemed the man possessed some genuine skill.
 
-Before long, a Daoist with grizzled beard and hair and a face full of gullies appeared before Wang Yehao.
+"Let him in." He instructed the servants to bring the visitor to his study.
 
-"Poor Daoist Liu Sha greets the Master." The Daoist flicked his horsetail whisk and bowed with cupped hands.
+Before long, a Daoist with grizzled beard and hair appeared before him, his face deeply weathered with lines.
 
-Looking at his clothes, they were truly dirty, fitting the image of a physiognomist making a living in the market. "Not showing open appearance [Don't look like a spy]" was a basic requirement for secret detectives.
+"This poor Daoist, Liu Sha, greets the master." The Daoist flicked his horsetail whisk and bowed with cupped hands.
 
-"Daoist Master asks to see me today; I wonder what for?" Wang Yehao deliberately feinted, wanting to see how the other party would react.
+His clothes were indeed filthy—entirely befitting a physiognomist who made his living in the marketplace. "Conceal one's true nature" was the most basic requirement for a secret operative.
 
-The Daoist didn't panic either, saying with a chuckle: "Recently, the Poor Daoist's incense fire has withered, and the purse is shy. Hearing that the Master here wants to set up an altar for rituals and pray for blessings to dispel disasters, I specially come to recommend myself."
+"Daoist Master seeks an audience with me today—may I ask for what purpose?" Wang Yehao feigned ignorance, curious to see how the other would respond.
 
-Wang Yehao also smiled and handed over the recommendation note written by Liu Zhao earlier: "Does the Daoist Master know Liu Zhao?"
+The Daoist showed no sign of alarm, merely chuckling as he replied: "Recently, this poor Daoist's fortunes have withered, and my purse has grown shy. Hearing that the master of this house seeks to establish an altar for rituals and prayers to dispel misfortune, I have come to offer my services."
 
-"Liu Zhao is indeed my clan brother. Ranking-wise, I have to call him Second Brother." The Daoist looked at the note and replied, "Previously heard him mention serving in the Master's residence, but haven't seen him for two years."
+Wang Yehao smiled as well and produced the recommendation note Liu Zhao had written earlier. "Does the Daoist Master know Liu Zhao?"
 
-Wang Yehao looked at the other party, feeling somewhat suspicious in his heart. Liu Zhao was only just over thirty. Originally he thought the brother he mentioned wouldn't be over forty, but the one who came today looked like fifty or sixty no matter how one looked, yet he had to call Liu Zhao 'Second Brother'.
+"Liu Zhao is indeed my clan brother. By generational ranking, I must call him Second Brother." The Daoist examined the note and replied, "I heard some time ago that he was serving in your household, though I haven't seen him in two years."
 
-"May I ask Daoist Master, what is your noble age this year?"
+Wang Yehao studied him, feeling a flicker of doubt. Liu Zhao was barely past thirty. He had assumed the brother in question would be no older than forty. Yet the man before him looked to be fifty or sixty at least—yet had to address Liu Zhao as "Second Brother"?
 
-Since the note already explained it, the Daoist stopped playing Tai Chi: "Hehe, presumably the Master also knows. I, like Liu Zhao, also serve in the *Zhenfusi*. Only usually I don't handle errands in the Yamen but set up a stall in the south of the city, using the banner of face reading to do the work of surveillance and secret investigation. In the trade of geomancy, if the skin looks too tender, no one believes it, so I intentionally dress to look older. In reality, I just turned thirty this year."
+"May I ask the Daoist Master's age?"
 
-"Unexpectedly, your Excellency's trade is like officialdom; one has to endure for seniority." Wang Yehao wanted to laugh hearing him say this. Speaking of tender skin, which physiognomist in the *Jianghu* was more tender than Immortal Zhou? But when he gave a verdict, that was called speaking of things like a god, a hundred spirits and a hundred verifications.
+Since the note had already revealed his identity, the Daoist dropped the pretense: "Heh. Presumably, the master is already aware. Like Liu Zhao, I too serve in the *Zhenfusi*. Only I don't handle assignments at the Yamen—instead, I run a stall in the south of the city, using the guise of face reading to conduct surveillance and gather intelligence. In the trade of geomancy, if one looks too young, no one trusts the readings, so I deliberately make myself appear older. In truth, I just turned thirty this year."
 
-"The Master is joking." Liu Sha waved his hand and continued, "This outfit and appearance are just to fool some foolish men and women. If speaking of geomancy and Feng Shui, face reading and fate principles, one still has to rely on true skill."
+"It would seem your trade is much like officialdom—one must endure and accumulate seniority." Wang Yehao suppressed a laugh at this. Speaking of youthful appearances, which physiognomist in the *Jianghu* could be more baby-faced than Immortal Zhou? Yet when that man rendered a verdict, his words proved divinely accurate—verified without fail.
 
-Wang Yehao stroked his beard thoughtfully: "Since it is so, this Official has a difficult matter and wants to ask your Excellency."
+"The master jests." Liu Sha waved dismissively and continued, "This costume and appearance merely fool simple folk. When it comes to actual geomancy and Feng Shui, face reading and destiny calculation, one must still rely on true skill."
 
-"Master, please speak."
+Wang Yehao stroked his beard thoughtfully. "Since that is so, this official has a difficult matter and wishes to consult you."
 
-"Last year on the way back to the capital, I took in two new maids. This Official only wants to keep one obedient one. Trouble your Excellency to select one for this Official." Wang Yehao immediately ordered people to bring the two maids who previously served the Hearthstone Daoist. After separating from him, these two maids had basically entered the Cold Palace for the past half-year. Except for plenty of daily food, few people greeted them usually. Being brought to the Master's study inexplicably today, with a strange Daoist standing in the room, both were somewhat apprehensive.
+"Please speak, master."
 
-Liu Sha knew the other party was weighing his weight, so he dared not neglect. He scrutinized the two maids carefully, then said: "Two young ladies, lend me your hands."
+"Last year, on my journey back to the capital, I took in two new maids. This official wishes to keep only one—one who is obedient. I would trouble you to select one for me." He immediately ordered servants to bring forth the two maids who had previously attended the Hearthstone Daoist. Since parting ways with that man, the two had essentially been relegated to the Cold Palace for the past half-year. Though they received ample daily provisions, few paid them any attention. Being suddenly summoned to the master's study today, with a strange Daoist standing in the room, left both of them visibly anxious.
 
-Hearing the Daoist say he wanted to read palmistry, the two maids were slightly coy. However, since the head of the house didn't seem to object, they had to shrinkingly extend their hands.
+Liu Sha understood the master was testing his abilities and dared not be careless. He scrutinized the two maids carefully, then said: "Young ladies, may I see your hands?"
 
-Liu Sha looked for a while, then asked one of them, "May I ask this young lady's fragrant name?"
+Hearing that the Daoist wished to read their palms, both maids grew bashful. Yet since the head of the household raised no objection, they timidly extended their hands.
 
-"The name given by Mr. Zhou on the road, called Zhiling." The maid replied tremblingly.
+Liu Sha examined them for some time, then addressed one: "Might I ask this young lady's name?"
 
-"Mr. Zhou is an advisor in the residence." Wang Yehao introduced the character background.
+"The name given by Mr. Zhou on the road—it's Zhiling," the maid answered in a trembling voice.
 
-Liu Sha nodded, then continued to say to Zhiling: "Looking at this young lady's hand lines, it is a face of rebirth after calamity. Presumably, the harvest in your hometown must be good this year. Leaving the registry and redeeming yourself shouldn't be far off."
+"Mr. Zhou is an advisor in this household," Wang Yehao supplied by way of background.
 
-"Is what the Daoist Master says true?" The girl's eyes lit up hearing this, but her gaze dimmed immediately: "Sigh, my body contract costs twenty taels. Father and Mother probably can't take out this much money. If I go back, I still have to suffer the white eyes of my brother and sister-in-law. Although there are many rules here, at least I don't get scolded for eating."
+Liu Sha nodded, then continued addressing Zhiling: "Looking at this young lady's palm lines, I see the face of one reborn after calamity. I expect the harvest in your hometown must be good this year. Leaving the registry and buying back your freedom should not be far off."
 
-Liu Sha comforted her with a chuckle for a few sentences, then turned to chat with Jieyi. After a while, Liu Sha retreated and cupped his hands to Wang Yehao, indicating he had asked clearly.
+"Is what the Daoist Master says truly possible?" The girl's eyes lit up at this, though her gaze dimmed almost immediately. "Alas, my body contract costs twenty taels. Father and Mother probably can't produce such a sum. And if I return home, I'll only suffer the scorn of my brother and sister-in-law. Though there are many rules here, at least no one berates me for eating."
 
-Wang Yehao ordered the two maids to wait outside the door, then asked Liu Sha: "Does your Excellency have a candidate?"
+Liu Sha offered her a few words of comfort with a gentle chuckle, then turned to converse with Jieyi. After a while, he stepped back and cupped his hands toward Wang Yehao, indicating he had learned what he needed.
 
-"In my opinion, the Master has such a large family business and numerous servants up and down the residence; it's not that you can't afford to feed one or two mouths. Choosing people today, presumably, is to perform an extraordinary matter." Liu Sha stole a glance at Wang Yehao's expression. Seeing him slightly surprised, he knew he must have hit the mark, so he continued, "I boldly speculate that since only one person is selected, it must involve secrets and requires a tight-lipped person. Jieyi is better than Zhiling."
+Wang Yehao ordered the two maids to wait outside the door, then asked: "Does the Daoist Master have a recommendation?"
 
-"How does your Excellency make this verdict?"
+"In my view, the master presides over a great household with numerous servants throughout the residence—it's not as though you cannot afford to feed one or two more mouths. That you choose today to select someone suggests you intend to entrust an extraordinary matter." Liu Sha stole a glance at Wang Yehao's expression. Seeing a flicker of surprise, he knew he had struck true and pressed on: "I venture to speculate that since only one person is being selected, the task must involve secrets and require someone who can hold her tongue. Jieyi is better suited than Zhiling."
 
-"Hehe, just used some small tricks." Liu Sha smiled with disapproval. "I saw old calluses on Zhiling's hands and determined she came from a farming household. Perhaps she was sold as a slave due to a bad year. So I specially bluffed her a few sentences. Unexpectedly, without much effort, she revealed her background completely. In comparison, Jieyi is more reliable."
+"How does the Daoist Master arrive at this judgment?"
 
-"Good means." Wang Yehao nodded in agreement, then suddenly asked faintly, "Your Excellency has been in the capital for a long time; wonder if you have investigated this Official?"
+"Heh, just a small trick." Liu Sha smiled casually. "I noticed old calluses on Zhiling's hands and determined she came from a farming household—likely sold into service due to a bad harvest year. So I deliberately probed her with a few leading remarks. With barely any effort, she revealed her entire background. By comparison, Jieyi is the more reliable choice."
 
-Hearing this, Liu Sha hurriedly bowed down: "Master rest assured. I know the rules. Since I am throwing myself to the Master, I will be loyal and undivided hereafter."
+"Clever method." Wang Yehao nodded in agreement, then asked suddenly, his tone turning cool: "The Daoist Master has been in the capital for some time. Might I ask—have you investigated this official?"
 
-"En. Handle errands with all your heart; this Official won't treat you unfairly."
+At these words, Liu Sha hastily prostrated himself: "Master, rest assured. I know the rules. Since I am casting my lot with you, I shall be loyal and undivided from this day forward."
 
-"Thank the Master for taking me in." Liu Sha kowtowed three loud heads on the spot.
+"Mm. Serve with all your heart, and this official will not treat you unfairly."
 
-After the other party stood up, Wang Yehao handed over a folding fan. The painting and calligraphy on the fan face were ordinary, with the signature "Shi Weng" [Stone Old Man]. Liu Sha examined it for a moment, not understanding. Wang Yehao explained with a serious face: "Whoever holds this fan is a subordinate of this Official. When meeting in the future, it's good to have something to look after each other."
+"I thank the master for taking me in." Liu Sha kowtowed three resounding times upon the floor.
+
+After the man rose, Wang Yehao handed him a folding fan. The painting and calligraphy on its face were unremarkable, signed with the name "Shi Weng" [Stone Elder]. Liu Sha examined it briefly, not understanding. Wang Yehao's expression grew solemn as he explained: "Whoever carries this fan is a subordinate of this official. When we meet in the future, it will serve as a token of mutual recognition."
 
 **(End of Chapter)**

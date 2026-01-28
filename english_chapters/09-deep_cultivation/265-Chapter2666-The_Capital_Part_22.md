@@ -1,92 +1,92 @@
 # Chapter 2666: The Capital (Part 22)
 
-Zhou Lezhi smiled slightly at the corners of his mouth as he listened to Liu Zhao talk about the failure of the Song brothers' attempt to swindle money at the escort agency. This was something expected. Once this matter came out, which city fox or shrine rat wouldn't want to take the opportunity to take a bite? Even those villains so small they couldn't even drink the soup wanted to lick some blood and taste the fishy smell.
+A slight smile tugged at the corners of Zhou Lezhi's mouth as he listened to Liu Zhao recount how the Song brothers had failed to swindle money from the escort agency. This came as no surprise. Once word of such an opportunity spread, every city fox and shrine rat would scramble for a bite. Even the pettiest villains—those too insignificant to drink from the soup—would still try to lick blood and taste a hint of the spoils.
 
-If it weren't for Delong's tough brand and powerful backing, and the person in charge having ideas, saying that Master Leng's family wealth would be scattered by one-third would be an understatement.
+Were it not for Delong's formidable reputation and powerful backing, and the shrewdness of those managing the operation, to say that a third of Master Leng's fortune would be scattered to the winds would be an understatement.
 
-"The team maintained by this Master Leng are all ruthless characters," Liu Zhao said. "Not a bit chaotic."
+"The team Master Leng maintains is composed entirely of ruthless characters," Liu Zhao observed. "Not a hint of disorder among them."
 
-Zhou Lezhi said, "More than just not chaotic; they are probably operating outside. If we don't handle this carefully, I'm afraid we'll be bitten back by them."
+Zhou Lezhi nodded. "More than just orderly—they're likely conducting operations as we speak. If we don't handle this carefully, we may find ourselves bitten in return."
 
-Liu Zhao said, "Only I don't know how these Kun thieves will respond to the Master's letter."
+"I only wonder how these Kun thieves will respond to the Master's letter," Liu Zhao said.
 
-"None of these people in the capital right now can make the decision," Zhou Lezhi laughed. "It must be reported to Lingao, and only after the True Kuns discuss it can a decision be made."
+"None of the people currently in the capital have the authority to decide," Zhou Lezhi replied with a laugh. "The matter must be reported to Lingao. Only after the True Kuns deliberate can a decision be reached."
 
-"Heavens, won't that take several months!"
+"Heavens! Won't that take several months?"
 
-"The Kun thieves have wireless radio boxes; messages can be communicated in an instant. This matter involves a True Kun thief, so there will be news in at most a month. Let's not move recklessly and just sit firmly on the fishing platform [remain calm]."
+"The Kun thieves possess wireless radio boxes—messages can be transmitted in an instant. Since this matter involves a True Kun thief, we should have news within a month at most. Let us not act rashly. We shall sit firmly on the fishing platform and remain calm."
 
-"It's just that Master Wang said last time that the Emperor is preparing to use troops and is already preparing to issue an edict for the Guangdong Suply Tax," Liu Zhao said. "Will it be in time?"
+"But Master Wang mentioned last time that the Emperor is preparing to mobilize troops," Liu Zhao pressed. "He's already preparing to issue an edict for the Guangdong Supply Tax. Will there be enough time?"
 
-"The court mobilizing troops and horses is not something that happens overnight. Only after this Guangdong Tax is collected and there is silver can troops be mobilized. Don't even think about it without half a year or a year." Zhou Lezhi said seriously, "This period of time is enough for them to deliberate."
+"Mobilizing troops and horses is not something accomplished overnight. Only after this Guangdong Tax is collected and silver fills the coffers can the army march. Don't expect any movement for at least half a year, perhaps a full year." Zhou Lezhi's expression grew serious. "That gives them ample time to deliberate."
 
-Since seeing Leng Ningyun last time and successfully obtaining his handwritten letter, Zhou Lezhi's mood had been very cheerful. In these years of fighting against the Kun thieves, he rarely had the upper hand, always falling into a disadvantageous position, and often receiving cold eyes from Minister Wang. If it weren't for Minister Wang knowing the Kun situation quite well, knowing that the Kun thieves were a serious confidant trouble of the Great Ming, and he, Zhou, being the first person in the Great Ming to know the Kuns, this cooperative relationship would have barely been maintained.
+Ever since his last meeting with Leng Ningyun, when he had successfully obtained the man's handwritten letter, Zhou Lezhi's spirits had been buoyant. Through years of struggling against the Kun thieves, he had rarely gained the upper hand, constantly finding himself at a disadvantage and often receiving cold looks from Minister Wang. Were it not for the Minister's thorough understanding of the Kun situation—his awareness that these thieves posed a grave threat to the heart of Great Ming—and the fact that Zhou was the first person in the empire to truly comprehend the Kuns, their cooperative relationship would have barely held together.
 
-Leng Ningyun was the first Kun thief they had captured. Of course, arresting Leng Ningyun was not difficult; after all, he was right inside this Beijing city.
+Leng Ningyun was the first Kun thief they had captured. Arresting him had not been difficult in principle; after all, the man was right here within Beijing's walls.
 
-But catching him was very difficult. In the few years Leng Ningyun had been in the capital, he had already built a reliable protective umbrella for himself, especially the eunuchs in the palace, who treated Leng as the "God of Wealth," sending heaps of silver to his bank to earn interest. Trying to touch him through official channels was simply a fool's dream.
+But taking him into custody was another matter entirely. In the years Leng Ningyun had spent in the capital, he had constructed a reliable protective umbrella around himself. The palace eunuchs, in particular, treated him as their "God of Wealth," depositing heaps of silver in his bank to earn interest. The notion of touching him through official channels was nothing short of a fool's dream.
 
-Obviously, the court's confidant trouble was right at the Son of Heaven's feet, yet he could only watch him source from left and right, absorbing financial resources. Not only could they not touch him, but they couldn't even plan an assassination. Otherwise, even Wang Yehao and other grand officials couldn't bear the consequences.
+The court's gravest threat lurked right at the Son of Heaven's feet, yet they could only watch as Leng drew resources from every direction, absorbing wealth with impunity. Not only could they not touch him—they couldn't even plot an assassination. The consequences of such an attempt were more than even Wang Yehao and the other grand officials could bear.
 
-He remembered the "Interest Group" problem the Teacher had mentioned—indeed, this term described it exquisitely, going a step deeper than simple small groups like the "Eunuch Party," "Donglin Party," or "Zhejiang Party"—people gathered for interests.
+Zhou Lezhi recalled the phrase the Teacher had once used: "Interest Group." Indeed, the term captured the essence exquisitely, cutting deeper than simple labels like "Eunuch Party," "Donglin Party," or "Zhejiang Party." These were people bound together by interests alone.
 
-Speaking of which, wasn't his planning this time to capture Leng Ningyun also for a certain interest group?
+And speaking of which, wasn't his own scheme to capture Leng Ningyun also serving a certain interest group?
 
-The grand officials said this was saving the country and saving lives, but others would say the same. Take these Kun thieves; they also used "saving the people from water and fire" as a guise.
+The grand officials proclaimed this was about saving the country and preserving lives. But others would make the same claim. Take these Kun thieves—they too used "saving the people from fire and flood" as their banner.
 
-"Lend me, lend me a pair of wisdom eyes..." He unconsciously hummed the little tune the Teacher often hummed back then.
+"Lend me, lend me a pair of wisdom eyes..." He found himself unconsciously humming the little tune the Teacher had often sung back in those days.
 
-Regrettably, he hadn't even learned one ten-thousandth of the Teacher's bellyful of learning. Not only did he not train a pair of wisdom eyes, but he also had to reluctantly shoulder heavy burdens.
+Regrettably, he hadn't mastered even a ten-thousandth of the Teacher's vast learning. Far from cultivating a pair of wisdom eyes, he had been forced to shoulder heavy burdens with only reluctance to sustain him.
 
-His gaze turned to the corner of the study, to a peculiarly styled banner embroidered with the characters "Hanging Pot to Save the World." The edges were worn, and a gourd was tied to the bamboo staff.
+His gaze drifted to the corner of the study, where a banner of peculiar design hung embroidered with the characters "Hanging Pot to Save the World." The edges were worn with age, and a gourd dangled from the bamboo staff.
 
-These were all items left by the Teacher back then. Zhou Lezhi remembered the chance encounter outside Guangzhou city in the seventh year of Tianqi [1627]. In the spring of peach red and willow green, the Teacher carried a box on his back and held this banner, trudging on the ridges outside the village. His gait was stumbling, and the straight gown worn on his body was crooked and twisted, very laughable. Not to mention his curious "Guangzhou Mandarin" accent.
+These were all relics the Teacher had left behind. Zhou Lezhi remembered their chance encounter outside Guangzhou city in the seventh year of Tianqi—1627. It had been spring, the season of peach blossoms and green willows. The Teacher had trudged along the field ridges outside the village, a box strapped to his back and this very banner clutched in his hand. His gait was unsteady, and the straight gown he wore hung crooked and twisted on his frame—quite a laughable sight. Not to mention that curious "Guangzhou Mandarin" accent of his.
 
-But it was a dose of medicine he took out from the gourd that saved him from the death line. Since then, everyone in the village called him the Divine Doctor. Many patients who were sent to Guangzhou city and couldn't be cured by famous doctors in big pharmacies were cured as soon as they took his medicine. Lin Qijin, who first invited him for diagnosis and treatment back then, bragged whenever he was free about how he had the wisdom eye to recognize talent.
+But it was a dose of medicine drawn from that gourd that had pulled Zhou Lezhi back from death's edge. From that day forward, everyone in the village called the stranger the Divine Doctor. Many patients who had been sent to Guangzhou city and failed to be cured by famous physicians at the great pharmacies recovered the moment they took his medicine. Lin Qijin, who had first invited him for diagnosis, boasted at every opportunity about his wisdom in recognizing the man's talent.
 
-Lin Qijin's wisdom eye was worthless, but the fame of the Divine Doctor spread. Before long, Imperial Commissioner Master Wang sent someone to invite the Teacher, and the Teacher entered Master Wang's shogunate [staff] from then on.
+Lin Qijin's "wisdom eye" may have been worthless, but the Divine Doctor's fame spread nonetheless. Before long, Imperial Commissioner Wang sent someone to summon the Teacher, and from then on, the Teacher joined Master Wang's staff.
 
-If it were just this, it would be nothing more than an ordinary past event. However, not long after Mr. Zhou left, government soldiers arrived at Hetou Village, saying they wanted to catch "sorcerers" and search for "sorcerous items." In the end, the sorcerer wasn't caught, but a few poor people who had taken the white rice relief from Mr. Zhou were taken to the village head and beheaded. The village was in an uproar, all saying the Teacher was a "sorcerer." Those who had taken the Teacher's medicine felt as if a great disaster was imminent, scrambling to burn incense and worship gods in the temple, begging for incense ash water to take—as for whether it was useful, only Heaven knew.
+If that were all, it would amount to nothing more than an ordinary tale. However, not long after Mr. Zhou departed, government soldiers descended upon Hetou Village, claiming they sought to apprehend "sorcerers" and search for "sorcerous items." In the end, no sorcerer was caught—but several poor souls who had accepted the white rice relief from Mr. Zhou were dragged before the village head and beheaded. The village erupted in turmoil. Everyone whispered that the Teacher was a "sorcerer." Those who had taken his medicine felt as though disaster loomed over them, scrambling to burn incense and worship at the temple, begging for ash-infused holy water to drink. Whether it helped, only Heaven knew.
 
-Zhou Lezhi had also taken the Teacher's medicine, but his parents had long died, and no one cared about him, so he was spared from drinking this incense ash water.
+Zhou Lezhi had also taken the Teacher's medicine. But his parents had died long ago, and with no one to fuss over him, he was spared from drinking that ash water.
 
-Although his body recovered, Zhou Lezhi's future was bleak. He had studied in the clan's private school, but failed the child candidate exams several times. Instead, he was interested in many miscellaneous studies. On ordinary days, he loved to set up a waterwheel in the ditch or set up a pipe with bamboo tubes, which was quite loved by children, but the clan elders and scholars unanimously thought he was a "waste."
+Though his body recovered, Zhou Lezhi's prospects remained bleak. He had studied at the clan's private school but failed the child candidate examinations several times. Instead, he found himself drawn to all manner of miscellaneous studies. On ordinary days, he loved to rig up waterwheels in the irrigation ditches or fashion pipes from bamboo tubes—activities that delighted the village children but earned unanimous disapproval from the clan elders and scholars, who judged him a "waste."
 
-However, this "waste" was also a child of the clan. Even without parents, the clan had to look after him. Seeing that he had studied until sixteen and couldn't even write an opening essay, the clan deliberated: it was better to let him learn a craft.
+Yet even a "waste" was still a child of the clan. Without parents, the clan bore responsibility for looking after him. Seeing that he had studied until sixteen without being able to compose even a proper opening essay, the elders deliberated: better to have him learn a trade.
 
-As for what craft to learn, before the elders could decide, the former Imperial Commissioner Master Wang sent Wang Liang to the village, saying they still wanted to search for "sorcerous items." Naturally, the final result was still nothing. Fortunately, they didn't kill anyone this time. Then this Wang Liang said he wanted to find a few youths in the village to be disciples for the Teacher, saying gender didn't matter as long as they were literate.
+As for what trade he should pursue, before the elders could reach a decision, former Imperial Commissioner Wang sent Wang Liang to the village once more. The soldiers claimed they still wished to search for "sorcerous items." Naturally, the result was the same as before—nothing found. Fortunately, no one was killed this time. Then Wang Liang announced that he sought several youths from the village to become disciples of the Teacher. Gender did not matter, he said, so long as they were literate.
 
-Everyone then realized that the Teacher was not a sorcerer. But since he wasn't a sorcerer, why take the men and women who had received the Teacher's grace and chop off their heads? No one understood, and naturally, no one dared to ask.
+Only then did everyone realize that the Teacher was no sorcerer after all. But if he wasn't a sorcerer, why had those who received his grace been dragged away and beheaded? No one understood. Naturally, no one dared ask.
 
-Naturally, it was impossible for the girls to be taken away. First, there were few literate girls to begin with; second, no one had heard of a man taking female disciples. The "Divine Doctor's" attempt was self-evident. It was just that it was neither "betrothing" a wife nor "buying" a concubine, but creating some nondescript "female disciple." If word got out, it would be truly incredible. After some back and forth, the "waste" Zhou Lezhi was selected—at that time, he wasn't called Zhou Lezhi yet.
+Of course, sending girls away was out of the question. First, few girls were literate to begin with; second, no one had ever heard of a man taking female disciples. The "Divine Doctor's" intentions seemed self-evident. Yet this was neither "betrothing" a wife nor "buying" a concubine, but creating some nondescript arrangement called "female disciple." If word spread, the scandal would be truly incredible. After much deliberation, the "waste" Zhou Lezhi was selected—though at that time, he did not yet bear this name.
 
-Zhou Lezhi followed Wang Liang to Beijing in such a muddled way—this was his first time leaving his hometown. Traveling north all the way, taking more than two months, he arrived at the capital, the place of utmost goodness under heaven, covered in dust.
+And so, in a muddled fashion, Zhou Lezhi followed Wang Liang to Beijing. It was his first time leaving his hometown. Traveling northward for more than two months, he arrived at the capital—that place of supreme virtue beneath heaven—covered in the dust of the road.
 
-Arriving in the capital for the first time, Zhou Lezhi, who was from Guangdong, felt uncomfortable all over. Not only could he not understand the local Mandarin, but he couldn't understand the Zhejiang dialect spoken by the servants in Wang Yehao's residence. In comparison, the Teacher's strange Guangzhou Mandarin was easier to communicate with.
+Arriving in the capital for the first time, the young man from Guangdong felt uncomfortable in every way. Not only could he barely understand the local Mandarin, but the Zhejiang dialect spoken by the servants in Wang Yehao's residence proved equally incomprehensible. By comparison, the Teacher's strange Guangzhou Mandarin was far easier to communicate with.
 
-The Teacher at this time was very different from when he appeared in Hetou Village. He could speak decent Mandarin, had the demeanor a scholar should have in his gestures, and even his clothes didn't have the awkward feeling of the past.
+The Teacher at this time was vastly different from the man who had appeared in Hetou Village. He now spoke decent Mandarin, carried himself with the proper demeanor of a scholar in his every gesture, and even his clothing had lost that awkward appearance of the past.
 
-It could be seen that the Teacher was very trusted in the Wang residence. Not only were the servants very respectful to him, but Master Wang also frequently summoned him for dialogues, talking for half a day at a time. He was said to be a "Secretary," but in reality, his treatment was far above other staff members. Master Wang even specially allocated two maids to serve his daily life. Undoubtedly, relying solely on being a "Divine Doctor" wouldn't garner such high regard.
+Clearly, the Teacher enjoyed great trust within the Wang residence. The servants treated him with marked respect, and Master Wang frequently summoned him for long conversations that stretched on for half a day at a time. Though his title was "Secretary," his treatment far exceeded that of other staff members. Master Wang had even assigned two maids specifically to attend to his daily needs. Such high regard, Zhou Lezhi understood, could not rest on medical skills alone.
 
-This finally put Zhou Lezhi's suspended heart at ease upon his arrival. Only when the master does well can the apprentice have rice to eat. Otherwise, losing one's job in the capital thousands of *li* away, one wouldn't even know how to open one's mouth to beg for food.
+This finally put the young man's heart at ease upon his arrival. Only when the master prospers can the apprentice hope to eat. Otherwise, losing one's position in a capital thousands of *li* from home would leave one without even the words to beg for food.
 
-Upon entering the Teacher's tutelage, he first underwent a round of "testing"—he only learned this term later. He was asked many questions, some of which were completely nonsensical. For example, "Do you think thunder is caused by the Thunder God striking or some other reason?" Finally, when he learned that Zhou Lezhi was not only literate but could also do simple arithmetic problems, he was quite satisfied with him.
+Upon entering the Teacher's tutelage, Zhou Lezhi first underwent a round of what he would later learn to call "testing." He was asked many questions, some of which seemed utterly nonsensical. For example: "Do you believe thunder is caused by the Thunder God striking his drum, or by some other mechanism?" Finally, when the Teacher discovered that Zhou Lezhi was not only literate but could also solve simple arithmetic problems, he expressed considerable satisfaction.
 
-"You are now my student," he suddenly said in a Mandarin with a peculiar accent. "The first thing is to learn to speak like me."
+"You are now my student," the Teacher declared suddenly, speaking in that Mandarin with its peculiar accent. "The first thing you must do is learn to speak as I do."
 
-Zhou Lezhi was full of suspicion. He had never heard of this kind of Mandarin. Although it had some similarities to Capital Mandarin, the pronunciation and vocabulary were quite different.
+Zhou Lezhi was filled with suspicion. He had never heard Mandarin spoken this way. Though it bore some resemblance to Capital Mandarin, the pronunciation and vocabulary differed considerably.
 
-Since he became an apprentice, naturally, whatever the Teacher said went. Let alone learning to speak like him, even excessive requests had to be agreed to.
+But since he had become an apprentice, the Teacher's word was law. Let alone learning to speak as he did—even unreasonable requests would have to be obeyed.
 
-"...Don't think I am meddlesome; I have a bellyful of learning here..." The Teacher pointed to his own head somewhat comically. "But this knowledge can only be conveniently taught after you learn the language I speak—do you want to learn my skills?"
+"Don't think me meddlesome. I have a bellyful of learning here—" The Teacher tapped his own head with a somewhat comical gesture. "But this knowledge can only be properly taught once you master the language I speak. Do you wish to learn my skills?"
 
-Did that even need saying! Zhou Lezhi thought. Wang Liang and others had said when he entered the residence that the Teacher knew astronomy above and geography below, and knew many "supreme studies," which was why Master Wang valued him so much. Leaving aside all that, just the master's medical skills in treating illnesses and making medicine would be enough for him to establish a family and career if he learned them.
+Did that even need asking? Zhou Lezhi thought. Wang Liang and the others had told him upon entering the residence that the Teacher knew astronomy above and geography below, and possessed many "supreme studies"—which was precisely why Master Wang valued him so highly. Setting all that aside, the master's medical arts alone—his skill in treating illness and preparing medicine—would be enough to establish a family and a career if properly learned.
 
-So he followed the Teacher, starting with this strange "Mandarin." Later, the Teacher told him this was called "Putonghua" [Common Speech], the language current in his hometown. Once he learned "Putonghua," he could read many "secret manuals" written in Putonghua and learn the knowledge within.
+And so Zhou Lezhi followed the Teacher, beginning with this strange "Mandarin." Later, the Teacher explained that it was called "Putonghua"—Common Speech—the language current in his homeland. Once Zhou Lezhi mastered Putonghua, he would be able to read the many "secret manuals" written in it and absorb the knowledge contained within.
 
-"Isn't the Teacher Master Wang's fellow townsman, both from Shaoxing Prefecture?" Zhou Lezhi asked in confusion at that time. He had heard enough Shaoxing dialect spoken by the Wang family servants on the way and was very familiar with this dialect.
+"But isn't the Teacher a fellow townsman of Master Wang? Are you not both from Shaoxing Prefecture?" Zhou Lezhi had asked in confusion at the time. He had heard more than enough of the Shaoxing dialect spoken by the Wang family servants during the journey north and had grown quite familiar with it.
 
-"I am indeed his fellow townsman, and indeed from Shaoxing Prefecture." The Teacher smiled. "It's just that the details are slightly different."
+"I am indeed his fellow townsman, and indeed from Shaoxing Prefecture," the Teacher replied with a smile. "It's only that the particulars differ slightly."
 
 "What is the difference?"
 

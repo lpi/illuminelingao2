@@ -6,7 +6,7 @@ The muzzle of the Tiger Crouch cannon spewed thick white smoke, and a "*Dangmenz
 
 This Tiger Crouch cannon was two feet long, weighed thirty-six *jin*, and was made of wrought iron. It used seven *liang* of gunpowder and fired over a dozen lead pellets weighing six *qian*. To prevent the drawbacks of "small pellets and large muzzle" resulting in "weak scattering," a large lead ball or stone weighing thirty *liang* was "slowly rammed into" the muzzle. The range, converted to metric, was about three hundred meters. It was Chiliarch Yang's greatest reliance. Besides this Tiger Crouch cannon, Chiliarch Yang had a dozen firelocks and dozens of bows and arrows, but these things had no power unless within one hundred paces.
 
-The Tiger Crouch cannon was mostly used to fire canister shot at close range to kill grouped enemies, but the "Hair Rebels" were about five hundred paces (about three hundred meters) away, and the canister shot fired wouldn't reach that far. So this shot could only rely on the *Dangmenzi* that flew the farthest to achieve killing effect.
+The Tiger Crouch cannon was mostly used to fire canister shot at close range to kill grouped enemies, but the "Kun" were about five hundred paces (about three hundred meters) away, and the canister shot fired wouldn't reach that far. So this shot could only rely on the *Dangmenzi* that flew the farthest to achieve killing effect.
 
 Ye Canming watched a stone emitting white smoke tumble in the air and smash down toward the formation. In an instant, his heart was in his throat—no matter how many battles he'd fought, the moment a cannonball flew over still made him cold all over. If a cannonball passed through the formation, not to mention a direct hit, even a graze would break tendons and bones. The best outcome would be missing an arm or a leg.
 
@@ -26,7 +26,7 @@ At this distance, the fire density of one squad was obviously insufficient to hi
 
 "Quick, run into the woods!" Yang Jiao waved a short halberd, the coiled slow match hissing and burning. Lead bullets constantly grazed the surroundings, breaking branches and sending vegetation flying. Occasionally, a militia member would fall with a cry.
 
-The Hair Rebels were firing bird guns at him. Stopping meant seeking death. The only chance to survive was to let the Hair Rebels lose sight of him.
+The Kun were firing bird guns at him. Stopping meant seeking death. The only chance to survive was to let the Kun lose sight of him.
 
 "F*ck, running faster than rabbits!" Li Gangsheng cursed involuntarily seeing the gun crew running away disregarding their lives. However, seeing the enemy flee into the woods, shooting further was useless.
 
@@ -42,7 +42,7 @@ The few gunners were all fellow escapees from Zhaoqing. They loaded pretty well 
 
 *What the hell use is it at this distance!* Yang Jiao cursed secretly—although he himself often fired the cannon prematurely involuntarily when going into battle.
 
-In the distance, the Hair Rebels had already formed their formation on the hillside. Yang Jiao aimed by himself for a long time before lighting the cannon.
+In the distance, the Kun had already formed their formation on the hillside. Yang Jiao aimed by himself for a long time before lighting the cannon.
 
 With a boom, Li Gangsheng saw a puff of white smoke rise from the small woods and cried out inwardly *bad*. Lead pellets hit like a rainstorm. Fortunately, the Tiger Crouch cannon's power was extremely small, and the spread of the canister shot was large; many pellets flew to who knows where.
 

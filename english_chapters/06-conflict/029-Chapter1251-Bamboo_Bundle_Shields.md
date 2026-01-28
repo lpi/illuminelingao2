@@ -55,7 +55,7 @@ Shi Zhiqi strode with his head held high at the front of 2nd Company. The First 
 
 ---
 
-"What are these Hair Rebels singing?" Zheng Zhilong heard the singing carried vaguely by wind from afar and asked.
+"What are these Kun singing?" Zheng Zhilong heard the singing carried vaguely by wind from afar and asked.
 
 "Reporting to General, I can't hear clearly. Nothing more than some battle songs. Very vulgar."
 
@@ -63,15 +63,15 @@ Zheng Zhilong picked up his binoculars and looked again toward where the singing
 
 But looking at the scale of the troops, at most five hundred men. No dust clouds of large troop movements were visible behind them, nor large herds of oxen and horses in their rear train—obviously not towing heavy artillery. Zheng Zhilong felt slightly relieved: if only five hundred had come, his forces could still fight them.
 
-Hair Rebels came from afar; how many troops could they transport? Just eat this group first; follow-up troops would just be adding oil. Eat one group as they came. Zheng Zhilong's confidence surged. He laughed: "It's true Hair Rebel ships are sturdy and their guns sharp, but pity they don't know the art of war. Daring to attack with so few men—isn't it just sending themselves to death for nothing?"
+Kun came from afar; how many troops could they transport? Just eat this group first; follow-up troops would just be adding oil. Eat one group as they came. Zheng Zhilong's confidence surged. He laughed: "It's true Hair Rebel ships are sturdy and their guns sharp, but pity they don't know the art of war. Daring to attack with so few men—isn't it just sending themselves to death for nothing?"
 
-The commanders also felt these Hair Rebels were too arrogant, and felt slightly relieved. The younger ones with hotter blood, initially stunned by Hair Rebel cannon fire, now recovered their wits. Feeling the enemy's land forces were few and carried no cannons, they rubbed their palms one by one, preparing to give the Hair Rebels a good lesson.
+The commanders also felt these Kun were too arrogant, and felt slightly relieved. The younger ones with hotter blood, initially stunned by Hair Rebel cannon fire, now recovered their wits. Feeling the enemy's land forces were few and carried no cannons, they rubbed their palms one by one, preparing to give the Kun a good lesson.
 
 "General, this general is willing to be vanguard! Dampen their sharpness!" One person stepped forward from among the commanders; it was Lin Cha. Lin Cha was a great general under Zheng Zhilong, brave and skilled in battle. Zheng Zhilong had once requested merit for him from the Imperial Court.
 
-"Your men are too few, and infantry. Fall back for now, don't be impatient!" Zheng Zhilong shook his head. The opponent was an all-firearm unit. Others might not understand, but he kept two all-firearm guard units himself and was very familiar with firearm lethality. Lin Cha had only three or four hundred men; they would be beaten to slag by Hair Rebels before having time to swing swords and spears.
+"Your men are too few, and infantry. Fall back for now, don't be impatient!" Zheng Zhilong shook his head. The opponent was an all-firearm unit. Others might not understand, but he kept two all-firearm guard units himself and was very familiar with firearm lethality. Lin Cha had only three or four hundred men; they would be beaten to slag by Kun before having time to swing swords and spears.
 
-"General, this general has a tactic that can fight the Hair Rebels," Lin Cha pressed, unwilling to give up.
+"General, this general has a tactic that can fight the Kun," Lin Cha pressed, unwilling to give up.
 
 "Speak."
 

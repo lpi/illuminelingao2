@@ -1,87 +1,89 @@
 # Chapter 2758: The Capital (Part 114)
 
-"So we also have to focus on exporting culture, right, culture!" Leng Ningyun spoke more and more enthusiastically, "And scientific knowledge! Now the Senate's export of technology is still too conservative, either all basic theoretical knowledge or completely outdated stuff. The former is like Kangxi learning mathematics, purely a 'gadget' for rich people to show off skills; the latter, although it can make money, is still too shallow for those who know the trade."
+"So we must also focus on exporting culture—yes, culture!" Leng Ningyun grew more animated as he spoke. "And scientific knowledge! The Senate's technology exports remain far too conservative. They send either purely theoretical foundations or completely obsolete material. The former is like Kangxi studying mathematics—merely a 'parlor trick' for wealthy dilettantes to show off. The latter can turn a profit, certainly, but anyone with real expertise sees through its superficiality."
 
-"Your thinking has really opened up this time coming back." Xu Ke joked.
+"This trip back has really broadened your thinking," Xu Ke remarked with a hint of amusement.
 
-"Not at all. I have been thinking about how to transform traditional society all these years. We chatted idly on the Senate forum, but actually didn't hit the point. We Chinese people are actually the most pragmatic. Regardless of what technology or culture, we look at whether it has output. 'Black cat or white cat, the one that catches mice is the good cat.' If you want to spread technology and culture, you must first let everyone realize that your stuff is profitable."
+"Hardly. I've spent years contemplating how to transform traditional society. We used to chat idly on the Senate forums without ever hitting the mark. The truth is, we Chinese are fundamentally pragmatic. Technology or culture—we judge everything by its output. 'Black cat or white cat, the one that catches mice is a good cat.' If you want to spread technology and culture, you must first demonstrate that your methods are profitable."
 
-"But in this way, won't basic disciplines be ignored by everyone?"
+"But won't that cause everyone to neglect the basic disciplines?"
 
-Leng Ningyun was stunned, then couldn't help but laugh loudly: "This is the Great Ming in 1637. Most common people can't even get enough to eat. When they go to sleep at night, they don't know if they will lose their little lives tomorrow. Even for officials, as long as their brains are still a bit clear and they can see the general trend, all are worried, thinking about saving the nation from extinction. Asking them to learn basic science, isn't this forcing people to do what is difficult?"
+Leng Ningyun paused, then burst into hearty laughter. "This is the Great Ming in 1637. Most common people cannot even fill their bellies. When they lie down at night, they have no certainty they'll survive until morning. Even officials—those with any clarity of mind who can read the times—are consumed with anxiety, desperately seeking ways to save the nation from collapse. Asking them to study fundamental science? You might as well demand the impossible."
 
-"But if you want to spread it, people have to spread it for you..."
+"But if you want ideas to spread, you need people willing to spread them for you..."
 
-"This naturally relies on the battlefield to obtain." Leng Ningyun said, "A few days ago I reviewed the history of the late Qing. Speaking of which, the scenes of the last years of a dynasty are all familiar. The Qing government's attitude towards foreign culture and technology also went from the shock and rejection of the First Opium War to the learning and introduction of the Second Opium War, and finally starting the Self-Strengthening Movement. There is a process."
+"That, naturally, must be won on the battlefield." Leng Ningyun leaned back. "A few days ago I revisited the history of the late Qing. The patterns of a dynasty's final years are remarkably familiar. The Qing government's attitude toward foreign culture and technology evolved from the shock and rejection of the First Opium War, through the learning and adaptation following the Second Opium War, and finally into the Self-Strengthening Movement. These things follow a process."
 
-"You mean fight another war, and the Great Ming will start a 'Kun-Strengthening Movement'?"
+"So you're saying another war will push the Great Ming to launch its own 'Kun-Strengthening Movement'?"
 
-"Yes, there are many people with insight in the court and opposition. I have been in the Capital for a long time and deeply feel that the late Ming is not as dull and conservative as the late Qing. Social thought is much more active. Although there are many pedantic, stubborn, and self-enclosed scholar-bureaucrats, there are also many people with broad knowledge and open consciousness." Leng Ningyun said, "People like Li Luoyou have become more and more numerous in recent years. Those with simple ideas just want to use Kun guns and Kun cannons, mastering Kun skills to control the Kun; those with deeper insight already have a certain feeling about our advantages in technology, system, and culture..."
+"Precisely. The court and the opposition both contain many people of insight. I've spent enough time in the Capital to understand that the late Ming is far less rigid and conservative than the late Qing. Social thought here is considerably more dynamic. Yes, there are plenty of pedantic, hidebound, isolationist scholar-bureaucrats—but there are also many with broad learning and open minds." Leng Ningyun continued, "People like Li Luoyou have grown more numerous in recent years. Those with simpler ideas merely want to acquire Kun firearms and Kun artillery, hoping to master Kun techniques in order to control the Kun. Those with deeper insight have already begun to grasp our advantages in technology, institutions, and culture..."
 
-"There are quite a few people who know we have advantages. Like Liang Cunhou. Logically speaking, he is the clearest. Now he has become the number one anti-Kun element, vigorously drumming up Anti-Kun and Restore-Ming in Guangzhou City..."
+"Plenty of people recognize our advantages. Take Liang Cunhou—by all logic, he should understand best of all. Yet he's become the foremost anti-Kun element, vigorously promoting anti-Kun and restore-Ming sentiment throughout Guangzhou City..."
 
-"Seeing clearly doesn't mean accepting. Every system has its martyrs. Liang Cunhou just holds the thought of the Great Defense between Hua and Yi (*Hua Yi Da Fang*) and is unwilling. Actually, if you read the history of late Qing, the Qingstream conservative faction opposing Westernization always existed. Conservative and progressive, this is an eternal struggle."
+"Seeing clearly is not the same as accepting. Every system has its martyrs. Liang Cunhou simply clings to the notion of the Great Defense between Hua and Yi (*Hua Yi Da Fang*) and refuses to yield. If you study late Qing history, you'll find the Qingstream conservative faction opposing Westernization never disappeared. Conservative versus progressive—this is an eternal struggle."
 
-"Alright, let's not talk dialectics." Xu Ke became interested, "What do you plan to do?"
+"Alright, enough dialectics." Xu Ke's interest was piqued. "What are you actually planning to do?"
 
-"Naturally, I can't do anything now. A method like Zhao Yingong's is too ostentatious and eye-catching. Although the effect was great, it relied entirely on the Special Investigation Team to back him up to avoid messing up. I am in the Capital and dare not do it even more." Leng Ningyun shook his head and said, "My view is that the Senate must take Tianjin as an open port in the future. In recent years, we have opened up north-south maritime transport. Tianjin Wei is much more developed than in the past and can serve as an important infiltration point for our new culture and new system in the future."
+"At present, nothing overt. Zhao Yingong's approach was too flamboyant, too conspicuous. His results were impressive, but he relied entirely on the Special Investigation Team to back him and prevent disaster. Here in the Capital, I dare not attempt anything so bold." Leng Ningyun shook his head. "My view is that the Senate must eventually establish Tianjin as an open port. In recent years, we've developed north-south maritime transport, and Tianjin Wei has grown far more prosperous than before. It could serve as a crucial entry point for our new culture and new institutions in the future."
 
-"Wait until the Third Anti-Encirclement Campaign is victorious, and you can still raise winds and make waves in the Capital."
+"Once the Third Anti-Encirclement Campaign ends in victory, you'll be able to stir things up in the Capital."
 
-"Raising winds and making waves might be possible, but to do it like Zhao Yingong, I don't have the guts." Leng Ningyun laughed, "Unless the Senior Grand Secretary is Wang Luobin, the Seal-holding Eunuch of the Directorate of Ceremonial is Xiao Zishan, and the Admiral of the Eastern Depot is Ma Qianzhu..."
+"Stirring things up might be possible, but to operate like Zhao Yingong? I lack the nerve." Leng Ningyun laughed. "Unless the Senior Grand Secretary were Wang Luobin, the Seal-holding Eunuch of the Directorate of Ceremonial were Xiao Zishan, and the Admiral of the Eastern Depot were Ma Qianzhu..."
 
-The two burst into laughter. As the laughter faded, Leng Ningyun said: "Saying nothing can be done seems too much. If the Third Anti-Encirclement Camapign produces a situation very favorable to us. I want to formally invest in running a newspaper. Actually, there are many things like Capital Gazettes (*Dichao*) and tabloids in the Capital now. Some are propaganda materials transported through the Shanhai Five Routes channels. They are very popular in the Capital, and people pass them around in every teahouse. But this is not the same thing as a newspaper after all."
+The two erupted in laughter. As the mirth subsided, Leng Ningyun said, "It's not quite true that nothing can be done. If the Third Anti-Encirclement Campaign produces a situation highly favorable to us, I want to formally invest in running a newspaper. The Capital already has various Capital Gazettes (*Dichao*) and tabloids. Some are propaganda materials transported through Shanhai Five Routes channels. They circulate widely here—people in every teahouse pass them around. But that's still not the same as a proper newspaper."
 
-"Good guy, you are going to snatch Dingding's rice bowl."
+"Ambitious! You're planning to steal Dingding's livelihood."
 
-"If he is willing to come to the Capital to run a newspaper, I welcome him too. After all, professional talents still rely on his system." Leng Ningyun said, "Reform, modernization, making revolution—none can do without the fueling of news media. At the very least, there is an enlightening effect. If it really starts, sales won't be a problem. Dingding will have to send me a silk banner."
+"If he's willing to come to the Capital and run a newspaper, I'd welcome him. Professional talent still depends on his system, after all." Leng Ningyun smiled. "Reform, modernization, revolution—none can succeed without the catalytic power of news media. At the very least, there's an enlightening effect. If we actually launch it, circulation won't be a problem. Dingding will owe me a silk banner."
 
-Xu Ke liked his humorous and straightforward attitude very much. Since they talked about this, he just happened to talk to him about the positioning of the future Bejing Station.
+Xu Ke appreciated his humorous, forthright manner. Since they had arrived at this topic, he took the opportunity to discuss the future positioning of the Beijing Station.
 
-"Before I came, Center chatted with me about the positioning of the Beijing Station. After discussion, we felt that in the past, you balanced commerce and intelligence, which was actually somewhat risky, and your energy couldn't cover it. So after discussion, it is better to let you focus your main energy on managing business and collecting open intelligence, making a cut with secret line work. This is not just Delong; all shops of the Shanhai Five Routes must do this."
+"Before I came, Center and I discussed the Beijing Station's positioning. After deliberation, we concluded that your previous balance of commerce and intelligence was actually somewhat risky—your energy couldn't cover both adequately. So after further discussion, we decided you should concentrate your primary efforts on managing business and collecting open intelligence, drawing a clear line with clandestine operations. This applies not just to Delong but to all Shanhai Five Routes establishments."
 
-Leng Ningyun nodded: "I also think this is more appropriate."
+Leng Ningyun nodded. "I agree that's more appropriate."
 
-"Correct. Secret intelligence and secret operations are done by specialized intelligence agencies. The Shanhai Five Routes are chickens that lay golden eggs; using them for adventure is too unworthy." Xu Ke said, "The Foreign Intelligence Bureau will arrange another station in the Capital in the future. You will not have lateral contact, only vertical contact."
+"Exactly. Secret intelligence and covert operations belong to specialized intelligence agencies. The Shanhai Five Routes are geese that lay golden eggs—risking them on dangerous ventures is simply not worth it." Xu Ke continued, "The Foreign Intelligence Bureau will establish a separate station in the Capital. You'll have no lateral contact with them, only vertical reporting lines."
 
-"Good." Leng Ningyun suddenly thought of something, "What about He Lian Sheng?"
+"Good." Leng Ningyun suddenly remembered something. "What about He Lian Sheng?"
 
-"They will still do their old trade, security work. I discussed with Jiang Shan too. It is inappropriate to let He Lian Sheng get involved in too many secret operations. First, it violates the moral values of this group of people; second, the people in the bodyguard agency are too complex."
+"They'll continue their traditional work—security operations. I discussed it with Jiang Shan as well. It's inappropriate to involve He Lian Sheng in too many clandestine operations. First, it conflicts with the moral values of that group. Second, the people in the bodyguard agency are too mixed."
 
-Yang Tianliang hadn't thought about tea or rice for days, not even going to the place where he "went to work."
+---
 
-His formal position was the Manager of the Sutra Factory (*Jingchang Zhangsi*), which counted as "making it" among the eunuch group. But this position could not satisfy his desire by far.
+Yang Tianliang had been unable to think of food or drink for days, not even bothering to appear at his place of employment.
 
-As the name suggested, the Sutra Factory was the place where books were carved and printed in the Royal Great Within. It mainly printed classics, histories, philosophers, collections, and Buddhist and Daoist scriptures. Although structurally it was managed by the Directorate of Ceremonial, the most prominent yamen in the Twenty-Four Yamen, serving as a managing eunuch inside didn't allow him to enjoy any power dividends.
+His official position was Manager of the Sutra Factory (*Jingchang Zhangsi*)—a respectable achievement within the eunuch hierarchy. But this position fell far short of satisfying his ambitions.
 
-Naturally, there were various customary fees and earnings, but these were fixed things and couldn't be more. If talking about earning extra money, it was nothing more than reselling inventory books and printing plates. Yang Tianliang looked down on this kind of labor-intensive small money.
+As its name suggested, the Sutra Factory was where books were carved and printed within the Royal Great Within. It primarily produced classics, histories, philosophical works, literary collections, and Buddhist and Daoist scriptures. Though administratively it fell under the Directorate of Ceremonial—the most prominent of the Twenty-Four Yamen—serving as a managing eunuch there conferred no real power.
 
-But his adoptive father's ability also stopped here. When the Nine Thousand Years was in power, he almost couldn't keep this errand. If he hadn't reacted quickly and bribed the eunuch party members heavily in time, the father and son would probably have been swept out long ago.
+Naturally, there were customary fees and established earnings, but these were fixed amounts that could not increase. As for making extra money, options were limited to reselling inventory books and printing plates. Yang Tianliang disdained such labor-intensive petty gains.
 
-After the current Emperor came to power, Yang Gonggong finally mixed into the job of Seal-holding Eunuch of the Bell and Drum Division relying on old relationships from the past. But for Yang Tianliang to go a step further, it was as hard as climbing to heaven.
+Yet his adoptive father's influence extended no further than this. When the Nine Thousand Years held power, they had barely managed to keep even this position. Had Yang Gonggong not reacted swiftly and bribed the eunuch party members generously, father and son would likely have been swept out long ago.
 
-He drilled in many ways and finally got Wang Zhixin's promise. The bright road was instantly paved before his eyes.
+After the current Emperor assumed the throne, Yang Gonggong finally secured the position of Seal-holding Eunuch of the Bell and Drum Division through old connections. But for Yang Tianliang to advance any further seemed as difficult as ascending to heaven.
 
-However, these twenty thousand taels of silver became a roadblock. He originally thought his adoptive father would generously open his purse for his future. Unexpectedly, what he got in return was a reprimand, telling him to "stop delusional thinking" and "working honestly is the proper way."
+He had maneuvered through various channels and finally secured Wang Zhixin's promise. A bright path had opened before him at last.
 
-Yang Tianliang hated in his heart. The father and son had had a rift for several years. From the initial Gao family silver matter to the recent series of events where his adoptive father forbade him to deal with Delong again, their feelings had gradually faded. Originally thinking that his adoptive father could help him once in such a matter involving his future, expectedly he was so decisive!
+However, twenty thousand taels of silver now stood as an obstacle. He had assumed his adoptive father would generously open his purse for the sake of his future. Instead, he received only a harsh reprimand, told to "abandon these delusions" and that "honest work is the proper path."
 
-So he thought of Liu Sha and wanted to ask him if there were any opportunities to make money. During their chat, he told the other party about Yang Gonggong bringing ten thousand taels of deposits to Delong. Liu Sha expressed extreme interest.
+Resentment festered in Yang Tianliang's heart. The rift between father and son had widened over several years. From the initial matter of the Gao family silver to the recent series of incidents where his adoptive father had forbidden him from dealing with Delong, their bond had gradually eroded. He had believed that in a matter so crucial to his future, his adoptive father would assist him just this once. He never expected such decisive rejection.
 
-The adoptive father not giving him money was unkind to him; Delong's Shopkeeper Leng refusing to lend money was unjust. The wealth of these unkind and unjust people should be taken via the Way. Yang Tianliang and Liu Sha hit it off instantly and engaged in the dirty work of plotting kidnapping and extortion.
+And so he thought of Liu Sha, hoping to ask whether there might be opportunities to make money. During their conversation, he mentioned that Yang Gonggong had deposited ten thousand taels with Delong. Liu Sha expressed keen interest.
 
-They were not doing the dirty work of "Inviting the God of Wealth" for the first time. But after all, it involved Yang Gonggong, and Leng Ningyun counted as a figure in the Capital. No matter how bold Yang Tianliang was, he had to weigh it. Unexpectedly, Liu Sha patted his chest and told him not to worry, "When the sky falls, there is a tall person to hold it up."
+His adoptive father's refusal to give him money was unkind. Delong's Shopkeeper Leng refusing to lend was unjust. The wealth of such unkind and unjust people deserved to be taken via the Way. Yang Tianliang and Liu Sha found themselves in instant agreement and set about plotting kidnapping and extortion.
 
-Yang Tianliang didn't know who this "tall person" was. But seeing Liu Sha confident, he naturally believed it. After plotting secretly, the two pulled in several people and prepared the Ningyou Temple in the West Garden as a place to hide the hostage.
+This was not their first time engaging in the dirty business of "Inviting the God of Wealth." But since it involved Yang Gonggong, and Leng Ningyun was a figure of some standing in the Capital, even someone as bold as Yang Tianliang had to weigh the risks. Liu Sha, however, patted his chest and told him not to worry: "When the sky falls, there's someone tall enough to hold it up."
 
-After some plotting, everything went smoothly. Leng Ningyun was successfully "invited," and next was waiting for silver. Ten thousand taels was indeed a lion's open mouth, but there were indeed exactly ten thousand taels in Delong's bank.
+Yang Tianliang didn't know who this "tall person" was. But seeing Liu Sha's confidence, he naturally believed him. After plotting in secret, the two recruited several accomplices and prepared Ningyou Temple in the West Garden as a place to hide their hostage.
 
-During these days, Yang Tianliang really walked with wind. In his heart, he calculated over and over again that after the silver was in hand, Yang Gonggong would "die of a sudden illness," he would formally enter the Directorate of Imperial Horses to serve, and his adoptive father's savings of decades would also be in hand—he didn't know the specific amount of this silver, but there was at least seventy or eighty thousand.
+Their scheming proceeded smoothly. Leng Ningyun was successfully "invited," and all that remained was waiting for the silver. Ten thousand taels was certainly a brazen demand, but Delong's coffers held exactly that amount.
 
-Unexpectedly, his wishful calculations all fell through. Not only was Ningyou Temple raided and Leng Ningyun rescued, but even Liu Sha disappeared. He sent a small eunuch to Tongzhou to contact Liu Sha, but waited bitterly at "Hou Garden" for several days without meeting anyone.
+During those days, Yang Tianliang walked with a spring in his step. In his mind, he calculated repeatedly: once the silver was in hand, Yang Gonggong would conveniently "die of sudden illness," he would formally enter the Directorate of Imperial Horses to serve, and his adoptive father's decades of savings would also fall to him. He didn't know the exact sum, but it had to be at least seventy or eighty thousand taels.
 
-"Could this Liu Sha have sold me?!" Yang Tianliang was secretly alarmed. But on second thought, it seemed illogical. What benefit could he get by selling him?
+Yet all his careful calculations came to nothing. Not only was Ningyou Temple raided and Leng Ningyun rescued, but Liu Sha had vanished entirely. He sent a junior eunuch to Tongzhou to contact Liu Sha, but days of waiting at "Hou Garden" yielded no meeting.
 
-What he worried about most was Yang Gonggong's attitude. If his adoptive father knew that he plotted to eliminate him, with his power in the palace, making him lose his errand and have a hard life would be easy. Seeing he couldn't bring out money, Wang Zhixin would turn around and treat him like trash!
+"Could Liu Sha have sold me out?!" Yang Tianliang grew alarmed. But upon reflection, it seemed illogical. What would Liu Sha gain by betraying him?
 
-Just as he muddled along uneasily day after day, suddenly one day a small eunuch came to report: Yang Gonggong invited him over.
+What worried him most was Yang Gonggong's reaction. If his adoptive father discovered the plot against him, his influence within the palace could easily cost Yang Tianliang his position and make his life miserable. And seeing that he couldn't produce the money, Wang Zhixin would cast him aside like rubbish.
+
+Just as he drifted through his days in uneasy confusion, a junior eunuch suddenly arrived with a message: Yang Gonggong had summoned him.

@@ -1,99 +1,99 @@
 # Chapter 2654: The Capital (Part 10)
 
-"If it is so, that is best!" Both assistant managers expressed their agreement. Li Rufeng, however, was somewhat skeptical and asked, "Are you confident?"
+"If that's the case, all the better!" Both assistant managers voiced their agreement. Li Rufeng, however, remained skeptical. "Are you confident this will work?"
 
-"I can't say completely, but there is always some hope." Wu Kaidi had an idea by now. "This matter should not be delayed. We will split up to act. Masters Li and Liao will investigate the matter of the Master's disappearance; I will go to Shuntian Prefecture to find acquaintances to test the waters and see if there is any room for maneuver. As for the two assistant managers, stabilize the bank's plate first. Do the receivables and payables normally for now..."
+"I can't guarantee anything, but there's always hope." Wu Kaidi had already formulated a plan. "We mustn't delay. We'll divide our efforts. Masters Li and Liao will investigate the circumstances of the Master's disappearance. I'll go to Shuntian Prefecture to feel out my connections and see if there's any room for negotiation. As for the two assistant managers, your priority is to stabilize the bank. Continue processing receivables and payables as normal for now..."
 
-Assistant Manager Xiao said, "If we cannot suspend business, the counter can support three to five days at most. This is under the premise that the big account holders don't come to make a run..."
+Assistant Manager Xiao interjected, "If we can't suspend operations, the counter can hold out for three to five days at most—and that's assuming the major account holders don't come calling for their deposits."
 
-The deposits of big account holders ranged from a few thousand to over ten thousand. If luck was bad and a withdrawal came, it would force the counter to death. The big account holders must be stabilized first, and one of Delong's main client groups was the eunuchs in the palace.
+The large depositors held anywhere from several thousand to over ten thousand taels each. One stroke of bad luck, one major withdrawal request, and the counter would be bled dry. The big clients had to be placated first, and one of Delong's primary customer bases was the eunuchs of the imperial palace.
 
-The group of eunuchs had always been known for their greed. From the Director of Ceremonial down to the petty eunuchs without rank, all considered amassing wealth and savings as their capability. Come to speak of it, this was not surprising. Eunuchs were rootless people without children or families; the only thing they could rely on was this gold and silver. Therefore, they all regarded money as their life. If a run really broke out, it would be a time bomb for Delong.
+These eunuchs had always been renowned for their avarice. From the Director of Ceremonial down to the lowliest unranked servants, all regarded the accumulation of wealth as the measure of their capability. When one considered it, this was hardly surprising. Eunuchs were rootless men—without children, without true families. The only thing they could depend upon was their gold and silver. Thus, they guarded their money as fiercely as their own lives. Should a bank run truly erupt, it would become a powder keg threatening to destroy Delong entirely.
 
-Even if Leng Ningyun were here, he would not be confident facing such a situation, let alone now that his whereabouts were unknown. It was no wonder Wu Kaidi placed his hope on "sealing the shop."
+Even if Leng Ningyun himself were present, he would have little confidence facing such a predicament—let alone now, when his whereabouts remained unknown. Small wonder that Wu Kaidi placed his hopes on having the authorities "seal the shop."
 
-Wu Kaidi sighed, "If only we could think of a method to stabilize the depositors."
+Wu Kaidi heaved a sigh. "If only we could devise some method to keep the depositors calm."
 
-Assistant Manager Xiao frowned and pondered for a moment, saying, "The minds of Delong's big clients can be divided into three types. The first type only seeks profit and interest. The second type worries about the floating instability of the court situation and fears being convicted and having their homes confiscated, so they split their wealth into two places to save a retreat step beforehand. The third type knows a little about the inside story of the Australian Song and intends to convey funds in advance, seeking to preserve their lives and families in the future."
+Assistant Manager Xiao furrowed his brow in thought, then spoke. "Delong's major clients can be divided into three categories based on their motivations. The first type deposits purely for profit and interest. The second type fears the shifting winds at court—the possibility of conviction and confiscation of their estates—so they split their wealth between two locations as a safeguard, a path of retreat prepared in advance. The third type understands something of the Australian Song's situation and intends to transfer their funds early, hoping to preserve their lives and families when the time comes."
 
-Liao Sanniang said from the side, "For this third type of client, we can reveal some information to them. When the Australian Song army heads north in the future, tell them absolutely not to misjudge the wind direction."
+Liao Sanniang spoke up from the side. "For this third type, we can share certain information with them. When the Australian Song army eventually marches north, we should advise them not to misjudge which way the wind is blowing."
 
-Assistant Manager Xiao hesitated for a moment and said to Li Rufeng, "After going out, I will immediately split up with the fellows to visit the various clients. These latter two types of clients can be appeased, but I am afraid this first type..."
+Assistant Manager Xiao hesitated briefly, then addressed Li Rufeng. "Once we leave here, I'll immediately split up with the clerks to visit each client personally. These latter two categories can be reassured. But as for the first type..."
 
-Wu Kaidi sucked his teeth hard and nodded. "Ransom money, I will try my best to raise it. Delong should be fine in the short term. Delong's big clients are all cabinet ministers in the court, big shots in the wild, and noble eunuchs in the palace. Protecting Delong is protecting their own fortunes. But if the matter drags on for too long, it is hard to guarantee there won't be unexpected changes..."
+Wu Kaidi sucked his teeth and nodded grimly. "The ransom money—I'll do everything in my power to raise it. Delong should be secure in the short term. Our major clients are all cabinet ministers at court, influential figures in the provinces, and noble eunuchs in the palace. Protecting Delong means protecting their own fortunes. But if this drags on too long, there's no telling what complications might arise..."
 
-Li Rufeng and Liao Sanniang bowed again to Wu Kaidi and the assistant managers, saying, "We rely entirely on everyone's planning."
+Li Rufeng and Liao Sanniang bowed once more to Wu Kaidi and the assistant managers. "We're placing ourselves entirely in your capable hands."
 
-Manager Wei said, "How will the two Eunuchs Yang view this matter? They are also shareholders."
+Manager Wei raised another concern. "How will the two Eunuch Yangs view this situation? They're also shareholders."
 
-Assistant Manager Xiao sniffed scornfully. "Those two? Won't they hurry to send people over to withdraw silver? Could it be you still expect them to overcome the difficulties with us? Relying on them is better than relying on the Liaohai Firm..."
+Assistant Manager Xiao snorted derisively. "Those two? They'll probably rush to send someone over to withdraw their silver the moment they hear. Did you really expect them to weather this storm alongside us? We'd have better luck counting on the Liaohai Firm..."
 
-"Master Li's Liaohai Firm has solid strength, but they won't give us tens of thousands in cash for no reason..."
+"Master Li's Liaohai Firm certainly has substantial resources, but they're not going to hand us tens of thousands in cash without good reason..."
 
-Countless thoughts swirled in Wu Kaidi's mind at this moment. If one were to speak of merchants in the capital who were willing to support them and could mobilize large sums of silver, there was indeed only Li Luoyou's Liaohai Firm Beijing Branch. However, since the Senate captured Liangguang, Master Li's attitude towards them had become much colder. Although business dealings had not been cut off, Master Leng had invited Li Luoyou to dinner several times, but was refused very politely by the other party.
+Countless thoughts churned through Wu Kaidi's mind. If one were to speak of merchants in the capital who possessed both the willingness and the means to mobilize large sums of silver on their behalf, the only candidate was indeed Li Luoyou's Liaohai Firm Beijing Branch. However, ever since the Senate had captured Liangguang, Master Li's attitude toward them had grown noticeably cooler. Although their business dealings hadn't been severed outright, Master Leng had extended several dinner invitations to Li Luoyou—each one politely but firmly declined.
 
-Now that they were in imminent danger, nine out of ten chances were that Li Luoyou would not be willing to wade into this muddy water.
+Now that they found themselves in such desperate straits, the chances were nine in ten that Li Luoyou would be unwilling to wade into these troubled waters.
 
-However, compared to the Shanxi Houses, this road still had a possibility worth trying.
+Still, compared to approaching the Shanxi banking houses, this avenue at least offered a glimmer of possibility worth pursuing.
 
-Wu Kaidi said, "Old Xiao, Old Wei, this path might as well be tried. It's better than us sitting and... sitting idly. Liaohai Firm has earned a lot of silver relying on the Senate in these years; it can be considered sharing glory and disgrace. If they really leave us in the lurch, I'm afraid they won't have the face to discuss business with the Senate in the future."
+Wu Kaidi spoke again. "Old Xiao, Old Wei—this approach is worth attempting. It's better than sitting here doing nothing. The Liaohai Firm has made considerable profit through its dealings with the Senate over the years; they might be said to share our fortunes, for good or ill. If they truly abandon us in our hour of need, I doubt they'll be able to face the Senate when negotiating future business."
 
-"We have to do this." Although the two verbally agreed, the expressions on their faces clearly showed they weren't too confident.
+"We'll have to try." Though both men agreed verbally, the expressions on their faces betrayed their lack of confidence.
 
-Seeing that Liao Sanniang had handled things on her side properly, Li Rufeng coughed heavily to draw back everyone's attention and said loudly, "Let's discuss proper business."
+Seeing that Liao Sanniang had concluded matters on her end, Li Rufeng cleared his throat loudly to reclaim everyone's attention. "Let's discuss the essential business."
 
-Li Rufeng pressed the armrest, leaned his body towards Wu Kaidi, and asked, "Mister Wu, has this matter been reported to Guangzhou?"
+He pressed against the armrest, leaning his body toward Wu Kaidi. "Mister Wu, has this situation been reported to Guangzhou?"
 
-Although Wu Kaidi still had some grudges against Li Rufeng's conduct just now, he knew this was not the time to be petty and throw a tantrum. Suppressing the unhappiness in his heart, he replied, "Reported. Only the telegram box cannot transmit this far. I fear it will be difficult to have instructions in a short time."
+Though Wu Kaidi still harbored some resentment over Li Rufeng's earlier conduct, he recognized this was no time for pettiness or tantrums. Suppressing his displeasure, he replied, "It has. However, the telegram equipment cannot transmit over such distances. I fear we won't receive instructions for some time."
 
-Li Rufeng nodded, stood up, and said clearly, "Even if Guangzhou sends someone to take over the Beijing Station, a round trip is four thousand *li*. It will take quite some time. Person may not necessarily arrive in ten days or half a month."
+Li Rufeng nodded and rose to his feet, speaking with clear deliberation. "Even if Guangzhou dispatches someone to assume control of the Beijing Station, the round trip spans four thousand *li*. It will take considerable time. We can't expect anyone to arrive within ten days, perhaps not even half a month."
 
-Li Rufeng glanced at Liao Sanniang and continued, "On the way back, Sanniangzi and I discussed a few regulations. Now we bring them out for everyone to consult together."
+He glanced at Liao Sanniang before continuing. "On our way back, Sanniangzi and I discussed several proposals. We'd like to present them now for everyone's consideration."
 
-Everyone bowed together and said yes.
+The group bowed together in acknowledgment.
 
-Liao Sanniang spoke first, "I discussed with the Chief Escort. Since the government has not made a move, we can know it is not done by the Factory or Guard. Master Leng also has no enemies in Beijing. The competing banks absolutely do not have such ruthless means. To use such methods, it must be major bandits."
+Liao Sanniang spoke first. "The Chief Escort and I discussed this at length. Since the authorities haven't made any move against us, we can conclude that neither the Eastern Depot nor the Embroidered Guard are responsible. Master Leng has no enemies in Beijing. Our rival banks certainly lack the ruthlessness and capability for such an operation. To employ methods like these, it must be the work of major bandits."
 
-Wu Kaidi was stunned and said, "What they seek is..."
+Wu Kaidi started in surprise. "What could they be after?"
 
-Li Rufeng interfaced from the side, "Most likely for wealth."
+Li Rufeng answered from beside her. "Most likely wealth."
 
-Hearing this, everyone looked at each other and couldn't help whispering.
+At this, everyone exchanged glances and fell to whispering among themselves.
 
-Liao Sanniang continued, "This kind of thing happens in both the north and south; it is not rare. In Guangxi, the Yao and Zhuang people rob people in broad daylight to demand ransom, called 'Duo Jin' [Falling into Prohibition?]; in the north, it is called 'Capturing for Ransom.' To spend so much effort to investigate Master Leng's background is truly calculated. Since the bandits have rare goods in hand, how could they waste them in vain? They will definitely contact us. Masters, please be calm and patient; there will certainly be news shortly."
+Liao Sanniang continued. "Such incidents occur in both the north and south—they're hardly rare. In Guangxi, the Yao and Zhuang peoples abduct people in broad daylight to demand ransom, a practice they call '*Duo Jin*.' In the north, it's known as 'Capturing for Ransom.' To have expended such effort investigating Master Leng's background shows genuine calculation on their part. Since the bandits have such valuable goods in hand, why would they waste them? They will certainly make contact with us. Masters, please remain calm and patient. There will undoubtedly be news before long."
 
-Li Rufeng nodded in agreement and took over the conversation, saying, "Firstly, the most urgent thing, useless to say, is naturally saving the person. If the bandits are truly seeking wealth, we must prepare in advance to prevent being caught off guard. The Australian Song has a saying: Problems that can be solved with money are not problems. If we can avoid using weapons and risk losing a large sum of money and goods to redeem Master Leng's safe return, even if we bear some responsibility, we can account for it."
+Li Rufeng nodded in agreement and took up the thread. "Firstly—and this hardly needs saying—our most urgent priority is saving the Master. If the bandits truly seek money, we must prepare in advance to avoid being caught off guard. The Australian Song has a saying: Problems that can be solved with money aren't problems at all. If we can avoid violence and recover Master Leng safely in exchange for a considerable sum of money and goods, then even if we bear some responsibility for the loss, we can justify our actions."
 
-Li Rufeng paused here, pondered for a moment, slowly turned the walnuts in his hand, and continued, "In handling such hostage cases, the government has never had a precedent of paying ransom to redeem people and letting bandits go unpunished. Often, the bandits and hostages are both killed together. The bailiffs and petty officials usually also use this excuse to extort the victim's family and blackmail for money. Therefore, we must absolutely not pin our hopes on the government. They want to catch people; we want to save people. The original intentions are different, and it is hard to achieve both. We cannot sit and wait with bound hands; we must go all out to rescue Master Leng. After we disperse later, Sanniangzi and I will send people to find the leaders and heads of those beggars, rascals, bare-sticks, and rowdies to spread nets everywhere to inquire. The news of these marketplace characters is the most informed. This is a business of drilling, poking, spying, and splashing hot blood. You modest gentlemen naturally do not know the filthy and nasty tricks in this *Jianghu*. Doing my part, this matter can only be borne by Sanniangzi and me. But I must ask Mister Wu to flow some silver water over to support various expenses. Such matters require spending money like splashing water; one cannot be stingy. We also need to raise the ransom in advance."
+He paused, contemplating for a moment as he slowly turned the walnuts in his hand. "In hostage situations of this nature, the government has never set a precedent for paying ransom to redeem captives and letting bandits escape unpunished. More often than not, they pursue outcomes where both bandits and hostages perish together. The constables and petty officials typically exploit such circumstances as excuses to extort the victim's family for bribes and kickbacks. Therefore, we must absolutely not pin our hopes on the authorities. They want to apprehend criminals; we want to rescue a life. Our fundamental objectives are at cross-purposes—it's impossible to achieve both. We cannot simply sit with our hands bound, waiting for fate to decide. We must make every effort to rescue Master Leng ourselves. After we disperse, Sanniangzi and I will dispatch people to contact the leaders and headmen of the city's beggars, rascals, bare-sticks, and ruffians. We'll cast our nets wide to gather intelligence. These denizens of the marketplace are invariably the best informed. This is work of the drilling, poking, spying sort—a business that often demands splashing hot blood. You gentlemen of refinement naturally have no knowledge of the filthy, underhanded tricks of this *Jianghu*. This aspect of the task falls within my domain, so Sanniangzi and I shall bear the burden. However, I must ask Mister Wu to direct some silver our way to cover the necessary expenses. Matters of this sort require spending money like water—frugality won't serve us here. We also need to raise the ransom in advance."
 
-Wu Kaidi and Assistant Managers Xiao and Wei looked at each other, looking troubled. "Although the Leng residence has some silver, it is not much. As for Delong's working capital, it is not good to divert it..."
+Wu Kaidi exchanged troubled looks with Assistant Managers Xiao and Wei. "While the Leng residence does have some silver reserves, it's not a substantial sum. As for Delong's operating capital, diverting those funds would be... problematic."
 
-Li Rufeng followed up closely, saying, "No matter how hard it is, we must find a way."
+Li Rufeng pressed the point. "However difficult, we must find a way."
 
-Liao Sanniang also turned her head at this time and said to Wu Kaidi, "Secondly, we need to ask Mister Wu to come forward to deal with various official matters with Wanping County and Shuntian Prefecture, bribe the superiors and inferiors, and inquire about news from the government. Mister Wu, is there anyone in the Leng residence who can act as the suffering host [plaintiff]?"
+Liao Sanniang turned to address Wu Kaidi as well. "Secondly, we need Mister Wu to personally handle the various official matters with Wanping County and Shuntian Prefecture—greasing palms high and low, gathering intelligence from government channels. Mister Wu, is there anyone in the Leng residence who can serve as the 'suffering host'—the formal plaintiff?"
 
-Wu Kaidi leaned forward slightly and said, "Master Leng has a personal secretary named Hexiang. On ordinary days, she organizes documents and takes care of Master Leng's daily life. Externally, we only say Master Leng's official wife is at home and did not follow him. Hexiang is Master Leng's managing concubine. It will be fine for Hexiang to come forward to handle all matters."
+Wu Kaidi leaned forward slightly. "Master Leng has a personal secretary named Hexiang. She ordinarily manages documents and attends to Master Leng's daily needs. To outsiders, we've always maintained that Master Leng's official wife remains at their home estate and didn't accompany him here. Hexiang serves as Master Leng's managing concubine. She can step forward to handle all such matters."
 
-Li Rufeng nodded and said, "Good."
+Li Rufeng nodded. "Good."
 
-Then Li Rufeng turned to the several managers of Delong and said, "Thirdly, we must trouble the managers to stabilize Delong's situation. We need to use money, so the bank cannot have more trouble. But in this business management, I am like a rolling pin blowing fire—I know nothing. I entrust this to you all. Li bows to you here." After speaking, he bowed deeply and made a big obeisance to the few people from Delong.
+He then turned to address the Delong managers. "Thirdly, we must trouble you managers to stabilize Delong's situation. We'll need funds, so the bank cannot suffer additional upheaval. But when it comes to banking operations, I'm like a rolling pin trying to blow fire—utterly ignorant. I entrust this entirely to you all. Li bows to you here." With that, he bent low in a deep obeisance to the Delong representatives.
 
-Assistant Manager Xiao and the others hurriedly scrutinized their hands to return the bow, saying, "Dare not, dare not, we should, we should."
+Assistant Manager Xiao and the others hastily clasped their hands and returned the bow. "We wouldn't dare accept such courtesy—we're only doing our duty, our duty."
 
-Just as they were speaking, someone suddenly came from outside to report that Head Constable Qi of the Shuntian Prefecture Fast Squad had come.
+Just as they were speaking, someone arrived from outside to report that Head Constable Qi of the Shuntian Prefecture Fast Squad had come.
 
-Everyone was startled upon hearing this. It was Wu Kaidi who kept his cool and instructed everyone to wait here while he went out to deal with it himself.
+The announcement sent a jolt through everyone present. It was Wu Kaidi who kept his composure, instructing the others to wait there while he personally went out to handle the situation.
 
-Li Rufeng did not mind. He was quite familiar with the government offices: it was proper for the Fast Squad to come to detain witnesses. That the Head Constable came personally, firstly, showed that this matter was of great importance; secondly, it also indicated that they could "talk about the weight" [negotiate terms]—that is to say, there was room for maneuver in this matter. Otherwise, this Head Constable would have long since rolled his eyes to the sky, disowned all relations, and handled official business according to official principles.
+Li Rufeng made no objection. He was well acquainted with the ways of government offices: it was standard procedure for the Fast Squad to come and detain witnesses. That the Head Constable himself had come in person indicated two things—first, that they regarded this matter as highly significant; second, that there was room to "discuss the weight"—that is to say, terms could be negotiated. Otherwise, this Head Constable would have long since turned up his nose, disclaimed all personal connection, and handled the affair by strict official protocol.
 
-What he cared about most now was exactly why Leng Ningyun had run out of the city with his personal attendants without using the escort agency's protection—given his personality and principles of conduct, this was an extremely unusual thing.
+What occupied Li Rufeng's thoughts most urgently was precisely why Leng Ningyun had ventured beyond the city walls with only his personal attendants, without employing the escort agency's protection. Given Leng's personality and usual principles of conduct, this was profoundly unusual.
 
-If they knew why he went out, there would be a thread of a clue to finding the person.
+If they could determine why he had gone out, they would have a thread to follow in searching for him.
 
-However, Leng Ningyun's two personal page boys had both been killed. Although Wu Kaidi was a confidant, he could not enter the inner rooms on ordinary days to attend by his side. The only clues were the two chamber maids in Leng Ningyun's room.
+Unfortunately, both of Leng Ningyun's personal page boys had been killed. Although Wu Kaidi was a trusted confidant, his position ordinarily didn't grant him access to the inner quarters where he might have attended the Master directly. The only remaining sources of information were the two chamber maids who served in Leng Ningyun's private rooms.
 
-Of these two chamber maids, one was a Life Secretary allocated from Lingao, named "Hexiang" in the Beijing Station. After coming to the Beijing Station, she also served as Leng's Confidential Secretary; important documents all passed through her hands. The other was bought after arriving in the capital. The name was much more vulgar, called "Yanhong." Leng Ningyun couldn't be bothered to change it. Although the latter did not know Leng Ningyun's true identity, she also belonged to those who had "received great grace." Having gone through a "background investigation" by Heliansheng, she was just an ordinary girl with a clean background. There was nothing suspicious about her loyalty.
+Of these two maids, one was a Life Secretary assigned from Lingao, known as "Hexiang" at the Beijing Station. After arriving, she had also assumed the role of Leng's Confidential Secretary; all important documents passed through her hands. The other had been purchased locally after they reached the capital. Her name was rather common—"Yanhong"—and Leng Ningyun hadn't bothered to change it. Though this second maid was unaware of Leng Ningyun's true identity, she too had "received great grace" from him. Having undergone a thorough background investigation by Heliansheng, she had been confirmed as an ordinary girl of clean origins. There was nothing suspicious about her loyalty.
 
-However, they served Leng Ningyun in his daily life and should know quite a lot. Li Rufeng thought he should start with these two people first.
+Nevertheless, these two women attended to Leng Ningyun in his daily life and should possess considerable knowledge of his affairs. Li Rufeng resolved that he should begin his inquiries with them.
 
 **(End of Chapter)**

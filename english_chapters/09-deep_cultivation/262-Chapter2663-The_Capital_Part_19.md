@@ -1,121 +1,121 @@
 # Chapter 2663: The Capital (Part 19)
 
-Liao Sanniang's left foot landed before Liu Wu's. She shifted her steps laterally to adjust her position, driving Liu Wu's body to move his center of gravity forward. At the same time, she withdrew her hands, changing from throwing to grappling. Her left hand grasped Liu Wu's right wrist so he couldn't break free, then her body turned back to the left. She used her right arm to push and press the big man's left elbow joint, and kicked the big man's knee hollow with her right leg.
+Liao Sanniang's left foot touched ground a heartbeat before Liu Wu's. She shifted laterally, a subtle adjustment that forced his center of gravity forward. In the same motion, she abandoned the throw for a grapple, her left hand seizing Liu Wu's right wrist in an iron grip while her body pivoted back to the left. Her right arm drove against the big man's left elbow joint as her right leg snapped toward the hollow behind his knee.
 
-Liu Wu hugged his body tight, bent his arm and retracted his elbow, breaking free from control before the grapple was formed. Liao Sanniang quickly changed her stance, retreating half a step to create a little space between their lower bodies.
+Liu Wu clamped his body tight, bending his arm and retracting his elbow to break free before the hold could fully form. Liao Sanniang flowed into a new stance, retreating half a step to create distance between their lower bodies.
 
-Liu Wu's right foot had also landed at this time, but Liao Sanniang had preemptively destroyed his position, forcing him to defend constantly. This caused his center of gravity to be high, and the vertical line of his center of gravity was close to the limit of the support surface of his two feet, nearly on the edge of instability. Because he couldn't completely adjust his body posture, Liu Wu's right leg was unnaturally splayed outward.
+By the time Liu Wu's right foot finally landed, Liao Sanniang had already destroyed his positioning, forcing him into constant defense. His center of gravity rode high, the vertical line of his balance hovering at the very edge of his base of support—teetering on the brink of instability. Unable to fully adjust his posture, Liu Wu's right leg splayed outward at an unnatural angle.
 
-Liao Sanniang's grasp of timing was extremely precise. In that hair's breadth of a moment, she lifted her right leg and stomped viciously with her heel on the proximal end of Liu Wu's hip.
+Liao Sanniang's sense of timing was razor-sharp. In that hairsbreadth of a moment, she lifted her right leg and drove her heel down with vicious force onto the proximal end of Liu Wu's hip.
 
-The human hip is extremely solid, but the posterior inferior wall of the hip has no ligament fixation and is a weak point.
+The human hip is remarkably solid, but the posterior inferior wall lacks ligament reinforcement—a structural weakness.
 
-At this time, Liu Wu's right leg was abducted nearly forty degrees, already in an unnatural state. The greater trochanter of the leg bone formed a lever fulcrum with the hip. Under Liao Sanniang's violent stomp, the femoral head slipped forward and downward, dislocating the joint and the leg bone.
+With Liu Wu's right leg already abducted nearly forty degrees, his body was caught in an unnatural state. The greater trochanter of his femur formed a lever's fulcrum against the hip socket. Under Liao Sanniang's violent stomp, the femoral head slipped forward and downward, wrenching the joint apart and dislocating the bone entirely.
 
-Liao Sanniang grasped Liu Wu's thumb with both hands and twisted, borrowing the force of the stomp to push forward. Liu Wu screamed miserably and was kicked flying.
+Liao Sanniang seized Liu Wu's thumb with both hands and twisted, channeling the force of her stomp into a forward shove. Liu Wu screamed as he was sent flying.
 
-As soon as Liu Wu hit the ground, Liao Sanniang caught up with a step and kicked with her toe. The steel-tipped toe of her shoe poked Liu Wu's forehead. Liu Wu only had time to let out one cry before fainting.
+The moment Liu Wu struck the ground, Liao Sanniang closed the gap with a single stride and lashed out with her toe. The steel tip of her shoe drove into Liu Wu's forehead. He managed one strangled cry before consciousness fled.
 
-Liao Sanniang was like an eagle fighting a rabbit, changing three moves of throwing, grappling, and striking in an instant. All offense and defense transitions were just micro-adjustments of body posture. In the eyes of bystanders, the two had just grabbed each other when Liu Wu was kicked down by Liao Sanniang, and victory was decided in a split second.
+Liao Sanniang had struck like an eagle taking a rabbit, cycling through throw, grapple, and strike in a single fluid instant. Every transition between offense and defense was nothing more than a micro-adjustment of her body. To the onlookers, the two had barely touched before Liu Wu was kicked to the ground—victory decided in a heartbeat.
 
-Song Da felt a great chill in his heart. This Liu Wu was a famous local wrestling expert; usually, five or seven people couldn't get close to him, yet he was put down by this woman in one encounter.
+A deep chill settled into Song Da's chest. Liu Wu was a renowned local wrestling expert; normally, five or seven men couldn't get near him. Yet this woman had put him down in a single exchange.
 
-Liao Sanniang leapt towards Song Da. Song Da couldn't avoid it, which instead stimulated the ferocity in the bottom of his heart as a big *guanggun* [bare-stick/rascal].
+Liao Sanniang leapt toward Song Da. He couldn't evade, and that very helplessness ignited the ferocity buried deep in his heart—the savage instinct of a big *guanggun* [bare-stick/rascal].
 
-Song Da roared, met her directly, and swung his fist violently with all his might.
+Song Da roared, charged to meet her head-on, and swung his fist with every ounce of strength he possessed.
 
-The fitting thin silk shirt accentuated Liao Sanniang's curvaceous and graceful figure.
+The fitted silk shirt hugged Liao Sanniang's curvaceous figure, accentuating her graceful lines.
 
-Liao Sanniang took a deep long breath. In people's line of sight, Liao Sanniang's back figure suddenly expanded a circle. Her inverted triangular body shape unfolded like a fan. The mountain range composed of trapezius, spine of scapula, acromion, deltoid, rhomboid major, and latissimus dorsi undulated continuously, the lines appearing clearly through the shirt.
+Liao Sanniang drew a long, deep breath. Before the onlookers' eyes, her back seemed to expand by a full measure. Her inverted-triangle frame unfurled like a spreading fan. Through the thin fabric of her shirt, a mountain range of muscle revealed itself—trapezius, scapular spine, acromion, deltoid, rhomboid major, and latissimus dorsi undulating in continuous waves, each ridge and contour sharply defined.
 
-Pushing off the ground, turning the body, twisting the hips and sending the shoulder, extending the arm and swinging the fist—no tricks, no moves, hard against hard, tough against tough. A woman who could use heavy double sabers could only be a natural-born strongman.
+She pushed off the ground, rotated her body, twisted her hips and drove through the shoulder, extended her arm and unleashed her fist—no tricks, no flourishes. Hard against hard. Tough against tough. A woman who could wield heavy double sabers could only be a natural-born powerhouse.
 
-The knuckles of the two fists collided, making a muffled *peng* sound. The two punching arms connected into a straight line. The cracking sound of breaking hand bones came from the ear, making the listeners' hair stand on end. Song Da's outstretched right hand slowly went limp. He knelt down bit by bit, holding his right hand and groaning in pain. The groans became louder and louder. Song Da's body collapsed into a pile of mud. Holding his wrist broken in two, he cried and rolled on the ground, sad as a child without a mother.
+Their knuckles collided with a muffled *peng*. Their punching arms formed a single straight line. The crack of shattering hand bones split the air, raising the hair on every listener's neck. Song Da's outstretched right hand went slowly limp. He sank to his knees bit by bit, clutching his hand and groaning in pain. The groans swelled louder and louder until Song Da's body collapsed into a heap. Cradling his wrist, now broken clean through, he wailed and rolled across the ground, pitiful as a child without a mother.
 
-The body under Liao Sanniang's silk shirt slowly tightened and returned to a soft and lovely body.
+The body beneath Liao Sanniang's silk shirt slowly settled, contracting back into its soft, lovely form.
 
-She pulled a handkerchief from her bosom, wiped the bloodstains on her knuckles, walked over and picked up her own cloak. The cloak had a large hole poked by the sharp knife. Liao Sanniang stroked the cloak, sighed, and said faintly to Li Rufeng, "Chief Escort, I bought this at the Lingao Department Store with half a month's salary. Look, what should be done?"
+She drew a handkerchief from her bosom, wiped the bloodstains from her knuckles, then walked over to retrieve her cloak. A large hole gaped where the sharp knife had pierced through. Liao Sanniang stroked the fabric, sighed, and said wistfully to Li Rufeng, "Chief Escort, I bought this at the Lingao Department Store with half a month's salary. Look at it now. What should be done?"
 
-Li Rufeng wiped the cold sweat from his forehead, gave two dry coughs, and said, "Reimburse, full reimbursement!"
+Li Rufeng wiped the cold sweat from his brow, cleared his throat with two dry coughs, and said, "Reimburse it. Full reimbursement!"
 
 Song Da lay on the ground clutching his right wrist, his body trembling violently from fear.
 
-Li Rufeng walked slowly to Song Da. His burly body gave a huge sense of pressure. From Song Da's perspective, he looked like a giant supporting the sky.
+Li Rufeng walked slowly toward Song Da. His burly frame radiated an immense pressure. From Song Da's vantage point, he looked like a giant holding up the sky.
 
-Li Rufeng took out a bank note of twenty taels from his bosom, shook his hand, and tossed it out. The bank note floated lightly onto Song Da's face. Li Rufeng's deep voice sounded: "Brother, take these twenty taels back to recuperate your body. A small punishment to warn against big mistakes; grow some memory. Since ancient times, only one stick of first incense is burned. This time it was a hand broken; next time what is sent..."
+Li Rufeng produced a bank note worth twenty taels from his robe, gave it a shake, and tossed it out. The note drifted down to settle on Song Da's face. Li Rufeng's deep voice rumbled: "Brother, take these twenty taels and go recuperate. Consider it a small punishment to warn against larger mistakes—learn from this. Since ancient times, only one stick of first incense is burned. This time it was a broken hand. Next time what gets sent..."
 
-Li Rufeng's voice sank, "Will be a life."
+Li Rufeng's voice dropped low. "Will be a life."
 
-After speaking, he waved his hand, signaling Song Da to leave.
+He waved his hand, signaling Song Da to leave.
 
-Song Da climbed up, clutched the bank note tightly in his uninjured left hand, knocked his head hard twice on the ground, and hissed, " Many thanks to the Bureau Chief for sparing me today. You receive thunder on the high mountain, I drink the west wind on the flat ground. We lowly people dare not touch the tiger's might again in the future. If we don't meet on small roads, we'll meet on big roads. This lowly one engraves the Bureau Chief's grace in my five viscera. May the Chief Escort cross mountains and seas smoothly in the future, a flat river ahead."
+Song Da scrambled up, clutched the bank note tight in his uninjured left hand, and knocked his forehead hard against the ground twice. His voice came out in a ragged hiss: "Many thanks to the Bureau Chief for sparing me today. You receive thunder on the high mountain; I drink the west wind on the flat ground. We lowly folk would never dare touch the tiger's might again. Whether we meet on small roads or big roads, this lowly one will engrave the Bureau Chief's grace in my five viscera. May the Chief Escort cross mountains and seas smoothly in the future, with a flat river ahead."
 
-After speaking, Song Da struggled to stand up.
+With that, Song Da struggled to his feet.
 
-Liao Sanniang walked over from the side and supported Song Da's shoulder with her hand. Seeing her, Song Da's face couldn't help changing, and his whole body shuddered.
+Liao Sanniang approached from the side and rested her hand on Song Da's shoulder. At the sight of her, his face blanched and his whole body shuddered.
 
-Liao Sanniang smiled gently and said softly, "Brother, don't panic. This slave knows the measure of my hand. The three of you have broken skin and dislocated joints, but they are just superficial wounds. You will be fine in a few days. Only do not delay; you must treat them quickly. The escort agency can beat people, but can save people even better. For various falls and injuries, heavy or light, we have good prescriptions and medicine. The senior brothers in the agency all possess secret methods of bone-setting. If you are willing to let us treat you, no aftereffects will be left."
+Liao Sanniang smiled gently and spoke in a soft voice. "Brother, don't panic. This slave knows the measure of her own hand. The three of you have broken skin and dislocated joints, but these are only superficial wounds. You'll be fine in a few days. Only don't delay—you must seek treatment quickly. The escort agency can beat people, but we're even better at healing them. For falls and injuries of every severity, we have good prescriptions and medicines. The senior brothers in the agency all possess secret methods of bone-setting. If you're willing to let us treat you, no aftereffects will remain."
 
-Song Da understood the implied meaning immediately. He kowtowed and said, "Sanniangzi is a Bodhisattva reincarnated. When we lowly people go back, the outside world will immediately know that Grandpa Bureau Chief and Sanniangzi have clear ears and eyes and cannot tolerate sand. Even if there are still those fools blinded by lard with greed, they wouldn't dare to come to the door to trick the Master again. We will definitely ensure peace and quiet for your ears."
+Song Da understood the implied meaning at once. He kowtowed and said, "Sanniangzi is a Bodhisattva reincarnated. When we lowly folk return, the outside world will immediately learn that Grandpa Bureau Chief and Sanniangzi have clear ears and eyes and cannot tolerate even a grain of sand. Even if there are still fools blinded by lard and greed, they wouldn't dare come to the door trying to trick the Master again. We will ensure peace and quiet for your ears."
 
-Liao Sanniang nodded and said, "This slave has weak Qi and blood and cannot stand much noise bothering my heart. We didn't know each other until we fought. I accept Brother's good intentions here."
+Liao Sanniang nodded. "This slave has weak Qi and blood and cannot stand much noise troubling my heart. We didn't know each other until we fought. I accept Brother's good intentions here."
 
-Liao Sanniang shouted to the outside, "Bazi, take the three brothers down to set their bones." After speaking, she gently patted Song Da's shoulder.
+She called toward the doorway, "Bazi, take the three brothers down to set their bones." Then she gave Song Da's shoulder a gentle pat.
 
-Little Bazi agreed, called up a few fellows, and carried the three down.
+Little Bazi acknowledged the order, summoned a few fellows, and had the three men carried out.
 
-Liao Sanniang walked to Little Bazi and whispered, "Set their bones and send them back. Check where they are staying."
+Liao Sanniang moved to Little Bazi's side and whispered, "Set their bones and send them back. Find out where they're staying."
 
-Little Bazi nodded and went down quickly.
+Little Bazi nodded and hurried off.
 
-Seeing the people carried out, Li Rufeng sighed, shook his head, and said, "There are many such deceptive people. If a wealthy family encounters such a kidnapping, sometimes multiple families come to propose ransoms at the same time after the incident occurred. One doesn't know which is true and which is false, adding chaos in vain. But usually, they don't fight like this; they just drive those idlers away."
+Watching the men being carried away, Li Rufeng sighed and shook his head. "There are many such swindlers. When a wealthy family suffers a kidnapping, sometimes multiple groups arrive simultaneously to propose ransoms after the incident. No one can tell which is genuine and which is false—it only adds to the chaos. But usually, we don't fight like this. We simply drive those idlers away."
 
-Liao Sanniang said indifferently, "That Song Da acted like a fool and wanted to start first. Besides, having a fight isn't a bad thing. It lets the outside know we are not those muddled chaotic worms. We shouldn't let people look down on us."
+Liao Sanniang replied coolly, "That Song Da played the fool and wanted to strike first. Besides, having a fight isn't such a bad thing. It lets the outside world know we aren't just muddled, confused worms. We shouldn't let people look down on us."
 
-Wu Kaidi said to Li Rufeng from the side at this time, "I'm afraid the Chief Escort cannot leave here. In that case, I will go back to Delong to handle the situation first. You and I will gather later."
+At this point, Wu Kaidi spoke to Li Rufeng from the side. "I'm afraid the Chief Escort cannot leave here. In that case, I'll return to Delong first to handle the situation. You and I can gather later."
 
-Li Rufeng nodded and said, "Alright. Sorry to trouble Mister Wu so much."
+Li Rufeng nodded. "Alright. Sorry to trouble you so much, Mister Wu."
 
-Wu Kaidi said, "It was originally my duty, as it should be." After speaking, he cupped his hands and walked out quickly.
+"It was originally my duty," Wu Kaidi said. "As it should be." He cupped his hands and strode out quickly.
 
-After Wu Kaidi left, Liao Sanniang asked Li Rufeng, "Did you manage to ask anything from Wang Shizhen and Steward Zhang?"
+After Wu Kaidi departed, Liao Sanniang asked Li Rufeng, "Did you manage to learn anything from Wang Shizhen and Steward Zhang?"
 
-Li Rufeng shook his head and said, "If they knew any critical joints, how would the bandits allow them to live?"
+Li Rufeng shook his head. "If they knew anything critical, would the bandits have let them live?"
 
-Although he said so, they still learned a few key things: Wang Shizhen acted on entrustment and received four hundred taels of silver; as for who entrusted him, he confessed, but by the time the escorts rushed to catch the person, this person had already hanged himself—needless to say, he was 'suicided'. Secondly, Steward Zhang was promised five thousand taels of silver after success. Half of the silver had been prepaid, and the other half was said to be given to him after he escaped to the designated location.
+Though he said this, they had still gleaned a few key details: Wang Shizhen had acted on commission and received four hundred taels of silver for his part. As for who had commissioned him—he confessed, but by the time the escorts rushed to apprehend that person, the man had already hanged himself. Needless to say, he had been 'suicided.' Secondly, Steward Zhang had been promised five thousand taels upon success. Half the silver had been paid in advance; the other half was to be given to him once he escaped to a designated location.
 
-"If he received that other half, he would probably be dead by now."
+"If he'd received that other half, he'd probably be dead by now."
 
-"Not receiving it is just living a few more days." Liao Sanniang sighed. "Who gave him the promise?"
+"Not receiving it just means he'll live a few more days." Liao Sanniang sighed. "Who gave him that promise?"
 
-Given Steward Zhang's experience and worth, simply finding someone to persuade him wouldn't work, nor would taking out silver on the spot make him determined. The middleman must have considerable status and prestige.
+Given Steward Zhang's experience and worth, simply sending someone to persuade him would never have worked, nor would flashing silver on the spot have steeled his resolve. The middleman must have possessed considerable status and prestige.
 
-"Speaking of which, it's an old acquaintance," Li Rufeng sneered. "It's Steward Qiao of the Xia Family Shanxi House."
+"Speaking of which, it's an old acquaintance," Li Rufeng said with a sneer. "Steward Qiao of the Xia Family Shanxi House."
 
-Since Delong opened in the capital, friction between the Shanxi Houses in the capital and Delong had never ceased. It was really because Delong had a strong backing that although the Shanxi Houses had abundant funds, they dared not use tactics of extermination and could only make some small moves to disgust Delong.
+Since Delong had opened in the capital, friction between the Shanxi Houses and Delong had never ceased. It was only because Delong had such a powerful backing that, despite their abundant funds, the Shanxi Houses dared not employ tactics of extermination. They could only make petty moves to vex Delong.
 
-"So it was him!" Liao Sanniang sneered. "No wonder, no wonder!"
+"So it was him!" Liao Sanniang sneered. "No wonder. No wonder!"
 
-"I think he was also ordered by others and may not be the real culprit." Li Rufeng said, "However, to reassure Steward Zhang, they had to borrow him for use."
+"I suspect he was also acting on someone else's orders and may not be the true mastermind," Li Rufeng said. "However, to reassure Steward Zhang, they had to borrow his credibility."
 
-Without such a leading figure in the banking world coming forward, Steward Zhang wouldn't have made the determination to betray Master Leng.
+Without such a leading figure in the banking world stepping forward, Steward Zhang would never have summoned the resolve to betray Master Leng.
 
-"Where is Steward Qiao? Jumped into the river or hanged himself?"
+"Where is Steward Qiao now? Jumped into the river or hanged himself?"
 
-"They say it just happened to be his turn for the once-every-three-years annual leave this year, and he went back to his hometown in Shanxi."
+"They say it just happened to be his turn for the once-every-three-years annual leave, and he went back to his hometown in Shanxi."
 
-"In this chaos of war, not staying in the capital but rushing home—is he not afraid of being robbed by bandits on the road? Besides, even if he returns to Shanxi, there are roving bandits everywhere. Rushing back for what?" Liao Sanniang ridiculed.
+"In this chaos of war, abandoning the capital to rush home—is he not afraid of being robbed by bandits on the road? And even if he reaches Shanxi, roving bandits are everywhere. What's the rush?" Liao Sanniang's voice dripped with ridicule.
 
-Needless to say, whether dead or alive, they wouldn't find Steward Qiao.
+Needless to say, whether dead or alive, they would never find Steward Qiao.
 
-"Even if Steward Qiao can't be found, the Xia family must be aware."
+"Even if we can't find Steward Qiao, the Xia family must be aware of something."
 
-This kept being useless. Among the eight Shanxi Houses in the capital, although Xia's was not the biggest, Shanxi Houses shared the same voice and breath due to fellow villager relations. With years of operation, they were deeply rooted and leafy. Their power was far from what Delong could compare with. Wanting to find the Xia family to inquire about the situation was wishful thinking.
+This remained useless. Among the eight Shanxi Houses in the capital, though the Xia family's was not the largest, the Shanxi Houses shared the same voice and breath through ties of fellow villagers. After years of careful operation, they had grown deeply rooted, their branches thick with leaves. Their power was far beyond what Delong could match. Hoping to approach the Xia family for information was nothing but wishful thinking.
 
-Liao Sanniang sighed with disappointment.
+Liao Sanniang let out a sigh of disappointment.
 
-Li Rufeng said, "Just now Old Wu said we could make a guess..."
+Li Rufeng said, "Just now, Old Wu mentioned we could make an educated guess..."
 
-Wu Kaidi said that whoever could make the Xia family act must not only be a big shot in the court but also inevitably an important client of the Xia family. Just speculating along this line of thought, the mastermind behind the scenes would be nine out of ten identified.
+Wu Kaidi had reasoned that whoever could compel the Xia family to act must not only be a major figure at court but also, inevitably, an important client of theirs. Simply following that line of thought, the mastermind behind the scenes would be identified nine times out of ten.
 
 **(End of Chapter)**

@@ -1,194 +1,194 @@
 # Chapter 2707: The Capital (Part 63)
 
-The dart slipped through her fingers, the tip staying level. Sharp, stable, it drew a low, flat arc.
+The dart slipped through her fingers, its tip staying level. Sharp and stable, it traced a low, flat arc through the air.
 
-Seizing the initiative, the dart flew like passing electricity.
+Seizing the initiative, the dart flew like a bolt of lightning.
 
-At the moment the steel dart was thrown, if the arm extended in the direction of the throw, force would be transmitted from the shoulder to the joints. Over time, this would injure the elbow and wrist, so one must unload the force when throwing a dart.
+At the moment of release, if the arm extended fully in the throwing direction, force would travel from the shoulder through the joints. Over time, this would damage the elbow and wrist—so one had to discharge the force properly when throwing.
 
-The action looked simple, but in reality, it required thousands of chaotic repetitions to achieve free control of release and retraction.
+The motion appeared simple, but in truth it required thousands of chaotic repetitions before one could control the release and retraction with any freedom.
 
-Liao Sanniang's right wrist rotated and hooked, unloading the throwing force. Following the momentum, she turned her hand to wipe across the chest strap. The second steel dart entered her hand, forming a closed loop of action.
+Liao Sanniang's right wrist rotated and hooked, shedding the throwing force. Following the momentum, her hand swept across the chest strap. A second steel dart slipped into her fingers, completing a closed loop of motion.
 
-Almost at the same moment, a man rushed out from the bushes in front of her. Just as he leaped out, his vision blurred, and a dart shadow struck his face.
+Almost simultaneously, a man burst from the bushes ahead. The instant he leaped out, his vision blurred as a dart-shadow streaked toward his face.
 
-At a distance of four meters, the dart's force was enough to pierce a wooden board.
+At four meters, the dart carried enough force to pierce a wooden board.
 
-The first dart shot into the area above the collarbone.
+The first dart punched into the hollow above his collarbone.
 
-The second dart followed closely, hitting the hard frontal bone. The tip smashed a small pit on the smooth plate of the skull, then slid off and flew away.
+The second followed close behind, striking the hard frontal bone. The tip gouged a small pit in the smooth plate of skull, then deflected and spun away.
 
-The seven-*liang* heavy dart struck the man's head aside, exposing his profile.
+The seven-*liang* heavy dart wrenched the man's head sideways, exposing his profile.
 
-The third dart was released, shot with extreme precision and correct force. It hit the pterion region of the skull—the temple. The bone wall here was only one millimeter thick. The steel dart penetrated the bone wall, stabbing deep into the brain, piercing the middle meningeal artery and causing intracranial hemorrhage. Massive bleeding quickly formed a hematoma.
+The third dart released—shot with extreme precision and proper force. It struck the pterion, the temple region where the bone wall was barely a millimeter thick. The steel dart pierced through, driving deep into the brain, rupturing the middle meningeal artery. Blood flooded the cranial cavity, rapidly forming a hematoma.
 
-The man's eyes instantly turned blood-red. He seemed to want to rush forward, but rising intracranial pressure compressed his nerves, affecting his functions. His body went out of control, tilted sideways, lost balance, and fell forward.
+The man's eyes turned blood-red in an instant. He seemed to want to charge forward, but the rising intracranial pressure compressed his nerves, disrupting his functions. His body lurched sideways, lost balance, and pitched forward.
 
-The inertia of running made him face-plant after falling. His face scraped a shallow half-meter groove in the ground, grinding away half his face.
+The momentum of his run sent him sprawling face-first. His face scraped a shallow half-meter groove through the dirt, grinding away half his features.
 
-The man fell, revealing the stunned companion behind him.
+As he fell, he revealed the stunned companion behind him.
 
-Liao Sanniang didn't leave the second person time to react. Her dart-holding hand paused slightly to control the rhythm. As the first man fell and the second exposed his upper body, three darts fired in succession.
+Liao Sanniang gave the second man no time to react. Her dart-holding hand paused briefly to control the rhythm. The moment the first man collapsed and the second's upper body became visible, three darts flew in rapid succession.
 
-Two darts took the chest, one dart took the throat.
+Two for the chest, one for the throat.
 
-*Pu pu pu*, three sounds. One dart stabbed into the abdomen, the second into the chest cavity, the third into the throat.
+*Pu pu pu*—three sounds. One dart buried itself in the abdomen, the second in the chest cavity, the third in the throat.
 
-One "son" (target), three darts; no dart missed.
+One target, three darts; none missed.
 
-Six darts fired in succession. Her body didn't move; her hand gesture and orientation didn't change. Striking from stillness was beneficial for exerting force, estimating distance, and aiming.
+Six darts fired in succession. Her body remained motionless, her hand position and orientation unchanged. Striking from stillness was advantageous for generating force, judging distance, and aiming.
 
-The dart wounds were not immediately fatal. The man could still move; adrenaline release suppressed the pain. He continued to charge forward with his saber.
+The dart wounds were not immediately fatal. The man could still move; the surge of adrenaline suppressed his pain. He continued charging forward with his saber raised.
 
-Liao Sanniang separated her double sabers and took two steps forward. The two approached each other head-on.
+Liao Sanniang drew her paired sabers and advanced two steps. The combatants closed head-on.
 
-Liao Sanniang's willow-leaf double sabers had narrow blades and sharp points, suitable for piercing.
+Her willow-leaf double sabers had narrow blades and sharp points, well-suited for piercing.
 
-The man slashed sideways with a waist saber in one hand. As he moved, the steel dart stuck in the cricoid cartilage of his throat vibrated. The tip irritated the wound and the respiratory tract. Unable to suppress the physiological reaction, the man's breath hitched, and his hand shook.
+The man slashed horizontally with his waist saber. As he moved, the steel dart lodged in his cricoid cartilage vibrated. The tip aggravated the wound and irritated his airway. Unable to suppress the physiological reaction, his breath hitched, and his hand trembled.
 
-Liao Sanniang thrust her double sabers diagonally. As the two sabers met the waist saber, she felt the weakness in it, knowing the enemy's movements were deformed by injury.
+Liao Sanniang thrust diagonally with both blades. When they met the waist saber, she felt its weakness—knew his movements were distorted by injury.
 
-Liao Sanniang stepped forward at a forty-five-degree angle. She separated her sabers left and right. The left saber dragged backward to deflect the enemy's waist saber; the right saber thrust forward with full force, fiercely stabbing the throat.
+She stepped forward at a forty-five-degree angle, separating her sabers. The left blade dragged backward to deflect the enemy's weapon; the right thrust forward with full force, driving fiercely into his throat.
 
-The tip penetrated the Adam's apple, poking a huge open wound in the man's throat. Under the impact of the sprint, the enemy's body fell backward, the throat wound filling with blood.
+The tip pierced his Adam's apple, tearing a gaping wound. Under the impact of their collision, the man toppled backward, blood flooding his ruptured throat.
 
-Unable to breathe, the man dropped his saber, covered his neck, coughed once, and sprayed blood from both mouth and wound. He fell backward, clutching his neck, struggling in pain.
+Unable to breathe, he dropped his saber and clutched his neck. He coughed once, spraying blood from both mouth and wound, then fell backward, writhing in agony.
 
-Liao Sanniang stepped up and stabbed left and right with her dual blades, finishing off the two men on the ground who had been hit by darts.
+Liao Sanniang stepped forward and stabbed left and right with her dual blades, finishing off the two men on the ground who had been struck by her darts.
 
-A rustle sounded behind her—faint, the sound of feet stepping on fallen leaves.
+A rustle sounded behind her—faint, the whisper of feet stepping on fallen leaves.
 
-Liao Sanniang turned rapidly. In her peripheral vision, a blur attacked. She couldn't see what it was clearly.
+Liao Sanniang spun around. In her peripheral vision, a blur hurtled toward her. She couldn't make out what it was.
 
-Human vision has a characteristic: under dynamic vision, there is no absolute clarity in the instantaneous state. The impression of moving objects is inherently blurry.
+Human vision has a peculiar characteristic: under dynamic conditions, there is no absolute clarity in the instantaneous state. The impression of moving objects is inherently blurred.
 
-Liao Sanniang blocked outward with her double sabers. The spine of the blades struck the incoming object, knocking it away with a *clang*. It was an iron javelin, heavy in front and light in back, fusiform at both ends, seventy centimeters long.
+Liao Sanniang blocked outward with her double sabers. The spines of her blades struck the incoming object with a *clang*, knocking it aside. It was an iron javelin—heavy at the front, light at the back, fusiform at both ends, seventy centimeters long.
 
-A medium-sized round rattan shield painted with a baring-toothed tiger suddenly leaped out from behind a tree, appearing abruptly in front of her.
+A medium-sized round rattan shield painted with a snarling tiger suddenly leaped out from behind a tree, appearing abruptly before her.
 
-Shields came in two types: long and round; and three sizes: large, medium, and small. Battle formations mostly used large shields that could cover the whole body; private fights mostly used medium shields.
+Shields came in two types: long and round; and three sizes: large, medium, and small. Battle formations typically employed large shields that could cover the whole body; personal combat favored medium shields.
 
-In the early Ming, there was no rattan in the North, so willow wood covered with leather was used to make shields, which were quite clumsy.
+In the early Ming, rattan was unavailable in the North, so shields were made from willow wood covered with leather—quite cumbersome.
 
-The South mostly used rattan shields. Rattan shields were light and agile, usable in mud and rain. Except for being unable to withstand musket balls, they could defend against arrows, sabers, and spears. Later, both North and South used rattan shields.
+The South mostly used rattan shields. Rattan shields were light and agile, usable in mud and rain. Except for their inability to withstand musket balls, they could defend against arrows, sabers, and spears. Eventually, both North and South adopted rattan shields.
 
-A rattan shield without a javelin cannot kill the enemy. A shield bearer must carry javelins, just as one practicing double sabers must carry flying darts.
+A rattan shield without a javelin cannot kill the enemy. A shield bearer had to carry javelins, just as one practicing double sabers had to carry throwing darts.
 
-Li Gun, the "Sky-Soaring Great Sage" in *Water Margin*, used a round shield and carried twenty-four javelins on his back, modeled after the Ming shield bearer.
+Li Gun, the "Sky-Soaring Great Sage" in *Water Margin*, used a round shield and carried twenty-four javelins on his back—modeled after the Ming shield bearer.
 
-In actual combat, a shield bearer carried two javelins. In battle, the right hand held the javelin, while the waist saber lay across the shield's handle, braced by the wrist and forearm. Waiting for the enemy to approach, they threw the javelin to seize the enemy's eyes and force them to block, then drew the saber in the gap to fight at close quarters.
+In actual combat, a shield bearer carried two javelins. In battle, the right hand gripped the javelin while the waist saber lay across the shield's handle, braced by wrist and forearm. When the enemy approached, one threw the javelin to seize the opponent's attention and force them to block, then drew the saber in that gap to engage at close quarters.
 
-Throwing the spear, then drawing the saber—two seemingly simple consecutive actions were actually the difficult part. In the chaos of battle, shield bearers often found it hard to link them, missing the combat opportunity.
+Throwing the spear, then drawing the saber—two seemingly simple consecutive actions were actually the difficult part. In the chaos of battle, shield bearers often found it hard to link them, missing the critical moment.
 
-The distance between the two wasn't far. The shield bearer threw the javelin, pushed his right hand upward behind the shield, and drew his waist saber. The movement was fluid and skilled; he was a good hand.
+The distance between them was not great. The shield bearer threw his javelin, pushed his right hand upward behind the shield, and drew his waist saber. The movement was fluid and practiced; he was a capable fighter.
 
-The usage of rattan shield and waist saber was the same as Yue Fei's side shield and heavy horse-chopping saber (*mazhadao*). Training involved setting up four wooden stakes to simulate chopping horse legs.
+The usage of rattan shield and waist saber was the same as Yue Fei's side shield and heavy horse-chopping saber—the *mazhadao*. Training involved setting up four wooden stakes to simulate chopping horse legs.
 
-Unless necessary, a shield bearer wouldn't open the shield or attack with the shield's edge, losing the intent of protection—the gain wouldn't make up for the loss.
+Unless necessary, a shield bearer would not open the shield or attack with its edge, abandoning the intent of protection—the gain would not be worth the loss.
 
-Liao Sanniang quickly closed with the enemy. Her left saber pointed forward, feinting a stab to make the opponent raise the shield to defend.
+Liao Sanniang closed quickly with her enemy. Her left saber jabbed forward in a feint, baiting the opponent to raise his shield in defense.
 
-The shield bearer raised the rattan shield to cover his upper body, trusting the shield forward and upward with force to squeeze Liao Sanniang's space and break her balance. His right waist saber poked out from the side of the rattan shield, sweeping diagonally downward to cut Liao Sanniang's knee hollow (popliteal fossa).
+The shield bearer lifted the rattan shield to cover his upper body, thrusting it forward and upward with force to crowd Liao Sanniang's space and break her balance. His right hand's waist saber poked out from beside the shield, sweeping diagonally downward to cut the hollow behind her knee—the popliteal fossa.
 
-Liao Sanniang didn't retreat but advanced. She turned her body left, sidewards in a bow stance—right leg bent forward, left leg taut behind.
+Liao Sanniang did not retreat but advanced. She turned her body left, shifting sideways into a bow stance—right leg bent forward, left leg taut behind.
 
-Her lead right saber, tip pointing down perpendicular to the ground, pushed outward halfway. Using vertical to break horizontal, she blocked the waist saber sweeping at her legs. Borrowing the momentum, her right shoulder slammed into the shield, neutralizing the shield's pushing force.
+Her leading right saber, tip pointing perpendicular to the ground, pushed outward to the midpoint. Using vertical to break horizontal, she blocked the waist saber sweeping at her legs. Borrowing that momentum, her right shoulder slammed into the shield, neutralizing its pushing force.
 
-Her left arm simultaneously raised sideways over her head. The two sabers coordinated: one standing to block, one attacking upward. The left saber drew a semi-arc like a curved rainbow, crossing over the shield's upper rim and stabbing toward the enemy's head behind the shield.
+Her left arm simultaneously raised sideways above her head. The two sabers worked in coordination: one standing to block, one attacking upward. The left saber traced a semi-arc like a curving rainbow, crossing over the shield's upper rim and stabbing toward the enemy's head.
 
 The attack was unexpected; the shield bearer was caught off guard.
 
-The blade tip descending from the sky forced him to instinctively tilt his head back. He lifted the rattan shield upward to block the right saber (Note: context implies blocking the overhead attack).
+The blade tip descending from above forced him to instinctively tilt his head back. He lifted the rattan shield upward to block the overhead assault.
 
-Liao Sanniang was a step faster. She stabbed downward with the tip, then immediately lifted her wrist flicking the tip upward. It slit open the enemy's lip and sliced straight through the right eyeball. Her left saber retracted, scraping against the rim of the rattan shield.
+Liao Sanniang was a step faster. She stabbed downward with the tip, then immediately flicked her wrist upward. The blade slit open the enemy's lip and sliced straight through his right eyeball. Her left saber retracted, scraping against the rim of the rattan shield.
 
-The shield bearer screamed. His right eye went black, losing vision. In panic, his body shrank back.
+The shield bearer screamed. His right eye went dark, vision gone. In panic, his body shrank back.
 
-Liao Sanniang quickly withdrew her bow stance, guarding against a counterattack.
+Liao Sanniang quickly withdrew from her bow stance, guarding against a counterattack.
 
-Without stopping her steps, she exploited the enemy's eye injury, advancing to invade the enemy's right side. Her right saber led the enemy's waist saber; her left saber swept across the enemy's right knee. The blade dragged, cutting the fibular collateral ligament on the outside of the knee.
+Without pausing her steps, she exploited the enemy's eye injury, advancing to invade his right side. Her right saber engaged his waist saber; her left swept across his right knee. The blade dragged through, severing the fibular collateral ligament on the outside of the joint.
 
-With the joint attacked, the shield bearer lost balance and fell to the ground.
+With the joint compromised, the shield bearer lost balance and crumpled to the ground.
 
-Injured in two places and fallen, the shield bearer lost his bearing. The shield opened up like an opening clam shell.
+Wounded in two places and fallen, he lost all bearing. His shield gaped open like a clamshell.
 
-Liao Sanniang stepped forward and stabbed him dead with a strike to the heart.
+Liao Sanniang stepped forward and stabbed him dead with a thrust to the heart.
 
 Three steps, three moves, three sabers to kill a man.
 
-She counted silently: *Six*.
+She counted silently: *Six.*
 
-A flash behind a tree—three enemies appeared together: one with a waist saber, one with a Japanese saber (*wodao*), one with a short spear.
+A flash behind a tree—three enemies appeared together: one with a waist saber, one with a Japanese saber, a *wodao*, one with a short spear.
 
-Seeing the three corpses close by and one lying prone not far away, the three were stunned simultaneously, their gazes somewhat dull and hesitant.
+Seeing three corpses nearby and another lying prone not far away, the three men froze, their gazes dull and hesitant.
 
-Six of the ten men were dead—more than half. The enemy must feel fear and lose the will to fight.
+Six of the ten were dead—more than half. The enemy should feel fear now and lose the will to fight.
 
 *They will flee*, Liao Sanniang thought.
 
-The next moment, the three looked at each other, their gazes hardening. They split into a T-shape and surrounded Liao Sanniang.
+The next moment, the three exchanged glances, and their expressions hardened. They split into a T-formation and surrounded her.
 
-Liao Sanniang raised an eyebrow, somewhat surprised. It was unexpected. She sighed inwardly; a woman lacked deterrent power, making people underestimate her.
+Liao Sanniang raised an eyebrow, somewhat surprised. This was unexpected. She sighed inwardly; a woman lacked deterrent presence, inviting underestimation.
 
-The tips of her double sabers touched in the air, forming a horizontal acute triangle to protect the centerline of her chest. Liao Sanniang took a step back, leaning against a tree to protect her back.
+The tips of her double sabers touched in the air, forming a horizontal acute triangle to guard her centerline. Liao Sanniang took a step back, pressing her back against a tree to protect her rear.
 
-*Wu-ye* wind sounds. Several pellets shot from the woods behind the enemies—some clay, some iron, flying extremely fast.
+A *wu-ye* sound of wind. Several pellets shot from the woods behind the enemies—some clay, some iron, flying extremely fast.
 
-Seeing the trajectory, Liao Sanniang knew it was Little Bazi.
+Seeing their trajectory, Liao Sanniang recognized them as Little Bazi's work.
 
-In ancient times, there were no slingshots with Y-shaped structures and rubber bands.
+In ancient times, there were no slingshots with Y-shaped frames and rubber bands.
 
-Slingshots used bamboo as wood, shaped no differently from ordinary bows. The bow strength was "two and a half force" (*er-jin-ban*); one force was nine *jin* twelve *liang* in old measurements. Slingshots couldn't reach far or pierce armor.
+Slingshots used bamboo as their material, shaped no differently from ordinary bows. The draw strength was "two and a half force"—*er-jin-ban*; one force equaled nine *jin* twelve *liang* in old measurements. Slingshots could not reach far or pierce armor.
 
-A slingshot had two strings vertically. A bamboo string covered the bowstring to suppress vibration.
+A slingshot had two strings running vertically. A bamboo string covered the bowstring to suppress vibration.
 
-There was a bowl-shaped bullet pocket on the bowstring. Unlike a bow and arrow, a slingshot didn't require fitting an arrow nock to the string, so one could shoot fast. The archer held two to three pellets in hand. A pellet was snapped into the pocket and fired immediately. Continuous loading and firing resulted in a high rate of fire.
+A bowl-shaped bullet pocket sat on the bowstring. Unlike a bow and arrow, a slingshot did not require fitting an arrow nock to the string, allowing rapid fire. The archer held two to three pellets in hand. A pellet was snapped into the pocket and fired immediately. Continuous loading and firing produced a high rate of fire.
 
 Iron pellets were cast in molds; clay pellets were fired from white eel mud.
 
-Clay pellets were about the size of longans, smooth and round, not breaking upon hitting the ground. Once hitting an unarmored target, a light hit caused bruising, a heavy one caused fractures.
+Clay pellets were roughly the size of longans, smooth and round, and did not break upon hitting the ground. Against an unarmored target, a light hit caused bruising; a heavy one caused fractures.
 
-Arrow shafts were thick; a quiver could only hold twenty or thirty arrows, making them hard to carry.
+Arrow shafts were thick; a quiver could only hold twenty or thirty arrows, making them cumbersome to carry.
 
-A cloth bag slung diagonally could hold dozens of pellets, easy to carry and suitable for walking.
+A cloth bag slung diagonally could hold dozens of pellets—easy to carry and suitable for travel.
 
-Ten pellets fired in succession. The formation of the three enemies fell into disarray, each finding a tree for cover.
+Ten pellets fired in succession. The formation of the three enemies fell into disarray as each scrambled for cover behind a tree.
 
-Liao Sanniang circled behind the tree and charged at the waist-saber man closest to her.
+Liao Sanniang circled behind her tree and charged at the waist-saber man closest to her.
 
-The appropriate length for double sabers was such that when held in hands hanging naturally, the tips didn't graze the ground. They were shorter than single sabers or Japanese sabers.
+The appropriate length for double sabers was such that when held with arms hanging naturally, the tips did not graze the ground. They were shorter than single sabers or Japanese sabers.
 
-Being short, one had to close in quickly and kill while moving.
+Being short, one had to close quickly and kill while moving.
 
-Single saber looks at the hand, double sabers look at the walk. Wielding double sabers easily caused mutual interference; coordination was extremely difficult. Coordinating double sabers with the lower limbs was even harder.
+Single saber looks at the hand; double sabers look at the walk. Wielding double sabers easily caused mutual interference; coordination was extremely difficult. Coordinating double sabers with footwork was harder still.
 
-Two enemies chased from behind. Unmoved, Liao Sanniang charged at the enemy in front of her at high speed.
+Two enemies pursued from behind. Unmoved, Liao Sanniang charged at the enemy before her at full speed.
 
-Liao Sanniang came fiercely. The man was nervous; he took a step back and chopped vertically at her head with the waist saber.
+Liao Sanniang came fiercely. The man grew nervous; he stepped back and chopped vertically at her head with his waist saber.
 
-Moving the arm forward then back in a retracting motion is a "cut" (*pi*); from top to bottom is a "smash" (*za*).
+Moving the arm forward then back in a retracting motion is a "cut"—*pi*; from top to bottom is a "smash"—*za*.
 
-Liao Sanniang blocked diagonally upward with her left saber. Following the momentum of the enemy retracting his saber, she pushed up, propping up the enemy's right arm holding the saber.
+Liao Sanniang blocked diagonally upward with her left saber. Following the momentum of the enemy retracting his weapon, she pushed up, propping up his saber arm.
 
-She ducked and lowered her head, drilling past under the enemy's armpit.
+She ducked low, drilling past beneath the enemy's armpit.
 
-Two figures merged abruptly and separated. The blade dragged a horizontal light as the two crossed paths.
+Two figures merged abruptly and separated. The blade dragged a horizontal streak of light as they crossed paths.
 
-In the instant she drilled under the armpit, her right saber followed her forward step and dragged horizontally across the enemy's armpit.
+In that instant beneath his armpit, her right saber followed her forward step and dragged horizontally across his underarm.
 
-The entire blade edge dragged across the armpit. The edge was sharp; where it passed, flesh curled and bone was visible. The pleasure of a sharp weapon cutting smoothly transmitted to her hand. The enemy's weapon-holding arm was almost severed at the shoulder.
+The entire blade edge raked across the flesh. The edge was sharp; where it passed, flesh curled and bone gleamed white. The satisfying sensation of a keen weapon cutting cleanly transmitted to her hand. The enemy's weapon arm was nearly severed at the shoulder.
 
-Turning to the enemy's back, she stabbed with her left hand, piercing through the lower back.
+Turning to his back, she stabbed with her left hand, piercing through his lower back.
 
-Liao Sanniang pulled out the steel saber, flicking off a string of blood beads. Without stopping, she turned back and charged at the two men behind her.
+Liao Sanniang withdrew the steel saber, flicking off a string of blood droplets. Without pause, she turned and charged at the two men behind her.
 
-Little Bazi appeared from behind a tree, rapid-firing his slingshot.
+Little Bazi emerged from behind a tree, rapid-firing his slingshot.
 
-At the moment of releasing the string, the bow-holding hand flipped outward; otherwise, the fired pellet would hit the bow back or the hand holding the bow.
+At the moment of release, the bow hand flipped outward; otherwise, the fired pellet would strike the bow or the hand holding it.
 
 The drawn bow twanged, the string sound flipping. The front hand stabilized the arm and rolled the wrist; pellets poured from the rear hand like rain.
 
-The two men opposite were hit by pellets, separating front and back.
+The two men opposite took hits and separated, one scrambling forward, one falling back.
 
 Liao Sanniang and the short-spear wielder attacked simultaneously, meeting the spear head-on.
 

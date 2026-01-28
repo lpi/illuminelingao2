@@ -6,15 +6,15 @@ Of course, morning tea was never merely about eating a sumptuous breakfast. It w
 
 As for the biggest news in Guangzhou lately, nothing could compare to the hair-thieves openly breaking with the Imperial Court, smashing through the city walls, and installing a Prefect surnamed Liu. Tales of "Grandfather Liu" multiplied like fish in the Pearl River, each one scooped up before the last had lost its freshness. The sensation of one story would barely crest before another, more explosive still, arrived to claim its place. Just days ago, the tea houses had buzzed with how Grandfather Liu had cut through the corrupt clerks like a sword through silk. Today, they were already onto something new.
 
-"Gentlemen, have you heard?" A jovial fat man launched into conversation after his first sip of tea. "Chengxuan Street—these past few days—the Short Hairs leveled the whole thing. That Ah Zhu, you know him Boss Zhang, the owner of Qingyun Rice Noodle Shop—half his house is rubble now. Poor bastard's been threatening to hang himself. What a pack of motherless dogs, may their sons be born without assholes."
+"Gentlemen, have you heard?" A jovial fat man launched into conversation after his first sip of tea. "Chengxuan Street—these past few days—the Kun leveled the whole thing. That Ah Zhu, you know him Boss Zhang, the owner of Qingyun Rice Noodle Shop—half his house is rubble now. Poor bastard's been threatening to hang himself. What a pack of motherless dogs, may their sons be born without assholes."
 
 Everyone nodded vigorously—except for a young man in green robes, who looked around in bewilderment. Boss Zhang was a well-dressed elder with three strands of black beard adorning his chin, a man who believed that harmony bred wealth. He turned to address the youth in Mandarin: "He's saying that the Australians demolished all of Chengxuan Street these past few days. Boss Zhu of the rice noodle shop—a young man I once mentored—had half his house torn down and is now making a great show of trying to hang himself." The young man's confusion cleared, and he nodded his understanding. Boss Zhang then addressed the fat man in Mandarin: "Boss Wang, this is Young Master Li, a sea merchant from Southern Zhili. His family are old patrons of my humble establishment, Yehengxiang. Please show him some consideration."
 
 The fat man's cheeks flushed. Rising with teacup in hand, he switched to Mandarin: "My apologies, my apologies. Boss Li, please don't take offense. Allow me to punish myself with this cup of tea in lieu of wine." Young Li scrambled to his feet, fumbling across the table for his own cup. "I wouldn't dare accept such courtesy. This is my first time in your magnificent city, and I'll need everyone's guidance. Another day I shall host a proper banquet to thank you all." The two men drank to each other.
 
-A lean, sharp-featured man at the table seized on the opening. "Did the Short Hairs make off with a fortune then? All those valuables?"
+A lean, sharp-featured man at the table seized on the opening. "Did the Kun make off with a fortune then? All those valuables?"
 
-The fat man wiped his mouth with his sleeve. "Not at all! I have a sworn brother who's a runner for Nanhai County. He says the Short Hairs piled everything in the East Parade Ground. Pay the fine, and you can redeem your property. And those who demolished their own buildings within the first three days get to keep their things without penalty."
+The fat man wiped his mouth with his sleeve. "Not at all! I have a sworn brother who's a runner for Nanhai County. He says the Kun piled everything in the East Parade Ground. Pay the fine, and you can redeem your property. And those who demolished their own buildings within the first three days get to keep their things without penalty."
 
 Boss Zhang stroked his beard approvingly. "They mean what they say. That's rare. Clear rewards and punishments—even rarer."
 
@@ -36,7 +36,7 @@ How long the red flag would fly was a question not just for these tea drinkers, 
 
 "Indeed. And everyone knows Mad Cow here has been selling chicken congee to the Short Hair soldiers." Fat Shu shook his head. "I've warned him countless times—stop doing business with them. When the reckoning comes, who knows if any of us will survive, but Mad Cow here is definitely finished."
 
-"What do you know!" Mad Cow bristled, rapping his knuckles on the table with an air of superiority. "Listen here—unless the Short Hairs flee of their own accord, that rabble the Imperial Court calls an army couldn't touch them. Give them ten soldiers for every one Australian, and they'd still lose. Even the Guan-Ning Army can't compare."
+"What do you know!" Mad Cow bristled, rapping his knuckles on the table with an air of superiority. "Listen here—unless the Kun flee of their own accord, that rabble the Imperial Court calls an army couldn't touch them. Give them ten soldiers for every one Australian, and they'd still lose. Even the Guan-Ning Army can't compare."
 
 "Now you're just bragging!"
 
@@ -50,11 +50,11 @@ The table fell silent, each man involuntarily conjuring the image: a few hundred
 
 "So the claim that the Australians are only skilled with firearms is... completely false?" Young Master Li suddenly felt like a frog discovering the sky was larger than the mouth of his well.
 
-"What fool said that? Even if the Short Hair soldiers fought the Eastern Barbarians with no muskets or cannons at all, I'd bet on the Short Hairs."
+"What fool said that? Even if the Short Hair soldiers fought the Eastern Barbarians with no muskets or cannons at all, I'd bet on the Kun."
 
 "If what Ah Niu says is true," Boss Zhang said slowly, "then perhaps the Australians staying in Guangzhou for the long term isn't impossible after all."
 
-"More than that. The Short Hairs claim descent from the Song Dynasty. It wouldn't surprise me if they marched all the way to Kaifeng to claim the Dragon Throne."
+"More than that. The Kun claim descent from the Song Dynasty. It wouldn't surprise me if they marched all the way to Kaifeng to claim the Dragon Throne."
 
 Their discussion was interrupted by the sudden clamor of gongs from the street. Conversation died. The tea house waiter hurried outside to investigate, returning moments later with news: the tithing head of the Great South Gate suburb was passing by, beating his gong. "The Heavenly Army is marching through again," the man had announced. "Everyone stay calm. Those who want to watch may do so from behind the white line. Stay off the street itself, understood?"
 

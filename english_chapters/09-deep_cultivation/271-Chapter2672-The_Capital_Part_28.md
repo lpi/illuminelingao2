@@ -1,109 +1,109 @@
 # Chapter 2672: The Capital (Part 28)
 
-Zhou Lezhi didn't see the scene of choosing the name later. This scene was told to him by the Teacher when he received this name later. When telling him, the Teacher's face was grim, seeming to vaguely contain some kind of regret. But what exactly the Teacher was thinking, probably only the Teacher himself knew.
+Zhou Lezhi had not witnessed the scene of the name being chosen. He only learned of it later, when the Teacher recounted it to him upon bestowing that very name. During the telling, the Teacher's expression had been grim, shadowed by what seemed to be a vague regret. But what exactly weighed on the Teacher's mind—that, only the Teacher himself could know.
 
-Zhou Lezhi was chatting idly with Wang Liang on the stern deck at this time. Seeing Mr. Zhou coming out of Master Wang's cabin, he quickly followed. The two returned to their cabin, and Mr. Zhou ordered him to pack things up, preparing to depart.
+At this moment, Zhou Lezhi had been idly chatting with Wang Liang on the stern deck. When he spotted Mr. Zhou emerging from Master Wang's cabin, he hurried to follow. The two returned to their own quarters, where Mr. Zhou instructed him to pack their belongings in preparation for departure.
 
 "Where are we going?"
 
-"To Guangzhou!" Mr. Zhou's eyebrows danced with joy. "Aren't you a native of Guangzhou?"
+"To Guangzhou!" Mr. Zhou's face lit up with undisguised delight. "Aren't you a native of Guangzhou?"
 
-"Really?" Zhou Lezhi had been away from home for almost a year. Hearing they were going to Guangzhou at this moment, his spirit lifted. "This small one will pack right away!" After speaking, he began packing luggage in the cabin. Only then did he discover the two pairs of powder compacts taken from Master Wang were still in the cabin, so he quickly wrapped them in silk cloth, intending to return them.
+"Truly?" Zhou Lezhi had been away from home for nearly a year. At the mention of Guangzhou, his spirits soared. "I'll pack at once!" He set to work gathering their luggage, only to discover that the two pairs of powder compacts taken from Master Wang's cabin remained among their things. He quickly wrapped them in silk cloth, intending to return them.
 
-He walked across the gangplank to Master Wang's boat, walked along the gunwale walkway to the side of the central cabin, and was just about to return to the deck when he found Wang Liang, who usually stayed outside the central cabin door, was not there. There was no one on the deck either.
+He crossed the gangplank to Master Wang's vessel and made his way along the gunwale walkway toward the central cabin. Just as he was about to step onto the deck, he noticed that Wang Liang—who usually stood guard outside the cabin door—was nowhere to be seen. The deck itself was also deserted.
 
-"This Uncle Wang! Where did he go to slack off again!" Zhou Lezhi was secretly amused. This Wang Liang had hooked up with a servant woman recently and would go to unmanned places in the fleet to be affectionate whenever he was free. It was probably the case again now.
+"That Uncle Wang! Where has he slipped off to this time?" Zhou Lezhi thought with secret amusement. Wang Liang had recently taken up with a servant woman and would disappear to secluded corners of the fleet for romantic trysts whenever he found the opportunity. This was likely another such occasion.
 
-However, since Wang Liang wasn't there, he wasn't sure if he should disturb the Master for such a small matter as returning powder compacts. Just as he was hesitating, he suddenly heard someone speaking inside the cabin. It was exactly Liu Zhao's voice:
+However, with Wang Liang absent, Zhou Lezhi wasn't certain whether he should disturb the Master over something as trivial as returning powder compacts. As he stood hesitating, he suddenly heard voices from within the cabin. The speaker was unmistakably Liu Zhao:
 
 "...What other orders does the Master have?"
 
-"Escorting Jin and Wei south this time, you detour back to Shaoxing and bring a message to the Second Master. Just say: 'Second Uncle cannot inherit the title; find a way to make them shut up.' You must deliver this message personally. Don't let a second person know, and absolutely do not leave written evidence."
+"When you escort Jin and Wei southward, take a detour through Shaoxing and deliver a message to the Second Master. Tell him: 'Second Uncle cannot inherit the title; find a way to make them shut up.' You must deliver this message personally. Let no second person hear of it, and leave absolutely no written evidence."
 
-"Subordinate understands."
+"This subordinate understands."
 
-"There is one more thing you must arrange properly." Master Wang's voice became gloomy. "In a few days, I will send people to send Miss Wei and Mr. Jin in batches to settle in that new manor in Dongyang. You must send reliable hands to guard and protect them, keep them separately, order them to stay indoors and rarely go out, and do not leak news."
+"There is another matter you must arrange properly." Master Wang's voice turned cold and ominous. "In a few days, I will have people escort Miss Wei and Mr. Jin in separate batches to settle in that new manor in Dongyang. You must assign reliable men to guard and protect them. Keep them separated, order them to remain indoors with few outings, and ensure no word of their presence leaks out."
 
-"Yes! Subordinate prepares to arrange Chen Mo to guard there. He handles things properly and keeps his mouth tight."
+"Yes! I intend to assign Chen Mo to oversee the manor. He handles matters with discretion and keeps his mouth shut."
 
-"En..." Judging by the voice, the Master was relatively satisfied with this arrangement. Then there was silence, and Liu Zhao was not heard speaking either. Zhou Lezhi was nervous for a while. He knew eavesdropping on the master speaking was a great taboo. He wanted to leave, but this place was narrow and all made of boat planks; it was easy to bump and make noise. It would be even more inappropriate if he were heard.
+"Mm..." From his tone, the Master seemed satisfied with this arrangement. Silence followed, and Liu Zhao offered no further words. Zhou Lezhi's nerves drew taut. He knew that eavesdropping on the master's conversations was a grave transgression. He wanted to leave, but the narrow walkway was constructed entirely of boat planks—any movement risked a telltale creak or bump. Being discovered now would be far worse.
 
-After weighing the situation, he had to hold his breath and focus, shrinking his body into the shadows, waiting for the conversation to end.
+After weighing his options, he held his breath, pressing himself into the shadows to wait for the conversation to end.
 
-"Tell Chen Mo, around the twelfth lunar month I will send him a letter. If the letter says 'Need to send festival gifts to the capital for New Year, send thirty hams,' then everything is safe and sound; if it says 'Freezing weather, roads difficult, no need to send hams, send silver instead,' let him end the lives of Jin and Wei immediately."
+"Tell Chen Mo this: around the twelfth lunar month, I will send him a letter. If the letter says 'Need to send festival gifts to the capital for New Year, send thirty hams,' then all is well. But if it says 'Freezing weather, roads difficult, no need to send hams, send silver instead'—then let him end the lives of Jin and Wei immediately."
 
-Hearing this, Zhou Lezhi felt as if struck by lightning, his whole body stiff. Although he wasn't familiar with Mr. Jin and Miss Wei, the Master had treated them as honored guests these days, not only providing excellent supplies and being polite when meeting, but also arranging a place for them to settle during the day—yet at night he was already preparing to take their lives.
+The words struck Zhou Lezhi like a bolt of lightning. His entire body went rigid. Though he was not well acquainted with Mr. Jin or Miss Wei, the Master had treated them as honored guests these past days—not only providing them with excellent accommodations and greeting them with utmost courtesy, but even arranging a proper residence for them during the day. Yet here, under cover of night, he was already laying plans to take their lives.
 
-"As for that Sorcerer, when you arrive in Guangzhou Prefecture, if the treasure is found, you first find a way to detain him. Do not give it to that Rough Stock. Wait until you bring him back to the capital to make further plans. If this person makes any strange moves, I imagine you have ways to make him obedient." Wang Yehao gave critical instructions in an extremely low voice. However, the river was quiet at night, and the cabin wall was just wood with no sound insulation, so the single wall allowed Zhou Lezhi to hear clearly.
+"As for that Sorcerer, when you reach Guangzhou Prefecture, if the treasure is found, first find a way to detain him. Do not hand him over to that Rough Stock. Wait until you bring him back to the capital before making further decisions. Should this person attempt anything strange, I trust you have ways to ensure his obedience." Wang Yehao delivered these critical instructions in a voice barely above a whisper. But the river lay quiet at night, and the cabin wall was nothing more than thin wood with no insulation—every word carried clearly through to where Zhou Lezhi stood frozen.
 
-"Master rest assured. We Jinyiwei are not all noble relatives who just mess around for food." Liu Zhao replied.
+"Master may rest assured. We of the Jinyiwei are not all noble relatives who idle about collecting their stipends," Liu Zhao replied.
 
-"Watch the measure. Unless absolutely necessary, do not harm his life. If there is a situation, you can use your secret line to transmit the news to my Fourth Uncle."
+"Exercise restraint. Unless absolutely necessary, do not take his life. If a situation arises, use your secret channels to relay the news to my Fourth Uncle."
 
-After a moment of silence, Wang Yehao asked again, "With your connections in the capital, do you know any Feng Shui eccentrics? Must know their roots and bottom; don't want swindlers."
+After a moment of silence, Wang Yehao spoke again. "With your connections in the capital, do you know any Feng Shui eccentrics? Someone whose background you can vouch for—I don't want swindlers."
 
-Liu Zhao thought for a moment and said, "There is a clan brother who also serves in the Jinyiwei, called Liu Sha. His ancestors started by helping people look at *Yin* Residences [Graves]. It is said he has some real learning. I wonder what use the Master has?"
+Liu Zhao considered before answering. "I have a clan brother who also serves in the Jinyiwei, named Liu Sha. His ancestors made their living helping people survey *Yin* Residences [Graves]. He's said to possess genuine expertise. May I ask what purpose the Master has in mind?"
 
-"Good. You just write a recommendation note." Wang Yehao didn't explain the intention. Liu Zhao knew the rules and didn't probe further.
+"Good. Just write me a letter of recommendation." Wang Yehao offered no explanation, and Liu Zhao, knowing his place, did not press further.
 
-Cold sweat broke out on Zhou Lezhi's back. It seemed his own Teacher was temporarily safe, but this Master acted so ruthlessly. If the Teacher had any issues in the future, he would probably be "ended" mercilessly too.
+Cold sweat trickled down Zhou Lezhi's back. It seemed his own Teacher was safe for the moment, but this Master acted with such ruthlessness. If the Teacher encountered any difficulties in the future, he would likely be "ended" with equal mercilessness.
 
-"How are that Procuress and Youqing?"
+"How are matters with that Procuress and Youqing?"
 
-"Already settled. The Procuress offered Youqing up, and Prefect Zhou let her off the hook, closing the case as theft." There was some envy in Liu Zhao's words. "We men encountered danger, but let him pick up a big bargain! Getting a great beauty for free. Miss Youqing's price is at least one or two thousand taels of silver!"
+"Already settled. The Procuress offered up Youqing, and Prefect Zhou let her off the hook, closing the case as a simple theft." A note of envy crept into Liu Zhao's voice. "We men faced danger, yet he's the one who walked away with the prize! Getting such a beauty for nothing. Miss Youqing's price would be at least one or two thousand taels of silver!"
 
-"Hehe, Master Zhou won't keep her for himself. Such a courtesan queen is not something ordinary people can enjoy..."
+"Hehe, Master Zhou won't be keeping her for himself. A courtesan queen of that caliber isn't something ordinary men can enjoy..."
 
-"I wonder which Master has such romantic fortune."
+"I wonder which distinguished gentleman has such romantic fortune."
 
-"Hehe, you dog talent, what does it have to do with you!" Master Wang laughed. "Don't think about these existent or non-existent things. Do your errand well. If things are done well, your benefits won't be lacking!"
+"Hehe, you scoundrel—what business is it of yours!" Master Wang laughed. "Stop dreaming about things that don't concern you. Do your job well. If you succeed, your rewards won't be lacking!"
 
-"Yes, many thanks to the Master for cultivation!"
+"Yes, many thanks to the Master for his patronage!"
 
-Liu Zhao took his leave and came out. Zhou Lezhi waited for a long time more. Seeing no more movement inside the cabin or on the deck, he lowered his body and crawled back to Mr. Zhou's boat using both hands and feet.
+Liu Zhao took his leave and departed. Zhou Lezhi waited a long while more. When he was certain there was no further movement inside the cabin or on the deck, he lowered himself and crawled back to Mr. Zhou's boat on hands and knees.
 
-Mr. Zhou knew nothing about this, packing his own things happily as usual.
+Mr. Zhou knew nothing of any of this and continued packing his belongings in cheerful spirits.
 
-There weren't many things to prepare here. Mr. Zhou's two maids had already packed properly. Mr. Zhou didn't plan to take the two maids to Guangzhou this time—taking female family members on such a long journey was neither convenient nor safe. The Teacher had to bear the pain of parting, asking the Wang residence people heading south to send them back to the Dongyang manor. However, at parting, the Teacher still said to them with deep affection: "Zhiling, Jieyi, if you get pregnant, I will be responsible!"
+There wasn't much to prepare on their end. Mr. Zhou's two maids had already organized everything properly. The Teacher had decided against bringing them to Guangzhou this time—taking female companions on such an extended journey was neither convenient nor safe. Reluctantly, he arranged for the Wang household's southbound party to escort them back to the Dongyang manor. Still, at the moment of parting, the Teacher addressed them with earnest emotion: "Zhiling, Jieyi, if you get pregnant, I will take responsibility!"
 
-If it were in the past, seeing the Teacher's wretched appearance, Zhou Lezhi would have snickered. But the things he heard today impacted him greatly. The life he once felt had a bright future became dim and lightless.
+In the past, seeing the Teacher's shameless behavior would have drawn a snicker from Zhou Lezhi. But what he had overheard today weighed heavily upon him. The life he had once believed held a bright future now seemed dim and shrouded in shadow.
 
-The next day, Mr. Zhou's group transferred to a small boat heading west, traveling west along the Yangtze River. The scenery on both banks of the Yangtze was magnificent, but the Teacher had no mood to enjoy it, only hating that this water route was too slow. Hearing his complaints, Liu Zhao came out to explain: "Although post horses can travel two or three hundred *li* a day, one requires proficient riding skills, which I fear the Teacher can't handle. If taking a sedan chair, we have to stop and stay in inns at night. But water routes only need the boatmen to rotate, allowing day and night travel. Moreover, we have few people and the boat is light; overall, it's faster than taking a carriage."
+The following day, Mr. Zhou's party transferred to a smaller vessel heading west, traveling along the Yangtze River. The scenery on both banks was magnificent, but the Teacher had no mood to appreciate it, only lamenting that this water route was far too slow. Hearing his complaints, Liu Zhao came forward to explain: "Although post horses can cover two or three hundred *li* in a day, that requires proficient riding skills—which I fear the Teacher lacks. If we traveled by sedan chair, we would need to stop and lodge at inns each night. The water route, however, allows the boatmen to work in shifts, enabling travel both day and night. Moreover, our party is small and the boat rides light; all things considered, this is faster than going by carriage."
 
-Hearing Liu Zhao say this, the Teacher had no choice but to sit at the bow all day, putting on a look of gazing through wearing eyes. Until one day, he suddenly jumped up from the bow and hurriedly called Zhou Lezhi: "Quickly prepare the four treasures of the study!"
+Faced with this reasoning, the Teacher had no choice but to resign himself to sitting at the bow each day, wearing a look of anxious longing as he gazed at the distant horizon. Then one afternoon, he suddenly leaped up from his spot at the bow and called urgently to Zhou Lezhi: "Quick, prepare the four treasures of the study!"
 
-Back in the cabin, he leaned over the table writing and drawing for half a day, then said confidently to Zhou Lezhi: "Look, I plan to add two paddle wheels to the boat. By pedaling with human power, we can accelerate! There are many similar pedal boats in parks. I calculated; the efficiency should be okay."
+Back in the cabin, he bent over the table, sketching and calculating for the better part of the day. Finally, he announced with confidence: "Look at this. I plan to add two paddle wheels to the boat. By pedaling with human power, we can accelerate! There are many similar pedal boats in parks. I've done the calculations—the efficiency should be acceptable."
 
-Zhou Lezhi listened in confusion, looked at the full paper of patterns, scratched his head, and said, "What park is the Teacher talking about? And what is a pedal boat..."
+Zhou Lezhi listened in bewilderment. He studied the paper covered in diagrams, scratched his head, and asked, "What park is the Teacher referring to? And what exactly is a pedal boat?"
 
-"This sheet is the calculation process; the back pages are three-view drawings." Zhou Lezhi explained patiently, "It means looking from the front, looking from above, looking from the side. Haven't drawn for a long time, but the meaning shouldn't be wrong. How is it? Very vivid, right? How about finding a carpenter when we dock to rest tonight, and I'll explain to him."
+"This page shows the calculation process; the following pages are three-view drawings," Mr. Zhou explained patiently. "Views from the front, from above, and from the side. It's been a while since I've drawn these, but the concept should be clear enough. How does it look? Quite vivid, wouldn't you say? Perhaps we could find a carpenter when we dock tonight, and I'll explain it to him."
 
-Zhou Lezhi thought this Teacher really came up with one thing after another. Where to find a carpenter on this journey, and installing wheels on the boat—the boat owner wouldn't agree either. But having followed the Teacher for these days, he was already very familiar with his personality. Three-view drawings were not unfamiliar to him either. He examined the drawing carefully, roughly understood the meaning, and said, "Is this paddle wheel similar to a waterwheel?"
+Zhou Lezhi thought to himself that this Teacher truly produced one wild notion after another. Where would they find a carpenter on this journey? And mounting wheels on the boat—the boat owner would never agree to such a thing. But having followed the Teacher for some time now, he had grown quite familiar with his temperament. Three-view drawings were not unfamiliar to him either. He examined the sketches carefully, grasped the general idea, and ventured, "Is this paddle wheel similar to a waterwheel?"
 
-"Right, right, you are very perceptive!" The Teacher was quite excited. "If I draw like this, can the carpenter understand?"
+"Exactly! You're quite perceptive!" The Teacher grew animated with excitement. "If I draw it this way, do you think a carpenter could understand it?"
 
-"The carpenter should have no problem. Only, with this object of the Teacher, can we travel a thousand *li* a day?"
+"A carpenter should have no difficulty. Only—with this device of the Teacher's, could we travel a thousand *li* in a day?"
 
 "No."
 
 "A hundred *li*?"
 
-"Choking [Struggling/Unlikely]."
+"Unlikely."
 
-"Then installing it is useless. Besides, stopping the boat to install takes time, and after installing, we need more boatmen..."
+"Then what use would installing it serve? Besides, stopping the boat to install it would cost time, and afterward we'd need additional boatmen..."
 
-Hearing this, Liu Zhao laughed, "If the Teacher is anxious, I'll just give the boatmen more wine money and let them row faster."
+At this, Liu Zhao laughed. "If the Teacher is anxious, I'll simply offer the boatmen extra wine money and have them row faster."
 
-After sending off the Hearthstone Daoist's group, Wang Yehao didn't rush back to the capital. Instead, he stayed in Yangzhou for a few more days, finding opportunities to associate with Tian Hongyu. He intended to win over this future "Imperial Father-in-Law" mentioned by Mr. Zhou. Not only did he quietly gift him a heavy present, but he also hinted to Prefect Zhou to give Youqing to Tian Hongyu.
+After seeing off the Hearthstone Daoist's party, Wang Yehao did not hurry back to the capital. Instead, he lingered in Yangzhou for several more days, seeking opportunities to cultivate a relationship with Tian Hongyu. He intended to win over this man who, according to Mr. Zhou's account, was destined to become an "Imperial Father-in-Law." Not only did he present him with lavish gifts in private, but he also hinted to Prefect Zhou that Youqing should be given to Tian Hongyu.
 
-Tian Hongyu came from a martial background. Although he was quite famous in the pursuit of sensuality and was a royal relative, and had some friends in officialdom, most civil officials from the imperial examination background actually didn't regard him highly, treating him as a class of spongers.
+Tian Hongyu came from a martial background. Though he was fairly well-known in the pursuit of pleasure and counted as a royal relative with some connections in officialdom, most civil officials who had risen through the imperial examinations did not truly regard him as their equal, treating him instead as one of the idle hangers-on at court.
 
-Now this Master Wang not only respected him very much but also presented heavy gifts. Tian Hongyu felt quite flattered. Although he knew the other party intended to win him over, he actually had no place to repay. Although he was a royal relative, his daughter was just a side consort of Prince Xin—to be honest, even the proper consort Zhou's father, or even the current Empress Zhang's father, didn't count as any red-hot figures. This made Tian Hongyu both touched and uneasy.
+Now this Master Wang not only showed him great respect but also presented valuable gifts. Tian Hongyu found himself quite flattered. He understood, of course, that the other party intended to cultivate his favor—yet he could not fathom what he might offer in return. Though he was a royal relative, his daughter was merely a secondary consort of Prince Xin. To speak plainly, even the father of the proper consort, Lady Zhou, or even the father of the current Empress Zhang, could not be considered particularly influential figures. This left Tian Hongyu both moved and uneasy.
 
-When Wang Yehao headed north, Tian Hongyu went to the pier to see him off, mentioning that he received much grace from Master Wang but had no way to repay, which truly made him ashamed. Wang Yehao laughed:
+When Wang Yehao departed for the north, Tian Hongyu went to the pier to see him off. He spoke of how he had received much kindness from Master Wang yet had no means to repay it, a situation that truly left him ashamed. Wang Yehao laughed warmly:
 
-"Master Tian, a lucky man has his own heavenly aspect. Right now is just a time of bad luck. In the future, great fortune will surely strike the head. Probably before long, you and I can still meet in the capital."
+"Master Tian, a fortunate man is blessed by heaven itself. Right now is merely a period of ill luck. In the future, great fortune will surely descend upon you. Before long, I expect you and I shall meet again in the capital."
 
-"Then I'll take Master Wang's auspicious words." Tian Hongyu didn't know the meaning in his words but felt they contained Zen logic. He dared not ask more and bowed to the ground immediately. "Wishing Master Wang smooth winds all the way and rising step by step!"
+"Then I shall embrace Master Wang's auspicious words." Tian Hongyu did not fully comprehend the meaning behind these words, though he sensed they contained some deeper wisdom. He dared not inquire further and immediately bowed low to the ground. "Wishing Master Wang fair winds all the way and ever-rising fortune!"
 
 **(End of Chapter)**

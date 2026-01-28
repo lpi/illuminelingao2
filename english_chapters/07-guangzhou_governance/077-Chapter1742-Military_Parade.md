@@ -8,7 +8,7 @@ The Zhang family's walnut cookie shop, like most establishments in Guangzhou, ha
 
 "Special or not doesn't matter. What matters is they've received the golden seal of Australian approval," Boss Zhang replied. "You have to place orders days in advance now—otherwise they're sold out."
 
-"I know Old Zhang's shop. Tiny place, though it's been around forever. Mediocre business—his family used to mix in stale goods from the previous year. Only penny-pinchers and tea houses that didn't know better bought from them." A knowing pause. "However did they catch the Short Hairs' discerning eye?"
+"I know Old Zhang's shop. Tiny place, though it's been around forever. Mediocre business—his family used to mix in stale goods from the previous year. Only penny-pinchers and tea houses that didn't know better bought from them." A knowing pause. "However did they catch the Kun' discerning eye?"
 
 "I hear Shopkeeper Zhang's son went to the Great World of Yifan and became sworn brothers with some of the Australians..."
 

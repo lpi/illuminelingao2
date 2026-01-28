@@ -1,105 +1,105 @@
 # Chapter 2676: The Capital (Part 32)
 
-Wang Yehao unfolded the paper strip sent by Wang Liang—it was the secret report sent back by Liu Zhao from Guangzhou: departure for the return to the capital was set for the third of this month. Practicaly, the heart that had been suspended for more than three months was finally put down. In the previous planning, what Wang Yehao was most unsure of was exactly how powerful the Hearthstone Immortal's ability of foreknowledge was. If he really had the ability to foresee the future, this calculation might be known by the other party, and the matter of recruitment would fall through.
+Wang Yehao unfolded the paper slip that Wang Liang had delivered—a secret report from Liu Zhao in Guangzhou: the departure for the return to the capital was set for the third of this month. The heart that had hung suspended for more than three months could finally rest. In all his previous planning, what had troubled Wang Yehao most was determining the true extent of the Hearthstone Immortal's powers of foreknowledge. If the man truly possessed the ability to see the future, this entire scheme might already be known to him, and the recruitment would come to nothing.
 
-Wang Yehao recalled the Hearthstone Immortal's way of acting and always felt it was vaguely strange. Although he could always predict the direction of the court situation correctly, he seemed to have no supernatural power regarding other matters. Whether it was being caught practicing medicine in Guangzhou Prefecture, being assassinated in the Yangzhou brothel, or failing to find the Universe Mirror, all signs indicated that the Immortal's predictive ability had great limitations. Therefore, Wang Yehao had a bold guess: this person might only be able to interpret matters in the Book of Life and Death, and knew nothing about the rest.
+Wang Yehao reflected on the Hearthstone Immortal's patterns of behavior, and something had always struck him as subtly strange. Although the Immortal could invariably predict the direction of court affairs with uncanny accuracy, he seemed to possess no supernatural insight regarding other matters. Whether it was being caught practicing medicine in Guangzhou Prefecture, surviving an assassination attempt at the Yangzhou brothel, or failing to locate the Universe Mirror—all these incidents suggested that the Immortal's predictive abilities had significant limitations. This led Wang Yehao to a bold conjecture: perhaps this man could only interpret matters contained within the Book of Life and Death, and knew nothing beyond that.
 
-At the beginning of the year, Wang Yehao sent out the news. The first layer was to make him return as soon as possible; the second was to take the opportunity to test. He informed him that a maid was pregnant, while secretly letting Liu Zhao watch his reaction. According to the news sent back by Liu Zhao, Mr. Zhou seemed not to suspect anything and immediately urged for the return journey. Wang Yehao pondered for a while and decided to continue the next step of the plan.
+At the beginning of the year, Wang Yehao had sent word to him. The first purpose was to hasten his return; the second was to test his abilities. He informed Zhou that a maid had become pregnant, while secretly instructing Liu Zhao to observe his reaction. According to the reports Liu Zhao sent back, Mr. Zhou appeared to harbor no suspicions and immediately pressed to begin the journey home. Wang Yehao pondered this for some time before deciding to proceed with the next phase of his plan.
 
-After Liu Sha settled the two maids, he received no new instructions. Except for sending some rice, flour, vegetables, meat, and money every month according to orders, he didn't ask further—there were special personnel responsible for the guarding and care now. Although there was temporarily no mission, the monthly silver from the Wang family was not short, calculating to be even richer than before. So Liu Sha was happy to be at leisure, continuing to sell divination and read faces in the capital, secretly inquiring about various news.
+After Liu Sha had settled the two maids in their new residence, he received no further instructions. Aside from delivering rice, flour, vegetables, meat, and monthly stipends as ordered, he made no inquiries—specialized personnel had been assigned to handle the guarding and care. Though he had no active mission at present, his monthly silver from the Wang family continued without interruption, and calculating it out, he found himself even better off than before. Liu Sha was content to enjoy this leisure, continuing to sell divinations and read faces throughout the capital while discreetly gathering intelligence.
 
-Liu Sha usually rented and lived in the Dongyue Temple. In his early years, he also had a family, but unfortunately, his wife and son both caught a malignant disease a few years ago and passed away one after another within a few days. Liu Sha felt it might be that his trade damaged hidden virtues and was unfavorable to the family home. Having worked in this trade for a long time, he also took the family line lightly, so he didn't have the thought of marrying and having children again, living a life where one person eating full meant the whole family not hungry.
+Liu Sha typically rented quarters in Dongyue Temple. In his younger years, he had maintained a household, but tragically, his wife and son had both contracted a virulent illness a few years past and died within days of each other. Liu Sha suspected his trade had damaged his hidden virtues and brought misfortune upon his home. Having worked in this profession for so long, he had come to view family lineage lightly, and so he harbored no thoughts of remarrying or fathering children again. He lived the life of a solitary man—when he ate his fill, the whole family was fed.
 
-On this day after getting up, he was packing things preparing to set up the stall. Wang Liang suddenly came finding him, saying the Master wanted to go for an outing tomorrow, and also said it might rain tomorrow, asking him to bring rain gear.
+One morning after rising, as he was packing his things to set up his stall, Wang Liang suddenly appeared seeking him out. The Master wished to go on an outing tomorrow, he said, and mentioned it might rain—Liu Sha should bring rain gear.
 
-Saying it was an outing, it was actually going to the place where the maids lived. This was their agreed secret code.
+The "outing" actually meant visiting the residence where the maids lived. This was their agreed-upon code.
 
-The second day, Wang Yehao disguised himself, took a small sedan chair carried by two bearers, brought only a few trusted servants and an empty sedan chair, and under Liu Sha's accompaniment, came to the residence of the two maids.
+The following day, Wang Yehao disguised himself and took a small sedan chair carried by two bearers. Accompanied by only a handful of trusted servants and an empty sedan chair, he traveled under Liu Sha's guidance to the maids' residence.
 
-The residence was near Xuanwumen, not far from the Wanggongchang which exploded two years ago. When the explosion happened, households in this area suffered severe damage. Many houses collapsed. Just according to official statistics, "more than ten thousand nine hundred and thirty rooms collapsed, crushing to death five hundred and thirty-seven men and women." As for damaged houses, they were countless.
+The dwelling stood near Xuanwumen, not far from the Wanggongchang arsenal that had exploded two years prior. When the blast occurred, households throughout this district had suffered catastrophic damage. Countless houses collapsed. According to official records alone, "more than ten thousand nine hundred and thirty rooms collapsed, crushing to death five hundred and thirty-seven men and women." As for damaged structures, they were beyond counting.
 
-At this time, it was not more than two years since the explosion. The markets here hadn't recovered yet, and ruins still remained by the streets. Whether officials, gentry, or commoners, generally felt this place was unlucky. Those with some wealth mostly moved away from here, so the popularity was low and the location desolate. When Liu Sha was ordered to take over this courtyard, he considered picked up a bargain. The residence wasn't big, totaling only two entrances front and back. Besides Jieyi and Zhiling living there, there were four servants ordered to "care for" them here, so it appeared empty.
+Less than two years had passed since the explosion. The markets here had yet to recover, and ruins still lined the streets. Officials, gentry, and commoners alike regarded this place as ill-omened. Those with any means had mostly relocated elsewhere, leaving the area sparsely populated and desolate. When Liu Sha had been ordered to secure this courtyard, he considered it a stroke of fortune. The residence was modest—only two courtyards, front and back. Besides Jieyi and Zhiling living there, four servants had been assigned to "care for" them, which left the compound feeling rather empty.
 
-The two maids had been bored in the new house for more than three months. Finally seeing the Master coming, they hurriedly came forward to pay respects. Wang Yehao ordered them to close the main gate first, then come to the inner court to serve.
+The two maids had been confined to this new house for over three months. When they finally saw the Master arrive, they hurried forward to pay their respects. Wang Yehao ordered them to close and bar the main gate first, then attend him in the inner court.
 
-After closing the door and bolting it, Zhiling asked Jieyi in a small voice filled with apprehension: "Sister Jieyi, Master Wang wouldn't be coming to take us, right? Do you think we still follow Mr. Zhou?"
+After closing and bolting the door, Zhiling asked Jieyi in a small, apprehensive voice: "Sister Jieyi, Master Wang wouldn't be coming to take us as his own, would he? Do you think we still belong to Mr. Zhou?"
 
-"Don't talk nonsense. We servants just do whatever the Master says." Jieyi didn't hold much hope for Mr. Zhou's return either. However, the Master might not necessarily take them into his room; it was more likely he would just transfer and gift them to someone else.
+"Don't talk nonsense. We servants simply do whatever the Master commands." Jieyi held little hope for Mr. Zhou's return either. However, the Master might not necessarily take them into his chambers; more likely, he would simply transfer them as gifts to someone else.
 
-"You say Mr. Zhou hasn't had news for half a year; has he forgotten us long ago? I see the Master checking fate and buying a house before; maybe he really wants to take us." Zhiling spoke more and more excitedly along the way, her small face blushing red.
+"You know Mr. Zhou hasn't sent word for half a year—surely he's forgotten all about us by now? I noticed how the Master consulted fortune-tellers and purchased this house beforehand; perhaps he truly intends to take us." Zhiling grew more animated as she spoke, her small face flushing red.
 
-Entering the room, seeing the Master sitting upright in the center, the two hurriedly bowed. Wang Yehao let the two rise with a face calm as an ancient well, then asked Jieyi as if chatting about domestic trivia: "Are you used to living here?"
+Upon entering the room and seeing the Master seated composedly in the center, the two hastily bowed. Wang Yehao, his expression tranquil as still water, bade them rise. Then, as though making casual conversation, he asked Jieyi: "Have you grown accustomed to living here?"
 
-"Reporting to the Master, this slave is used to it." Jieyi answered with her head down.
+"Reporting to the Master, this slave has grown accustomed to it." Jieyi answered with her head bowed.
 
-"And you?" Wang Yehao smiled and asked Zhiling again.
+"And you?" Wang Yehao smiled and turned to Zhiling.
 
-"Reporting to the Master, food and lodging are all good, just a bit desolate. It's hard to even find a neighbor here; only Nanny Chen can still exchange a few words."
+"Reporting to the Master, the food and lodging are both satisfactory, only it's rather desolate. One can hardly find a neighbor here; only Nanny Chen comes by to exchange a few words."
 
-"Oh? Who is this Nanny Chen?" Wang Yehao asked with interest.
+"Oh? And who is this Nanny Chen?" Wang Yehao asked with apparent interest.
 
-"She is an old widow from the front street. Her daughter married, and she usually lives alone, occasionally coming to chat idly."
+"She's an old widow from the front street. Her daughter has married, and she usually lives alone. She comes by occasionally to chat."
 
-"Hehe, are there other neighbors here?"
+"Hehe, are there any other neighbors about?"
 
-"No more, even Nanny Chen doesn't come often..."
+"No, there aren't. Even Nanny Chen doesn't come often..."
 
-Liu Sha didn't wait for Zhiling to finish speaking, coughed once, and scolded Jieyi: "How did you serve Mr. Zhou before? The Master is here, and you don't even prepare tea?!"
+Liu Sha cut in before Zhiling could finish, coughing once and scolding Jieyi: "How did you serve Mr. Zhou before? The Master is here, and you haven't even prepared tea?!"
 
-Jieyi hurriedly said: "The water was just put on to boil; this slave goes to urge it right away!" After speaking, she quickly withdrew out of the room to check if the water on the wind stove boiled, leaving Zhiling, who hadn't finished speaking, in the room. Seeing Jieyi sent away, Zhiling felt even more that the Master was interested in her, continuing to chatter about some market gossip intermittently, lifting her head from time to time to steal a few glances at Wang Yehao's reaction.
+Jieyi hastily replied: "The water was just put on to boil; this slave will go check on it immediately!" She quickly withdrew from the room to see whether the water on the wind stove had boiled, leaving Zhiling—mid-sentence—alone in the room. Finding herself suddenly without her companion, Zhiling felt all the more certain that the Master had taken an interest in her. She continued chattering about various market gossip, lifting her head from time to time to steal glances at Wang Yehao's reaction.
 
-Wang Yehao listened to Zhiling's report patiently for a while, then turned to Liu Sha guarding aside and said: "Does the Teacher still remember the matter of selecting people before?"
+Wang Yehao listened patiently to Zhiling's prattle for a while, then turned to Liu Sha standing nearby and said: "Does the Teacher still remember the matter of selecting candidates we discussed before?"
 
-Liu Sha cupped his hands in response: "Remember."
+Liu Sha cupped his hands in acknowledgment: "I remember."
 
 "Handle it now."
 
-Hearing this, Liu Sha was stunned first, then understood. He took out a pill from his bosom and said to Zhiling with a smile: "Miss, Poor Daoist saw your complexion was poor earlier, fearing hidden illness, so we specially settled you here to recuperate. Today prepared a Golden Phoenix Pill, which can solidify the foundation and cultivate the origin, nourish Yin and tonify Yang."
+Hearing this, Liu Sha was momentarily taken aback, then understood. He withdrew a pill from inside his robe and addressed Zhiling with an amiable smile: "Miss, this Poor Daoist noticed earlier that your complexion appeared poor. Fearing some hidden ailment, we arranged for you to recuperate here. Today I've prepared a Golden Phoenix Pill, which solidifies the foundation and cultivates one's vital essence, nourishing Yin and fortifying Yang."
 
-Zhiling took the pill with a heart full of joy and asked: "Sister Jieyi doesn't get one?"
+Zhiling accepted the pill with a heart brimming with delight and asked: "Doesn't Sister Jieyi get one?"
 
-Liu Sha said with a kind face: "You just take it; she doesn't have this fortune."
+Liu Sha replied with a benevolent expression: "Just take it yourself; she lacks the fortune for such things."
 
-Seeing Wang Yehao also nodded slightly, Zhiling's brain was left with only thoughts of inviting favor. Where would she harbor half a doubt? Not waiting for tea water, she swallowed the pill in one gulp. Within a moment, she felt dizzy and short of breath. Before she could shout once, she collapsed to the ground. At this time, Jieyi happened to push the door in with prepared tea and snacks. Seeing this scene, she stood wooden on the spot, overwhelmed. Liu Sha was alert, rushing forward in two steps, supporting Jieyi, and covering her mouth and nose. Jieyi only felt a burst of strange fragrance, then her neck was hit heavily, and subsequently, her whole body went soft and lost strength.
+Seeing that Wang Yehao also gave a slight nod, Zhiling's mind was consumed entirely with thoughts of currying favor. How could she harbor even a shred of doubt? Without waiting for tea, she swallowed the pill in one gulp. Within moments, she felt dizzy and short of breath. Before she could utter a single cry, she crumpled to the ground. At that very moment, Jieyi pushed through the door carrying a tray of prepared tea and snacks. Seeing the scene before her, she froze where she stood, overwhelmed. Liu Sha moved swiftly, crossing the room in two strides. He caught Jieyi and clamped a hand over her mouth and nose. Jieyi caught only a whiff of some strange fragrance before a sharp blow struck the back of her neck. Her entire body went limp, all strength draining away.
 
-"I have already taken one soul and one spirit [*Hun* and *Po*] from you. Advise you not to struggle, to avoid suffering." Liu Sha placed Jieyi diagonally on the chair, then warned.
+"I have already taken one of your *Hun* souls and one of your *Po* spirits from you. I advise you not to struggle, lest you suffer needlessly." Liu Sha positioned Jieyi diagonally on the chair, then issued his warning.
 
-"Don't be afraid. This Official actually has a matter of wealth and honor to discuss with you." Seeing Jieyi controlled, Wang Yehao began to sing the red face [good cop]. "If you act according to this Official's plan, I guarantee you worry-free food and clothing, glory and wealth."
+"Do not be afraid. This Official actually has a proposition of wealth and honor to discuss with you." Seeing Jieyi subdued, Wang Yehao assumed the role of the benevolent party. "If you act according to this Official's plan, I guarantee you a life free of want—food, clothing, glory, and riches."
 
-Although Jieyi was weak all over, her mind was still clear. Seeing Zhiling collapsed on the ground obviously lifeless, where would she have the guts to disobey? Trembling, she said: "This slave relies entirely on the Master's orders."
+Though Jieyi's body was weak throughout, her mind remained clear. Seeing Zhiling sprawled on the floor, obviously lifeless, how could she dare disobey? Trembling, she said: "This slave submits entirely to the Master's orders."
 
-"Good." Wang Yehao stroked his beard and whiskers, continuing: "This time Zhiling died of difficult childbirth, but left a baby girl. Handed to you to raise, you must care for her well. Remember?"
+"Good." Wang Yehao stroked his beard and continued: "This time, Zhiling died in difficult childbirth, but she left behind a baby girl. She will be entrusted to you to raise, and you must care for her well. Do you understand?"
 
-"This slave remembers." Jieyi answered weakly.
+"This slave understands." Jieyi answered weakly.
 
-"When Mr. Zhou returns, speak according to this. In the future, if you have a son, this girl is not a concern; this Official will help you become the Main Wife." Wang Yehao's face sank immediately, pointing viciously at Zhiling on the ground and continuing, "If you are long-tongued like her, go to the Underworld to keep her company."
+"When Mr. Zhou returns, you will speak according to this account. In the future, if you bear him a son, this girl will be of no concern; this Official will help you become the Principal Wife." Wang Yehao's expression darkened immediately. He pointed viciously at Zhiling's body on the floor and continued, "But if you prove as loose-tongued as she was, you will go to the Underworld to keep her company."
 
-"This slave dares not speak too much."
+"This slave dares not speak a word too many."
 
-Wang Yehao stared at Jieyi for a while, then nodded to Liu Sha. Liu Sha recited a spell to Jieyi unhurriedly, then said: "This spell method limits you for half an hour, after which your hands and feet will return to normal. However, your soul and spirit will remain with the Poor Daoist for now as a thought."
+Wang Yehao fixed his gaze on Jieyi for a long moment, then nodded to Liu Sha. Liu Sha recited an incantation over Jieyi in measured tones, then said: "This spell restricts you for half an hour, after which your hands and feet will return to normal. However, your *Hun* soul and *Po* spirit will remain with this Poor Daoist for the time being, as insurance."
 
-"Beg the Master to spare this slave." Jieyi begged for mercy with a crying tone.
+"This slave begs the Master to spare her." Jieyi pleaded, her voice breaking.
 
-"Just do as told; this Official naturally won't harm you." Wang Yehao said to Jieyi unquestionably, then instructed Liu Sha, "In a few days when the child is sent, I will send wet nurses and servants to serve. Clean up this place. Remember to make Nanny Chen shut up."
+"Simply do as you're told, and this Official will naturally not harm you." Wang Yehao spoke to Jieyi with finality, then instructed Liu Sha, "In a few days when the child is delivered, I will send wet nurses and servants to attend. Clean up everything here. And make certain that Nanny Chen keeps her mouth shut."
 
-Liu Sha agreed to the items one by one. Immediately, he stuffed Zhiling into the sedan chair and instructed the bearers to carry her back to the residence quietly. After half an hour, seeing Jieyi had recovered, he left quietly.
+Liu Sha acknowledged each instruction in turn. Without delay, he stuffed Zhiling's body into the sedan chair and directed the bearers to carry her back to the residence in silence. After half an hour had passed and he confirmed that Jieyi had recovered, he slipped away quietly.
 
-The next day, Liu Sha didn't set up the stall. After going out, he went straight south out of the city.
+The following day, Liu Sha did not set up his stall. After leaving his quarters, he headed straight south out of the city.
 
-Outside Yongdingmen, refugees fleeing the spring famine from all directions gathered in crowds in front of the porridge factories set up by the government and benevolent bureaus. Liu Sha threaded through the crowd familiarly. After passing through the crowd, he crossed a desolate public graveyard until he stopped in front of a dilapidated small temple. A beggar lying against the wall base sunbathing recognized Liu Sha and quickly got up to welcome him: "Yo, Liu Mutou, haven't seen you for days. Why come today?"
+Outside Yongdingmen, refugees fleeing the spring famine from all directions had gathered in crowds before the porridge kitchens established by the government and charitable bureaus. Liu Sha wove through the throng with practiced ease. After passing through the mass of people, he crossed a desolate public graveyard until he stopped before a dilapidated small temple. A beggar lounging against the wall in the sun recognized Liu Sha and quickly scrambled to his feet to greet him: "Yo, Liu Mutou, haven't seen you in days. What brings you here today?"
 
-"Hehe, what else can I be here for? Is Wu Hai in?"
+"Hehe, what else would bring me? Is Wu Hai in?"
 
-"Picking stones inside." The beggar led Liu Sha into the door.
+"Picking stones inside." The beggar led Liu Sha through the entrance.
 
-Liu Sha bypassed the main hall to the backyard. A man about thirty was fiddling with several delirious young children, occasionally drawing some marks on their limbs and faces. Seeing Liu Sha enter, the man didn't stop the work in his hands, only nodding to greet, continuing to hum and sing: "Harvesting from famine years, cutting fortune and longevity..."
+Liu Sha bypassed the main hall and made his way to the backyard. A man of about thirty was handling several dazed, delirious young children, occasionally marking symbols on their limbs and faces. Seeing Liu Sha enter, the man didn't pause in his work but merely nodded in greeting, continuing to hum and sing: "Harvesting from famine years, cutting fortune and longevity..."
 
-"Wu Hai, any new goods?" Liu Sha stepped forward and asked.
+"Wu Hai, any new merchandise?" Liu Sha stepped forward and asked.
 
-"All here. What kind do you want?"
+"All here. What kind are you looking for?"
 
-"Want a baby girl, cleaner. Four or five months old." Liu Zhao started picking as he spoke, seeming not to find suitable ones.
+"I need a baby girl, clean. Four or five months old." Liu Sha began examining the children as he spoke, but appeared unable to find a suitable one.
 
-"Yo, which Master wants to refine medicine guide this time?" Wu Hai rubbed his hands with a smile. "There happens to be a pair of brother and sister in the back. Go take a look."
+"Yo, which Master needs to refine a medicine catalyst this time?" Wu Hai rubbed his hands together with a knowing smile. "There happens to be a pair of siblings in the back. Go have a look."
 
 **(End of Chapter)**

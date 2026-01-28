@@ -1,89 +1,91 @@
 # Chapter 2673: The Capital (Part 29)
 
-A few days after the fleet left Yangzhou, Jin Wenchi's forgery project was successfully completed. Several carefully crafted documents were placed on the table, making Wang Yehao click his tongue in wonder: "I didn't expect the Teacher to have such craftsmanship; it can be called divine workmanship and ghostly axe."
+A few days after the fleet departed Yangzhou, Jin Wenchi's forgery project reached completion. Several meticulously crafted documents lay spread upon the table, and Wang Yehao clicked his tongue in amazement. "I never imagined the Teacher possessed such remarkable craftsmanship—truly the work of supernatural skill."
 
-"The Master overpraises," Jin Wenchi said with his mouth, but his body was honest, proudly displaying his works to Wang Yehao. "This student's ancestors worked in the trade of mounting and rubbing inscriptions. Before studying for the exams, I also learned some superficial skills. This paper surface is pasted together from peeling and mounting old letters brought by the Master, so the signatures and seals are all authentic. The pasted seams are made into fold marks; non-experts cannot distinguish them. The handwriting of the document uses the method of tracing on stone; every character has an original source, only slightly connecting the strokes at the start and end."
+"The Master flatters me," Jin Wenchi replied with practiced modesty, though his manner betrayed obvious pride as he displayed his handiwork for Wang Yehao's inspection. "My ancestors plied their trade in scroll mounting and stone inscription rubbings. Before I took up studies for the examinations, I learned a few rudimentary techniques. This paper surface is assembled from layers peeled and mounted from the old letters you provided, Master, so the signatures and seals are all genuine. The seams where the pieces join have been disguised as natural fold marks—none but an expert could detect them. As for the handwriting, I employed the method of stone-tracing; every character derives from an authentic source, with only slight modifications to connect the strokes at their beginnings and endings."
 
-Wang Yehao listened and praised: "The Teacher was truly an underutilized talent before."
+Wang Yehao listened and praised him warmly. "The Teacher's talents were truly wasted before now."
 
-"Making some documents is naturally not a problem. Only according to court statutes, the request of Dukes and Marquises for caring of parents concerns title inheritance. Documents should be in triplicate. Needless to say for the father and son, one copy must be kept in the official archives. Three copies of the document are done, but as for the matter of entering the archives, I wonder if the Master has a clever method?" Jin Wenchi threw out a thorny problem.
+"Fabricating a few documents presents no difficulty. However, according to court statutes, a Duke's or Marquis's petition for parental care concerns matters of title inheritance. Such documents must exist in triplicate. The copies for father and son go without saying, but one must also be preserved in the official archives. I have prepared all three copies, but as for the matter of inserting them into the archives—might the Master have some clever method in mind?" Jin Wenchi posed the thorny problem.
 
-"Teacher need not worry about this matter; this Official has his own way. This time the Teacher has already performed a great merit." Wang Yehao wasn't too worried about this. With Fourth Uncle's connections and means, if even this little thing couldn't be done, how could he have mixed to his current position? After discussing the title inheritance with Mr. Zhou before, Wang Yehao had already let Liu Zhao use the Jinyiwei's secret line to send a flying pigeon letter to communicate with Fourth Uncle Wang Xiantong. Wang Xiantong agreed quite readily, and the reply had arrived the day before yesterday, so Wang Yehao had confidence in his heart at this moment.
+"The Teacher need not worry about this matter; I have my own means." Wang Yehao showed little concern. With Fourth Uncle's connections and resources, if he couldn't manage even this small task, how could he have risen to his current position? After discussing the title inheritance with Mr. Zhou previously, Wang Yehao had already dispatched Liu Zhao to send a message through the Jinyiwei's secret courier lines via flying pigeon to communicate with his Fourth Uncle, Wang Xiantong. Wang Xiantong had agreed quite readily, and his reply had arrived just two days ago—hence Wang Yehao's present confidence.
 
-"Just a trivial skill, not worth mentioning to the Master." Jin Wenchi expressed humility. "This student has had some doubts recently; I wonder if I should ask."
+"A trifling skill, hardly worth mentioning before the Master." Jin Wenchi expressed his humility. "I have harbored certain doubts of late; I wonder if I might venture to ask?"
 
-"You and I are master and staff, like one body. Teacher, ask without harm."
+"You and I are master and staff, joined as one body. Speak freely, Teacher."
 
-"Since receiving the Master's words, this student will be brusque. This student has always heard that those who undertake great matters plan for defeat before planning for victory. I wonder what chance of winning the Master has this time?"
+"Since the Master grants permission, I shall be direct. I have always heard it said that those who undertake great matters must plan for defeat before planning for victory. What chance of success does the Master believe he has in this endeavor?"
 
-Being asked this by Jin Wenchi, waves couldn't help rising in Wang Yehao's heart. Indeed, if the Sorcerer's prophecy was unreliable, he would undoubtedly die. But recent events made him feel he could gamble. After all, as long as he won the bet, the profit would be immeasurable. Wang Yehao thought for a while and felt it was better not to mention the matter of foreknowledge, to save explaining clearly: "This Official thinks that to bring order out of chaos, we need to gather people of insight from all over the court and the *Jianghu* to uphold righteousness together as assistance."
+Jin Wenchi's question stirred waves of uncertainty in Wang Yehao's heart. Indeed, if the Sorcerer's prophecy proved unreliable, death was certain. Yet recent events had convinced him the gamble was worth taking. After all, should he win this wager, the rewards would be beyond measure. Wang Yehao considered for a moment and decided it was better not to mention the matter of foreknowledge—explaining that would prove far too troublesome. "I believe that to bring order from chaos, we must gather men of insight from throughout the court and the *Jianghu* to uphold righteousness together in common cause."
 
-"What the Master says is very true!" Jin Wenchi expressed agreement. "Although I am untalented, I am willing to repay with my body and assist in the righteous act!"
+"What the Master says is most true!" Jin Wenchi voiced his agreement. "Though I am unworthy, I am willing to devote myself body and soul to assist in this righteous undertaking!"
 
-"Although it is a righteous act, this matter still requires caution." Wang Yehao laughed once, as if thinking of something interesting. "This Official has an alias 'Stone Old Man' [*Shi Weng*]. When the Teacher acts, how about also temporarily hiding your name to avoid spreading it outside and causing trouble?"
+"Though it be a righteous cause, this matter still demands caution." Wang Yehao chuckled, as though some amusing thought had crossed his mind. "I have adopted an alias: 'Stone Old Man' [*Shi Weng*]. When the Teacher acts on my behalf, perhaps you might also conceal your name temporarily, lest word spread abroad and invite trouble."
 
-"What the Master says is right." Jin Wenchi agreed. "Since the Master is 'Stone Old Man,' this student will call himself 'Jinshi' [Metal-Stone]."
+"The Master speaks wisely." Jin Wenchi agreed at once. "Since the Master is 'Stone Old Man,' I shall style myself 'Jinshi' [Metal-Stone]."
 
-"Good. Why not call yourself 'Jinshi Daoist'? Being a person outside the secular world makes it convenient to act." Wang Yehao said.
+"Excellent. Why not call yourself 'Jinshi Daoist'? Assuming the guise of one beyond the secular world will make it more convenient to act."
 
-"All depends on the Master's arrangement!"
+"All shall be as the Master arranges!"
 
-After arranging Jin Wenchi, Wang Yehao summoned the butler again and instructed him: "Let the boat travel slower; being steady is the key."
+After settling matters with Jin Wenchi, Wang Yehao summoned the butler and instructed him, "Have the boat travel more slowly; steadiness is paramount."
 
-He intentionally set the date of arrival in the capital for early August. This would save the effort of dealing with the Eunuch Party due to the unclear situation after returning to the capital. If Mr. Zhou's prophecy came true and the new master ascended the throne, he could avoid many handles. If the prophecy failed, he had also made arrangements: as soon as Liu Zhao received the secret letter, he would silence the Hearthstone Daoist and his disciple, then kill Jin, Wei, and the two maids to eliminate future trouble.
+He had intentionally scheduled their arrival in the capital for early August. This would spare him the trouble of navigating uncertain waters with the Eunuch Party while the political situation remained unclear. Should Mr. Zhou's prophecy prove true and a new sovereign ascend the throne, he could avoid giving anyone leverage against him. If the prophecy failed, he had also made arrangements: the moment Liu Zhao received the coded message, he would silence the Hearthstone Daoist and his disciple, then eliminate Jin, Wei, and the two maidservants to remove any future complications.
 
-After Jin Wenchi left, Wang Yehao gave two of the documents to Wang Liang and instructed him: "You take a small boat north immediately, bring more boatmen, travel day and night. You must deliver the documents personally into Fourth Uncle's hands."
+After Jin Wenchi departed, Wang Yehao handed two of the documents to Wang Liang and instructed him, "Take a small boat north immediately. Bring extra boatmen and travel day and night. You must deliver these documents personally into Fourth Uncle's hands."
 
-"This small one goes right away!"
+"I shall leave at once!"
 
-"Also, find a way to see if there are connections to Prince Xin's residence. There are always some little eunuchs mixing in the market; make more friends." He continued, "After getting familiar, try to connecting to Consort Tian's line, just saying we are old friends of her maiden family. Don't be stingy with silver; the silver in the residence can all be used, no upper limit this time."
+"Also, find some way to establish connections with Prince Xin's residence. There are always minor eunuchs mingling about the markets—make friends among them." He continued, "Once you have cultivated familiarity, try to establish a line to Consort Tian, claiming we are old acquaintances of her maiden family. Do not stint on silver; all the silver in the residence may be used. There is no upper limit this time."
 
-"This small one understands." Hearing there was such a fat errand, joy appeared on Wang Liang's eyebrows.
+"I understand." Hearing of such a lucrative assignment, joy spread visibly across Wang Liang's brow.
 
-"Must be fast!" Wang Yehao emphasized again with a serious expression.
+"Speed is essential!" Wang Yehao emphasized again, his expression grave.
 
-Specifically, this year's winter was exceptionally cold. Wang Yehao sat alone in the warm pavilion roasting by the fire, while snowflakes drifted intermittently outside. When the news of the Nine Thousand Years hanging himself came last month, Wang Yehao no longer felt surprised. Since the late Emperor passed away on August 11th, Wang Yehao had become convinced that the Immortal's prophecy would be fulfilled. The subsequent ascension of Prince Xin, adopting the reign title Chongzhen, dismissing the Wei Rebel, and a series of events further strengthened Wang Yehao's confidence.
+---
 
-Recalling the treacherous court situation of the past half-year, Wang Yehao rejoiced greatly that he had placed the right bet. Although Wang Yehao had almost no interaction with the Donglin Party before, relying on the solid foundation supplemented by spreading silver along the way, the relationship was now maintained quite well.
+That year's winter proved exceptionally harsh. Wang Yehao sat alone in the heated pavilion, warming himself by the fire, while snowflakes drifted intermittently beyond the windows. When news arrived last month that the Nine Thousand Years had hanged himself, Wang Yehao felt no surprise whatsoever. Ever since the late Emperor had passed away on the eleventh day of the eighth month, Wang Yehao had become convinced that the Immortal's prophecy would be fulfilled. The subsequent ascension of Prince Xin, the adoption of the reign title Chongzhen, the dismissal of the Wei Traitor—each event in the unfolding sequence only strengthened his confidence.
 
-The current Emperor not only successively retried the unjust cases committed when the Eunuch Party held power but also reinstated many officials who were squeezed out and suppressed back then. According to the current trend, the Donglin faction taking charge of the court was already a nailed-down matter.
+Reflecting on the treacherous court intrigues of the past half-year, Wang Yehao felt profound relief that he had placed his wager correctly. Though he had scarcely any prior association with the Donglin Party, he had since built a solid foundation, supplemented by judicious distributions of silver along the way, and now maintained quite favorable relations.
 
-Wang Yehao, who had performed well recently and rescued the daughter of Wei Dazhong, naturally became a red-hot figure in the court. However, he was not active about promotion but very modest. It wasn't how modest Wang Yehao was, but he clearly realized he was of *Tong Jinshi* background and "Zhejiang Party." In recent years, there were quite a few ambiguities between the Zhejiang Party and the Eunuch Party, and strictly speaking, there were many entangled points. If he rose too fast while the court situation was turbulent, he would not only leave an impression of opportunism but also arouse the resentment of a group of old Donglin people, making it difficult to last long. It was better to "store grain widely, build walls high," fully win people's hearts, and then exert force when the water flows to form a canal in the future. Moreover, with the assistance of the Hearthstone Daoist, maybe he could even add the Nine Bestowments [*Jiu Xi*] in the future...
+The current Emperor had not only reopened the unjust cases prosecuted during the Eunuch Party's reign but had also restored many officials who had been squeezed out and suppressed in those dark days. Given the present trajectory, the Donglin faction's ascendancy over the court was already a foregone conclusion.
 
-No, no, Nine Bestowments is too outrageous; that is standard for rebellious ministers and traitors. He didn't have this thought. Then being enfeoffed as a Marquis and worshipping as a Minister, with titles for wife and protection for sons...
+Wang Yehao, who had distinguished himself of late and rescued the daughter of Wei Dazhong, had naturally become a rising star in court circles. Yet he showed no eagerness for promotion, maintaining instead a posture of considerable modesty. This was not genuine humility on Wang Yehao's part, but rather a clear recognition of his circumstances: he was merely a *Tong Jinshi* by background and affiliated with the "Zhejiang Party." In recent years, considerable ambiguity had existed between the Zhejiang Party and the Eunuch Party, and strictly speaking, many entanglements remained. Were he to rise too rapidly while the court situation remained turbulent, he would not only cultivate an image of opportunism but also provoke the resentment of the old Donglin guard, making his position difficult to sustain. Better to "store grain widely and build walls high," winning hearts fully now, then exert his strength when circumstances naturally aligned. Moreover, with the Hearthstone Daoist's assistance, perhaps he might even receive the Nine Bestowments [*Jiu Xi*] in time...
 
-Speaking of this "Immortal" (since Wei Zhongxian committed suicide, Wang Yehao had privately changed "Sorcerer" to "Immortal"), he somewhat regretted letting him go to Guangzhou. Now separated for half a year, although news of safety came, there were no letters about the specific situation.
+No, no—the Nine Bestowments was too outlandish; that was the standard prerogative of rebellious ministers and usurpers. He harbored no such thoughts. But to be enfeoffed as a Marquis and appointed a Minister, with noble titles for his wife and protection for his sons—now that was worth contemplating...
 
-Wang Yehao was vaguely uneasy. After all, Immortal Zhou hadn't spoken about the future direction of the court. If he took a wrong step carelessly, all previous efforts would be wasted. Wang Yehao looked at the charcoal fire flickering in the stove and muttered faintly to himself: "It seems I still have to get 'Mr. Hearthstone' back."
+Speaking of this "Immortal" (since Wei Zhongxian's suicide, Wang Yehao had privately elevated the man from "Sorcerer" to "Immortal"), he somewhat regretted letting him depart for Guangzhou. Half a year of separation had now passed, and though word of his safety had arrived, no letters detailing his specific circumstances had followed.
 
-He had already sent people to Guangzhou to find Liu Zhao and also sent people to Dongyang to pick up the two maids to the capital. Based on his cold observation and reports from servant women on ordinary days, he knew that Mr. Zhou was pure by nature. Although somewhat lecherous, he was extremely caring and cherishing towards his own women. Since these two maids had intimate relations with him, they were suitable bargaining chips.
+Wang Yehao felt vaguely uneasy. After all, Immortal Zhou had never spoken about the court's future direction. One careless misstep could render all his efforts meaningless. Wang Yehao watched the charcoal flames flicker in the stove and murmured softly to himself, "It seems I must bring 'Mr. Hearthstone' back."
 
-"Master, your Fourth Uncle sent someone to deliver some pastries." Wang Liang walked into the warm pavilion, interrupting Wang Yehao's thoughts, and handed a food box to the table.
+He had already dispatched men to Guangzhou to locate Liu Zhao and sent others to Dongyang to escort the two maidservants to the capital. Based on his own quiet observation and reports from the serving women, he knew that Mr. Zhou was pure by nature. Though somewhat lecherous, he showed extreme tenderness and devotion toward his own women. Since these two maids had been intimate with him, they would serve as suitable leverage.
 
-"Oh, did the person bring a message?" Wang Yehao asked.
+"Master, your Fourth Uncle has sent someone with pastries." Wang Liang entered the heated pavilion, interrupting Wang Yehao's contemplation, and set a food box on the table.
 
-"Didn't say anything else, just asked the Master to taste the specialty from *Guangli*."
+"Oh? Did the messenger bring any word?" Wang Yehao inquired.
 
-"Good. Go down and reward some silver. Close the door; I won't see guests today."
+"Nothing else—only that the Master should sample this specialty from *Guangli*."
 
-After obtaining the forged documents from Jin Wenchi, Wang Xiantong quickly smoothed things out and succeeded in inheriting the title. Although hindered by public criticism, it was inappropriate for Wang Yehao to be too close openly to his Fourth Uncle who held a post in the Jinyiwei. But this didn't affect the uncle and nephew's private relationship going a step further at all. Wang Yehao had told his Fourth Uncle that he sent people to Guangzhou Prefecture and wanted to borrow the Jinyiwei's line to wait for a reply. Now that a food box was sent, obviously there was news.
+"Very well. Go and reward him with some silver. Close the door; I shall receive no guests today."
 
-Wang Yehao opened the food box. Inside were a few pieces of Cantonese-style walnut cookies, but they didn't look fresh; some were moldy. This snack was obviously not for eating. Wang Yehao broke the walnut cookies apart and indeed found a paper roll in one of them.
+After obtaining the forged documents from Jin Wenchi, Wang Xiantong had swiftly smoothed the way, and the title inheritance had succeeded. Though public opinion made it impolitic for Wang Yehao to associate too openly with his Fourth Uncle—who held a post in the Jinyiwei—this posed no obstacle to the private deepening of their relationship. Wang Yehao had informed his Fourth Uncle that he had sent agents to Guangzhou Prefecture and wished to borrow the Jinyiwei's communication lines to await a reply. The arrival of this food box clearly signaled news.
 
-Looking at the signature, this was news sent by Liu Zhao in October. It said the two hadn't found the Australians or the Universe Mirror in Guangzhou Prefecture yet. Currently, there was no clue to continue searching, but Mr. Zhou was unwilling to return to the capital, and so on.
+Wang Yehao opened the box. Inside lay several pieces of Cantonese-style walnut cookies, though they appeared far from fresh—some had even grown moldy. These treats were obviously not meant for eating. Wang Yehao broke the cookies apart and, as expected, discovered a paper scroll concealed within one of them.
 
-Wang Yehao checked the other walnut cookies and found no other information. He carefully read the text on the paper roll again, then threw it into the stove mouth.
+Checking the signature, he found this was news dispatched by Liu Zhao in October. It reported that neither he nor his companion had yet located the Australians or the Universe Mirror in Guangzhou Prefecture. They currently had no leads to pursue, and Mr. Zhou remained unwilling to return to the capital.
 
-The court situation changed too fast in these few months. If it weren't for the New Year festival, Wang Yehao rarely had the chance to think long and leisurely at home. For official matters, relying on Jin Wenchi was basically reassuring now. But grasping the general direction couldn't lack the "Immortal's" guidance, and secret jobs couldn't lack Liu Zhao. Now that both were away, doing things felt not quite satisfactory. Until the time of lighting lamps, when Wang Liang knocked on the door to ask if he wanted dinner, Wang Yehao withdrew his mind.
+Wang Yehao examined the remaining walnut cookies but found no other information. He read the text on the paper scroll once more with care, then cast it into the stove.
 
-"Go prepare a gift. Tomorrow follow me to Fourth Uncle's place to pay respects." Wang Yehao instructed. "Send dinner over."
+The court situation had shifted with dizzying speed these past few months. Were it not for the New Year festivities, Wang Yehao would rarely have found opportunity for such unhurried reflection at home. Official matters could now be entrusted to Jin Wenchi with reasonable confidence. But grasping the broader direction required the Immortal's guidance, and clandestine operations required Liu Zhao. With both men absent, his work proceeded less smoothly than he would have liked. Only when Wang Liang knocked at the door as the lamps were being lit to inquire about dinner did Wang Yehao withdraw from his reverie.
 
-The next day, Wang Yehao followed the etiquette of a junior visiting a senior and arrived at Wang Xiantong's residence early in the morning. He had harvested abundantly in Guangdong and Jiangnan, so he was quite well-off recently. The gift list prepared today was also particularly heavy—this Fourth Uncle serving in the Jinyiwei had now inherited the title, and there would be more places to ask for advice in the future. The favor must be done sufficiently.
+"Prepare a gift. Tomorrow you will accompany me to Fourth Uncle's residence to pay my respects." Wang Yehao issued his instructions. "Have dinner sent here."
 
-Since High Ancestor Old Man Hairi [Wang Hua] won the *Zhuangyuan*, in the four generations of "Shou, Zheng, Cheng, Xian" of the Wang family, success in exams had become less and less prominent. Although Wang Yehao was only a *Tong Jinshi*, this was unique in the "Ye" generation, so Wang Xiantong had always favored this nephew. Added to the fact that he recently helped get the title, Wang Xiantong paid extra attention to Wang Yehao's visit today and welcomed him personally in the entrance hall.
+The following day, Wang Yehao observed the proper etiquette of a junior calling upon a senior and arrived at Wang Xiantong's residence early in the morning. His ventures in Guangdong and Jiangnan had proven abundantly profitable, leaving him quite well-off of late. The gift inventory he had prepared today was correspondingly generous—this Fourth Uncle who served in the Jinyiwei had now inherited his noble title, and there would be many occasions to seek his counsel in the future. The favor must be rendered in full measure.
 
-Sending walnut cookies yesterday and visiting today, obviously there was something to discuss. After a few pleasantries, Wang Xiantong understood Wang Yehao's eye signal, led him to the inner study, and then dismissed the attendants.
+Ever since the High Ancestor, Old Man Hairi [Wang Hua], had won the *Zhuangyuan* title, examination success had grown increasingly rare through the four generations of "Shou, Zheng, Cheng, Xian" in the Wang family. Though Wang Yehao held only a *Tong Jinshi* degree, this distinction stood unique in the "Ye" generation, and Wang Xiantong had always looked upon this nephew with particular favor. Combined with the recent assistance in securing his title, Wang Xiantong paid special attention to today's visit and personally welcomed Wang Yehao in the entrance hall.
 
-"This nephew wants to trouble Fourth Uncle with a matter." Since it was a secret talk, Wang Yehao didn't beat around the bush.
+Sending walnut cookies one day and paying a visit the next—obviously there was something to discuss. After exchanging a few pleasantries, Wang Xiantong caught Wang Yehao's meaningful glance, led him to the inner study, and dismissed the attendants.
+
+"I must trouble Fourth Uncle with a certain matter." Since this was to be a confidential conversation, Wang Yehao wasted no time with circumlocution.
 
 **(End of Chapter)**

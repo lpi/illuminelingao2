@@ -1,113 +1,113 @@
 # Chapter 2704: The Capital (Part 60)
 
-Martial Yama finished laughing, then stiffened his face and said sternly: "We brothers come from the border army and have long experiences in battle. We've even fought the Tartars. Having killed so many, how could we be afraid of a few stupid village bulls shouting for battle? I've ruined many lives—some evil men, some heroes, many with tougher mouths than yours. But once such people are defeated, killing them is actually easy. Those pigs and dogs struggle desperately before death, making killing them simple, but once captured and knowing death is inescapable, they all obediently stretch out their necks to accept the blade, begging only for less suffering and a quick death. What heroes and brave men? All just deceiving gods, ghosts, and people. Once the body is dismembered, any hero is nothing but a pile of rotten meat and bloody bones. In a moment, My Lord will rip open your bellies and take your hearts and livers to accompany wine. Death is at hand; let's see how you boast and act tough then!"
+Martial Yama finished laughing, then hardened his expression and spoke sternly: "We brothers come from the border army. We've seen our share of battles—even fought the Tartars. After killing so many men, do you think we'd fear a few ignorant village bulls shouting for a fight? I've ended many lives—evil men, heroes, plenty with tougher mouths than yours. But once such men are defeated, killing them becomes easy. The pigs and dogs struggle desperately before death, making the killing messy, but once captured and certain of their fate, they all stretch out their necks obediently for the blade, begging only for less suffering and a swift end. Heroes and brave men? All just smoke and mirrors, deceiving gods, ghosts, and mortals alike. Once a body is dismembered, any hero becomes nothing more than a pile of rotting meat and bloody bones. In a moment, My Lord will slice open your bellies and take your hearts and livers to accompany our wine. Death stands at your door—let's see how you boast and act tough then!"
 
-Martial Yama's fierce words acted like a calming pill, stimulating the ferocity of the bandits. Their morale, which had dipped slightly, was roused again.
+Martial Yama's savage words acted like a tonic, stoking the bandits' ferocity. Their morale, which had wavered moments before, surged back.
 
-Seeing no further room for negotiation, Zhao Liangjian frowned tightly, his face frosty, and said coldly, "Each of us gathers a breath in our chests. You have the fierce *qi* of black killing; I have the righteous *qi* of mountains and rivers. Let's see how we measure up."
+Seeing no further room for negotiation, Zhao Liangjian's brow furrowed deeply, his face turning cold as frost. "Each of us holds a breath gathered in our chests," he said. "You possess the fierce *qi* of black killing; I carry the righteous *qi* of mountains and rivers. Let us see how we measure up."
 
-At this point, killing intent rose on both sides. The opposing lines inched forward, getting closer and closer, about to engage in a chaotic melee.
+At this, killing intent rose on both sides. The opposing lines crept forward, drawing ever closer, on the verge of dissolving into a chaotic melee.
 
-Suddenly, Zhao Liangjian shouted loudly: "Hold your hands!"
+Suddenly, Zhao Liangjian shouted: "Hold your hands!"
 
-Everyone on both sides was highly tense. Hearing this, they were all stunned, not knowing why, and cast their gazes on Zhao Liangjian.
+Everyone on both sides stood wound tight as bowstrings. Hearing this, they froze in confusion, uncertain of his intent, and turned their gazes toward him.
 
-Zhao Liangjian said deeply to the bandit Martial Yama: "We are going to fight, but *how* we fight needs some rules. Hero, look: my brothers here are all skilled with spears and staffs. Your group of brothers also doesn't look like amateurs. When two forces clash, a melee will inevitably cause much loss of life. You may not necessarily come out on top, and both sides will just waste manpower for nothing. Moreover, it would be hard for either side to recruit such skilled hands again in a short time; there's truly no benefit. Why don't I suggest a charter? Instead of a chaotic brawl, let's follow custom: each side sends out one person to match skills and compete with spear and staff. Just one match, relying on true ability. If I lose, I leave the cart and horses. If the Hero graciously yields and this Zhao wins by half a move, please open the road. This way, win or lose, we won't harm our own brothers. What does the leader think?"
+Zhao Liangjian addressed the bandit leader with measured gravity: "We are going to fight—but *how* we fight should follow certain rules. Hero, consider this: my brothers here are all skilled with spears and staffs. Your group appears no different—hardly amateurs. When two such forces clash, a melee will inevitably cost many lives. You may not come out on top, and both sides will waste manpower for nothing. Moreover, neither of us could easily recruit such skilled hands again in short order; there's truly no benefit in it. Allow me to propose a charter. Instead of a chaotic brawl, let's follow custom: each side sends out one man to match skills and compete with spear and staff. A single bout, decided by true ability. If I lose, I leave the cart and horses. If the Hero graciously yields and this Zhao wins by half a move, please open the road. Win or lose, we won't harm our own brothers. What does the leader think?"
 
-Seeing that Zhao Liangjian's group was strong and well-armed, advancing and retreating with discipline, Martial Yama also had reservations. His eyes rolled, glancing toward the woods out of the corner of his eye, and his heart settled. He still had a surprise force not yet moved. If two people started fighting in front, once the Escort Bureau's attention was drawn, a single whistle would bring the group of brothers charging out from the flank and rear to scatter the escorts' formation. It would instantly become a chaotic slaughter, allowing him to fully exploit his numerical advantage.
+Observing that Zhao Liangjian's group was strong and well-armed, advancing and retreating with discipline, Martial Yama harbored reservations of his own. His eyes rolled, glancing toward the woods from the corner of his vision, and his heart settled. He still had a surprise force waiting in concealment. If two men began fighting in front, once the Escort Bureau's attention was drawn, a single whistle would bring his brothers charging from flank and rear to shatter the escorts' formation. It would instantly devolve into a chaotic slaughter, allowing him to fully exploit his numerical advantage.
 
-Thinking of this, Martial Yama rolled his eyelids and waved his hand to stop the bandits. He lowered his head, pretending to ponder for a while, before nodding as if reluctantly. "Hehe, you calculate well. Hmm, I also don't wish for my brothers to be damaged. Fine, let it be so."
+Thinking thus, Martial Yama rolled his eyelids and waved a hand to halt the bandits. He lowered his head, pretending to ponder, before nodding with feigned reluctance. "Hehe, you calculate well. Hmm, I also don't wish for my brothers to be damaged. Fine. So be it."
 
-Seeing Martial Yama agree, Zhao Liangjian sighed in relief. He glanced at the potential woods by the road, unsure of Liao Sanniang's situation and feeling anxious. But things having come to this, there was absolutely no retreat; he could only act according to circumstances.
+Seeing Martial Yama agree, Zhao Liangjian exhaled in relief. He cast a glance toward the dense woods beside the road, uncertain of Liao Sanniang's situation and feeling a knot of anxiety. But matters having progressed this far, retreat was impossible; he could only act according to circumstances.
 
-The two groups each stepped back a few paces, clearing an open space.
+The two groups each stepped back several paces, clearing an open space between them.
 
-Zhao Liangjian tightened his belt, rolled up his sleeves, picked up his segmented steel whip, and walked to the center of the road. "Since this Zhao proposed it, I must undertake the duty. Which hero from your side will grant instruction?" Finishing, Zhao Liangjian took out a cigarette, lit it for himself, took a deep drag, and calmly blew a smoke ring.
+Zhao Liangjian tightened his belt, rolled up his sleeves, picked up his segmented steel whip, and walked to the center of the road. "Since this Zhao proposed the terms, I must undertake the duty myself. Which hero from your side will grant instruction?" With that, he drew out a cigarette, lit it, took a deep drag, and calmly blew a smoke ring.
 
-Martial Yama looked at his own group, then pursed his lips. A sturdy man in a green robe walked out from the bandits.
+Martial Yama surveyed his men, then pursed his lips. A sturdy man in a green robe emerged from the bandit ranks.
 
-Zhao Liangjian bowed and asked, "Hero, please grant your name."
+Zhao Liangjian bowed courteously. "Hero, please grant your name."
 
-The sturdy man said coldly, "Dead men don't need to know my name."
+The sturdy man replied coldly, "Dead men don't need to know my name."
 
-Holding a two-meter-long flowery spear (*hua-qiang*), the man walked up to Zhao Liangjian, looked at the steel whip in his hand, gave a cold laugh, and said, "Advancing against a spear with a whip—you're dead for sure."
+Gripping a two-meter-long flowered spear (*hua-qiang*), the man approached Zhao Liangjian, glanced at the steel whip in his hand, and gave a cold laugh. "Advancing against a spear with a whip—you're dead for certain."
 
-Zhao Liangjian held the cigarette slanted in his mouth, shook the whip in his right hand, and laughed. "Not necessarily. You aren't wielding an eighteen-*zhang* great spear; if I advance a step, I can hit you too."
+Zhao Liangjian held the cigarette at a slant in his mouth, shook the whip in his right hand, and laughed. "Not necessarily. You aren't wielding an eighteen-*zhang* great spear; if I step forward, I can hit you too."
 
-The sturdy man chuckled coldly. "Everyone under heaven boasts they can defeat long with short, but in real combat, when they see a spear, they all flee without fail. A steel whip is heavy and slow to swing, mostly used for breaking armor. My spear only needs one parry and one thrust, and you're finished immediately. Fighting alone is just seeking death; I don't know how you've lived until today."
+The sturdy man chuckled coldly. "Everyone under heaven boasts they can defeat long with short, but in real combat, the moment they see a spear, they all flee without fail. A steel whip is heavy and slow to swing, suited mostly for breaking armor. My spear needs only one parry and one thrust, and you're finished. Fighting alone with that weapon is just courting death. I don't know how you've survived this long."
 
-Zhao Liangjian laughed. "Talk is useless; let's see the truth under our hands."
+Zhao Liangjian laughed. "Talk is useless. Let the truth emerge from our hands."
 
-The sturdy man said fiercely, "Good. I'll send you on your way down the Yellow Springs road."
+The sturdy man spoke fiercely: "Good. I'll send you on your way down the Yellow Springs road."
 
-Words exhausted, the two focused entirely, assumed stances, and circled the field.
+Words exhausted, the two focused entirely, assumed their stances, and began circling the cleared ground.
 
-The sturdy man settled into a horse stance (*mabu*), the rear end of the spear shaft close to his abdomen and waist. With a twist of both hands, he shook out a spear flower, his posture extremely spirited, drawing a round of cheers from the bandits.
+The sturdy man settled into a horse stance (*mabu*), the rear end of the spear shaft pressed close against his abdomen and waist. With a twist of both hands, he shook out a spear flower, his posture fierce and spirited, drawing a round of cheers from the bandits.
 
-Seeing the man held the spear without exposing the tail end in his rear hand, Zhao Liangjian knew his opponent had some skill.
+Noting that the man held the spear without exposing the tail end in his rear hand, Zhao Liangjian knew his opponent possessed genuine skill.
 
-Holding a staff, the rear hand must expose three *cun* of the end; holding a spear requires the entire palm to wrap around the root of the shaft. When thrusting a long spear, a straight, flat thrust is just a "poke"; if it meets resistance, the spear tip relies only on impact force and is hard to penetrate.
+When holding a staff, the rear hand should expose three *cun* of the end; when holding a spear, the entire palm must wrap around the root of the shaft. In thrusting with a long spear, a straight, flat thrust amounts to nothing more than a "poke"—if it meets resistance, the spear tip relies solely on impact force and struggles to penetrate.
 
-By wrapping the palm around the spear tail, when thrusting, the rear hand spirals and pushes the shaft, imparting a drilling spiral force to the long spear, powerful enough to pierce armor.
+By wrapping the palm around the spear tail, the rear hand can spiral and push the shaft during a thrust, imparting a drilling, spiral force to the weapon—power enough to pierce armor.
 
-Seeing the opponent was formidable, Zhao Liangjian's face grew grave. He gripped the whip handle with his right hand, pointing the steel whip diagonally. He didn't advance, only circling outside the spear's reach. The two interwove steps and circled twice. Zhao Liangjian found no opening at all, and his expression grew increasingly ugly.
+Recognizing a formidable opponent, Zhao Liangjian's expression grew grave. He gripped the whip handle with his right hand, pointing the steel whip diagonally outward. He didn't advance, only circling beyond the spear's reach. The two interwove their steps, circling twice. Zhao Liangjian found no opening whatsoever, and his expression grew increasingly troubled.
 
-Due to high tension, Zhao Liangjian forgot to throw away the cigarette in his hand. The butt was clamped tightly between the fingers of his left hand, its red tip flickering dim and bright, like his unsettled state of mind.
+In his high tension, Zhao Liangjian forgot to discard the cigarette. The butt remained clamped tightly between the fingers of his left hand, its red tip flickering dim and bright, mirroring his unsettled state of mind.
 
-Zhao Liangjian tried to leap in, but the moment the opponent's spear tip moved, he jumped away immediately. Not only did he fail to dictate the opponent's footwork, but he was instead dictated by the enemy's spear shaft, falling into the sturdy man's rhythm.
+Zhao Liangjian attempted to leap in, but the instant his opponent's spear tip shifted, he sprang away immediately. Not only did he fail to dictate the other man's footwork, but he found himself dictated by the enemy's spear shaft instead, falling into the sturdy man's rhythm.
 
 The spear-wielding man pressed closer and closer, forcing Zhao Liangjian to engage.
 
-Zhao Liangjian's room for maneuver shrank. Cold sweat poured from his forehead. He kept shouting "Hehe, Haha," waving his left hand constantly, trying to disturb the sturdy man's vision.
+Zhao Liangjian's room to maneuver shrank. Cold sweat poured from his forehead. He kept shouting—"Hehe! Haha!"—waving his left hand constantly, trying to disturb the sturdy man's vision.
 
-The sturdy man remained calm, neither rushed nor impatient, moving only with the "duck step." The duck step posture resembled a squat; when moving, the rear foot crossed in front of the front foot, one step covering the other—what is called a "cover step" in modern Sanda—making left and right dodges extremely agile.
+The sturdy man remained calm, neither rushed nor impatient, moving only with the "duck step." This posture resembled a squat; when moving, the rear foot crossed in front of the forward foot, one step covering the other—what modern Sanda calls a "cover step"—making left and right dodges extremely agile.
 
-The sturdy man didn't follow Zhao Liangjian's movements. No matter what tricks Zhao Liangjian played, he remained unmoved. He had seen through it: Zhao Liangjian wanted to create an attack opportunity through movement.
+The sturdy man refused to follow Zhao Liangjian's movements. No matter what tricks Zhao Liangjian played, he remained unmoved. He had seen through the ploy: Zhao Liangjian wanted to create an attack opportunity through movement.
 
-To defeating long with short, one must risk danger, get close to the opponent, force them to thrust, then parry the spearhead or smash down the shaft with the short weapon to invade the inner circle. Only then is there a chance of winning.
+To defeat long with short, one must risk danger—close the distance with the opponent, force them to thrust, then parry the spearhead or smash down the shaft with the short weapon to invade the inner circle. Only then does a chance of victory exist.
 
-In reality, a long spear relies on the extension and closing force of the waist and hips to block and seize. Even if a short weapon luckily parries the spear shaft, it is using the localized strength of the arm and shoulder to oppose the enemy's core strength. An arm can't twist a waist; there is a huge probability that the parry will fail to move the spear, and the enemy's spear will break through the obstruction by inertia, stabbing directly in and causing damage.
+In reality, a long spear relies on the extending and closing force of the waist and hips to block and seize. Even if a short weapon luckily parries the spear shaft, it pits the localized strength of arm and shoulder against the enemy's core strength. An arm cannot overpower a waist; there is a high probability the parry will fail to move the spear, and the enemy's thrust will break through the obstruction by sheer inertia, stabbing directly through to cause damage.
 
-From Zhao Liangjian's perspective, he could only see the enemy's side profile. The enemy's exposed target area was extremely small and completely concealed behind the flowery spear.
+From Zhao Liangjian's perspective, he could see only his enemy's side profile. The exposed target area was minuscule, completely concealed behind the flowered spear.
 
-Looking straight on, the projection of a tiny, diamond-shaped spear tip hovered in the air, constantly shaking. It was hard to judge distance and attack timing, bringing immense psychological pressure that made one want to turn and run immediately.
+Looking straight on, the projection of a tiny, diamond-shaped spear tip hovered in the air, constantly trembling. It was nearly impossible to judge distance or attack timing, bringing immense psychological pressure—the kind that makes a man want to turn and flee immediately.
 
-The spear-wielding man constantly adjusted his steps, gradually approaching Zhao Liangjian until he was less than two meters away. The sturdy man shook his shoulders, and the long spear lashed out at the opportunity, bullying short with long, initiating the attack with a thrust to the face.
+The spear-wielding man constantly adjusted his steps, gradually approaching Zhao Liangjian until less than two meters separated them. The sturdy man rolled his shoulders, and the long spear lashed out at the opportune moment, bullying short with long, initiating his attack with a thrust aimed at the face.
 
-The spear point rushed at his face. Zhao Liangjian subconsciously gripped the whip handle with both hands. The cigarette butt between his fingers emitted a wisp of white smoke at this moment, extinguishing just then.
+The spear point rushed toward his face. Zhao Liangjian instinctively gripped the whip handle with both hands. The cigarette butt between his fingers released a final wisp of white smoke, extinguishing at that very moment.
 
-Zhao Liangjian retreated a half-step, extending the three-*chi* steel whip to meet the sturdy man's spear tip head-on.
+Zhao Liangjian retreated half a step, extending the three-*chi* steel whip to meet the sturdy man's spear tip head-on.
 
-The steel whip probed out; spear tip met whip tip.
+The steel whip probed outward; spear tip met whip tip.
 
-The sturdy man felt a subtle squeezing sensation from the spear shaft. He brought his hands together on the spear, turned the middle grip outward, flipped his rear hand to his chest, pressed and squeezed, barring the front end of the steel whip outside his circle.
+The sturdy man felt a subtle squeezing sensation transmitted through the spear shaft. He brought his hands together on the spear, rotated the middle grip outward, flipped his rear hand to his chest, pressed and squeezed, barring the front end of the steel whip outside his circle.
 
-The sturdy man sent power from his waist and hips, torqueing his rear hand, preparing for a lunge thrust.
+The sturdy man channeled power from his waist and hips, torquing his rear hand, preparing for a lunging thrust.
 
-The spear shaft rotated clockwise in his hands, the tip rolling with the shaft. In the instant of exerting force, he already smelled blood. He could even foresee the scene of Zhao Liangjian being pierced through the chest by the short spear, bringing him ultimate pleasure and excitement.
+The spear shaft rotated clockwise in his grip, the tip rolling with the shaft. In the instant of exerting force, he already smelled blood. He could envision the scene of Zhao Liangjian pierced through the chest by his spear, bringing him ultimate pleasure and excitement.
 
 The next moment, he saw a sky full of brilliant fireworks.
 
-Thunder Fire Whip (*Lei-huo-bian*). Hollow front section, five-*cun* powder chamber, loaded with gunpowder and lead pellets. Cold and hot in one body; it can fire like a gun or strike like a whip, similar to a Three-eyed Gun.
+Thunder Fire Whip (*Lei-huo-bian*). Hollow front section, five-*cun* powder chamber, loaded with gunpowder and lead pellets. Cold and hot weapons combined in one body; it can fire like a gun or strike like a whip, similar in concept to a Three-eyed Gun.
 
-In reality, this weapon was thick and heavy. It lacked the accuracy of a fire lance and the agility of a steel whip. Unable to combine their strengths, it instead combined their weaknesses, so almost no one used it.
+In practice, this weapon was thick and heavy. It lacked the accuracy of a fire lance and the agility of a steel whip. Unable to combine their strengths, it instead combined their weaknesses—so almost no one used it.
 
-"Almost" means very few people used it, not that no one used it.
+"Almost" means very few people used it, not that no one did.
 
-What Zhao Liangjian used was a Thunder Fire Whip.
+What Zhao Liangjian wielded was a Thunder Fire Whip.
 
-Zhao Liangjian's Thunder Fire Whip had better steel and thinner walls. The segmented knots on the outside were reinforcing hoops. Its appearance was close to an ordinary whip or truncheon, highly deceptive.
+Zhao Liangjian's Thunder Fire Whip was forged from superior steel with thinner walls. The segmented knots on the exterior served as reinforcing hoops. In appearance, it closely resembled an ordinary whip or truncheon—highly deceptive.
 
-The powder chamber was longer, loaded with fine iron sand. The gunpowder was military-grade propellant dismantled from packaged cartridges, with high combustion efficiency and a burn rate suitable for firearms, ensuring effective spread of iron sand up to nearly five meters.
+The powder chamber was longer, loaded with fine iron sand. The gunpowder was military-grade propellant dismantled from packaged cartridges, possessing high combustion efficiency and a burn rate suited for firearms, ensuring effective spread of iron sand up to nearly five meters.
 
-The ignition hole of a normal Thunder Fire Whip was at the rear of the shaft, but Zhao Liangjian's was on the guard disc, hiding the fuse.
+The ignition hole of a normal Thunder Fire Whip sat at the rear of the shaft, but Zhao Liangjian's was concealed on the guard disc, hiding the fuse within.
 
-Zhao Liangjian waved his arm and shouted loudly to divert everyone's gaze, transforming into a master magician. He pulled the cotton plug from the whip's muzzle, switched hands to light the fuse with the burning match cord, and snubbed out the cigarette butt. Deceiving everyone, people thought the light in his hand was still the cigarette, but in reality, what burned now was the fuse.
+Zhao Liangjian had waved his arm and shouted loudly to divert everyone's gaze, transforming himself into a master magician. He had pulled the cotton plug from the whip's muzzle, switched hands to light the fuse with the burning match cord, and snuffed out the cigarette butt. Deceiving everyone present, they believed the light in his hand was still the cigarette—but in truth, what burned now was the fuse.
 
-Zhao Liangjian counted silently to four. Only when that extremely short fuse burned out did he step up to engage the enemy. The powder in the chamber ignited, smoke backing out the touchhole, emitting a wisp of white smoke.
+Zhao Liangjian had counted silently to four. Only when that extremely short fuse burned through did he step forward to engage the enemy. The powder in the chamber ignited, smoke venting through the touchhole, releasing that telltale wisp of white.
 
-Using a steel whip to bait the enemy was extremely dangerous. Agile footwork was needed to create a stalemate; only precise timing allowed him to fire and hit when needed.
+Using a steel whip to bait the enemy was extremely dangerous. Agile footwork was required to create a stalemate; only with precise timing could he fire and hit when needed.
 
-A cone of red, fragmented sparks, wrapped in smoke, erupted from the whip's muzzle. A handful of iron sand plastered the sturdy man's face completely.
+A cone of red, fragmented sparks, wrapped in billowing smoke, erupted from the whip's muzzle. A handful of iron sand plastered the sturdy man's face completely.
 
 (End of Chapter)

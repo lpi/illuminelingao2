@@ -62,7 +62,7 @@ He Xin had no choice and made up his mind to go back to Bopu first. As a result,
 
 "Not at all, Master He is a distinguished guest of the Chiefs. You'd better go inside first. We'll send the cigarettes immediately. If you feel bored, just say the word, and we'll have someone come and show Japanese shadow plays."
 
-As they spoke, three or four clerks surrounded him, bowing and scraping, each wearing a smile that made one shudder. He Xin couldn't help but take a few steps back, knowing in his heart that the Big Boss had fallen for the trap of this gang of Short Hairs!
+As they spoke, three or four clerks surrounded him, bowing and scraping, each wearing a smile that made one shudder. He Xin couldn't help but take a few steps back, knowing in his heart that the Big Boss had fallen for the trap of this gang of Kun!
 
 Returning to the room helplessly, He Xin thought despairingly that this luxuriously furnished and comfortable room was nothing but a gilded cage. Ren Fu and the brothers under him had mostly likely already fallen victim to their vicious hands! As for himself, he didn't know how long they would let him live. Thinking of this, his mood instantly fell into a bottomless abyss. He actually lay on the bed and began to cry bitterly.
 

@@ -1,117 +1,117 @@
 # Chapter 2759: The Capital (Part 115)
 
-Yang Tianliang had a guilty conscience these days and dared not go to Yang Gonggong's residence at all. He even skipped the daily morning and evening greetings, only claiming he had "fallen seriously ill."
+Yang Tianliang had been plagued by a guilty conscience these past few days and dared not set foot near Yang Gonggong's residence. He had even skipped the customary morning and evening greetings, claiming only that he had "fallen seriously ill."
 
-Wait, this Yang Gonggong didn't ask much, only sent someone to care: "Nurse your illness well," and asked nothing else.
+Strangely, Yang Gonggong made no inquiries. He merely sent someone to express concern: "Nurse your illness well," and asked nothing further.
 
-This attitude made him both worried and relieved. Gains and losses worried him daily, not knowing what to do. Sometimes after a burst of heart palpitations, he thought about taking out that preorder ticket and fleeing.
+This attitude left Yang Tianliang both worried and relieved. Anxiety gnawed at him daily, a constant tangle of gains and losses, leaving him uncertain of what to do. Sometimes, after a bout of heart palpitations, he would consider retrieving that preorder ticket and fleeing.
 
-However, thinking of the various things he would face after running away, Yang Tianliang hesitated again. After all, if he really ran away, this errand would be gone, and he would no longer be "a mouth in the palace" sufficient to make officials and gentry take out silver to bribe. Moreover, he entered the palace in his teens, and there was no one left in his family. There was no one to trust outside. Having been in the palace for many years, his voice and appearance had long been branded with distinct marks. Without the skin of a "eunuch," he feared it would be ominous.
+Yet whenever he thought of all he would face after running away, hesitation crept back in. If he truly fled, this position would be lost, and he would no longer be "a mouth in the palace"—someone whose status alone could compel officials and gentry to offer silver in tribute. Moreover, he had entered the palace as a teenager, and no family remained outside its walls. There was no one he could trust beyond the Forbidden City. After so many years within these walls, his voice and manner had been branded with distinctive marks. Without the protection of being a "eunuch," he feared misfortune would surely follow.
 
-Fortunately, there was nothing unusual in the palace, outside, or with his adoptive father these days. Except for Liu Sha disappearing as if evaporated from the world, everything was as usual. This more or less reassured him, and the thought of running away faded a lot.
+Fortunately, nothing unusual had occurred in the palace, outside, or with his adoptive father these past days. Apart from Liu Sha vanishing as if he had evaporated from the world, everything proceeded as usual. This more or less reassured him, and his thoughts of escape gradually faded.
 
-His adoptive father suddenly wanted to see him. Yang Tianliang felt uneasy in his heart, hurriedly put on a sickly look, and called the messenger eunuch into the bedroom to question.
+Then his adoptive father suddenly summoned him. Yang Tianliang's heart grew uneasy. He hurriedly arranged a sickly appearance and called the messenger eunuch into his bedroom to question him.
 
-"Adoptive father calls child over; I wonder what instructions he has?" He leaned against the bed and said feebly.
+"Adoptive Father calls for me—I wonder what instructions he has?" He leaned against the bed and spoke feebly.
 
-"Replying to Dad," the small eunuch bowed, "Old Ancestor said he heard you were sick these days and was very worried. So he specially sent this small one over. If Dad's illness is lighter, Old Ancestor invites Dad to the residence for a chat; there are some important matters to discuss. If the body is still unwell, resting a few more days doesn't matter. Let Your Honor rest and nurse your body at ease."
+"Replying to Dad," the young eunuch bowed, "Old Ancestor said he heard you have been ill these days and was very worried. He specially sent this humble one over. If Dad's illness has lightened, Old Ancestor invites Dad to the residence for a chat—there are some important matters to discuss. If the body is still unwell, resting a few more days does not matter. Your Honor should rest and nurse his health at ease."
 
-"Please go and tell Adoptive Father that the child's illness has improved greatly these few days, and I will go to pay respects to Adoptive Father tomorrow." After speaking, he put on a very concerned look and asked: "Is Adoptive Father's body peaceful these days?"
+"Please go and tell Adoptive Father that my illness has improved greatly these past few days, and I will come to pay respects tomorrow." After speaking, he put on a look of concern and asked, "Is Adoptive Father's health peaceful these days?"
 
-"Old Ancestor's body is peaceful. Originally, Shopkeeper Leng of Delong was kidnapped, and he worried tight. Now hearing Shopkeeper Leng is back again, the person is also happy. Yesterday he even invited several Eunuchs and summoned a troupe to the residence to sing opera and drink for amusement."
+"Old Ancestor's health is peaceful. Originally, when Shopkeeper Leng of Delong was kidnapped, he worried greatly. Now that he has heard Shopkeeper Leng has returned, his spirits have lifted. Yesterday he even invited several Eunuchs and summoned a troupe to the residence to sing opera and drink in amusement."
 
-"That's good." Yang Tianliang felt slightly relieved in his heart. On second thought, no second person knew about his conspiracy except Liu Sha, and there was no intersection between Liu Sha and Yang Gonggong, so Yang Gonggong shouldn't know.
+"That is good." Yang Tianliang felt slightly relieved. On second thought, no one except Liu Sha knew of his conspiracy, and there was no connection between Liu Sha and Yang Gonggong, so Yang Gonggong should have no way of knowing.
 
-Thinking of this, his originally sickly complexion instantly improved a lot. He instructed his subordinate to give a reward to the small eunuch. He pondered how to deal with his adoptive father tomorrow.
+Thinking of this, his previously sickly complexion instantly brightened. He instructed his subordinate to give a reward to the young eunuch, then began pondering how to deal with his adoptive father tomorrow.
 
-This "Adoptive Father" whom he originally cast aside like a worn shoe, he had to consider repairing the father-son relationship now. Silver, probably couldn't be obtained for a while. The errand with Wang Zhixin had to be thought of another way, but as long as he could maintain his status as an adopted son, Yang Gonggong's net worth would still be his in the future. As for when to get rid of him again, that was another matter.
+This "Adoptive Father" whom he had originally cast aside like a worn shoe—he now had to consider repairing the father-son relationship. Silver would probably be unobtainable for a while. The arrangement with Wang Zhixin would need to be reconsidered, but as long as he could maintain his status as an adopted son, Yang Gonggong's wealth would still be his in the future. As for when to cast him off again, that was another matter entirely.
 
-Early the next morning, Yang Tianliang had breakfast and rushed to Yang Gonggong's residence to pay respects.
+Early the next morning, Yang Tianliang had breakfast and hurried to Yang Gonggong's residence to pay his respects.
 
-Yang Gonggong's complexion was quite good. Seeing him come to bow, he raised his hand smilingly: "You and I are father and son; how can we be so particular. The thought counts." He scrutinized him again, "Is the illness on your body fully recovered?"
+Yang Gonggong's complexion was quite good. Seeing him come to bow, he raised his hand with a smile. "You and I are father and son—why stand on such ceremony? The thought is what counts." He scrutinized him again. "Has the illness fully left your body?"
 
-"Yes." Yang Tianliang responded respectfully, "Child has been sick for a long time and hasn't come to pay respects for many days, feeling guilty in heart. Today the body is much better. Many thanks for Dad's concern."
+"Yes." Yang Tianliang responded respectfully. "I have been sick for so long and have not come to pay respects for many days. I feel guilty in my heart. Today my body is much better. Many thanks for Father's concern."
 
-"It's good that your body is well. You are also in your forties, not a young man anymore. Be careful with your body." Yang Gonggong appeared quite concerned, "Although we are halfway father and son, we have supported each other for more than twenty years after all."
+"It is good that your body is well. You are in your forties now, no longer a young man. Take care of yourself." Yang Gonggong appeared quite concerned. "Although we are halfway father and son, we have supported each other for more than twenty years after all."
 
-"Yes. Dad's grace of upbringing and cultivation, Child dare not forget."
+"Yes. Father's grace of upbringing and cultivation—I dare not forget."
 
-"You don't need to be so polite," Yang Gonggong said quite emotionally, "Back when Nine Thousand Years just took power, we father and son lost our errands in the palace, were driven around, and didn't even have a place to live. We tried desperately to maneuver before barely standing firm again in the palace. At that time, no matter how hard or poor, we worked together with one heart and never said a word of estrangement. Instead, these years of smooth sailing have made us somewhat estranged. Speaking of it, it's nothing more than for the word 'money'."
+"You need not be so polite," Yang Gonggong said with evident emotion. "Back when Nine Thousand Years first took power, we father and son lost our positions in the palace. We were driven about with nowhere to live. We struggled desperately to maneuver before barely finding our footing again within these walls. At that time, no matter how hard or poor our circumstances, we worked together with one heart and never spoke a word of estrangement. Instead, these years of smooth sailing have made us somewhat distant from each other. Speaking of it, it is all nothing more than the word 'money.'"
 
-Yang Tianliang didn't know why his adoptive father suddenly brought up these old matters, but the words that followed were very heart-to-heart.
+Yang Tianliang did not know why his adoptive father had suddenly raised these old matters, but the words that followed spoke directly to his heart.
 
-He opened his mouth, seeming to want to defend something, but Yang Gonggong signaled him not to speak. With just a pout, the small eunuch next to him immediately brought a lacquer tray with an envelope on it.
+He opened his mouth as if to defend himself, but Yang Gonggong signaled him not to speak. With just a slight pout, the young eunuch beside him immediately brought forth a lacquer tray bearing an envelope.
 
-"Inside are Delong's notes, twenty thousand taels. Take it to buy your future." Yang Gonggong said here with endless emotion, "After you go to the Directorate of Imperial Horses, I'm afraid there will be many expenses below. You have to rely on yourself for this money."
+"Inside are Delong notes—twenty thousand taels. Take it to secure your future." Yang Gonggong paused here, his voice laden with emotion. "After you go to the Directorate of Imperial Horses, there will surely be many expenses to consider. You will have to rely on yourself for this money."
 
-Yang Tianliang never dreamed that Yang Gonggong would actually speak such heart-to-heart words to him and take out twenty thousand silver on the spot. One must know that back when he wanted to borrow these twenty thousand silver from his adoptive father, the two almost turned against each other for this. Why did this suddenly change character?
+Yang Tianliang had never dreamed that Yang Gonggong would speak such heartfelt words to him, much less produce twenty thousand taels of silver on the spot. One had to remember that when he had tried to borrow this very sum from his adoptive father, the two had nearly turned against each other over it. Why this sudden change of heart?
 
-"Dad..."
+"Father..."
 
-"What, think it's too little?"
+"What—do you think it is too little?"
 
-"No, dare not..." Yang Tianliang waved his hands hurriedly, "Child originally wanted to raise these silver myself, unexpectedly..."
+"No, I would not dare..." Yang Tianliang waved his hands hastily. "I had originally intended to raise this silver myself. Unexpectedly..."
 
-"You don't need to say." Yang Gonggong sighed, "I have also thought it through now. I am a person over sixty; how many days can I live in the world? All these belongings will be yours in the future. Why separate so clearly! You want to serve in the Directorate of Imperial Horses; I won't stop you either. After all, your days are still long."
+"You need not say more." Yang Gonggong sighed. "I have thought it through now. I am a man past sixty—how many days can I have left in this world? All these belongings will be yours eventually. Why draw such clear lines between us? You wish to serve in the Directorate of Imperial Horses, and I will not stop you. After all, your days are still long."
 
-These words were sincere and made Yang Tianliang somewhat moved for a moment. He hurriedly knelt down to take the envelope, grateful to tears: "Dad's grace of cultivation, Child dare not forget in eternal life."
+These words were sincere, and Yang Tianliang found himself genuinely moved for a moment. He hurriedly knelt to receive the envelope, his gratitude bringing tears to his eyes. "Father's grace of cultivation—I shall never forget it as long as I live."
 
-"It's good that you have this heart." Yang Gonggong appeared very "kind" at this moment, "Speaking of which, I also have selfishness. Afraid that once you fly to a high branch, you won't recognize me as this adoptive father; also afraid that you become a popular person in the palace, busy every day without leisure, with no more free time to care for me in old age. Sigh, people get old, more or less have selfish distractions... You have to forgive..."
+"It is enough that you have this heart." Yang Gonggong appeared very "kind" at this moment. "To speak truthfully, I have my own selfish thoughts as well. I feared that once you flew to a higher branch, you would no longer acknowledge me as your adoptive father. I also feared you might become such a popular figure in the palace, busy every day, with no leisure to care for me in my old age. Ah, as people grow old, they become more and more prone to selfish worries... You must forgive me..."
 
-"Dare not, dare not," Yang Tianliang hurriedly pointed to heaven to swear a curse, saying that if he had any thought of not being filial to his adoptive father, he must die a bad death.
+"I would not dare think otherwise," Yang Tianliang hastily pointed to heaven and swore an oath, saying that if he ever harbored any thought of being unfilial to his adoptive father, he deserved to die a wretched death.
 
-"It's enough that you know; why swear a curse." Yang Gonggong sighed, "We men don't need this."
+"It is enough that you understand—why swear such oaths?" Yang Gonggong sighed. "We men do not need such things."
 
 "Yes, yes."
 
-Yang Gonggong coughed lightly and continued: "Over at Delong, vitality is temporarily hurt. He also came to beg me, so I made the decision to keep the ten thousand taels of silver from the various Eunuchs in the palace there."
+Yang Gonggong coughed lightly and continued, "As for Delong, their vitality is temporarily hurt. Shopkeeper Leng came to beg me as well, so I have decided to keep the ten thousand taels of silver deposited by the various Eunuchs in the palace with them."
 
-"All depends on Dad to decide."
+"All depends on Father's decision."
 
-"Shopkeeper Leng is prudent in doing things and very reliable. In the future, he might still be the reliance of you and me, father and son. You treat him, cannot be like treating ordinary merchants."
+"Shopkeeper Leng is prudent in his affairs and very reliable. In the future, he may well become a support for you and me both. You must not treat him as you would an ordinary merchant."
 
-"Child understands!"
+"I understand!"
 
-Yang Gonggong rambled on about many future arrangements, and Yang Tianliang agreed to them one by one. The father and son chatted, harmonious and happy, a scene of "kind father and filial son."
+Yang Gonggong rambled on about many future arrangements, and Yang Tianliang agreed to each one. The father and son chatted harmoniously and happily, presenting a picture of "kind father and filial son."
 
-At the end, Yang Gonggong seemed to mention inadvertently: "I heard you often went to Tianjin Wei a few days ago?"
+At the end, Yang Gonggong seemed to mention casually, "I heard you went to Tianjin Wei several times recently?"
 
-Yang Tianliang was stunned. When plotting this "big event," in order to prepare to flee after the matter was exposed, he indeed went to Tianjin Wei specially and bought a preorder ticket at the Merchants' Bureau boat agency.
+Yang Tianliang stiffened. While plotting his "great scheme," he had indeed visited Tianjin Wei specifically to prepare for flight should the matter be exposed, purchasing a preorder ticket at the Merchants' Bureau boat agency.
 
-He didn't ask a small eunuch to do this; he did it himself in person. And the follower he took to Tianjin Wei was not a palace eunuch. It should be very secret. How did Yang Gonggong know?
+He had not sent a young eunuch to handle this task—he had gone in person. And the servant he had taken to Tianjin Wei was not a palace eunuch. It should have been completely secret. How did Yang Gonggong know?
 
-On second thought, his going to Tianjin Wei was not a secret infiltration, so it was not strange for his adoptive father to know. He thought slightly and said:
+On second thought, his trips to Tianjin Wei had not been covert infiltrations, so it was not strange for his adoptive father to have heard of them. He considered briefly and said:
 
-"Yes, Child went to Tianjin Wei a few times to handle matters."
+"Yes, I went to Tianjin Wei a few times to handle some matters."
 
-"Oh, what matter was handled?"
+"Oh? What matters were those?"
 
-"Tianjin Wei now has many fresh gadgets, especially many 'Nanyang Goods'. Child heard there are several medicines among them that are very miraculous, so I went there specially to see if they were truly so effective. If they really had effects, I wanted to buy them to honor Dad."
+"Tianjin Wei now has many fresh novelties, especially many 'Nanyang Goods.' I heard there are several medicines among them that are said to be miraculous, so I went there specifically to see if they were truly so effective. If they truly worked, I intended to purchase some to honor Father."
 
-Yang Gonggong also showed a look of curiosity: "What medicine?"
+Yang Gonggong's face showed curiosity. "What medicine?"
 
-"It is a kind of medicinal wine, with the effect of strengthening Yang and tonifying the kidney..." What Yang Tianliang said was not entirely false. Because in Tianjin Wei, there were indeed pharmacies selling this "Aphrodisiac Wine" said to flow out from the Kun scoundrels, and the effect was significant.
+"It is a type of medicinal wine, with effects for strengthening Yang and tonifying the kidney..." What Yang Tianliang said was not entirely fabricated. In Tianjin Wei, there were indeed pharmacies selling this "Aphrodisiac Wine" said to have flowed out from the Kun, and its effects were reportedly remarkable.
 
-"Useful?!"
+"It works?!"
 
-"Useful!" Yang Tianliang nodded very affirmatively, and acted slightly shy: "Child... Child... also tasted it. It indeed has potency."
+"It works!" Yang Tianliang nodded with great certainty, affecting a slight shyness. "I... I... also sampled it myself. It is indeed potent."
 
-Eunuchs using aphrodisiacs was not a strange story. Eunuchs abusing aphrodisiac drugs and being addicted to eating various "animal penises" were occasionally recorded in historical materials and novels about eunuch life in the Ming and Qing dynasties. Yang Gonggong and his son were both eunuchs, but still kept many concubines, and the demand in this aspect was very strong.
+Eunuchs using aphrodisiacs was not an unusual story. Eunuchs abusing such drugs and developing addictions to consuming various "animal penises" had been occasionally recorded in historical materials and novels depicting eunuch life during the Ming and Qing dynasties. Yang Gonggong and his son were both eunuchs yet still kept many concubines, and their appetite in this regard was considerable.
 
-"Unexpectedly there is such a strange thing!" Yang Gonggong showed a look of greed, "Such a Kun scoundrel good thing, why didn't Leng Ningyun mention it?"
+"Such a wonder exists!" Yang Gonggong's expression turned covetous. "Such a fine Kun product—why did Leng Ningyun never mention it?"
 
-"Probably because it uses 'medicine', fearing trouble." Yang Tianliang said, "He is a merchant, naturally unwilling to provoke trouble."
+"Probably because it involves 'medicine,' and he fears complications." Yang Tianliang said, "He is a merchant, after all, naturally unwilling to invite trouble."
 
-"Loss that Father let him save so much money, not a bit of filial piety!" Yang Gonggong scolded, and immediately asked about the medicinal wine, "How many bottles did you buy?"
+"After I let him hold so much of our money, he does not show even a little filial piety!" Yang Gonggong scolded, then immediately pressed for more about the medicinal wine. "How many bottles did you buy?"
 
-"This medicinal wine arrives intermittently, and the quantity each time is also very small. It is very sought after," Yang Tianliang said, "Child went several times before buying three bottles. One bottle Child already used to test the medicine. The remaining two bottles will be sent to honor Father tomorrow."
+"This medicinal wine arrives sporadically, and the quantity each time is very limited. It is much sought after," Yang Tianliang explained. "I went several times before managing to buy three bottles. One bottle I have already used to test its effects. The remaining two I will send to honor Father tomorrow."
 
-"Good, good, worthy of being my obedient child!" Yang Gonggong clapped his hands and laughed, "This Kun scoundrel indeed has good things!" He sighed as he spoke, "I heard there is a Merchants' Boat Agency in Tianjin Wei?"
+"Good, good—worthy of being my obedient son!" Yang Gonggong clapped his hands and laughed. "The Kun truly do have fine wares!" He sighed as he spoke. "I hear there is a Merchants' Boat Agency in Tianjin Wei?"
 
-Yang Tianliang was startled and said apprehensively: "There are... those running sea routes, and also those running the canal."
+Yang Tianliang started and said apprehensively, "There is... they run sea routes, and also routes along the canal."
 
-"I heard people say that the Merchants' Boat Agency's ships can go to Lingao. Dad is old, otherwise, I really want to go to Lingao to take a look!" Yang Gonggong sighed.
+"I have heard people say that the Merchants' Boat Agency ships can travel to Lingao. Father is old now—otherwise, I would truly wish to visit Lingao and see it for myself!" Yang Gonggong sighed.
 
-Yang Tianliang laughed dryly a few times and said: "You old man are joking. Not to mention the bumps of the sea route, now that the two countries are at war, how can one go? Dad."
+Yang Tianliang laughed dryly a few times and said, "You old man are joking. Not to mention the rough passage of the sea route, now that the two nations are at war, how could one possibly go, Father?"
 
-"That's right, just saying freely. This Kun scoundrel is really formidable. fighting war on one side while doing business on the other. If the sour scholars in the court all had their ability, it would be good." Yang Gonggong laughed, "I am tired. You withdraw."
+"You are right—I am merely speaking idly. The Kun are truly formidable, fighting a war on one side while conducting business on the other. If the sour scholars at court all possessed their abilities, that would be something." Yang Gonggong laughed. "I am tired. You may withdraw."

@@ -8,7 +8,7 @@ Laifu's father and Laifu wept as if they would die, desperately pleading. They k
 
 Watching the old man's corpse being loaded onto the corpse collection team's Whirlwind-style two-wheeled cart, Huo Junming filled out the corpse tag, tied it to the body bag, and tore off one half to give to Laifu: "Three days from now, take this slip to Liuhua Bridge to collect the ashes."
 
-Laifu's father, kneeling on the ground, stiffly accepted it. But Laifu's grandmother snatched it, tore it to shreds, and glared with tear-swollen eyes, cursing: "Who needs your fake kindness! You've already burned him to ashes—what's there to collect! You plague-ridden, no-good-end cropped-hair rebels—sooner or later the court will have you all executed by a thousand cuts, ground to dust and scattered..." As she spoke, she flung her hand, and the paper fragments scattered like snowflakes over the two men.
+Laifu's father, kneeling on the ground, stiffly accepted it. But Laifu's grandmother snatched it, tore it to shreds, and glared with tear-swollen eyes, cursing: "Who needs your fake kindness! You've already burned him to ashes—what's there to collect! You plague-ridden, no-good-end cropped-Kun—sooner or later the court will have you all executed by a thousand cuts, ground to dust and scattered..." As she spoke, she flung her hand, and the paper fragments scattered like snowflakes over the two men.
 
 "This is paper money burned for you..."
 

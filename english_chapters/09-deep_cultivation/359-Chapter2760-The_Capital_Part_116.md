@@ -1,127 +1,129 @@
 # Chapter 2760: The Capital (Part 116)
 
-Yang Tianliang came out of Yang Gonggong's residence, feeling his legs weak but also relieved of a heavy burden. Touching the envelope in his bosom, he realized he wasn't dreaming.
+Yang Tianliang emerged from Yang Gonggong's residence with trembling legs, yet a weight had lifted from his shoulders. He touched the envelope nestled against his chest, confirming he was not dreaming.
 
-Unexpectedly, his adoptive father not only didn't detect his conspiracy but was also so generous. That's right, presumably this old thing also knew his days were numbered and had to rely on him, the adopted son.
+Against all expectations, his adoptive father had not only failed to detect his conspiracy but had proven remarkably generous. But of course—the old man surely knew his days were numbered and had no choice but to rely on his adopted son.
 
-Should have been like this earlier! Yang Tianliang thought, why make me toss about like this!
+*Should have been like this from the start!* Yang Tianliang thought bitterly. *Why make me go through all this trouble?*
 
-However, giving twenty thousand silver at once, the old thing was really generous. Never mind, wait until he gets to the Directorate of Imperial Horses, then curry favor well with Wang Zhixin. Afterwards, if this old thing breathes his last smoothly, let it be; if he refuses to breathe his last, sending him to the Western Heaven then won't be too late.
+Still, twenty thousand taels of silver in one payment—the old man was generous indeed. No matter. Once he secured his position at the Directorate of Imperial Horses, he would ingratiate himself with Wang Zhixin. After that, if the old man passed away peacefully, so be it. If he stubbornly clung to life, sending him to the Western Heaven could wait until then.
 
-Before that, might as well perfunctory this old fellow again.
+In the meantime, he might as well humor the old fellow a bit longer.
 
-He indeed had a few bottles of "Nanyang Aphrodisiac Wine" in his hands, all obtained from Liu Sha, said to be very effective. He tried one, and it was indeed very effective. Presenting it to Yang Gonggong just like this, he was somewhat unwilling.
+He did have several bottles of "Nanyang Aphrodisiac Wine" in his possession, all obtained from Liu Sha, reputedly quite potent. He had tried one himself and found it remarkably effective. Presenting it to Yang Gonggong outright made him somewhat reluctant.
 
-However, him wanting the medicinal wine was a good opportunity. Use the medicinal wine to finish him off in the future. Anyway, this medicinal wine is just a bottle; what's inside is up to him to decide.
+However, the old man's request for the medicinal wine presented an opportunity. He could use it to finish him off in the future. After all, a bottle was just a bottle—what went inside was entirely his decision.
 
-Thinking of medicinal wine reminded him of Liu Sha. This person's whereabouts being unknown was always a hidden danger. Yang Tianliang felt vaguely uneasy in his heart, but thinking again that very few people knew about his relationship with Liu Sha, as long as he didn't fall into Australian hands, it wouldn't matter.
+Thoughts of the medicinal wine brought Liu Sha to mind. The man's unknown whereabouts remained a lurking danger. Yang Tianliang felt a vague unease stirring in his chest, but he reassured himself that few people knew of his connection to Liu Sha. As long as he did not fall into Australian hands, nothing would come of it.
 
-Pondering in the sedan chair, suddenly the sedan chair paused and stopped. Yang Tianliang was stunned, lifted the curtain and asked: "What happened?"
+Lost in these ruminations inside his sedan chair, he suddenly felt the conveyance pause and stop. Startled, Yang Tianliang lifted the curtain and called out, "What happened?"
 
-But no one answered. The little eunuch who came out with him was not by the sedan chair.
+No one answered. The young eunuch who had accompanied him was nowhere to be seen.
 
-Looking carefully, outside was not a street, but some unknown "factory" (*chang*). There were many kinds of "factories" inside and outside the Capital City, all places where various yamen piled materials. Such as Red Silk Factory, War Chariot Factory, Wood Factory, Manure Factory, etc. These "factories" occupied a large area. Apart from a few guards, very few people came on weekdays. They were very desolate places in the city.
+Peering outside, he realized they were not on any street but in some unfamiliar "factory"—a *chang*. There were many such facilities inside and outside the capital, all places where various ministries stored materials: the Red Silk Factory, the War Chariot Factory, the Wood Factory, the Manure Factory, and more. These compounds sprawled across large areas, guarded by only a handful of men. Few people came on ordinary days. They were among the most desolate places within the city.
 
-Yang Tianliang had been in the Capital since childhood and served in the palace. He had been to many such places. But this place was very strange.
+Yang Tianliang had lived in the capital since childhood and served in the palace for years. He had visited many such places. But this one was utterly unfamiliar.
 
-He was greatly shocked, immediately realizing he had been tricked! Just as he was about to run wildly, his body was held firmly. Two "sedan bearers" twisted his left and right arms, causing pain to the bone. Unconsciously, he screamed miserably, unable to move his whole body.
+Terror seized him as he realized he had been tricked. He made to bolt, but his body was caught fast. Two "sedan bearers" wrenched his arms to either side, twisting until the pain reached his bones. An anguished scream tore from his throat, and his whole body went rigid, unable to move.
 
-Someone kicked him hard in the crook of his knee. Yang Tianliang involuntarily plopped down, kneeling in the muddy snow. He was extremely terrified and said: "Good fellows, good fellows, don't use force..."
+Someone kicked him hard in the back of the knees. Yang Tianliang collapsed involuntarily, falling to his knees in the muddy snow. Panic gripped him. "Good fellows, good fellows, no need for violence..."
 
-The four "sedan bearers" ignored him, only searching him silently from head to toe. Seeing the envelope on his chest being searched away, Yang Tianliang secretly felt heartache, but also felt relieved. It seemed the other party came for wealth, so his small life was safe.
+The four "sedan bearers" ignored his pleas, silently searching him from head to toe. When they found and confiscated the envelope from his chest, Yang Tianliang felt a secret pang of loss—but also relief. If they had come for wealth, his life might yet be spared.
 
-At this time, the leader asked: "Are you the Manager of the Sutra Factory, Yang Tianliang?"
+Then the leader spoke: "Are you the Manager of the Sutra Factory, Yang Tianliang?"
 
-"Yes, yes, it is precisely ourself (*zanjia*)." The other party came prepared, so naturally, he couldn't deny it. Yang Tianliang remembered Liu Sha taught him that when encountering such things, one must absolutely not look up at people's faces, only lower the head and beg, "Silver, you have already taken. Beg good fellows to raise your hands high..."
+"Yes, yes, that is precisely myself." There was no point denying it to men who had come so well prepared. Yang Tianliang remembered Liu Sha's advice: when caught in such situations, never look up at their faces—only bow your head and beg. "The silver—you have already taken it. I beg the good fellows to show mercy..."
 
-"Silver, keep it for yourself; it's useful on the road." The leader said slowly, "Bright people don't speak dark words. Brothers have no grievance or enmity with you. Sending you on the road today is entrusted by someone. When you arrive at the Yin Cao Di Fu (Underworld), don't hold a grudge against brothers."
+"Keep the silver for yourself. You will need it for the journey." The leader's voice was unhurried. "We are plainspoken men. We bear you no grievance or grudge. Sending you on your way today is merely a commission. When you arrive at the Underworld, do not hold it against us."
 
-Only then did Yang Tianliang know that the comers were not highwaymen but came to take his life. He instantly went limp on the ground and wailed: "Don't do it! Don't do it! I have silver! Silver! However much they give, I give double, add another ten thousand taels. No, twenty thousand, is twenty thousand enough? Even more I can scrape together... Raise hands high, raise hands high... Spare life..."
+Only then did Yang Tianliang understand that these were no common robbers—they had come to take his life. His legs gave way completely, and he collapsed to the ground, wailing. "Please, don't! I have silver! However much they paid, I will double it—add another ten thousand taels! No, twenty thousand! Is twenty thousand enough? I can scrape together even more... Have mercy, have mercy... Spare my life..."
 
-While begging for mercy, his body shook like a sieve. He had the heart to resist but was twisted by key joints and couldn't move.
+Even as he begged, his body shook like a sieve. He wanted to fight back, but they had pinned his joints so expertly he could not move.
 
-The four ignored him completely, dragging and pulling him into an empty room. A rope had already been hung on the beam, with a long bench placed underneath. There was also a clay fire basin beside it.
+The four paid him no attention whatsoever. They dragged and hauled him into an empty room where a rope already hung from the beam, a long bench positioned beneath it. A clay fire basin sat nearby.
 
-The leader lengthened his tone and shouted: "Come! Serve Eunuch Yang on the road! Ascend to Ultimate Bliss early."
+The leader drew out his words in a ceremonial shout: "Come! Let us attend Eunuch Yang on his journey! May he ascend to Ultimate Bliss!"
 
-The remaining three responded in unison: "Yes!" They clumsily sent Yang Tianliang onto the long bench and put him into the noose. Yang Tianliang's face was ashen, struggling desperately, but still couldn't escape. His neck was forcefully noosed, and instantly the long bench was kicked to the ground. Only Yang Tianliang's body was left struggling and twitching in mid-air.
+The other three answered in unison: "Yes!" With clumsy efficiency, they hoisted Yang Tianliang onto the long bench and fitted the noose around his neck. His face went ashen as he thrashed desperately, but escape was impossible. The rope cinched tight around his throat, and the bench was kicked away. Yang Tianliang's body dangled in mid-air, twitching and convulsing.
 
-The four watched silently by the side until the body in mid-air had no more movement. Someone checked the pulse and announced loudly: "Eunuch Yang has become an immortal!"
+The four watched in silence until the body ceased to move. One of them checked for a pulse, then announced loudly: "Eunuch Yang has become an immortal!"
 
-The people aside immediately lit a fire in the fire basin, melting a set of paper figures, sedan chair, and horses in it, and added a string of tin ingots.
+The others immediately lit a fire in the basin, burning a set of paper effigies—figures, a sedan chair, and horses—along with a string of tin ingots.
 
-The leader tore open the envelope containing the bank note and took out the note inside. Where was this any Delong bank note? It was a netherworld bill printed with "Fengdu Currency" and "Treasure Note Twenty Thousand Ingots"!
+The leader tore open the envelope and extracted its contents. What he found was no Delong banknote. It was netherworld currency, printed with "Fengdu Currency" and "Treasure Note: Twenty Thousand Ingots."
 
-He threw the envelope and netherworld bill into the fire together. The dancing flames gradually swallowed the paper.
+He tossed the envelope and spirit money into the flames together. The dancing fire slowly consumed the paper.
 
-The news of Yang Tianliang "hanging himself" did not cause much concern in the palace. There were tens of thousands of eunuchs serving in this palace. Many people died every year, and suicides were not few. The death of a person made less of a splash than the death of a cat or dog of a master in the palace.
+---
 
-However, Yang Tianliang was, after all, the Manager of the Sutra Factory and the adopted son of the Seal-holding Eunuch of the Bell and Drum Division. Therefore, the funeral was held quite grandly. The eunuchs of the Bell and Drum Division from top to bottom inevitably had to give funeral gifts. For those intending to drill, it was an even better opportunity. As for other big eunuchs, looking at Yang Gonggong's face, they more or less had to give some. After a funeral, deducting expenses, about a thousand taels could be netted.
+News of Yang Tianliang's "suicide by hanging" caused little stir in the palace. Tens of thousands of eunuchs served within these walls. Many died each year, and suicides were not uncommon. The death of one person created less of a ripple than the passing of some master's cat or dog.
 
-While handling the funeral, Yang Gonggong called over a personal eunuch to look after the aftermath matters.
+Nevertheless, Yang Tianliang had been the Manager of the Sutra Factory and the adopted son of the Seal-holding Eunuch of the Bell and Drum Division. His funeral was therefore conducted with considerable grandeur. Every eunuch in the Bell and Drum Division, from highest to lowest, was obligated to contribute funeral gifts. For those seeking to curry favor, it was an excellent opportunity. Other senior eunuchs, out of respect for Yang Gonggong, offered at least token contributions. After all expenses were deducted, the funeral netted approximately one thousand taels.
 
-"...Go and take over the lodgings in the palace and outside with people. Don't rush to flip through the things inside. Seal them all up for inspection later."
+While the funeral arrangements proceeded, Yang Gonggong summoned a personal attendant to oversee the aftermath.
+
+"...Go with some men and take over his lodgings, both inside and outside the palace. Do not rush to examine the contents. Seal everything for later inspection."
 
 "Yes, Old Ancestor."
 
-"Reward the maid paired with him fifty taels of silver. If she is willing to go home, report a sudden death for her and let her leave the palace. If not willing, stay in the palace to continue serving." Yang Gonggong lay face up on a "Nanyang Rattan Couch," saying slowly, "If you like the few women in his mansion, keep them all."
+"Give the maid who was paired with him fifty taels of silver. If she wishes to return home, report her as a sudden death and let her leave the palace. If she prefers to stay, she may continue serving." Yang Gonggong lay reclined on a "Nanyang Rattan Couch," speaking in measured tones. "If you fancy any of the women in his mansion, keep them for yourself."
 
-"Old Ancestor is joking; how can this slave afford to feed..." The eunuch was apprehensive and fearful.
+"Old Ancestor jests—how could this slave afford to maintain them..." The eunuch was full of trepidation.
 
-"What, dislike the monthly money for being little?"
+"What, is your monthly stipend too meager?"
 
-"Dare not, dare not," the eunuch said hurriedly.
+"I would never presume, never presume," the eunuch said hastily.
 
-"I say you can afford it, you can afford it," Yang Gonggong sneered. "What do you worry about?"
+"I say you can afford it, so you can afford it." Yang Gonggong's lip curled in a sneer. "Why trouble yourself with such worries?"
 
-"Yes, yes, fully rely on Old Ancestor's cultivation!"
+"Yes, yes, all thanks to Old Ancestor's patronage!"
 
-"How many years have you followed me?"
+"How many years have you served under me?"
 
-"Tianqi Year Five. Not long after this small one entered the palace, I was assigned to Old Ancestor's name."
+"Since the fifth year of Tianqi. Shortly after this small one entered the palace, I was assigned to Old Ancestor's household."
 
-"So, it has been quite a few years." Yang Gonggong nodded and looked carefully at the kneeling person, laughing, "A monkey cub! How old?"
+"So, quite a few years indeed." Yang Gonggong nodded and studied the kneeling figure with care, then chuckled. "A young monkey! How old are you?"
 
-"Slave is twenty-eight years old."
+"This slave is twenty-eight years old."
 
-"Really young." Yang Gonggong let out a sound like a sigh, "You followed me these years. Although the things done were not big, they were all very proper."
+"Truly young." Yang Gonggong let out a sound somewhere between a sigh and a laugh. "You have followed me all these years. Though the tasks you performed were not significant, they were always handled properly."
 
-"Thank Old Ancestor for the praise! All are what slave should do."
+"This slave thanks Old Ancestor for his praise! All is merely my duty."
 
-"Hehe, ourself doesn't praise people for no reason." Yang Gonggong laughed, "Like this, I promote you now."
+"Heh, I do not praise without reason." Yang Gonggong laughed. "Listen well—I am promoting you."
 
-"Thank Old Ancestor! Thank Old Ancestor!" The eunuch kowtowed repeatedly.
+"Thank you, Old Ancestor! Thank you, Old Ancestor!" The eunuch kowtowed repeatedly.
 
-"Don't rush!" Yang Gonggong waved his hand, "Your Big Brother Yang is gone. Ourself and Eunuch Cao of the Directorate of Ceremonial have agreed on his position. I give you ten days. Go to the Sutra Factory and fetch a copy of the *Little Infinite Life Sutra* for me. After success, go and take this errand."
+"Do not rush!" Yang Gonggong raised a hand. "Your Elder Brother Yang is gone. I have already arranged with Eunuch Cao of the Directorate of Ceremonial regarding his position. I give you ten days. Go to the Sutra Factory and obtain a copy of the *Little Infinite Life Sutra* for me. Once you succeed, you may take up this new post."
 
-"Yes, thank Old Ancestor. Slave will definitely not fail Old Ancestor's grace!" The eunuch was overjoyed and kowtowed several more times.
+"Yes, thank you, Old Ancestor! This slave will absolutely not fail Old Ancestor's grace!" The eunuch was overjoyed and kowtowed several more times.
 
-Going to the Sutra Factory to fetch scriptures seemed like a running errand, but in reality, it was a test for eunuchs who wanted to be promoted. If they could successfully obtain the scripture, it meant their skills and interpersonal relationships were sufficient to cope with higher job assignments.
+Going to the Sutra Factory to fetch scriptures might seem like a mere errand, but in truth it served as a test for eunuchs seeking promotion. Successfully obtaining the scripture demonstrated that one's skills and connections were sufficient to handle more demanding assignments.
 
-Of course, this opportunity was not given casually. Yang Gonggong had observed the personal eunuch in front of him for a long time, basically considering him extremely secure.
+Of course, such opportunities were not given lightly. Yang Gonggong had observed this particular attendant for a long time and considered him thoroughly reliable.
 
-"From today on, you change your name to Yang Tianbian."
+"From today forward, you shall be known as Yang Tianbian."
 
-"Yes, thank Old Ancestor for bestowing the name!"
+"Yes! This slave thanks Old Ancestor for bestowing the name!"
 
-Although the name was changed, Yang Gonggong was not anxious to accept him as an adopted son. First, Yang Tianliang's "bones were not cold yet"; second, he was also afraid, fearing raising another "white-eyed wolf." Yang Tianliang had "shared tribulations" and was still unreliable, let alone a newcomer who had been with him for only just over ten years?
+Though he granted the name, Yang Gonggong was in no hurry to formally adopt him. First, Yang Tianliang's bones were not yet cold; second, he was afraid—afraid of raising another "white-eyed wolf." Yang Tianliang had "shared tribulations" with him and still proven unreliable. How much less could he trust a newcomer who had served him for barely ten years?
 
-He had secretly observed this spare tire Yang Tianbian for many years, believing he could do things and counted as loyal. But usually, he never showed favor to this person. First, if the adopted son found out, he might find an opportunity to lay a poisonous hand; second, to see his temperament.
+He had secretly observed this backup candidate, Yang Tianbian, for many years and believed him capable and reasonably loyal. But he had deliberately withheld favor from the man. First, if his adopted son had discovered a potential rival, he might have seized an opportunity to eliminate him. Second, Yang Gonggong wanted to observe the man's temperament.
 
-Now it seemed this person could endure loneliness. He did many things and didn't get many benefits, yet never complained about the Yang Gonggong father and son. He was a very cautious person.
+Now it seemed this person could endure obscurity. He had accomplished much and received little reward, yet never complained about Yang Gonggong or his adopted son. He was an exceedingly cautious man.
 
-Now, Yang Tianliang was dead. Someone had to continue doing those important errands for him. Although the years were a bit short, there was not much room for choice now.
+With Yang Tianliang dead, someone had to continue handling those important errands. Though Yang Tianbian's years of service were somewhat short, there was little room for choice now.
 
-He was a person over sixty, and his time serving in the palace was not much. Muddling along for a few more years, inevitably he would have to "retire." Yang Tianliang's death was a great loss to him, but he really couldn't imagine what this harbored malicious adopted son would do.
+Yang Gonggong was a man past sixty, and his remaining years of service in the palace were few. Another few years of muddling through, and he would inevitably have to "retire." Yang Tianliang's death was a significant loss, but he truly could not fathom what that treacherous adopted son might have done had he lived.
 
-Now that he committed suicide, it counted as unloading a troublesome matter from his heart.
+Now that the man had "committed suicide," at least one troublesome matter had been lifted from his heart.
 
-Seeing Yang Tianbian still kneeling in front of him, he suddenly remembered a matter and said: "You go to Deong Bank tomorrow and meet Shopkeeper Leng."
+Seeing Yang Tianbian still kneeling before him, Yang Gonggong suddenly remembered something. "Tomorrow, go to Delong Bank and meet with Shopkeeper Leng."
 
-Yang Tianbian was overjoyed. This was the second great news today. He knew this Shopkeeper Leng of Delong was one of Yang Gonggong's money bags. The interaction between the two sides was extremely close. Before Yang Tianliang died, except for the recent half-year or so, he was always responsible for docking and passing messages.
+Yang Tianbian's heart leapt with joy. This was the second piece of wonderful news today. He knew that Shopkeeper Leng of Delong was one of Yang Gonggong's primary financiers. The relationship between them was extremely close. Before Yang Tianliang's death—excepting the past half-year or so—he had always been responsible for liaising and passing messages between them.
 
-Calling him to meet now, didn't it mean that this errand also fell into his hands!
+Being summoned to meet the shopkeeper now could only mean that this duty had fallen to him as well!
 
-"Yes," Yang Tianbian asked: "Slave goes over, do I need to pass any message to him?"
+"Yes." Yang Tianbian asked, "When this slave goes, should I convey any message to him?"
 
-"Just say, the past things are all past. Ask Shopkeeper Leng not to be too haggling. What he helped ourself with, ourself naturally remembers."
+"Simply tell him that the past is past. Ask Shopkeeper Leng not to be too particular about old grievances. Whatever assistance he rendered me, I naturally remember."

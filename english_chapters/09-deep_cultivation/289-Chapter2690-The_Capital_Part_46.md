@@ -2,160 +2,160 @@
 
 "Did he really say that?"
 
-"Yes, the lowly one heard clearly and distinctly." Zhou Lezhi said.
+"Yes, your humble servant heard it clearly and distinctly," Zhou Lezhi replied.
 
-Wang Yehao nodded to express satisfaction. It seemed he didn't need to expend much effort; the Shorn-hair Thieves' own evil deeds made this Hearthstone Daoist detest them. In this way, he wasn't afraid of him running back. The "Lingao Bandit Situation" written by Gou Chengxuan also had quite a lot of black material; he could also show it to him.
+Wang Yehao nodded with satisfaction. It seemed he wouldn't need to expend much effort after all—the Kun's own evil deeds had already made this Hearthstone Daoist despise them. With such sentiments, there was no fear of him running back to them. The "Lingao Bandit Situation" written by Gou Chengxuan also contained quite a bit of damning material; he could show that to him as well.
 
-Now he was in no hurry for the act of "Mengde's Songstress" [Cao Cao keeping Xu Shu's mother? Or just using women/pleasure? Context implies keeping him]. Besides predicting the future, this Hearthstone Immortal could also bring him many other benefits, and had offered quite a few ideas on rehabilitation. Some were close to empty talk, but the angles were novel and could inspire lines of thought.
+For now, there was no rush to employ the strategy of "Mengde's Songstress"—keeping him through pleasure and comfort. Besides predicting the future, this Hearthstone Immortal could bring him many other benefits, and had already offered quite a few ideas on rehabilitation. Some bordered on empty talk, but the angles were novel and could inspire new lines of thought.
 
-This was a capable person. Must rope him into hand!
+This was a capable man. He must be brought into his service!
 
-Zhou Lezhi didn't have so many calculations; he just felt that starting from returning from the countryside, the Teacher was greatly different from before, becoming silent and reticent. Everyday besides giving him lessons, at night he also didn't frolic with Jieyi anymore, but closed the door to write books.
+Zhou Lezhi didn't harbor so many calculations; he simply felt that since returning from the countryside, the Teacher had become greatly different from before—silent and reticent. Every day, besides giving him lessons, the Teacher no longer frolicked with Jieyi at night, but instead shut himself away to write books.
 
-Manuscripts piled up continuously. Originally relying on Zhou Lezhi to copy and organize, but the Teacher disliked that this would occupy Zhou Lezhi's lesson time, so he let Liu Zhao find five book copyists.
+Manuscripts piled up continuously. Originally Zhou Lezhi was responsible for copying and organizing them, but the Teacher felt this would take up too much of Zhou Lezhi's lesson time, so he had Liu Zhao find five book copyists instead.
 
-Book copyists were craftsmen in printing workshops specially responsible for copying paper patterns. Not only was the copying neat and fast, but most were also illiterate—this was also a quite rare matter. Wang Yehao felt this was best, avoiding the leakage of "Australian Supreme Learning." He even specially instructed to copy an extra set.
+Book copyists were craftsmen from printing workshops who specialized in transcribing paper patterns. Not only was their copying neat and fast, but most were also illiterate—a rather rare combination. Wang Yehao felt this was ideal, as it prevented any leakage of "Australian Supreme Learning." He even gave special instructions to make an extra set of copies.
 
-Zhou Lezhi's work was to proofread whether the copying had errors. Speaking honestly, he felt even if the copyists were literate it would be of no use, because the things the Teacher wrote, if not passed through his teaching, were mostly unintelligible.
+Zhou Lezhi's task was to proofread whether the copying contained errors. Honestly speaking, he felt that even if the copyists were literate, it would be of no use—because the things the Teacher wrote, without his explanations, were mostly unintelligible.
 
-The copied documents were sent to Wang Yehao's study. Originally he thought what he wrote were "Spell Texts," unexpectedly all were Chinese characters. Except that the font was mostly vulgar forms [Simplified], the language was close to vernacular, having nothing special actually.
+The copied documents were sent to Wang Yehao's study. He had originally thought they would be "Spell Texts," but unexpectedly they were all Chinese characters. Aside from the fact that the font was mostly in vulgar simplified forms and the language approached the vernacular, there was nothing particularly special about them.
 
-It was just that most things he wrote belonged to the nature of recognizing every character when holding it to read, but not knowing what touched upon what when connected. This was somewhat awkward.
+It was just that most of what he wrote belonged to the frustrating category of recognizing every character when holding it up to read, yet having no idea what any of it meant when strung together. This was somewhat awkward.
 
-Some he presumably knew were mathematics and Gewu [investigation of things/science]; some he completely didn't know the why, for example "Outline of Principles of Political Economy"; another piece "17th Century World Geography and Nations," treating it as reading material for hunting novelty and leisure was actually not bad, but had no meaning—after all, no one cared how many countries these Red Hair Europa barbarians had or how many kings; "Principles of Mechanics," on it were all various kinds of machines...
+Some he presumably recognized as mathematics and Gewu—the investigation of things; some he couldn't fathom at all, such as "Outline of Principles of Political Economy." Another piece, "17th Century World Geography and Nations," might serve as reading material for hunting novelty and leisure, but had no real meaning—after all, who cared how many countries these red-haired Europa barbarians had or how many kings ruled them? "Principles of Mechanics" was covered with diagrams of various kinds of machines...
 
-"These are the Supreme Learning Hearthstone Daoist spoke of?" He was somewhat disbelieving, specially finding Zhou Lezhi.
+"These are the Supreme Learning that Hearthstone Daoist spoke of?" He was somewhat skeptical, and specially summoned Zhou Lezhi.
 
 "Yes, the Teacher said exactly so."
 
-"What kind of Supreme Learning are these!" Master Wang slandered secretly in his belly, but these words couldn't be said openly, so he asked again, "Did he ever write books regarding spells and secret methods?"
+"What kind of Supreme Learning is this!" Master Wang slandered secretly in his belly, but such words couldn't be spoken openly. Instead he asked, "Did he ever write books regarding spells and secret methods?"
 
-The answer naturally disappointed him. Master Wang stared deadly at Zhou Lezhi, feeling this youth had changed somewhat, seemingly not that loyal anymore.
+The answer naturally disappointed him. Master Wang stared fixedly at Zhou Lezhi, sensing that this youth had changed somewhat—seemingly not as loyal as before.
 
-Forgiving that he also couldn't raise wind [cause trouble]. Although this Zhou Lezhi was an orphan, his clan was right in Guangdong. Exterminating the family was just a matter of raising a hand; presumably he also understood.
+Not that he could cause any trouble. Although Zhou Lezhi was an orphan, his clan remained in Guangdong. Exterminating the family would be merely a matter of raising a hand; presumably the young man understood this as well.
 
-Moreover, this kid was already hot with Hearthstone Immortal; rashly swapping him out would only arouse the Immortal's dissatisfaction. Immediately he spoke a few warm sentences, letting him help the Teacher write books well.
+Moreover, this lad had already grown close to the Hearthstone Immortal; rashly replacing him would only arouse the Immortal's displeasure. So Wang Yehao spoke a few warm words, instructing him to help the Teacher write books well.
 
-Sending away Zhou Lezhi, Wang Yehao looked at the candle fire expressionlessly; only after a long while did he open his mouth to ask Liu Sha:
+After sending Zhou Lezhi away, Wang Yehao gazed expressionlessly at the candle flame. Only after a long while did he speak to Liu Sha:
 
-"Heavenly Book Spell Texts, are there any clues?"
+"The Heavenly Book Spell Texts—are there any leads?"
 
-"The lowly one inquired in many ways; no one recognizes them."
+"Your humble servant has inquired in many ways; no one recognizes them."
 
-"Act carefully; must not leak the wind [news]."
+"Act carefully; you must not let word leak out."
 
-"Master rest assured, subordinate has own methods. It's just..." Liu Sha paused, looking like he wanted to speak but stopped.
+"Master may rest assured, your subordinate has his own methods. It's just..." Liu Sha paused, appearing as though he wanted to speak but was holding back.
 
-"Just speak straight, no need for concern."
+"Speak directly, no need for concern."
 
-"Master, subordinate is bold: these Heavenly Book Spell Texts only Mr. Zhou recognizes; why not force him to speak out the method of cracking?"
+"Master, your subordinate is bold to say: these Heavenly Book Spell Texts can only be read by Mr. Zhou. Why not force him to reveal the method of deciphering them?"
 
-"Sigh!" Wang Yehao sighed a long breath, silent for a long while before opening his mouth to say: "Since it concerns Heavenly Book Spell Texts, this official won't hide from you. This matter is huge; having heard it, keep it in your heart, absolutely cannot speak with others."
+"Sigh!" Wang Yehao let out a long breath, remaining silent for a good while before speaking. "Since this concerns the Heavenly Book Spell Texts, this official won't hide it from you. This matter is enormous; having heard it, keep it in your heart. You absolutely cannot speak of it to others."
 
-"Subordinate will remember respectfully."
+"Your subordinate will remember respectfully."
 
-"Tianqi Year 6, Wanggongchang's matter, do you remember?"
+"The matter at Wanggongchang in the sixth year of Tianqi—do you remember?"
 
-"Remember. The official gazette said it was caused by gunpowder catching fire."
+"I remember. The official gazette said it was caused by gunpowder catching fire."
 
-"Hehehehe..." Hearing this, Wang Yehao couldn't help laughing out loud. "You say what kind of gunpowder can have such a battle array?"
+"Hehehehe..." Hearing this, Wang Yehao couldn't help laughing aloud. "Tell me, what kind of gunpowder could produce such devastation?"
 
-"Subordinate is stupid; hope Master points out."
+"Your subordinate is stupid; I hope Master will enlighten me."
 
-"That day this official inspected the neighborhood and saw Mr. Zhou within the ruined walls."
+"That day, this official inspected the neighborhood and saw Mr. Zhou among the ruined walls."
 
 "Mr. Zhou is a person of the Capital City?"
 
-Wang Yehao suddenly had a stern look in his eyes; his words revealed a strand of solemn killing chill: "Saw Mr. Zhou's human head."
+Wang Yehao's eyes suddenly turned stern, his words carrying a thread of solemn killing chill: "I saw Mr. Zhou's human head."
 
 "What does Master mean?"
 
-"Just a human head, suspended in mid-air, vanished in an instant."
+"Just a human head, suspended in mid-air. It vanished in an instant."
 
-This matter sounded too horrifying; Liu Sha didn't know how to answer for a good while, asking only like talking in sleep: "Re... ally?"
+This sounded too horrifying; Liu Sha didn't know how to respond for a good while. He could only ask as if talking in his sleep: "Re... ally?"
 
-"This matter of strange forces and chaotic spirits, this official originally didn't believe, but this matter couldn't be faked." Wang Yehao calmed his mood, looking at Liu Sha who was still somewhat dazed, and said, "This person being vulgar with little literary grace is true; Iron Mouth predicting fate is also true. Depth is hard to fathom; cannot act rashly. Zhongda [Sima Yi] said, Kongming [Zhuge Liang] never took risks in his life. If this official doesn't have ten-tenths certainty, definitely cannot play strong with him."
+"This official originally didn't believe in such matters of strange forces and chaotic spirits, but this couldn't be faked." Wang Yehao calmed his mood, looking at Liu Sha who still appeared somewhat dazed. "This person being vulgar and lacking literary grace is true; his Iron Mouth fortune-telling is also true. His depths are hard to fathom; we cannot act rashly. Zhongda once said that Kongming never took risks in his life. If this official doesn't have absolute certainty, I definitely cannot play rough with him."
 
-"It was subordinate being rash."
+"It was your subordinate being rash."
 
-"No harm." Wang Yehao lowered his volume, speaking mysteriously, "Now my intent is also not on the Heavenly Book. Arriving in Guangzhou and taking a look, the Shorn-hair Thief power is already formed; in the future they will definitely become the Court's confidant great trouble. This Hearthstone Immortal, ten out of ten, has a huge relationship with Shorn-hair Thieves. For the Court to pacify the Thieves, this person will surely have great use."
+"No harm done." Wang Yehao lowered his voice, speaking mysteriously. "Now my intentions are not on the Heavenly Book anyway. After arriving in Guangzhou and taking a look, the Kun's power is already established; in the future they will certainly become a great trouble to the Court's heart. This Hearthstone Immortal almost certainly has a significant connection with the Kun. For the Court to pacify them, this person will surely prove useful."
 
-"Subordinate understands!"
+"Your subordinate understands!"
 
-"This official came to Guangzhou to inspect; although Shorn-hair Thieves have already retreated, Guangzhou's officials every one fear Thieves like tigers. Probably there are still quite a few secretly receiving Shorn-hair Thieves' bribes. To deal with Shorn-hair Thieves, relying on local yamens is unreliable. How is the matter instructed to you handled?"
+"This official came to Guangzhou on inspection; although the Kun have already retreated, every official in Guangzhou fears them like tigers. Probably quite a few are still secretly receiving the Kun's bribes. To deal with the Kun, relying on local yamens is unreliable. How is the matter I instructed you on progressing?"
 
-"Already recruited twenty-plus brothers, all good hands."
+"I have already recruited over twenty brothers, all capable hands."
 
-"Silver, this official gives you; but people must be useful." Wang Yehao stared at Liu Sha once. "At critical juncture, do not ruin affairs because of people, delaying war opportunities..."
+"This official provides the silver; but the men must be useful." Wang Yehao fixed Liu Sha with a stare. "At the critical juncture, do not ruin affairs through incompetence, delaying military opportunities..."
 
-"Delaying war opportunities," these four characters were enough to make people lose heads. Liu Sha naturally understood the meaning within.
+"Delaying military opportunities"—those four characters were enough to cost a man his head. Liu Sha naturally understood the meaning within.
 
-"Master rest assured; subordinate knows the stakes within."
+"Master may rest assured; your subordinate knows what is at stake."
 
-"You go."
+"You may go."
 
-Liu Sha didn't leave immediately but reported again: "Master, subordinate has a matter to inform..."
+Liu Sha didn't leave immediately but reported again: "Master, your subordinate has another matter to inform..."
 
-"Oh, speak for me to hear."
+"Oh, speak and let me hear it."
 
-Liu Sha said he had a brother he knew, who was a person of the Guangzhou Liang family, saying Liang Cunhou had the heart to deal with Shorn-hair Thieves and was also secretly recruiting Jianghu Good Fellows.
+Liu Sha explained that he knew a brother who was part of the Guangzhou Liang family. According to him, Liang Cunhou harbored intentions of dealing with the Kun and was also secretly recruiting good fellows from the Jianghu.
 
-"...Heard Liang family is Guangzhou's powerful gentry, with extremely great power locally. If Master can get his assistance, great matters can be accomplished."
+"...I've heard the Liang family is among Guangzhou's most powerful gentry, with extremely great local influence. If Master can obtain his assistance, great matters may be accomplished."
 
-What kind of person Liang Cunhou was, Master Wang naturally understood. But he had long heard this Liang Cunhou had collusion with Shorn-hair Thieves; Guangzhou City's biggest charity hall was co-founded by his family and Manager Guo.
+What kind of person Liang Cunhou was, Master Wang naturally understood. But he had long heard that this Liang Cunhou had colluded with the Kun; the largest charity hall in Guangzhou City was co-founded by his family and Manager Guo.
 
-Such a person actually wanted to deal with Shorn-hair Thieves? Master Wang was somewhat disbelieving.
+Such a person actually wanted to deal with the Kun? Master Wang was somewhat skeptical.
 
-"Truly such a matter?"
+"Is this truly so?"
 
-"Indeed!" Liu Sha nodded, whispering, "Liang family internally also has a monitoring lieutenant—it's Eastern Depot's person."
+"Indeed!" Liu Sha nodded, whispering, "Within the Liang family there is also a surveillance lieutenant—a person from the Eastern Depot."
 
-"Eastern Depot?"
+"The Eastern Depot?"
 
-"Yes," he noticed the look of worry and fear appearing in Master Wang's eyes, and busily said, "This brother although was originally ordered by Eastern Depot to infiltrate the Liang family, after the Emperor removed official monitoring, he had nowhere to go, so he still remained in the Liang Residence to serve."
+"Yes," he noticed the look of worry and fear appearing in Master Wang's eyes, and hastily added, "Although this brother was originally ordered by the Eastern Depot to infiltrate the Liang family, after the Emperor removed official surveillance, he had nowhere to go, so he remained in the Liang Residence to serve."
 
-"Oh." Wang Yehao let out a sigh of relief. Because after the Emperor ascended the throne, he immediately removed official monitoring; didn't think after a few years he unexpectedly sent people again.
+"Oh." Wang Yehao let out a sigh of relief. After the Emperor ascended the throne, he had immediately removed official surveillance; who would have thought that after a few years, he had unexpectedly sent people again.
 
-Activities these few years were frequent; if really detected by Eastern Depot and poked to the Emperor, he was afraid he would go to the Imperial Prison to be "beaten while questioned."
+His activities these past few years had been frequent; if they were truly detected by the Eastern Depot and reported to the Emperor, he feared he would end up in the Imperial Prison to be "beaten while questioned."
 
 Thinking of this, he involuntarily broke out in cold sweat.
 
-Liu Sha continued to lower his voice, "This Eastern Depot detective lieutenant is also our Jinyiwei brother, so subordinate contacted him through a reliable middleman."
+Liu Sha continued to lower his voice. "This Eastern Depot detective lieutenant is also a brother of our Jinyiwei, so your subordinate contacted him through a reliable middleman."
 
-"You speak!"
+"Speak!"
 
-"According to him, ever since Viceroy Wang failed in the campaign against Shorn-hair Thieves, Liang Cunhou has always regretted collaborating with Shorn-hair Thieves initially—it's just this involved massive interests, connected to the whole Liang family, so he didn't make a cut with Shorn-hair Thieves."
+"According to him, ever since Viceroy Wang's campaign against the Kun failed, Liang Cunhou has always regretted his initial collaboration with them. It's just that massive interests were involved, connected to the whole Liang family, so he couldn't make a clean break with the Kun."
 
-"Speaking so, the Liang family has property with the Shorn-hair Thieves?"
+"So the Liang family has property tied up with the Kun?"
 
-"Exactly so. Not only *Cihuitang*, but also *Zig's* [Zizhenzhai/Purple] several firms; heard Liang family all has shares."
+"Exactly so. Not only *Cihuitang*, but also several of *Zizhenzhai's* firms; I've heard the Liang family has shares in all of them."
 
-"So it was like this!" Wang Yehao thought Shorn-hair Thieves had the reputation of turning stone into gold locally; for the Liang family to have shares, the richness of annual returns went without saying. No wonder they couldn't make up their minds.
+"So that's how it is!" Wang Yehao thought to himself that the Kun had a local reputation for turning stone into gold; for the Liang family to have shares, the richness of the annual returns went without saying. No wonder they couldn't make up their minds.
 
-"But Liang Cunhou feels Shorn-hair Thieves have become Guangdong's disease, and sooner or later will also be the Court's confidant trouble, so he has been collecting Thief Situation in secret, preparing in advance..."
+"But Liang Cunhou feels the Kun have become Guangdong's disease, and sooner or later will also become a grave concern for the Court, so he has been secretly collecting intelligence on the Thief Situation, preparing in advance..."
 
 Wang Yehao understood Liu Sha's meaning; this person could be cooperated with.
 
-The Liang family was a famous local powerful clan in Guangzhou Prefecture; influence was deeply rooted and intertwined. If his help could be obtained, dealing with Shorn-hair Thieves would get twice the result with half the effort.
+The Liang family was a famous local power clan in Guangzhou Prefecture; their influence was deeply rooted and intertwined. If he could obtain their assistance, dealing with the Kun would achieve twice the result with half the effort.
 
-"Speaking so, I should meet him once."
+"It seems I should meet him once."
 
-Fortunately, for a high regional official taking office, visiting local gentry was also a matter that should be done. He summoned Jin Wenchi, letting him pull the thread. Sure enough, within a few days, the Liang family sent an invitation card, inviting Wang Yehao to a banquet.
+Fortunately, for a high regional official taking office, visiting local gentry was an expected formality. He summoned Jin Wenchi to arrange the connection. Sure enough, within a few days, the Liang family sent an invitation card, inviting Wang Yehao to a banquet.
 
-At the banquet, Wang Yehao mentioned Shorn-hair Thieves harming Guangdong, asking if Liang Cunhou had any countermeasures.
+At the banquet, Wang Yehao mentioned how the Kun were harming Guangdong, and asked if Liang Cunhou had any countermeasures.
 
-"Speaking of Shorn-hair Thieves, Student can also be counted as their benefactor." Liang Cunhou spoke of past events with a bitter smile. "At that time I shouldn't have been confused by them, and also pitied their difficulty in making a living overseas, sending a greeting card, and also co-founding *Cihuitang* with them to take in refugees. How could I think, raising a tiger to cause trouble!"
+"Speaking of the Kun, this student can also be counted as one of their benefactors." Liang Cunhou spoke of past events with a bitter smile. "At that time, I shouldn't have been confused by them. I pitied their difficulty making a living overseas, so I sent them a greeting card and co-founded *Cihuitang* with them to take in refugees. How could I have imagined I was raising a tiger that would cause such trouble!"
 
-"Mending the pen after sheep are lost, it is still not late."
+"Mending the pen after sheep are lost—it is still not too late."
 
-Liang Cunhou and Wang Yehao hit it off instantly. Liang Cunhou wanted to make up for his "faults" of those years; his attitude was especially active, revealing that he had secretly set up a library collection building at home, specially collecting Shorn-hair Thieves' various books, court gazettes, and various information. He also organized some scholars to form a *Yuyuan* Society, specially responsible for studying them. If Lord Wang was interested, they could exchange what they had.
+Liang Cunhou and Wang Yehao hit it off instantly. Liang Cunhou wanted to make amends for his "faults" of those years; his attitude was especially enthusiastic. He revealed that he had secretly set up a library at home, specifically for collecting the Kun's various books, court gazettes, and sundry information. He had also organized some scholars to form a *Yuyuan* Society, specifically responsible for studying them. If Lord Wang was interested, they could share resources.
 
-"There is such a matter? Are the people reliable?"
+"There is such a thing? Are the people reliable?"
 
-"Whether reliable or not Student dares not say, but they are all people obsessed with *Ao* Learning." Liang Cunhou laughed, "Student also wouldn't say studying *Ao* Learning is for dealing with Shorn-hair Thieves."
+"Whether reliable or not, this student dares not say, but they are all people obsessed with *Ao* Learning." Liang Cunhou laughed. "Of course, this student wouldn't tell them that studying *Ao* Learning is for dealing with the Kun."
 
-"There are scholars obsessed with *Ao* Learning?" This made Wang Yehao somewhat surprised.
+"There are scholars obsessed with *Ao* Learning?" This surprised Wang Yehao somewhat.
 
-"Exactly. Discussing practical craft techniques, *Ao* Learning indeed has superior points." Liang Cunhou sighed, "If it can be used by the Court, it would also be a fortunate thing. Pity Shorn-hair Thieves hold it very strictly; one cannot peek one or two of it!"
+"Indeed. When it comes to practical craft techniques, *Ao* Learning does have its superior points." Liang Cunhou sighed. "If it could be used by the Court, that would be a fortunate thing. Pity that the Kun guard it so strictly; one cannot glimpse even a fraction of it!"
 
 **(End of Chapter)**

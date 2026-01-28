@@ -1,107 +1,105 @@
 # Chapter 2701: The Capital (Part 57)
 
-Liao Sanniang's heart darkened, and she frowned. She looked at the big man and said to Little Bazi, "Call Old Feng over. He has a cold heart; he'll surely be able to 'persuade' this brave hero."
+Liao Sanniang's expression darkened, a frown creasing her brow. She regarded the large man sprawled on the ground, then turned to Little Bazi. "Fetch Old Feng. He has a cold heart—he'll know how to 'persuade' this brave hero."
 
-After speaking, Liao Sanniang looked up at the road ahead. Both ends of the dirt trail were empty; under the shade of trees, the road twisted and stretched towards unknown destinations in both directions.
+After speaking, Liao Sanniang lifted her gaze to survey the road ahead. Both ends of the dirt trail lay empty; beneath the dappled shade of trees, the path twisted away in either direction toward unknown destinations.
 
-The convoy halted. Old Feng walked up to Liao Sanniang, took half a step forward, bowed, and waited for instructions.
+The convoy had halted. Old Feng approached Liao Sanniang, took half a step forward, bowed, and waited for instructions.
 
-Liao Sanniang glanced at the big man lying on the ground and said to Old Feng, "Sneaking around after us like this, he's definitely up to no good. Brother, question him firmly. Find out what they're plotting. We're halfway there and can't afford delays, so make it quick."
+Liao Sanniang glanced at the man lying on the ground. "Skulking after us like this, he's certainly up to no good. Brother, question him thoroughly. Find out what they're planning. We're halfway there and cannot afford delays—make it quick."
 
-Old Feng nodded slightly. "My Lady, rest assured."
+Old Feng inclined his head slightly. "Rest assured, My Lady."
 
-Old Feng turned and waved to two guards beside him. "Lend a hand."
+He turned and beckoned to two guards beside him. "Lend a hand."
 
-The two guards came over, and the three of them scooped up the man and dragged him into the bushes by the roadside not far away.
+The two guards stepped forward. Together, the three of them hoisted the man and dragged him into the bushes along the roadside.
 
-Liao Sanniang remained expressionless, watching the three coldly. Torture was the fastest method.
+Liao Sanniang remained expressionless, watching them with cold detachment. Torture was the fastest method.
 
-Liao Sanniang raised her chin at Little Bazi. "Go invite Brothers Zhao and Liu here for a conference."
+She raised her chin at Little Bazi. "Go invite Brothers Zhao and Liu here for a conference."
 
-A moment later, a scream rang out from the bushes, but it was cut short halfway through, as if the mouth had been gagged.
+A moment later, a scream erupted from the bushes—only to be cut short halfway through, as if a gag had been forced into the man's mouth.
 
-The figures of Old Feng and the others were obscured by the shadows of the bushes; their actions couldn't be seen clearly from the outside. Only the cigarette butt dangling from Old Feng's mouth flickered in the darkness, marking their location.
+The figures of Old Feng and his companions were obscured by the dense shadows of the undergrowth; their actions invisible from outside. Only the ember of Old Feng's cigarette flickered in the darkness, marking their position.
 
-Liao Sanniang didn't wait long. Old Feng's efficiency was always high and never disappointed. He walked back quickly.
+Liao Sanniang did not wait long. Old Feng's efficiency was consistently high, and he never disappointed. He returned swiftly.
 
-Liao Sanniang glanced at him with a slight query in her eyes, wondering what method he had used.
+Liao Sanniang met his eyes with a silent question, curious what method he had employed.
 
-Old Feng spat out the cigarette butt and smiled. "These filthy methods aren't worth soiling your ears with, My Lady. A man's urethra is the most tender part; threading a steel wire into it makes him forget his ancestors and parents." After speaking, Old Feng casually tossed away half a length of bloody steel wire.
+Old Feng spat out his cigarette butt and smiled grimly. "Such filthy methods aren't worth soiling your ears with, My Lady. A man's urethra is his most tender part—thread a steel wire through it, and he'll forget his own ancestors." He casually tossed aside half a length of bloodied steel wire.
 
-Liao Sanniang frowned in disgust and asked, "Where are they from?"
+Liao Sanniang's brow furrowed in disgust. "Where are they from?"
 
-Old Feng replied, "As Little Bazi said, they are a few deserters who have gathered some local ruffians and bandits from the surrounding countryside. Thirty men in total, doing this 'no-capital private trade' everywhere. We were just unlucky enough to run into them today. This man is a scout. Just now, when we stopped for water and rest at the roadside shop, he saw our deep wheel ruts and surmised the cart carried valuable goods, so he started tracking us. There were two originally; one went back and forth to report. When we passed the fork just now, the other one went back to report, leaving only this one to tail us. The scout confessed that the bandits have already set up an ambush ahead, split into two groups, front and rear. They plan to wait until we are in the middle, then charge from both ends, intending to rob us by force."
+Old Feng replied, "As Little Bazi suspected—a handful of deserters who've gathered local ruffians and bandits from the surrounding countryside. Thirty men in total, running this 'no-capital trade' wherever they go. We were simply unlucky enough to cross their path today. This one is a scout. Earlier, when we stopped at that roadside shop for water and rest, he noticed our deep wheel ruts and surmised the cart carried valuable goods. That's when he started trailing us. Originally there were two; one has been running back and forth to report. When we passed that fork in the road, the other went back to alert the main group, leaving only this one to shadow us. He confessed that the bandits have already set up an ambush ahead—split into two groups, front and rear. They plan to wait until we're caught in the middle, then charge from both ends and rob us by force."
 
-Hearing this, Liao Sanniang felt slightly reassured. Rural bandit gangs usually consisted of five to ten men. Fifty was a threshold; exceeding that number would accelerate aggregation, quickly reaching hundreds or thousands, giving them the capability to raid prefectures and counties.
+Hearing this, Liao Sanniang felt a measure of reassurance. Rural bandit gangs typically numbered five to ten men. Fifty was a threshold; exceeding that number would accelerate their growth, swelling rapidly into hundreds or thousands—enough strength to raid prefectures and counties.
 
-Running at around thirty men meant they were in a growth phase—a small-scale roving gang that possessed a basic cadre and the conditions to grow into a "vibrant" social organization.
+Operating at around thirty men meant they were still in a growth phase: a small-scale roving gang that had established a basic cadre and possessed the conditions to develop into a "thriving" organization.
 
-Liao Sanniang brushed a stray hair from her temple and asked, "How far is the ambush site?"
+Liao Sanniang brushed a stray strand of hair from her temple. "How far is the ambush site?"
 
-Old Feng said, "Just past the next intersection."
+"Just past the next intersection," Old Feng said.
 
-Liao Sanniang hadn't expected the enemy to be so close. She narrowed her eyes, involuntary feeling a bit tense.
+Liao Sanniang hadn't expected the enemy to be so close. Her eyes narrowed, tension coiling involuntarily in her chest.
 
-Behind her, Little Bazi grumbled in frustration, "Inside the city, we met idlers trying to swindle money; outside, we meet these random bandits. Why are we so unlucky?"
+Behind her, Little Bazi grumbled in frustration. "Inside the city, we met swindlers trying to fleece us; outside, we run into random bandits. Why is our luck so rotten?"
 
-Liao Sanniang snorted coldly. "It's not that we're unlucky; we've just bumped into this chaotic world. Such things are common. Being close to the capital, there are no large bandit armies here. Further away, in Shaanxi, Henan, and Sichuan, government troops run amok and local bandits riot—that is truly lawless. They slaughter villages in broad daylight, killing thousands without it being a major event. What we have to deal with from the start isn't just these few kidnappers, but this chaotic world itself. Escort bureaus are of little use in peaceful times and hard to survive in chaotic times; in the end, they are but a trivial crack in the river of history. But for just these thirty bandits to try and take us down—that is underestimating us too much."
+Liao Sanniang gave a cold snort. "It's not bad luck—we've simply stumbled into a chaotic age. Such things are commonplace now. Being close to the capital, there are no large bandit armies here. But further away—in Shaanxi, Henan, Sichuan—government troops run rampant while local bandits riot unchecked. That is true lawlessness. Villages slaughtered in broad daylight, thousands killed without anyone calling it a major incident. What we must contend with from the start isn't merely a few kidnappers, but this chaotic world itself. Escort bureaus serve little purpose in peaceful times and struggle to survive in turbulent ones; in the end, we are but a trivial crack in the great river of history. But for just thirty bandits to think they can take us down—that is underestimating us far too much."
 
-Liao Sanniang turned her face to look at Zhao Liangjian. "Brother Zhao, what do you think?"
+Liao Sanniang turned to face Zhao Liangjian. "Brother Zhao, what do you think?"
 
-Zhao Liangjian was a lean, muscular man of about thirty, wearing a rolled-brim felt hat, a blue short jacket, and leggings wrapped in a blue and white fish-scale pattern.
+Zhao Liangjian was a lean, muscular man of about thirty, wearing a rolled-brim felt hat, a blue short jacket, and leggings wrapped in a blue-and-white fish-scale pattern.
 
-Zhao Liangjian looked up at the sky. "It's already the hour of Wei (1-3 PM). We've traveled this far; if we turn back, we definitely won't make it before the city gates close. We'd have to stay overnight outside the city. Moreover, all the pretense of leaving the city would be wasted. Once interested parties learn our details, it will be even harder to transport silver out next time."
+He glanced up at the sky. "It's already the hour of Wei. We've come this far—if we turn back now, we'll never make it before the city gates close. We'd have to spend the night outside the walls. Besides, all the pretense of leaving the city would be wasted. Once interested parties learn our details, transporting silver out next time will be even harder."
 
-Liao Sanniang nodded. "Indeed. The reason these deserters recruit local bandits is to collude like wolves and jackals, using local convenience to hide their tracks—merging with civilians to enter, turning into bandits to leave, and spying on government news. If we don't pass this intersection now, coming back next time will only draw more attention and incite even more greed in the thieves' hearts."
+Liao Sanniang nodded. "Indeed. The reason these deserters recruit local bandits is to collude like wolves with jackals—using local connections to hide their tracks, blending with civilians to enter, transforming into bandits when they leave, and spying on government intelligence. If we don't pass this intersection now, returning another time will only draw more attention and stoke even greater greed in their thieving hearts."
 
-Liao Sanniang then looked at Liu Chang and asked, "Brother Liu, what do you think?"
+She then looked to Liu Chang. "Brother Liu, what do you think?"
 
-Liu Chang was in his twenties, with a square, broad face. He wore a *wan*-character headscarf, dark blue clothes with the hem tucked into his belt, black leather boots, and ox-hide bracers studded with copper rivets. Hearing the question, he replied in a muffled voice, "Whatever Lady Sanniang and Brother Zhao decide, I will follow."
+Liu Chang was in his twenties, with a square, broad face. He wore a *wan*-character headscarf, dark blue clothes with the hem tucked into his belt, black leather boots, and ox-hide bracers studded with copper rivets. Hearing the question, he replied in a low, steady voice, "Whatever Lady Sanniang and Brother Zhao decide, I will follow."
 
-Liao Sanniang continued, "Laden with silver, the mule cart can't move fast. In a moment, when the bandits see we aren't arriving, they'll gather and attack from the rear to sweep us up. We'd have no way to avoid them and be forced to fight, losing the initiative. It's better to strike first and break through. If we truly can't beat them, we won't linger in battle; we'll retreat temporarily and leave the silver cart to them. They have few people; this cartload of silver can't be carried away on shoulders or by hand, so it will become a burden tying their hands and feet. While they fight over the silver, we can kill our way back to maneuver. Just don't easily lose any men; death ends everything."
+Liao Sanniang continued, "Laden with silver, the mule cart cannot move quickly. Before long, when the bandits realize we aren't arriving, they'll gather and sweep toward us from the rear. We'd have no way to evade and would be forced to fight on their terms, losing the initiative. Better to strike first and break through. If we truly cannot defeat them, we won't linger in battle—we'll retreat temporarily and leave the silver cart to them. They're few in number; this cartload of silver cannot be carried away on shoulders or by hand, so it will become a burden that ties their hands. While they fight over the spoils, we can circle back and maneuver. Just don't carelessly lose any men—death ends everything."
 
 Zhao Liangjian nodded. "We've covered most of the journey. Once we break through this pass, it's twenty *li* to the estate. Fifteen against thirty—we can fight."
 
-Little Bazi asked from the side, "How do the bandits dare to be so rampant, robbing in broad daylight?"
+Little Bazi spoke up from the side. "How do these bandits dare to be so brazen, robbing in broad daylight?"
 
-Liu Chang shook his head and interjected, "Within the jurisdictions of various prefectures and counties, boundaries are drawn. When bandit cases occur on the borders, officials push responsibility onto each other because they don't answer to one another. It's hard to assign blame, so they follow bad precedents and drift along. The government cannot control the thieves, which is why so many bandits gather and whistle together. The ones who suffer are just the common people. As for the bandits, they believe in seeking wealth through danger. They kill people like cutting grass and have hearts like iron. They are the most crazy and evil, impossible to judge by common sense. Let alone robbing a mule cart, it wouldn't be strange for them to kill officials and burn yamens. Is there anything such people wouldn't do?"
+Liu Chang shook his head. "Within the jurisdictions of various prefectures and counties, boundaries are clearly drawn. When bandit cases occur along borders, officials push responsibility onto each other since they answer to no common authority. Blame is impossible to assign, so they follow bad precedents and drift along. The government cannot control the thieves, which is why so many bandits gather and run together. The ones who suffer are always the common folk. As for the bandits themselves—they believe in seeking wealth through danger. They kill people like cutting grass and have hearts of iron. They are the most savage and lawless, impossible to judge by ordinary standards. Robbing a mule cart is nothing to them; it wouldn't be strange for them to murder officials and burn down yamens. Is there anything such men wouldn't do?"
 
-Liao Sanniang said to Old Feng, "Go question that man in detail again. Check if his statements match up. The most important thing is that the numbers must be correct."
+Liao Sanniang addressed Old Feng. "Go question that man again in detail. Check if his statements are consistent. Most importantly, the numbers must be correct."
 
-Not long after, Old Feng returned and reported that there were no errors.
+Before long, Old Feng returned and reported that there were no discrepancies.
 
-Liao Sanniang looked at everyone. "The thieves are ambushing from front and rear. One group of eighteen or nineteen is blocking the road ahead; another group of ten is flanking from behind. We will split into two. Brother Zhao and Brother Liu, escort the cart and proceed as if nothing is wrong. When you reach the ambush site, Brother Zhao, stop and call out the 'dart code.' The thieves won't understand the black slang, so just shout in plain language. If the thieves come out, Brother Zhao and Brother Liu will rely on the cart, leading the fellows to form a formation and fight them. If they don't come out, hold your ground. Little Bazi and I will circle from the side and attack the smaller group from behind—playing the oriole behind the mantis. As long as we break one route, the other group won't be able to stay hidden and will panic and retreat. At that point, you strike from the side. Once the thieves retreat, do not pursue; instead, hurry on your way."
+Liao Sanniang surveyed the group. "The thieves are ambushing from front and rear. One group of eighteen or nineteen blocks the road ahead; another group of ten flanks from behind. We will split our forces. Brother Zhao and Brother Liu, escort the cart and proceed as if nothing is amiss. When you reach the ambush site, Brother Zhao, halt and call out the 'dart code.' The thieves won't understand the black slang, so shout it plainly. If the thieves emerge, you and Brother Liu will use the cart as cover, forming up with the fellows to fight them. If they don't come out, hold your position. Little Bazi and I will circle from the side and strike the smaller group from behind—playing the oriole stalking the mantis. As long as we break one route, the other group won't be able to stay hidden and will panic into retreat. At that moment, you strike from the flank. Once the thieves fall back, do not pursue—press on immediately."
 
-Zhao and Liu were stunned. Zhao Liangjian said, "You two are going to fight ten men?"
+Zhao and Liu stared at her, stunned. Zhao Liangjian spoke first. "The two of you are going to fight ten men?"
 
-Liao Sanniang lifted the hem of her clothes and patted the short gun at her waist. "I have a repeater gun. Its sound and light steal souls; under its thunder and fire, I don't fear the thieves won't lose their nerve."
+Liao Sanniang lifted the hem of her coat and patted the short gun at her waist. "I have a repeating pistol. Its flash and thunder steal souls—under its fire, I have no fear the thieves won't lose their nerve."
 
-Zhao Liangjian and Liu Chang wanted to say more, but Liao Sanniang waved her hand. "No need to discuss; it's settled. The woods are deep and dense; too many people would be hard to deploy and become a burden. Two people are enough."
+Zhao Liangjian and Liu Chang opened their mouths to object, but Liao Sanniang waved them off. "No more discussion—it's settled. The woods are deep and dense; too many people would be difficult to deploy and become a liability. Two of us are enough."
 
-Seeing Liao Sanniang so confident and knowing her great skill, Zhao and Liu ceased arguing and nodded, going back to prepare.
+Seeing Liao Sanniang so resolute, and knowing her formidable skill, Zhao and Liu ceased arguing. They nodded and went to prepare.
 
-Liao Sanniang called Old Feng over, took another revolver from the bundle on her horse, and shoved it into Old Feng's hand. "Brother Feng, among those transferred from Guangzhou, only you have trained with short guns. Take this gun and hold the line."
+Liao Sanniang called Old Feng over, retrieved another revolver from the bundle on her horse, and pressed it into his hand. "Brother Feng, among those transferred from Guangzhou, only you have trained with short guns. Take this and hold the line."
 
-Old Feng worriedly said, "Lady Sanniang, it's dangerous over there. You should take them all."
+Old Feng's face creased with worry. "Lady Sanniang, it's dangerous out there. You should take them both."
 
-Liao Sanniang glanced at Zhao and Liu, forced the short gun into Old Feng's hand, and said, "Only when my own people are close and you, Brother, hold the line, can I be at ease."
+Liao Sanniang glanced toward Zhao and Liu, then forced the pistol firmly into Old Feng's grasp. "Only when my own people are close—and you, Brother, are holding the line—can I be at ease."
 
-Old Feng looked at Liao Sanniang for a moment, nodded silently without declining, and whispered, "Lady, set your heart at rest."
+Old Feng held her gaze for a long moment, then nodded silently without further protest. "Set your heart at rest, My Lady," he whispered.
 
-Liao Sanniang whispered instructions: "When the fighting starts, if we are winning, don't use the gun. Open fire only if we are losing."
+Liao Sanniang gave him final instructions in a low voice: "When the fighting starts, if we're winning, don't use the gun. Fire only if we're losing."
 
-Old Feng grunted assent, tucked the short gun under his clothes, and returned to sit on the mule cart.
+Old Feng grunted his assent, tucked the pistol beneath his clothes, and returned to sit on the mule cart. He touched the weapon hidden against his chest, then pulled out a rolling paper, carefully sprinkled tobacco onto it, rolled a cigarette, and lit it. He blew a smoke ring; the hand holding the cigarette was rock-steady, without the slightest tremor.
 
-Old Feng touched the short gun in his bosom, pulled out a rolling paper, carefully sprinkled tobacco on it, rolled a cigarette, and lit it. He blew a smoke ring; the hand holding the cigarette was steady, without a single tremor.
+Arrangements complete, Liao Sanniang said nothing more. She removed her wide outer cloak, revealing the dark blue, close-fitting combat suit beneath. On her feet were wedge-heeled soft combat boots—special issue from the Special Reconnaissance Team. Possessing them was a privilege.
 
-Having finished the arrangements, Liao Sanniang said no more. She took off her wide outer cloak, revealing the dark blue tight-fitting combat suit underneath. On her feet were a pair of wedge-heeled soft combat boots—special issue from the Special Reconnaissance Team, possessing them was a privilege.
+Liao Sanniang adjusted her gear. A belt was cinched horizontally across her abdomen; a leather strap hung diagonally from her left shoulder, holding seven steel darts; and the revolver was tucked at her right hip.
 
-Liao Sanniang adjusted her gear. A belt was tied horizontally across her abdomen; a leather strap hung diagonally from her left shoulder, holding seven steel darts; and the revolver was tucked at her right waist.
+She rose onto her toes, bounced twice in place, and performed a few stretching and twisting motions. Satisfied that everything felt ready and unencumbered, she walked to her horse, unhooked her double sabers, and hung them at her waist.
 
-She stood on tiptoes, bounced twice in place, and did a few stretching and twisting motions. Feeling ready and unencumbered, she walked to her horse, unhooked the double sabers, and hung them at her waist.
+Liao Sanniang licked her lips. Her face was layered with frost, her voice cold enough to cut to the bone. "Bazi, we're going to kill people. Are you afraid?"
 
-Liao Sanniang licked her lips. Her face was covered in frost, her voice cold enough to penetrate bone as she said coolly, "Bazi, we're going to kill people. Are you scared?"
-
-Little Bazi untied the mud pellets and threw them aside. He took a pouch of iron pellets from the donkey's back, took one out, nested it in the slingshot's leather pocket, and stretched it twice. Then he drew the elbow-length steel knife from his waist, wiped it on his clothes, bared his teeth, and said, "On the Jianghu road, fearing death doesn't make a hero. Just go forward and kill those mother-fucking thieves."
+Little Bazi untied his pouch of mud pellets and tossed them aside. He retrieved a bag of iron pellets from the donkey's back, took one out, nested it in the leather pocket of his slingshot, and stretched it twice. Then he drew the elbow-length steel knife from his waist, wiped it on his clothes, bared his teeth, and said, "On the Jianghu road, fearing death doesn't make a hero. Just push forward and kill those mother-fucking thieves."
 
 (End of Chapter)

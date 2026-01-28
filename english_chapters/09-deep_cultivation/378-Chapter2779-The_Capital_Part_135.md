@@ -1,127 +1,129 @@
 # Chapter 2779: The Capital (Part 135)
 
-"The young lady is from a small humble family and cannot stand fright." Granny Shi said "understandingly," "This old body won't go to her place anymore, to save everyone from difficulty and her from fear!"
+"The young lady comes from a humble family and cannot bear frights." Granny Shi spoke with feigned understanding. "This old woman won't trouble her anymore—it saves everyone the difficulty, and spares her the fear."
 
-"True, save trouble." Liu Qi'er actually felt somewhat apprehensive in her heart, because Xu Yong came a few days ago and had already lectured the servants of the whole residence very severely, even the two young ladies were spoken to.
+"True enough, saves trouble," Liu Qi'er agreed, though her heart harbored a certain apprehension. Xu Yong had visited just days ago and delivered a severe lecture to every servant in the residence. Even the two young ladies had not been spared his reprimand.
 
-Don't look at how she spoke disrespectfully about the teenager "whose hair hasn't grown even," but power doesn't lie in age. One sentence from the teenager could make her couple's buttocks bloom (be beaten), and further lose this good job of managing in the Zhou residence.
+She might speak dismissively of the teenager as one "still wet behind the ears," but power was not a matter of age. A single word from that young man could have her and her husband flogged until their backsides bloomed with welts—or worse, cost them their comfortable positions managing the Zhou residence.
 
-It was just that Liu Qi'er was still thinking about Granny Shi's "Imperial Secret Medicine," plus usually the couple used small favors in the residence to win over the servants up and down so they were submissive, so she felt somewhat secure (relying on support/unafraid).
+Still, Liu Qi'er remained fixated on Granny Shi's "Imperial Secret Medicine." Moreover, she and her husband had spent years cultivating loyalty among the household servants through small favors, leaving her feeling secure in her position.
 
-If it weren't for Xu Yong questioning separately this time, and asking particularly trickily, originally it would have been watertight.
+Had Xu Yong not interrogated everyone separately with such cunning questions, their arrangements would have remained watertight.
 
-But Xu Yong couldn't squat in the residence every day. As soon as he left, Liu Qi'er reverted to her old ways. You Rong disapproved of Xu Yong's "rectification" even more. Ever since she hooked up with Pan Cheng'an, it was the time when they were stuck together like glue and lacquer; how could she be willing to accept such constraints. Therefore, she instigated the Liu Qi'er couple to continue interactions with Granny Shi.
+But Xu Yong could not remain in the residence indefinitely. The moment he departed, Liu Qi'er reverted to her old ways. You Rong disapproved of Xu Yong's "rectification" even more strongly. Ever since she had taken up with Pan Cheng'an, the two had become inseparable, clinging to each other like glue. How could she possibly accept such constraints? She therefore encouraged the Liu Qi'er couple to maintain their dealings with Granny Shi.
 
-Granny Shi chatted with Liu Qi'er for some time. seeing the time was about right, Liu Qi'er went out for a circle, came back, and waved to Granny Shi.
+Granny Shi chatted with Liu Qi'er for some time. When the moment seemed right, Liu Qi'er stepped out briefly, circled around, then returned and beckoned to the old woman.
 
-Granny Shi understood, immediately got up, followed Liu Qi'er through the backyard, and entered from the side door. Inside was a small skywell (courtyard), which was the skywell for the north side room of the east wing. From here, one could directly enter the east wing room where You Rong lived, without passing through the courtyard gate and the yard, so it wouldn't disturb Yui living in the west wing.
+Granny Shi understood immediately. She rose and followed Liu Qi'er through the backyard, entering through a side door. Inside lay a small skywell courtyard belonging to the north-side room of the east wing. From here, one could access You Rong's quarters directly, bypassing the main courtyard gate entirely—and thus avoiding any disturbance to the young mistress living in the west wing.
 
-Compared to the wing rooms fully exposed in the yard, the side room was more hidden and quiet, so it was mostly used as a bedroom or small study. This was Yui's (Note: You Rong's) "small study."
+Compared to the wing rooms that stood exposed in the main yard, the side room was more secluded and quiet, typically used as a bedroom or small study. This was You Rong's "private study."
 
-Naturally, Yui (Note: You Rong) didn't read and write here, and Zhou Newton hadn't reached the age of reading. This "small study" was the place where she specifically spoke confidential words and stored important items.
+Naturally, You Rong did not actually read or write here, and Zhou Newton had not yet reached the age for lessons. This "study" served as her place for confidential conversations and storing important items.
 
-Upon entering, Granny Shi first curtsied and said with a face full of smiles: "Good day, Miss!"
+Upon entering, Granny Shi curtsied first, her face wreathed in smiles. "Good day, Miss!"
 
-"Good day, Mama!" You Rong also had a face full of smiles when seeing her, "Mama, sit." After speaking, she ordered tea to be served.
+"Good day, Mama!" You Rong returned the smile warmly. "Please, sit." She called for tea to be served.
 
-"This old body just drank in Sister-in-law Liu's room, Miss don't bother." Granny Shi declined and sat down, saying: "This old body brought the medicine for replenishing Qi and nourishing blood that Miss asked for last time." Saying so, she took out the medicine packet from the bundle.
+"This old woman just had tea in Sister-in-law Liu's room. Please don't trouble yourself, Miss." Granny Shi declined politely and took a seat. "I've brought the Qi-replenishing and blood-nourishing medicine you requested last time." As she spoke, she produced a medicine packet from her bundle.
 
-Liu Qi'er was an old hand at serving; knowing they wanted to talk confidentially, she hurriedly retreated and closed the door.
+Liu Qi'er, experienced in her service, recognized they wished to speak privately. She withdrew at once and closed the door behind her.
 
-You Rong was still worried. Hearing the side door outside sound, she got up, opened the room door to look, and saw the backyard side door was closed. Only then did she retract her body, close and latch the room door, return to Granny Shi's side, and without distinguishing guest and host or high and low, sat down beside her and asked: "What news from Master Pan?"
+You Rong remained uneasy. Hearing the side door click shut outside, she rose and opened the room door to check, confirming that the backyard entrance was properly closed. Only then did she retreat inside, latching the door securely. She returned to Granny Shi's side and, dispensing with any pretense of formality between guest and host, sat down beside her.
 
-Seeing her anxious, Granny Shi couldn't help laughing secretly in her heart. But she deliberately kept her in suspense, saying leisurely: "News there is none..." Seeing You Rong reveal a disappointed expression, she continued, "But there is a letter." After speaking, she took out a letter from the bundle she carried.
+"What news from Master Pan?" she asked.
 
-You Rong was overjoyed, hurriedly took the letter and opened it to read. She came from a background of Yangzhou Thin Horse (courtesan). Although her talent was limited and she didn't have the skill of composing poetry and couplets, she was literate in reading and writing. As she pulled out the letter paper, she felt a faint fragrance, which was exactly the study incense commonly used by big households.
+Seeing her eagerness, Granny Shi suppressed a secret laugh. She deliberately kept her in suspense, speaking with leisurely nonchalance: "News, there is none..." Watching disappointment cloud You Rong's expression, she continued, "But there is a letter." She produced an envelope from her bundle.
 
-She was familiar with this incense since childhood. Ever since she arrived at Master Zhou's place, this Master Zhou was uncouth and unrefined; these refined tastes of the study were completely absent in the house. Instead, many messy gadgets were added. The things You Rong learned through ears and eyes actually didn't find any use.
+You Rong's face lit with joy. She seized the letter and opened it eagerly. Having been trained as a Yangzhou Thin Horse—a courtesan raised for wealthy households—she possessed limited artistic talent and lacked the skill for composing poetry or couplets, but she could read and write well enough. As she withdrew the letter paper, a faint fragrance wafted up: the refined study incense favored by great households.
 
-Smelling this familiar fragrance at this moment, she unconsciously had mixed feelings. For a moment, she was in a trance.
+She had known this scent since childhood. Ever since arriving at Master Zhou's residence, she had found her new master crude and unrefined, utterly lacking these elegant touches. Instead, the house had filled with peculiar gadgets and contraptions. All that You Rong had learned through observation in her youth had found no use here.
 
-Seeing her daze, Granny Shi hurriedly reminded: "Miss, look at the letter."
+Breathing in this familiar fragrance now, she was overcome with mixed emotions. For a moment, she drifted into reverie.
 
-You Rong then realized she lost her composure, her face feeling slightly hot. She hurriedly unfolded the letter paper, which turned out to be a Ten Bamboo Studio letter paper. This paper did not come from the local southern paper shop, but was "private paper" from Jiangnan, with good material selection and fine production, most elegant and fresh.
+Seeing her distraction, Granny Shi prompted gently, "Miss, the letter."
 
-This Master Pan was not only rich but truly peerlessly elegant.
+You Rong realized she had lost her composure, a flush of warmth rising to her cheeks. She hurriedly unfolded the letter paper—Ten Bamboo Studio stationery, she noted. This paper came not from the local southern shops but was privately imported from Jiangnan, crafted from fine materials with exquisite workmanship, most elegant and refined.
 
-You Rong's heart thumped heavily. Originally, the illicit relationship with this Pan Cheng'an was just to comfort the loneliness in the deep boudoir. But gradually, it made her secretly give her heart to him.
+Master Pan was not merely wealthy but truly possessed impeccable taste.
 
-On the letter paper was a stroke of beautiful Regular Script. It was the first time You Rong received Pan Cheng'an's letter. She had discernment; seeing this calligraphy, although somewhat artisan-like, one could see effort had been put into it. She couldn't help praising secretly.
+You Rong's heart gave a heavy thump. Originally, her affair with Pan Cheng'an had begun merely as comfort for the loneliness of her sequestered life. But gradually, she had found herself giving him her heart in secret.
 
-The letter had no header above and no signature below, appearing very careful. The content inside was nothing special, nothing more than pouring out the bitterness of lovesickness. He didn't deliberately use flowery language to show off literary talent. A few words, simple and plain, but revealed various affections, hooking her romantic thoughts.
+The letter paper bore beautiful Regular Script calligraphy. It was the first time You Rong had received Pan Cheng'an's written words. With her trained eye, she could see that although the brushwork had a somewhat practiced quality, genuine effort had been invested. She could not help but admire it silently.
 
-Immediately she put away the letter and whispered: "Sorry to trouble Mama."
+The letter bore no salutation above nor signature below—a careful precaution. The contents held nothing extraordinary, merely pouring out the bitterness of longing. He did not resort to flowery language or literary showmanship. A few simple, unadorned words revealed depths of affection that stirred her romantic heart.
 
-"What words are these!" Granny Shi was an old hand of many years; seeing her expression, she knew there was ninety percent certainty. She said, "Master Pan said it's inconvenient to write some words in the letter, only asking this old body to pass a message, saying he misses you tightly, now doesn't think about tea and rice, only thinking of meeting Miss again..." Saying so, she took out a small box from the bundle and stuffed it into her hand. She whispered:
+She tucked the letter away and whispered, "I've troubled you, Mama."
 
-"This is what Master Pan gave you! He dares not give too conspicuous items, afraid of bringing you trouble. This is a pair of Australian seawater pearl earrings, most precious, yet inconspicuous to wear."
+"What words are these!" Granny Shi was a seasoned hand at such matters. Reading You Rong's expression, she judged success ninety percent certain. "Master Pan said there were things too inconvenient to write. He asked this old woman to relay a message: he misses you desperately. He can neither eat nor sleep for thinking of you, longing only to see Miss again..." As she spoke, she retrieved a small box from her bundle and pressed it into You Rong's hands, whispering:
 
-You Rong opened the mother-of-pearl box. Inside was a pair of pink pearl earrings, simple in style yet exquisite. The light pink pearls were not big but flowed with light and color.
+"This is Master Pan's gift to you! He dares not give anything too conspicuous, fearing it might bring you trouble. These are Australian seawater pearl earrings—most precious, yet unremarkable enough to wear without notice."
 
-You Rong had seen many good things, but it was the first time she saw such beautiful pearls. she was stunned unconsciously.
+You Rong opened the mother-of-pearl box. Inside lay a pair of pink pearl earrings, simple in design yet exquisite in execution. The pale pink pearls were modest in size but luminous, their surfaces alive with shifting light and color.
 
-How was this "inconspicuous"? It was simply dazzling!
+You Rong had seen many fine things in her life, but never pearls so beautiful. She stared, momentarily stunned.
 
-Leaving aside the gold material used on the earrings, just this pair of pink walking pearls (round pearls) would cost at least several hundred taels of silver in the big jewelry towers of the Capital.
+How was this "unremarkable"? It was simply dazzling!
 
-Thinking of that Master Zhou, she had served him for these years and nominally gave birth to a son for him, counting as a "meritorious minister." Except for a box of jewelry "dowry" from Master Wang when she came, he had never given a single piece of jewelry.
+Setting aside the gold settings, this pair of flawlessly round pink pearls alone would fetch several hundred taels of silver at the Capital's finest jewelry houses.
 
-Although Master Zhou made many fun and useful little gadgets, these things were just playthings or household items.
+She thought of Master Zhou. She had served him for years, nominally borne him a son, earned the status of a "meritorious minister" in the household. Yet apart from the jewelry "dowry" that Master Wang had sent with her upon arrival, he had never given her a single piece of jewelry.
 
-You Rong sighed and said: "This gift is too expensive." saying so, she hesitated instead.
+True, Master Zhou crafted many amusing and useful little devices, but these were mere playthings or household implements.
 
-Granny Shi received Pan Cheng'an's silver and whispered: "This little thing counts as nothing. heard that Master Pan is a son of a big household in Jiangnan, with countless family assets..."
+You Rong sighed. "This gift is too extravagant." Even as she spoke, she hesitated.
 
-"True, he is a person from Jiangnan. After a year or half in the Capital, he has to go back just the same?" You Rong couldn't help sighing.
+Having received her payment from Pan Cheng'an, Granny Shi whispered, "This trifle counts for nothing. I hear Master Pan is the son of a great Jiangnan household, with wealth beyond counting..."
 
-Granny Shi smiled slyly: "Could it be that Miss wants to be a long-term couple?"
+"Perhaps, but he is from Jiangnan nonetheless. After a year or so in the Capital, must he not return all the same?" You Rong could not suppress a sigh.
 
-You Rong then realized she slipped up and hurriedly said: "You want to die! What nonsense are you talking!" After speaking, she hurriedly stuffed the box into her hand, "If you talk nonsense like this, don't come again in the future!"
+Granny Shi smiled slyly. "Could it be that Miss wishes to become his long-term companion?"
 
-Granny Shi chuckled and said: "Count it as this old woman's big mouth, should be beaten! Should be beaten!" saying so, she slapped her own mouth lightly twice. But she still put the jewelry box on the kang table and said, "This is Master Pan's heart. Miss just keep it as a memento. Master Pan won't stay in the Capital for too long either..."
+You Rong realized her slip and hastily protested, "You must want to die! What nonsense you speak!" She thrust the box back into the old woman's hands. "If you keep talking such rubbish, don't bother coming again!"
 
-This sentence hooked You Rong's state of mind. she hurriedly asked: "What? He is going back to the South?"
+Granny Shi chuckled. "Count it as this old woman's loose tongue—I deserve a beating!" She gave her own cheek two light slaps. Nevertheless, she placed the jewelry box on the kang table. "This is Master Pan's heart. Keep it as a memento, Miss. Master Pan won't remain in the Capital much longer either..."
 
-"Yes, he is originally a person from Jiangnan. Coming to the Capital to broaden his horizon. Just as Miss said, after a year or half, he has to go back?"
+This remark caught You Rong's heart. She asked urgently, "What do you mean? He's returning South?"
 
-"How..." You Rong was anxious. For a moment, her heart was in a mess. There was reluctance to part, regret, and an indescribable state of mind, as if it were a Golden Millet Dream.
+"Indeed. He is Jiangnan-born, after all. He came to the Capital to broaden his horizons. As Miss yourself said, after a year or so, must he not return?"
 
-"Why going back so soon?"
+"How..." Anxiety gripped You Rong. Her mind fell into turmoil—reluctance, regret, and some indescribable feeling, as if it were all a fleeting dream of golden millet, fading upon waking.
 
-"My good Miss!" Granny Shi slapped her thigh and said, "Master Pan has been in the Capital for more than a year. Originally he was going back South last autumn, but the ice froze early and the tribute grain boats couldn't sail, so he was delayed until now. Seeing that the river ice will melt in March, naturally he wants to go back."
+"Why so soon?"
 
-You Rong was speechless, feeling lost for a moment.
+"My good Miss!" Granny Shi slapped her thigh. "Master Pan has been in the Capital over a year now. He meant to return South last autumn, but the early freeze stopped the tribute grain boats from sailing, delaying him until now. Once the river ice thaws in March, he naturally must depart."
 
-Seeing the heat was enough, Granny Shi whispered: "What Master Pan can't let go of most is also Miss. He wants to have a parting gathering with Miss, wonder if Miss..."
+You Rong found herself speechless, momentarily lost in melancholy.
 
-After speaking, she peeped at You Rong.
+Judging the moment ripe, Granny Shi lowered her voice. "What Master Pan cannot bear to leave behind most is Miss herself. He wishes to have a farewell gathering with you. I wonder if Miss..."
 
-You Rong unconsciously bit the handkerchief in her mouth, hesitating for a long time before saying: "It's just that the residence is not like before now..."
+She trailed off, watching You Rong's face.
 
-"Is it that little brat?"
+You Rong unconsciously bit the handkerchief in her mouth, hesitating for a long while before speaking. "It's just that the residence is not as it was before..."
 
-"Yes, he is the follower of my Master's apprentice, originally a trivial miscellaneous hair not fit for the table," You Rong said hatefully, "It's just that now this apprentice is also highly regarded in front of Master Wang, so he also follows to tyrannize. When he came a few days ago, counting that he still considered this bit of incense burner relationship (old ties), he left some face. Otherwise, roughly he would drag both me and Yui out to listen to the reprimand!"
+"You mean that young brat?"
 
-"So that's how it is." Granny Shi pretended to be disappointed, "If so, it's better not to go. Master Pan said, Miss yourself be careful, don't easily involve in danger..."
+"Yes. He's the follower of my master's apprentice—originally a trivial nobody, hardly worth mentioning." You Rong's voice turned bitter. "But now this apprentice has risen high in Master Wang's favor, and so his servant tyrannizes us as well. When he came the other day, he at least showed some consideration for old ties and left us a shred of face. Otherwise, he might well have dragged both me and the young mistress out for a public scolding!"
 
-You Rong did not answer, pondered for a moment again and said: "Where does Master Pan make the appointment to meet, still Ganlu Nunnery?"
+"I see." Granny Shi affected disappointment. "If that's how matters stand, perhaps it's best not to go. Master Pan said you must look after yourself and not take unnecessary risks..."
 
-"Yes." Seeing her eyes determined, Granny Shi knew she made up her mind, secretly delighted in her heart, and whispered, "There is at least one month before the river ice melts."
+You Rong did not answer. After another moment's thought, she asked, "Where does Master Pan propose to meet? Ganlu Nunnery again?"
 
-"Okay. You come again in three days." You Rong whispered, "I naturally have a way to come out then."
+"Yes." Seeing the resolve in her eyes, Granny Shi knew her decision was made. Secretly delighted, she whispered, "There is at least a month before the river ice melts."
 
-"Okay." Granny Shi was overjoyed, "I'll go tell Master Pan right now. Is there any preparation needed?"
+"Very well. Come again in three days." You Rong's voice dropped to a murmur. "I shall find a way to slip out by then."
 
-"You tell Master Pan..." You Rong instructed a few sentences. Granny Shi listened and nodded repeatedly, saying: "This old body understands!" After speaking, she was about to take her leave. You Rong stopped her:
+"Excellent." Granny Shi beamed with joy. "I'll inform Master Pan immediately. Is there anything you need prepared?"
+
+"Tell Master Pan..." You Rong gave her several instructions. Granny Shi listened attentively, nodding throughout. "This old woman understands!" She moved to take her leave, but You Rong stopped her.
 
 "Where is the medicine I asked you for last time?"
 
-"Look at this old body's memory!" Granny Shi laughed, "Brought it all but forgot."
+"Look at this old woman's memory!" Granny Shi laughed. "I brought everything but forgot the most important thing."
 
-She took out a small bottle from the bundle and said mysteriously: "Take one pill of this thing beforehand, take one pill immediately afterwards, take another pill the next day. Take for three consecutive days. Guaranteed no trouble."
+She produced a small bottle from her bundle and spoke in a conspiratorial whisper. "Take one pill beforehand, another immediately after, and a third the following day. Continue for three consecutive days. I guarantee there will be no trouble."
 
-" If there is trouble, you will have killed me!" You Rong spat.
+"If there is trouble, you'll have been the death of me!" You Rong spat.
 
-"Miss rest assured, people who have taken this old body's medicine, if not thousands, are hundreds. Never had a blunder!" Granny Shi said fast with smiling eyes, "This old woman only hates that I didn't get this good recipe when I was young..."
+"Rest assured, Miss. Those who have taken this old woman's medicine number in the hundreds, if not thousands. Never once has there been a mishap!" Granny Shi's eyes crinkled with mirth. "This old woman only regrets not having this fine recipe when I was young..."
 
 (End of Chapter)

@@ -1,121 +1,121 @@
 # Chapter 2659: The Capital (Part 15)
 
-Leng Ningyun was startled. He opened his eyes and looked, only to see a young man in his early thirties entering. He wore a snow-blue Taoist robe, a net kerchief on his head, and had three strands of clear beard under his chin, looking refined and measured.
+Leng Ningyun started awake. He opened his eyes to see a young man in his early thirties entering the room. The visitor wore a snow-blue Taoist robe with a net kerchief atop his head, and three strands of wispy beard adorned his chin, giving him a refined and measured appearance.
 
-He habitually leaned forward slightly and said, "Sir is..."
+Leng Ningyun leaned forward slightly out of habit. "Sir, you are..."
 
-"My humble surname is Le," the visitor said very simply.
+"My humble surname is Le," the visitor replied simply.
 
-"Mr. Le." No matter in which spacetime, what Leng Ningyun did most was deal with people. His gaze for judging people was refined to perfection. At this moment, the visitor appeared young and had a dashing posture, looking somewhat like an immortal bones Taoist. However, upon closer inspection, his demeanor seemed somewhat deliberate.
+"Mr. Le." Regardless of which spacetime he found himself in, Leng Ningyun's primary occupation had always been dealing with people. His ability to read them had been honed to perfection over the years. At first glance, this visitor appeared young with a dashing bearing, somewhat resembling an otherworldly Taoist blessed with immortal bones. Yet upon closer inspection, his demeanor seemed somewhat affected.
 
-"I wonder why Sir mobilized forces to invite me here. What is your noble business?"
+"I wonder why you mobilized such forces to bring me here, sir. What is your purpose?"
 
-"Mr. Le" smiled faintly, sat down on his own, and said, "Mr. Leng, be calm and don't be impatient. Originally I didn't want to show my face, but the current situation is such that I had to invite Mr. Leng to make a trip."
+"Mr. Le" smiled faintly, seated himself without invitation, and said, "Mr. Leng, please remain calm. Originally, I had no intention of showing my face, but circumstances have forced me to invite you here."
 
-Leng Ningyun had always felt this person was somewhat strange, but couldn't put his finger on it. After a moment, he reacted: the accent and tone of this "Mr. Le" in front of him were too much like a "Senator."
+Leng Ningyun had sensed something peculiar about this person from the start but couldn't quite identify it. After a moment, it struck him: the accent and intonation of this "Mr. Le" were far too similar to those of a Senator.
 
-Since the Senate arrived in Lingao, it had spared no effort to promote Mandarin for almost ten years. However, there were still very few Naturalized Citizens who could speak Mandarin well. The best level was only speaking "Canton-Mandarin" or "Fujian-Mandarin." Although they could communicate, the accent was quite heavy.
+Since the Senate's arrival in Lingao, they had spared no effort in promoting Mandarin for nearly a decade. Yet very few Naturalized Citizens could speak it well. The best among them managed only "Canton-Mandarin" or "Fujian-Mandarin"—serviceable for communication, but heavily accented.
 
-The ones who spoke best were naturally the "new generation" children of Fangcaodi who started learning from childhood. The standard of their Mandarin was already very close to the level of the Senators. Including consciousness, thinking, habits, demeanor...
+Those who spoke it best were naturally the "new generation" children of Fangcaodi, who had learned from childhood. Their Mandarin had reached a level nearly indistinguishable from that of the Senators themselves, and their consciousness, thinking, habits, and demeanor reflected this as well.
 
-The problem was that such people were few, and the oldest was only in their early twenties. Absolutely no one was of the age of this Mr. Le before him. Moreover, the intonation and tone of his speech were completely different from Naturalized Citizens...
+The problem was that such individuals were rare, and the oldest among them were only in their early twenties. No one remotely approached the age of this Mr. Le sitting before him. Moreover, his intonation and manner of speech were entirely unlike those of any Naturalized Citizen...
 
-Leng Ningyun shivered: Could it really be...
+Leng Ningyun shivered. Could it really be...
 
-Actually, he had already had such a thought from the moment he saw the first letter, but the "Mr. Le" appearing before him was practically a living... a "Senator"!
+In truth, he had entertained such a thought from the moment he first saw the letter. But the "Mr. Le" now before him was practically a living... a Senator!
 
-Leng Ningyun broke out in cold sweat. To be honest, the External Intelligence Bureau had long had similar speculations. That was after the "Umbrella" and "Parasol" cases were solved back then, when they first learned of the existence of "Old Man Shi" from interrogating captives and captured written materials. At that time, the External Intelligence Bureau said that from the infiltration methods, contact methods, and action plans, there was too much knowledge transcending the era. In that era when secret operations were basically limited to *Jianghu* people, it was too far beyond their expectations.
+Cold sweat broke out across Leng Ningyun's body. The External Intelligence Bureau had long harbored similar suspicions. After the "Umbrella" and "Parasol" cases were resolved years ago, they first learned of "Old Man Shi's" existence through interrogations of captives and captured documents. At that time, the Bureau noted that the infiltration methods, contact protocols, and operational plans displayed knowledge far transcending the era. In an age when clandestine operations were essentially the domain of *Jianghu* folk, such sophistication far exceeded their expectations.
 
-At that time, the big shots of the "Center" suspected that besides them and that "looming Japanese," there were other people who had transmigrated to this spacetime, and they specifically wrote a report to the Executive Committee based on the collected intelligence.
+Back then, the senior officials of the "Center" suspected that besides themselves and that "looming Japanese," other people had transmigrated to this spacetime. They compiled a report for the Executive Committee based on the gathered intelligence.
 
-No more than twenty people had read this report, and Leng Ningyun was one of them. Of course, he knew this situation because he was going to serve as the person in charge of an overseas station—all Senators in charge of overseas stations had to read this report to understand the potential threats.
+Fewer than twenty people had read that report, and Leng Ningyun was one of them. He had been given access because he was to serve as the head of an overseas station—all Senators assigned to lead overseas stations were required to read it, to understand the potential threats they faced.
 
-Such suspicion reached its peak during the Hangzhou Station Incident, especially the appearance of Hao Yuan, which once drove the Senate near crazy. Although Hao Yuan died in the end, the "fish that slipped through the net," Black, still made the Senate feel like it had a thorn in its back. Based on the intelligence collected, the External Intelligence Bureau's suspicion about the origin of this "Old Man Shi" was also raised to a new height.
+Such suspicions reached their peak during the Hangzhou Station Incident. The appearance of Hao Yuan, in particular, had once driven the Senate nearly to madness. Although Hao Yuan eventually died, the one who slipped through the net—Black—still left the Senate feeling as though a thorn were lodged in its back. Based on the intelligence collected, the External Intelligence Bureau's suspicions regarding the origins of "Old Man Shi" were elevated to new heights.
 
-However, the suspicion that "Old Man Shi" might be another Black dropped significantly after the "Witchcraft Case" at the Guangzhou Station. Because the Senators found it hard to imagine that a 21st-century "talent" capable of planning the Parasol Action and the riots in Hangzhou, with excellent organizational and incitement abilities, would believe in witchcraft and invest such a huge amount of manpower and material resources to toss about various Feng Shui secret arts and curses. Honestly, wouldn't it be better to use these manpower and resources on other means?
+However, the theory that "Old Man Shi" might be another Black diminished significantly after the "Witchcraft Case" at the Guangzhou Station. The Senators found it difficult to believe that a 21st-century "talent" capable of orchestrating the Parasol Action and the Hangzhou riots—someone with exceptional organizational and incitement abilities—would believe in witchcraft and invest such vast resources into pursuing various Feng Shui secret arts and curses. Honestly, wouldn't those manpower and resources have been better spent on other means?
 
-In addition, Old Man Shi's activities had decreased recently, and even such clumsy means as "counterfeit currency" were produced. The External Intelligence Bureau judged that with the basic scientific literacy of a person from the old spacetime, one would know that such a strategy would hardly succeed against quasi-modern currency.
+Additionally, Old Man Shi's activities had decreased recently, and even crude schemes like counterfeit currency had been attempted. The External Intelligence Bureau judged that anyone with even basic scientific literacy from the old spacetime would know such a strategy stood little chance against quasi-modern currency.
 
-In short, Black's actions were consistent with his logical thinking as a transmigrator, but Old Man Shi's behavior was unconstrained and imaginative, with very high upper and lower limits, difficult to summarize with logic.
+In short, Black's actions remained consistent with the logical thinking of a transmigrator, but Old Man Shi's behavior was erratic and wildly imaginative, with extremes at both ends that defied logical categorization.
 
-Therefore, Old Man Shi was unlikely to be a second Black. At best, he was a genius of this spacetime who knew a little modern knowledge. Therefore, the speculation of the External Intelligence Bureau was that Old Man Shi was likely not a single person, but an organization gathered by certain people.
+Therefore, Old Man Shi was unlikely to be a second Black. At best, he was a genius of this spacetime who had acquired some modern knowledge. The Bureau's current hypothesis held that Old Man Shi was probably not a single person at all, but rather an organization assembled by certain individuals.
 
-He had never seen the person before him in any relevant reports of the External Intelligence Bureau. But this man's Mandarin accent and way of speaking, as well as that strange letter, seemed to show that he had countless ties with the old spacetime...
+Leng Ningyun had never seen the man before him in any of the External Intelligence Bureau's reports. Yet his Mandarin accent, his manner of speaking, and that strange letter all seemed to reveal countless ties to the old spacetime...
 
-"Mr. Leng, I know what you are thinking," the man smiled, "But, I am not."
+"Mr. Leng, I know what you are thinking," the man smiled. "But I am not."
 
-Leng Ningyun trembled and said, "You are not what..."
+Leng Ningyun trembled. "You are not what..."
 
 "I am not the person you think I am," Mr. Le said leisurely. "That is, the person the Senate fears most."
 
-"Pah, the Senate fears nothing." Leng Ningyun suddenly found his courage.
+"Bah! The Senate fears nothing." Leng Ningyun suddenly found his courage.
 
-"The Senate has strong ships and sharp cannons, possessing the wealth of the four seas; of course, it fears nothing. It only fears this..." As he spoke, he pointed to his own head. "Otherwise, why insist on exterminating Hao Yuan completely?"
+"The Senate commands powerful ships and sharp cannons, possessing the wealth of the four seas—of course it fears nothing." Mr. Le tapped his own temple. "It only fears this. Otherwise, why insist on exterminating Hao Yuan completely?"
 
-Cold sweat appeared on Leng Ningyun's back. he knew about Hao Yuan very clearly. In the Hangzhou Incident, Black and Old Man Shi loomed behind Hao Yuan, always a great hidden danger to the Senate. When he learned that Hao Yuan was killed, he secretly breathed a sigh of relief. Presumably, other Senators felt the same.
+Cold sweat formed on Leng Ningyun's back. He knew the Hao Yuan situation intimately. During the Hangzhou Incident, Black and Old Man Shi had loomed behind Hao Yuan, an ever-present danger to the Senate. When he learned of Hao Yuan's death, he had secretly breathed a sigh of relief. Presumably, other Senators felt the same.
 
-"In that case, your distinguished self is Old Man Shi?"
+"In that case, you must be Old Man Shi?"
 
-Mr. Le laughed loudly and said, "It is not impossible to say so. Only it is biased..."
+Mr. Le laughed heartily. "One could say that. Though such a description would be incomplete..."
 
-Leng Ningyun's heart settled. Correct, the ones who kidnapped him were the Old Man Shi Group. Now he wanted to clarify two things most: First, why kidnap him; second, whether there was a second Black in the Old Man Shi Group.
+Leng Ningyun's heart steadied somewhat. So it was the Old Man Shi Group who had kidnapped him. Now he needed to clarify two things above all else: first, why they had taken him; second, whether a second Black existed within the Old Man Shi Group.
 
-The speech and demeanor of this "Mr. Le" before him had a "smell of the old spacetime" that felt quite familiar to Leng Ningyun, but he dared not be certain.
+The speech and manner of this "Mr. Le" carried a "scent of the old spacetime" that felt strangely familiar to Leng Ningyun, yet he dared not draw any certain conclusions.
 
-After pondering for a moment, he asked, "What about the unbiased version?"
+After pondering for a moment, he asked, "Then what would be the complete version?"
 
-"There is no such person as Old Man Shi in this world." Mr. Le said not without regret, "But, he is everywhere."
+"There is no such person as Old Man Shi in this world," Mr. Le said, a trace of regret in his voice. "And yet, he is everywhere."
 
-These baffling words made Leng Ningyun savor them for a while. The meaning in his words seemed to be that there really was such a person as Old Man Shi in the past, but now this person no longer existed.
+Leng Ningyun turned these cryptic words over in his mind. Their meaning seemed to suggest that such a person as Old Man Shi had once existed, but that he was no longer among the living.
 
-"Mr. Le kidnapped me here; what do you intend?"
+"Mr. Le, you've kidnapped me and brought me here. What exactly do you intend?"
 
-"Just in this Beijing City, there are at least two or three hundred people who know the background of Delong."
+"In Beijing City alone, at least two or three hundred people know Delong's background."
 
-Leng Ningyun nodded: "This is not a secret."
+Leng Ningyun nodded. "That's no secret."
 
-"Correct, this is indeed not a secret." Mr. Le smiled. "However, knowing what kind of person Master Leng is—there are probably only us."
+"Correct, it is indeed no secret." Mr. Le smiled. "However, knowing what manner of person Master Leng truly is—that knowledge belongs to us alone."
 
-Leng Ningyun remained silent. unless subjected to torture or life threats, he could not admit he was a Senator. This was the outermost layer of the multi-layer confession provided by the External Intelligence Bureau to all Senators.
+Leng Ningyun remained silent. Unless subjected to torture or threats against his life, he could not admit to being a Senator. This was the outermost layer of the multi-tiered confession protocols the External Intelligence Bureau provided to all Senators.
 
-Seeing him remain silent, Mr. Le smiled inscrutably, leaned close to him, and whispered:
+Seeing his silence, Mr. Le smiled inscrutably, leaned close to him, and whispered:
 
 "Odd changes, even remains; for the sign, look at the quadrant."
 
-Leng Ningyun's eyes widened. Although he had been mentally prepared for such a situation before seeing that anonymous letter with *E = mc*, the shock he felt in his heart when this moment truly arrived was still violent.
+Leng Ningyun's eyes widened. Though he had steeled himself for such a possibility ever since seeing that anonymous letter bearing *E = mc*, the shock that seized his heart when the moment actually arrived was still violent.
 
-After a long while, he said, "You really are..."
+After a long pause, he managed to speak. "You really are..."
 
-"The same as you, right?"
+"The same as you, correct?"
 
 "Aren't you?"
 
-"No." Mr. Le smiled, a smile containing both nostalgia and a trace of sadness.
+"No." Mr. Le smiled—a smile tinged with nostalgia and a trace of sadness.
 
-Now, Leng Ningyun's mind fell completely into disorder. Whether Old Man Shi was another transmigrator or this Mr. Le was another student of Black, he completely couldn't understand their motive for kidnapping him.
+Now Leng Ningyun's thoughts fell into complete disarray. Whether Old Man Shi was another transmigrator or this Mr. Le was another disciple of Black's, he could not fathom their motive for kidnapping him.
 
-"The reason I invited Mr. Leng here is to ask you to be a peacemaker." Mr. Le clarified his purpose.
+"The reason I invited Mr. Leng here is to ask you to serve as a peacemaker," Mr. Le clarified.
 
-Leng Ningyun laughed: "Mr. Le must be joking: since the founding of the Great Ming, there has never been talk of ceding territory, paying indemnities, or marriage alliances. What virtue or ability does Leng possess to be this peacemaker? Even if the Senate agrees, can the Emperor agree?"
+Leng Ningyun laughed. "Mr. Le must be joking. Since the founding of the Great Ming, there has never been talk of ceding territory, paying indemnities, or marriage alliances. What virtue or ability does Leng possess to serve as such a peacemaker? Even if the Senate agreed, would the Emperor consent?"
 
-"As long as the conditions are suitable, the Emperor might not object." Mr. Le said, "You are a Senator, one of the noble Five Hundred. The Senators will definitely not sit idly by while your life is in danger."
+"Given suitable conditions, the Emperor might not object," Mr. Le replied. "You are a Senator, one of the noble Five Hundred. The Senate will certainly not stand idly by while your life hangs in the balance."
 
-"So, you want to use me as a hostage to force the Senate to agree to your conditions."
+"So you mean to use me as a hostage to force the Senate to accept your terms."
 
-Mr. Le smiled slightly and did not speak.
+Mr. Le smiled slightly but said nothing.
 
 "This is wishful thinking..."
 
-"Not necessarily. After all, the Senate has stationed quite a few Senators in the Great Ming territory, such as Senator Zhao in Hangzhou... Actually, even in the Liangguang territory, Senators are scattered in various places, and the protection isn't necessarily watertight. Judging others by oneself, who can guarantee they will be safe forever?" Mr. Le guided patiently.
+"Not necessarily. After all, the Senate has stationed quite a few Senators throughout Ming territory—Senator Zhao in Hangzhou, for instance. Even within Liangguang, Senators are scattered across various locations, and their protection is hardly watertight. Judging by one's own measure, who can guarantee eternal safety?" Mr. Le's voice was patient, guiding.
 
-Leng Ningyun was sweating profusely at this moment. This Mr. Le looked kind and pleasant, but his words were full of murderous intent. The danger to life he spoke of was probably not simple home confiscation and beheading, but "death penalties" with more viewing effect and deterrence like death by a thousand cuts.
+By now, Leng Ningyun was drenched in sweat. This Mr. Le appeared kind and pleasant, but his words dripped with murderous intent. The "danger to life" he spoke of was probably not a simple matter of confiscation and beheading, but rather "death penalties" designed for maximum spectacle and deterrence—like death by a thousand cuts.
 
-Compared to Zhao Yingong, who had deep collusion with the gentry in Jiangnan and existed almost like an independent kingdom, he was indeed the weakest link among all Senators stationed abroad. It was no wonder Old Man Shi's gang would jump over the wall in desperation and start with him.
+Compared to Zhao Yingong, who maintained deep ties with the Jiangnan gentry and operated almost as an independent kingdom, Leng Ningyun was indeed the weakest link among all the Senators stationed abroad. Small wonder that Old Man Shi's group, desperate and cornered, had chosen to begin with him.
 
-He broke out in sweat again and again, knowing he was in great danger. Now he roughly understood: the Old Man Shi Group was not a simple anti-髡 bureaucrat group. Their vision was broader than ordinary bureaucrats and gentry, and their understanding of the Senate was deeper. What was certain was that there was a transmigrator pointing out the maze for them—only whether this person was Black or someone else could not be determined.
+Wave after wave of cold sweat broke over him as he recognized the gravity of his peril. Now he understood: the Old Man Shi Group was no simple cabal of anti-髡 bureaucrats. Their vision exceeded that of ordinary officials and gentry, and their understanding of the Senate ran far deeper. What seemed certain was that a transmigrator was guiding them—though whether this person was Black or someone else remained impossible to determine.
 
-Continuing to bicker with him was meaningless. The only thing now was to stall for time and wait for rescue. He immediately pretended to submit and said, "Since you insist on thinking so, I have no choice. What do you want me to do?"
+Continuing to bicker was pointless. His only option now was to stall for time and await rescue. Feigning submission, he said, "Since you insist on thinking so, I have no choice. What would you have me do?"
 
-Mr. Le nodded: "A wise man submits to circumstances." Saying this, he pushed the Four Treasures of the Study on the table over, "Please write a letter, Mr. Leng."
+Mr. Le nodded approvingly. "A wise man adapts to circumstances." With that, he pushed the Four Treasures of the Study across the table toward him. "Please write a letter, Mr. Leng."
 
 **(End of Chapter)**

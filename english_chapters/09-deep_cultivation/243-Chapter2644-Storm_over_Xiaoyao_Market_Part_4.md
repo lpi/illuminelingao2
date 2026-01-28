@@ -1,101 +1,101 @@
 # Chapter 2644: Storm over Xiaoyao Market (Part 4)
 
-Earth wall not high. Just high as one person. But adding bamboo fence, had more than one *zhang*. Upper end of fence all sharpened roasted hard. With interval still had one by one small window holes. Probably were cannon eyes. Below earth wall, surrounded moat again. Connecting with river water. On top of earth wall still set up multiple towers built by bamboo. On top had Kun Soldiers' figures shaking.
+The earthen wall stood no higher than a man, but topped with a bamboo fence, it rose to more than one *zhang*. The upper ends of the fence stakes had been sharpened and fire-hardened. At regular intervals, small openings pierced the barrier—likely cannon embrasures. Below the wall, a moat encircled the fortification, its waters connected to the river. Atop the earthen ramparts, several bamboo watchtowers had been erected, and the silhouettes of Kun Soldiers could be seen moving about on their platforms.
 
-Luo Heying slightly knew military strategy. Knew this camp looked very crude, but these facilities matching a squad of elite soldiers, enough to resist siege of enemies of ten times above.
+Luo Heying possessed some knowledge of military strategy. He understood that while this camp appeared crude, these defenses combined with a squad of elite soldiers would be sufficient to repel an attacking force ten times their number.
 
-"Here have how many Kun Soldiers?"
+"How many Kun Soldiers are stationed here?"
 
-"This, small one then doesn't know." Apprentice smiled apologetically, "But these working people usually all live in camp. Small few hundred people right."
+"This lowly one truly doesn't know," the apprentice said with an apologetic smile. "But the workers usually all live inside the camp. A few hundred people, I'd say."
 
-"You are what fart words!" Li Guangyuan dissatisfied said, "Small few hundred people is how many people? They constructed built here for a month, have how many people you don't know?! Rice bucket!"
+"What kind of nonsense answer is that!" Li Guangyuan snapped. "A few hundred—how many is that exactly? They've been building here for a month, and you don't know how many people there are? Useless rice bucket!"
 
-Apprentice full face wronged. Pawnshop rule extremely strict. Besides Shopkeeper could go out to socialize, apprentices were no difference with sitting jail. Food lodging all in pawnshop. Usually not allowed go out. In one month only First Fifteenth could ask leave to go out to bath hair cut. Also could only go come same day. Wanting to go home must have urgent matter only then approved leave. Don't say Australians came for more than one month, even coming for three five years he also had no way to know.
+The apprentice's face crumpled with grievance. The pawnshop's rules were extremely strict. Aside from the shopkeeper, who could go out to conduct business, the apprentices lived no differently than prisoners. They ate and slept in the shop and were forbidden from leaving. Only on the first and fifteenth of each month could they request leave to go out for a bath and haircut, and they had to return the same day. To go home required an urgent matter and special approval. Let alone the Australians being here for over a month—even if they'd been here three or five years, he would have had no way of knowing.
 
-But at this moment East Owner scolded. Apprentice only had share of listening with low eyebrows pleasing eyes. Waiting until Master Li played finish prestige, only then low voice said: "Small ones usually are not allowed out of shop. But, heard idlers coming to shop say, people living inside not few. Unloading goods time, whole bag whole bag big rice transporting inside..."
+But with the East Owner scolding him now, the apprentice could only listen with lowered brows and an ingratiating expression. When Master Li had finished venting his authority, the apprentice ventured in a low voice: "We lowly ones aren't usually allowed out of the shop. But I've heard idle customers who come in say that quite a lot of people live inside. When they unload goods, they transport whole sacks of rice in there..."
 
-"Oh, this rice is transported from where? Not supplied by Fan Family?"
+"Oh? Where is this rice transported from? Isn't Fan Family supplying them?"
 
-"Heard is transported by Kun People's own business house. Fan Family only supplies vegetables to Kun People."
+"I heard it's transported by the Kun People's own trading house. The Fan Family only supplies vegetables to the Kun People."
 
-Li Guangyuan snorted a sound. Besides despising, heart actually still had some envy. Kun Thieves were blind eyes! Unexpectedly mixed together with Fan Xiao this Hakka Fellow!
+Li Guangyuan snorted. Beyond his contempt, his heart harbored a trace of envy. Those blind Kun Thieves! How could they choose to partner with Fan Xiao, that Hakka fellow!
 
-Luo Hetu didn't know Master Li's inner activity. Just cared looking at camp. Half while then opened mouth said: "Here have any climbing high place? I want to look at Kun Thieves camp interior."
+Luo Hetu remained unaware of Master Li's inner turmoil. He focused his attention on the camp. After a long while, he spoke: "Is there anywhere nearby to climb for a better vantage point? I want to observe the interior of the Kun Thieves' camp."
 
-Apprentice face revealed difficult color, said: "Nearby actually has a Literary Pagoda (*Wen Ta*). Just distant from here still some distance. Climbing up also can't look clear."
+A difficult expression crossed the apprentice's face. "There's actually a Literary Pagoda (*Wen Ta*) nearby. But it's still some distance from here. Even if you climb up, you won't be able to see clearly."
 
-Luo Heying said: "No hindrance. Master has Thousand Li Mirror. You just lead road."
+Luo Heying said: "No matter. Master has a Thousand Li Mirror. Just lead the way."
 
-Apprentice led road. Bringing leaving Xiaoyao Market. Walking again field ridge again small road for a good while. Only then came to a high hillock beside river branch.
+The apprentice took the lead, guiding them out of Xiaoyao Market. They walked along field ridges and narrow paths for quite some time before arriving at a high hillock beside a river branch.
 
-Here indeed stood a Literary Pagoda. Although shape and structure similar, but this kind of pagoda was not "Stupa" (*Fu Tu*) on Buddhist significance. But built out of Feng Shui significance. Scale size not uniform. Some couldn't be climbed. But this one shape structure very small. Middle actually had stairs could go up down.
+A Literary Pagoda indeed stood here. Though similar in form and structure to others, this type of pagoda was not a Buddhist *Stupa* (*Fu Tu*) in the religious sense, but rather built according to Feng Shui principles. Such pagodas varied in scale and size—some couldn't be climbed at all. This particular one, however, was quite small in dimensions yet contained an internal staircase for ascending and descending.
 
-Just area of every floor too small. Three people arrived pagoda top with smallest area almost face pasting face. Looking out from small window, blurry could see distant Kun Thieves barracks. Luo Heying took out telescope looking carefully.
+The problem was that each floor's area was too cramped. When the three men reached the topmost level, the space was so tight they stood nearly face to face. Looking out through the small window, they could make out the distant Kun Thieves' barracks in a blur. Luo Heying produced a telescope and examined the scene carefully.
 
-Only saw this Kun Thieves' camp roughly showed rectangle. Middle had a small earth hill. Looking carefully, this earth hill was only commanding height near New Pier.
+The Kun Thieves' camp was roughly rectangular in shape. At its center rose a small earthen hill. Upon closer inspection, this hill appeared to be the only commanding height near the New Pier.
 
-Fortifications of four sides, generally same two as observing from outside. Behind wall body set up ladders and scaffoldings for climbing high shooting. On empty ground unexpectedly still bad cannons.
+The fortifications on all four sides were generally consistent with what they had observed from outside. Behind the wall, ladders and scaffolding had been set up for elevated shooting positions. On the open ground within, they had even placed cannons.
 
-Although only two small cannons. Purely by armaments speaking, this camp already counted as solid as gold soup (*Gu Ruo Jin Tang* - impregnable). Luo Heying secretly heart startled. This Kun Thieves setting dense defense here so, had what intention?
+Though there were only two small cannons, judged purely by armaments, this camp could already be considered *Gu Ruo Jin Tang*—solid as gold poured into iron, utterly impregnable. Luo Heying felt a secret shock in his heart. What intentions did the Kun Thieves have in establishing such dense defenses here?
 
-Looking inside camp again. Houses all were long strip style. Arranged neatly. And on open spacious place placed several strange looking strange looking objects. All covered by curtain cloth. Didn't know are what. Couldn't help asking: "That is what object? Just under cloth curtain."
+He shifted his gaze to examine the camp's interior. The buildings were all long, rectangular structures arranged in neat rows. In the open spaces, several strange-looking objects had been placed, all covered with canvas tarps. He couldn't tell what they were. "What are those objects? The ones under the cloth covers."
 
-Apprentice took over telescope looked. Hesitated moment only then said: "According to rumor is Australian Iron Steel Beast. When using want to feed full coal mud first. Casting spell making Giant Beast violent. Then Kun Person enters into iron cage on Giant Beast back to drive. Heard this Giant Beast belongs to Earth Nature. Whole body hit with Refined Iron Shackles cast by Australian secret method. Every time exerting force is roaring shaking heaven. Strength big incomparable. Especially good at digging earth moving mountain. When Giant Beast walks like thundering generally. If letting these Giant Beasts break free shackles, that terrible. Giant Beast immediately will drill into underground, attracting radius several tens *li* earth moving not peaceful. This Kun Soldier's camp is all built by help of these Giant Beasts. merely short few days then completed."
+The apprentice took the telescope and looked. He hesitated a moment before speaking: "According to rumor, those are Australian Iron Steel Beasts. Before using them, you have to feed them coal and mud. Then a spell is cast to make the Giant Beast go into a frenzy. A Kun Person then enters an iron cage on the Beast's back to control it. I've heard these Giant Beasts are of Earth Nature—their whole bodies bound with Refined Iron Shackles forged through Australian secret methods. Every time they exert themselves, they roar loud enough to shake the heavens. Their strength is incomparably great, and they're especially adept at digging earth and moving mountains. When the Giant Beasts walk, it sounds like rolling thunder. If these Giant Beasts were to break free of their shackles—terrible! The Beast would immediately burrow underground and cause the earth to tremble for several tens of *li* in every direction. This entire Kun Soldier camp was built with the help of these Giant Beasts. It took only a few short days to complete."
 
-"Oh, this Long House can live how many people?"
+"And these Long Houses—how many people can they accommodate?"
 
-"Small one also not too clear. Only heard laborers recruited by Kun People say in Long House put are all two-layer beds. A room Long House probably can live fifty people around right."
+"This lowly one isn't entirely certain either. I only heard laborers recruited by the Kun People say that the Long Houses contain two-level bunk beds. A single Long House can probably house around fifty people."
 
-Luo Heying carefully counted quantity of Long Houses. Kun people living permanently in camp about two hundred people up down. Although majority should be laborers, soldiers wouldn't be too many. But Laborers issued knife gun also could fight kill. This stockade usually really couldn't take down.
+Luo Heying carefully counted the number of Long Houses. Approximately two hundred people lived permanently in the camp, give or take. Although the majority were likely laborers and the actual soldiers couldn't be too numerous, laborers issued with swords and spears could still fight and kill. Under normal circumstances, this stockade would be truly impossible to take.
 
-Three people came down from tower. Returned into Pawnshop. Luo Heying asked: "You just now said that land is Feng Shui Treasure Land. Families buried there had producing three Cultivated Talents. Are all what families?"
+The three men descended from the tower and returned to the pawnshop. Luo Heying asked: "You mentioned earlier that the land was a Feng Shui Treasure Land, and that families who buried their dead there had produced three Cultivated Talents. Which families were they?"
 
-Still not waiting for apprentice open mouth, Li Guangyuan smiled: "Brother Luo! You stop listening to this Killing Talent (*Sha Cai*) speaking nonsense blindly! That river beach is Charity Land. Buried there, if not poor people body without place to stick awl, then is Road Fallen (corpse) from nowhere. Family able to produce Cultivated Talent how can make grave there... Still Feng Shui Treasure Land. Vicious Evil Land still almost."
+Before the apprentice could open his mouth, Li Guangyuan laughed: "Brother Luo! Stop listening to this *Sha Cai* spout nonsense! That riverbank is Charity Land. Those buried there are either paupers with no place to call their own, or unclaimed corpses of travelers who died on the road. How could a family capable of producing Cultivated Talents make graves there? A Feng Shui Treasure Land, he says—a Vicious Evil Land is more like it!"
 
-Apprentice awkwardly smiling, said: "Master, small one also listened others saying so."
+The apprentice smiled awkwardly. "Master, this lowly one was only repeating what others have said."
 
-Luo Heying however was calculating inside this matter had usable place. If Kun Thieves truly dug people's ancestral graves, this matter actually could limitlessly utilize a round. But if just cleared away Charity Cemetery Land, speaking truth had no what oil water. He thought a bit then proposed opening a shop near New Pier.
+Luo Heying, however, was calculating whether this matter could be put to use. If the Kun Thieves had truly dug up people's ancestral graves, this could be exploited extensively. But if they had merely cleared away a Charity Cemetery, the situation offered little advantage in truth. He pondered for a moment, then proposed opening a shop near the New Pier.
 
-"This is easy. Land there cheap no more." Li Guangyuan full mouth agreed, "Let Shopkeeper Wu come out to handle is fine."
+"That's easy enough. Land there couldn't be cheaper." Li Guangyuan readily agreed. "Just have Shopkeeper Wu handle the arrangements."
 
-"House not need big. Cruder one better. I plan to open a Tea Rice Shop." Luo Heying said, "At that time still trouble you introduce a few people to do work."
+"The building doesn't need to be large. The cruder, the better. I plan to open a Tea and Rice Shop," Luo Heying said. "When the time comes, I'll trouble you to introduce some workers."
 
-"Small matter one pile. All on my body!"
+"A trifling matter! Leave it all to me!"
 
-Not a few days, near New Pier, a Tea Rice Shop crude to even without brand name opened. Said shop, actually only one room as kitchen. On waste land built up reed mat shed. Under shed put down crude table chairs then counted as opened.
+Within a few days, a Tea and Rice Shop opened near the New Pier—so crude it didn't even have a signboard. To call it a shop was generous; in truth, it was just one room serving as a kitchen. On the wasteland, they had erected a shed of reed mats. Beneath the shed, they set out rough tables and chairs, and that counted as opening for business.
 
-Crude returned to crude. Business here was not bad. Luo Heying was for spying news, not for earning money. So price cheap. Beside also had Australians' big construction site. Besides core workers, large amount subcontract workers were all recruited locally. Australians didn't manage meal. This Rice Shop once opened then market before door (many customers) because of object beautiful price cheap.
+Crude as it was, business proved brisk. Luo Heying's purpose was gathering intelligence, not making money, so his prices were cheap. Moreover, the Australians' large construction site stood nearby. Apart from the core workers, large numbers of subcontracted laborers had all been recruited locally, and the Australians didn't provide meals. The moment this Rice Shop opened, customers flocked to the door, drawn by good food at fair prices.
 
-This Luo Heying also truly put down status. Personally served as a miscellaneous work buddy in this Rice Shop. Daily carrying water chopping wood. Busy inside busy outside. Tightly staring at this Australian construction.
+Luo Heying had truly set aside his status. He personally served as a common laborer in this Rice Shop, hauling water and chopping firewood day after day. Busy inside, busy outside—all while keeping his eyes fixed on the Australian construction.
 
-He knowing Australians quite some, after seeing defense didn't extravagantly hope able to smoothly break camp. But, "Above" said, as long as able to lift a wild tide of Anti-Kun Thieves here, attracting Kun Thieves' attention is fine.
+His knowledge of the Australians was considerable. After observing their defenses, he no longer harbored extravagant hopes of breaching the camp smoothly. However, his superiors had said that as long as he could stir up a wave of anti-Kun Thief sentiment here and draw the Kun Thieves' attention, that would suffice.
 
-He slightly knew military strategy. Naturally understood this was Sound East Strike West strategy. Breaking camp or not didn't matter. But he still held thought of wanting to break camp.
+He knew something of military strategy. Naturally, he understood this was a "Sound East, Strike West" tactic. Whether the camp fell or not didn't truly matter. Yet he still clung to the ambition of taking it.
 
-He such using heart, removing National Hatred Family Hate, also contained dream of flying yellow rising reach (rapid promotion). Because Taoist Wood Stone already said, if could take a True Kun Thief's head this time, directly could award Fifth Rank Military Post; Beheading and capturing a Fake Kun High Executive, reward Seventh Rank Military Post. This to Luo Heying who only shallowly tasted flavor of "Degree" was huge temptation.
+His dedication stemmed not only from national hatred and personal vengeance, but also harbored dreams of rapid advancement. Taoist Wood Stone had already declared that capturing a True Kun Thief's head this time would earn a direct award of a Fifth Rank Military Post. Beheading or capturing a high-ranking Fake Kun would merit a Seventh Rank Military Post. To Luo Heying, who had only briefly tasted the flavor of official "Degree," this was an enormous temptation.
 
-And just now in apprentice's words already revealed an important information. This place was Kun Thieves' important construction place. Often had True Kun or important Fake Kun coming here to inspect. If could break stockade behead kill him, this merit...
+And just now, the apprentice's words had revealed crucial information. This place was the Kun Thieves' important construction site. True Kuns or important Fake Kuns often came here for inspections. If he could breach the stockade and take such a head, the merit...
 
-Thinking here, his heart hot dried a few portions again.
+At this thought, his heart burned several degrees hotter.
 
-From conversation of hired workers coming here to eat, Luo Heying understood more information.
+From conversations with hired workers who came to eat, Luo Heying gleaned more intelligence.
 
-Turning out Fake Kuns in this camp not many. Besides thirty names Fake Kun Soldiers garrisoning, following engineering progress time more time less. Frequently would change. Many time had thirty-plus people. Few time only had ten-plus people. However Fake Kuns all had craftsmanship. Some could drive that Iron Monster; Some could position Feng Shui; Some understood building house repairing road...
+As it turned out, there weren't many Fake Kuns in this camp. Besides thirty Fake Kun Soldiers garrisoning the site, others came and went according to the engineering progress—sometimes more, sometimes fewer. At peak times, there might be thirty-odd; at lean times, only a dozen or so. However, all the Fake Kuns possessed specialized skills. Some could operate those Iron Monsters; some could determine Feng Shui alignments; some understood building construction and road repair...
 
-Although people few, but dwellings inside camp actually many. Removing Long House and Warehouse he saw on tower, still building many other houses. Unknown specific usage.
+Though their numbers were few, the dwellings inside the camp were many. Beyond the Long Houses and warehouses he had observed from the tower, many other buildings were under construction. Their specific purposes remained unknown.
 
-As for True Kun not permanent resident. About a month would come one two. All were having "Technology." Coming a few days then leave. As long as seeing Japanese Pirate Samurai wearing Iron Bamboo Hat or Korean Soldiers wearing big hat wearing white clothes arrival, that was True Kun came.
+As for the True Kuns, they weren't permanent residents. Roughly once a month, one or two would arrive, all possessing "Technology." They would stay a few days and then depart. Whenever one saw Japanese Pirate Samurai wearing iron bamboo hats, or Korean Soldiers in their broad-brimmed hats and white clothing, that signaled a True Kun's arrival.
 
-As for usage of camp, said to be Kun Thieves' "Yamen." But exactly was which level Yamen no one could say clear. Said this "Yamen" differed from ordinary Yamen again. Besides levying tax and Circuit Court trying cases, still wanted to do "Promotion." Said was wanting to teach everyone raising silkworm reeling silk what. Also wanted to run school in town. Open warehouse. Build workshop. Afterwards just men entering workshop, women raising silkworm reeling silk, children all go to school. Everyone has job. Everyone can live good days...
+Regarding the camp's purpose, it was said to be the Kun Thieves' "Yamen." But exactly what level of Yamen, no one could say clearly. This "Yamen" apparently differed from ordinary ones. Besides collecting taxes and holding court trials, it also intended to conduct "Promotion"—supposedly teaching everyone about silkworm raising and silk reeling. They also wanted to establish schools in town, open warehouses, and build workshops. In the future, men would work in the workshops, women would raise silkworms and reel silk, and all children would attend school. Everyone would have employment. Everyone would live good lives...
 
-Luo Heying frequently hearing these only secretly funny. This Kun Thieves' words you also take true! Since ancient times had Man Above Man, then bad Man Below Man. Even if everyone passed good days, naturally would have people passing better days—Just right now Kun Thieves whether could let common people eat full rice all hard to say. True is blowing cow skin not need pay tax...
+Whenever Luo Heying heard such talk, he could only laugh inwardly. Did they really believe the Kun Thieves' words? Since ancient times, where there were men above, there had to be men below. Even if everyone lived well, naturally some would live better than others. Right now, it was hard to say whether the Kun Thieves could even fill common people's bellies with rice. Truly, boasting cost no tax...
 
-"What Yamen! You all idle chatting nonsense! Under heaven where has building Yamen like this!" A middle-aged fellow sneered, "You understand a fart!"
+"What Yamen! You're all just idly spouting nonsense! Where under heaven has anyone ever built a Yamen like this?" A middle-aged fellow sneered. "You don't understand a damn thing!"
 
-"You understand a fart. You come say!" Crowd not convinced.
+"Oh, like you understand anything? Then you tell us!" The crowd was unconvinced.
 
-"I just tell you. Australians are practicing Geomancy Art (*Kan Yu Shu*) here. Doing Feng Shui Bureau. Not wanting to break Great Ming's Dragon Qi, then is wanting to Seek Dragon Point Cave, building Tomb..."
+"I'll tell you exactly what's going on. The Australians are practicing Geomancy Arts (*Kan Yu Shu*) here. They're setting up a Feng Shui Formation. Either they want to break the Great Ming's Dragon Qi, or they're Seeking the Dragon and Pointing the Cave—building a Tomb..."
 
-Luo Heying a daze. He really didn't think about this matter. Although saying somewhat false absurd. But had to say not impossible either. Kun Thieves after landing, hundred matters hundred smooth. Never frustration. No matter dangerous crisis all could be muddled over by them. Maybe really learned some secret method of Feng Shui Geomancy. Broke Great Ming's King Qi.
+Luo Heying was momentarily stunned. This possibility had never occurred to him. Though the claim sounded somewhat absurd, he had to admit it wasn't entirely impossible. Since landing, the Kun Thieves had enjoyed smooth sailing in all endeavors, never encountering setbacks. No matter how dangerous the crisis, they always managed to muddle through. Perhaps they truly had learned some secret method of Feng Shui Geomancy and had broken the Great Ming's Royal Qi.
 
 **(End of Chapter)**

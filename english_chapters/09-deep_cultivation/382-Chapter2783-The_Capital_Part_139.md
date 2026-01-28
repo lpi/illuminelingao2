@@ -1,133 +1,133 @@
 # Chapter 2783: The Capital (Part 139)
 
-"If you ask me, you were reckless." Zhou Lezhi heard Xu Yong's words and sighed.
+"If you ask me, you were reckless." Zhou Lezhi sighed after hearing Xu Yong's words.
 
 "Mr. Le..."
 
-"I know your meaning. You Rong is Mr. Zhou's concubine, allowing no mishap. You feel you have this responsibility towards Mr. Zhou and Master Wang..." Speaking of this, he couldn't help sighing again.
+"I understand what you mean. You Rong is Mr. Zhou's concubine—she must come to no harm. You feel this responsibility toward Mr. Zhou and Master Wang..." He couldn't help but sigh again.
 
-"Mr. Le, is there anything improper?"
+"Mr. Le, is something improper?"
 
-"Improper?" Zhou Lezhi smiled bitterly, "Once the bow is drawn, there is no turning back arrow. You continue to handle this matter. Just don't come to my place anymore. Contact directly by letter. If there is an urgent matter, find Master Wang directly. The Kun thieves have many eyes and ears outside; you yourself must be careful."
+"Improper?" Zhou Lezhi smiled bitterly. "Once a bow is drawn, the arrow cannot be recalled. Continue handling this matter yourself. Just don't come here anymore. Contact me directly by letter. If something urgent arises, go to Master Wang. The Kun have many eyes and ears outside; you must be careful."
 
-"This is the Capital. Sir has Master Wang's protection, why fear a few Kun thieves?"
+"This is the Capital, sir. With Master Wang's protection, why fear a few Kun operatives?"
 
-Zhou Lezhi smiled without answering. After instructing him with a few more sentences, he sent Xu Yong away.
+Zhou Lezhi smiled without answering. After giving a few more instructions, he saw Xu Yong out.
 
-As soon as Xu Yong left, Zhou Lezhi immediately summoned Wang Zhi: "Pack up simply, we leave."
+The moment Xu Yong departed, Zhou Lezhi summoned Wang Zhi. "Pack light. We're leaving."
 
-Wang Zhi was startled: "Leave? Go where?"
+Wang Zhi started in surprise. "Leaving? Where to?"
 
-Their footholds in the Capital were not many, and some places couldn't be visited either.
+Their safe houses in the Capital were few, and some locations couldn't be visited at all.
 
-"No matter where, just leave here first." Zhou Lezhi said, "Find an inn to stay first."
+"Anywhere. We just need to leave here first." Zhou Lezhi said, "Find an inn for the time being."
 
-Wang Zhi advised: "In broad daylight, what is Master afraid of? The Kun thieves wouldn't dare to seize the door and enter in broad daylight..."
+Wang Zhi tried to reason with him. "In broad daylight, what is Master afraid of? Surely the Kun wouldn't dare force their way in during the day..."
 
-"They dare, and they will definitely do so."
+"They would dare. And they will."
 
-Although Wang Zhi was not his house servant, he had acted according to his instructions in recent years, so he didn't argue much and immediately went to pack luggage. Zhou Lezhi packed up critical items slightly and waited for Wang Zhi to call a sedan chair over.
+Though Wang Zhi was not his household servant, he had followed Zhou Lezhi's instructions for years and knew better than to argue. He immediately went to pack their luggage. Zhou Lezhi gathered the most critical items and waited for Wang Zhi to arrange a sedan chair.
 
-In just the time of two quarters (30 minutes), Wang Zhi came to report: things were packed, and the called sedan chair was waiting at the door.
+In just two quarters of an hour, Wang Zhi returned with his report: everything was packed, and the sedan chair waited at the door.
 
-"Which family's?"
+"Which house?"
 
-"Called from the sedan chair stand at the east end of the street." Wang Zhi knew Mr. Le's rule: when calling a sedan chair, no roving sedan chair; must call from the sedan chair stand—the sedan bearers there were fixed, strangers couldn't wait for business there.
+"From the sedan chair stand at the east end of the street." Wang Zhi knew Mr. Le's rule well: never hail a roving sedan chair; always call from a proper stand—the bearers there were regulars, and strangers couldn't simply wait there for business.
 
-"Go." Zhou Lezhi got up and said.
+"Let's go." Zhou Lezhi rose.
 
-The two changed their attire and came to the residence gate. Indeed, a two-person small sedan chair stopped outside. Wang Zhi scrutinized briefly and nodded slightly, indicating the bearers were still the original people and there were no suspicious people outside. Zhou Lezhi then walked out of the residence gate and got into the sedan chair.
+The two changed their attire and made their way to the residence gate. Indeed, a two-man sedan chair stood waiting outside. Wang Zhi scrutinized it briefly and gave a slight nod, indicating that the bearers were the usual men and no suspicious figures lurked nearby. Only then did Zhou Lezhi step through the gate and climb into the sedan chair.
 
-The bearer asked in a low voice: "Please give instructions, Second Master, go where?"
+The bearer asked in a low voice, "Where to, Second Master?"
 
-Zhou Lezhi had selected an inn in the north of the city just now, but following his instructions, Wang Zhi only said: "Go to Haiyuan Temple!"
+Zhou Lezhi had already selected an inn in the north of the city, but following his instructions, Wang Zhi named a different destination: "Haiyuan Temple!"
 
-The sedan chair lifted and left, fast and steady. When Zhou Lezhi got into the sedan chair just now, he had looked at the street face; it was desolate with no one, and there was no suspicious phenomenon. Now that the sedan chair started moving, his heart settled down by more than half. He thought secretly that hiding like this wouldn't work. Being forced to the doorstep by Kun thieves caused much inconvenience. Must find a way to counterattack. It was just that at the foot of the Emperor, there were many scruples in acting. If not for the current "Kun Affairs" strategy, he really wanted to go to Zhejiang earlier. At least there he could do something with peace of mind...
+The sedan chair lifted smoothly and set off at a brisk, steady pace. When boarding, Zhou Lezhi had surveyed the street—desolate, not a soul in sight, nothing suspicious. Now that they were moving, his heart settled considerably. He reflected that hiding like this was no solution. Being driven to his own doorstep by the Kun caused too much inconvenience. He needed to find a way to counterattack. But here at the foot of the Emperor, one had to act with many scruples. Were it not for the current "Kun Affairs" strategy, he would have preferred to travel to Zhejiang earlier. At least there, he could work with peace of mind...
 
-Unconsciously, Zhou Lezhi fell asleep. He slept very heavily, so heavily that he didn't even have a dream. At the moment of waking up, he didn't even know who he was or where he was.
+Without realizing it, Zhou Lezhi drifted into sleep. He slept deeply—so deeply that he didn't even dream. In the moment of waking, he couldn't remember who he was or where he was.
 
-Waking up with a sudden start, how did he fall asleep?! Looking again, he was not in the sedan chair, but lying on a bed. His limbs were firmly bound, his whole body stark naked, even his hair bun was taken apart.
+He jolted awake in alarm. How had he fallen asleep?! Looking around, he saw that he was no longer in the sedan chair but lying on a bed. His limbs were bound firmly, his body stripped completely bare, even his hair bun undone.
 
-Fell into a trap! In an instant, a cold current like ice water in the peak of winter poured straight down from the top of his skull, expanding rapidly along the spinal cord to limbs and bones, cold to the heart and marrow.
+He had fallen into a trap! In an instant, a cold current like ice water at the peak of winter poured from the crown of his skull, spreading rapidly along his spine to every limb and bone—cold to the very marrow.
 
-Amidst the shivering, he heard the room door open. There were footsteps of several people, then approaching the bed curtain. The curtain was lifted slightly at a corner.
+Through his shivering, he heard the room door open. Several sets of footsteps entered, approaching the bed. The curtain was lifted slightly at one corner.
 
-"Is it him?" Someone asked.
+"Is it him?" someone asked.
 
-"It is him." The voice was quite familiar, exactly the "Cold God of Wealth" (Leng Ningyun) he had invited.
+"It's him." The voice was quite familiar—the "Cold God of Wealth," Leng Ningyun, whom he himself had invited.
 
 "Done."
 
-The footsteps faded away, and the room door was closed again.
+The footsteps receded, and the room door closed again.
 
-Capturing Zhou Lezhi was a huge combat achievement for Xu Ke. After confirming no error, he sent a telegram to Lingao immediately.
+Capturing Zhou Lezhi was a tremendous achievement for Xu Ke. After confirming there was no error, he sent a telegram to Lingao immediately.
 
-That night, a return telegram came from Lingao: "Escort him back to the Farm safely immediately." Then another sentence was added: "All personnel in the Zhou residence also arrest and send."
+That night, a reply arrived from Lingao: "Escort him safely back to the Farm at once." A second line followed: "Arrest all personnel in the Zhou residence and send them as well."
 
-"Also arrest the people in the Zhou residence?" Min Zhanlian was startled, "Inside are all women and children..."
+"Arrest the people in the Zhou residence too?" Min Zhanlian was taken aback. "But they're all women and children..."
 
-"Who told them to be that Mr. Zhou's people?" Xu Ke said faintly, "For this matter, the Senate won't stop until they investigate it bottom up. Next, I'm afraid it will involve even more people."
+"Who told them to be that Mr. Zhou's people?" Xu Ke replied flatly. "The Senate won't rest until they've investigated this matter to its very foundations. I'm afraid even more people will be implicated before this is over."
 
-"Then Minister of War Master Wang..."
+"Then the Minister of War, Master Wang..."
 
-"Temporarily we can't move him yet," Xu Ke said, "Otherwise, he can't run away either. But this time we can be considered to have unloaded his left arm and right arm. Next, if he wants to stir up trouble, it won't be that easy." He looked at Min Zhanlian and suddenly laughed, "Aren't you a person of the *Jianghu*? Why also become wishy-washy?"
+"We can't touch him yet," Xu Ke said. "Otherwise, he wouldn't escape either. But this time, we've severed his left and right arms. If he wants to stir up trouble going forward, it won't be so easy." He looked at Min Zhanlian and suddenly laughed. "Aren't you a man of the *Jianghu*? Why have you become so wishy-washy?"
 
-"Subordinate understands! This is an imperial criminal of the Senate."
+"This subordinate understands! He is an imperial criminal of the Senate."
 
-"Correct." Xu Ke nodded, "You just care about arresting and killing people. Know nothing about superfluous things."
+"Correct." Xu Ke nodded. "You just concern yourself with arrests and eliminations. Anything beyond that—you know nothing about."
 
-"Yes!" A slight sweat appeared on Min Zhanlian's forehead. He knew Senator Xu was always straightforward and not a person who liked to pretend to be profound. These words he said were absolutely not alarmist talk.
+"Yes!" A thin sheen of sweat appeared on Min Zhanlian's forehead. He knew Senator Xu was always straightforward, not a man given to pretense or false profundity. These words were no mere alarmist talk.
 
-"Your movement must be fast. Once this Mr. Le disappears, Master Wang will probably realize something is wrong. The Zhou residence might be strictly protected. If you go late, the commotion might be huge..."
+"Move quickly. Once this Mr. Le disappears, Master Wang will likely realize something is wrong. The Zhou residence might be placed under strict protection. If you arrive too late, things could get messy..."
 
-After Min Zhanlian left, Xu Ke circled in the room, unable to suppress his excitement. This mysterious Mr. Le finally fell into their hands now! It seemed he was fully mentally prepared for arrest, carrying multiple unknown drugs on his body, among which there might be poison.
+After Min Zhanlian left, Xu Ke paced the room, unable to contain his excitement. This mysterious Mr. Le had finally fallen into their hands! It seemed he had been fully prepared for capture—he had been carrying multiple unknown drugs on his person, among which there might well have been poison.
 
-A person prepared to commit suicide at any time must have massive secrets.
+A man prepared to commit suicide at any moment must harbor enormous secrets.
 
-How to make him open his mouth and speak these secrets was not Xu Ke's business. That was a problem for the Political Security Bureau or even higher levels to consider. The only thing he knew was that there would probably be many people in the Senate celebrating by dusting off their caps (congratulating each other). Of course, more would be like him, full of curiosity about the Shi Weng group and Mr. Le.
+How to make him open his mouth and reveal those secrets was not Xu Ke's concern. That was a problem for the Political Security Bureau, or perhaps even higher authorities. The only thing he knew was that many in the Senate would probably be celebrating by dusting off their caps in congratulation. And of course, even more would share his own burning curiosity about the Shi Weng group and Mr. Le.
 
-If he was also a transmigrator, how would the Senate treat him? Xu Ke felt it very interesting. Although a consensus had been reached on the overall program that any transmigrator who had hostile behavior with the Senate belonged to "enemies" and the principle was to eliminate them.
+If this man was also a transmigrator, how would the Senate treat him? Xu Ke found the question fascinating. A consensus had been reached regarding the overarching principle: any transmigrator who had acted with hostility toward the Senate was classified as an "enemy," to be eliminated.
 
-But principle was principle; specific disposal naturally depended on the public opinion of the Senate. After all, any single person was precious wealth.
+But principle was principle; specific handling naturally depended on the collective opinion of the Senate. After all, any single person was precious wealth.
 
-Whether "eliminate" or "atone for crimes by meritorious service," Xu Ke was indifferent. He had no special emotion towards this mysterious figure.
+Whether the outcome was "elimination" or "atonement through meritorious service," Xu Ke remained indifferent. He held no special feelings toward this mysterious figure.
 
-Whether he was a transmigrator or not, right now it was equivalent to destroying more than half of the Shi Weng group's strength. The Shi Weng group's influence on the future could be said to be minimal. He came to the Capital initially just to rescue Leng Ningyun; unexpected to harvest such a big result. His own status and reputation on the intelligence front would inevitably increase day by day. Substantiating the empty shell of the Military Intelligence Bureau would be just around the corner.
+Whether he was a transmigrator or not, this capture was equivalent to destroying more than half of the Shi Weng group's strength. The group's influence on the future could now be considered minimal. Xu Ke had come to the Capital initially just to rescue Leng Ningyun; he never expected to reap such a bountiful harvest. His own status and reputation in intelligence work would inevitably rise with each passing day. Building the Military Intelligence Bureau into something more than an empty shell would soon be within reach.
 
-The more he thought, the more excited he became, having a strong impulse to drink heavily. At this time, someone came to report: Liao Sanliang (Third Sister) and Li Rufeng came.
+The more he thought, the more excited he became. A strong urge to drink heavily seized him. Just then, someone came to report: Liao Sanliang and Li Rufeng had arrived.
 
-"Invite them in."
+"Show them in."
 
-Originally he didn't need to see them, but after the kidnapping incident happened, the adjustment of intelligence work originally started accelerated suddenly. The organizational structure of the Capital in the future would have drastic adjustments. As an important force of the Senate in the Capital, He Lian Sheng naturally had to be re-arranged.
+Ordinarily, he wouldn't have needed to meet with them, but after the kidnapping incident, the reorganization of intelligence work that had already begun suddenly accelerated. The organizational structure in the Capital would undergo drastic adjustments. As an important asset of the Senate in the Capital, He Lian Sheng naturally had to be re-evaluated.
 
-Although the two had been trained in Lingao, working outside for many years, old habits were not changed, still the man bowing with hands clasped and the woman bowing with hands on the side. Xu Ke didn't mind either, laughing: "Rare to see you, sit, sit."
+Though both had been trained in Lingao, years of working in the field meant old habits died hard. Li Rufeng bowed with hands clasped in the traditional male fashion, while Liao Sanliang bowed with hands at her sides in the women's manner. Xu Ke didn't mind, laughing as he said, "A rare sight, you two. Sit, sit."
 
-"Senior present, dare not sit." Li Rufeng said respectfully.
+"With a senior present, we dare not sit." Li Rufeng said respectfully.
 
-"Fart! What kind of senior am I," Xu Ke laughed, "No need to be polite, sit down to chat business!"
+"Nonsense! What kind of senior am I?" Xu Ke laughed. "No need for formalities. Sit down so we can discuss business!"
 
-Only then did the two sit down. As soon as they sat down, Liao Sanliang reported in detail about her sending people to intercept Pan Cheng'an.
+Only then did the two take their seats. The moment they sat, Liao Sanliang gave a detailed report on sending her people to intercept Pan Cheng'an.
 
-"...This matter was more or less my own decision. Asking my heart, actually there was also private intent of not bearing to see a sister fall into the sea of bitterness."
+"...This was more or less my own decision. Honestly, there was also some private intent—I couldn't bear to see a sister fall into a sea of bitterness."
 
-Xu Ke nodded. This matter was actually not hidden from him, and he also acquiesced. If Liao Sanliang wanted to defend her motive, there were plenty of suitable reasons. That she could speak truthfully showed her magnanimous mind.
+Xu Ke nodded. This matter had not actually been hidden from him, and he had tacitly approved. If Liao Sanliang had wanted to justify her motives, she could have offered plenty of suitable reasons. That she spoke truthfully showed the openness of her character.
 
-"...This is not a big matter, nor does it concern the special case we are handling right now." Xu Ke said, "Has the person been found?"
+"...This is not a major matter, nor does it concern the special case we're currently handling." Xu Ke said. "Has the person been found?"
 
-"Yesterday Zhao Liangjian already sent news. They stared at Pan Cheng'an in Tongzhou and also found out You Rong's whereabouts. In these few days, people will be brought back. Originally I wanted to ask for the Chief's instructions, how to handle these two people?"
+"Zhao Liangjian sent word yesterday. They've been watching Pan Cheng'an in Tongzhou and have also located You Rong's whereabouts. Within the next few days, both will be brought back. I wanted to ask for the Chief's instructions: how should these two be handled?"
 
-"You Rong is a person on the special case list. Send her here immediately after finding her. As for Pan Cheng'an or any other people involved, dispose of them as you see fit—dispose cleanly."
+"You Rong is on the special case list. Send her here immediately once you have her. As for Pan Cheng'an and anyone else involved—dispose of them as you see fit. Dispose of them cleanly."
 
-How to be considered clean, both knew clearly in their hearts.
+What "clean" meant, both understood perfectly.
 
-"In Leng Senator's rescue this time, He Lian Sheng exerted great effort and established great merit." Xu Ke praised, "I have already telegraphed Guangzhou to request merit for you..." Saying so, he waved his hand to stop the two who wanted to speak, "It's all deserved, no need to be polite. What I'm going to say next is the important matter—concerning He Lian Sheng."
+"In the rescue of Senator Leng, He Lian Sheng exerted tremendous effort and established great merit." Xu Ke offered his praise. "I've already telegraphed Guangzhou to request commendations for you..." He waved his hand to stop them before they could speak. "It's all well-deserved—no need for modesty. What I'm about to say next is the important matter: it concerns He Lian Sheng."
 
-The expressions of Liao and Li immediately became serious. The life of bodyguard agencies in recent years was very difficult. The bodyguard routes from the Capital to other places were mostly in a precarious state. Among traditional bodyguard routes, the western route could only reach Shanxi; further west there was completely no certainty. Instead, the route going north to border towns could still be maintained because of the numerous garrison troops along the road plus the "Old Xi'er" (Shanxi merchants)'s Mongolian business being booming.
+The expressions of both Liao and Li immediately grew serious. In recent years, the bodyguard agency business had become increasingly difficult. Most escort routes from the Capital to other regions were in a precarious state. Among traditional routes, the western route could only reach Shanxi; beyond that, nothing was certain. The route north to the border towns, however, could still be maintained—the numerous garrison troops along the road and the booming Mongolian trade of the "Old Xi'er" Shanxi merchants kept it viable.
 
-As for the southbound route, only the "River Bodyguard" along the Grand Canal could linger on with one's last breath.
+As for the southbound route, only the "River Bodyguard" route along the Grand Canal managed to linger on.
 
-So the business of various bodyguard agencies plummeted, and those closing down were not few. Strictly speaking, He Lian Sheng didn't have much business to do either, but after all, they had the Senate's secret support. Out of the sentiment of the same trade, they also absorbed and placed quite a few personnel from other bodyguard agencies.
+Thus the business of various bodyguard agencies had plummeted, and closures were not uncommon. Strictly speaking, He Lian Sheng had little actual business either, but with the Senate's secret support, they had survived. Out of solidarity with their trade, they had also absorbed and placed quite a few personnel from other struggling agencies.
 
-"He Lian Sheng's scale should be appropriately reduced." Xu Ke stated the conclusion as soon as he started, "Especially this time, He Lian Sheng exerted the greatest effort but also exposed itself somewhat. In the future, I'm afraid it will become an object of attention for all parties. you should shrink the target as much as possible."
+"He Lian Sheng's scale should be appropriately reduced." Xu Ke stated his conclusion at the outset. "Especially after this operation—He Lian Sheng contributed the most, but also exposed itself somewhat. Going forward, you'll likely become an object of attention for various parties. You should shrink your profile as much as possible."
 
 (End of Chapter)

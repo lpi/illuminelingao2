@@ -1,95 +1,93 @@
 # Chapter 2792: The Meeting
 
-"Zishan, you are a rare guest here." Ma Qianzhu smiled and moved his gaze away from the document in front of him.
+"Zishan, you're a rare guest here." Ma Qianzhu smiled, looking up from the document before him.
 
-As soon as the words fell, a charming female secretary brought tea.
+No sooner had he spoken than an attractive female secretary brought in tea.
 
-Originally, Secretary of State Ma never used female staff around him, all male naturalized citizens.
+Originally, Secretary of State Ma had never employed female staff in his immediate circle—only naturalized male citizens. But starting two years ago, the number of women around him had increased, which inevitably sparked discussion among many Senators. Some said he was "blending in with the mundane world"—a diplomatic way of saying he was compromising his principles—while others claimed he was trying to avoid accusations of gender discrimination. Either way, those "Big Secretaries" in dark cotton tunics with collars buttoned up to their chins had vanished.
 
-Starting from two years ago, female staff around him increased, inevitably causing discussion among many Senators. Some said he was "blending in with the mundane world (compromising principles)," others said he was avoiding suspicion of "gender discrimination." In short, those few "Big Secretaries" wearing dark cotton tunic suits with collars buttoned neatly were gone.
+Xiao Zishan bowed with a smile plastered across his face and offered his thanks. He picked up the tea cup and made a show of inhaling its fragrance. "Excellent tea." Once the secretary had withdrawn, he continued:
 
-Xiao Zishan bowed with a face full of smiles and said thanks. Picked up the tea cup to symbolically sniff the fragrance, "Good tea." Seeing the female secretary had retreated out, he continued to say:
+"Secretary of State Ma, about the welcome ceremony plan that was forwarded a few days ago..."
 
-"Secretary of State Ma, the welcome ceremony plan forwarded a few days ago..."
+"I've already approved it. Nothing special needed—just spend a bit more money and make the ceremony grander. The army fought for two years; we must give our soldiers the honor they deserve."
 
-"I have already approved this matter, nothing special. Spend a few more money, make the ceremony a bit grander. The army fought for two years; honor for soldiers must be given sufficiently in this aspect."
+"In the welcome ceremony plan, there's still one presiding leader position undetermined. Our preparatory group discussed it and decided we should invite one of the Big Leaders to demonstrate the event's importance." By "Big Leaders," Xiao Zishan meant the Chairman of the Senate, the Speaker, the Secretary of State, and the twelve main Senators who oversaw specific governmental affairs. Though Xiao Zishan technically belonged to their ranks, he never placed himself in that category on formal occasions.
 
-"In the welcome ceremony plan, there is still one presiding activity leader not determined. Our preparatory group discussed and decided to invite a Big Leader to come to show importance." The Big Leader Xiao Zishan referred to meant the Chairman of the Senate, Speaker, Secretary of State, and the twelve main Senators responsible for specific affairs under them. Although Xiao Zishan also counted as one of them, in formal occasions, he never placed himself in this sequence.
+Ma Qianzhu understood perfectly well what he was implying—he wanted Ma to bask in the limelight. Ma had long grown accustomed to such occasions; they held no special appeal. If not for the need to maintain a certain "exposure rate," he would rather not squander precious time on ceremonial functions.
 
-Ma Qianzhu naturally understood the meaning in his words, nothing more than wanting him to take this limelight. He was long accustomed to taking limelight; it had no special meaning. If not for maintaining a certain "exposure rate," he really wasn't willing to consume precious time in ceremonial occasions.
+"Invite Chairman Wang to preside over this. He sounded the horn for the expedition, so it's only fitting that he welcome the triumphant return. The first act of our mainland strategy will thus draw to a close."
 
-"Invite Chairman Wang to preside over this matter. He blew the horn for the expedition; now returning in triumph, it is most appropriate for him to welcome. The first act of our mainland strategy also draws a period here."
+Ma Qianzhu spoke with considerable emotion.
 
-Ma Qianzhu said quite emotionally.
+Xiao Zishan deliberately assumed an expression of difficulty. "Chairman Wang has no free time at the moment. He agreed to Senator Lin—that is, Lin Hanlong's request—and went with him to Gaoshan Ridge to conduct optical experiments. He's not expected back for another week."
 
-Xiao Zishan deliberately replied appearing very difficult, "Chairman Wang has no free time recently. He agreed to Senator Lin, that is Lin Hanlong's request, went to Gaoshan Ridge together to do optical experiments. Planned to take another week to return."
+"Lin Hanlong? Optical experiments?" Ma Qianzhu couldn't immediately connect the two, and countless questions arose in his mind.
 
-"Lin Hanlong? Optical experiments?" Ma Qianzhu didn't connect these two people for a moment, countless doubts popping up in his heart.
+"Chairman Wang specialized in optics. Though he didn't end up working in his field, he received professional training nonetheless. Senator Lin posted a request for help on the BBS regarding the two-meter rangefinder, and Chairman Wang happened to see it. I don't think a welcome ceremony warrants interrupting scientific research. It would suffice to have a *main* leader attend." Xiao Zishan hastened to explain, biting down particularly hard on the word "main." This carefully crafted rhetoric needed to sound reasonable while simultaneously highlighting a certain someone's importance—it had taken him half a day to formulate.
 
-"Chairman Wang is an optical major. Although he didn't work in his own profession later, after all, he is professionally trained. Regarding the two-meter rangefinder, Senator Lin's help-seeking post on BBS was seen by Chairman Wang. I feel for a welcome ceremony, there is no need to let Chairman Wang interrupt scientific research. Just let a main leader come is fine." Xiao Zishan hurriedly explained, especially biting the word "main" very heavily. This rhetoric had to have rationality, and also highlight someone's importance; it was the result of his thinking for half a day.
+The effort proved effective. Ma Qianzhu immediately acknowledged Chairman Wang's identity as a scientific and technological worker and spoke in his characteristically amiable tone. "Then I'll make the trip on Chairman Wang's behalf."
 
-Sure enough, this result was very effective. Ma Qianzhu immediately acknowledged Chairman Wang's identity as a scientific and technological worker, speaking in his consistent amiable accent, "Then I'll make a trip on behalf of Chairman Wang."
+Xiao Zishan couldn't help but feel a surge of pride. "I'll handle things accordingly, then. I'll send you the detailed itinerary later."
 
-Xiao Zishan inevitably felt proud in his heart, "Then I'll handle it accordingly. Will send the detailed itinerary later."
+With the major matter decided, Xiao Zishan took a few more sips of tea, chatted about some irrelevancies, and prepared to stand up, pat his backside, and leave.
 
-Major matter decided, Xiao Zishan drank a few more mouthfuls of tea, chatted about some irrelevancies, ready to stand up, pat butt and leave.
+That's when Ma Qianzhu tossed out another topic. "Have you read the latest issue of *Morning Star*?"
 
-Ma Qianzhu threw out a topic: "Have you read the latest issue of *Morning Star*?"
+Xiao Zishan had, of course, read it. Every issue of *Morning Star* was sent to the General Office as a proof copy before printing. Apart from Editor-in-Chief Ding Ding, he was always the first to see it.
 
-Xiao Zishan naturally had read it. Every issue of *Morning Star* before printing would send a proof copy to the General Office. Besides Editor-in-Chief Ding Ding, he was the person who saw it earliest.
+"Yes, I have. You mean Great Ming's recent intention to negotiate peace?"
 
-"Read it, read it. You mean the matter of Great Ming intending to negotiate peace recently?"
+"Correct. What do you think?"
 
-"Correct, what do you think?"
+"I largely agree with Comrade Jiang Shan's view. Great Ming wants peace, but we'll still need to fight another battle first." Xiao Zishan paused. "If that succeeds, it will be more advantageous for us."
 
-"I relatively agree with Comrade Jiang Shan's view. Great Ming wants peace, just still have to fight a battle." Xiao Zishan said, "If it can succeed, it is more beneficial to us."
+"Securing a period of peace would be ideal." Ma Qianzhu frowned deeply, but said nothing more.
 
-"Striving for a phase of peace is best." Ma Qianzhu frowned tightly, but he didn't say anything more.
+The next day, major matters were discussed and decided at the regular State Council meeting of the Central Government Administration Council. As the meeting drew to a close, Ma Qianzhu raised the matter of peace talks once again.
 
-The next day, major matters were discussed and decided at the regular State Council meeting of the Central Government Administration Council. When the meeting proceeded to the end, Ma Qianzhu raised the matter of "peace talks" again.
+"...Everyone is presumably aware that the Ming State may very likely seek to negotiate peace with us soon." Seeing a stir among the Senators, he raised his hand to forestall discussion. "Though it appears both sides are inclined toward talks, the war is not yet over. Whether on the Guangdong-Guangxi front or in the rear, sporadic battle reports arrive daily. Every day brings news of cadres and soldiers killed in action.
 
-"...Everyone presumably also knows, recently the Ming State is very likely to negotiate peace with us." Seeing a burst of commotion among Senators, he raised his hand to stop the discussion, "Although looking at it now, both sides have the intention of peace talks. However, the war is not over yet. Whether in Guangdong/Guangxi frontline or rear, sporadic battle reports are sent every day. Matters of cadres and soldiers dying in action happen every day.
+"From a strategic standpoint, we achieved a complete victory. However, as the sages said, 'Victory always has a price'—and the price we paid was enormous. Two years of war have left negative impacts that are now becoming apparent. Setting aside the fiscal deficit, numerous problems have begun to surface at the level of social governance alone. The General Staff Political Department and the Political Security Bureau's Social Conditions Division have prepared detailed reports. Among both troops and civilians, there are signs of war-weariness and discontent. Discipline issues have also emerged among frontline units. Though these remain isolated cases for now, such sentiments will likely spread if left unchecked over time. Everyone must pay attention and work to address this."
 
-"Although from the overall strategy, we achieved a complete victory. However, as sages said 'victory always has a price,' the price paid is also huge. Two years of war, the negative impacts brought are appearing. Let alone the deficit in finance, just on the level of social governance, many problems start to be exposed. The General Staff Political Department and the Political Security Bureau Social Conditions Division have detailed reports. Whether troops or populace, there are war-weariness and discontent emotions. Problems also appeared in the discipline of frontline troops. Although belonging to individual cases, over a long period, the spread of this emotion is probably inevitable. Everyone must pay attention to it, put effort to digest."
+"Frontline units have recently begun returning to their stations successively for rest, reorganization, and replenishment. Naturally, they will receive all the honors and rewards they deserve. But the stark contrast between frontline and rear, the trauma of watching comrades fall, the pain left by the battlefield... these things may well stir up strong emotions among our officers and soldiers. I ask that everyone remain vigilant."
 
-"Recently frontline troops began to return to stations successively for rest, reorganization, and replenishment. Naturally, after troops return, due honors and rewards will not be missing at all. But the huge difference between frontline and rear, the stimulation brought by comrades' sacrifice, pain left on the battlefield... probably will cause some officers and soldiers to generate emotions. Hope everyone pays attention."
+"We've discussed this with the General Staff," Ran Yao said. "Comrade Dongmen is preparing to propose to the General Office that the Lingao Garrison Battalion also wear Military Police armbands. If that's insufficient, we'll mobilize part of Hainan's local National Army troops to ensure main stations and their surroundings are adequately staffed with Military Police. Our police system has also drawn up plans."
 
-"We discussed this problem with the General Staff. Comrade Dongmen prepares to propose to the General Office, let the Lingao Garrison Battalion also wear Military Police armbands. If not enough, mobilize part of Hainan local National Army troops. ensure main stations and surroundings are equipped with sufficient Military Police. Our police system also made plans." Ran Yao said.
+Ma Qianzhu nodded. "Discipline inspection is one aspect. The key lies in providing proper psychological counseling and implementing preferential treatment policies. Soldiers must feel respected and needed—that is what matters most."
 
-Ma Qianzhu nodded: "Discipline inspection is one aspect. The key point is still to do well in psychological counseling and implementing preferential treatment. Let soldiers feel respected, needed; this is the key."
-
-"Our civil affairs system has specifically issued documents and made plans. But preferential treatment and compensation involve quite a few aspects; best to have a coordinating agency to coordinate together."
+"Our civil affairs system has issued specific documents and formulated plans. However, preferential treatment and compensation involve quite a few different areas. It would be best to have a coordinating agency to handle everything together."
 
 ...
 
-Serious matters discussed, when everyone started to bullshit. Xiao Zishan proposed a group of retreat tasks like "Welcome Ceremony Host," waiting for everyone to decide quickly so they could go to eat lunch. The canteen had already delivered working meals to each Senator's office. After all, if there were no major matters that had to be said while eating, everyone still tended to leave some private space.
+Once serious matters had been discussed and everyone began to chat idly, Xiao Zishan proposed a batch of ceremonial tasks, including the "Welcome Ceremony Host" position, hoping to get quick decisions so everyone could head to lunch. The canteen had already delivered working meals to each Senator's office. After all, unless there were urgent matters that simply had to be discussed over food, everyone preferred to preserve some private space.
 
-Ma Qianzhu changed his seriousness just now, taking the conversation cheerfully: "All matters that must go to show face. I see let's divide them together, don't pass one by one."
+Ma Qianzhu shed his earlier seriousness and took up the conversation cheerfully. "These are all matters requiring someone to show face. I say we divide them up together rather than going through them one by one."
 
-Saying so, he took a stack of meeting materials over and flipped through, reading all meeting names once, showing everyone the thickness of documents very relaxedly, "Quite a lot. We have many taxes and also many meetings now."
+With that, he picked up a stack of meeting materials and flipped through them, reading out the names of all the meetings. He held up the documents to show everyone their thickness, his manner relaxed. "Quite a lot. We have many taxes these days, and just as many meetings."
 
-"This, our taxes are not many, but few. Great Ming's are too few..." Cheng Dong wanted to speak again.
+"Actually, our taxes aren't many—they're few. Great Ming's are too few..." Cheng Dong started to say more.
 
-"We will discuss this problem later." Ma Qianzhu quickly interrupted his speech.
+"We'll discuss that problem later." Ma Qianzhu quickly cut him off.
 
-"...Dutch Trade Delegation, this kind of meeting doesn't need to be brought to the meeting to discuss, right? Si Kaide, you guys from the commercial sector receive this; for the Dutch this counts as decent enough. This isn't a state visit. If some Prince William came, inviting Chairman Wang to receive wouldn't be too late."
+"...The Dutch Trade Delegation—does this sort of meeting really need to be brought before the council? Si Kaide, you and the commercial sector can receive them. For the Dutch, that's respectable enough. This isn't a state visit. If some Prince William shows up, then it won't be too late to invite Chairman Wang."
 
-"Secretary of State Ma, I want to call your attention that those coming are not representatives of the Dutch East India Company—" Si Kaide raised an objection, "The visiting delegation is important bankers and some big merchants of the Seven Provinces. Although among them there is no lack of VOC shareholders, they are not the same thing after all. Still invite Comrade He Ying to attend is better."
+"Secretary of State Ma, I must point out that these visitors are not representatives of the Dutch East India Company—" Si Kaide raised an objection. "The visiting delegation consists of important bankers and major merchants from the Seven Provinces. While some among them are undoubtedly VOC shareholders, they are not the same thing. It would be better to have Comrade He Ying attend."
 
-Giving you limelight you still don't want! Ma Qianzhu criticized secretly, but still smiled and nodded looking at He Ying.
+*I'm offering you the limelight and you still don't want it!* Ma Qianzhu criticized silently, but he smiled and nodded toward He Ying nonetheless.
 
-He Ying, this "Minister," was the most idle one among the Ministers, having to work part-time in the commercial trade department most of the time. Hearing there was a matter to show face this time, immediately volunteered: "I can go."
+He Ying, this "Minister," was the most idle among the Ministers, spending most of his time in a part-time capacity with the commercial trade department. Hearing there was an opportunity to make an appearance, he immediately volunteered. "I can go."
 
-"...The 4th Advanced Police Training Class Graduation and Rank Conferment Ceremony, can't Ran Yao preside over this himself? I understand, Navy and Army rank conferment ceremonies invited the Executive Committee to attend before; this comes to find balance. My opinion is in the future such similar promotion and elevation of various departments, conduct within the headquarters, don't rise to the Government Administration Council level."
+"...The Fourth Advanced Police Training Class Graduation and Rank Conferment Ceremony—can't Ran Yao preside over this himself? I understand that the Navy and Army previously invited the Executive Committee to attend their rank conferment ceremonies, so this is meant to balance things out. My opinion is that, going forward, similar promotion and advancement ceremonies across various departments should be conducted within their own headquarters, not elevated to the Government Administration Council level."
 
-These words caused unanimous approval among attending Senators. Except for Wen, Wang, Ma, and Senators serving in the Fubo Army, almost no Senator had presided over ceremonies like awarding honors and conferring ranks. More or less some envy, jealousy, and hate. Now all cancelled, it became fair. As for conducting a rank or commedation within the headquarters to satisfy the addiction of being a leader, it also became internal affairs needing no report to the Government Administration Council.
+These words met with unanimous approval among the attending Senators. Apart from Wen, Wang, and Ma, as well as Senators serving in the Fubo Army, almost no one had ever presided over ceremonies for awarding honors or conferring ranks. Most harbored at least a touch of envy or resentment. Now that such ceremonies would all be cancelled at this level, it seemed fair. As for holding rank or commendation ceremonies within headquarters to satisfy the itch for leadership recognition—that became an internal affair requiring no report to the Government Administration Council.
 
-"...Manya Steel Plant New Process Silicon Steel Technology Demonstration Meeting, I know a little about this. Silicon steel is currently a serious shortcoming on our tech tree. Currently mass-produced silicon steel sheets put in the old... Australia are not even as good as waste quality, choking the neck of all electrical equipment, even electronic industry, for example relays..."
+"...The Manya Steel Plant New Process Silicon Steel Technology Demonstration Meeting. I know a bit about this. Silicon steel is currently a serious bottleneck on our tech tree. The mass-produced silicon steel sheets we're making now wouldn't even qualify as scrap in the old... Australia. It's choking the development of all electrical equipment—even the electronics industry. Relays, for instance..."
 
-Ma Qianzhu seemed to have been smashed in the back of the head by silicon steel, speaking incessantly about technical details for fully five minutes, as if just reacting. "Sorry for off-topic, these were all learned when participating in the Punch Card Machine Technology Demonstration Meeting some time ago." Ma Qianzhu lowered his head to flip a few pages of documents, continued to say "This is very important. I see I better go personally..."
+Ma Qianzhu seemed to have been struck on the back of the head by silicon steel, as he launched into technical details for a full five minutes before catching himself. "Apologies for going off-topic. I learned all this while attending the Punch Card Machine Technology Demonstration Meeting some time ago." He lowered his head and flipped through several pages of documents. "This is very important. I think I should attend personally..."
 
-Xiao Zishan was anxious, hurriedly reminded in a low voice: "There is a conflict in time."
+Xiao Zishan grew anxious and quickly reminded him in a low voice, "There's a scheduling conflict."
 
-Ma Qianzhu seemed to have just reacted: "Oh oh, right. Doesn't matter. The demonstration meeting opens for three days; I'll just go on the last day." He quickly made a few strokes in the notebook, "There is also a Danzhou Industrial Park Planning Scheme Technology Demonstration Meeting, this is a bit complex. Director Zhan, you speak..."
+Ma Qianzhu seemed to only then remember. "Oh, right. No matter. The demonstration meeting runs for three days—I'll just attend on the last day." He made a few quick notes in his notebook. "There's also the Danzhou Industrial Park Planning Scheme Technology Demonstration Meeting. That one's a bit complex. Director Zhan, why don't you explain..."
 
 (End of Chapter)

@@ -1,115 +1,115 @@
 # Chapter 2687: The Capital (Part 43)
 
-Zhou Lezhi absolutely agreed with this point, because the Teacher was basically being played in the palm of Master Wang's hand up to now. Master Wang knew every move of his; even what he said to the two concubines last night and how they did the deed, as long as Master Wang wanted to know, he could know.
+Zhou Lezhi agreed wholeheartedly with this assessment, for up until now, the Teacher had essentially been dancing in the palm of Master Wang's hand. Master Wang knew his every move—even the words he whispered to his two concubines the previous night and how they spent their intimate hours. If Master Wang wished to know something, he could find out.
 
-Don't look at the Teacher being full of learning; when discussing the ability to be an official, let alone not having one percent of Master Wang, even he, Zhou Lezhi, probably was several times stronger than him.
+The Teacher might be a man of great learning, but when it came to the art of officialdom, he possessed not even a hundredth of Master Wang's skill. Even Zhou Lezhi himself was probably several times more capable in such matters.
 
-But the Teacher wasn't a "bookworm" who only knew how to read books either. When discussing human feelings and worldly wisdom, he was sometimes also very shrewd. From this view, the Teacher was just aloof and arrogant, unwilling to throw himself into the mud and filthy water.
+Yet the Teacher was no mere "bookworm" who knew only his texts. When it came to understanding human nature and worldly wisdom, he could be remarkably shrewd. Viewed in this light, the Teacher was simply aloof and proud—unwilling to wade into the mire and filth of politics.
 
-Thinking of this, his admiration for the Teacher increased by a few points. He suddenly remembered something and asked again:
+This thought deepened Zhou Lezhi's admiration by several degrees. Suddenly remembering something, he asked:
 
-"Isn't the Teacher an Australian? Haven't you thought about going back to Australia?"
+"Is the Teacher not an Australian? Have you never thought of returning to Australia?"
 
-"I, can't go back." Seeing the disciple mention this, Hearthstone Immortal looked up at the sky and sighed long.
+"I... cannot go back." At the mention of this, Hearthstone Immortal gazed up at the sky and released a long sigh.
 
-"Aren't they right in Lingao?" These words had somewhat of a probing component, which was also what Master Wang instructed him to figure out: Would this Hearthstone Immortal go to defect to the Shorn-hair Thieves in Lingao?
+"But aren't they right there in Lingao?" There was a probing quality to these words, for this was precisely what Master Wang had instructed him to determine: Would this Hearthstone Immortal defect to the Shorn-hair Thieves in Lingao?
 
-"Lingao is indeed Australian. Speaking of which, they are also my fellow townsmen. It's just the situation is unclear; I dare not go rashly." The Teacher sighed.
+"Lingao is indeed Australian territory. In a sense, they are my fellow countrymen. But the situation remains unclear, and I dare not go rashly." The Teacher sighed again.
 
-It seemed the Teacher's idea of defecting to Lingao hadn't changed, but his attitude was hesitant.
+So it seemed the Teacher's notion of defecting to Lingao had not changed, though his attitude remained hesitant.
 
-"Wait until Master Wang takes office in Guangzhou; we can also go to Guangzhou. At that time, we can just look at the situation again." Zhou Lezhi persuaded. These words were half true and half false. From his true heart, he naturally didn't wish for the Teacher to defect to the Australians and go without return; but if he dissuaded him, the Teacher would most likely become suspicious.
+"Once Master Wang assumes his post in Guangzhou, we can travel there as well. At that time, you can reassess the situation." Zhou Lezhi offered this counsel, his words half sincere and half calculated. In truth, he naturally did not wish for the Teacher to defect to the Australians and vanish forever. Yet if he openly discouraged him, the Teacher would likely grow suspicious.
 
-If he became guarded against himself, these supreme learnings couldn't be learned anymore.
+And if the Teacher became guarded against him, these supreme teachings would become inaccessible.
 
-Although the servants of the Wang family laughed at Mr. Zhou's learning as "Wild Fox Zen" [unorthodox/heretical] and at most miscellaneous studies with no use, Zhou Lezhi knew that the Teacher's learning was just learned without place to use.
+Though the Wang household servants mocked Mr. Zhou's learning as "Wild Fox Zen"—heretical knowledge, mere miscellaneous studies of no practical use—Zhou Lezhi understood that the Teacher's learning simply lacked a proper outlet for application.
 
-"Can only be so. Fortunately, arriving in Guangzhou, it's not far from Hainan Island either. Right, there is also *Zizhenzhai*—don't know if that surnamed Guo will come back."
+"That seems to be the only option. Fortunately, Guangzhou is not far from Hainan Island. Ah, and there is also *Zizhenzhai*—I wonder if that fellow surnamed Guo will return."
 
-"For a gold-melting cave like Guangzhou, how could he not come back? If his playthings are not sold to big households, could they be sold to the mud-legs [peasants] of Qiongzhou Prefecture?"
+"To a city flowing with gold like Guangzhou? How could he not return? If his wares cannot be sold to wealthy households, could he possibly sell them to the mud-footed peasants of Qiongzhou Prefecture?"
 
-Hearthstone Immortal froze, laughing: "Correct, correct, you speak rightly. This bunch of Australians made so many things; there must be a market for them."
+Hearthstone Immortal paused, then laughed. "Quite right, quite right—you speak truly. These Australians have produced so many goods; there must be a market for them."
 
-The days in Dongyang were not counted as long, but they were the days Zhou Lezhi lived most happily. Everyday he either followed the Teacher circling in the mountains, studying mountains, rivers, geography, plants, and minerals; or knocking and beating in the farm, engaging in some project. Everyday he could learn brand new knowledge, opening up new worlds one by one.
+Their days in Dongyang were not many, but they were the happiest Zhou Lezhi had ever lived. Each day he either followed the Teacher through the mountains, studying geography, rivers, plants, and minerals; or he busied himself at the farm, knocking and tinkering on various projects. Every day brought new knowledge, opening up world after world of discovery.
 
-In front of the Teacher's ocean of knowledge, he himself was truly too ignorant. Not only himself, but everyone he had seen, including Master Wang who could pass the Jinshi exam, was also so.
+Before the Teacher's vast ocean of knowledge, Zhou Lezhi recognized his own profound ignorance. And not merely his own—everyone he had ever encountered, including Master Wang who had passed the imperial Jinshi examination, was equally limited.
 
-Zhou Lezhi experienced the joy of learning for the first time. He began to learn for the sake of knowledge, not for "useful," "can make a living," or "House of Gold and Face like Jade."
+For the first time, Zhou Lezhi experienced the pure joy of learning. He began to pursue knowledge for its own sake, not because it was "useful," or because it could "earn a living," or for the promise of a "Golden House and Jade-like Beauty."
 
-The manager of the Dongyang farm had already received notification: as long as he didn't tear down the sky, let the Teacher toss about as he pleased. When the Immortal tossed all the money away, naturally he would be at peace.
+The manager of the Dongyang farm had already received his instructions: so long as the Immortal did not tear down the heavens themselves, let the Teacher tinker to his heart's content. When the Immortal had squandered all his funds, he would naturally settle down.
 
-Hearthstone Immortal also didn't let down his title of Immortal. The mosquito incense produced hit the market exactly in summer when mosquitoes and insects bred. Because the effect was good, price cheap, and without choking smoke, it soon became a hot commodity in the market and was sold out very quickly. Although the money earned wasn't much, it was enough to make everyone up and down the farm look at this "Immortal" with new eyes.
+Yet Hearthstone Immortal proved worthy of his celestial title. The mosquito incense he produced hit the market precisely when summer brought forth swarms of mosquitoes and insects. Its effectiveness, affordable price, and absence of choking smoke quickly made it a sought-after commodity that sold out rapidly. Though the profits were modest, they were enough to make everyone at the farm—from top to bottom—view this "Immortal" with newfound respect.
 
-Zhou Lezhi also studied for more than half a year in such a "work-study" environment. Shortly after celebrating the New Year in Dongyang, a letter came from Guangzhou, and the master and disciple group embarked on the journey to Guangzhou again.
+Zhou Lezhi studied for more than half a year in this "work-study" environment. Shortly after celebrating the New Year in Dongyang, a letter arrived from Guangzhou, and master and disciple set forth once more for the provincial capital.
 
-At the beginning of Wang Yehao's term in Guangzhou, what he took over was a mess: although the main profession of the Governor-General was military affairs, the Governor-General of Liangguang also concurrently held the post of Governor of Guangdong. Moreover, by coincidence, the Governor-General's office was originally in Zhaoqing, but in these few years, it happened to have moved to Guangzhou.
+When Wang Yehao assumed his position in Guangzhou, he inherited a thorough mess. Though the Governor-General's primary responsibility concerned military affairs, the Governor-General of Liangguang also concurrently held the post of Governor of Guangdong. Moreover, by a twist of fate, the Governor-General's offices—originally based in Zhaoqing—had recently relocated to Guangzhou.
 
-In this way, many administrative difficulties of Guangdong fell upon his head as a matter of course.
+Thus, many of Guangdong's administrative headaches naturally fell upon his shoulders.
 
-Not to mention the treasury was empty as if washed, he also inexplicably owed huge debts. The Prefect of Guangzhou came to cry and complain every day, saying subordinate counties were all looted by Shorn-hair Thieves, asking the Lord to memorialize the Court to reduce and exempt taxes.
+The provincial treasury was not merely empty but seemed to have been scrubbed clean, and somehow he found himself saddled with enormous debts. The Prefect of Guangzhou came weeping to his door daily, claiming that subordinate counties had all been plundered by the Shorn-hair Thieves and begging the Lord to memorialize the Court for tax reductions.
 
-As for the compensation for soldiers and generals who died in several defeats, the reorganization of troops withdrawn from Qiongzhou, the repair of burned courier stations and houses, the reconstruction of various forts at the Pearl River Estuary; various Yao settlements being unstable... these were even more like snowflakes, sprinkling onto Master Wang's head.
+As for compensating soldiers and officers who had perished in successive defeats, reorganizing troops withdrawn from Qiongzhou, repairing burned courier stations and residences, reconstructing the various forts at the Pearl River Estuary, pacifying restive Yao settlements... these concerns descended upon Master Wang's head like an endless flurry of snowflakes.
 
-After several months back and forth, Wang Yehao finally sorted things out roughly. Only then did he know there were also Ransom Fees and a "Peace Treaty" concluded privately.
+After months of painstaking effort, Wang Yehao finally imposed a rough order upon affairs. Only then did he learn of the Ransom Fees and a privately concluded "Peace Treaty."
 
-Ransom Fees were one thing; anyway, previous arrangements were proper. As long as no accidents happened, he could balance the accounts during his term without causing any trouble. But this "Peace Treaty" was troublesome.
+The Ransom Fees were manageable; previous arrangements had been proper. Barring any mishaps, he could balance the accounts during his tenure without causing trouble. But this "Peace Treaty" posed a thorny problem.
 
-He summoned Jin Wenchi to study this treaty and see what hidden dangers there were.
+He summoned Jin Wenchi to study the treaty and identify its hidden dangers.
 
-"Master, although this treaty is a scourge, it does not hinder the Master." Jin Wenchi said after reading, "This treaty was not signed in the Master's hand; the Master naturally doesn't know..."
+"Master, though this treaty is a curse, it need not burden you," Jin Wenchi said after reviewing the document. "This treaty was not signed under your authority; the Master naturally knows nothing of it..."
 
-"This I naturally understand, but the conditions inside..."
+"That much I understand, but the conditions within..."
 
-"Master just pretend not to know. Put plainly, these conditions are all Guangzhou Prefecture's matters; Master just open one eye and close one eye—as long as not provoking the Shorn-hair Thieves, presumably they won't come to cause trouble either." Jin Wenchi said, "As for the various Great Gods in Guangzhou City, whose butt is clean? With Vicery Wang as a warning example, who is still willing to go provoke Shorn-hair Thieves?"
+"Simply pretend ignorance, Master. Plainly speaking, these conditions all pertain to Guangzhou Prefecture's affairs. The Master need only turn a blind eye—so long as you do not provoke the Shorn-hair Thieves, they presumably will not come seeking trouble either." Jin Wenchi continued, "As for the various great lords within Guangzhou City, whose hands are clean? With Viceroy Wang serving as a cautionary example, who would still wish to antagonize the Shorn-hair Thieves?"
 
-Wang Yehao agreed deeply. Before coming to Guangzhou, he had already grasped a lot of information. After coming to Guangzhou, for the rehabilitation matters, he met many involved parties again.
+Wang Yehao agreed profoundly. Before arriving in Guangzhou, he had already gathered substantial intelligence. After his arrival, the rehabilitation efforts brought him into contact with many of the parties involved.
 
-Shorn-hair Thieves were very different from ordinary sea bandits; absolutely not kind types. However, he also roughly knew Shorn-hair Thieves valued credit most. As long as he didn't seek death himself and acted according to the treaty, there was a high probability of not provoking them.
+The Shorn-hair Thieves were vastly different from ordinary sea bandits—certainly not benevolent types. Yet he had also come to understand that they valued their word above all else. So long as he did not court disaster and acted in accordance with the treaty, he would likely avoid provoking them.
 
-But Shorn-hair Thieves had become a major hidden danger to the Imperial Court; on this point, he understood better than anyone.
+But the Shorn-hair Thieves had become a major hidden threat to the Imperial Court—of this, he understood better than most.
 
-"Bring Hearthstone Immortal here! Be quick!"
+"Summon Hearthstone Immortal! Quickly!"
 
-As an "Australian," Hearthstone Immortal presumably knew much about the inside information of the Shorn-hair Thieves. Considering the Shorn-hair Thieves must have placed countless eyes and ears inside Guangzhou City, and the officials and clerks in various yamens who took their benefits were also countless, such a person whose speech and behavior were outstanding couldn't be arranged in Guangzhou City. After thinking again and again, he arranged Hearthstone Immortal in the Governor-General's Office in Zhaoqing—the house was big enough for him to toss about however he wanted.
+As an "Australian," Hearthstone Immortal presumably possessed considerable inside knowledge of the Shorn-hair Thieves. Given that they must have planted countless eyes and ears throughout Guangzhou City, and that officials and clerks across the various yamens who enjoyed their benefits were likewise innumerable, such a conspicuous figure could not be stationed within the city itself. After much deliberation, Wang Yehao arranged for Hearthstone Immortal to reside at the Governor-General's Office in Zhaoqing—the compound was spacious enough for him to tinker however he pleased.
 
-Since the success of the mosquito incense business, Wang Yehao's view of Hearthstone Immortal had gone up another level. Everyone liked making money. If he could help scheme for him in Zhaoqing while tossing out a second mosquito incense, wouldn't it be wonderful? He had already instructed the manager in Dongyang to produce more, rushing to transport to Guangzhou before spring entered next year—the weather here was hotter, and mosquitoes and insects appeared very early.
+Since the mosquito incense venture proved successful, Wang Yehao's estimation of Hearthstone Immortal had risen another level. Everyone appreciated earning money. If the Immortal could serve as his advisor in Zhaoqing while producing a second profitable invention like the mosquito incense, would that not be splendid? He had already instructed the Dongyang farm manager to increase production and rush shipments to Guangzhou before the following spring—the climate here was hotter, and mosquitoes appeared very early.
 
-Zhaoqing used to be the seat of the Governor-General's Office. Now there were still some subordinate officials of the Governor-General's Yamen and many troops stationed there; defense and control were very convenient. Zhaoqing went deep into the interior, detached from Guangzhou's influence, yet had the West River water route connecting; travel between the two places was convenient. Placing this special staff team here, Wang Yehao was very reassured.
+Zhaoqing had once been the seat of the Governor-General's Office. Subordinate officials and numerous troops remained stationed there, making defense and supervision quite convenient. The city lay deep in the interior, removed from Guangzhou's sphere of influence, yet the West River waterway connected them readily. Stationing this special staff team there gave Wang Yehao great peace of mind.
 
-Except for Jin Wenchi and a few confidant advisors brought from the capital, the advisors around Wang Yehao didn't know there was such a colleague existing in Zhaoqing.
+Apart from Jin Wenchi and a few trusted advisors brought from the capital, none of Wang Yehao's counselors knew that such a colleague existed in Zhaoqing.
 
-"Just this gun?" Mr. Zhou looked at the "Shorn-hair Thief Divine Artifact" placed on the desk, a look of disappointment appearing on his face.
+"Just this gun?" Mr. Zhou examined the "Shorn-hair Thief Divine Artifact" placed on the desk, disappointment plainly visible on his face.
 
-"What does the Teacher think of this object?" Wang Yehao heard Zhou Lezhi's tone seeming very disdainful and was secretly surprised.
+"What does the Teacher make of this object?" Wang Yehao detected the dismissive tone in Zhou Lezhi's voice and felt a secret surprise.
 
-"Just like this I guess. Looks like it can't even fire continuously; have to reload after shooting one shot." Although somewhat disappointed, Mr. Zhou was also very surprised to see this thing.
+"About what I expected. It appears incapable of continuous fire—you must reload after each shot." Though somewhat disappointed, Mr. Zhou remained intrigued by the weapon before him.
 
-"According to the Teacher's meaning, there are firearms above this?" Wang Yehao's eyes shone.
+"By the Teacher's assessment, there exist firearms superior to this?" Wang Yehao's eyes gleamed.
 
-"That is natural. In the Qiankun Mirror, awesome guys are many; these can't even count as entry-level, right." Mr. Zhou played with it carefully for a while and asked, "Right, where was this gun got from?"
+"Naturally. In the Qiankun Mirror, formidable weapons abound. This would hardly qualify as entry-level." Mr. Zhou handled the gun carefully for a while, then asked, "Tell me, where was this weapon obtained?"
 
-Liu Sha glanced sideways, seeing Wang Yehao nodding slightly, then retold the situation again: "Speaking of which, it is also a coincidence. The lowly one originally had a familiar brother in the capital called Huang Laoliu. Because the Court abolished the Guard and Depots [secret police], he lost his rice bowl, so he drifted to Guangzhou and got on a boat to do some water-touching business. This bird gun was obtained from the boat owner's fence [receiver of stolen goods]."
+Liu Sha glanced aside, and upon seeing Wang Yehao's slight nod, recounted the circumstances: "It is quite a coincidence, in truth. Your humble servant had a familiar brother in the capital named Huang Laoliu. When the Court abolished the Guards and Depots, he lost his livelihood and drifted to Guangzhou, where he joined a boat crew for some water-touching work. This bird gun was obtained through the boat owner's fence."
 
-Liu Sha's mouthful of black talk made Mr. Zhou frown repeatedly: "Speak human language!"
+Liu Sha's torrent of underworld slang made Mr. Zhou frown repeatedly. "Speak plainly!"
 
-"It means there was a group of Good Fellows [bandits/heroes] who set an ambush and robbed a Shorn-hair Thief boat; this bird gun was snatched from the Shorn-hair Thieves' hands."
+"A group of Good Fellows set an ambush and robbed a Shorn-hair Thief vessel. This bird gun was seized from their hands."
 
-"Real or fake? What Good Fellows are so fierce?" Mr. Zhou was extremely astonished. "Speaking of which, the Court sent tens of thousands of troops and horses before; how come they are not as forceful as mountain bandits?"
+"Is that true? What manner of Good Fellows are fierce enough for such a feat?" Mr. Zhou was astounded. "Speaking of which, the Court previously dispatched tens of thousands of troops—how is it they proved less formidable than mountain bandits?"
 
-"Uh, fear it was Regional Commander He underestimating the enemy. However, Shorn-hair Thief firearms are indeed formidable; it is said during the camp raid this bird gun harmed quite a few Good Fellows' lives."
+"Ah, one fears Regional Commander He underestimated his enemy. However, Shorn-hair Thief firearms are indeed formidable. It is said that during the camp raid, this bird gun claimed quite a few Good Fellows' lives."
 
-Zhou Lezhi thought for a moment, feeling it was still necessary to seek first-hand materials from the involved party: "Master Liu, where is that Huang Laoliu? I want to find him to ask."
+Zhou Lezhi considered for a moment, concluding it was necessary to obtain firsthand accounts from those directly involved. "Master Liu, where is this Huang Laoliu? I wish to question him personally."
 
-"The lowly one arranged for Brother Huang to stare in Guangzhou." Liu Sha answered, "If Sir has any doubts, the lowly one will send a message over."
+"Your humble servant has stationed Brother Huang in Guangzhou to keep watch," Liu Sha answered. "If the Sir has inquiries, your humble servant will send word immediately."
 
-"Let him come over; I want to ask about the detailed situation. Also, is it true that those Australians burn, kill, loot, and do all evils?" Mr. Zhou asked the confusion buried in his heart for a long time.
+"Have him come here. I wish to learn the detailed circumstances." Mr. Zhou paused, then gave voice to a question that had long troubled him. "Also, is it true that these Australians burn, kill, plunder, and commit every conceivable evil?"
 
-"Could there be fake! Shorn-hair Thieves rely on sharp firearms to do all conscience-losing dirty deals. Where the soldier's edge reaches, care not if you are gentry young master or old, weak, women, and children; whoever disobeys is all slaughtered village and exterminated clan. Several villages outside Guangzhou City were all made extinct [residents killed]. The lowly one almost couldn't escape back."
+"Could there be any doubt! The Shorn-hair Thieves rely on their sharp firearms to perpetrate every manner of unconscionable deed. Wherever their blades reach, they care not whether you are gentry, young master, or the old and weak, women and children—whoever disobeys faces village slaughter and clan extermination. Several villages outside Guangzhou City were completely annihilated. Your humble servant barely escaped with his life."
 
-"How can it be like this! Even old, weak, women, and children are not spared?!" Mr. Zhou was still somewhat daring not to believe.
+"How can this be! Even the elderly, the infirm, women, and children are not spared?!" Mr. Zhou still struggled to believe it.
 
-"That gang of Shorn-hair Thieves has a sadistic nature. Every time they kill into a village, they find an empty field to set up a high platform as a place of execution, hanging people to death then letting them air-dry without allowing corpse collection, even calling it beautifully 'Hanging Lamps'..." Liu Sha added oil and vinegar to retell the stories of Shorn-hair Thieves robbing village by village, besieging cities and setting fires, and extorting ransoms.
+"That gang of Shorn-hair Thieves possesses a sadistic nature. Each time they sweep into a village, they seek out an open field to erect a high platform as an execution ground, hanging people until dead and leaving the corpses to dry in the wind, forbidding burial. They even have a pretty name for it—'Hanging Lamps'..." Liu Sha embellished his retelling of how the Shorn-hair Thieves raided villages one after another, besieged cities, set fires, and extorted ransoms.
 
-Zhou Lezhi listened on the side with secret palpitations, involuntarily worrying about his own family's safety—speaking of which, ever since going to Dongyang, there had been no letter correspondence for a long time. Thinking of this, his heart burned with anxiety involuntarily, wanting to ask for leave to go back and look.
+Zhou Lezhi listened with growing dread, involuntarily worrying about his own family's safety. Come to think of it, ever since departing for Dongyang, there had been no letter correspondence for quite some time. This realization set his heart ablaze with anxiety, and he felt the urgent desire to request leave and return home to check on them.
 
 **(End of Chapter)**

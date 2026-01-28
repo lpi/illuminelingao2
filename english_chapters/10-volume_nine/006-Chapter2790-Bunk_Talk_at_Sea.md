@@ -1,119 +1,119 @@
 # Chapter 2790: Bunk Talk at Sea
 
-When Tan Shuangxi woke up, the sky was not yet bright. Although relying on the biological clock trained by his more than five years of service life, he could judge it was about less than five o'clock now, and in about ten minutes or so, the reveille would sound.
+When Tan Shuangxi woke, the sky had not yet brightened. Relying on the biological clock honed through more than five years of military service, he judged it to be just before five o'clock—in about ten minutes, the reveille would sound.
 
-Once the reveille sounded, get up to organize internal affairs (housekeeping), then follow the assembly bugle to run to the drill ground, assemble and roll call. The thunder-cannot-move daily life of the military camp would begin. But today it wasn't needed; he could sleep until the meal bell rang. Originally wanted to sleep a while longer, but after turning over a few times, he couldn't fall asleep no matter what. The constantly swaying bed, the noisy sea waves, and the creaking sounds emitted by ship planks from time to time rising here and subsiding there, really couldn't count as a place suitable for sleeping. If not for the swaying and wet deck disgusting him more, he would be more willing to get up and move about. The usually daunting five kilometers, now he inexplicably missed them a bit.
+Once the bugle call rang out, they would rise to organize their housekeeping, then follow the assembly call to the drill ground for formation and roll call. The immutable rhythm of camp life would begin. But today none of that was necessary; he could sleep until the meal bell. He tried to drift off again, turning over several times, yet sleep refused to come. The constantly swaying bed, the ceaseless roar of waves, and the ship's planks creaking in sporadic chorus made this a poor place for rest. If the pitching deck above weren't so wet and miserable, he would rather get up and move about. The daily five-kilometer run he usually dreaded—now he inexplicably missed it.
 
-The air in the ship cabin was foul and humid. A hurricane lamp hanging on the beam swaying with the ship emitted weak light. Looking out, everything was blurred.
+The air in the cabin was foul and humid. A hurricane lamp hung from the beam, swinging with the ship's motion, casting weak light. Everything beyond arm's reach blurred into shadow.
 
-Judging from the sounds of coughing, yawning, farting, and sighing rising and falling around, most people were already awake—as long as one stayed in the army for a year, this damn biological clock was considered set.
+Judging from the coughs, yawns, farts, and sighs rising and falling around him, most men were already awake. Spend a year in the army, and that damned internal clock became permanently set.
 
-Tan Shuangxi looked around. Most people were like him, opening eyes staring at the deck overhead after waking up, or just closing eyes turning over and over.
+Tan Shuangxi glanced around. Most soldiers lay like him—eyes open, staring at the deck overhead, or eyes closed, turning restlessly.
 
-The corporal in the neighboring bunk tilted his head to glance at Tan Shuangxi, "What? Can't sleep?"
+The corporal in the neighboring bunk tilted his head toward him. "What? Can't sleep?"
 
-"Yeah." Tan Shuangxi reached out to touch the cigarettes in the pocket of the military uniform hanging by the bed, only then remembering smoking was strictly prohibited on the ship, so he had to pat it, "How many days have we been drifting?"
+"Yeah." Tan Shuangxi reached for the cigarettes in the pocket of the uniform hanging by his bed, only to remember that smoking was strictly forbidden on the ship. He patted the pocket instead. "How many days have we been drifting?"
 
-The company boarded the ship from Hong Kong. It was already the fourth day. The weather was good all the way, not encountering any violent storms. Only on the second day of sailing, the wind and waves became larger, and soldiers began to get seasick and vomit. Because the wind and waves became larger, the time for going up to the deck for fresh air was also cancelled. Soldiers could only sleep, chat, and play cards under the deck where the air was foul and dark. Every one was almost suffocated into illness.
+The company had boarded at Hong Kong, and this was now the fourth day. The weather had held fair throughout, with no violent storms. Only on the second day had the wind and waves picked up, and soldiers began getting seasick. Because of the rougher conditions, their time on deck for fresh air had been cancelled. The men could only sleep, chat, and play cards below deck, where the air was stale and the light dim. Everyone felt half-suffocated.
 
-"Rest assured, definitely can arrive at Lingao today." The corporal said, "When we set out, it took four days. When landing in Hong Kong, it was exactly afternoon."
+"Rest easy—we'll definitely reach Lingao today," the corporal said. "Took four days on the outbound voyage too. We landed in Hong Kong right around afternoon."
 
-The whole company landing in Hong Kong was already a matter of nearly two years ago, but the memory was clear as if it was just yesterday.
+The whole company's landing in Hong Kong was nearly two years past now, yet the memory remained as clear as yesterday.
 
-"Don't know how long this rest and reorganization can be. Haven't been home for almost two years." The corporal picked up the military cap to dust it off, and covered it on his face, as if chatting with Tan Shuangxi or himself.
+"Don't know how long this rest and reorganization will last. Haven't been home in almost two years." The corporal picked up his military cap, dusted it off, and draped it over his face—speaking as much to himself as to Tan Shuangxi.
 
-"At least a long leave is no problem," A voice came from above.
+"At least a decent leave should be guaranteed," a voice came from above.
 
-"I heard people from the battalion headquarters say, this time going back will give a three-month vacation!"
+"I heard from someone at battalion headquarters—this time we're getting three months' vacation!"
 
-"Three months! Why don't you say discharge immediately upon return?"
+"Three months! Why not just say immediate discharge upon return?"
 
-"Really," The speaker was anxious, "I heard it from Little Liu. He is a messenger of the battalion headquarters. Any news from above, he knows fastest."
+"I'm serious," the speaker insisted. "I heard it from Little Liu. He's a messenger at battalion headquarters. Any news from above, he knows first."
 
-"If really can rest for three months, I'll divorce my wife upon return! Change for a new one." Someone spoke shocking words.
+"If we really get three months off, I'll divorce my wife when I get back! Trade her in for a new one." Someone spoke with deliberate outrageousness.
 
-People around emitted a burst of roar of laughter.
+Laughter roared through the cabin.
 
-"Forget it, still divorcing wife. Burning high incense if your wife doesn't divorce you!"
+"Divorce your wife? You should burn incense in thanks if she doesn't divorce you!"
 
-"Exactly! Gone for two years, can't guarantee there isn't a bit of green on the head..."
+"Exactly! Gone for two years—who knows if there isn't a bit of green on your head by now..."
 
-Tan Shuangxi didn't join this banter, but silently stared at the bunk board of the upper bunk in a daze. Unknown which big-headed soldier pasted a "Beauty Calendar" on the bunk board; the affectionate Xi Shi was looking at him.
+Tan Shuangxi didn't join the banter. He stared silently at the underside of the bunk above, lost in thought. Some soldier with too much time on his hands had pasted a "Beauty Calendar" there; the painted Xi Shi gazed down at him with tender eyes.
 
-"Brother," A head stuck out from the upper bunk, "Getting married this time home?"
+"Brother," a head appeared over the edge of the upper bunk, "getting married when you go home?"
 
-"Married? Bullshit! It's blind date (matchmaking)." Tan Shuangxi laughed and scolded the upper bunk. The upper bunk was Tan Ende, a new recruit filled in only last year, a Shandong refugee who arrived in Lingao less than a year ago. Because of the same surname, he always added a "Brother" to the address of Tan Shuangxi.
+"Married? Don't talk nonsense! It's just a matchmaking meeting." Tan Shuangxi laughed and scolded the man above. That was Tan Ende, a new recruit assigned to the unit only last year—a Shandong refugee who had arrived in Lingao less than a year ago. Sharing the same surname, he always addressed Tan Shuangxi as "Brother."
 
-With the recovery of Guangdong and Guangxi and the influx of endless immigrants, the gender ratio in Lingao began to gradually move towards balance. Hot items in matchmaking activities began to be no longer limited to high-ranking officers and naturalized citizens; ordinary sergeants also began to have opportunities to gain favor from females. Every time troops were comforted, among the consolation letters from female youths, there were quite a few with secret affection. This also made many old bachelors who had served in the army for many years eager to try.
+With the recovery of Guangdong and Guangxi and the endless influx of immigrants, the gender ratio in Lingao had begun shifting toward balance. The hot prospects in matchmaking were no longer limited to high-ranking officers and naturalized citizens; ordinary sergeants now had opportunities to catch a woman's eye. At every troop morale visit, among the comfort letters from young women, quite a few contained hints of secret affection. This made many old bachelors who had served for years eager to try their luck.
 
-Tan Shuangxi calculated secretly. This time he had been supplementally appointed as Platoon Leader. Just because he wasn't a Commissioned Officer, he could only count as "Acting Platoon Leader"—in the troops such sergeants were called "Housekeeping Sergeant."
+Tan Shuangxi did some silent calculations. He had recently been appointed Acting Platoon Leader. Because he wasn't a commissioned officer, he could only be considered "acting"—in the troops, such sergeants were called "Housekeeping Sergeants."
 
-Although "Housekeeping Sergeant" also fulfilled the duties of a Platoon Leader, he was "Acting" after all. Using a witty remark, it was "Maid holding keys, managing household but not making decisions." If a new officer was assigned to the company, he could be directly replaced.
+Though a Housekeeping Sergeant fulfilled the duties of a Platoon Leader, he remained "acting" after all. As the wry saying went: "A maid holding keys—managing the household but making no decisions." If a new officer was assigned to the company, he could be replaced on the spot.
 
-The Company Commander had told him to upgrade his diploma as soon as possible. As long as he had a Class B Diploma, he could apply for Officer Candidate qualification.
+The Company Commander had urged him to upgrade his diploma as soon as possible. With a Class B Diploma, he could apply for Officer Candidate qualification.
 
-Although Officer Candidate was just "Candidate," right now there were many officer vacancies in the troops. High probability he could be promoted to Warrant Officer rank without too long. It could be counted as stepping one foot into the officer ranks, wearing not a sergeant short sword but a command saber. The Platoon Leader appointment would also be solid.
+Officer Candidate was still just "candidate," but officer vacancies in the troops were plentiful right now. There was a good chance he could be promoted to Warrant Officer rank before long. That would count as having one foot in the officer corps—wearing not a sergeant's short sword but a command saber. His Platoon Leader appointment would become permanent.
 
-So he planned to take advantage of this major rest and reorganization to sign up for a troop cram school to storm the fortress and take the Class B Diploma exam.
+So he planned to take advantage of this rest and reorganization period to enroll in a military cram school, storm through the preparation, and sit for the Class B Diploma exam.
 
-Officers going on blind dates and sergeants going on blind dates, the objects they could contact were naturally very different. After all, in the eyes of common folks, sergeants were just "soldiers" getting a few more dollars. How could they be mentioned in the same breath as "officials"?
+Officers going on matchmaking meetings and sergeants going on matchmaking meetings—the prospects they could hope to meet were naturally quite different. After all, in the eyes of common folk, sergeants were just "soldiers" earning a few extra dollars. How could they be mentioned in the same breath as "officials"?
 
-While in reverie, a burst of roar of laughter originating around interrupted Tan Shuangxi's reverie. Didn't know what they were laughing at. He also followed with a few dry laughs.
+While lost in these thoughts, a burst of laughter from nearby interrupted his reverie. He didn't know what they were laughing about, but joined in with a few dry chuckles.
 
-Laughter gradually dispersed. Soldiers in the cabin were almost all awake. Unable to go up to the deck to wash, and not yet time for meals. Soldiers lay on bunks chatting, content nothing more than what they planned to do after going back.
+The laughter gradually faded. Nearly every soldier in the cabin was awake now. Unable to go up on deck to wash, and with mealtime not yet arrived, men lay on their bunks chatting. The topics were all the same—what they planned to do after getting home.
 
-He heard a weak voice speaking intermittently:
+He caught a weak voice speaking intermittently:
 
-"...Ambushed at Shaoguan. Only he was left of a squad, and broke a leg. I went to see him; he just cried, saying didn't know what to do back. I didn't know what to say either, could only comfort him saying the Senate would always give him a mouthful of rice to eat. He said he came to be a soldier to bring glory to ancestors. Now going back like this, afraid he can't even find a wife..."
+"...Ambushed at Shaoguan. He was the only one left from his squad, and he'd broken a leg. I went to see him. He just cried, saying he didn't know what to do when he got back. I didn't know what to say either—could only comfort him that the Senate would always give him a bowl of rice. He said he'd joined the army to bring glory to his ancestors. Going back like this, he was afraid he couldn't even find a wife..."
 
-"Sigh, this is all fate!"
+"Sigh, that's just fate!"
 
-Tan Shuangxi sighed silently. Fate! This is fate! Bizarre and motley, yet elusive fate!
+Tan Shuangxi sighed silently. Fate! This was fate! Strange and varied, yet impossible to grasp.
 
-He tilted his head to ask the Sergeant (Staff Sergeant) in the neighboring bunk: "Old Ma, what do you plan to do back?"
+He turned his head toward the Staff Sergeant in the neighboring bunk. "Old Ma, what are you planning to do when you get back?"
 
-"Me?" The Sergeant lowered his voice, "I plan to apply for discharge."
+"Me?" The Staff Sergeant lowered his voice. "I plan to apply for discharge."
 
-"What?" Tan Shuangxi was so shocked he almost fell off the bed. Sergeant Ma was like him, promoted only recently. He was a son of honest fishermen, a famous good old man in the company, a kind uncle in the eyes of soldiers, a dull sergeant in the eyes of officers. Unexpectedly he wanted to discharge at this time.
+"What?" Tan Shuangxi was so shocked he nearly fell off his bed. Sergeant Ma was like him—only recently promoted. He was the son of honest fishermen, a famously good-natured man in the company, a kind uncle in the soldiers' eyes, a dull sergeant in the officers' view. Yet he wanted to discharge now?
 
-"Fought for two years, only earned this bit of future (prospect), how come thinking of discharge?" A soldier beside asked.
+"Fought for two years, only earned this much of a future, and you're thinking of discharge?" a soldier nearby asked.
 
-"My family are fishermen. The family lived quite well in recent years. My dad and several uncles sold all the old boats, took out loans, pooled money to buy a new boat to go deep sea fishing. Especially profitable. Just not enough manpower, and everyone has no culture (education), doing things not effective. So called me back early to do it together."
+"My family are fishermen. We've done pretty well these recent years. My father and several uncles sold all the old boats, took out loans, pooled their money to buy a new boat for deep-sea fishing. Very profitable. They just don't have enough hands, and nobody in the family has much education—they can't manage things efficiently. So they called me back to help."
 
-"Isn't that a pity..." Tan Shuangxi couldn't help feeling regretful.
+"Isn't that a waste..." Tan Shuangxi couldn't help feeling regretful.
 
-Sergeant Ma turned over, changed posture, and continued: "Can't say pity. First came to be a soldier because the village assigned corvee, then fighting bandits and government troops. These were all good deeds protecting the peace of a place. I couldn't hide. Now Guangdong is all liberated, the world should be peaceful soon. Everywhere is like Lingao, can work and live life peacefully. I just thought, I'm not the material for a soldier. No matter how hard I work in the ranks, I'm just a sergeant. Give me a Company Commander to do I dare not either. I'd better go back to sail and fish. I just like fishing."
+Sergeant Ma turned over, adjusting his position, and continued: "Can't really call it a waste. I first became a soldier because the village assigned corvée labor, then we were fighting bandits and government troops. That was all good work, protecting the peace of our home. I couldn't hide from it. Now all of Guangdong is liberated, and the world should be peaceful soon. Everywhere will be like Lingao—people can work and live in peace. I've been thinking: I'm not soldier material. No matter how hard I work in the ranks, I'll only ever make sergeant. Give me a company to command and I wouldn't dare take it. I'd rather go back to sailing and fishing. I just like fishing."
 
 A soldier asked curiously: "You really don't want to be an officer?"
 
-"Saying don't want to is impossible. I also want to hang a command saber, how majestic. Seeing that new recruit egg (rookie) walking badly, go up and give him a kick." The corporal's exaggerated tone attracted soldiers nearby, emitting a burst of laughter.
+"Saying I don't want it would be a lie. I'd love to hang a command saber at my side—how impressive that would be. See some new recruit walking out of step and just go up and give him a kick." The corporal's exaggerated tone drew laughter from the soldiers nearby.
 
-"But I'm not this material. Commanding a squad is already very difficult. Commanding a hundred or eighty brothers, wouldn't I be in a rush and muddle? Can't bear this responsibility."
+"But I'm not cut out for it. Commanding a squad is already hard enough. Commanding a hundred or eighty brothers—wouldn't I just be flustered and confused? I can't bear that responsibility."
 
-"That's true too. I also feel not material for a soldier! If could discharge, would have gone to find a job early! Many factories over in Guangzhou are recruiting. If not for discharge forbidden, I would have stayed in Guangzhou for recruitment."
+"That's true too. I don't feel like soldier material either! If I could discharge, I'd have gone to find a job long ago! Plenty of factories in Guangzhou are hiring. If discharge were allowed, I would have stayed in Guangzhou to sign up."
 
-"Discharge, you guys dream beautifully!" Someone sneered, "Think transferring us back to Lingao means no fighting?"
+"Discharge? You're all dreaming!" Someone sneered. "Think transferring us back to Lingao means no more fighting?"
 
-"If fighting, stay in Guangdong. Why transport us back thousands of li?"
+"If we were still fighting, we'd stay in Guangdong. Why ship us back thousands of li?"
 
-"Any inside news, quickly say!"
+"Got any inside information? Spill it!"
 
-"Inside news I have none. But Great Ming lost Guangdong and Guangxi, can they just let it be?" The soldier speaking was the clerk of the company, "Wouldn't the Emperor try to find a makeup? I see there are plenty of wars to fight. Returning to Lingao is just replenishing the ranks. After all, we had too much attrition in these two years. Replenished new recruits so many times and still understrength."
+"I don't have inside information. But the Great Ming lost Guangdong and Guangxi—can they just accept that?" The soldier speaking was the company clerk. "Wouldn't the Emperor try to reclaim some face? I'd say there's plenty of fighting still ahead. Returning to Lingao is just to replenish our ranks. After all, we took too many casualties these past two years. Filled in new recruits so many times and we're still understrength."
 
-"But the Company Commander said last time those who want to discharge can discharge."
+"But the Company Commander said last time that those who want to discharge can apply."
 
-"Only those served more than three years and with experience of two injuries can apply. Whether Old Ma can discharge is hard to say." The clerk was educated and belonged to "core" personnel in the company. words spoken naturally carried weight. The surroundings immediately cooled down.
+"Only those who've served more than three years and been wounded at least twice can apply. Whether Old Ma qualifies is hard to say." The clerk was educated and counted as one of the "core" personnel in the company; his words carried weight. The chatter around them immediately cooled.
 
-"This rest and reorganization will definitely give a big vacation. Does everyone have any plans? All speak up." Tan Shuangxi said to people around, thinking secretly, can't let the field cool down at this moment.
+"This rest and reorganization will definitely come with a big leave. Does everyone have plans? Let's hear them." Tan Shuangxi addressed those around him, thinking privately that he couldn't let the conversation die down now.
 
-"I just want to go home to help my dad open up wasteland. He has said for a long time..."
+"I just want to go home and help my dad clear new land. He's been talking about it for ages..."
 
-"My family arranged a wife for me, want me to go look (xiang kan). If suitable then marry over!"
+"My family arranged a bride for me. They want me to go have a look. If she's suitable, we'll marry!"
 
-"I want to go shopping at East Gate Market with Erya of the village..."
+"I want to go shopping at East Gate Market with Erya from the village..."
 
-"Platoon Leader, what about you?" Finally someone asked.
+"Platoon Leader, what about you?" someone finally asked.
 
-Tan Shuangxi chuckled and answered: "Vacation definitely sleep first. Sleep until naturally awake. Then eat big rice and salted fish until vomit." This answer caused a bigger burst of laughter. With the food supply of the Fubo Army, no one would regard these two things as life goals. "Take my dad and mom to turn around at East Gate Market, eat a meal at the cooperative," Tan Shuangxi still gave his plan.
+Tan Shuangxi chuckled. "On leave? First thing—sleep. Sleep until I wake up naturally. Then eat rice and salted fish until I can't stomach another bite." This answer drew the biggest burst of laughter yet. With the Fubo Army's food supply, no one would consider those two things life goals. "Then take my dad and mom for a stroll around East Gate Market, eat a meal at the cooperative," Tan Shuangxi added, giving his real plan.
 
 (End of Chapter)

@@ -1,109 +1,109 @@
 # Chapter 2680: The Capital (Part 36)
 
-Mr. Zhou was accompanying his daughter to build a snowman in the courtyard—saying Zhou Juli wanted to build a snowman, but it was actually a cover; deep down, he was the one who wanted to play with snow. After all, as a Southerner born in Zhejiang and educated in Guangzhou, he had rarely seen such heavy snow, let alone goose-feather snow capable of making snowmen.
+Mr. Zhou was accompanying his daughter in building a snowman in the courtyard. He claimed it was Juli who wanted to build it, but that was merely a cover—deep down, he was the one who wanted to play in the snow. After all, as a Southerner born in Zhejiang and educated in Guangzhou, he had rarely seen such heavy snowfall, let alone the kind of goose-feather flurries thick enough to pack into snowmen.
 
-Hearing the servant say Master Wang came to pay a New Year call and was already at the door, he hurriedly went out to welcome him.
+When a servant announced that Master Wang had come to pay a New Year call and was already at the gate, he hurried out to welcome him.
 
-"Yo, Lord Wang, why have you come?" He bowed with hands clasped to pay the New Year call while inviting him in.
+"Well now, Lord Wang, what brings you here?" He bowed with clasped hands in the traditional greeting while beckoning him inside.
 
-"Just passing by on the way, came to pay Mr. Zhou a New Year call." Wang Yehao entered the door and saw the courtyard organized in perfect order, with some flowers, plants, and installations not seen last time. It seemed this Hearthstone Immortal had quite a taste for life—this made things easier to handle.
+"I happened to be passing by and thought I'd pay Mr. Zhou a New Year visit." Wang Yehao stepped through the gate and surveyed the courtyard, noting how everything was arranged in perfect order. There were flowers, ornamental plants, and decorative installations he hadn't noticed on his previous visit. It seemed this Hearthstone Immortal had quite refined tastes—which would only make things easier to handle.
 
-"This must be Juli. Look at this kid; truly makes people fond of her." Wang Yehao bent down kindly and pinched Zhou Juli's cheek, which was frozen red. The girl hid behind Mr. Zhou, sizing up the other party curiously with a pair of big eyes.
+"This must be Juli. Look at this little one—truly makes one fond of her." Wang Yehao bent down kindly and pinched Zhou Juli's cold-reddened cheek. The girl retreated behind Mr. Zhou, regarding the stranger curiously with her large, watchful eyes.
 
-"Why shy away from strangers? This is Uncle Wang." Mr. Zhou picked up his daughter, pinched her nose affectionately, then greeted the guest, "Don't stand at the door; come into the house quickly!"
+"Why so shy around guests? This is Uncle Wang." Mr. Zhou scooped up his daughter and gave her nose an affectionate pinch, then turned to address his visitor. "Don't stand at the doorway—please, come inside!"
 
-Mr. Zhou handed the daughter to a servant woman, then led Wang Yehao to the study in the side courtyard. Obviously, Mr. Zhou had no interest in studying ancient books usually, so rather than a study, it was more appropriate to call it a chess-and-card room cum laboratory.
+Mr. Zhou handed his daughter to a nursemaid, then led Wang Yehao toward the study in the side courtyard. Mr. Zhou clearly had no interest in poring over ancient texts, so rather than a proper study, it was more accurately described as a game room and laboratory combined.
 
-He had opened up all three rooms of this study and arranged many brand-new furniture pieces inside—the original tables, chairs, and furnishings didn't quite fit Mr. Zhou's aesthetic taste and usage, so he specially found a carpenter to customize the whole set. The carpenter was quite resistant to Mr. Zhou's guiding opinions filled with cross-era significance and went on strike several times to protest. This also made Mr. Zhou realize a profound truth: stories about casually copying a modern design to lead fashion trends in the transmigration world and earning pots full of money were all TMD [damn] lying to ghosts!
+He had knocked through the walls of all three rooms and furnished the space with brand-new pieces—the original tables, chairs, and fixtures hadn't suited Mr. Zhou's aesthetic sensibilities or practical needs, so he had commissioned a carpenter to custom-build the entire set. The carpenter had proven quite resistant to Mr. Zhou's guidance, which was filled with ideas of decidedly anachronistic significance, and had even gone on strike several times in protest. This experience had also taught Mr. Zhou a profound truth: all those transmigration stories about casually introducing modern designs to lead fashion trends and raking in pots of gold were nothing but damned lies!
 
-Lord Wang, whose self-restraint was obviously better than the carpenter's, gave a pertinent and conservative evaluation of Mr. Zhou's design: "Mr. Zhou's study furnishings are quite unique."
+Lord Wang, whose self-restraint was evidently superior to the carpenter's, offered a diplomatic and conservative assessment of Mr. Zhou's designs: "Mr. Zhou's study furnishings are quite... distinctive."
 
-"Oh, this is the minimalist route." Mr. Zhou moved a chair over to introduce. "Lord, please look; this chair is just four wooden strips and two boards. Easy to assemble, novel style. And that is a lazy person's sofa [bean bag chair], filled with buckwheat husks inside. Although the selling appearance isn't much, it's quite comfortable to sit on. Does the Lord want to try?"
+"Oh, this is the minimalist aesthetic." Mr. Zhou pulled over a chair to demonstrate. "My Lord, please observe—this chair is just four wooden strips and two boards. Simple to assemble, novel in style. And that over there is a lounging cushion," he gestured toward what was essentially a beanbag chair, "filled with buckwheat husks. It may not look like much, but it's remarkably comfortable to sit on. Would my Lord care to try?"
 
-Wang Yehao looked at the few cotton cloth bags on the ground, really finding it somewhat unacceptable. Although he despised it in his heart, his mouth remained very polite: "Hehe, Mr. Zhou's decorations are authentically clumsy and elegant, great skill appearing unpolished, seemingly having the legacy style of Wei and Jin."
+Wang Yehao eyed the lumpy cotton sacks on the floor with barely concealed distaste. Though he found them rather unacceptable, his words remained unfailingly polite: "Hehe, Mr. Zhou's decorations embody authentic rustic elegance—great skill appearing unpolished, carrying the aesthetic legacy of the Wei and Jin dynasties."
 
-"Not Wei and Jin style, it's Nordic style... Uh, it's just that this style is popular in the place where I learned my art." Mr. Zhou lay very comfortably on a lazy person's sofa. Wang Yehao struggled for half a day, still not knowing how to lower his bottom. Fortunately, Zhou Lezhi was doing experiments in the study and hurriedly moved over a round-backed armchair.
+"Not Wei and Jin style—it's Nordic... Well, let's just say this style is popular where I learned my craft." Mr. Zhou reclined comfortably on one of the lounging cushions. Wang Yehao struggled for some time, unable to figure out how to lower himself onto such a thing with any dignity. Fortunately, Zhou Lezhi was conducting experiments in the study and hastily brought over a proper round-backed armchair.
 
-At this moment, Zhou Lezhi was doing experiments in the study—the experimental apparatuses were all cobbled together by him following the Teacher. Some were made by carpenters according to drawings from the Teacher; some were searched and bought from various markets and shops by Zhou Lezhi according to the Teacher's requirements. They were combined into a set of crude and simple experimental equipment.
+Zhou Lezhi had been working at his experiments in a corner of the study—the apparatus was all cobbled together under his teacher's guidance. Some pieces had been made by carpenters following his teacher's sketches; others had been hunted down and purchased from various markets and shops according to specifications. Together, they formed a crude but functional set of experimental equipment.
 
-Seeing Master Wang and the Teacher seated, Zhou Lezhi was about to withdraw, but the Teacher said: "No need. You are my student; listening from the side is also good." After speaking, he asked again: "Is he in the way?"
+Seeing Master Wang and his teacher seated, Zhou Lezhi made to withdraw, but his teacher stopped him: "No need. You are my student; it will do you good to listen." Then he turned to Wang Yehao. "He won't be in the way?"
 
-"Not in the way," Wang Yehao revealed a smile. "Who doesn't have a few confidants! He is the Teacher's inner disciple; this student naturally trusts him."
+"Not at all," Wang Yehao replied with a smile. "Who doesn't keep a few trusted confidants? He is the Teacher's inner disciple; this student naturally trusts him."
 
-Zhou Lezhi hurriedly thanked them, then quickly went to the door to take the tea and snacks sent by the servant and brought them to the table—at the beginning of the New Year, the "Zhou Residence" prepared several Nanyang-style tea snacks and specially prepared Yuanbao tea according to the Teacher's instructions.
+Zhou Lezhi offered his thanks, then quickly retrieved the tea and snacks that a servant had brought to the door. At the start of the New Year, the Zhou Residence had prepared several Nanyang-style tea refreshments and, per his teacher's instructions, specially brewed Yuanbao tea.
 
-Seeing this Yuanbao tea, Wang Yehao felt a longing for water shield soup and sea bass [homesickness/nostalgia], remembering that this mysterious Hearthstone Immortal could eventually be counted as a person from the same big hometown. Pity that despite all probing, he still didn't know his true face today. Although the help was great, there was always a feeling of thorns on the back.
+At the sight of this Yuanbao tea, Wang Yehao felt a wave of homesickness wash over him—that familiar longing for water shield soup and sea bass. It reminded him that this mysterious Hearthstone Immortal could ultimately be counted as someone from the same greater homeland. A pity that despite all his probing, he still knew nothing of the man's true identity. Though the help had been considerable, there remained a persistent, prickling unease.
 
-He took a shallow sip of tea and picked up an olive to hold in his mouth.
+He took a shallow sip of tea and placed an olive in his mouth to savor.
 
-"Since knowing the Teacher in *Guangli*, it has been three years in a flash, yet I rarely hear the Teacher talk about the previous learning of arts."
+"Since meeting the Teacher in Guangli, three years have passed in a flash, yet I rarely hear the Teacher speak of his earlier training."
 
-Zhou Lezhi stood behind the Teacher and couldn't see his expression, but from his starting to tilt his head and the habitual movement of touching his eyebrows, he knew the Teacher was quite embarrassed by this topic: "This, there is a confidentiality agreement. Cannot talk casually outside; will suffer divine punishment."
+Zhou Lezhi stood behind his teacher and couldn't see his expression, but from the way he began tilting his head and the habitual gesture of touching his eyebrow, he knew his teacher found this topic rather embarrassing. "Ah, well... there's a confidentiality agreement. I can't discuss it freely outside—there would be divine punishment."
 
-"Heavenly secrets are mysterious; Daoist methods are subtle and profound. Didn't expect that with supernatural powers like the Teacher's, one still has to keep clear rules and commandments. Presumably, learning the art must have been unusually arduous." Wang Yehao sipped the tea, joking cheerfully.
+"Heavenly secrets are indeed mysterious; Daoist methods, subtle and profound. I hadn't expected that even with supernatural powers like the Teacher's, one must still observe strict rules and commandments. The training must have been extraordinarily arduous." Wang Yehao sipped his tea, his tone light and teasing.
 
-The Teacher also complained along the flow: "More than arduous, simply inhuman. Endless water-grinding effort [tedious work]... no SCI published... If I hadn't refined the Qiankun Mirror, I wouldn't know how many more years I'd have to muddle through." After speaking, a painful expression appeared on his face; presumably, that life of cultivation was unbearable to look back on.
+Mr. Zhou seized the opportunity to commiserate: "More than arduous—utterly inhuman. Endless tedious grinding... no publications... If I hadn't managed to refine the Qiankun Mirror, who knows how many more years I'd have languished there." As he spoke, a pained expression crossed his face; evidently, that period of cultivation was too agonizing to recall.
 
-"Speaking of which, the Teacher's Qiankun Mirror hasn't been found yet, right? Don't know if there are clues recently?"
+"Speaking of which, the Teacher's Qiankun Mirror still hasn't been found, correct? Have there been any recent clues?"
 
-"Sigh, hard to find. Don't know where those Australians are hiding either." Mr. Zhou sighed, appearing very helpless.
+"Alas, it's proving difficult to locate. I don't even know where those Australians are hiding." Mr. Zhou sighed, the picture of helplessness.
 
-"Teacher, please look." Wang Yehao signaled Liu Zhao to present several items from *Zizhenzhai*.
+"Teacher, please examine these." Wang Yehao signaled Liu Zhao to present several items from Zizhenzhai.
 
-Mr. Zhou took them to look for a few glances, and his face changed. After playing with them repeatedly, he pursued asking: "This came from Guangzhou?"
+Mr. Zhou took them and studied them for several moments, his expression shifting. After turning them over repeatedly in his hands, he pressed: "These came from Guangzhou?"
 
-"Correct, but not obtained from Gao Ju's hands, but bought from a shop called *Zizhenzhai*." Wang Yehao watched his face. "The proprietor is called Guo Yi. Does the Teacher know him?"
+"Correct—though not obtained directly from Gao Ju, but purchased from a shop called Zizhenzhai." Wang Yehao watched his face carefully. "The proprietor is named Guo Yi. Does the Teacher know him?"
 
-"So saying, the Australians are back?! And opened a shop!" Mr. Zhou's expression became very agitated.
+"So the Australians are back? And they've opened a shop!" Mr. Zhou's expression grew visibly agitated.
 
-"Nine out of ten it is so."
+"Nine times out of ten, yes."
 
-"Right, right, this is the Australians' stuff!" Mr. Zhou stood up suddenly, turning around indiscriminately in the study. "I should have thought of it, should have thought of it earlier!"
+"Yes, yes—this is definitely Australian craftsmanship!" Mr. Zhou sprang to his feet and began pacing restlessly around the study. "I should have realized—should have realized sooner!"
 
-Wang Yehao thought there was no mistake; he indeed knew the Australians' background!
+Wang Yehao felt certain there was no mistake; the man clearly knew something of the Australians' origins.
 
-"What is the background of this Guo Yi? Does the Master know?" Mr. Zhou suddenly stopped and asked.
+"What is this Guo Yi's background? Does the Master know anything?" Mr. Zhou stopped abruptly and asked.
 
-"Says he is a Guangzhou local and can also speak fluent Cantonese. However..." Wang Yehao smiled meaningfully.
+"He claims to be a Guangzhou local and speaks fluent Cantonese. However..." Wang Yehao smiled meaningfully, letting the implication hang.
 
-Mr. Zhou froze there, seemingly his whole brain filled with thoughts. Only after a long time did he say:
+Mr. Zhou stood frozen, his mind evidently churning with thoughts. Only after a long pause did he speak:
 
-"I want to go to Guangzhou to check."
+"I need to go to Guangzhou and investigate."
 
-"Teacher need not rush for a moment." Wang Yehao said, "From the capital to Guangzhou is a thousand li away, with many inconveniences. This student actually has some manpower; perhaps can lend the Teacher an arm's force."
+"There's no need to rush, Teacher." Wang Yehao said. "From the capital to Guangzhou is over a thousand li, with many difficulties along the way. This student actually has some resources at his disposal; perhaps I could lend the Teacher some assistance."
 
-Mr. Zhou hesitated slightly, feeling although there was risk, it was also a method: "If the Lord is willing to help find them, naturally that's best. Just one thing: if clues are found, never act rashly. Must wait for me to collect them."
+Mr. Zhou hesitated briefly. Though there was risk, it was also an option worth considering. "If my Lord is willing to help locate them, that would naturally be ideal. Just one condition: if any clues are found, you must not act rashly. You must wait for me to collect them personally."
 
-"Oh? Don't know what explanation this has?"
+"Oh? What reasoning lies behind that?"
 
-Mr. Zhou started touching his eyebrows habitually again: "En, this, this, specifically speaking, this treasure is relatively delicate and expensive, not easy to control. If controlled well, moving mountains of gold and silver is not a problem; if not controlled well, en, en," he suddenly roused his spirit, "The explosion three years ago, the Lord remembers, right? Even more powerful than that!"
+Mr. Zhou's hand drifted to his eyebrow again in that habitual gesture. "Well, this... specifically speaking, this treasure is rather delicate and temperamental—not easy to control. Handled properly, it can produce mountains of gold and silver. Handled poorly, well..." He suddenly straightened, eyes alight. "The explosion three years ago—my Lord remembers it, yes? Even more powerful than that!"
 
-Pity this explosion danger didn't scare Wang Yehao. Instead, he seemed suddenly interested, asking with eyes shining: "Teacher just said this thing can also move mountains of gold and silver?"
+Yet the threat of explosions did nothing to frighten Wang Yehao. Instead, he seemed suddenly captivated, his eyes gleaming with interest. "The Teacher just said this thing can also produce mountains of gold and silver?"
 
-"That's not blowing [bragging] to you!" Seeing the other party's strong interest, Mr. Zhou drew a big pancake [made empty promises] along the flow. "Only what you can't think of, nothing I can't move. Pearls, jadeite, glazed glass, agate, those are all small toys."
+"That's no idle boast!" Seeing the other party's keen interest, Mr. Zhou painted an extravagant picture. "Only what you can't imagine—nothing I can't produce. Pearls, jadeite, colored glass, agate—those are mere trifles."
 
-"Didn't expect there is such a treasure in the world." Wang Yehao couldn't help stroking his beard and sighing long after hearing Mr. Zhou brag. "If one has this way of generating wealth, then one can make the court's treasuries full and soldiers' rations and pay sufficient. In this way, what worry about the Jianzhou Slaves not being destroyed."
+"I never imagined such a treasure could exist in this world." After listening to Mr. Zhou's grandiose claims, Wang Yehao couldn't help but stroke his beard and sigh deeply. "If one possessed such a means of generating wealth, one could fill the court's treasuries and ensure soldiers never went without rations or pay. With that accomplished, what need to worry about the Jianzhou Slaves remaining undefeated?"
 
-"Destroying that bunch of Jianzhou Slave cavalry is easy as lifting a hand; get a few machine guns and *tut-tut* them all." Mr. Zhou got more excited as he spoke. "This machine gun is a continuous-firing fire铳 [firearm], with a range of four or five li away; cavalry basically can't get close."
+"Crushing those Jianzhou Slave cavalry would be child's play—just get a few machine guns and mow them all down." Mr. Zhou grew more animated as he spoke. "These machine guns are continuous-firing firearms with a range of four or five li. Cavalry would never get close."
 
-Wang Yehao listened to Mr. Zhou talk nonsense with considerable restraint for less than an hour before getting up to bid farewell. Before leaving, at Mr. Zhou's request, he left these "Australian treasures" behind, supposedly to "research."
+Wang Yehao listened to Mr. Zhou's wild claims with admirable restraint for the better part of an hour before finally rising to take his leave. At Mr. Zhou's request, he left the "Australian treasures" behind—supposedly for "research purposes."
 
-Liu Zhao saw the guest off on behalf of the master outside the door and whispered: "Master, what does the Master think of Mr. Zhou's words today?"
+Liu Zhao saw the guest off on his master's behalf outside the gate and whispered: "Master, what does my Lord make of Mr. Zhou's words today?"
 
-"Hard to distinguish true from false..." Wang Yehao shook his head. "There may be false words and pretexts, but this Official feels this Qiankun Mirror should truly exist."
+"Difficult to distinguish truth from fiction..." Wang Yehao shook his head. "There may be falsehoods and pretexts, but this Official believes the Qiankun Mirror truly exists."
 
-"Subordinate feels if this Qiankun Mirror really has such supernatural power, then things make sense."
+"This subordinate feels that if the Qiankun Mirror truly possesses such supernatural power, then everything makes sense."
 
 "Oh? How so?"
 
-Liu Zhao led Wang Yehao to the side and whispered: "Can't guarantee that Qiankun Mirror really fell into the Australians' hands. Under chance and coincidence, they comprehended some driving methods, so they made these glazed glass treasures."
+Liu Zhao guided Wang Yehao to one side and spoke in a hushed voice: "It's possible the Qiankun Mirror really did fall into the Australians' hands. Through some combination of chance and circumstance, they grasped certain methods of operating it, which is how they've been able to produce these glass treasures."
 
-Wang Yehao's eyes lit up, suddenly feeling the whole matter strung together. The claim in the report that a mere few dozen Lingao village braves could kill hundreds of sea bandit heads was simply absurd. Moreover, Lingao County was a poor village and remote soil, with almost no oil and water; Old Liu Xiang had absolutely no need to send a thousand thugs to plunder. The only explanation fitting common reason was that Australians occupied Lingao, set up altars to perform rituals, and used the Qiankun Mirror to make glazed glass vessels. This business of no capital and ten thousand profits made Old Liu Xiang jealous and itchy, wanting to take it for himself. Sea bandits fought each other, both sides suffered losses, and Lingao County then reaped the fisherman's profit, picking up hundreds of heads to report. Since glazed glass vessels were still on sale, it meant the Australians hadn't collapsed yet and were still in Lingao. So it seemed that Guo Yi was not without foundation; besides Gao Ju, there was at least a large group of sea bandits backing him.
+Wang Yehao's eyes lit up as the entire matter suddenly clicked into place. The report's claim that a mere few dozen Lingao village militia could slay hundreds of sea bandits was simply preposterous. Moreover, Lingao County was a poor and remote backwater with almost nothing worth plundering—Old Liu Xiang had absolutely no reason to send a thousand thugs there. The only explanation that made sense was that the Australians had occupied Lingao, established some sort of ritual site, and were using the Qiankun Mirror to manufacture glass vessels. This business of pure profit with no capital had made Old Liu Xiang green with envy, driving him to try to seize it for himself. The sea bandits had fought each other, both sides suffering losses, and Lingao County had then reaped the fisherman's reward—collecting hundreds of heads to claim as their own victory. Since glass vessels were still being sold, the Australians clearly hadn't collapsed and remained in Lingao. If so, then Guo Yi wasn't without backing; besides Gao Ju, there was at least a substantial force of sea bandits supporting him.
 
-Thinking of this, Wang Yehao felt somewhat excited. If such a treasure could be collected for his own use, wouldn't it be wonderful? Pondering for a moment, Wang Yehao withdrew his mind and asked: "Asked you to investigate carefully the relationship between that Guo Yi and Eunuch Yang and Gao Ju the day before yesterday; what is the result?"
+At this thought, Wang Yehao felt a surge of excitement. If such a treasure could be secured for his own use, wouldn't that be magnificent? After pondering for a moment, he collected himself and asked: "The day before yesterday, I asked you to investigate carefully the relationship between that Guo Yi and Eunuch Yang and Gao Ju. What did you find?"
 
-"Small one already verified: *Zizhenzhai* did not throw itself [offer service] to Eunuch Yang; he just relies on Gao Ju to establish a foothold in Guangzhou."
+"This subordinate has already verified: Zizhenzhai did not offer its allegiance to Eunuch Yang. Guo Yi merely relies on Gao Ju to establish his footing in Guangzhou."
 
-"Hehe, since there is no backer, then this Official will find one for him." Wang Yehao smiled meaningfully. "Don't know if that Miss Pei suits Imperial Relative Tian's taste."
+"Hehe, since he lacks a proper patron, then this Official shall find one for him." Wang Yehao smiled meaningfully. "I wonder if that Miss Pei suits Imperial Relative Tian's tastes."
 
 **(End of Chapter)**

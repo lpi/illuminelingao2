@@ -4,120 +4,120 @@
 
 Li Rufeng, however, held no hope. "The letters were probably burned."
 
-"No, the letters were not necessarily burned," Liao Sanniang said. "If he really got the idea after reading these two letters, the content must be crucial. How would he be willing to destroy them randomly? In my view, the matter of these two letters is grave and likely involves some particularly important secret, so he kept them himself—even the Emperor has 'keeping documents in the palace without dispatching'!"
+"Not necessarily," Liao Sanniang said. "If he truly conceived his plan after reading them, the content must be crucial. Why would he destroy something so important? In my view, the matter these letters contain is grave—likely involving some particularly important secret—so he kept them himself. Even the Emperor has 'palace-retained documents never dispatched'!"
 
-"Since that is the case, why burn the telegram draft?" Li Rufeng was puzzled.
+"Then why burn the telegram draft?" Li Rufeng asked, puzzled.
 
-Wu Kaidi pondered for a moment and said, "Right, most likely there is some secret in this letter. The matter is significant, and the Chief wanted to investigate it clearly before reporting to the Senate... Sanniang, you are right; these two letters might still be there."
+Wu Kaidi pondered for a moment. "Yes, most likely there is some secret in these letters. The matter is significant, and the Chief wanted to investigate thoroughly before reporting to the Senate... Sanniang, you are right. These letters might still exist."
 
-Hexiang hesitated, "Even if they are, they are not in the confidential files..."
+Hexiang hesitated. "Even if they do, they are not in the confidential files..."
 
-This matter became sensitive. If they were in the confidential files, given Wu Kaidi's status and the current emergency, he could access them normally. But if they were truly "kept in the palace without dispatching," then they would have to enter Senator Leng's private study to "search." This was not only overstepping authority but bordered on "great disrespect."
+This was where the matter became sensitive. If the letters were in the confidential files, Wu Kaidi's status and the current emergency would grant him normal access. But if they were truly "palace-retained," they would have to enter Senator Leng's private study to search. This was not only overstepping authority—it bordered on great disrespect.
 
-Everyone present fell silent. Searching a Senator's private study materials at this time, although not "treason and heresy," was somewhat "inappropriate." After all, no one knew what secrets were hidden in the Senator's private study and whether they could be exposed to the eyes of Naturalized Citizens.
+Everyone present fell silent. Searching a Senator's private materials at such a time, while not quite treason and heresy, was certainly inappropriate. After all, no one knew what secrets the Senator's private study might contain, or whether they could be exposed to the eyes of Naturalized Citizens.
 
-For a moment, no one dared to make this decision. In terms of power, Wu Kaidi and Hexiang were the highest-ranking Naturalized Citizen cadres in the Beijing Station. However, with Leng Ningyun missing, they were the two biggest suspects. So it was not quite appropriate for them to propose a "search."
+For a moment, no one dared make this decision. In terms of authority, Wu Kaidi and Hexiang were the highest-ranking Naturalized Citizen cadres at the Beijing Station. However, with Leng Ningyun missing, they were also the two biggest suspects. It was hardly appropriate for them to propose a search.
 
-Liao Sanniang scoffed, "You are all hesitating one by one; I know what you are thinking! How about this: since it is inconvenient for Master Wu and Miss Hexiang to speak much on this matter, let me say it: we must check Chief Leng's study."
+Liao Sanniang scoffed. "You are all hesitating, one by one. I know what you are thinking! How about this: since it is inconvenient for Master Wu and Miss Hexiang to speak much on this matter, let me say it—we must check Chief Leng's study."
 
-She glanced at everyone and added, "Speaking of this, it is indeed rash. But time waits for no one—during our training in Lingao, comrades from the National Police and Political Security Bureau said that there is a golden seventy-two hours for tracking missing persons. The longer the time drags on, the smaller the possibility of finding the person. So, this matter should not be delayed."
+She glanced at each of them in turn. "I admit, this is rash. But time waits for no one. During our training in Lingao, comrades from the National Police and Political Security Bureau taught us there is a golden window of seventy-two hours for tracking missing persons. The longer the delay, the smaller the chance of finding them. This matter cannot wait."
 
-Wu Kaidi said, "I don't oppose it. What about Miss Hexiang?" He looked at her after speaking.
+"I don't oppose it," Wu Kaidi said, then looked at Hexiang. "What about Miss Hexiang?"
 
-Hexiang said, "Since something happened to the Chief, I cannot escape responsibility. It is good to look for them. If we can help the Chief out of trouble a day earlier, everyone's responsibility will be lighter."
+"Since something happened to the Chief, I cannot escape responsibility," Hexiang replied. "It is good to look for them. If we can help the Chief out of trouble a day earlier, everyone's burden will be lighter."
 
-Thus, a consensus was reached, and they split into two groups. Hexiang and Li Rufeng went to search the private study, while Liao Sanniang and Wu Kaidi continued to question Leng Ningyun's personal staff.
+With consensus reached, they split into two groups. Hexiang and Li Rufeng went to search the private study, while Liao Sanniang and Wu Kaidi continued questioning Leng Ningyun's personal staff.
 
-The internal staff close to Leng Ningyun, apart from the four who had already died, only six remained. Although Liao Sanniang was somewhat suspicious of Hexiang at the beginning, after some questioning, her story was watertight. Moreover, she and Yanhong stayed in the inner residence year in and year out, practically never stepping out of the main gate or the second gate, having absolutely no channel for betrayal.
+The internal staff close to Leng Ningyun, apart from the four already dead, numbered only six. Although Liao Sanniang had initially harbored some suspicion of Hexiang, after thorough questioning, the woman's story proved watertight. Moreover, she and Yanhong remained in the inner residence year after year, practically never stepping past the main gate or the second gate, with absolutely no channel for betrayal.
 
-The remaining ones were two rough-work maids and two page boys. Although these four people often needed to go out due to work relations, all four were refugees from the north taken in from Shandong and Hangzhou. They had no relatives or friends in the capital, but had family members under the control of the Senate. The possibility of them betraying Delong was extremely small. With a little interrogation, Liao Sanniang ruled out their suspicion.
+The remaining staff consisted of two rough-work maids and two page boys. Although these four often needed to go out for their duties, all were refugees from the north, taken in from Shandong and Hangzhou. They had no relatives or friends in the capital, while their family members remained under the Senate's control. The possibility of any of them betraying Delong was extremely small. With brief interrogation, Liao Sanniang ruled out their suspicion.
 
-This questioning lasted until twilight. Liao Sanniang found nothing and was secretly anxious when Hexiang and Li Rufeng returned.
+The questioning lasted until twilight. Having found nothing, Liao Sanniang grew secretly anxious—just as Hexiang and Li Rufeng returned.
 
-"Are there letters?" Wu Kaidi asked first.
+"Are there letters?" Wu Kaidi asked immediately.
 
-"Yes." Li Rufeng's answer was very crisp. After speaking, he placed the document holder in his hand on the table. "There are two anonymous letters inside. Miss Hexiang has confirmed that they are the two sent that day."
+"Yes." Li Rufeng's answer was crisp. He placed the document holder in his hand on the table. "There are two anonymous letters inside. Miss Hexiang has confirmed they are the ones sent that day."
 
-Hexiang said, "We haven't opened the letters to look yet. We invite everyone to raise their eyes together and bear witness..."
+"We haven't opened them yet," Hexiang added. "We invite everyone to observe together and bear witness..."
 
-Wu Kaidi smiled bitterly. "At a time like this, what are we particular about? Just take the letters out." After speaking, he opened the document holder, and there were impressively two letters inside.
+Wu Kaidi smiled bitterly. "At a time like this, why stand on ceremony? Just take them out." He opened the document holder, revealing two letters inside.
 
-The envelopes were very ordinary, the common goods used by local merchants. The recipient's name and address were simply written in regular script with a brush, but there was no sender.
+The envelopes were very ordinary, the common sort used by local merchants. The recipient's name and address were written simply in regular script with a brush, but there was no sender.
 
-Wu Kaidi opened the envelops and pulled out the letters. Each letter was just a thin sheet of letter paper.
+Wu Kaidi opened the envelopes and withdrew the letters. Each contained just a thin sheet of letter paper.
 
-When the letter paper of the first letter was opened, all four were stunned.
+When the first letter was unfolded, all four of them stared in stunned silence.
 
-It turned out that there was no text on this letter, only several strange figures smeared with a brush.
+There was no text on this letter—only several strange figures smeared with a brush.
 
-All four of them had studied or lived in Lingao and knew there were several letters of the Red-Hairs and other Westerners inside, but this combination was the first time they had seen it, so they couldn't help being full of suspicion.
+All four had studied or lived in Lingao and recognized some letters of the Red-Hairs and other Westerners among them, but this particular combination was unlike anything they had seen before. They could not help but feel bewildered.
 
-Wu Kaidi said, "What kind of ghost talisman is this?!"
+"What kind of ghost talisman is this?!" Wu Kaidi exclaimed.
 
-Hexiang also felt it was strange and said, "There are a few Western letters in here, but I can't understand what the rest are..."
+Hexiang found it equally strange. "There are a few Western letters in here, but I cannot understand what the rest are..."
 
-Liao Sanniang said, "Don't be anxious; look at the second one."
+"Don't be hasty," Liao Sanniang said. "Look at the second one."
 
-The second one was opened, and it was a proper letter, but only with a few words.
+The second letter was opened. It was proper correspondence, though containing only a few words:
 
 "Master Leng, the matter in yesterday's letter is appropriate. If you wish to know the reason, please meet at the Wild Tea House at Caoqiao outside Xizhimen on the twenty-ninth of the twelfth lunar month. Come with a light carriage and few attendants."
 
-The signature below was "Known but not named."
+Below the message, the signature read: "Known but not named."
 
-Now the few people were all in a fog. They turned the letters over and over and looked at them several times. Liao Sanniang even roasted the letter paper and envelope over fire, but saw nothing.
+Now they were all utterly lost. They turned the letters over and over, examining them several times. Liao Sanniang even roasted the letter paper and envelope over fire, but nothing new appeared.
 
-"I know the Wild Tea House at Caoqiao. It's about two *li* away from the place where the crime occurred." Li Rufeng said, "Apart from passersby stopping for a meal, there are also quite a few people who go there to drink tea and enjoy the scenery on ordinary days."
+"I know the Wild Tea House at Caoqiao," Li Rufeng said. "It is about two *li* from where the crime occurred. Besides passersby stopping for a meal, quite a few people go there to drink tea and enjoy the scenery on ordinary days."
 
-"Master Leng was hooked away by such a letter; obviously, the mystery lies in this letter we can't understand..." Wu Kaidi scrutinized this "ghost talisman." Could it be that some spell was cast on this letter, hooking Master Leng's soul away at once?
+"Master Leng was lured away by such a letter; obviously, the mystery lies in this one we cannot understand..." Wu Kaidi scrutinized the strange symbols. Could some spell have been cast on this letter, hooking Master Leng's soul away at once?
 
-Liao Sanniang said, "Master Wu, you have also been to Lingao for training; how can you speak such nonsensical words! This letter is probably some code. We don't understand it, but Master Leng understands. He knew this matter was of great importance, so he took the risk to go to the appointment—it is signed 'Known but not named,' so mostly it is someone Master Leng knows or knows of..."
+Liao Sanniang cut him off. "Master Wu, you have also trained in Lingao. How can you speak such nonsense? This letter is probably some kind of code. We don't understand it, but Master Leng does. He knew the matter was of great importance, so he took the risk to meet them. It is signed 'Known but not named'—most likely someone Master Leng knows, or knows of..."
 
-When she said this, Wu Kaidi and the others compared the context and felt it made quite a lot of sense.
+As she spoke, Wu Kaidi and the others considered the context and found her reasoning quite sound.
 
-Li Rufeng took the letter, examined it carefully, and sniffed it close to his nose. He said, "The calligraphy of this letter is quite clumsy; it was probably not written by a serious scholar. The ink smells bad, and the ink traces are messy. The Four Treasures of the Study used were not exquisite items. The person who wrote it was either a scribe for hire or a shop assistant or accountant in some store."
+Li Rufeng took the letter, examined it carefully, and sniffed it close to his nose. "The calligraphy is rather clumsy; it was probably not written by a serious scholar. The ink smells bad, and the ink traces are messy. The Four Treasures of the Study used were not fine items. The person who wrote this was either a hired scribe, or a shop assistant, or an accountant in some store."
 
-Originally, they thought finding the letters would reveal some important clues, but they didn't expect such a result! The few people couldn't help feeling somewhat disheartened.
+Originally, they had thought finding the letters would reveal important clues—but they had not expected such a result. The group could not help but feel somewhat disheartened.
 
-Seeing everyone somewhat discouraged, Li Rufeng cheered them up, "At least we know the bandits went to the Wild Tea House at Caoqiao. There are many people coming and going to rest in that tea house on ordinary days. If we send some people to inquire, we can always get some news."
+Seeing their discouragement, Li Rufeng tried to rally them. "At least we know the bandits went to the Wild Tea House at Caoqiao. Many people come and go to rest there on ordinary days. If we send people to inquire, we should be able to gather some news."
 
-Just as he spoke to this point, he was interrupted by three knocks on the door. Then the porter keeping watch in the courtyard pushed the door open and entered, reporting, "Little Bazi and the others are back."
+Just as he spoke, three knocks sounded at the door. The porter keeping watch in the courtyard pushed it open and entered. "Little Bazi and the others are back."
 
-Li Rufeng and Liao Sanniang looked at each other and immediately knew there was some progress on the matters arranged when they returned just now.
+Li Rufeng and Liao Sanniang exchanged a glance, immediately understanding there had been progress on the matters they had arranged upon their return.
 
-Liao Sanniang nodded to the porter. Before long, two porters walked in escorting a person with a gunny sack over his head. A porter kicked the person in the bend of his leg, and the person immediately kneeled down with a thump. The porter then pulled off the head cover, revealing the person's face. It was a handsome young man in his early twenties.
+Liao Sanniang nodded to the porter. Before long, two porters walked in, escorting a person with a gunny sack over his head. One of them kicked the captive behind the knee, and the man immediately dropped to his knees with a thump. The porter then pulled off the hood, revealing his face—a handsome young man in his early twenties.
 
-Liao Sanniang walked towards the young man. When she moved, the hem of her cloak did not sway or move, like a floating ghost. She walked in front of the young man, extended her right index finger, gently lifted the young man's chin, giggled, and said, "What a romantic and dashing powder-faced lad, so cute it makes one feel pity."
+Liao Sanniang walked toward him. When she moved, the hem of her cloak did not sway or stir, as though a ghost were floating forward. She stopped before the young man, extended her right index finger, gently lifted his chin, and giggled. "What a romantic and dashing powder-faced lad. So adorable it makes one feel pity."
 
-Seeing Liao Sanniang, the young man trembled ceaselessly and knocked his head repeatedly, begging for mercy, "Sanniangzi, spare my life."
+Seeing Liao Sanniang, the young man trembled uncontrollably and knocked his head repeatedly against the floor. "Sanniangzi, spare my life!"
 
-Liao Sanniang said softly, "Oh? Spare you for what?"
+Liao Sanniang spoke softly. "Oh? Spare you for what?"
 
-The young man said, "This lowly one does not know how I offended Sanniangzi; I hope Sanniangzi will explain clearly."
+"This lowly one does not know how I offended Sanniangzi," the young man stammered. "I hope Sanniangzi will explain clearly."
 
-Liao Sanniang did not look at him but looked at the porter Little Bazi beside the young man.
+Liao Sanniang did not look at him. Instead, she turned her gaze to the porter Little Bazi standing beside the captive.
 
-Little Bazi understood and said to Liao Sanniang, "Sanniangzi, this hooligan is called Wang Shizhen. Previously, when he started, he dominated a few local prostitutes. Later, he made some money and grew bigger, gathering fifteen or sixteen idlers in Xianyi Ward and controlling over twenty unlicensed prostitutes. Every day near evening, he orders the unlicensed prostitutes to stand by the gates outside various wine shops to solicit customers. A month ago, he suddenly found a Top-tier Courtesan. He is just a filthy rascal from the dirt; how could he touch such high-quality goods? And that courtesan hooked up with Steward Zhang of Delong within a few days..."
+Little Bazi understood and addressed Liao Sanniang. "Sanniangzi, this hooligan is called Wang Shizhen. When he started out, he dominated a few local prostitutes. Later, he made some money and grew his operation, gathering fifteen or sixteen idlers in Xianyi Ward and controlling over twenty unlicensed prostitutes. Every day near evening, he orders them to stand by the gates outside various wine shops to solicit customers. A month ago, he suddenly acquired a Top-tier Courtesan. He is just a filthy rascal from the dirt—how could he touch such high-quality goods? And that courtesan hooked up with Steward Zhang of Delong within a few days..."
 
-This Steward Zhang was the one in charge of general affairs in Delong. The daily miscellaneous matters in Delong and Leng Ningyun's residence were all managed by him. Although it was not a critical post, he could access Leng Ningyun's schedule.
+This Steward Zhang was the one in charge of general affairs at Delong. All the daily miscellaneous matters in Delong and Leng Ningyun's residence were managed by him. Although it was not a critical post, he had access to Leng Ningyun's schedule.
 
-Hearing this, Liao Sanniang sighed and said, "Our power in the capital is ultimately too small. Delong's spread is too big, and with many people, we really can't look after the messy matters in their crotches and money bags. Ultimately, it was an oversight. Such shoddy goods like Steward Zhang were also recruited."
+Hearing this, Liao Sanniang sighed. "Our power in the capital is ultimately too limited. Delong's reach is too wide, and with so many people, we really cannot watch over the messy matters in their crotches and money bags. It was an oversight. Such shoddy goods as Steward Zhang were also recruited."
 
-Liao Sanniang turned her face to Wang Shizhen and said indifferently, "Who told you to do it? I want to hear the truth."
+Liao Sanniang turned her face toward Wang Shizhen and spoke with cold indifference. "Who told you to do it? I want to hear the truth."
 
-Wang Shizhen knocked his head, straightened his upper body, put on a rascal face appearing like a dead pig not afraid of boiling water, and said, "Sanniangzi, please perceive clearly. How dares this lowly one deceive you? I really don't know what it is about."
+Wang Shizhen knocked his head against the floor, then straightened his upper body. He put on a rascal's expression—like a dead pig unafraid of boiling water. "Sanniangzi, please perceive clearly. How dares this lowly one deceive you? I really do not know what this is about."
 
-Liao Sanniang's hand suddenly shook, and she slapped Wang Shizhen with her right hand. Her posture for slapping was very strange; her shoulder and upper arm did not move, only her forearm shook, with an extremely small amplitude of movement. Even her cloak didn't move a bit.
+Liao Sanniang's hand suddenly twitched. Her right hand shot out in a slap. The motion was strange: her shoulder and upper arm remained perfectly still, only her forearm snapping forward with an extremely small amplitude of movement. Even her cloak did not stir.
 
-Wang Shizhen received a crisp and loud slap on the face. Five bloody ridges immediately rose on his left face, and it swelled up instantly.
+Wang Shizhen received a crisp, loud blow across the face. Five bloody ridges rose immediately on his left cheek, which swelled up at once.
 
-Liao Sanniang's expression did not change at all. She still said indifferently, "I want to hear the truth."
+Liao Sanniang's expression did not change. She spoke with the same cold indifference. "I want to hear the truth."
 
-Wang Shizhen spat out a mouthful of bloody foam and said, "This lowly one does not know what it is about."
+Wang Shizhen spat out a mouthful of bloody foam. "This lowly one does not know what it is about."
 
-Liao Sanniang flicked her forearm, and with a backhand, gave another slap. Wang Shizhen's left face also swelled up immediately.
+Liao Sanniang flicked her forearm and delivered a backhand slap. Wang Shizhen's right cheek swelled up immediately as well.
 
-Liao Sanniang repeated stiffly, "I want to hear the truth."
+She repeated, her voice flat and hard. "I want to hear the truth."
 
-Wang Shizhen still said, "This lowly one does not know."
+Wang Shizhen still answered. "This lowly one does not know."
 
 **(End of Chapter)**

@@ -1,115 +1,115 @@
 # Chapter 2751: The Capital (Part 107)
 
-"The only plan for now is to endure temporarily. Facilitate peace negotiations," Mr. Le said somewhat disappointedly.
+"For now, our only option is to endure and facilitate peace negotiations," Mr. Le said, a note of disappointment in his voice.
 
-"Peace negotiations..." Qian Taichong thought about how the Emperor had indeed revealed such intentions during the audience today, but then thought about the capital gazttes he had read recently and shook his head. "The Imperial Court recently discussed levying the Guangdong Tax to prepare for suppressing the Kun. Since things have come to this, how can we talk about peace negotiations? Moreover, the Kun scoundrels have always had wild ambitions and insatiable greed. They view the Imperial Court as an enemy. When this student was in Lingao, whenever the Great Ming was mentioned, it was either 'False' or 'Usurper', showing a great intention to regard themselves as legitimate..."
+"Peace negotiations..." Qian Taichong recalled how the Emperor had indeed hinted at such intentions during today's audience. But then he thought of the capital gazettes he had read recently and shook his head. "The Imperial Court has been discussing the Guangdong Tax to fund the suppression of the Kun. Given how far things have progressed, how can we speak of peace negotiations? Besides, those Kun scoundrels have always harbored wild ambitions and insatiable greed. They view the Imperial Court as their enemy. When I was in Lingao, whenever the Great Ming was mentioned, they would call it either 'False' or 'Usurper'—clearly intending to position themselves as the legitimate authority..."
 
-"Not so, not so." Zhou Lezhi immediately explained in detail the current internal disputes within the Senate regarding marching south versus north, and the pressure on finances caused by the sudden increase in ruling costs after occupying Liangguang.
+"Not so, not so." Zhou Lezhi immediately launched into a detailed explanation of the current internal disputes within the Senate regarding whether to march south or north, and the financial pressures caused by the sudden increase in administrative costs after occupying Liangguang.
 
-Qian Taichong was more surprised the more he listened. Among the scholars in the Great Ming territory who could be called "knowing the Kun", he could be ranked among the best. Not only had he fought with the Kun scoundrels, but he had also been a captive of the Kun scoundrels, received training, and done clerical work. When he was released, he received an invitation to stay deeply employed. If he hadn't been unwilling to "follow the thieves", he would be a "fake Kun" by now, maybe even a "cadre" in some county in Liangguang.
+The more Qian Taichong listened, the more astonished he became. Among scholars in Great Ming territory who could claim to "know the Kun," he ranked among the finest. Not only had he fought against them, but he had also been their captive, received their training, and performed clerical work for them. When released, he had even received an invitation to stay on as a permanent employee. Had he not been unwilling to "follow the bandits," he would be a "Fake Kun" by now—perhaps even a "cadre" in some county in Liangguang.
 
-Speaking of understanding the Kun scoundrels' system, internal situation, and personnel, he believed that no second person in the Great Ming knew so thoroughly.
+When it came to understanding the Kun's systems, internal situation, and personnel, he believed no one else in the Great Ming possessed such thorough knowledge.
 
-Unexpectedly, after talking with this Mr. Le, he realized that his own knowledge was truly like a drop of water in the ocean.
+Yet after conversing with this Mr. Le, he realized his own understanding was truly but a drop in the ocean.
 
-Ideally, the one who truly understood the "Imperial Court" of the Kun scoundrels and knew the "Senator's mind" was only this Mr. Le in front of him!
+It seemed the one who truly understood the Kun's "Imperial Court" and knew the "Senators' minds" was none other than this Mr. Le before him!
 
-He was surprised: "Sir has great talent! To actually know the Kun scoundrels so thoroughly..."
+"Sir possesses great talent!" he exclaimed. "To know the Kun so thoroughly..."
 
-He suddenly realized that when this eloquent young man in front of him spoke of the Kun scoundrels, he had quite the temperament of the Real Kun and Fake Kun he had seen in Lingao. Could it be that he is...
+He suddenly noticed that when this eloquent young man spoke of the Kun, he carried quite the same bearing as the Real Kun and Fake Kun he had encountered in Lingao. Could it be that he was...
 
-Mr. Le seemed to know what he was thinking and sighed: "It would be good if I were!"
+Mr. Le seemed to read his thoughts and sighed. "Would that I were!"
 
 "Why does Sir say this?"
 
-"If I were a Kun scoundrel, I would definitely try to persuade the Senators to be friendly with the Great Ming. We are all of the Huaxia lineage; why attack each other! Wasting money, grain, and human lives in vain, and letting the barbarians take advantage!" Speaking of this, he couldn't help but get excited.
+"If I were one of the Kun, I would certainly try to persuade the Senators to seek friendship with the Great Ming. We are all of the Huaxia lineage—why should we attack one another! Wasting money, grain, and lives for nothing, while letting the barbarians profit from our strife!" Speaking of this, he grew visibly animated.
 
-Qian Taichong said: "What Sir says is extremely true. It's just that even if the Kun scoundrels are willing to negotiate peace for a while, I'm afraid they will turn their faces ruthlessly in the future..."
+"What Sir says is absolutely true," Qian Taichong replied. "It is only that even if the Kun are willing to negotiate peace for now, I fear they will turn on us ruthlessly in the future..."
 
-Mr. Le sighed: "In the current situation, dragging it out for a moment is a moment. Besides, the Kun scoundrels are humans, and my Great Ming's officials, gentry, and common people are also humans. If they can build big cannons and fire-wheel ships, can't we build them?"
+Mr. Le sighed. "In our current situation, every moment we can delay is a moment gained. Besides, the Kun are human, and the officials, gentry, and common people of our Great Ming are also human. If they can build great cannons and fire-wheel ships, why can we not do the same?"
 
-"But we have no one who understands these. When this student was in Lingao, all machinery and appliances were manufactured by the Real Kun and taught to the Fake Kun to use. The Fake Kun only knew how to follow the rules. They knew nothing about the reasons within. Important machinery was absolutely not put in the hands of the Fake Kun."
+"But we have no one who understands such things. When I was in Lingao, all machinery and implements were manufactured by the Real Kun and taught to the Fake Kun for operation. The Fake Kun only knew how to follow established procedures—they understood nothing of the underlying principles. Important machinery was never entrusted to Fake Kun hands."
 
-"If we don't understand, just let the Kun scoundrels teach us," Zhou Lezhi said. "Master the Kun skills to resist the Kun."
+"If we do not understand, then let the Kun teach us," Zhou Lezhi said. "Master the Kun's skills to resist the Kun."
 
-Qian Taichong only felt that this Mr. Le was indulging in wild fantasy and said: "The Kun scoundrels and the Great Ming are enemy states. Even if both sides can negotiate peace, how could the Kun scoundrels come to teach?"
+Qian Taichong felt this Mr. Le was indulging in fantasy. "The Kun and the Great Ming are enemy states. Even if both sides can negotiate peace, why would the Kun come to teach us?"
 
-"Hehe, Sir does not know. The Kun scoundrels govern the country as merchants, and their nature is the most greedy. As long as there is silver to earn, how can they not earn it?" Zhou Lezhi smiled contemptuously. "Sir probably knows that in these years, various military towns have purchased many so-called Nanyang guns, right?"
+"Heh, Sir does not realize something." Zhou Lezhi smiled with contempt. "The Kun govern their domain as merchants, and their nature is supremely greedy. As long as there is silver to be earned, how could they refuse to earn it?" He continued, "Sir is probably aware that in recent years, various military garrisons have purchased many so-called Nanyang guns, correct?"
 
-"I have heard a little; I heard they are guns from the Kun scoundrels."
+"I have heard something of it. They say these guns come from the Kun."
 
-"Exactly. With the two countries at war, they still sell such sharp weapons for killing. How is it different from handing a knife to someone?" Zhou Lezhi sneered. "Not to mention the Kun scoundrels, even for the Great Ming, the merchants of the Shanxi family trade at Shahukou and various border walls, saying they do business with the Mongols, but in reality, they are all trading with the Tartars. The Tartars' ironware and grain are mostly obtained from sales within the pass!"
+"Precisely. With two nations at war, they still sell such lethal weapons. How is that any different from handing a blade to one's enemy?" Zhou Lezhi sneered. "And it is not just the Kun. Even within the Great Ming, merchants of the Shanxi clans trade at Shahukou and various border walls. They claim to do business with the Mongols, but in truth, they trade with the Tartars. The Tartars' ironware and grain are mostly obtained from sales within the pass!"
 
-"There is actually such a thing!" Qian Taichong felt blood rushing to his head; he didn't expect such things to exist. "Does the Imperial Court not care?"
+"Such things actually occur!" Qian Taichong felt blood rushing to his head; he had never expected this. "Does the Imperial Court not intervene?"
 
-"The Imperial Court naturally wants to care, but with this profit of one gaining ten, as long as it is achieved, who is willing to let go? Since ancient times, it is said that no one does a losing business, but someone does a business that risks beheading. let alone this ten-fold, twenty-fold profit!"
+"The Imperial Court naturally wishes to intervene, but with profits of ten for every one invested, once achieved, who would willingly let go? Since ancient times, it is said that no one engages in losing business, yet plenty engage in business that risks beheading—let alone when the profits are tenfold or twentyfold!"
 
-Qian Taichong was dumbfounded. In these years, he had been tossing about around Zheng Sen and indeed hadn't paid attention to the domestic situation. He didn't expect it to have eroded to this point!
+Qian Taichong sat dumbfounded. In recent years, he had been occupied with affairs around Zheng Sen and had paid little attention to the domestic situation. He never imagined things had deteriorated to this extent!
 
-"Mr. Qian, you have stayed in Zhangzhou Bay for too long. Do you not understand the situation outside at all?" Zhou Lezhi said slowly, "The Imperial Court's situation is already as precarious as a pile of eggs! Punishing the Kun is quick death; negotiating peace can still save a breath. Mastering the Kun's superior skills to strengthen ourselves and planning slowly, perhaps there is still salvation!"
+"Mr. Qian, you have stayed in Zhangzhou Bay for too long. Are you truly unaware of the situation beyond?" Zhou Lezhi spoke deliberately. "The Imperial Court's position is already as precarious as a pile of eggs! Attacking the Kun means swift death; negotiating peace can at least preserve a breath of life. Mastering the Kun's superior skills to strengthen ourselves and planning carefully—perhaps there is still hope for salvation!"
 
-Qian Taichong shivered and praised loudly: "What a 'Master the Kun skills to strengthen ourselves'! One word from Sir is better than ten years of reading poetry and books!"
+Qian Taichong shivered and exclaimed, "What an insight—'Master the Kun's skills to strengthen ourselves'! One word from Sir surpasses ten years of reading poetry and books!"
 
-"You flatter me. This is actually not my own insight either. The Yuyuan Society in Guangzhou has the largest collection of Kun books and knows the most about the Kun situation. It's just that with the fall of Liangguang, the members are scattered, and these collections probably can't be preserved..."
+"You flatter me. This is not actually my own insight. The Yuyuan Society in Guangzhou possesses the largest collection of Kun texts and understands their situation better than anyone. Unfortunately, with the fall of Liangguang, its members have scattered, and those collections probably cannot be preserved..."
 
-Qian Taichong hesitated slightly and asked: "This head of the Yuyuan Society, I heard he is Master Liang Cunhou?"
+Qian Taichong hesitated slightly before asking, "The head of this Yuyuan Society—I have heard it is Master Liang Cunhou?"
 
 "Oh, you know him?"
 
-"I know a little." Qian Taichong hid a little; in fact, Liang Cunhou had sent someone to contact him, intending to rope in the remnant forces of the Zheng family, and he even made a special trip to Guangzhou to discuss it. It was just that Liang Cunhou later discovered that the Zheng clique was torn apart, so the intention of alliance could not be realized.
+"Somewhat." Qian Taichong concealed the full truth; in fact, Liang Cunhou had sent someone to contact him with the intention of recruiting the remnant forces of the Zheng family. He had even made a special trip to Guangzhou to discuss the matter. It was only when Liang Cunhou later discovered how fragmented the Zheng faction had become that plans for an alliance could not be realized.
 
-"Master Liang is loyal to the Imperial Court! Unfortunately, trapped in Guangzhou, living among tigers and wolves, I'm afraid he can hardly protect himself," Zhou Lezhi sighed.
+"Master Liang is loyal to the Imperial Court! Unfortunately, trapped in Guangzhou, living among tigers and wolves, I fear he can hardly protect himself." Zhou Lezhi sighed.
 
-"It is a pity; the Liang family is a prestigious family in Guangdong..."
+"It is indeed a pity. The Liang family is a prestigious house in Guangdong..."
 
-"Even if it is a prestigious family, it probably won't play any role at this moment. I only worry..." Zhou Lezhi frowned, "He can't hold back and will waste his life in vain!"
+"Even a prestigious family probably counts for nothing at this moment. I only worry..." Zhou Lezhi frowned. "That he will not restrain himself and will waste his life in vain!"
 
-Speaking of this, the two sat facing each other, sighing. After a while, Qian Taichong laughed: "You and I should work together for the Imperial Court to recover the Divine Land. Why make the sigh of Xinting?"
+At this, the two sat facing each other, sighing. After a while, Qian Taichong laughed. "You and I should work together for the Imperial Court to recover the Divine Land. Why make the lament of Xinting?"
 
-"Sir is right!" Zhou Lezhi laughed. "In the future, when handling Kun affairs, I will still need Sir's great assistance."
+"Sir is right!" Zhou Lezhi laughed in return. "In future matters concerning the Kun, I shall still need Sir's great assistance."
 
-"I am willing, only the Young Master..."
+"I am willing—only, the Young Master..."
 
-"Sir, if you only focus your eyes on this tiny Zhangzhou Bay, even if the Emperor is willing to lend you a hand, the Zheng family cannot return to the past."
+"Sir, if you keep your eyes fixed only on that tiny Zhangzhou Bay, even if the Emperor is willing to lend a hand, the Zheng family cannot return to its former glory."
 
-Qian Taichong was dumb for a moment, and only after a while did he say: "This student only seeks a clear conscience."
+Qian Taichong was struck silent. Only after a long moment did he say, "This student seeks only a clear conscience."
 
-Zhou Lezhi smiled: "I, on the other hand, believe that if Sir wants to revitalize the Zheng family, you must start from this 'Kun affair'."
+Zhou Lezhi smiled. "I, on the other hand, believe that if Sir wishes to revitalize the Zheng family, you must begin with these 'Kun affairs.'"
 
-Qian Taichong was startled, and after thinking again, he laughed: "Sir does not know about this. If we talk about dealings with the Kun scoundrels, Zheng Lian and Zheng Cai have long been doing it."
+Qian Taichong started, and after further reflection, he laughed. "Sir does not know the full picture. When it comes to dealings with the Kun, Zheng Lian and Zheng Cai have long been engaged in such trade."
 
-Although the Kun scoundrels blockaded the Zheng family's overseas trade channels, they did not cut off the Zheng family's trade. Therefore, the various factions of the fragmented Zheng clique turned into product suppliers on the spot, selling all kinds of Fujian products to the "Kun merchants" who came to Zhangzhou to trade.
+Although the Kun had blockaded the Zheng family's overseas trade channels, they had not severed the Zheng family's commerce entirely. Thus, the various factions of the fragmented Zheng clan had transformed into local suppliers, selling all manner of Fujian products to the "Kun merchants" who came to Zhangzhou for trade.
 
-"...Although they hang all kinds of signs, one can know with their heels that most of them are the Kun scoundrels' properties, or otherwise, merchants supported by the Kun scoundrels."
+"...Though these merchants operate under various names, one can tell at a glance that most are either Kun properties or merchants backed by the Kun."
 
-These merchants came to various places in Zhangzhou Bay, buying raw materials on a large scale and dumping various "Kun goods" and the table salt that Fujian lacked. Business was very booming.
+These merchants traveled to various locations around Zhangzhou Bay, purchasing raw materials on a large scale and flooding the market with assorted "Kun goods" and the table salt that Fujian so desperately lacked. Business was exceedingly brisk.
 
-"...It just happens that Anping is the poorest. Back then, the Kun scoundrels broke the city and stripped Anping bare, leaving nothing behind. Rebuilding the residence and city walls cost a lot of money. As for the Zheng family's trade routes and shops, the Young Master didn't touch a bit of them. Now we can only rely on a few farm manors and a few thousand mu of land to collect rent for a living! Even these few thousand mu of land cannot escape their coveting!" Qian Taichong sighed. "If not for this, I wouldn't have rashly come to the Capital to find a channel!"
+"...As it happens, Anping is the poorest of all. Back when the Kun broke the city, they stripped Anping bare—nothing remained. Rebuilding the residence and city walls cost a fortune. As for the Zheng family's trade routes and shops, the Young Master did not touch any of them. Now we can only rely on a few farming estates and several thousand mu of land to collect rent for our livelihood! Even these few thousand mu cannot escape the covetous eyes of others!" Qian Taichong sighed. "Were it not for this, I would not have rashly come to the Capital seeking a way forward!"
 
-"Do the Kun scoundrels also have business dealings with you?"
+"Do the Kun also conduct business with you?"
 
-"Naturally, they do. It's just that I have nothing but fish catches and rice here, which can't sell for a good price."
+"Naturally, they do. It is simply that I have nothing but fish catches and rice here, which cannot fetch a good price."
 
 "Why not plant sugarcane?"
 
-"Plant sugarcane?" Qian Taichong was stunned; he really hadn't thought about this. First, he was not a Fujianese; second, he was very unfamiliar with farming. He more or less still had the concept of "grain as the foundation." "This has never been thought of. However, the farm manors have always grown sugarcane. If we switch to other crops, I'm afraid the tenants won't know how."
+"Plant sugarcane?" Qian Taichong was taken aback; he truly had not considered this. First, he was not a Fujianese native; second, he was quite unfamiliar with farming. He still more or less held to the concept of "grain as the foundation." "This has never occurred to me. However, the farming estates have always grown sugarcane. If we were to switch to other crops, I fear the tenants would not know how."
 
-"Now everywhere in Fujian grows sugarcane. If you want to switch, presumably it's not difficult," Zhou Lezhi said. "The Kun scoundrels have two biggest businesses." He held up one finger, "Silk." Then he held up a second finger, "Sugar."
+"Nowadays, sugarcane is grown everywhere in Fujian. If you wish to make the switch, presumably it would not be difficult," Zhou Lezhi said. "The Kun have two main businesses." He held up one finger. "Silk." Then he raised a second finger. "Sugar."
 
-He said slowly: "As long as you have sugarcane, you don't have to worry about not being able to sell it. And... you can run a sugar factory yourself, turn the sugarcane into sugar, and then sell it to the Kun scoundrels. You can earn a lot more money."
+He continued slowly, "As long as you have sugarcane, you need not worry about finding buyers. And... you could operate a sugar factory yourself, turn the sugarcane into sugar, then sell it to the Kun. You would earn considerably more."
 
-Plant sugarcane? Make sugar? Qian Taichong pondered for a moment and said, "Sir's idea is excellent, but running a sugar factory and boiling sugar is more difficult than planting sugarcane. Where to find such manpower..."
+Plant sugarcane? Produce sugar? Qian Taichong pondered for a moment before replying, "Sir's idea is excellent, but operating a sugar factory and boiling sugar is more difficult than planting sugarcane. Where would I find such skilled workers..."
 
-"Naturally, go ask the Kun scoundrels for teaching."
+"Naturally, you would ask the Kun for instruction."
 
-Qian Taichong was dumbfounded. After a long while, he said: "Sir, do not joke! Although this student has business dealings with the Kun scoundrels, this sugar is the capital for their rise to fortune. How could they be willing to teach the art of sugar making to us? Wouldn't they earn more by buying sugarcane at a low price, making sugar, and selling it at a high price?"
+Qian Taichong was dumbstruck. After a long pause, he said, "Sir jests! Although I conduct business with the Kun, sugar is the very foundation of their fortune. How could they be willing to teach the art of sugar-making to us? Would they not profit more by purchasing sugarcane cheaply, producing sugar themselves, and selling it at high prices?"
 
-"Hehe, this is Sir knowing one but not knowing two," Zhou Lezhi laughed. "To open a sugar factory and make sugar, you need workers, a site, housing, and warehouses... Before the sugar is made, your seven necessities for opening the door all require money everywhere. This sugar factory requires huge investment, yet can only operate for less than half a year. In comparison, by directly buying your sugar and selling it to Westerners and Easterners, they save the expense of processing. Isn't it more profitable? You calculate the accounts in this!"
+"Heh, this is a case of Sir knowing one thing but not another," Zhou Lezhi laughed. "To establish a sugar factory and produce sugar, you need workers, a site, buildings, and warehouses... Before any sugar is made, your daily necessities require expenditure at every turn. Such a factory demands enormous investment, yet can only operate for less than half the year. In comparison, by simply purchasing your sugar and selling it to the Westerners and Easterners, they save the expense of processing. Is that not more profitable? Consider the accounts!"
 
-Qian Taichong was still a bit confused. Seeing that his brain couldn't turn the corner for a while, Zhou Lezhi reminded him: "Not talking about sugar, just talk about rice. Is it the farmer who grows rice and sells grain who makes more money, or the grain merchant?"
+Qian Taichong remained somewhat confused. Seeing that his mind could not quite grasp the logic, Zhou Lezhi offered a reminder: "Setting aside sugar, let us speak of rice. Who earns more—the farmer who grows rice and sells grain, or the grain merchant?"
 
-Now Qian Taichong suddenly realized and said: "That's it! Those clad in silk are not the silkworm rearers!"
+Now Qian Taichong's understanding suddenly cleared. "So that is how it works! Those clad in silk are not the ones who rear silkworms!"
 
-"That's it. What the Kun scoundrels want are commercial channels. This is also the most profitable thing. Making sugar is not a matter of state strategy. If you want to do it, they will be eager for it." Saying this, he mentioned that in Lingao and Guangzhou, the Kun scoundrels had solicited merchants to build factories and transferred technology and equipment.
+"Precisely. What the Kun desire are commercial channels. That is where the greatest profits lie. Sugar production is not a matter of state strategy. If you wish to pursue it, they would eagerly welcome the arrangement." He went on to mention that in Lingao and Guangzhou, the Kun had invited merchants to establish factories and had transferred technology and equipment.
 
-"...Guangzhou also auctioned several projects. The Kun scoundrels helped build factories and train craftsmen, and even the machines were arranged by them. If you want to run a sugar factory, you can also follow this method."
+"...Guangzhou has also auctioned off several projects. The Kun helped construct factories and train craftsmen—even the machinery was arranged by them. If you wish to operate a sugar factory, you could follow the same approach."

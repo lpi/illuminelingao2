@@ -1,115 +1,115 @@
 # Chapter 2863: Extra Number (2)
 
-Today, Yang Zhaodi didn't evade like before. She bravely met his gaze with her eyes, clearly waiting for his next words. Perhaps just one right sentence would change everything, but which one should he say? Tan Shuangxi felt a suffocating tension, his whole body heating up, almost able to hear the pounding of his own heartbeat.
+Today, Yang Zhaodi did not evade as she had before. She met his gaze bravely, her eyes clear and expectant, waiting for whatever words might come next. Perhaps a single sentence—the right one—could change everything. But which words should he choose? Tan Shuangxi felt a suffocating tension, heat spreading through his entire body. He could almost hear the pounding of his own heartbeat.
 
-Chen Shixin had Old Zhang lead the girls to the changing room to try on clothes. Watching Tan Shuangxi and Yang Zhaodi gazing into each other's eyes, he seemed to understand something. The corner of his mouth couldn't help but curl up. If possible, he really wished he could turn the camera around to capture this scene. No, the camera wouldn't work—photos only had lines and light and shadow. Only his paintbrush could record the tense and longing atmosphere of this moment, that throbbing and trembling feeling. A desire to create rose from his heart.
+Chen Shixin had Old Zhang escort the girls to the changing room to try on clothes. Watching Tan Shuangxi and Yang Zhaodi locked in that silent exchange of gazes, he seemed to understand something. The corner of his mouth curved upward despite himself. If only he could swing the camera around to capture this moment. No—a camera would not suffice. Photographs rendered only lines and the interplay of light and shadow. Only his paintbrush could truly record the tense longing of this moment, that trembling, yearning quality in the air. A desire to create stirred within him.
 
-"Zhaodi, why don't you take the photo with us... We're all folks from the same village, practically family." Breaking this tense atmosphere were Tan Shuangxi's parents, who could no longer stand watching this scene. Apparently, they were quite interested in this prospective daughter-in-law.
+"Zhaodi, why don't you join us for the photo? We're all from the same village—practically family." The voice that shattered the tension belonged to Tan Shuangxi's parents, who could no longer bear to watch. Clearly, they were quite taken with this prospective daughter-in-law.
 
-There was a touch of cunning in this, using this excuse to test the girl's attitude.
+There was a touch of cunning in it—using the invitation as a pretext to test the girl's feelings.
 
-"That wouldn't be appropriate. I'll just watch you take yours here." Yang Zhaodi broke free from the tense atmosphere just now and retreated to the side of the camera with a smile.
+"That wouldn't be appropriate. I'll just watch from over here." Yang Zhaodi broke free from the charged atmosphere, retreating to stand beside the camera with a graceful smile.
 
-Tan Shuangxi felt slightly disappointed, but he couldn't show it and could only sit down first.
+Tan Shuangxi felt a twinge of disappointment, though he could not let it show. He sat down first.
 
-"Come, come, come, look here. Begin..." With Chen Shixin's command, Tan Shuangxi again entered a clay-sculpture-like state. Unlike the mechanical stiffness just now, at this moment his mind was thinking: maybe he would never see her again after this. The requirement to stay still in this pose allowed him to use this opportunity to conceal his innate shyness, his gaze all frozen on Yang Zhaodi. And Yang Zhaodi also maintained a smile watching him throughout, like a magnolia flower quietly blooming in the night.
+"Come now, look here. Ready..." At Chen Shixin's command, Tan Shuangxi entered that statue-like stillness once more. Unlike his mechanical stiffness before, his mind now raced with a single thought: perhaps he would never see her again after this. The requirement to hold perfectly still gave him license to conceal his natural shyness, and he fixed his gaze entirely upon Yang Zhaodi. She, too, watched him throughout with a gentle smile, like a magnolia flower blooming quietly in the night.
 
 "Three, two, one... Done."
 
-This was the longest dozen seconds Tan Shuangxi had ever experienced, and also the shortest dozen seconds. Neither spoke, but it seemed they had said a lot.
+Those were the longest dozen seconds Tan Shuangxi had ever experienced—and also the shortest. Neither spoke, yet somehow it felt as though they had said everything.
 
-"This is the voucher for picking up the photo. You can come to the front desk to get it the day after tomorrow. If the shot is ruined, you can retake it for free." Returned to reality, Tan Shuangxi hadn't forgotten today's main purpose. He first took his parents to complete the procedures for picking up the photo. Old Zhang filled in the number and time on the pick-up voucher while introducing the precautions for picking up photos. This current photography method often encountered problems; there were always a few problematic ones among a hundred. There was no choice but to retake.
+"This is your pickup voucher. You can collect the photograph at the front desk the day after tomorrow. If the shot didn't turn out, you may retake it free of charge." Returned to reality, Tan Shuangxi remembered the day's primary purpose. He first took his parents to complete the collection procedures. Old Zhang filled in the number and pickup time on the voucher while explaining the relevant precautions. This photography method often encountered problems; among a hundred shots, there were always a few failures. In such cases, retakes were unavoidable.
 
-"We'll go back on our own. You stay and wait for Zhaodi and them to finish taking photos. Say goodbye to them properly. Say what needs to be said and don't hide it." His parents considerately left early, firmly pushing Tan Shuangxi away and refusing his offer to escort them to the station.
+"We'll make our own way back. You stay here and wait for Zhaodi and the others to finish their photos. See them off properly. Say what needs to be said—don't keep it hidden inside." His parents left early, considerately pushing Tan Shuangxi away and firmly refusing his offer to escort them to the station.
 
-When his parents' figures disappeared at the street corner, Tan Shuangxi returned to the photo studio. The girls had already changed into new clothes and were adjusting their poses under Chen Shixin's direction. With a figure taller than local girls, she was arranged in the very center of the group. Yang Zhaodi hadn't changed clothes; when she came, she was wearing that Song-style blue dress with white floral patterns from their first date. The skirt hem dancing in the wind had appeared in Tan Shuangxi's dreams many times, and now it again drew him into a hypnotic dreamscape. Under the gaze of a group of girls, Tan Shuangxi smiled—smiled like a fool.
+When their figures disappeared around the street corner, Tan Shuangxi returned to the photo studio. The girls had already changed into new clothes and were adjusting their poses under Chen Shixin's direction. Taller than the local girls, Yang Zhaodi had been arranged in the very center of the group. She had not changed; she wore the same Song-style blue dress with white floral patterns from their first outing together. The hem dancing in the wind had appeared in Tan Shuangxi's dreams many times, and now it drew him once again into a hypnotic dreamscape. Under the watching eyes of all those girls, Tan Shuangxi smiled—smiled like a fool.
 
-The girls were all tactful. After the photo was taken, they teased Yang Zhaodi a bit and went to change clothes. Chen Shixin took the freshly shot plate into the workroom. The bustling room suddenly had only Tan Shuangxi and Yang Zhaodi left. Eyes meeting, they faced each other speechless. Yang Zhaodi's courage seemed to have been completely consumed; she unconsciously lowered her head, leaving Tan Shuangxi also not knowing how to break this silence.
+The girls possessed a tactful sense of discretion. After the photograph was taken, they teased Yang Zhaodi briefly before heading off to change. Chen Shixin carried the freshly exposed plate into the workroom. The bustling space suddenly held only Tan Shuangxi and Yang Zhaodi. Their eyes met. They faced each other in silence. Whatever courage Yang Zhaodi had summoned seemed utterly spent; she unconsciously lowered her head, leaving Tan Shuangxi equally at a loss for how to break the stillness.
 
-The silence was broken by the sound of Chen Shixin pushing the door. Tan Shuangxi and Yang Zhaodi instinctively looked over. Chen Shixin hurriedly retreated. The two looked at each other and smiled, finally no longer so awkward.
+The silence shattered with the sound of Chen Shixin pushing open the door. Both looked over instinctively. Chen Shixin retreated in haste. The two exchanged a glance and smiled, the awkwardness finally dissolving.
 
-"Brother Shuangxi, are you going north again?"
+"Brother Shuangxi, are you heading north again?"
 
-"No notice yet. But I'm going to study."
+"No orders yet. But I'm going to study."
 
 "Study what?"
 
-"Training class." Saying this, he told her about enrolling in the Class B Diploma training course.
+"A training course." He explained about enrolling in the Class B Diploma program.
 
-"Hehe, I've already got my accounting certificate!" Yang Zhaodi said with a touch of pride. "Brother Shuangxi, you have to work hard."
+"Hehe, I've already earned my accounting certificate!" Yang Zhaodi said with a touch of pride. "Brother Shuangxi, you must work hard."
 
-"Right! Without getting this diploma, I'll be stuck spinning in the position of acting platoon leader for life." Tan Shuangxi felt the sincerity in her words.
+"Indeed! Without this diploma, I'll be stuck spinning my wheels as an acting platoon leader forever." Tan Shuangxi felt the sincerity in her words.
 
-"What are your plans? With the certificate, you can find a better job. The farm is too hard; the sun is so scorching..."
+"What are your plans? With the certificate, you could find better work. The farm is so grueling—the sun beats down mercilessly..."
 
-"I haven't thought about what I want to do... The farm is pretty good..."
+"I haven't really thought about what I want to do... The farm is actually quite nice..."
 
-"I heard from your classmates that several are going north. Aren't you considering it? At least you can be with your mother."
+"I heard from your classmates that several are going north. Haven't you considered it? At least you'd be with your mother."
 
-Yang Zhaodi smiled wryly: "So she can hit me anytime? She hits me hard! Going to Foshan where nobody knows anyone, living in a collective dormitory, if she hits me there, where would my face be!"
+Yang Zhaodi smiled wryly. "So she can hit me whenever she pleases? She hits hard! If I went to Foshan where nobody knows anyone, living in collective dormitories—if she beat me there, where would I hide my shame?"
 
-"That's true." Tan Shuangxi remembered what was specifically said during sergeant training about why the Fubo Army had no corporal punishment like military canes or whippings. The reason was that corporal punishment made soldiers lose their sense of shame and degraded their military honor. He sighed, "Your mother is also..."
+"That's true." Tan Shuangxi recalled what had been specifically discussed during sergeant training about why the Fubo Army had no corporal punishment like military canes or floggings. The reasoning was that such punishment stripped soldiers of their sense of shame and degraded their military honor. He sighed. "Your mother is also..."
 
 "Let's not talk about her." Yang Zhaodi shook her head and said softly, "I heard the troops will deploy again after a few months of rest."
 
-"Probably not within three or four months. Anyway, our leave is three months."
+"Probably not within three or four months. Our leave is three months, at any rate."
 
 "Then when will you come back?"
 
-"How would I know that? Following orders, wherever they tell us to fight, we fight... Maybe..." Mentioning this, his mood was somewhat sad. He almost said "might not be able to come back," but immediately felt it was too inauspicious—who curses themselves? He quickly changed his words, "...probably two or three years."
+"How would I know? We follow orders—wherever they send us to fight, we fight... Maybe..." At this, his mood turned somewhat melancholy. He nearly said "might not be able to come back," but immediately thought better of it—who curses themselves? He quickly amended, "...probably two or three years."
 
 "Brother Shuangxi, can you still write letters after you go north?"
 
-"Of course. My military mail number is..." He said a number, then asked: "Where should I write to?"
+"Of course. My military postal number is..." He recited a number, then asked, "Where should I address them?"
 
-"Just write to Nanbao Tropical Crops Farm. I'm not planning to change places for now. The farm is nice, and the people are good. Besides, I have a few good friends at the farm. Even if I'm not there in the future, they'll help forward it."
+"Just write to Nanbao Tropical Crops Farm. I don't plan on moving for now. The farm is pleasant, and the people are kind. Besides, I have good friends there. Even if I'm not around in the future, they'll help forward anything."
 
-The door creaked again. The two looked toward the sound. Chen Shixin was at the door, face full of smiles. "I don't want to disturb you two either. Everyone inside has finished changing and is just waiting for you."
+The door creaked again. Both turned toward the sound. Chen Shixin stood in the doorway, his face wreathed in smiles. "I don't mean to disturb you two, but everyone inside has finished changing. They're just waiting for you."
 
-The two smiled at each other. A slight blush appeared on Yang Zhaodi's face. She said softly: "Wait for me." Without waiting for his response, she walked in by herself.
+The two shared a smile. A faint blush rose to Yang Zhaodi's cheeks. She said softly, "Wait for me." Without waiting for his reply, she walked in on her own.
 
-That one sentence was like a bowl of rice soup poured into his heart. Tan Shuangxi's mind was spinning, and he responded with an "Okay."
+Those two words poured into his heart like a bowl of warm rice soup. Tan Shuangxi's mind spun, and he managed only a single response: "Okay."
 
-While waiting, Tan Shuangxi had already imagined the next several decades, even thinking through how many sons and daughters they would have, what they would be named, where they would go to school... He almost got to thinking about where to buy burial plots.
+While waiting, Tan Shuangxi found himself imagining the next several decades—even calculating how many sons and daughters they would have, what they would be named, where they would attend school... He nearly got as far as contemplating burial plots.
 
-Suddenly a commotion came from the doorway. The girls who had finished taking photos came out laughing and chattering. As they passed by Tan Shuangxi, each would either sneakily or boldly glance at him, then an ambiguous, mischievous smile would appear on their faces. Whispering to each other in low voices, they would suddenly burst into unbridled laughter, making Tan Shuangxi restless and his face burning.
+A sudden commotion arose at the doorway. The girls who had finished their photographs emerged in a chattering, laughing cluster. As each one passed Tan Shuangxi, she would cast him either a furtive or boldly appraising glance, and an ambiguous, mischievous smile would bloom across her face. They whispered to one another in low voices, then suddenly burst into unrestrained laughter, leaving Tan Shuangxi restless and his face burning.
 
-After finally waiting for all the girls to leave, he saw Yang Zhaodi come out of the studio, her face flushed. Needless to say, she had probably also enjoyed her female companions' "baptism."
+After what felt like an eternity, the last of the girls departed. Yang Zhaodi emerged from the studio, her own face flushed. Clearly, she too had endured her companions' "baptism."
 
-He hurriedly got up to greet her but didn't know what to say. The two just stood there facing each other, heads lowered.
+He rose hastily to greet her but found himself at a loss for words. The two simply stood there facing each other, heads bowed.
 
-Chen Shixin walked in with a black box, and seeing the two still there, smiled knowingly. Coughing lightly, he asked with a slightly unnatural smile: "There's one extra plate left. Any interest in taking another one?"
+Chen Shixin walked in carrying a black box. Seeing them still standing there, he smiled knowingly. With a light cough, he asked, his own smile slightly self-conscious, "There's one extra plate left. Any interest in taking another photograph?"
 
-By now, he already understood the feelings between this girl and the sergeant. Since the love was mutual, might as well take one for them as a beautiful memory.
+By now, he understood the feelings flowing between this girl and the sergeant. Since the affection was mutual, he might as well capture it for them—a beautiful memory to keep.
 
-"One extra plate?" Tan Shuangxi's eyes lit up, and he had an idea. He immediately said: "Why don't you take one of the two of us? I'll pay myself!" As he said this, he probably didn't look at Yang Zhaodi. He estimated her face was definitely like his own—burning red.
+"One extra plate?" Tan Shuangxi's eyes lit up as an idea struck him. "Why don't you take one of the two of us? I'll pay for it myself!" As he spoke, he probably did not dare look at Yang Zhaodi. He imagined her face was surely like his own—burning red.
 
-"Pay yourself? It's not cheap..." Chen Shixin said, drawing out his tone.
+"Pay yourself? It's not cheap..." Chen Shixin said, drawing out his words deliberately.
 
-Tan Shuangxi was quite magnanimous: "It's fine. Going north soon, nowhere to spend money. Having a memento to keep is worth it." Although Tan Shuangxi was speaking to Chen Shixin, by the second half, his eyes had unconsciously turned toward Yang Zhaodi, making her lower her head again.
+Tan Shuangxi was magnanimous. "That's fine. I'm heading north soon—nowhere to spend my money anyway. Having a keepsake is worth it." Though his words were directed at Chen Shixin, by the second half his eyes had drifted unconsciously toward Yang Zhaodi, making her lower her head once more.
 
-The photo studio recently had only been doing free experience photo coupons, and he hadn't had a chance to familiarize himself with the paid procedures. He had mostly forgotten how to issue tickets and record accounts. It took quite a while to finally complete the ticket.
+The photo studio had recently been handling only complimentary experience coupons, and Chen Shixin had not yet had occasion to familiarize himself with the paid procedures. He had mostly forgotten how to issue tickets and record the accounts. It took him quite some time to finally complete the transaction.
 
-"Do you want to change into different clothes..."
+"Would you like to change into different clothes...?"
 
-"No need. This is fine." Yang Zhaodi rushed to answer.
+"No need. This is fine." Yang Zhaodi answered quickly.
 
-The room quickly returned to silence again, with only the sound of the camera moving and Chen Shixin's commands.
+The room fell quiet again, holding only the sound of the camera's adjustments and Chen Shixin's instructions.
 
-"Move closer, a bit closer..."
+"Move closer. A bit closer..."
 
-"Offset your shoulders a bit, the lady in front and the sergeant behind..."
+"Offset your shoulders slightly—the lady in front, the sergeant behind..."
 
-"Tilt your heads closer together. Very good, smile..."
+"Tilt your heads toward each other. Very good. Now smile..."
 
-As the two moved closer, Yang Zhaodi's hair occasionally brushed across Tan Shuangxi's cheek, making him feel an itch and his heart flutter. Yang Zhaodi's hair had a nice fragrance, seeming like the scent of soap pods from the village tree, mixed with some unfamiliar sweet fragrance... It made him feel hot and dizzy.
+As they drew nearer, Yang Zhaodi's hair occasionally brushed across Tan Shuangxi's cheek, sending an itch through him and setting his heart aflutter. Her hair carried a pleasant fragrance—something like the scent of soap pods from the village tree, mingled with some unfamiliar sweetness... It left him feeling flushed and lightheaded.
 
-"Look here." Chen Shixin tapped a mirror above the camera, focusing both their gazes toward the lens.
+"Look here." Chen Shixin tapped a mirror mounted above the camera, focusing both their gazes toward the lens.
 
-"Smile a little. Hey, smile a little. Sergeant Comrade, don't be so serious!"
+"Smile a little. Come on, just a little smile. Sergeant Comrade, don't look so serious!"
 
-Tan Shuangxi looked through the mirror and met Yang Zhaodi's gaze. He couldn't blink, nor did he want to. Yang Zhaodi in the mirror was also meeting his gaze. Her lips seemed to curve slightly, the dimples on her cheeks seemed deeper, and her expression transformed from focused to tender, like a pool of cool water on a summer day.
+Through the mirror, Tan Shuangxi met Yang Zhaodi's gaze. He could not blink—nor did he wish to. In the reflection, she was returning his look. Her lips seemed to curve ever so slightly, the dimples in her cheeks deepening, her expression transforming from intent concentration to tender warmth, like a pool of cool water on a summer's day.
 
-"Very good. Begin..."
+"Perfect. Begin..."
 
 **(End of Chapter)**

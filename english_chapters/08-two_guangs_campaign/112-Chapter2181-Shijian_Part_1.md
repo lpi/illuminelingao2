@@ -4,7 +4,7 @@ At the front, Li Gangsheng held firm against the swarming regiment braves, while
 
 The 1st Platoon's bayonet charge proved the final straw. Yang Family Village's regiment militia disintegrated like smoke. Hundreds of men scattered in chaotic terror—Provincial Graduate Yang himself nearly perished beneath the stampede of his own fleeing forces. Only Yang Erhu's desperate intervention, fighting through the panicked mob with a handful of loyal guards, saved his uncle from trampling.
 
-Confronted with total defeat, Yang Jinghui's despair overwhelmed him. Unable to face the village elders in disgrace, he drew his sword to end his life. Yang Erhu, quick as lightning, seized the blade from his hands. "Master, steel your heart! This battle means nothing. The Hair Rebels may be formidable, but they are few. We need only weather their momentum!" Without waiting for a response, he ordered servants to bear the provincial graduate away from the killing ground.
+Confronted with total defeat, Yang Jinghui's despair overwhelmed him. Unable to face the village elders in disgrace, he drew his sword to end his life. Yang Erhu, quick as lightning, seized the blade from his hands. "Master, steel your heart! This battle means nothing. The Kun may be formidable, but they are few. We need only weather their momentum!" Without waiting for a response, he ordered servants to bear the provincial graduate away from the killing ground.
 
 When the 2nd Company's reinforcements reached the field, they found only the dead and dying—the ambushers long scattered.
 
@@ -52,9 +52,9 @@ Jiang Wenming embodied a familiar type—the failed scholar ruined by gambling d
 
 Understanding that banditry offered no long-term future, he'd cultivated connections with Provincial Graduate Yang early on, handling the dirty work too unseemly for the master to acknowledge publicly. He'd orchestrated Xie Wendong's betrayal and submission to Yang Family Village.
 
-Word of Provincial Graduate Yang's catastrophic ambush had already reached Xie through multiple channels. Yang Erhu's messenger had arrived first, urging immediate withdrawal before the Hair Rebels could deliver another crushing blow. Then Yu Heiqi, one of Xie's own men who'd fled the battlefield, brought detailed confirmation.
+Word of Provincial Graduate Yang's catastrophic ambush had already reached Xie through multiple channels. Yang Erhu's messenger had arrived first, urging immediate withdrawal before the Kun could deliver another crushing blow. Then Yu Heiqi, one of Xie's own men who'd fled the battlefield, brought detailed confirmation.
 
-"How many Hair Rebels?" Xie demanded.
+"How many Kun?" Xie demanded.
 
 "No more than forty-something, and they routed us completely." Yu Heiqi still trembled with shock. "Their firearms—devastating!"
 
@@ -66,7 +66,7 @@ Word of Provincial Graduate Yang's catastrophic ambush had already reached Xie t
 
 Xie wrestled with indecision. Flight offered the safest course—but Shijian's riches lay tantalizingly close, just beyond his grasp. More critically, he'd ferried several hundred *jin* of gunpowder from the mountain stronghold just yesterday, planning to float it downstream and blow a hole in the riverside palisade for a breakthrough assault. Retreat now would waste everything.
 
-The calculation turned in his mind. The Hair Rebels' main force traveled by water—fighting the upstream current, they couldn't arrive before the day after tomorrow at earliest. The overland contingent numbered only a few dozen. He could spare men to hold the road barricades. Surely a few dozen couldn't break through proper fortifications.
+The calculation turned in his mind. The Kun' main force traveled by water—fighting the upstream current, they couldn't arrive before the day after tomorrow at earliest. The overland contingent numbered only a few dozen. He could spare men to hold the road barricades. Surely a few dozen couldn't break through proper fortifications.
 
 He conferred with Jiang Wenming. They divided their forces: Jiang would hold the intersection with half the men while Xie prosecuted the assault on Shijian with the remainder.
 

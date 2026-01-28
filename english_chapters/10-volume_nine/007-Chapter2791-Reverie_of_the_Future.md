@@ -1,117 +1,117 @@
 # Chapter 2791: Reverie of the Future
 
-"These are all small matters. Are there no big matters?"
+"These are all trivial matters. Aren't there any important ones?"
 
-"The big matter is matchmaking (blind date). For common folks, that's just about the big matter," Tan Shuangxi said.
+"The important matter is matchmaking—arranging blind dates. For common folk, that's about as significant as life gets," Tan Shuangxi said.
 
-"If matched, then marry over!"
+"If there's a match, just marry her off!"
 
-"Where can it be so fast!" Tan Shuangxi shook his head, "First say if matched or not, then discuss betrothal gifts. There are many tricks inside."
+"It's never that simple!" Tan Shuangxi shook his head. "First you have to determine whether there's actually a match, then negotiate the betrothal gifts. There are countless complications involved."
 
-"Getting a wife is harder than passing the Number One Scholar exam!"
+"Getting a wife is harder than passing the imperial examinations!"
 
-"It's much better now than two years ago. Women are much more than before; betrothal gifts have also come down."
+"It's much better now than two years ago. There are far more women available, and the betrothal gifts have come down considerably."
 
-In the army, there were plenty of hot-blooded bachelors. Once talking about women, there was no end. Speaking of which, everyone wanted to get a wife, but the market price of marriage was unaffordable for most.
+In the army, hot-blooded bachelors were never in short supply. Once the topic turned to women, the conversation could go on endlessly. When it came down to it, everyone wanted a wife, but the market price of marriage remained beyond most men's reach.
 
-"It would be good if we could be discharged in Guangdong. When we were in Shaoguan, big girls and young wives around the station were interested in us. Some came to ask if we were willing to stay. Sigh!"
+"It would've been nice if we could've been discharged in Guangdong. When we were stationed at Shaoguan, the young women and wives around the post kept eyeing us. Some even came asking if we'd be willing to stay. What a shame!"
 
-The speaker seemed to feel it a great pity.
+The speaker's voice was heavy with regret.
 
-"Why didn't you just stay?"
+"Why didn't you just stay then?"
 
-"Stay and become a deserter? Catch and shoot! But there were really bold ones! Joint Logistics had a soldier running away with a woman. Mobilized us all to search. Searched for a month without whereabouts. Cheapened this kid!"
+"Stay and become a deserter? They'd catch you and put you before a firing squad! Though there were some bold enough to try. A soldier from Joint Logistics ran off with a woman. They mobilized all of us to search for him. After a month, still no trace. Lucky bastard got away with it!"
 
-"What cheap. Lost soldier status for a wife. I don't covet it. Being a soldier is so happy; will have a good place after discharge in the future. Isn't it better than being a live-in son-in-law for others?"
+"What's lucky about that? He traded his soldier status for a wife. I wouldn't want it. Being a soldier is good—you'll have solid prospects after discharge. Isn't that better than becoming some family's live-in son-in-law?"
 
-"That's true too. Even after discharge, there's a good future. Taking discharge pay to set up a family property, isn't it beautiful."
+"That's true enough. Even after discharge, there's a good future ahead. Take the discharge pay, set up a proper household—wouldn't that be something."
 
-"If fighting again in the future, will you still come to be a soldier?"
+"If there's another war in the future, would you come back to serve?"
 
-"Conscripted, definitely have to come. Without beating away government troops and bandits, could it be your kid's turn to have enough big rice for every meal? Besides, dare you not come for conscription? Want to be a non-citizen?" Sergeant Ma said, putting his military cap on that soldier's head, "This team in the future, counts on you guys."
+"If I'm conscripted, I'd have to come. Without beating back the government troops and bandits, would your children have enough rice for every meal? Besides, would you dare refuse conscription? Do you want to become a non-citizen?" Sergeant Ma placed his military cap on the young soldier's head. "The future of this unit rests on shoulders like yours."
 
-Seeing the topic turned back again, Tan Shuangxi glared fiercely at that unobservant soldier, then continued to interrupt. "Bopu side has already become a fishery cooperative. You don't join the cooperative, preparing to go solo?" Due to frequent support for agriculture and industry, the Fubo Army was familiar with the organization of industrial and agricultural production.
+Seeing the conversation circling back to soldiering again, Tan Shuangxi shot a fierce glare at that oblivious soldier and cut in with a new subject. "The Bopu area has already organized into a fishery cooperative. If you're not joining, are you planning to go it alone?" Due to their frequent assignments supporting agriculture and industry, the Fubo Army was quite familiar with how production cooperatives were organized.
 
-"Cooperatives are for poor ghosts who can't afford boats to join. My family hasn't fallen to that stage yet." Sergeant Ma said quite proudly. "My family and several uncles all have boats. Last time sold family boats together to co-buy a big fishing boat. It's a longline fishing boat made in Hong Kong. Putting down hundreds of hooks at night dragging along, one night can catch a hundred or so big fish. There is an ice cabin below. Load a boat of ice; fish caught go immediately into the ice cabin. Unloading at the port, they are all bang-bang hard." Seeing everyone gathered around listening attentively, the Sergeant couldn't help becoming proud, continuing to brag, "Line-caught fish quality is much better than net-caught. At the fish market grading, they are top grade, can sell for high prices. Earn much more than small boats pulling nets." He spoke with spittle flying, "Just say last time they went to catch tuna. All were tuna more than three feet long. back at the wharf cut open directly. The fish meat is like the best beef, dark red. No need to cook. Take a knife to cut a piece and eat directly. That taste..." Everyone involuntarily swallowed saliva.
+"Cooperatives are for poor folk who can't afford their own boats. My family hasn't fallen that far yet." Sergeant Ma spoke with evident pride. "My family and several of my uncles all own boats. Last time, we pooled our vessels together and bought a big fishing boat—a longline trawler made in Hong Kong. You set out hundreds of hooks at night and drag them along. In one night, you can haul in a hundred or more big fish. There's an ice hold below deck. Load it up with ice, and the catch goes straight in. By the time you unload at port, the fish are still rock-solid." Seeing everyone gathered around listening intently, the Sergeant couldn't help preening as he continued his boast. "Line-caught fish are much higher quality than net-caught. At the fish market grading, they're rated top grade and fetch premium prices. Earns far more than small boats pulling nets." Spittle flew as he spoke. "Just take our last tuna run. Every fish was over three feet long. Back at the wharf, we cut them open right there. The meat looked like the finest beef—deep, dark red. No need to cook it. Just take a knife, slice off a piece, and eat it straight. The taste..." Everyone involuntarily swallowed.
 
-"Would it be about the same as Shunde Raw Fish (Yu Sheng)?"
+"Would it be something like Shunde raw fish?"
 
-Sergeant Ma rolled his eyes at him, "Chiefs all love to eat this kind of fish! All the best tuna are acquired by Fishery General Company Room 39."
+Sergeant Ma rolled his eyes. "The Chiefs all love this kind of fish! All the best tuna gets acquired by Room 39 of the Fishery General Company."
 
-Fishery Company Room 39 was under the jurisdiction of the General Office. Where the goods it acquired went was self-evident.
+Room 39 operated under the jurisdiction of the General Office. Where its acquisitions ended up was self-evident.
 
-"Dip a little light soy sauce, add a little ground mustard (wasabi). Eats oily and moist like beef, fresh and bouncy like big sea prawns..."
+"Dip it in a little light soy sauce, add a touch of ground mustard. It eats rich and smooth like beef, fresh and bouncy like jumbo prawns..."
 
-This description made the group of people drool directly. Wishing to eat early to satisfy cravings.
+This description had the whole group openly drooling, wishing they could eat immediately to satisfy their cravings.
 
-"...There is a raw fish shop opened by a Japanese in East Gate Market called 'Ba', the boss is named something Kou General Tai (Masa). Don't know where he heard the news that business in Hainan Island is easy to do, ran to East Gate Market to open a shop specializing in selling raw fish. He also often comes to stock my family's goods. Particularly picky. Also brags he is 'Immortal'..."
+"...There's a raw fish shop opened by a Japanese in East Gate Market called 'Ba.' The owner's name is something like Kou Masa. Somehow he heard that business was good on Hainan Island, so he came to East Gate Market to open a specialty raw fish shop. He often comes to buy my family's stock. Extremely picky. Also brags that he's an 'Immortal'..."
 
-"Immortal? What kind of immortal is he? Fish-slicing Immortal?"
+"Immortal? What kind of immortal? The Fish-Slicing Immortal?"
 
-"Immortal or not hard to say. Craftsmanship is indeed not bad." Sergeant Ma bragged for his client.
+"Whether he's immortal or not, I couldn't say. But his craftsmanship is genuinely impressive." Sergeant Ma put in a good word for his customer.
 
-"Since you went to sea several times, the boat doesn't lack one of you?" Tan Shuangxi asked curiously.
+"Since you've been out to sea several times, surely the boat isn't short one crewman?" Tan Shuangxi asked curiously.
 
-"Fishermen certainly not lacking. Elders mean to use earned money plus loans to open a fishery company, buy another two boats. The problem is running a company requires dealing with Yamen—you also know, their older generation fears seeing officials most. Even Senate 'Cadres' won't do. So they urged me to discharge and go back."
+"We've got plenty of fishermen. What the elders want is to use our earnings plus loans to start a proper fishery company and buy another two boats. The problem is that running a company means dealing with the Yamen—and you know how it is, the older generation fears dealing with officials more than anything. Even the 'Cadres' from the Senate won't do. So they've been urging me to discharge and come home."
 
-"Originally thought you were going back to be a fisherman. Unexpectedly to be a Big Boss!" Someone was quite envious.
+"I thought you were going back to be a fisherman. Turns out you're going to be a big boss!" Someone's voice dripped with envy.
 
-"Eh eh, how can count as boss. Aren't I still a fisherman." Sergeant Ma immediately became very humble.
+"Now, now, how could I count as a boss? I'm still just a fisherman." Sergeant Ma immediately became modest.
 
-Tan Shuangxi originally thought Sergeant Ma was just an honest man. Unexpectedly this honest man had quite some strength. Being soldiers eating rations wearing the same uniform coat, felt like not much difference. Once talking about discharge, everyone's quality became different.
+Tan Shuangxi had originally taken Sergeant Ma for a simple, honest man. He hadn't expected this honest man to have such substantial backing. When you're soldiers eating the same rations and wearing the same uniforms, everyone seems equal. But once talk turned to discharge, each man's true circumstances became apparent.
 
-His own family wasn't a poor family either. Family circumstances belonged to upper-middle level in the company. But compared with Sergeant Ma, obviously not enough to look at. After all, his family was just scraping food from the soil.
+His own family wasn't poor either. Among the company, his family's situation ranked upper-middle. But compared to Sergeant Ma, they clearly didn't measure up. After all, his family just scratched their living from the soil.
 
-Just being somewhat melancholy, suddenly a sharp whistle sound came from the hatch, followed by the sentry's loud voice: "To... Officer... Salute!"
+Just as he was sinking into melancholy, a sharp whistle suddenly pierced the air from the hatchway, followed by the sentry's booming voice: "Officer on deck! Salute!"
 
-With this sound entering the cabin, Company Commanders, Platoon Leaders, and Squad Leaders bounced up immediately like springs, shouting loudly: "All assemble!" Everyone reacted in an instant, jumped off beds and stood straight.
+The moment this call entered the cabin, Company Commanders, Platoon Leaders, and Squad Leaders sprang up like coiled springs, shouting: "All hands, assemble!" Everyone reacted instantly, leaping from their bunks to stand at attention.
 
-The grille door of the upper deck opened. Three neatly dressed figures came down from the stairs. Due to backlighting, faces couldn't be seen clearly. But looking at the appearance, it should be Battalion Commander Lin Fu. Tan Shuangxi stood barefoot by the bed, stood at attention and saluted, "Report Major! First Company First Platoon is resting. Please instruct."
+The grille door of the upper deck swung open. Three neatly dressed figures descended the stairs. Backlit as they were, their faces couldn't be made out clearly, but from his bearing, it had to be Battalion Commander Lin Fu. Tan Shuangxi stood barefoot beside his bunk, snapped to attention, and saluted. "Report, Major! First Company, First Platoon at rest. Awaiting orders."
 
-"At ease!" Lin Fu approached the narrow aisle. Nearby soldiers hurriedly retreated to make a path. Lin Fu circled in the ship cabin, confirmed no prohibited activities were carried out, and soon issued orders:
+"At ease!" Lin Fu approached the narrow aisle. Nearby soldiers hurriedly pressed back to clear a path. Lin Fu made a circuit of the ship's cabin, confirmed no prohibited activities were underway, and soon issued his orders:
 
-"All organize internal affairs. After breakfast land at Bopu Port for minor rest and reorganization. After lunch, the whole battalion march back to Anya堡 (Majia/Manya Fortress/Castle). Baggage stay on ship."
+"All personnel, organize your quarters. After breakfast, we'll make port at Bopu for a brief rest and reorganization. After lunch, the entire battalion marches back to Anya Fortress. Leave your baggage on the ship."
 
-Lin Fu finished giving orders to Company Commanders, turned and left the cabin. At the moment of drilling out of the hatch, many soldiers heard him laugh and mutter to himself, "Still dip soy sauce."
+After delivering his orders to the Company Commanders, Lin Fu turned and left the cabin. Just as he ducked through the hatchway, many soldiers heard him chuckle and mutter to himself, "Still dipping soy sauce..."
 
-After the Battalion Commander left, the whole ship cabin became busy. Everyone busied with personal cleaning and hygiene while joking at the Sergeant, "You keep pulling (bullshitting). Eating fish not dipping vinegar but dipping soy sauce."
+Once the Battalion Commander departed, the entire cabin erupted into activity. Everyone busied themselves with personal cleaning and hygiene while ribbing the Sergeant: "You and your tall tales. Eating fish dipped in soy sauce instead of vinegar."
 
-Sergeant Ma was very unconvinced, defending: "Battalion Commander definitely hasn't eaten it. Chiefs all eat this way!"
+Sergeant Ma remained unconvinced, defending himself: "The Battalion Commander obviously hasn't tried it. The Chiefs all eat it this way!"
 
-At this time orders came again. Deck open. Each company could go up to deck to wash and get fresh air.
+Shortly after, new orders came down. The deck was now open. Each company could go topside to wash up and get some fresh air.
 
-A small burst of cheers immediately rose in the cabin. Because sea conditions were bad, they hadn't been on deck for two days. Everyone was suffocated bad.
+A burst of cheers immediately rose through the cabin. Due to the rough sea conditions, they hadn't been allowed on deck for two days. Everyone had been going stir-crazy.
 
-People scrambled to put on clothes and shoes, taking washing supplies up to the deck.
+Men scrambled to pull on clothes and shoes, grabbing their washing supplies as they headed up to the deck.
 
-The weather outside was extremely good. Although thin mist still drifted in the distance, the sea surface was a piece of clear jade. Light breeze with slight salt taste blew over the T800's deck, washing soldiers' bodies. Hearts and chests expanded for it, like being washed.
+The weather outside was glorious. Though wisps of mist still drifted in the distance, the sea stretched out in a sheet of clear jade. A light breeze carrying the faint taste of salt swept across the T800's deck, washing over the soldiers' bodies. Their hearts and chests seemed to expand with it, as if they themselves were being cleansed.
 
-Hundreds of ship ropes trembled in the wind, making creaking sounds. Due to wind direction, ship sails were not all hoisted up. But masts tens of meters high and thousands of square meters of ship sails hanging on top were still awe-inspiring existences in the eyes of army soldiers.
+Hundreds of ship ropes trembled in the wind, producing a chorus of creaking sounds. Due to the wind's direction, not all the sails had been hoisted. Yet the masts towering tens of meters high and the thousands of square meters of canvas hanging from them remained awe-inspiring sights to the army soldiers.
 
-There were already quite a few people on deck. Most wore standard white undershirts for sleeping. Some used ladle after ladle of hot water poured out by paymaster soldiers to wet towels to wash faces. Some had toothbrushes inserted in mouths, white foam flowing down from corners of mouths continuously.
+Quite a few men were already on deck. Most wore the standard white undershirts they slept in. Some used ladles of hot water poured by paymaster soldiers to wet towels and wash their faces. Others had toothbrushes stuck in their mouths, white foam continuously dripping from the corners of their lips.
 
-The crossbars extended on both sides of the ship rail were full of squatting people. One by one took off pants holding ropes to think about life. This peculiar convenience mode could only be carried out when weather was sunny and fine. Tan Shuangxi disliked the smelly smell, squeezed all the way to the bow before starting to brush teeth.
+The crossbars extending along both sides of the ship's rails were lined with squatting figures. One after another, they dropped their trousers and gripped the ropes, contemplating life. This peculiar method of relieving oneself was only possible in fair weather. Tan Shuangxi, disliking the stench, squeezed his way all the way to the bow before beginning to brush his teeth.
 
-The ship didn't restrict fresh water use—after all, sailing along the coast. But people were many, and many times couldn't go on deck. Many soldiers simply didn't brush teeth or wash faces, chewing gum everyday as substitute. Tan Shuangxi also made do like this for two days. Today he had to clean himself well no matter what.
+The ship didn't restrict freshwater use—after all, they were sailing along the coast. But with so many men aboard and limited deck access, many soldiers simply hadn't brushed their teeth or washed their faces for days, chewing gum as a substitute. Tan Shuangxi had made do this way for the past two days. Today, he was determined to clean himself properly.
 
-From the bow, the entire fleet could be seen: Three T800s and three escorting single-masted patrol boats were breaking waves advancing. Masts like forest, sails like clouds. Just looking at it felt very majestic and powerful.
+From the bow, the entire fleet spread out before him: three T800s and three escorting single-masted patrol boats cutting through the waves. Masts rose like a forest, sails billowed like clouds. The sight alone filled him with a sense of majesty and power.
 
-"Boom rumble..."
+"Boom... rumble..."
 
-Suddenly, a cannon sound came from afar. Then, sound after sound of cannon.
+Suddenly, the distant thunder of cannon fire rolled across the water. Then another report, and another.
 
-Soldiers on deck couldn't help being stunned: Here was already close to Lingao. Qiongzhou Strait had long been the world of the Senate. Where came unobservant petty thieves coming here to seek death?
+The soldiers on deck froze in confusion. They were already close to Lingao. The Qiongzhou Strait had long been the Senate's domain. What fool pirates would come seeking death here?
 
-"It's salute cannon!" Still the Battalion Headquarters messenger Little Liu was knowledgeable, hearing something from the rhythmic cannon sounds, "It's the Navy coming to welcome us!"
+"It's a salute!" The battalion headquarters messenger, young Liu, was more knowledgeable. He recognized something in the rhythmic booming. "It's the Navy coming to welcome us!"
 
-As ships advanced, mist gradually dispersed. A row of blurred bow outlines could already be seen in a slightly farther place, as well as tops of rows of masts even farther. Army soldiers mostly hadn't seen this kind of posture. Each stood dumbly without making a sound, eyes staring straight ahead. Silence on deck. Only sea waves slapping ship rails and the hunting wind sound of the Morning Star Flag at the bow could be heard.
+As the ships advanced, the mist gradually dispersed. In the middle distance, a row of blurred bow silhouettes emerged, and beyond them, the tops of orderly masts. Most of the army soldiers had never witnessed such a spectacle. Each stood in silent wonder, eyes fixed straight ahead. The deck fell quiet. Only the slap of waves against the hull and the sharp snap of the Morning Star Flag at the bow could be heard.
 
-Suddenly, the sun tore a hole in the cloud layer. Golden sunlight immediately enveloped the ocean surface. Sea mist disappeared almost in an instant. More than a dozen single patrol boats were coming head-on in column formation. Sails and masts like forest, momentum pressing people. Morning Star Flags at mast tops fluttered high.
+Suddenly, the sun tore through a gap in the clouds. Golden light immediately flooded the ocean's surface. The sea mist vanished almost instantaneously. More than a dozen single-masted patrol boats were bearing down on them in column formation. Sails and masts rose like a forest, their presence commanding. Morning Star Flags flew high from every masthead.
 
-Patrol boats fired salute cannons while advancing. Escort fleet ships also began to fire salute cannons. Rumbling cannon sounds resonated over Qiongzhou Strait. Clouds of white thick smoke permeated. Soldiers cheered together.
+The patrol boats fired their salute cannons as they advanced. The escort fleet's ships began answering in kind. Rolling thunder resonated across the Qiongzhou Strait. Billowing clouds of white smoke drifted over the water. The soldiers erupted in cheers.
 
-The sailor standing at the top of the mast suddenly shouted loudly at Lin Fu on the bridge: "Major! Navy Strait Detachment sent semaphore to you!"
+The sailor stationed at the top of the mast suddenly called down to Lin Fu on the bridge: "Major! The Navy Strait Detachment has sent you a semaphore!"
 
-He stared at the incoming ship opposite, shouting out word by word loudly, "Navy Strait Detachment pays tribute to heroic Army soldiers. Welcome home."
+He stared at the approaching vessel opposite, shouting out each word clearly: "Navy Strait Detachment salutes the heroic soldiers of the Army. Welcome home."
 
 (End of Chapter)

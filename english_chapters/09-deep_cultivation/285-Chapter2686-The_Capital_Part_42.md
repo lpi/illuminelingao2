@@ -1,101 +1,101 @@
 # Chapter 2686: The Capital (Part 42)
 
-"What is difficult about this? Brother, I have my own ways to carry private contraband."
+"What's so difficult about that? Brother, I have my own ways of smuggling private contraband."
 
-The two chatted happily until the wine shop closed, then dispersed separately. Early the next morning, Liu Sha took out a token begged from Wu Hai from the bottom of his luggage, then went out of Zhenhai Gate, heading straight for the Mao Family Inn.
+The two chatted merrily until the wine shop closed for the night, then parted ways. Early the next morning, Liu Sha retrieved a token he had begged from Wu Hai, which he kept hidden at the bottom of his luggage. He left through Zhenhai Gate and headed straight for the Mao Family Inn.
 
-Zhou Lezhi accompanied the Master all the way down south to Jiangnan, arriving in Dongyang. He spent this journey very comfortably. In order to rope in the relationship with Hearthstone Immortal, Master Wang not only specially rented a large official boat for him but also purchased a status of "Student of the Imperial College" [Jiansheng] in the capital for Zhou Lezhi.
+Zhou Lezhi accompanied the Master all the way south to Jiangnan, arriving at Dongyang. The journey had been remarkably comfortable. To cultivate a relationship with Hearthstone Immortal, Master Wang had not only rented a large official boat for him but had also purchased the status of "Student of the Imperial College" (*Jiansheng*) in the capital for Zhou Lezhi.
 
-*Jiansheng* were originally "Disciples of the Son of Heaven" and could be directly appointed to official positions, so their status was quite noble in the early Ming Dynasty. Later, the system relaxed; under the civil service examination system, the outlet for *Jiansheng* became increasingly narrow. Later, one could purchase admission into the College, and gradually they became the protagonists of many jokes in society.
+*Jiansheng* were originally "Disciples of the Son of Heaven" who could be directly appointed to official positions, making their status quite noble in the early Ming Dynasty. Later, however, the system grew lax. Under the civil service examination system, opportunities for *Jiansheng* became increasingly limited. Eventually, one could simply purchase admission into the College, and gradually they became the subject of many jokes throughout society.
 
-Even so, a *Jiansheng* after all had a status close to a Provincial Graduate [*Juren*]. With such a status, one was not a commoner anymore.
+Even so, a *Jiansheng* still held a status approaching that of a Provincial Graduate (*Juren*). With such standing, one was no longer a mere commoner.
 
-For Hearthstone Immortal, this counted as a not small gift. Zhou Lezhi knew that with the Teacher's identity of so-called "Daoist" or "Divine Physician," let alone local officials could detain and cane him at will, even encountering big households playing rough, he would only have the share of eating humble pie.
+For Hearthstone Immortal, this counted as no small gift. Zhou Lezhi knew that with the Teacher's identity as a so-called "Daoist" or "Divine Physician," local officials could detain and cane him at will. Even when encountering wealthy households playing rough, he would have no choice but to swallow his pride.
 
-But it was different now. Mr. Zhou was now an upright and honest Student of the Imperial College of the Capital—although he just registered a name and didn't even know which way the Imperial College's door opened. But when going out, the boat could hang lanterns written with "Jiansheng" in Song-style characters. When passing checkpoints and asking for lock passage, the soldiers would also be a few points more polite.
+But things were different now. Mr. Zhou was an upright and honest Student of the Imperial College of the Capital—though he had merely registered a name and didn't even know which way the Imperial College's door faced. Yet when traveling, the boat could hang lanterns inscribed with "Jiansheng" in Song-style characters. When passing through checkpoints and requesting lock passage, the soldiers would treat them with noticeably more courtesy.
 
-As for the main members of the family, they also all followed along—firstly, going to Dongyang this time required staying for a period; secondly, they would depart for Guangdong next year, so there was no need to split into two groups to act.
+As for the main members of the household, they all came along as well—first, because this trip to Dongyang required an extended stay; and second, because they would be departing for Guangdong the following year, so there was no need to split into two groups.
 
-However, when informed about going to Dongyang, Yourong told the Teacher she couldn't go for now.
+However, when informed about going to Dongyang, Yourong told the Teacher she couldn't join them just yet.
 
-"This bondmaid's monthly affair hasn't come for two months; probably have it [pregnant]." When Yourong spoke, her expression was shy.
+"This bondmaid's monthly affair hasn't come for two months—I'm probably with child." When Yourong spoke, her expression was bashful.
 
-"What? You have it?!" The Teacher heard and was greatly surprised. After all, he had been plowing everyday these two years, always with zero yield.
+"What? You're with child?!" The Teacher was greatly surprised. After all, he had been sowing seeds diligently these past two years, always with zero yield.
 
-Although there was juli [Zhou Juli], for human reproductive instinct, as long as food and drink were not a worry and one didn't need to raise children oneself, one always hoped to have a few more children. Now hearing Yourong say she had it, the Teacher was pleasantly surprised.
+Although there was Juli—Zhou Juli—when it came to human reproductive instinct, as long as one didn't want for food and drink and didn't need to raise children oneself, there was always a desire for more offspring. Now, hearing Yourong say she was pregnant, the Teacher was overjoyed.
 
-Since pregnant, naturally she couldn't accompany the travel. After Master Wang learned of it, he patted his chest and said he would send people to take care of Yourong. Waiting until the child was full one year old, he would then escort Yourong mother and son to Guangzhou to reunite with him.
+Since she was pregnant, naturally she couldn't accompany them on the journey. After Master Wang learned of this, he patted his chest and promised to send people to care for Yourong. Once the child turned one year old, he would personally escort Yourong and the baby to Guangzhou for a reunion.
 
-Things not requiring him to worry, Mr. Zhou naturally agreed fully, even guaranteeing to Master Wang that upon arriving in Guangzhou he could think of more money-making methods to earn money; at that time Master Wang could also earn pots and bowls full.
+Matters that required no worry on his part, Mr. Zhou naturally agreed to wholeheartedly. He even guaranteed Master Wang that upon arriving in Guangzhou, he could devise more money-making schemes; when that time came, Master Wang would also fill his pots and bowls to overflowing.
 
-Thus Zhou Lezhi cheerfully took the boat carrying the whole family to Dongyang. inside the Dongyang Farm, Zhou Lezhi followed the Teacher to toss about, building water trip-hammers and constructing a mosquito incense factory. Vigorously spending the one hundred taels of silver gifted by Master Wang cleanly, obtaining ten thousand catties of mosquito incense.
+Thus Zhou Lezhi cheerfully took the boat carrying the entire family to Dongyang. Inside the Dongyang Farm, Zhou Lezhi followed the Teacher in his various endeavors—building water trip-hammers and constructing a mosquito incense factory. He spent the hundred taels of silver Master Wang had gifted down to the last coin, producing ten thousand catties of mosquito incense.
 
-Zhou Lezhi was now already the Teacher's "Beloved Disciple," deeply trusted; the Teacher speaking in front of him also became without scruples. Regarding this "Mosquito Incense," Mr. Zhou said with a hint of disdain that this was just a "low-tech industry" without "challenge."
+Zhou Lezhi had now become the Teacher's "Beloved Disciple," deeply trusted; the Teacher spoke before him without reservation. Regarding this mosquito incense, Mr. Zhou remarked with a hint of disdain that it was merely a "low-tech industry" without any "challenge."
 
-Of course, he said the same about the water trip-hammer house at the beginning. Originally Dongyang locally also had craftsmen specialized in building water trip-hammers, but Mr. Zhou expressed dissatisfaction with their building methods, specially drawing blueprints: what "overshot," "breastshot," "undershot," confusing the craftsmen until they didn't know the why. However, the water wheel built according to the Teacher's design didn't appear much faster than the old style; fixing and modifying instead spent much more money. The Teacher took Zhou Lezhi to squat by the water wheel everyday, measuring and calculating, going back to calculate countless drafts on the blackboard.
+Of course, he had said the same about the water trip-hammer house at first. Dongyang had local craftsmen who specialized in building water trip-hammers, but Mr. Zhou expressed dissatisfaction with their methods. He specially drew blueprints featuring what he called "overshot," "breastshot," and "undershot" designs, confusing the craftsmen until they had no idea what he meant. However, the water wheel built according to the Teacher's design didn't appear much faster than the traditional style—in fact, the repairs and modifications ended up costing considerably more. The Teacher took Zhou Lezhi to squat by the water wheel every day, measuring and calculating, then returning to fill the blackboard with countless drafts of calculations.
 
-Zhou Lezhi learned to measure and calculate flow rate, knew how to calculate angular velocity, knew what power meant, and how to calculate...
+Zhou Lezhi learned to measure and calculate flow rates. He came to understand how to calculate angular velocity, what power meant, and how to compute it...
 
-Finally, the water trip-hammer was built stumbling and bumping. Seeing the surging power pushed out by the water wheel, the craftsmen were convinced after all.
+Finally, after much trial and error, the water trip-hammer was built. When the craftsmen witnessed the surging power the water wheel could produce, they were thoroughly convinced.
 
-Convinced was convinced, but such powerful power had no use. Whether hulling rice or grinding wood powder, such large output power wasn't needed. Zhou Lezhi was very puzzled.
+Convinced they were, yet such powerful force had no immediate use. Whether for hulling rice or grinding wood powder, such tremendous output wasn't necessary. Zhou Lezhi was quite puzzled.
 
-"The greater the power, the more things can be done," The Teacher's eyes were burning. "This water power is useful; hulling rice and grinding powder is too wasting of talent. Later when we have machines, you will know its use."
+"The greater the power, the more that can be accomplished," the Teacher said, his eyes burning with intensity. "This water power has its uses—hulling rice and grinding powder is far beneath its potential. Later, when we have machines, you'll understand."
 
 "What machines?"
 
-The Teacher scratched his scalp: "Temporarily I haven't thought well yet."
+The Teacher scratched his scalp. "I haven't quite figured that out yet."
 
-The work of making mosquito incense was much simpler. Discussing mosquito incense itself alone, the Song Dynasty had its prototype, but relatively definitive mosquito incense only existed in the Qing Dynasty. However, the mosquito incense at this time was not spiral-shaped yet, and the raw materials lacked the main component of Pyrethrum; the ratio was various spices plus arsenic, realgar, and sulfur.
+The work of making mosquito incense was considerably simpler. Speaking of mosquito incense alone, the Song Dynasty had developed its prototype, though a relatively definitive form only emerged during the Qing Dynasty. However, the mosquito incense of that era was not yet spiral-shaped, and the raw materials lacked the main component of pyrethrum; the formula comprised various spices mixed with arsenic, realgar, and sulfur.
 
-Modern spiral-shaped mosquito incense with Pyrethrum components originated earliest in Japan. In this spacetime, Pyrethrum was still in Central Asia, let alone having commercial scale planting. Even if Mr. Zhou had heaven-sized ability he couldn't get it, so he could only walk the traditional path, using arsenic, realgar, mugwort, and tobacco leaves as main insect-repelling components. Using wood powder as burning agent, rosin as combustion improver, all mixed then using starch as binder. After mixing, use molds to press into shape and dry.
+Modern spiral-shaped mosquito incense with pyrethrum components originated in Japan. In this spacetime, pyrethrum remained in Central Asia, far from commercial-scale cultivation. Even if Mr. Zhou possessed heavenly abilities, he couldn't obtain it. So he could only follow the traditional path, using arsenic, realgar, mugwort, and tobacco leaves as the primary insect-repelling components. Wood powder served as the burning agent, rosin as a combustion improver, all mixed together with starch as a binder. After mixing, the compound was pressed into shape using molds and left to dry.
 
-Mosquito incense, whether in ingredients, process, or technology, was very simple. Its main advantages were two: one was using repeatedly ground wood powder as burning agent, emitting much less smoke compared to big stick incense rolled directly from burning mugwort leaves and branches, allowing indoor use; secondly, the spiral shape could make incense sticks that burned for six or seven hours at once and were not easily damaged.
+Whether in ingredients, process, or technology, mosquito incense was quite simple. Its main advantages were twofold: first, using repeatedly ground wood powder as the burning agent produced far less smoke compared to thick incense sticks rolled directly from mugwort leaves and branches, making it suitable for indoor use; second, the spiral shape allowed for incense sticks that could burn for six or seven hours straight while remaining resistant to damage.
 
-During trial production, Zhou Lezhi could tell that regarding making mosquito incense and making water trip-hammers, the Teacher actually didn't know much either. He only roughly knew how to make it, but the specific process wasn't clear. So when making, they could only experiment repeatedly. The ingredients of this mosquito incense, how much to add for each kind, all relied on testing bit by bit to finally produce a suitable formula.
+During trial production, Zhou Lezhi could tell that the Teacher actually didn't know much more about making mosquito incense than he did about making water trip-hammers. He only roughly understood the concept, but the specific processes remained unclear. So during production, they could only experiment repeatedly. The ingredients for this mosquito incense—how much of each to add—all had to be tested bit by bit before they finally produced a suitable formula.
 
-In order to make this mosquito incense, two local coppersmiths were specially hired to make various measuring tools according to his requirements; the smallest spoon could only scoop up a few grains of rice. Just mixing spoon by small spoon like this, testing bit by bit; during the period probably doing several thousand times, finally getting the mosquito incense out.
+To make this mosquito incense, two local coppersmiths were specially hired to craft various measuring tools according to his requirements; the smallest spoon could scoop up only a few grains of rice. Mixing spoon by tiny spoon, testing bit by bit—during this period they conducted several thousand trials before finally perfecting the mosquito incense.
 
-During this period, Mr. Zhou tirelessly taught Zhou Lezhi the principles and processes of "experimentation," the function each raw material played...
+Throughout this process, Mr. Zhou tirelessly taught Zhou Lezhi the principles and procedures of "experimentation," explaining the function each raw material played...
 
-Zhou Lezhi felt he benefited shallowly [greatly], but he still asked the Teacher a question that had puzzled him for a long time: "Teacher, you have such great learning, why take matters of craftsmen so to heart?"
+Zhou Lezhi felt he had benefited greatly, yet he still posed a question to the Teacher that had long puzzled him: "Teacher, you possess such profound learning—why do you devote yourself so thoroughly to the work of craftsmen?"
 
-A trace of bitter smile appeared on Mr. Zhou's face, saying: "Are craftsmen's matters not important yet? You are of farm origin; if without blacksmiths making sickles and plow rakes, how to farm? Without carpenters building houses, where to dwell?"
+A trace of bitter smile appeared on Mr. Zhou's face. "Are craftsmen's matters not important? You come from a farming background—without blacksmiths to forge sickles and plows, how would anyone farm? Without carpenters to build houses, where would anyone dwell?"
 
-"Ai ai, Teacher, Disciple isn't saying craftsmen are useless, is saying..." Zhou Lezhi was tongue-tied for a moment, not knowing how to express, only saying after a long while, "Teacher has such great talent; if placed on Eight-legged Essays and system production, wouldn't passing for Juren and Jinshi be secure and reliable..."
+"Ai ai, Teacher, your disciple isn't saying craftsmen are useless. I mean..." Zhou Lezhi fumbled for words, uncertain how to express himself. After a long moment, he managed, "Teacher has such great talent—if you applied it to Eight-legged Essays and examination preparation, wouldn't passing as a *Juren* or *Jinshi* be well within reach?"
 
-Mr. Zhou froze, then laughed loudly, saying: "Come come, you say and see, why does everyone feel reading books and system production, testing for a merit/fame is best?"
+Mr. Zhou froze for a moment, then burst into laughter. "Come now, tell me—why does everyone believe that reading books and preparing for examinations, testing for scholarly merit, is the best path?"
 
-"Need that be said!" Speaking of this, Zhou Lezhi was clearest. Because the Clan Leader was especially obsessed with merit and fame, at clan gatherings, he would repeatedly instruct the children to study hard and test for a merit to glorify ancestors. Then he would say certain clan because someone became an official, now bought how many clan fields; this clan because of lacking merit, in whatever matter was bullied by others and could only eat dumb loss [suffer in silence]. Speaking to the excitement, truly weeping with voice and tears.
+"Need you ask!" When it came to this, Zhou Lezhi understood perfectly. The Clan Leader was especially obsessed with scholarly merit. At every clan gathering, he would repeatedly instruct the children to study hard and pass the examinations to bring glory to their ancestors. Then he would cite how a certain clan had someone become an official, and now they had purchased so many clan fields; while another clan, lacking anyone with merit, was bullied in every matter and could only suffer in silence. Speaking to his excitement, he would truly weep with voice and tears.
 
-"...Becoming an official has money, and also power! Someone in the clan becomes an official, the County Magistrate is also polite by a few points; runners dare not come to cause trouble..."
+"...Becoming an official brings money and power! When someone in the clan becomes an official, even the County Magistrate treats you with more courtesy; the runners dare not come to cause trouble..."
 
-The Teacher listened to him say a lot with a smile, then said: "In the end, it means becoming an official has benefits. In books there are houses of gold, in books there are faces like jade..."
+The Teacher listened to his lengthy explanation with a smile, then said: "In the end, it means becoming an official has benefits. In books there are houses of gold; in books there are faces like jade..."
 
-"Right, right, right, just like this!" Zhou Lezhi nodded repeatedly. "Even if not becoming an official, passing for a Xiucai, one is also a character in the countryside! At least food and drink are not a worry."
+"Right, right, right—exactly so!" Zhou Lezhi nodded repeatedly. "Even if one doesn't become an official, passing as a *Xiucai* still makes you somebody in the countryside! At the very least, one needn't worry about food and drink."
 
-"Becoming an official has benefits; this I feel is no problem. But where do these benefits come from?"
+"Becoming an official has benefits—this I won't dispute. But where do these benefits come from?"
 
-"The Imperial Court's salary..." When Zhou Lezhi said this, he also knew it wasn't that simple, because the Clan Leader also frequently cursed the Magistrate for "scooping money" and "taking black money."
+"The Imperial Court's salary..." Even as Zhou Lezhi said this, he knew it wasn't so simple, because the Clan Leader also frequently cursed magistrates for "scooping money" and "taking black money."
 
-"Put it this way; whether salary or other things, all are the common people's blood and sweat," Mr. Zhou said. "If they were truly for the world and the common people, it would be fine, but in reality?"
+"Put it this way: whether salary or other sources, all of it is the common people's blood and sweat," Mr. Zhou said. "If officials were truly serving the world and its people, that would be one thing—but in reality?"
 
-What the reality was, Zhou Lezhi naturally knew.
+What reality was, Zhou Lezhi knew well enough.
 
-"So this Great Ming's official, I am unwilling to be." When the Teacher spoke to here, the expression on his face was very complex. "Also disdain to do."
+"So this Great Ming's officialdom—I am unwilling to enter." When the Teacher spoke these words, his expression grew complex. "And I disdain to do so."
 
-"To save the world one must enter the world. Teacher has such great learning; not being an official, isn't it a pity?"
+"To save the world, one must enter the world. Teacher has such profound learning—wouldn't it be a pity not to become an official?"
 
-Mr. Zhou froze, laughing loudly: "Well said! But to enter the world doesn't necessarily need to be an official. Engaging in industry can also save the country and people."
+Mr. Zhou paused, then laughed heartily. "Well said! But entering the world doesn't necessarily require becoming an official. Engaging in industry can also save the nation and its people."
 
-"Teacher said before 'Industry Rejuvenates the Nation,' but if not an official, how can this huge property be protected?" Zhou Lezhi said. Whether engaging in commerce or opening workshops, any property slightly larger, if without protection from people on the official face, would be very hard to operate; all had to find a backer or background.
+"Teacher spoke before of 'Industry Rejuvenates the Nation,' but without an official position, how can such massive enterprises be protected?" Zhou Lezhi pressed. Whether engaging in commerce or opening workshops, any property of significant size required protection from those with official connections to operate successfully; everyone needed to find a backer or background.
 
-"...I think, backers and backgrounds are not as good as relying on oneself. Master Wang favors Teacher so much now; Teacher might as well take the opportunity to get an official position to do. Being an official oneself, doing anything is easy."
+"...In my view, backers and backgrounds are never as reliable as depending on oneself. Master Wang favors you greatly now, Teacher—you might as well seize the opportunity to obtain an official position. Being an official yourself would make everything easier."
 
-These words of Zhou Lezhi came from the bottom of his heart. Although he was Master Wang's undercover, he hoped from the bottom of his heart that Mr. Zhou would achieve fame and success.
+These words came from the depths of Zhou Lezhi's heart. Although he was Master Wang's informant, he sincerely hoped Mr. Zhou would achieve fame and success.
 
-With Mr. Zhou, he was a "Student"; without Mr. Zhou, he was just a slave of Master Wang. Which was light and which heavy, Zhou Lezhi naturally distinguished clearly.
+With Mr. Zhou, he was a "Student"; without Mr. Zhou, he was merely one of Master Wang's slaves. Which weighed more heavily, Zhou Lezhi understood perfectly.
 
-The Teacher sighed lightly: "You speak correctly. If speaking of weighing expediency, this is indeed a good method. But this Great Ming's officialdom is darker than a dye vat; for a person like me to jump in, I fear it is a dead end."
+The Teacher sighed softly. "What you say is correct. Speaking in terms of expediency, this would indeed be a good approach. But this Great Ming's officialdom is darker than a dye vat. For someone like me to plunge in—I fear it would be a dead end."
 
 **(End of Chapter)**

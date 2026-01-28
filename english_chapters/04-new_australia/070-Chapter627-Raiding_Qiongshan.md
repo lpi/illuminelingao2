@@ -62,7 +62,7 @@ He positioned a covering group with automatic rifles on high ground outside the 
 
 When they saw Ye Mengyan and his motley-clothed, gear-festooned companions approaching, the militiamen's first reaction was not fear or alarm but curiosity. One of them, carrying a spear, even stepped forward for a better look. The moment he noticed their close-cropped stubble, sudden realization dawned on his face. Terror-stricken, he dropped his spear instantly and bolted toward the city gate, screaming at the top of his lungs:
 
-"The Hair Rebels are here! The Hair Rebels are here!"
+"The Kun are here! The Kun are here!"
 
 Ye Mengyan gestured with his submachine gun; his team members swarmed forward. Two men quickly secured the barrier entrance while he led the rest charging straight up the street toward the city gate.
 

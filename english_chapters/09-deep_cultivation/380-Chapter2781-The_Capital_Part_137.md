@@ -1,153 +1,153 @@
 # Chapter 2781: The Capital (Part 137)
 
-"Let me think about it," You Rong hesitated, "This is a big matter. I have to think about it carefully."
+"Let me think about it," You Rong hesitated. "This is a significant matter. I need to consider it carefully."
 
-Wu Yan known this required slow grinding work and wasn't in a hurry to push her. She whispered: "Make up your own mind. There must be a long-term plan is all."
+Wu Yan knew this required patient, gradual work and felt no need to press her. She whispered, "Make up your own mind. Just be sure to have a long-term plan."
 
-Chatting up to here, it was about enough. You Rong said she was a bit sleepy and wanted to take a nap.
+Their conversation having reached a natural conclusion, You Rong mentioned she was feeling drowsy and wished to take a nap.
 
-"Just go to the guest room in the back to rest. It is quiet both inside and outside there; no matter how big the noise, it can't be heard." Wu Yan gave a mischievous wink.
+"Go rest in the guest room at the back. It's quiet both inside and out—no matter how loud the noise, nothing can be heard." Wu Yan gave a mischievous wink.
 
-You Rong's face blushed. The two got up, and You Rong led the way in front. Going out from the side door of the courtyard, there was a passageway. Walking not far along the passageway, there was a small door.
+You Rong's face flushed. The two women rose, and You Rong led the way. Exiting through the side door of the courtyard, they entered a passageway. A short distance along it stood a small door.
 
-Pushing it open to look, it was an extremely small courtyard, three rooms. Inside the courtyard, there was another door, but it was locked.
+Pushing it open, she found an exceedingly compact courtyard with three rooms. Within the courtyard was another door, but it was locked.
 
-When female relatives of big households came to burn incense and needed to rest temporarily, nunneries of some scale all had guest rooms prepared. Ganlu Nunnery naturally also had two such courtyards. Although the courtyards were small, they were arranged elegantly and cleanly, very quiet.
+When female relatives from prominent households came to burn incense and needed temporary rest, nunneries of any considerable size maintained guest rooms for their use. Ganlu Nunnery naturally had two such courtyards. Though small, they were arranged with elegance and cleanliness, wonderfully tranquil.
 
-"I won't go in." Wu Yan laughed, "You go yourself. Just don't forget the time!"
+"I won't go in," Wu Yan laughed. "Go on by yourself. Just don't lose track of time!"
 
-You Rong nodded, but her heart was thumping wildly. Since Granny Shi acted as a go-between and completed the good affair here at Wu Yan's place, the two had met no more than three or four times. But every time left her with endless aftertaste.
+You Rong nodded, but her heart was pounding wildly. Since Granny Shi had acted as go-between and arranged the affair here at Wu Yan's establishment, the two lovers had met no more than three or four times. Yet each encounter left her with endless aftertaste.
 
-It wasn't that she coveted the love between man and woman, but the past Master Zhou had very little taste. Although his attitude was amiable and the treatment was generous, he rarely talked with her and Yui on normal days. occasionally chatting, he also spoke some unintelligible crazy words. It was fine that Yui was illiterate, but she had studied somewhat, yet couldn't understand him at all.
+It wasn't that she craved the love between man and woman, but her previous master, Zhou, had possessed very little charm. Though his manner was amiable and his treatment generous, he rarely spoke with her or Yui on ordinary days. On the occasional instances when he did chat, he spoke in strange, incomprehensible ramblings. It was fine for Yui, who was illiterate, but You Rong had received some education—yet she couldn't understand him at all.
 
-This Master Pan was not only refined but also understood a little woman's mood better. A few words, a single movement could touch her heartstrings. This kind of comfortable and pleasant feeling couldn't be experienced at Master Zhou's place.
+This Master Pan was not only refined but also understood a woman's heart far better. A few words, a single gesture, could set her heartstrings trembling. This kind of comfortable, pleasant feeling was something she had never experienced in Master Zhou's household.
 
-Pushing the door and entering. Inside the skywell (courtyard) was a flower bed planted with pear trees, now bare. The ground paved with tiles was full of Jiangnan flavor, swept clean. Standing under the eaves was exactly the lover she longed for day and night.
+She pushed open the door and entered. Within the skywell stood a flower bed planted with pear trees, now bare in winter. The tile-paved ground exuded the distinctive flavor of Jiangnan, swept immaculately clean. Standing beneath the eaves was the very lover she had longed for day and night.
 
-The two held hands, looked at each other and smiled; all love was unspoken.
+The two clasped hands, exchanged gazes, and smiled—all their affection conveyed without words.
 
-Pan Cheng'an helped her list the door curtain and led her into the main room. The room had a fire wall, warm as spring indoors. A pot of New Year Peony was blooming brightly. In the center was a square table for four people, but only positioned with two fine rattan armchairs. On the table were twelve dishes of dried and fresh fruits and various appetizers for wine. On the red clay small stove, yellow wine was being warmed. The aroma of wine mixed with the fruity fragrance of the large basin of Buddha's hand citron on the table, making one intoxicated without getting drunk.
+Pan Cheng'an lifted the door curtain for her and led her into the main room. A fire wall heated the chamber, making it warm as spring indoors. A pot of New Year Peony bloomed in vivid splendor. At the center stood a square table meant for four, though only two fine rattan armchairs were positioned beside it. Upon the table sat twelve dishes of dried and fresh fruits alongside various wine appetizers. On a small red clay stove, yellow wine was being warmed. The fragrance of wine mingled with the fruity scent from the large basin of Buddha's hand citron on the table, intoxicating without a single sip.
 
-"This Wu Yan really knows how to enjoy!" You Rong laughed.
+"This Wu Yan certainly knows how to live well!" You Rong laughed.
 
-"This enjoyment of hers, even my home doesn't have such pomp," Pan Cheng'an laughed, "A wonderful point of winter in the Capital is this fire wall and fire kang. When heated up, the room is like spring. If it were in Jiangnan, damp and cold, one could only shiver."
+"Even my own home doesn't have such refinement," Pan Cheng'an replied with a smile. "One of winter's delights in the Capital is this fire wall and fire kang. Once heated, the room feels like springtime. In Jiangnan, the damp cold would leave one shivering."
 
-"If it were me, I'd rather wear a silk floss padded jacket and shiver." You Rong laughed.
+"Were it up to me, I'd rather wear a silk-floss padded jacket and shiver," You Rong laughed.
 
-Pan Cheng'an smiled. Although there was no saying of "overthrowing a city and a country" (devastatingly beautiful) for men, this smile was enough to "fill carts with thrown fruits" (be extremely attractive). Just this smile made You Rong's heart thump wildly.
+Pan Cheng'an smiled. Though men were not described as possessing beauty that could "overturn cities and kingdoms," his smile was enough to inspire admirers to "fill carts with thrown fruits." That single smile alone set You Rong's heart racing wildly.
 
-"Let's take off the outer clothes, drink a few cups together, and dispel the winter cold together." Pan Cheng'an said.
+"Let's remove our outer garments, share a few cups, and drive away this winter chill together," Pan Cheng'an said.
 
-Immediately they took off the cotton robes and outer jackets. The two poured and drank together.
+They promptly shed their cotton robes and outer jackets. The two poured wine and drank together.
 
-Private meeting between man and woman naturally had a secluded sentiment in it, especially in this freezing winter. Outside was covered with white snow, and the north wind whistled; inside the room, red clay stove, warm as spring, with fine wine and beloved partner by the side. It could be called ultimate joy in the human world.
+A private meeting between man and woman naturally carried an air of secluded intimacy, especially in the depths of winter. Outside, white snow blanketed the world and the north wind howled; inside, the red clay stove kept the room warm as spring, with fine wine and a beloved partner at one's side. It could truly be called the ultimate joy of the mortal world.
 
-One cup of wine down You Rong's stomach, her cheeks became rosy. Pan Cheng'an, however, had other intentions.
+One cup of wine down her throat, You Rong's cheeks turned rosy. Pan Cheng'an, however, harbored other intentions.
 
-The You Rong in front of him, from the time she was introduced by Granny Shi, it had been three or four months. This private meeting at Ganlu Nunnery was also the fourth time. During this period, about one hundred taels of silver were spent.
+The You Rong before him—from when Granny Shi first introduced her—had occupied his attention for three or four months now. This private meeting at Ganlu Nunnery was their fourth. During this period, he had spent roughly one hundred taels of silver.
 
-Spending this much silver, naturally, required an excess return. With You Rong's appearance, taking her to Jiangnan for resale could fetch at least two hundred taels. But going through such great trouble, this little money simply couldn't satisfy his appetite.
+Spending such a sum naturally demanded an excess return. With You Rong's beauty, taking her to Jiangnan for resale could fetch at least two hundred taels. But having gone to such elaborate lengths, that small sum was far from enough to satisfy his appetite.
 
-You Rong was a rich family's concubine and had a son. Logically she would have a lot of private savings and jewelry. If he could persuade her to pack up and struggle off privately (elope), all of these could be obtained.
+You Rong was a wealthy family's concubine and had borne a son. By all logic, she would have accumulated considerable private savings and jewelry. If he could persuade her to gather her belongings and elope with him, all of it would be his.
 
-These days, he had understood the situation of You Rong and the Zhou family almost completely. Currently, the master's whereabouts were unknown, life or death uncertain. It was exactly the time when the future was vague and she was at a loss. This was a great opportunity to lobby her to elope.
+Over these past days, he had come to understand You Rong's situation and the Zhou family almost completely. Currently, the master's whereabouts were unknown, his fate uncertain between life and death. This was precisely the moment when the future seemed murky and she found herself at a loss—the perfect opportunity to persuade her to flee with him.
 
-Moreover, she revealed homesickness just now.
+Moreover, she had just revealed her homesickness.
 
-He pretended to be a person from Jiangnan originally just to set up an elegant and handsome persona, now it hit the mark by mistake. In this way, "eloping" also carried the meaning of "returning home," so You Rong wouldn't be so resistant in her mood.
+He had originally adopted the persona of a Jiangnan native simply to cultivate an elegant, refined image; now it had hit the mark by fortunate accident. In this way, "eloping" also carried the meaning of "returning home," making You Rong far less resistant to the idea.
 
-Just thinking, he heard You Rong ask: "Master Pan is from Jiangnan; wonder which place?"
+Just as he was contemplating this, he heard You Rong ask, "Master Pan is from Jiangnan—which place exactly?"
 
-You Rong was from a Thin Horse background. Although short of social experience, her heart was very shrewd. Pan Cheng'an knew this sentence carried the meaning of questioning his background.
+You Rong came from a Thin Horse background. Though lacking in worldly experience, her mind was quite shrewd. Pan Cheng'an recognized that her question carried the intent of investigating his background.
 
-He was secretly delighted; in past interactions, she had never asked this.
+He was secretly delighted; in their previous encounters, she had never asked such things.
 
-If the other party regarded him as a dew marriage (short-term affair), a Southern Branch dream, there was no need to "get to the bottom."
+If she had regarded him as merely a "dew marriage"—a fleeting affair, a dream of the Southern Branch—there would have been no need to probe deeper.
 
-It seemed "the groom" had affection, and the concubine also had intent.
+It seemed the groom had affection, and the concubine had intent as well.
 
-Abductors (Kai Tiaozi) like Pan Cheng'an were chameleons. Their life backgrounds were several sets of fabricated ones, seamless when spoken, absolutely revealing no flaws. He said: "My old residence is in Jingjiang County, Changzhou Prefecture."
+Abductors like Pan Cheng'an were chameleons. Their life histories consisted of several fabricated sets, seamless when recounted and absolutely devoid of flaws. He said, "My ancestral home is in Jingjiang County, Changzhou Prefecture."
 
-"Since there is an old residence, there is also a new residence then?"
+"Since there's an ancestral home, there must also be a current residence?"
 
-"Yes, the new residence is in Wujin County. The old residence is in the countryside, the place is large, and there are farm estates and graves. occasionally one has to go to take care of them. The elders dislike the prefecture city being too noisy, so now they mostly live there."
+"Yes, the new residence is in Wujin County. The old estate is in the countryside—spacious, with farmland and ancestral graves. One must tend to it occasionally. The elders find the prefectural city too noisy, so they mostly reside there now."
 
-"Since Master is a Changzhou person, the accent is not quite similar..."
+"Since Master is from Changzhou, the accent doesn't seem quite right..."
 
-No matter how smart Pan Cheng'an was, it was impossible to learn many dialects. Fortunately, he had an excuse long ago, saying: "My family is not native. Our ancestral home is Huguang. Grandfather's family was poor, so he went to Jiangnan to make a living, earning a family property. Thus we settled there. Until now, the elders and old servants in the family still speak Huguang dialect. I can't speak a word of it, but I can't speak this Jingjiang and Wujin dialect either... Hahaha."
+No matter how clever Pan Cheng'an was, mastering numerous dialects was impossible. Fortunately, he had long prepared an excuse. "My family aren't natives. Our ancestral home is actually Huguang. Grandfather's family was poor, so he traveled to Jiangnan to make his fortune, eventually building up a family estate. Thus we settled there. To this day, the elders and old servants in the household still speak the Huguang dialect. I can't speak a word of it, but neither can I speak proper Jingjiang or Wujin dialect either..." He laughed. "Hahaha."
 
-"Master's Mandarin is spoken better than officials," You Rong praised, "Where does the Old Master hold a post?"
+"Master's Mandarin is spoken better than most officials," You Rong praised. "Where does your father hold his post?"
 
-"Grandfather originally wanted father to study and enter officialdom, but alas, after studying for thirty years, he is only a Xiucai (Licentiate)..." Pan Cheng'an deliberately signed.
+"Grandfather originally wanted Father to pursue studies and enter officialdom, but alas, after thirty years of study, he remains only a Xiucai..." Pan Cheng'an deliberately sighed.
 
-"Xiucai is the root of a Prime Minister; it is also not easy."
+"A Xiucai is the root from which Prime Ministers grow; it's no small achievement."
 
-"Although my father didn't pass the Juren (Provincial Graduate) exam, the ancestral business in the family wasn't put down. So the family can maintain a well-off situation."
+"Though Father never passed the Juren examination, the family's ancestral business wasn't neglected. So the household has maintained comfortable circumstances."
 
-"If Master's family is well-off, isn't my place a destitute family?" You Rong laughed.
+"If Master's family is merely comfortable, then my household must be positively destitute!" You Rong laughed.
 
-"There are many extremely rich families in Jiangnan; a family like mine can only count as a well-off situation."
+"There are many extremely wealthy families in Jiangnan; a household like mine can only be called comfortable."
 
-"Yes, Jiangnan is really a good place." You Rong sighed, quite melancholy.
+"Yes, Jiangnan truly is a wonderful place." You Rong sighed, her voice touched with melancholy.
 
-Pan Cheng'an knew she felt homesick, seized the opportunity and asked: "Is Miss a Yangzhou person?"
+Pan Cheng'an recognized her homesickness and seized the opportunity. "Is Miss from Yangzhou?"
 
-"Speaking of which, can't count as one. My family just had registered residence (Music Household registration) in Yangzhou. Actually, my home is in Xinghua County, Gaoyou Prefecture." You Rong nodded, "Parted for several years, don't know if the scenery is still as usual? Now the world is in turmoil of war everywhere..." After speaking, she showed worry on her face.
+"Strictly speaking, not really. My family merely held Music Household registration in Yangzhou. Actually, my home is in Xinghua County, Gaoyou Prefecture." You Rong nodded. "It's been several years since I left. I wonder if the scenery remains unchanged? Now with warfare and turmoil everywhere..." As she spoke, worry clouded her features.
 
-"Turmoil of war is true, but Jiangnan is always a blessed land." Pan Cheng'an comforted, "Xinghua is not far from Changzhou Prefecture, just across the river. If there are any letters or items to bring back, just give them to me."
+"The turmoil is real, but Jiangnan remains a blessed land," Pan Cheng'an offered in comfort. "Xinghua isn't far from Changzhou Prefecture—just across the river. If you have any letters or items to send home, simply entrust them to me."
 
-"True, you are going back to Jiangnan." You Rong felt somewhat lost, "When will you go back?"
+"That's right, you're returning to Jiangnan." You Rong's voice carried a note of loss. "When will you depart?"
 
-"Will set off as soon as the river ice melts." Pan Cheng'an watched her expression.
+"As soon as the river ice melts." Pan Cheng'an watched her expression carefully.
 
-"Once gone, never to come back?"
+"Once you leave, will you never return?"
 
-"This... is also hard to say." Pan Cheng'an pretended to hesitate, "Coming to the Capital was originally to seek a future career. If there is an opportunity, I will still come in the future."
+"That... is difficult to say." Pan Cheng'an feigned hesitation. "My original purpose in coming to the Capital was to seek future prospects. If opportunity arises, I may return in the future."
 
-The meaning in the words was that there wasn't much chance to come again.
+The implication was clear: there was little chance of his returning.
 
-Although knowing this was a dew marriage, the two loved each other deeply in these few months. Now on the eve of parting, You Rong couldn't help feeling dejected and sad.
+Though knowing from the start that this was but a fleeting affair, the two had grown deeply attached over these few months. Now, on the eve of parting, You Rong couldn't help but feel dejected and sorrowful.
 
-Pan Cheng'an said: "Speaking of which, I am also reluctant to part... Sigh!" He deliberately sighed a long sigh.
+Pan Cheng'an said, "Truth be told, I too am reluctant to part... Ah!" He released a long, deliberate sigh.
 
-"What are you reluctant to part with?" You Rong asked knowingly.
+"Reluctant to part with what?" You Rong asked, though she already knew the answer.
 
-Pan Cheng'an whispered: "Do you really not know?"
+Pan Cheng'an lowered his voice. "Do you truly not know?"
 
-"I am not a worm in your belly, how would I know?"
+"I'm not a worm in your belly—how could I know?"
 
-The man sighed slightly, seemingly muttering to himself: "My heart, are you still unaware?"
+The man sighed softly, as if murmuring to himself: "My heart... are you still unaware of it?"
 
-You Rong pretended not to hear, only lowered her head and sipped wine shallowly. After a long while she asked again: "You have left home for so long, probably you also miss home."
+You Rong pretended not to hear, only lowering her head to sip her wine delicately. After a lengthy silence, she asked again, "You've been away from home for so long; you must miss it."
 
-"My wife is in poor health, and two children are also in childhood (tufts of hair), naturally I am worried." Pan Cheng'an said frankly. With his age and background, he couldn't say he was still single. "Fortunately, there is an old mother to take care of them at home, so I can still be at ease."
+"My wife is in poor health, and both children are still young, so naturally I worry." Pan Cheng'an spoke frankly. Given his age and supposed background, claiming to be unwed would have been implausible. "Fortunately, my aged mother looks after them at home, so I can rest somewhat at ease."
 
-"Such a big family, you didn't acquire concubines by your side?"
+"With such a large household, have you not taken any concubines?"
 
-"Concubines naturally exist, but both are women from rural backgrounds, unpresentable." Pan Cheng'an said, "They can only help manage housework. If something really happens, they have no opinions."
+"Concubines I have, but both are women of rural backgrounds—hardly presentable." Pan Cheng'an continued, "They can only help manage household affairs. If something truly important arose, they'd have no judgment to offer."
 
-You Rong didn't speak. After contemplating for a long while, she suddenly said: "Coming to the Capital to seek a future career this time, is the matter accomplished?"
+You Rong fell silent. After contemplating for a long while, she said abruptly, "This journey to the Capital to seek your future—has the matter been accomplished?"
 
-"Naturally it is accomplished." Pan Cheng'an revealed a proud expression, "Money can make ghosts push the millstone. Besides, what I sought was just a student of the Imperial Academy (Guozijian Jiansheng), not costing much trouble."
+"Naturally it has." Pan Cheng'an's face showed a proud expression. "Money can make ghosts push the millstone. Besides, what I sought was merely admission as a student of the Imperial Academy—it required little trouble."
 
-"Can let me see?"
+"Might I see the documentation?"
 
-"Why would I carry the appointment document from the Ministry of Rites with me? It's kept at Yun'er's place. If you want to see, I'll bring it next time."
+"Why would I carry the appointment document from the Ministry of Rites on my person? It's kept at Yun'er's place. If you wish to see it, I'll bring it next time."
 
-"I'm afraid there isn't a next time..." You Rong muttered.
+"I fear there won't be a next time..." You Rong murmured.
 
-"Why?" Pan Cheng'an revealed a surprised expression.
+"Why not?" Pan Cheng'an affected a surprised expression.
 
-You Rong immediately recounted Xu Yong's matter: "Looking at his meaning, I'm afraid the master family already suspected, just having no evidence."
+You Rong immediately recounted the matter of Xu Yong. "From his manner, I suspect the master's household already has suspicions—they simply lack evidence."
 
-Pan Cheng'an showed a nervous look—this was not feigned. He had inquired about You Rong's master family, absolutely a figure he couldn't afford to provoke. If really caught by the other party, his own little life would not be preserved.
+Pan Cheng'an's face turned anxious—and this was no pretense. He had made inquiries about You Rong's master's family; they were absolutely figures he could not afford to provoke. If they truly caught him, his life would not be spared.
 
-"If so, need to make plans early to be proper." He said involuntarily.
+"If that's the case, we must make plans early to be safe." The words escaped him involuntarily.
 
-"What plan does Master Pan have?" You Rong stared tightly at Pan Cheng'an's face.
+"What plans does Master Pan have?" You Rong fixed her gaze intently on his face.
 
-Between electric light and stone fire (in a flash), Pan Cheng'an had already calculated clearly in his heart: Things having come to this, there was absolutely no reason to let go just like this. At worst, he wouldn't come to the Capital to "do business" for these few years.
+In the space of a lightning flash, Pan Cheng'an had already calculated everything in his mind: matters having come to this point, there was absolutely no reason to simply let her go. At worst, he would avoid coming to the Capital for "business" over the next few years.
 
-Immediately he looked at You Rong with determined eyes and said: "My mind is decided, wonder what Miss thinks?"
+He met You Rong's eyes with a look of resolve and said, "My mind is made up. I wonder what Miss thinks?"
 
 (End of Chapter)

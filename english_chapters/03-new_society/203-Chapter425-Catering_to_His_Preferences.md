@@ -26,7 +26,7 @@ Wu Mingjin let out a "hmph" and said: "What choice do I have? Since the school l
 
 Wang Ci was greatly embarrassed. His political acumen wasn't high, and he hadn't realized his words while soliciting donations had offended his superior. He thought the county magistrate was blaming him for taking it upon himself to lease the school lands to the Tiandihui. He hastily rose and said: "It's all this subordinate's momentary confusion..."
 
-"The county has no money now. Since they want to repair it, let them repair it." Wu Mingjin had completely given up resisting whatever the Short Hairs chose to do. Whatever they wanted to accomplish, they would accomplish. His making a fuss was nothing more than a mantis trying to stop a chariot.
+"The county has no money now. Since they want to repair it, let them repair it." Wu Mingjin had completely given up resisting whatever the Kun chose to do. Whatever they wanted to accomplish, they would accomplish. His making a fuss was nothing more than a mantis trying to stop a chariot.
 
 Wang Ci got not a single piece of advice from Wu Mingjin, though he did witness the county magistrate's various recent "Australian enjoyments." He wanted to find Secretary Wang, but the attendant said the secretary was napping and wasn't receiving guests. He could only slink back to the county school.
 
@@ -38,15 +38,15 @@ Suddenly, a half-burned scrap of paper flew to Wang Ci's chest. He grabbed it wi
 
 This was a page from the *Analects*!
 
-He had only instructed the doorman to burn the Short Hairs' books; he hadn't told him to burn the *Analects*. Confucian classics like the Four Books and Five Classics, though not rare, simply couldn't be purchased in Lingao—you had to travel to the prefectural capital! Using such a book as firewood—
+He had only instructed the doorman to burn the Kun' books; he hadn't told him to burn the *Analects*. Confucian classics like the Four Books and Five Classics, though not rare, simply couldn't be purchased in Lingao—you had to travel to the prefectural capital! Using such a book as firewood—
 
 Wang Ci nearly fainted from rage. He was about to rush over and berate him loudly when he suddenly froze.
 
 This *Analects* was printed horizontally!
 
-Horizontally printed books—in the Great Ming, besides these Short Hairs, absolutely no one else did this!
+Horizontally printed books—in the Great Ming, besides these Kun, absolutely no one else did this!
 
-So the fifty books the Short Hairs had sent were not that strange *Literacy Textbook* but "proper books" like the Four Books and Five Classics! Realizing this, he shouted with all his might:
+So the fifty books the Kun had sent were not that strange *Literacy Textbook* but "proper books" like the Four Books and Five Classics! Realizing this, he shouted with all his might:
 
 "Stop!"
 

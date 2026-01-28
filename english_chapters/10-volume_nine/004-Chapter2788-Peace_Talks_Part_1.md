@@ -1,101 +1,101 @@
 # Chapter 2788: Peace Talks (Part 1)
 
-Intelligence regarding the Imperial Court's suppression campaign in the Capital began to flow continuously into the Foreign Intelligence Bureau through commercial and foreign intelligence lines. Soon, through the Security Affairs Liaison Conference, most Senators also knew about this situation.
+Intelligence regarding the Imperial Court's suppression campaign in the Capital began flowing continuously into the Foreign Intelligence Bureau through commercial and foreign intelligence channels. Before long, by way of the Security Affairs Liaison Conference, most Senators had also learned of the situation.
 
-Regarding the Ming Court's suppression campaign, except for those in the military sector, most Senators laughed it off, even feeling it didn't have much to do with them. First, no one believed the Fubo Army would be defeated militarily; second, the current battle line had advanced to the Five Ridges. Let alone Senators in Hainan, even those in Guangzhou couldn't feel much threat from the Great Ming. Guangzhou was not only more prosperous than before but also went up a level in extravagant enjoyment due to the Australian new gadgets and the influx of large numbers of government agencies and enterprises, quite having the meaning of drunken paper and gold fans (luxury and dissipation).
+Regarding the Ming Court's suppression campaign, most Senators outside the military sector laughed it off, feeling it had little to do with them. First, no one believed the Fubo Army would suffer military defeat; second, the current battle lines had advanced to the Five Ridges. Let alone Senators in Hainan—even those in Guangzhou could scarcely feel any threat from the Great Ming. Guangzhou was not only more prosperous than before but had risen another level in extravagant indulgence, thanks to Australian novelties and the influx of government agencies and enterprises. The city had taken on a distinctly hedonistic atmosphere of luxury and dissipation.
 
-But for the army and intelligence/security agencies (Qingzhi), duty-bound, naturally they couldn't laugh it off. They were about to enter "combat readiness" immediately.
+But for the army and the intelligence and security agencies, duty-bound as they were, there was no laughing it off. They were about to enter combat readiness immediately.
 
-Combat readiness of the army had thousands of threads and loose ends, but combat readiness of intelligence units was much simpler, nothing more than knowing "what" the Emperor planned to do and "how" to do it.
+Combat readiness for the army meant managing thousands of threads and loose ends, but combat readiness for intelligence units was far simpler—nothing more than determining "what" the Emperor planned to do and "how" he intended to do it.
 
-Judging from the sent intelligence, the Great Ming was indeed proceeding with preparations for an offensive. Its offensive intention could even be said to be undisguised. In this space-time, the concept of strategic deception was still very vague, and actual operation was also difficult to achieve watertight secrecy. So Jiang Shan believed this matter was nailed on the iron board (certain), without dispute.
+Judging from the intelligence reports, the Great Ming was indeed proceeding with offensive preparations. Their aggressive intent could even be called undisguised. In this space-time, the concept of strategic deception remained vague, and achieving watertight operational secrecy proved difficult in practice. Thus Jiang Shan considered this matter nailed down and beyond dispute.
 
-The following "how to do it" was the key point. Strictly speaking, how the Great Ming would suppress was not the key work object of intelligence agencies. In the 17th century, the routes to attack Guangdong and Guangxi from the south were just those few. The Ming army also had no capability for amphibious landing or airborne operations. The General Staff didn't need to spend much effort to analyze the Ming army's possible marching routes and combat plans. The things intelligence agencies needed to do were limited.
+The question of "how to do it" was the key point. Strictly speaking, how the Great Ming would conduct their suppression was not the primary concern of intelligence agencies. In the seventeenth century, there were only a handful of routes for attacking Guangdong and Guangxi from the south. The Ming army possessed no capability for amphibious landings or airborne operations. The General Staff needed little effort to analyze the Ming army's possible marching routes and battle plans, leaving intelligence agencies with limited responsibilities in that area.
 
-What really interested intelligence agencies was that among the information coming from various channels, some special information was mixed in. That was, did the Great Ming really want to "go south," or rather, what was the true purpose of the Great Ming going south?
+What truly interested the intelligence agencies was the special information mixed among the reports arriving through various channels. Namely: did the Great Ming genuinely want to "go south," or rather, what was the true purpose behind their southern campaign?
 
-As long as they were not Ming officials who spoke lies with eyes open, everyone knew the winning rate of going south to punish Kun was not higher than recovering Shenyang and eliminating Manchus. It could even be said that eliminating Manchus could still be strived for somewhat after all; Hong Taiji and his pillaging group also had a hard time. Fighting a war of attrition and delay was beneficial to the Great Ming. But to drive away Australians, it was already an impossible thing.
+Anyone who wasn't a Ming official speaking barefaced lies knew the odds of success in a southern punitive expedition against the Kun were no better than recapturing Shenyang and eliminating the Manchus. One might even argue that eliminating the Manchus was at least worth striving for—Hong Taiji and his pillaging bands were struggling too. A war of attrition and delay would benefit the Great Ming. But driving out the Australians? That was already an impossible task.
 
-Rashly launching a punitive expedition with almost no chance of winning was very unfavorable to the Great Ming from a strategic level.
+Rashly launching a punitive expedition with virtually no chance of victory was strategically disadvantageous for the Great Ming.
 
-Senators could see it; could the people of insight in the Great Ming not see it? Did they have any secret weapons?
+If the Senators could see this, could the men of insight in the Great Ming not see it as well? Did they possess some secret weapon?
 
-"Secret weapons naturally don't exist, but generally speaking, the drinker's heart is not in the cup (ulterior motive)." Xu Ke said.
+"Secret weapons naturally don't exist," Xu Ke said, "but generally speaking, the drinker's heart lies not in the wine."
 
-He was not in the conference room of the Foreign Intelligence Bureau at this moment, but in a conference room of the Internal Security Affairs Bureau. The weekly Internal Security Conference was being held here.
+He was not in the Foreign Intelligence Bureau's conference room at this moment, but in a conference room of the Internal Security Affairs Bureau. The weekly Internal Security Conference was being held there.
 
-Since the establishment of the Foreign Intelligence Bureau, under Jiang Shan's suggestion, all intelligence/security agencies under the Senate would hold such a meeting every week to exchange intelligence and communicate. In order to analyze and utilize intelligence effectively, and also be able to borrow resources from other departments at any time.
+Since the establishment of the Foreign Intelligence Bureau, at Jiang Shan's suggestion, all intelligence and security agencies under the Senate held such meetings every week to exchange intelligence and maintain communication. The purpose was to analyze and utilize intelligence effectively while enabling departments to borrow resources from one another as needed.
 
-Because this system operated effectively, it had continued down.
+Because the system operated effectively, the practice had continued.
 
-At this moment, the conference room was full of people. The "Four Great Guardians"—Foreign Intelligence Bureau, Reconnaissance General Bureau, Political Security Bureau, and National Police—were all there, plus the General Guard Bureau established not long ago. according to custom, someone from the commercial department also attended the meeting.
+At this moment, the conference room was filled with people. The "Four Great Guardians"—Foreign Intelligence Bureau, Reconnaissance General Bureau, Political Security Bureau, and National Police—were all present, along with the recently established General Guard Bureau. As was customary, someone from the commercial department also attended.
 
-"Where does it lie then?"
+"Where does it lie, then?"
 
-"Lies in the face of the Imperial Court." Wang Ding laughed. "Punishing Kun is Chongzhen's behavior to maintain face. We have analyzed this problem at the beginning. The Imperial Court cannot turn a blind eye to our action of capturing Guangdong and Guangxi. Great Ming has two Capitals and thirteen Administration Commissioners; we took away two easily. The Court's face is swept to the ground (disgraced). If there is no action, will anyone take this Court seriously? Even if it will fail, this battle must be fought—this is an attitude problem."
+"In the face of the Imperial Court." Wang Ding laughed. "Punishing the Kun is Chongzhen's way of maintaining face. We analyzed this problem from the beginning. The Imperial Court cannot turn a blind eye to our capture of Guangdong and Guangxi. The Great Ming has Two Capitals and Thirteen Provincial Administration Commissions; we took away two with ease. The Court's dignity has been swept to the ground. Without action, who would take this Court seriously? Even if it means failure, this battle must be fought—it's a matter of attitude."
 
-"Wouldn't failing lose more face?"
+"Wouldn't losing cost them even more face?"
 
-"Can fight a lost battle, but cannot admit defeat." Li Yan said, "Everyone understands this logic."
+"One can fight a losing battle, but one cannot admit defeat," Li Yan said. "Everyone understands this logic."
 
-Jiang Shan smiled and said: "Things are not that simple." He cleared his throat, "integrating intelligence from all aspects, we believe the Great Ming Court is preparing for peace talks."
+Jiang Shan smiled. "Things are not that simple." He cleared his throat. "Integrating intelligence from all sources, we believe the Great Ming Court is preparing for peace talks."
 
-A slight ripple rose in the conference room. Those present were all staff of intelligence/security units, all too familiar with mutual deception, honey dripping from mouth but sword in belly, making a feint to the east but attacking in the west... these routines. But the word "peace talks" still aroused their great interest.
+A slight ripple passed through the conference room. Those present were all intelligence and security personnel, thoroughly familiar with mutual deception, honeyed words concealing daggers, feints to the east while attacking the west—all such routines. Yet the phrase "peace talks" still aroused their keen interest.
 
-Were peace talks good? Good. Both the Ming Court and the Senate had the intention of peace talks. One wanted to use it to gain a breathing spell to concentrate strength on dealing with Later Jin and peasant armies; the other naturally was practicing the strategy of "build walls high, accumulate grain widely," easing the external environment to strive for development space, and could also conduct infiltration through trade. The purposes of both sides were to strive for more combat preparation time.
+Were peace talks beneficial? Indeed they were. Both the Ming Court and the Senate harbored intentions of negotiating. One side wanted to gain breathing room to concentrate strength against the Later Jin and peasant armies; the other naturally pursued the strategy of "building walls high and storing grain deep," easing external pressures to create development space while also conducting infiltration through trade. Both sides' ultimate purpose was to secure more time for military preparation.
 
-But international relations in East Asia in the 17th century were the suzerain-vassal tributary system. The Central Plains regime of China became the unified center, and various tributary states acknowledged this central status, constituting the outer vassals of the central regime. What suzerain-vassal relations contained was not just international relations; the foundation of this relationship was the Hua-Yi (Chinese-Barbarian) Order. Regarding China as "Hua" (Civilized), and surrounding countries as "Yi" (Barbarian).
+But international relations in seventeenth-century East Asia operated through the suzerain-vassal tributary system. The Central Plains regime of China served as the unified center, with various tributary states acknowledging this central status to constitute the outer vassals of the central regime. What the suzerain-vassal relationship contained was not merely international relations—the foundation of this relationship was the Hua-Yi Order, regarding China as "Hua," the civilized, and surrounding countries as "Yi," the barbarians.
 
-The nominal issue became an insurmountable obstacle.
+The issue of status became an insurmountable obstacle.
 
-Letting the Senate acknowledge the Ming Dynasty as suzerain, this was impossible.
+Having the Senate acknowledge the Ming Dynasty as suzerain was impossible.
 
-Letting the Ming Dynasty accept the Senate having equal status with it, the Ming Dynasty couldn't accept it either.
+Having the Ming Dynasty accept the Senate as an equal was equally unacceptable to them.
 
-The situation of the Portuguese in Macau was special. Strictly speaking, Macau was just them Borrowing residence as guests; the Ming government office had always existed.
+The situation of the Portuguese in Macau was special. Strictly speaking, Macau was merely borrowed residence; Ming government offices had always existed there.
 
-In the eyes of the Emperor and ministers, they could accept the claim that Kun Thieves were descendants of Huaxia, but at the same time, in their view, Kun Thieves had lived overseas for a long time, not knowing the etiquette of the Celestial Dynasty, and were already no different from overseas barbarians. To let Ming Dynasty sit as equals with this political entity heavily violated the political correctness of the Ming Dynasty.
+In the eyes of the Emperor and his ministers, they could accept the claim that the Kun were descendants of Huaxia, but at the same time, in their view, the Kun had lived overseas for so long—ignorant of Celestial Dynasty etiquette—that they were already indistinguishable from overseas barbarians. Allowing the Ming Dynasty to sit as equals with such a political entity severely violated the political correctness of the realm.
 
-Of course, it wasn't completely hopeless. After all, the Senate was still different from the Manchus. Since 1618, the Manchus had battled for nearly twenty years, with hundreds of thousands of Ming troops dead and injured, and Liaodong people massacred counting in millions. Several entries into the Pass for pillage caused even greater destruction, with countless military and civilian casualties near the Capital.
+Of course, the situation was not entirely hopeless. After all, the Senate remained fundamentally different from the Manchus. Since 1618, the Manchus had waged war for nearly twenty years, leaving hundreds of thousands of Ming troops dead or wounded, with millions of Liaodong people massacred. Their multiple incursions through the passes had caused even greater destruction, with countless military and civilian casualties near the Capital.
 
-While the Kun Thieves just occupied Guangdong and Guangxi. The Ming troops eliminated on the battlefield were only tens of thousands. They didn't manufacture sensational massacres, nor did they pillage and sweep near the Capital.
+The Kun, by contrast, had merely occupied Guangdong and Guangxi. The Ming troops eliminated on the battlefield numbered only in the tens of thousands. They had committed no sensational massacres, nor had they pillaged the regions near the Capital.
 
-Besides, they claimed to be descendants of the Song Dynasty; emotionally it was easier to accept.
+Besides, they claimed descent from the Song Dynasty—emotionally, that was easier to accept.
 
-But how to operate specifically, using what excuse to negotiate peace, this was a big difficult problem.
+But how to proceed specifically, and under what pretext to negotiate peace—this remained an enormous challenge.
 
-Especially Great Ming, which always "ceded no land, paid no indemnities, made no marriage alliances," even if the Emperor was captured, they would continue to fight against it. let alone the Court hadn't reached the time of critical survival yet.
+Especially for the Great Ming, which had always "ceded no land, paid no indemnities, and made no marriage alliances." Even when the Emperor was captured at the Tumu Crisis, they had continued fighting. And the Court had not yet reached a moment of existential crisis.
 
-So as soon as Jiang Shan's conclusion came out, everyone was somewhat skeptical more or less.
+So when Jiang Shan's conclusion emerged, everyone harbored varying degrees of skepticism.
 
-"First say why we judge so," Jiang Shan picked up a report in his hand, "This is our judgment report on the court situation in the Capital in the recent half year. Content is a lot, I won't list one by one. Everyone can read slowly after going back. Just mentioning a few important places."
+"First, let me explain why we've reached this judgment." Jiang Shan picked up a report. "This is our assessment of the court situation in the Capital over the past half year. The content is extensive, so I won't enumerate everything. You can read it carefully afterward. I'll just highlight a few important points."
 
-"First is Yang Sichang's memorials and records of answering questions (Zhao Dui). The original text excerpts and related translations have appendices in the report. Generally speaking, his 'pacification' train of thought is exactly the same as in history. All take peasant armies as the main strike target, that is, 'to resist foreign aggression, one must first settle internal stability' is the guiding ideology of this future Minister of War. His thinking, whether in history or now, is fully approved by Chongzhen. If you look carefully, Yang Sichang said quite a few good words for us in the records of answering questions. And the Emperor seemed to approve quite a bit.
+"First is Yang Sichang's memorials and records of his imperial audiences. Original text excerpts and related translations are appended to the report. Generally speaking, his 'pacification' thinking follows exactly the same pattern as in history. He treats the peasant armies as the primary target—that is, 'to resist foreign aggression, one must first secure internal stability' is the guiding ideology of this future Minister of War. His thinking, whether in history or now, is fully approved by Chongzhen. If you read carefully, Yang Sichang actually spoke quite favorably of us in his audience records. And the Emperor seemed to approve considerably."
 
-"Secondly, it's the collection of Guangdong Provisions (Yue Xiang)." Jiang Shan said, "This matter fully illustrates the current mentality of the Court. Yue Xiang is like Liao Xiang (Liaodong Provisions), collected to deal with external enemies. Theoretically, funds are earmarked for specific purposes—at least Liao Xiang is like this. But everyone can see the relevant memorials of the Ministry of Revenue: the quota of Yue Xiang is 2.1 million. Before collecting it, 1 million is already reserved for 'suppressing bandits.' Fu Zonglong has a high probability of not getting even one-third of the remaining 1.1 million taels—yet the Court wants him to 'train troops and make weapons'."
+"Second is the collection of Yue Xiang—the Guangdong Provisions." Jiang Shan continued. "This matter fully illustrates the Court's current mentality. Yue Xiang functions like Liao Xiang, the Liaodong Provisions—collected to deal with external enemies. Theoretically, these funds should be earmarked for specific purposes; at least Liao Xiang operates this way. But everyone can see the relevant memorials from the Ministry of Revenue: the Yue Xiang quota is 2.1 million taels. Before collection even begins, one million is already reserved for 'suppressing bandits.' Fu Zonglong will most likely receive less than one-third of the remaining 1.1 million taels—yet the Court expects him to 'train troops and manufacture weapons.'"
 
-"Third, Fu Zonglong's comeback, the obtained position is Governor of Southern Jiangxi (Nan-Gan). Although also a high ranking regional military and political official, compared to corresponding high officials in Liaodong and the interior with added titles of Premier, Viceroy, Strategy-Manager, Fu Zonglong is merely a Governor. It's hard to imagine how he should coordinate various armies to launch a large-scale southern punitive expedition."
+"Third, there is Fu Zonglong's return to office. The position he obtained is Governor of Southern Jiangxi. Although still a high-ranking regional military and political official, compared to corresponding officials in Liaodong and the interior with added titles of Premier, Viceroy, or Strategy-Manager, Fu Zonglong is merely a Governor. It's difficult to imagine how he could coordinate various armies to launch a large-scale southern punitive expedition."
 
-"You mean punishing Kun is just a cover?" Ran Yao questioned, "But this can't prove Great Ming will negotiate peace with us."
+"You mean punishing the Kun is just a cover?" Ran Yao questioned. "But this doesn't prove the Great Ming will negotiate peace with us."
 
-"Perhaps more to give an excuse for peace talks..."
+"Perhaps more to provide an excuse for peace talks..."
 
-"Negotiate peace after fighting a lost battle? Great Ming is not like this. Even when the Emperor was captured at Tumu Crisis, they didn't negotiate peace."
+"Negotiate peace after fighting a losing battle? The Great Ming doesn't operate that way. Even when the Emperor was captured at Tumu, they didn't negotiate peace."
 
-"I'm afraid this is very possible." Xu Ke said, "According to my harvest from this trip to the Capital, peace talks in the court are already undercurrents surging. This is actually very attractive to the Emperor. The benefits peace talks can bring to Great Ming are obvious..."
+"I'm afraid it's very possible." Xu Ke said. "According to what I gathered during my trip to the Capital, peace talks are already generating undercurrents in the court. This is actually quite attractive to the Emperor. The benefits peace talks could bring to the Great Ming are obvious..."
 
-"Since there are benefits, why not negotiate peace? The initiative is in their hands!"
+"Since there are benefits, why not negotiate? The initiative is in their hands!"
 
-"This is the Court's face mentioned earlier." Xu Ke continued, "Perhaps it should be said Chongzhen's face. Everyone has listened to Teacher Yu's lecture, probably having a certain understanding of this person Chongzhen's character and conduct. He very much hopes to become a wise ruler and sage, unwilling to have any flaw. So for him to open this opening of peace talks, high probability it won't work."
+"This returns to the Court's face we mentioned earlier." Xu Ke continued. "Or perhaps we should say Chongzhen's face. Everyone has attended Teacher Yu's lectures, so you probably have some understanding of Chongzhen's character and conduct. He desperately wishes to become a wise and sagacious ruler, unwilling to bear any flaw. So for him to initiate peace talks himself—the probability is very low."
 
-Those at the meeting nodded together. They had all heard Yu E'shui talk about the "Chen Xinjia Incident."
+Those at the meeting nodded in agreement. They had all heard Yu E'shui discuss the "Chen Xinjia Incident."
 
-"So he hopes someone in the court takes the lead to propose this suggestion. For this matter, he actually has hinted to Wen Tiren for several months, but Wen Tiren just doesn't take his hint."
+"So he hopes someone at court will take the lead in proposing this suggestion. For this matter, he has actually been hinting to Wen Tiren for several months, but Wen Tiren simply refuses to take the hint."
 
-"Right, Chen Xinjia being unclear (muddled) doesn't mean Wen Tiren is unclear." Someone laughed.
+"Right, Chen Xinjia being muddled doesn't mean Wen Tiren is muddled." Someone laughed.
 
-"Whether he is unclear or not, we have no way to know. But our view is, Wen Tiren didn't take this matter to heart. His entire mind now is placed on overthrowing Qian Qianyi and bring down the Restoration Society."
- 
-Wen Tiren being "unclear" didn't mean others were "unclear." After all, the "Chen Xinjia Incident" hadn't appeared yet, and officials hadn't lost trust in the Emperor yet. So people who wanted to take the opportunity to cater to the Sacred Will were already itching to try.
+"Whether he's muddled or not, we have no way of knowing. But our view is that Wen Tiren hasn't taken this matter to heart. His entire focus now is placed on overthrowing Qian Qianyi and bringing down the Restoration Society."
+
+Wen Tiren being "muddled" didn't mean others were. After all, the "Chen Xinjia Incident" had not yet occurred, and officials had not yet lost faith in the Emperor. So those who wished to seize the opportunity to curry favor with the Sacred Will were already itching to act.
 
 (End of Chapter)

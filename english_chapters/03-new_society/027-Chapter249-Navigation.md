@@ -8,11 +8,11 @@ The quadrant had been in this world for less than half a century, yet now someon
 
 Li Huamei noticed a part that seemed to be inlaid with lenses. Just as she was about to lean in and touch it, she heard someone shout, "Don't touch it! You'll scratch the glass."
 
-She turned around to see a stranger she didn't recognize. He was thirty-seven or thirty-eight, tall and large. The Short Hairs were generally tall, but this one was especially so—at least six feet seven or eight inches by her estimation. He stood a head taller than everyone around him, with a robust build: round face, big eyes. He wore the blue button-down shirt Australians often wore, what they called a training uniform. Someone had told her: blue was for the Navy, gray for the Army, and camouflaged ones were worn by everyone. His skin was dark and coarse, clearly weathered by sea wind and waves, and his expression was resolute and stern.
+She turned around to see a stranger she didn't recognize. He was thirty-seven or thirty-eight, tall and large. The Kun were generally tall, but this one was especially so—at least six feet seven or eight inches by her estimation. He stood a head taller than everyone around him, with a robust build: round face, big eyes. He wore the blue button-down shirt Australians often wore, what they called a training uniform. Someone had told her: blue was for the Navy, gray for the Army, and camouflaged ones were worn by everyone. His skin was dark and coarse, clearly weathered by sea wind and waves, and his expression was resolute and stern.
 
 Behind him stood six boys wearing identical black student uniforms with standing collars, appearing to be between thirteen and fourteen years old. All were dark-skinned, standing steadily on the swaying deck. Each carried a green canvas satchel, standing neatly in a row.
 
-"Committeeman Chen, giving the kids a lesson again?" Judging by Lin Chuanqing greeting him first, this person must be a relatively high-ranking Short Hair.
+"Committeeman Chen, giving the kids a lesson again?" Judging by Lin Chuanqing greeting him first, this person must be a relatively high-ranking Kun.
 
 "Yes, these kids from the navigation class have only rowed boats in Bopu until now. This trip is a perfect opportunity for an internship."
 

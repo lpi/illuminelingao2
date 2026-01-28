@@ -2,88 +2,90 @@
 
 "You're right." Dingding couldn't help feeling deflated.
 
-"Just a small personal view—naturally you should seek cooperation from other departments, but you should also build on your own unit's resources..." He waved his hand, indicating not to interrupt. "I know, you're going to say you just push pens with no resources. Actually, your resources aren't small either. Our mouthpieces are all in your hands—how can you say you have no resources?"
+"This is merely my personal perspective—naturally, you should seek cooperation from other departments, but you ought to leverage your own unit's resources as well..." He waved his hand to forestall interruption. "I know what you're about to say: that you're just paper-pushers with nothing to offer. But actually, your resources are far from negligible. All our mouthpieces rest in your hands—how can you claim to have nothing?"
 
-"That's how it's said, but the power to decide propaganda policy isn't in my hands." Dingding was equally blunt. "Everyone calls me Goebbels, but what kind of Propaganda Minister am I? I can't even decide what stories to run—everything has to be decided by Senate meetings..."
+"That may be true in theory, but the authority to set propaganda policy doesn't belong to me." Dingding was equally forthright. "Everyone calls me Goebbels, but what kind of Propaganda Minister am I really? I can't even decide which stories to run—every decision must go through Senate meetings..."
 
-"Can't put it that way." Ma Qianzhu habitually drew out his tone. "Newspapers, magazines—these are gold mines. You should dig more into their potential value. I think many departments and institutions would like their work to be discovered and understood by everyone..."
+"You can't look at it that way." Ma Qianzhu habitually drew out his words. "Newspapers, magazines—these are gold mines waiting to be tapped. You should explore their potential value more thoroughly. I imagine many departments and institutions would welcome the chance to have their work discovered and understood by the public..."
 
-If there were an election for the most respected Senator, Shi Niaoren would definitely be in second place looking up at first. Feudal superstitious titles like "Divine Healer," "Medicine King," and "Medical Immortal" could no longer describe his status. According to his ambition, all therapy prefixes in "Australian Medicine" textbooks could be changed to his name. Of course, this was impossible—at minimum, half the naming rights would have to be split with other livestock-raising Senators.
+---
 
-At this moment, it was the weekly Shi Niaoren Time, meaning the Bairen General Hospital inpatient department grand rounds. Since this system was established, livestock-raising Senators privately called it "Senator Shi Holding Court."
+If there were an election for most respected Senator, Shi Niaoren would surely find himself in second place, gazing upward at first. Feudal honorifics like "Divine Healer," "Medicine King," and "Medical Immortal" could no longer capture his standing. According to his own ambitions, every therapeutic prefix in the *Australian Medicine* textbooks could rightfully bear his name. Of course, this was impossible—at minimum, half the naming rights would have to be ceded to the other livestock-raising Senators.
 
-Dr. Shi hadn't initially realized his grand rounds held such significance. Later, as the Health Department and Bairen General Hospital expanded in scale and medical personnel increased, with the deliberate and unconscious involvement of numerous naturalized-citizen medical staff, these rounds took on an increasingly strong ritualistic quality.
+At this moment, it was the weekly Shi Niaoren Time: the Bairen General Hospital inpatient department grand rounds. Ever since this system was established, the livestock-raising Senators privately referred to it as "Senator Shi Holding Court."
 
-Every Monday morning, grand rounds began, as always, with a high-pitched cry from Zhang Ziyi, the Lingao General Hospital Nursing Director and Chief Nurse: "Dr. Shi's rounds!"
+Dr. Shi hadn't initially realized his grand rounds carried such significance. But as the Health Department and Bairen General Hospital expanded in scale and medical personnel multiplied—through both deliberate effort and organic growth among naturalized-citizen medical staff—these rounds took on an increasingly ritualistic quality.
 
-With this call, all wards immediately fell into wordless tension. Each ward's head nurses, duty nurses, and inpatient doctors immediately tidied their appearance. They parted left and right, standing in the corridor in order of education, seniority, and hierarchy.
+Every Monday morning, grand rounds commenced with a high-pitched announcement from Zhang Ziyi, Lingao General Hospital's Nursing Director and Chief Nurse: "Dr. Shi's rounds!"
 
-As the fifth-floor elevator doors of the inpatient building slowly opened—to accommodate patient transport requirements, the newly built Bairen General Hospital inpatient building was also equipped with elevators—Shi Niaoren's not-so-tall figure appeared at the corridor's end. Fu Qiliang and several other Senator physicians immediately gathered around, greeting with familiarity or warmth: "Good morning, Dr. Shi!" In the hospital, everyone preferred using "Director" rather than "Minister." After all, this title felt warmer, more like "one of us."
+At this call, every ward immediately fell into wordless tension. Head nurses, duty nurses, and attending physicians scrambled to adjust their appearances, then parted to either side, lining the corridor in precise order according to education, seniority, and rank.
 
-After Shi Niaoren exchanged pleasantries with the Senator physicians, he began his rounds along the corridor. Scores of naturalized-citizen doctors standing apprehensively on both sides of the corridor, along with an even larger number of female nurses, all bowed together, welcoming the Senator physician into the ward. This scene always reminded Shi Niaoren of emperors setting out in costume dramas, which was why he never tired of it.
+As the fifth-floor elevator doors of the inpatient building slowly opened—the newly constructed Bairen General Hospital had been equipped with elevators to accommodate patient transport—Shi Niaoren's modest figure appeared at the corridor's end. Fu Qiliang and several other Senator physicians immediately gathered around, offering greetings with familiar warmth: "Good morning, Dr. Shi!" Within the hospital, everyone preferred the title "Director" to "Minister." After all, it felt warmer—more like addressing one of their own.
 
-Actually, he just glanced casually at the ward rooms. In terms of specialty, Shi Niaoren wasn't exactly an authority on conventional hospital departments like surgery and internal medicine, since his field was "infectious diseases." But back then he was the oldest, and his University of Pennsylvania (Perelman) School of Medicine MD degree was indeed impressive—which was how he'd gained enough credibility to assume the Health leadership position.
+After Shi Niaoren exchanged pleasantries with his fellow Senator physicians, he began his procession down the corridor. Scores of naturalized-citizen doctors stood stiffly on either side, their expressions taut with apprehension, alongside an even larger contingent of female nurses. Together, they bowed in unison, welcoming the Senator physician into the ward. The scene never failed to remind Shi Niaoren of emperors setting forth in historical costume dramas—which was precisely why he never tired of it.
 
-Of course, these years of high-intensity work had also rapidly increased Dr. Shi's clinical experience. It was just that due to objective material conditions, many diseases still couldn't be treated. This gave him some regret. However, in infectious diseases, Dr. Shi had made considerable professional advances—if his mentor traversed here now, he'd probably be outmatched.
+In truth, he merely cast casual glances into the ward rooms. Strictly speaking, Shi Niaoren wasn't exactly an authority on conventional hospital departments like surgery or internal medicine; his specialty was infectious diseases. But back then he had been the eldest among them, and his MD from the University of Pennsylvania's Perelman School of Medicine was genuinely impressive—credentials that had earned him sufficient credibility to assume the Health leadership position.
 
-Today's focus was the "Combat Injury Ward." Originally, the Health Department had no such discipline. Only after the Mainland Campaign began and casualties surged did this discipline open, at the strong recommendation of Senator physicians at the front lines.
+Of course, years of high-intensity work had also rapidly expanded Dr. Shi's clinical experience. It was simply that objective material constraints meant many diseases still couldn't be treated, which left him with some regret. In his own field of infectious diseases, however, Dr. Shi had made considerable professional advances—if his mentor were to traverse here now, he would likely find himself outmatched.
 
-Bairen General Hospital's Combat Injury Department wasn't large, because the biggest, most specialized hospital in this system was the Army General Hospital at Maniao. This one in Bairen was mainly for research, headed by Fu Qiliang, who'd returned from the front.
+Today's focus was the Combat Injury Ward. Originally, the Health Department had no such discipline. Only after the Mainland Campaign began and casualties surged did this specialty open, at the emphatic recommendation of Senator physicians serving at the front lines.
 
-Today, in the duty doctor classroom, Fu Qiliang was about to lecture for residents in training. This was another major invention of the Senate's health system. After all, their own trained doctors had too short study periods, and gaps were too many—they could only take this "work while studying" path.
+Bairen General Hospital's Combat Injury Department remained modest in size, since the largest and most specialized facility in this system was the Army General Hospital at Maniao. The Bairen ward existed primarily for research and was headed by Fu Qiliang, who had recently returned from the front.
 
-Though Dr. Shi wasn't particularly interested in this department, as Director, it was his responsibility to personally visit.
+Today, in the duty doctor classroom, Fu Qiliang was preparing to lecture the residents in training. This was another major innovation of the Senate's health system. After all, their homegrown doctors had studied for too short a time, and the gaps in their knowledge were too numerous—the only viable path was "work while studying."
 
-The classroom was packed, everyone holding their breath and staring.
+Though Dr. Shi wasn't particularly invested in this department, as Director, it was his responsibility to pay personal visits.
 
-"Let's look at this case." Fu Qiliang switched a transparency on the slide projector. This projector was produced by the Optical Equipment Factory, a replacement for projectors they couldn't manufacture themselves. The thing was structurally very simple—essentially a big light bulb plus a lens set. Its biggest advantage was that supplies could be self-produced.
+The classroom was packed, everyone holding their breath and staring intently.
 
-Cases and photos were photo-developed onto glass slides. As for text and images, that was even simpler—just hand-drawn directly. A well-made set of slides could be used for ten or twenty years.
+"Let's examine this case." Fu Qiliang switched the transparency on the slide projector. The device was manufactured by the Optical Equipment Factory as a substitute for the projectors they couldn't produce themselves. Its structure was remarkably simple—essentially a powerful light bulb paired with a lens assembly. Its chief advantage was that all supplies could be produced locally.
 
-"Patient 11, male, 17 years old, shot in the chest. Fragment entered above the sternum, causing a penetrating neck wound. After emergency hemostasis, evacuated to field hospital. Under field conditions, X-ray couldn't be taken. This is his surgical exploration result. Everyone discuss—based on this probing, how should this patient's condition be assessed? How should treatment and nursing proceed?"
+Cases and photographs were developed onto glass slides. As for text and diagrams, the process was even simpler—they were hand-drawn directly. A well-made set of slides could serve for ten or twenty years.
 
-After a bout of whispering, naturalized-citizen doctors began raising hands to speak.
+"Patient Eleven. Male, seventeen years old, gunshot wound to the chest. The fragment entered above the sternum, causing a penetrating neck wound. After emergency hemostasis, he was evacuated to the field hospital. Under field conditions, X-rays couldn't be taken. This is the result of his surgical exploration." Fu Qiliang paused, surveying the room. "Based on this probing, how should we assess this patient's condition? And how should treatment and nursing proceed? Discuss."
 
-"If the carotid artery was hit, he wouldn't have made it to the field hospital..."
+A bout of whispering rippled through the room before naturalized-citizen doctors began raising their hands.
 
-"Since there's no suffocation, the trachea should be uninjured..."
+"If the carotid artery had been struck, he wouldn't have made it to the field hospital..."
 
-"The criterion is whether blood foam is sprayed during breathing..."
+"Since there's no suffocation, the trachea should be intact..."
 
-"There'd also be violent coughing..."
+"The key indicator is whether blood foam is expelled during breathing..."
 
-"Local cleaning, removing foreign matter, avoiding airway obstruction..."
+"There would also be violent coughing..."
 
-Fu Qiliang felt both gratified and frustrated. Gratified that naturalized-citizen doctor training was showing some effect—especially those who'd been through battlefield rescues. Their treatment plans looked presentable; obviously they'd encountered similar wounds. Frustrated because most still knew the "what" without knowing the "why"—couldn't think from an anatomical perspective about what tissues were there, what injuries were possible, then propose structured investigation approaches.
+"Local cleaning, removal of foreign matter, prevention of airway obstruction..."
 
-Fu Qiliang shook his head slightly. Had to start from basics again. He moved the human anatomy chart to the blackboard's center and tapped with the pointer: "Who can tell me what organs are in this area?"
+Fu Qiliang found himself both gratified and frustrated. Gratified because the naturalized-citizen doctor training was clearly yielding results—especially among those who had served in battlefield rescues. Their proposed treatment plans were presentable; evidently, they had encountered similar wounds before. Frustrated because most still grasped the "what" without understanding the "why"—they couldn't reason from anatomical principles about which tissues occupied that region, what injuries were possible, and then formulate a structured investigative approach.
 
-Another bout of whispering. The naturalized-citizen doctors' habit of not daring to speak made Fu Qiliang quite frustrated. Sometimes they clearly knew the answers but just didn't dare answer, preferring to exchange privately. Under Fu Qiliang's encouraging gaze and increasingly dark expression, someone finally raised a hand: "Blood vessels, trachea, and esophagus."
+Fu Qiliang shook his head slightly. He would have to start from fundamentals again. Moving the human anatomy chart to the center of the blackboard, he tapped it with his pointer: "Who can tell me what organs are located in this area?"
 
-"Very good." Fu Qiliang appropriately encouraged. "Theoretically, a fragment passing through could injure all three. We need to assess them in order of importance. Everyone just said: vascular damage causes major bleeding. Tracheal damage causes suffocation. This case happens to be the third kind—esophageal damage—which is why the patient could hold on two days traveling from Guilin to the hospital. Since we've identified the damage, who can describe the treatment plan?"
+Another wave of whispers. The naturalized-citizen doctors' ingrained reluctance to speak frustrated Fu Qiliang immensely. Sometimes they clearly knew the answers but simply didn't dare voice them, preferring instead to exchange opinions privately. Under Fu Qiliang's encouraging gaze—which gradually darkened with impatience—someone finally raised a hand: "Blood vessels, trachea, and esophagus."
 
-"Double-layer inverted suture..." This time someone quickly raised a hand.
+"Very good." Fu Qiliang offered appropriate encouragement. "Theoretically, a fragment passing through could injure all three. We must assess them in order of importance. As you've already noted: vascular damage causes major hemorrhaging; tracheal damage causes suffocation. This case happens to involve the third possibility—esophageal damage—which is why the patient was able to survive the two-day journey from Guilin to the hospital. Now that we've identified the injury, who can describe the treatment plan?"
 
-"If conditions permit, drainage tube should be placed..."
+"Double-layer inverted suture..." This time someone's hand shot up quickly.
 
-"Battlefield wounds usually aren't just simple cuts. Debridement and trimming are likely needed..."
+"If conditions permit, a drainage tube should be placed..."
 
-"Clean subcutaneous foreign matter, watch for fragments, dirt, residual tissue, emergency gauze, and other foreign objects that easily enter wounds..."
+"Battlefield wounds are rarely simple lacerations. Debridement and tissue trimming are likely necessary..."
 
-Fu Qiliang nodded. Once theory was solved, the rich clinical experience of those naturalized-citizen doctors who'd been on the battlefield began to take effect. This clinical experience was extremely valuable. "Veterans teaching newcomers" largely depended on these doctors who knew the "what" but not the "why."
+"Clear subcutaneous foreign matter, watch for fragments, dirt, necrotic tissue, emergency gauze, and other foreign objects that easily infiltrate wounds..."
 
-"In this case, the patient reached Zhaoqing and had esophageal suturing surgery immediately. Now post-op—what nursing work should be done?" Fu Qiliang turned his gaze to the nurses.
+Fu Qiliang nodded. Once the theoretical framework was established, the rich clinical experience of those naturalized-citizen doctors who had served on the battlefield began to take effect. This hands-on knowledge was extraordinarily valuable. The practice of "veterans teaching newcomers" relied heavily on these doctors who knew the "what" even if they didn't yet grasp the "why."
 
-"Timely dressing changes, monitor temperature changes, watch for post-op infection..."
+"In this case, the patient reached Zhaoqing and underwent esophageal suturing surgery immediately. He is now in post-operative recovery—what nursing protocols should be followed?" Fu Qiliang turned his gaze toward the nurses.
 
-"Should be fasting, right..."
+"Timely dressing changes, temperature monitoring, vigilance for post-operative infection..."
 
-The nurse girls were much bolder than the naturalized-citizen doctors. Daily patient care had made their personalities much more forthright. Plus Senator Fu Qiliang's looks weren't bad—second only to Dr. Hippo, who'd gone to Sanya. Dr. Hippo's first wife was a nurse just like them, so...
+"He should be fasting, shouldn't he..."
 
-Fu Qiliang smiled, thanking the nurse girls for their answers and burning gazes.
+The nurses were considerably bolder than the naturalized-citizen doctors. Daily patient care had made their personalities far more forthright. Moreover, Senator Fu Qiliang was rather handsome—second only to Dr. Hippo, who had departed for Sanya. And Dr. Hippo's first wife had been a nurse just like them, so...
 
-"After esophageal damage, once esophageal leakage occurs, strongly irritating gastric contents and bacteria-laden oral secretions and food rapidly enter the mediastinum through the breach, causing severe mediastinal infection. Moreover, since the mediastinum is loose connective tissue, plus negative pressure and cardiac pulsation, inflammation easily spreads rapidly, even eroding through the pleura into the chest cavity... In short, consequences are very serious! Therefore, such patients should maintain a seated posture, fasting and no water, reducing esophageal leakage risk."
+Fu Qiliang smiled, acknowledging both the nurses' answers and their admiring gazes.
 
-"This patient ultimately didn't survive. Despite taking sulfonamide anti-inflammatory drugs, he died of severe purulent mediastinitis. I didn't have time to perform an autopsy to determine the cause, but through inquiry, I can basically confirm the main reason was infection caused by the patient eating on the medical ship, creating mediastinitis before surgery. Regrettably, this young man survived Ming army artillery fire but died from field ration crackers. I want everyone to remember this lesson firmly."
+"Following esophageal damage, once leakage occurs, the strongly irritating gastric contents—along with bacteria-laden oral secretions and food—rapidly enter the mediastinum through the breach, causing severe mediastinal infection. Moreover, because the mediastinum consists of loose connective tissue, and due to negative pressure and cardiac pulsation, inflammation spreads with alarming speed, potentially eroding through the pleura into the thoracic cavity..." He paused gravely. "In short, the consequences are extremely serious. Therefore, such patients must maintain a seated posture, with strict fasting and no water intake, to minimize the risk of esophageal leakage."
+
+"This patient ultimately did not survive. Despite receiving sulfonamide anti-inflammatory drugs, he died of severe purulent mediastinitis. I didn't have time to perform an autopsy to determine the precise cause, but through inquiry, I can essentially confirm the primary factor: infection caused by the patient eating aboard the medical ship, which triggered mediastinitis before surgery could be performed." Fu Qiliang's voice grew heavy. "Regrettably, this young man survived Ming army artillery fire only to be killed by field ration crackers. I want everyone to remember this lesson well."
 
 (End of Chapter)

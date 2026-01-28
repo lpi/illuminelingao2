@@ -1,105 +1,105 @@
 # Chapter 2685: The Capital (Part 41)
 
-Gou Chengxuan stood before the *Ziminglou* on Huifu Street, which had already been looted empty, looking lost and desperate. Thinking of his family broken and perished, and his future completely ruined, an inexplicable grief and indignation welled up in his heart. With no outlet for his nameless evil fire, Gou Chengxuan could only pick up a broken brick from the roadside and smash it vigorously against the door sealed with official strips, roaring through gritted teeth: "Shameless Shorn-hair Thieves, I curse you all to die a bad death!"
+Gou Chengxuan stood before the *Ziminglou* on Huifu Street, staring at its emptied shell—already stripped bare by looters. The sight filled him with despair. His family was shattered, his future destroyed beyond repair. An inexplicable grief and rage surged through him, a nameless fury with no outlet. He snatched up a broken brick from the roadside and hurled it against the door, now sealed with official strips, roaring through clenched teeth: "Shameless Shorn-hair Thieves! I curse you all to die wretched deaths!"
 
-"This Young Master, why behave like this?" Gou Chengxuan didn't expect there would be someone in the deep street and cold alley beside him. This sudden voice frightened him into thinking the Shorn-hair Thieves had chased him here, and he almost knelt to beg for mercy. After focusing his eyes to look, Gou Chengxuan discovered the person speaking was a wandering Daoist with graying beard and hair. The Daoist held a banner of "Iron Mouth, Honest Fortunes," sitting upright by the roadside, with a Daoist boy standing behind him, looking quite like an expert from outside the world.
+"Why such distress, Young Master?" Gou Chengxuan hadn't expected anyone to be lurking in this desolate side street. The sudden voice so startled him that he nearly dropped to his knees, thinking the Shorn-hair Thieves had tracked him down. But when he focused his eyes, he discovered the speaker was a wandering Daoist with graying beard and hair. The man sat upright by the roadside, holding a banner that proclaimed "Iron Mouth, Honest Fortunes," with a young Daoist boy standing dutifully behind him—altogether the picture of an otherworldly expert.
 
-"Who is Your Excellency?" Seeing the other party didn't look like a Shorn-hair Thief, Gou Chengxuan emboldened himself to ask.
+"Who might Your Excellency be?" Seeing that the stranger bore no resemblance to a Shorn-hair Thief, Gou Chengxuan mustered his courage to ask.
 
-"Face reading and character dismantling, eliminating disasters and resolving difficulties." The Daoist smiled faintly, flicking his horsetail whisk to point at the banner. "This Poor Daoist wanders the four seas and happened to pass by your precious land. Meeting today is fate; why doesn't Young Master come to calculate a trigram?"
+"Face reading and character interpretation. Eliminating disasters and resolving difficulties." The Daoist smiled faintly, flicking his horsetail whisk toward the banner. "This Poor Daoist wanders the four seas and happened to pass through your precious land. Our meeting today is fate—why not let me cast a reading for you?"
 
-"I have no money." Gou Chengxuan tightened his cloth robe, ensuring the life-saving silver hidden in his bosom was still there.
+"I have no money." Gou Chengxuan clutched his cloth robe tighter, ensuring the life-saving silver hidden against his chest remained secure.
 
-"Not taking a penny." The Daoist still wore that smile that made people unable to figure him out. "Forgive this Poor Daoist for speaking out of turn; Young Master is afraid your fate has been harmed by treacherous villains and thus fell into distress here, right?"
+"Not a single penny required." The Daoist maintained that inscrutable smile. "Forgive this Poor Daoist for speaking presumptuously, but Young Master, I suspect your fate has been sabotaged by treacherous villains, and thus you've fallen into such straits—am I correct?"
 
-Having his sore spot poked by the other party, Gou Chengxuan's curiosity was aroused. He walked up skeptically and asked: "What does the Daoist Master have to teach me?"
+Having his raw wound so precisely probed, Gou Chengxuan's curiosity was piqued. He approached skeptically and asked: "What wisdom does the Daoist Master have to offer?"
 
-"Wealth and honor fate, future prospects and marriage; whatever Young Master wants to ask, just grant a character." The Daoist said as he smoothed out a paper roll, and the Daoist boy respectfully handed over brush and ink.
+"Wealth and status, future prospects, marriage—whatever Young Master wishes to inquire about, simply grant me a character." The Daoist smoothed out a paper scroll as he spoke, and the boy respectfully presented brush and ink.
 
-Gou Chengxuan smiled bitterly, thinking if the Shorn-hair Thieves were not eliminated, what future could he talk about? Holding the brush and pondering briefly, he wrote a "Thief" [*Zei*] character: "Just ask when those Shorn-hair Thieves will run rampant until?"
+Gou Chengxuan smiled bitterly. If the Shorn-hair Thieves were not eliminated, what future was there to speak of? Holding the brush and pondering briefly, he wrote the character *Zei*—"Thief": "I ask only this: how long will these Shorn-hair Thieves continue their rampage?"
 
-"Sir asks strangely." The Daoist pointed at the "Thief" character, shaking his head and swaying his brain to dismantle it. "Looking at this character, the Shorn-hair Thieves are probably not easy to deal with. This 'Thief' character comes from *Bei* [Wealth] and *Rong* [Weapons]. *Bei* is wealth and goods; *Rong* is soldiers and weapons. Obtaining these two, one can dominate a region. This time the Imperial Court used troops, firstly not cutting off their money and grain, secondly not blunting their military edge. It seems those Shorn-hair Thieves are probably going to occupy Qiongzhou for a long time."
+"An unusual question, sir." The Daoist pointed at the character, nodding and swaying as he analyzed its components. "Looking at this character, the Shorn-hair Thieves are not easy to overcome. This 'Thief' character derives from *Bei*, meaning wealth, and *Rong*, meaning weapons. *Bei* represents money and goods; *Rong* represents soldiers and arms. Whoever possesses both can dominate a region. In this campaign, the Imperial Court firstly failed to cut off their money and grain, and secondly failed to blunt their military edge. It seems these Shorn-hair Thieves are likely to occupy Qiongzhou for quite some time."
 
-"Could it be that my Great Ming can do nothing about these bandits?" Gou Chengxuan sighed with a desolate expression and continued to ask, "Can the Daoist Master calculate the future for the lowly one?"
+"Can it be that our Great Ming has no way to deal with these bandits?" Gou Chengxuan sighed, his expression desolate, and pressed further: "Can the Daoist Master read my future as well?"
 
-"Sir lend your hand for a look."
+"Let me see your hand, sir."
 
-Gou Chengxuan reached out his hand, but unexpectedly was grabbed firmly by the Daoist. Startled, he wanted to break free, but didn't expect it felt like being clamped by iron pincers; for a moment he actually couldn't break free. Gou Chengxuan dared not make a scene, so he could only beg for mercy in a low voice: "Daoist Master, why suffer this? If you want money, I still have a few mace of silver here to give you... Ow ow... If you don't let go, I'm going to shout for people!"
+Gou Chengxuan extended his hand, only to have it seized firmly by the Daoist. Startled, he tried to pull free, but the grip was like iron pincers—impossible to break. Not daring to cause a scene, he could only plead in a low voice: "Daoist Master, why must you do this? If you want money, I still have a few mace of silver I can give you... Ow, ow... If you don't let go, I'll shout for help!"
 
-However, the Daoist not only didn't let go but instead said smilingly: "Does Sir have enmity with those Shorn-hair Thieves? Might as well say it; this Poor Daoist can analyze it for Sir."
+But the Daoist only tightened his hold, smiling as he spoke: "Does sir harbor enmity with those Shorn-hair Thieves? You might as well tell me—this Poor Daoist can analyze the situation for you."
 
-The Daoist hit the mark with one sentence, making Gou Chengxuan shudder involuntarily. However, thinking that Gou Chengxuan was also a master who had escaped death repeatedly, how could he easily reveal his background? Even in urgency, he only laughed it off and said: "Why does Daoist Master say this?" wanting to fudge it over.
+The remark struck so close to the truth that Gou Chengxuan shuddered involuntarily. However, having narrowly escaped death multiple times, he was no stranger to danger. How could he easily reveal his background? Even in his panic, he forced a laugh and deflected: "Why would the Daoist Master say such a thing?"
 
-"Observing Sir's dropped characters like gold hooks and iron strokes, indispensable of ten years of cold window study. Looking again at Sir's cloth robe, although it is top-grade new material, there are many stains and damages; presuming these days must have been quite wretched. Just now Sir also smashed that Shorn-hair Thief's old nest with brick and stone; the cause and effect therein are not hard to guess." The Daoist paused deliberately, waiting until the appetite was sufficiently whetted, before lowering his voice to ridicule, "Does Sir know recently there are quite a few defeated soldiers fleeing from Qiongzhou? The Governor-General's Yamen entrance still has rewards posted. Anyone escaping privately and refusing to return to camp is treated as a spy."
+"Observing sir's brushwork—those characters like iron hooks and golden strokes—speaks of no less than ten years of disciplined study. Yet looking at sir's cloth robe, though the material is top-grade and new, it bears many stains and tears. These past days must have been quite wretched indeed. And just now, sir hurled a brick at that Shorn-hair Thief's former establishment. The connection is not difficult to deduce." The Daoist paused deliberately, waiting until curiosity was sufficiently whetted before lowering his voice to a pointed whisper: "Is sir aware that quite a few defeated soldiers have been fleeing from Qiongzhou lately? The Governor-General's Yamen still has reward notices posted at its entrance. Anyone who escaped privately and refuses to return to camp is treated as a spy."
 
-Gou Chengxuan was spoken to until cold sweat broke out all over his body. He said tremblingly: "You... what do you want to do!"
+Cold sweat broke out across Gou Chengxuan's entire body. He stammered: "You... what do you want?"
 
-"Hahaha, Sir don't panic. That few taels of reward silver this Poor Daoist doesn't look upon." The Daoist suddenly put away his smile, asking aggressively with sharp eyes, "I just ask you, did you flee from the front in defeat?"
+"Ha ha ha—don't panic, sir. This Poor Daoist cares nothing for a few taels of reward silver." The Daoist abruptly dropped his smile, his eyes turning sharp and piercing. "I simply ask: did you flee in defeat from the front?"
 
-"If yes so what, if no so what!" Gou Chengxuan turned pale with fright. He was not an ordinary soldier but a private advisor on the roster. Now the sea-crossing army was completely annihilated; he fled back alone. If he didn't report to the Governor-General's Yamen for investigation, being caught would absolutely be no good thing.
+"What if I did? What if I didn't?" Gou Chengxuan's face went pale. He was no ordinary soldier but a private advisor on the military roster. Now that the sea-crossing army had been completely annihilated and he had fled back alone, if he failed to report to the Governor-General's Yamen for investigation and was subsequently caught, the consequences would be dire.
 
-If he were a Guangzhou local or an old person in the official army, it would be fine, but he was a genuine "outsider" plus "newcomer," with neither background nor backer, and even had a household registration from the "Bandit's Nest." If he really went to report, wouldn't he be an excellent "spy"? Not guaranteed which Lord or Adult would "borrow his head for a use."
+If he had been a Guangzhou local or a veteran in the official army, things might have been different. But he was a genuine "outsider" and "newcomer"—no background, no patron—and his household registration came from what they now called the "Bandit's Nest." If he actually went to report himself, wouldn't he make the perfect "spy"? There was no telling which official might decide to "borrow his head for convenience."
 
-Thinking of this, his soul flew and spirit dispersed—Shorn-hair Thieves were certainly detestable, but the official lords' insidiousness made one tremble even more. In these few months on the campaign journey, he had fully witnessed it.
+Thinking this through, his soul nearly fled his body. The Shorn-hair Thieves were detestable, certainly, but the insidious nature of the official lords made him tremble even more. During these months on the campaign, he had witnessed it all firsthand.
 
-Thinking of this, he said with a trembling voice: "Daoist Master, Good Fellow, please let the lowly one go. As long as it is what the lowly one knows, I will say all without reserve..."
+With trembling voice, he said: "Daoist Master, Good Fellow, please let this lowly one go. Whatever I know, I will tell you everything without reservation..."
 
-"Since so, this Poor Daoist has one matter unclear; still hope Sir tells the truth." The Daoist pointed south and asked, "How was Regional Commander He defeated this time?"
+"In that case, this Poor Daoist has one matter that remains unclear. I hope sir will answer truthfully." The Daoist pointed south and asked: "How exactly was Regional Commander He defeated this time?"
 
-Gou Chengxuan's wrist hurt, and he dared not conceal, spilling everything out like pouring beans: "Shorn-hair Thieves' bird guns are sharp; cavalry couldn't even get close. Several charges were pressed back. Cannons are even more terrifying; one shot destroys for tens of *li*. Regional Commander He's Red Barbarian Cannons were simply no match..."
+Gou Chengxuan's wrist throbbed with pain, and he dared not hold back, spilling everything like beans from a jar: "The Shorn-hair Thieves' muskets are devastating—the cavalry couldn't even get close. Several charges were beaten back. Their cannons are even more terrifying; one blast destroys everything for tens of *li*. Regional Commander He's Red Barbarian Cannons were simply no match..."
 
-The Daoist listened to the narration, his face becoming increasingly gloomy. only after asking for details did he loosen his hand. Gou Chengxuan felt as if granted a great amnesty; seeing an opportunity, he sprinted out directly. Before the Daoist could recover, he had already run until no trace was seen. Waiting until running out of breath, Gou Chengxuan found a secluded alley directly, stopped, then hurriedly took off his cloth robe, smeared his face with mud, and dressed up as a beggar.
+As the Daoist listened to this account, his face grew increasingly grim. Only after extracting every detail did he release his grip. Gou Chengxuan felt as though he'd been granted amnesty. Seizing the opportunity, he bolted away. Before the Daoist could react, he had already vanished from sight. When he finally ran out of breath, Gou Chengxuan ducked into a secluded alley, stopped, and hastily stripped off his cloth robe. He smeared his face with mud and disguised himself as a beggar.
 
-He dared not stay in the city anymore; hurriedly go outside the city to find an uninhabited place to hide for now!
+He dared not remain in the city any longer. He had to get outside the walls and find an uninhabited place to hide!
 
-Liu Sha saw him running away without a trace and didn't mind either. He whispered a few instructions to the Daoist boy.
+Liu Sha watched him flee without concern, then whispered a few instructions to the Daoist boy.
 
-This person being able to escape back from the chaos of the army in Qiongzhou was very simple. In his speech, not only did he have deep hatred for Shorn-hair Thieves, but he was also familiar with the Thief Situation; he was exactly the talent the Master wanted to use. Him running away now didn't matter; in this Guangzhou City, as long as the right door was found, there was no person who couldn't be found.
+This man had managed to escape the chaos of battle in Qiongzhou—no simple feat. In his speech, he had revealed not only deep hatred for the Shorn-hair Thieves but also intimate familiarity with their military situation. He was exactly the kind of talent the Master sought to employ. His running away now hardly mattered; in this city of Guangzhou, as long as one found the right door, there was no person who couldn't be tracked down.
 
-As for finding such a door, it wasn't difficult for them who came from the Northern Division.
+And finding such a door was no difficulty at all for those who came from the Northern Division.
 
-October in the Southern Country still had undissipated summer heat. Even after the third drum of dusk was beaten, it was still oppressively hot. Liu Sha set up the stall for a day and was just preparing to pack up and return to the inn when suddenly a greeting sound came from his ear.
+October in the South still carried the lingering heat of summer. Even after the third drum of dusk had sounded, the air remained oppressively hot. Liu Sha had maintained his stall all day and was just preparing to pack up and return to the inn when a voice suddenly reached his ear.
 
-"Liu Mutou [Wood]! Yo, it really is you!"
+"Liu Mutou! Well, it really is you!"
 
-Liu Sha turned his head to look, seeing a lean, tall man waving at him at the street corner.
+Liu Sha turned to see a lean, tall man waving at him from the street corner.
 
-"You are... Huang Laoliu! How come I meet you here!"
+"You are... Huang Laoliu! How did I run into you here?"
 
-This Huang Laoliu was originally also a nail monitoring officials in the capital. He had some friendship with the Liu Sha brothers; although not particularly familiar, at any rate, there was the feeling of comrades-in-arms. Having not seen each other for many years and reuniting in a foreign land, both were in high spirits, so they held hands to seek a wine shop to catch up. After three rounds of wine and five flavors of dishes, speaking of current situations, turns out Huang Laoliu also lost his job last year. Fortunately, he had a sworn big brother here, so he came to Guangzhou to make a living.
+This Huang Laoliu had also once served as an operative monitoring officials in the capital. He and the Liu brothers shared some history—not particularly close, but with the camaraderie of former comrades-in-arms nonetheless. Having not seen each other for years and now reuniting in a foreign land, both were in high spirits. They clasped hands and sought out a wine shop to catch up. After three rounds of wine and five courses of dishes, they exchanged accounts of their current situations. It turned out Huang Laoliu had also lost his position last year. Fortunately, he had a sworn brother here, so he had come to Guangzhou to make a living.
 
-Reuniting after a long separation, the two's topic went from capital secret news all the way to the Nanhai Shorn-hair Thieves. Here Liu Sha was still lamenting the Shorn-hair Thieves' firearms were sharp; over there Huang Laoliu had a face full of disdain. Don't know if it was the alcohol rushing to his head or deliberately talking big, Huang Laoliu patted his chest and shouted: "Think you and I brothers have capability in vain, surprisingly had rice bowls smashed by those sour scholars; truly fucking frustrating. Look at that bunch of good-for-nothings; can't even deal with a few Shorn-hair Thieves; afraid people will laugh if said out loud."
+Reunited after so long, the conversation ranged from secret news of the capital all the way to the Shorn-hair Thieves of the South Sea. While Liu Sha was still lamenting how formidable their firearms were, Huang Laoliu wore a look of utter disdain. Whether it was the wine going to his head or deliberate boasting, Huang Laoliu thumped his chest and declared: "To think that brothers like you and me, men of real ability, had our rice bowls smashed by those sour scholars—truly infuriating beyond words. Look at that pack of good-for-nothings; they can't even handle a few Shorn-hair Thieves. It's embarrassing to even speak of it."
 
-"Brother Huang's words are wrong; those Shorn-hair Thieves' firearms are sharp; it is said even Red Barbarian Cannons can do nothing!"
+"Brother Huang speaks too hastily. Those Shorn-hair Thieves' firearms are devastating—it's said even Red Barbarian Cannons are useless against them!"
 
-"Hehe, Brother Liu is scared gutless by those good-for-nothings' rhetoric. I see those Shorn-hair Thieves' firearms are also common and ordinary." Huang Laoliu spoke to here, deliberately leaning over to lower his voice, speaking mysteriously, "Brother, I have seen the real guys!"
+"Heh heh, Brother Liu has been frightened witless by those incompetents' exaggerations. As I see it, those Shorn-hair Thief firearms are nothing special at all." Here Huang Laoliu deliberately leaned closer, lowering his voice to a conspiratorial whisper: "Brother, I have seen the real things!"
 
-"What real guys?"
+"What real things?"
 
-Huang Laoliu had a face full of pride. "Since it is own brother, don't fear saying for you to hear. Shorn-hair Thieves although fierce, when falling alone are just human all the same. This Shorn-hair Thief firearm, Brother has one execution."
+Huang Laoliu's face was full of pride. "Since we're true brothers, I don't fear telling you. The Shorn-hair Thieves may be fierce, but when they fall alone, they're just men like anyone else. These Shorn-hair Thief firearms—I have one execution to my name."
 
 "Is this true?"
 
-"Could there be fake? Nowadays Brother I am currently seeking buyers for those few bird guns." Huang Laoliu laughed.
+"Would I lie? Right now, I'm looking for buyers for those few muskets." Huang Laoliu laughed.
 
-Liu Sha was overjoyed upon hearing this, thinking this was truly "wearing out iron shoes searching nowhere, getting it all without wasting effort." He searched bitterly for these few months; unexpectedly, there was still ready-made business. How could such a good thing be missed: "Brother Huang surely has good means! Don't know if this Shorn-hair Thief sharp weapon can let Brother open eyes?"
+Liu Sha was overjoyed, thinking this was truly a case of "wearing out iron shoes searching everywhere, only to find it without any effort at all." He had searched bitterly for months, and here was ready-made business falling into his lap. How could he let such an opportunity slip away? "Brother Huang certainly has impressive means! Might I have a look at these Shorn-hair Thief weapons?"
 
-"This well..." Huang Laoliu rubbed his hands and scratched his head, appearing somewhat embarrassed. "Things are in my hands, but what I do after all is not ordinary business; seeing light and catching wind, fear might move the wealth luck."
+"Well, about that..." Huang Laoliu rubbed his hands and scratched his head, appearing somewhat embarrassed. "The goods are in my possession, but this isn't ordinary merchandise. If word gets out or catches the wrong attention, it might jinx my luck."
 
-Liu Sha heard the joint in the words and quickly took out an ingot of silver from his bosom to flash: "Brother, what other buyer do you seek? As long as it is real goods, price is easy to discuss!"
+Liu Sha caught the hint in his words and quickly produced an ingot of silver from his robe, letting it flash in the light: "Brother, why seek other buyers? As long as the goods are genuine, the price is negotiable!"
 
-"Brother Liu good handwriting [generosity]!" Huang Laoliu stared at the silver with eyes glowing, wine also sobering up by three tenths. "Brother Liu, do you have a way to get rich?"
+"Such generous handwriting, Brother Liu!" Huang Laoliu stared at the silver with glowing eyes, the wine sobering from him by three-tenths. "Brother Liu, have you found yourself a path to fortune?"
 
-"Hehe, not hiding from you, ever since losing the Town-soothing Division [North Division] job, Brother I joined a master who recognizes talent. This new Master has high position and heavy weight, and is generous as a person, but uniquely loves these Shorn-hair Thief objects. Don't mention your few bird guns; even if there is a cannon, we also collect."
+"I won't hide it from you. Ever since losing my position at the Town-soothing Division, I've joined a master who knows how to recognize talent. This new Master holds high rank and wields great influence, and he's generous by nature—but he has a particular fondness for these Shorn-hair Thief objects. Never mind your few muskets; even if you had a cannon, we'd take it."
 
-"Good to say, good to say; then in the future will rely on Brother Liu to look after more." Huang Laoliu was just about to take the silver, but Liu Sha shrank back:
+"Excellent, excellent! Then I shall rely on Brother Liu's patronage in the future." Huang Laoliu was reaching for the silver when Liu Sha withdrew it:
 
-"Not seeing the True Buddha, do not burn incense; this is rule of the Jianghu." Saying so, he threw a string of copper coins out. "Keep this running leg money for now; after the matter is done, there will be separate thanks."
+"One doesn't burn incense until one sees the True Buddha—that's the rule of the Jianghu." So saying, he tossed out a string of copper coins instead. "Keep this as travel money for now. Once the matter is concluded, there will be separate thanks."
 
-Huang Laoliu laughed embarrassedly: "Understood! You rest assured, won't delay matters! Silver or whatever Brother also doesn't care; if there is any chance to serve on duty, still hope Big Brother looks after Little Brother one or two!"
+Huang Laoliu laughed sheepishly: "Understood! Rest assured, I won't delay things. Silver is secondary—but if there's ever an opportunity to serve on the job, I hope Big Brother will look after Little Brother!"
 
-"Good to say."
+"That can be arranged."
 
-Huang Laoliu collected the copper coins into his bosom, suddenly frowned, and said: "Not hiding from Brother Liu, this bird gun is outside the city. A few days earlier it was still convenient, but right now Shorn-hair Thieves are doing harm in the Pearl River Estuary; city gate defense is much stricter. Passing goods all must be interrogated. Bird guns must be handed over outside the city."
+Huang Laoliu tucked the copper coins into his robe, then suddenly frowned and said: "I won't hide it from Brother Liu—these muskets are outside the city. A few days ago it would have been convenient, but right now the Shorn-hair Thieves are causing havoc at the Pearl River Estuary, so the city gate inspections have become much stricter. All goods being transported are interrogated. The muskets will have to be handed over outside the city."
 
 **(End of Chapter)**

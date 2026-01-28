@@ -36,7 +36,7 @@ Wei Aiwen swept a glance at the captured commander but didn't sentence him immed
 
 "Good, bring the ringleaders." Wei Aiwen pondered.
 
-Two ringleader households were brought forward. Seeing Wei Aiwen standing among the crowd, knowing he was a high-ranking officer among the Hair Rebels, they knelt quickly.
+Two ringleader households were brought forward. Seeing Wei Aiwen standing among the crowd, knowing he was a high-ranking officer among the Kun, they knelt quickly.
 
 "Get up, we don't do that." Wei Aiwen spoke in military dialect. "What are your names?"
 
@@ -50,7 +50,7 @@ Wei Aiwen already knew this. Seeing households killing and violating officers' f
 
 "Since it's so, today I'll let you suffering brothers vent your anger." Wei Aiwen said. "I'll hand the people over to you shortly. You trial and judge them yourselves. Beheading or feeding to dogs—you have the say."
 
-Hao Guoxin and the others hadn't known how the Hair Rebels would handle things. They feared the rebels would accept surrender and amnesty, sparing Commander Liu and others, and felt uneasy. Hearing they could vent their anger, they were overjoyed and knelt to kowtow quickly, saying:
+Hao Guoxin and the others hadn't known how the Kun would handle things. They feared the rebels would accept surrender and amnesty, sparing Commander Liu and others, and felt uneasy. Hearing they could vent their anger, they were overjoyed and knelt to kowtow quickly, saying:
 
 "These heartless dogs—we've wanted their lives for a long time."
 
@@ -124,7 +124,7 @@ You Laohu stood on a mound surrounded by guards, directing the harassment. Watch
 
 You Laohu hadn't expected the enemy dared sortie, but necessary precautions were in place. The infantry platoon covering the militia immediately formed a double-line traverse.
 
-"Fire!" The indigenous Second Lieutenant commanding the platoon slashed down his saber. Minié rifles thundered. You Laohu clearly saw the dozen braves in front fall backward as if hitting a wall. The braves probably hadn't expected the Hair Rebels' firearms to be so powerful, killing and wounding from half a li away. Charging steps hesitated instantly.
+"Fire!" The indigenous Second Lieutenant commanding the platoon slashed down his saber. Minié rifles thundered. You Laohu clearly saw the dozen braves in front fall backward as if hitting a wall. The braves probably hadn't expected the Kun' firearms to be so powerful, killing and wounding from half a li away. Charging steps hesitated instantly.
 
 Infantry soldiers reloaded immediately, followed by second and third volleys. Minié rifle fire rate far exceeded all contemporary firearms. Within minutes, another dozen braves fell. The rest panicked and ran back toward the city chaotically.
 
@@ -140,7 +140,7 @@ You Laohu analyzed the county must be sending men to gather braves to reinforce 
 
 In his heart, he yearned to fight a big battle at Chengmai and win major merit. And he was full of confidence in his firepower and soldiers, believing as long as vigilance was maintained, he could repel any number of attackers.
 
-Next day Yu Zhiqian brought back dozens of piculs of grain and two or three hundred laborers. The two started major works under the city—repairing the camp on one hand, felling trees to make cloud ladders and battering rams on the other. Gentry on the wall saw the Hair Rebels, though few in number, driving laborers to make siege preparations, plus knowing the rebels had sharp firearms, and felt very afraid. They constantly sent men to raise the alarm and gather county braves.
+Next day Yu Zhiqian brought back dozens of piculs of grain and two or three hundred laborers. The two started major works under the city—repairing the camp on one hand, felling trees to make cloud ladders and battering rams on the other. Gentry on the wall saw the Kun, though few in number, driving laborers to make siege preparations, plus knowing the rebels had sharp firearms, and felt very afraid. They constantly sent men to raise the alarm and gather county braves.
 
 "More and more braves in the city," You Laohu observed. "If we take the city, we can grab a big batch of prisoners."
 

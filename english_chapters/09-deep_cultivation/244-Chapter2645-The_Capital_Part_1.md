@@ -1,99 +1,99 @@
 # Chapter 2645: The Capital (Part 1)
 
-Thinking Taoist Wood Stone back then laid out in Guangzhou, setting down Feng Shui Great Formation, planning to ruin Kun Thieves' King Qi. Didn't expect finally still broken by Kun Thieves. Thinking again that what thing "New Taoism" spreading everywhere now... Maybe truly learned some Overseas Strange Gates Escaping Armor (*Qi Men Dun Jia*) Arts...
+Luo Heying found himself thinking of Taoist Wood Stone, who had once laid out a grand Feng Shui formation in Guangzhou, scheming to ruin the Kun Thieves' royal qi. Yet in the end, the Kun Thieves had still broken through. And now this "New Taoism" was spreading everywhere... Perhaps they had truly learned some overseas arts of *Qi Men Dun Jia*—the Strange Gates Escaping Armor techniques...
 
-Thinking here, he erected ears carefully listened down. Wanted to know this one exactly had what high view. Didn't expect this person was a layperson. Pulling East tearing West. Just no "Dry Goods" (real stuff). Luo Heying listened a few sentences knew he was no more than frightening words to scare people (*Wei Yan Song Ting*). Had no real material. Unconsciously slightly somewhat disappointed.
+With these thoughts in mind, he pricked up his ears and listened carefully, eager to hear what insights this speaker might offer. But to his disappointment, the man proved to be nothing more than a layman, rambling on without any real substance. After just a few sentences, Luo Heying recognized the words for what they were—*Wei Yan Song Ting*, frightening words meant to scare people. The man had no real knowledge to offer. Luo Heying felt a twinge of disappointment.
 
-Evening he treated this matter as joke discussed with Gou Xunli. Didn't expect this old treacherous giant slippery guy actually narrowed eyes. Started stroking his that few rat whiskers.
+That evening, he brought up the matter as a joke while speaking with Gou Xunli. To his surprise, the old fox narrowed his eyes and began stroking his sparse rat-like whiskers.
 
-"True Fake no hindrance. Having a talk topic is fine..." Walrus Monk low voice said.
+"True or false, it matters not," the Walrus Monk said in a low voice. "Having something to talk about is enough..."
 
-"Master's meaning is?"
+"What does Master mean?"
 
-"Kun Thieves coming local wave瀾 not shocked (calm). Local folks have no ill feeling to them. Instead quite some people obtained their benefit. So me, we purely saying God's Decree wanting to do Kun Thieves, that is not walking through."
+"When the Kun Thieves arrived, the local populace remained calm and untroubled. The common folk bear them no ill will—quite a few have even benefited from their presence. So if we simply invoke Heaven's decree to move against the Kun Thieves, it won't work."
 
-"This naturally." Luo Heying nodded, "Even if going, is also exerting work not exerting strength."
+"Naturally," Luo Heying nodded. "Even if we proceed, the people would go through the motions without putting in real effort."
 
-"So must have an evil deed letting folks filled with indignation."
+"Therefore, we need some evil deed that will fill the people with righteous indignation."
 
-"Evil deed?" Luo Heying thought a bit. Thought local hasn't been slaughtered by Kun Thieves before. Speaking "Evil Deed," that truly couldn't think up. Even though some political orders common people dissatisfied, also haven't reached stage capable of letting them lift pole and rise.
+"An evil deed?" Luo Heying thought for a moment. The locals had never been massacred by the Kun Thieves. Speaking of evil deeds, he truly couldn't think of any. Though some of their policies had caused dissatisfaction among the common people, it hadn't reached the point where they would take up arms in rebellion.
 
-"None then help Kun Thieves a handful." Gou Xunli at this moment already thought properly. Immediately low voice said, "Didn't they repair camp leveling Charity Cemetery land?"
+"If there are none, then we shall help the Kun Thieves along." Gou Xunli had already formulated his plan. He lowered his voice immediately. "Didn't they level the Charity Cemetery land when building their camp?"
 
-"Right. But gave landlord money. Grave although leveled, having owner all gave money to relocate. Ownerless bones also unified collected..." Luo Heying speaking here suddenly understood something, "You are saying?"
+"That's right. But they paid the landowners. Though the graves were leveled, those with owners received money to relocate the remains. Even the unclaimed bones were collected properly..." Luo Heying trailed off as sudden understanding dawned. "You mean...?"
 
-"Stealing grave digging tomb, is Ten Evils Unpardonable. Also closely related to local common people gentry. So, we only need like this..."
+"Grave robbing and tomb desecration are among the Ten Unpardonable Evils. And such matters touch the hearts of common folk and gentry alike. So, we need only do this..."
 
-Luo Heying finished listening sucked a mouth cold air: "This is also too lacking virtue right. In case letting Li Family know that's terrible."
+After hearing the plan, Luo Heying drew in a sharp breath of cold air. "Isn't this far too lacking in virtue? If the Li Family finds out, we're finished."
 
-"Naturally need to do confidentially only fresh." Gou Xunli sneered, "You rest heart. This matter naturally someone will go do. You only need to grasp timing well is fine."
+"Naturally, it must be done with the utmost secrecy," Gou Xunli sneered. "Rest easy. Others will handle this task. You need only grasp the timing."
 
-Luo Heying couldn't help asking: "Timing, timing, this timing exactly when only arrive?"
+Luo Heying couldn't help but ask, "The timing, the timing—when exactly will this timing arrive?"
 
-Hearing this words, Gou Xunli double eyes looking at sky. Half while only then sighed: "You ask me, I also don't know! I this waiting then is ten years!"
+At these words, Gou Xunli raised his eyes to the sky. After a long while, he finally sighed. "You ask me, but I don't know either! I've been waiting for ten years already!"
 
-Luo Heying just wanted to curse X. Gou Xunli said again: "You don't anxious. Left Right just is matter of these few months. You rest heart. Taoist Wood Stone said, as long as have suitable chance, can move hand!"
+Luo Heying was about to curse, but Gou Xunli continued: "Don't be anxious. It's only a matter of these next few months. Rest assured. Taoist Wood Stone said that as long as a suitable opportunity arises, we can make our move!"
 
-Luo Heying said: "If speaking suitable chance, right now is."
+"If we're speaking of suitable opportunities," Luo Heying said, "now is the time."
 
-One comes currently Australians just repairing road repairing stockade. Everywhere digging earth excavating ground. Wanting to frame stealing grave digging tomb exactly suitable; Two comes previous stage Puppet Troupe coming to Li Family Enclosure to perform just performing in Xiaoyao Market.
+First, the Australians were currently building roads and constructing stockades, digging and excavating everywhere. This made framing them for grave robbing perfectly convenient. Second, the Puppet Troupe that had come to perform at Li Family Enclosure was currently staying at Xiaoyao Market.
 
-Attacking stockade not necessarily can succeed. But attacking Troupe living in Market Hotel that is matter of hand reaching grabbing coming.
+Attacking the stockade might not succeed. But attacking the troupe lodging at the Market Hotel was as simple as reaching out one's hand.
 
-"This Puppet Troupe is handled up by Kun Thieves single handedly. If taking this chance exterminating them, Kun Thieves must be greatly angry."
+"This Puppet Troupe was established entirely by the Kun Thieves. If we seize this chance to eliminate them, the Kun Thieves will be enraged."
 
-Gou Xunli silently nodded. Thought in heart this person truly had some strategy. Not reckless martial man.
+Gou Xunli nodded silently. He thought to himself that this man truly possessed some strategic sense—not merely a reckless warrior.
 
-Taoist Wood Stone actually already handed bottom to him. That was Court South Down Punishing Kun Thieves already became set situation. Although no bright decree, but Cabinet and Emperor both already made determination. Within recent two three months must have action.
+In truth, Taoist Wood Stone had already revealed the bottom line to him. The Court had decided to send forces south to punish the Kun Thieves—it was already settled. Though no official decree had been issued, both the Cabinet and the Emperor had made their determination. Within the next two or three months, there would certainly be action.
 
-Just this action, exactly when only would arrive. I wait like long drought land, all expecting sweet rain ah!
+But exactly when this action would come—we wait like parched land longing for sweet rain!
 
 **Capital**
 
-**Chongzhen Ninth Year Twelfth Month First Day (December 27, 1636)**
+**Chongzhen Ninth Year, Twelfth Month, First Day (December 27, 1636)**
 
-Time already near Xu Hour (7-9 PM). Huge Beijing City already fell into a patch of silence. Because East Barbarians (*Dong Lu*) entering border in July. Soldier edge consecutively conquered Changping, Liangxiang, Shunyi. Soldier edge straight pointed Capital City. Capital City one month several alarms. Now East Barbarians although already retreated. But refugees generated by this still had many detaining inside city. Public security inside city not peaceful. Government strictly practiced Night Ban. Night markets and places of prostitution inside city outside city, now were also quiet quietly. Could only vaguely hear striking watch clapper sound transmitted from distance. Inside city outside city a patch of darkness. Appearing especially gloomy desolate.
+The hour was already approaching Xu Hour, between seven and nine in the evening. The vast city of Beijing had fallen into deep silence. In July, the Eastern Barbarians—the *Dong Lu*—had invaded, their blades conquering Changping, Liangxiang, and Shunyi in succession, pointing directly at the Capital itself. For a month, alarms had sounded multiple times. Though the Eastern Barbarians had since retreated, many of the refugees generated by this invasion remained detained within the city. Public order was unsettled, and the government strictly enforced the Night Ban. The night markets and pleasure quarters both inside and outside the city had grown quiet and still. Only the distant sound of night watchmen striking their clappers could be vaguely heard. Inside and outside the city walls, all lay in darkness—especially gloomy and desolate.
 
-Although already entered Twelfth Month (*La Yue*), inside city completely no boiling and festivity of Passing New Year. World Way difficult. Common people trapped in livelihood.
+Though it was already the Twelfth Month—*La Yue*—there was no festive atmosphere of the approaching New Year within the city. Times were hard, and the common people struggled merely to survive.
 
-Qin Towers Chu Pavilions (Brothels) and Big Households, as usual had banquet singing dancing. But all were covering door courtyard, hanging curtain tent. Light of burning high crimson candles and Australian Oil Lamps not leaking out a bit. Songs of songstresses musicians were all low low. Curling at ears of host and guest. Even they were rarely loud voice speaking. Just whispering chatting.
+The brothels and great households still held their banquets with singing and dancing, as was customary. But all doors and courtyards remained covered, curtains hung low. Not a sliver of light escaped from the crimson candles burning high or the Australian oil lamps. The songs of entertainers and musicians were hushed, curling softly at the ears of hosts and guests. Even they rarely spoke loudly, conversing only in whispers.
 
-These few years war matter not favorable. National Momentum declining daily. Emperor's temper was also one day bad over one day. Eunuchs and Depot Guards (Spy Agency) originally rejected few years ago gradually re-shook up prestige again. Although changed a batch of people. Acting style actually still old time familiar flavor. Officials and rich people's pleasure seeking also became obscure much. Avoiding being intentionally transmitted to Emperor front by people. Disturbing his mind state. Attracting Thunder Wrath.
+These past few years, the war had gone poorly. The nation's momentum declined daily. The Emperor's temper worsened with each passing day. The eunuchs and Depot Guards—the spy agency—who had been rejected a few years prior, gradually regained their prestige once more. Though the faces had changed, their methods retained the familiar flavor of old times. Officials and wealthy men now pursued their pleasures more discreetly, lest word be deliberately carried to the Emperor's ears, disturbing his state of mind and drawing down his thunderous wrath.
 
-Lantern candle light hanging on Imperial City Gate shaking in wind. Shining on already pitted uneven stone slab road and armor of Big Han Generals (Guards) standing on shift. Faintly emitting light. To owner here, Chongzhen Ninth Year was a year not counted too bad also not counted how good. Of course, to Emperor, bad news was already normal state. As long as no worse news then counted as Superior Superior Great Luck.
+The lanterns and candles on the Imperial City Gate swayed in the wind, their light falling upon the pitted, uneven stone slabs of the road and the armor of the Big Han Generals standing guard, casting a faint gleam. For the master of this realm, Chongzhen's Ninth Year had been neither too bad nor particularly good. Of course, for the Emperor, bad news had become the norm. As long as nothing worse occurred, it counted as supremely great fortune.
 
-Compared to last year, in First Month Thirteen Families Roving Bandits conquered Fengyang. A fire burned Great Ming's Ancestral Tomb; Second Month Kun Thieves surprise attacked Guangdong. Guangzhou Zhaoqing successively fell. Subsequently lost Two Guangs... Chongzhen Ninth Year's situation still not counted too bad. Best news was Roving Bandits once having Prairie Fire Momentum under suppression of Official Soldiers commanded by Lu Xiangsheng, Hong Chengchou and others, already not repeated former momentum. Especially July this year, "Giant Canal" (Ring leader) Gao Yingxiang captured. Escorted to Capital then executed. This to Court already burned head rotten forehead (in bad fix) was no less than a Cardiotonic Shot.
+Compared to the previous year, when in the First Month the Thirteen Families of Roving Bandits had conquered Fengyang and set fire to the Great Ming's Ancestral Tombs, and in the Second Month the Kun Thieves had launched their surprise attack on Guangdong, taking Guangzhou and Zhaoqing in succession before claiming both Guangs—compared to all that, the situation in Chongzhen's Ninth Year was not so terrible. The best news was that the Roving Bandits, who had once burned like a prairie fire, had lost their former momentum under suppression by the official forces commanded by Lu Xiangsheng, Hong Chengchou, and others. Especially in July of this year, when the ringleader Gao Yingxiang had been captured and escorted to the Capital for execution—for a Court that had been burning at both ends, this was nothing short of a shot of medicine to the heart.
 
-However looking far at whole situation, Great Ming's situation didn't turn better. Gao Yingxiang's capture was only strongest one branch in Roving Bandits suffered major setback. Speaking on whole situation, Roving Bandits' activities still extremely frequent. Li Zicheng etc. units active in Shaanxi, Ningxia, Gansu; Zhang Xianzhong, Ge Zuo Five Battalions, Luo Rucai, Liu Guoneng, Li Wanqing etc. units galloped in vast areas of Henan, Huguang, Anhui. As for small scale "Roving Bandits" "Local Bandits" "Mountain Bandits" "Sea Bandits," swirling rising swirling extinguishing. Just like spark fire. Spreading everywhere. Court attended this lost that. Responding engaging no free time. Everywhere fell into passive state.
+Yet looking at the broader situation, the Great Ming's circumstances had not truly improved. Gao Yingxiang's capture meant only that the strongest branch of the Roving Bandits had suffered a major setback. On the whole, bandit activities remained extremely frequent. Li Zicheng and his units operated in Shaanxi, Ningxia, and Gansu. Zhang Xianzhong, the Five Battalions of Ge Zuo, Luo Rucai, Liu Guoneng, Li Wanqing, and others galloped across the vast territories of Henan, Huguang, and Anhui. As for the smaller-scale Roving Bandits, Local Bandits, Mountain Bandits, and Sea Bandits—they rose and fell like sparks scattering everywhere. The Court could not attend to one crisis without losing sight of another, responding and engaging without a moment's rest, falling into a passive state at every turn.
 
-East Barbarians outside Shanhai Pass claimed Emperor in current year. Self claimed Manchu. Formally divided court resisted rite with Great Ming. If saying this was no more than empty name, then July Ajige leading Eight Banners Army entering pass looting, actually once again on full eyes sores (devastated) Northern Great Earth fiercely inserted a knife.
+Beyond Shanhai Pass, the Eastern Barbarians had proclaimed their own emperor this year, naming themselves Manchu and formally establishing a rival court against the Great Ming. If this were merely an empty name, then in July, Ajige leading the Eight Banners Army through the pass to raid and plunder had once again driven a fierce blade into the already devastated lands of the North.
 
-Fortunately Kun Thieves conquering Two Guangs last year, shaking court and wild, already stopped step not forward. In whole Chongzhen Ninth Year didn't have any big movement. Seemed they already satisfied with status quo of occupying two provinces.
+Fortunately, the Kun Thieves, who had shaken both court and countryside by conquering the Two Guangs the previous year, had halted their advance. Throughout the entirety of Chongzhen's Ninth Year, they made no major movements. It seemed they had grown satisfied with occupying two provinces.
 
-No matter what Kun Thieves' intention was. As long as not creating incident, to young Emperor, then already was good news.
+Whatever the Kun Thieves' true intentions might be, as long as they caused no trouble, it was already good news for the young Emperor.
 
-Now already Twelfth Month. Although Anxious Scenery Withering Year, in Palace according to rule also wanted to have a share of Ostentation. Palace Family Inner Officials packed up Gourd Scenery Patch and Python Robe. Preparing for New Year clothing use; Young Eunuchs and Palace Maids swept Palace Rooms. Craftsmen repaired houses utensils. Peach Talisman Board, General Charcoal, Door God used at New Year; Fortune God, Ghost Judge, Zhong Kui etc. paintings hung indoor. Gold Silver Eight Treasures, Western Tibetan Prayer Wheel, Dragon woven by Yellow Money hung on bed; Eave Pillar inserting Sesame Stalk. Cypress Branch burned in courtyard... All owed objects continuously prepared by Twenty Four Yamens sending into Palace. Usually cold cold clear clear, dead air heavy heavy Palace Halls, at this moment also more or less had some living air.
+Now it was the Twelfth Month. Though the year had been anxious and withering, the Palace still required its customary display of ceremony. The Inner Officials of the Palace had prepared Gourd Scene patches and Python Robes for the New Year attire. Young eunuchs and palace maids swept the palace rooms while craftsmen repaired buildings and utensils. Peach Talisman boards, General Charcoal, and Door Gods were readied for New Year use. Paintings of the Fortune God, the Ghost Judge, Zhong Kui, and others were hung indoors. Gold and Silver Eight Treasures, Tibetan prayer wheels, and dragons woven from yellow money were hung on beds. Sesame stalks were inserted into eaves and pillars, and cypress branches were burned in courtyards... All manner of necessary items were continuously prepared and sent into the Palace by the Twenty-Four Yamens. The palace halls, usually cold and desolate, heavy with lifeless air, now carried at least some trace of vitality.
 
-First Watch clapper already struck. Emperor in Qianqing Palace finally put down Vermilion Sand Pen in hand. Temporarily left memorials piled up like mountain.
+The First Watch clapper had already sounded. In Qianqing Palace, the Emperor finally set down the vermilion brush in his hand, temporarily stepping away from the mountain of memorials.
 
-Although memorials wouldn't bring him any happiness. Sometimes even source of endless annoyance. But he actually not willing to leave. He had a feeling. As long as himself didn't open memorial to approve read, these memorials would turn into raging flame, swallowing Great Ming River Mountain completely.
+Though the memorials never brought him any happiness—indeed, they were often the source of endless vexation—he was reluctant to leave them. He had a feeling that if he failed to open and review these memorials, they would transform into raging flames that would consume the Great Ming's rivers and mountains entirely.
 
-Sometimes, he felt self might as well not as a death prisoner. Death prisoner no more than waiting for death merely. And he, actually like a person about to be drowned. Fighting death struggling. Yet even a straw couldn't grab...
+Sometimes he felt that even a death row prisoner had it better than he. A condemned man merely awaited death. But he—he was like a drowning man, fighting desperately for his life, yet unable to grasp even a single straw...
 
-"Emperor..." An Imperial Front Eunuch seeing him rise body. Hurriedly grabbed chance to report to him. Today originally wanted to use dinner at Concubine Tian place.
+"Your Majesty..." An Imperial Front Eunuch, seeing him rise, hurried to seize the opportunity to report. Today, dinner had originally been planned at Noble Consort Tian's quarters.
 
-Dinner originally was Shen Hour Second Quarter (3:30 PM). Now already passed Xu Hour First Quarter (7:15 PM). Noble Consort Tian long ago sent several waves Eunuchs to inquire outside Qianqing Palace when Emperor could finish approving reading. But Imperial Front Eunuchs no one dared to come remind Emperor.
+Dinner was usually served at the second quarter of Shen Hour, around half past three in the afternoon. Now it was already past the first quarter of Xu Hour—after a quarter past seven in the evening. Noble Consort Tian had long since sent several waves of eunuchs to inquire outside Qianqing Palace when the Emperor might finish reviewing his memorials. But none of the Imperial Front Eunuchs had dared to remind him.
 
-"Oh, *Zhen* (I) almost forgot." Chongzhen used palm stroking forehead. Forehead ice cool. Palace Hall tall big. Winter even if approving reading memorials in Warm Pavilion, time long hands feet also same ice cool.
+"Ah, *Zhen* nearly forgot." Chongzhen pressed his palm to his forehead. His skin felt ice-cold. The palace hall was vast and tall; even reviewing memorials in the Warm Pavilion during winter, after enough time had passed, hands and feet grew equally cold.
 
-Qianqing Palace Manager Eunuch immediately signaled. Immediately bad Eunuch bringing newly tributed tea. Originally in winter wanting to serve hot tea anytime was extremely difficult. Only method was lighting charcoal stove under corridor anytime. Stewing boiling water only then okay. Since Lingao tributed Thermos Bottle (*Re Shui Ping*). This expenditure of charcoal fire still same as old. Silver however entered Qianqing Palace Manager Eunuch's waist pocket.
+The Manager Eunuch of Qianqing Palace immediately signaled, and a eunuch promptly brought freshly prepared tribute tea. In winter, having hot tea available at any moment was extremely difficult. The only method was to keep a charcoal stove burning constantly under the corridor, water simmering at all times. But ever since Lingao had sent thermos bottles as tribute, the charcoal expenditure remained the same—only now the silver went into the pocket of the Qianqing Palace Manager Eunuch instead.
 
-"This is Autumn Tea." This cup temperature suitable. Fragrance overflowing tea water. To exhausted Emperor was very suitable (enjoyable). Especially cup in front of eyes. Thin like egg shell. Crystal clear translucent like white jade carved. On top inlaid with Enamel Color Hundred Flowers pattern inlaid by silver wire. Looking very comfortable. Mood also better much. Asked, "Tributed from where?"
+"This is autumn tea." The cup was perfectly warm, the fragrance overflowing. For the exhausted Emperor, it was most welcome. Especially pleasing was the cup before him—thin as an eggshell, translucent like carved white jade, inlaid with a Hundred Flowers pattern in enamel color set with silver wire. Looking upon it lifted his spirits and improved his mood considerably. "Where did this tribute come from?"
 
-"Reply Imperial Master's words. Is Wuyi Mountain Tea coming from Fujian." Manager Eunuch said, "Is Zhongzuo Suo Commander Assistant Zheng Sen offering."
+"Replying to Your Majesty, it is Wuyi Mountain tea from Fujian," the Manager Eunuch replied. "An offering from Zheng Sen, the Assistant Commander of the Zhongzuo Suo."
 
-Name Zheng Sen raised a burst of small ripple in his brain. He seemed faint faintly remembering former Fujian Governor Zou Weilian mentioned this name. But he somewhat couldn't think up.
+The name Zheng Sen stirred a small ripple in his mind. He seemed to faintly recall the former Fujian Governor Zou Weilian mentioning this name. But he could not quite place it.
 
-Seeing his face revealed doubtful expression. Eunuch busily low voice reminded: "Is late Dudu Tongzhi Zheng Zhilong's son. Now also inherited hereditary post..."
+Seeing the doubtful expression on his face, the eunuch quickly reminded him in a low voice: "He is the son of the late Dudu Tongzhi, Zheng Zhilong. He has inherited his father's hereditary post..."
 
 **(End of Chapter)**

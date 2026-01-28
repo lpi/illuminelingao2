@@ -4,7 +4,7 @@ The courtyard of Moli Xuan had originally been filled with jasmine plants, but o
 
 Wang Ci was dumbfounded as he watched. Lingao had never possessed the concept of private gardens. Apart from the small water and rock decorations in the back courtyard of the county yamen, Moli Xuan was now considered the finest man-made landscape in the county, destined to serve as a venue for local officials and literati to hold elegant social gatherings.
 
-The brevity of the construction period was equally hard for Wang Ci to fathom. He hadn't seen the Short Hairs use any special mechanical aids, nor was the number of workers particularly large. By Wang Ci's estimate, if he had organized the repairs himself, even a simple renovation wouldn't have been possible in less than half a month—let alone expanding and adding significant new structures as the Australians had done.
+The brevity of the construction period was equally hard for Wang Ci to fathom. He hadn't seen the Kun use any special mechanical aids, nor was the number of workers particularly large. By Wang Ci's estimate, if he had organized the repairs himself, even a simple renovation wouldn't have been possible in less than half a month—let alone expanding and adding significant new structures as the Australians had done.
 
 Besides the original buildings, the construction team had added several new structures, including a two-story waterside pavilion for banquets, classrooms and dormitories built in modern style, and proper toilets and bathhouses.
 
@@ -26,7 +26,7 @@ The county school was already chronically short of funds, let alone a charitable
 
 ---
 
-After the Moli Xuan renovation project was completed, Lingao County held an "enthusiastic," "simple," and "harmonious" ribbon-cutting ceremony. Wu Mingjin originally didn't want to appear at a Short Hair event, but the renovation of Moli Xuan was a major occasion for the county, falling under the category of "beneficial influences on education." Not appearing might seem "out of touch with the people." He had no choice but to attend.
+After the Moli Xuan renovation project was completed, Lingao County held an "enthusiastic," "simple," and "harmonious" ribbon-cutting ceremony. Wu Mingjin originally didn't want to appear at a Kun event, but the renovation of Moli Xuan was a major occasion for the county, falling under the category of "beneficial influences on education." Not appearing might seem "out of touch with the people." He had no choice but to attend.
 
 Wang Ci was once again exploited by the Crossing Group. He spared no effort running everywhere, delivering invitations to all the gentry and scholars in the county. The Executive Committee estimated that, given Moli Xuan's fame and local significance, these people were unlikely to refuse.
 
@@ -34,11 +34,11 @@ Sure enough, not only did all the provincial graduates and *xiucai* in the count
 
 Liu Dalin, though still harbouring misgivings about the Crossing Group, had nevertheless observed their actions over the past year: bandit suppression, road construction, disaster relief, resettling the poor. Though he stayed behind closed doors, his family members constantly gathered news from outside.
 
-He was a *jinshi* residing at home, possessing great fame in the county and throughout Qiongzhou Prefecture. He figured he must be a target for these Short Hairs. So these past days, he stayed home reading, barely receiving guests. Only a few close relatives and friends were admitted. He kept arsenic and a knife by his side, ready to take his own life at any moment—first, to avoid the humiliation of capture, as he had participated in planning the campaign against the Short Hairs and feared revenge; second, to die proving his integrity if they tried to force him into a puppet position. When the Short Hairs first entered the city, the atmosphere at the Liu household had been extremely tense—everyone prepared for the end.
+He was a *jinshi* residing at home, possessing great fame in the county and throughout Qiongzhou Prefecture. He figured he must be a target for these Kun. So these past days, he stayed home reading, barely receiving guests. Only a few close relatives and friends were admitted. He kept arsenic and a knife by his side, ready to take his own life at any moment—first, to avoid the humiliation of capture, as he had participated in planning the campaign against the Kun and feared revenge; second, to die proving his integrity if they tried to force him into a puppet position. When the Kun first entered the city, the atmosphere at the Liu household had been extremely tense—everyone prepared for the end.
 
-Unexpectedly, after the Short Hairs entered the city, they withdrew again, merely sending a few dozen pirate heads to the county yamen. In the months that followed, except for swarming into the city during the New Year, they never entered in large numbers. As for the Liu household, absolutely no one came calling. It was as if the Short Hairs didn't know Liu Dalin existed.
+Unexpectedly, after the Kun entered the city, they withdrew again, merely sending a few dozen pirate heads to the county yamen. In the months that followed, except for swarming into the city during the New Year, they never entered in large numbers. As for the Liu household, absolutely no one came calling. It was as if the Kun didn't know Liu Dalin existed.
 
-*Jinshi* Liu had imagined countless scenarios of martyrdom—knives to the throat, dying curses, taking poison... But none occurred. No revenge, no coercion. While relieved, he also felt somewhat slighted—these Short Hairs really had no discernment.
+*Jinshi* Liu had imagined countless scenarios of martyrdom—knives to the throat, dying curses, taking poison... But none occurred. No revenge, no coercion. While relieved, he also felt somewhat slighted—these Kun really had no discernment.
 
 Where family members saw relief, Liu Dalin felt growing curiosity. What exactly were these overseas Australians, who claimed to be descendants of the Song, scheming in Lingao?
 

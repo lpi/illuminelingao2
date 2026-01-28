@@ -1,113 +1,113 @@
 # Chapter 2804 Tryst (II)
 
-Besides the master bedroom, there was another room on the second floor with its door open. The man was somewhat curious and walked over.
+Besides the master bedroom, another room on the second floor had its door standing open. Curious, the man walked over.
 
-This was a small room. By the window was a "writing desk," on which stood an "Australian oil lamp," an inkstand, paper, and other stationery. Two simple bamboo bookshelves stood along the wall, neatly filled with books, magazines, and a miniature plaster bust. Looking at the arrangement, this seemed to be a study, except a small bed was placed against another wall.
+It was a small room. By the window sat a writing desk bearing an Australian oil lamp, an inkstand, paper, and other stationery. Two simple bamboo bookshelves lined the wall, neatly filled with books, magazines, and a miniature plaster bust. From the arrangement, this appeared to be a study—except for the small bed placed against the opposite wall.
 
-The walls were whitewashed, hanging a watercolor painting with amateurish technique. The man recognized at a glance that this was a work from the woman's art class when she was in school.
+The walls were whitewashed, and a watercolor painting with amateurish technique hung there. The man recognized it at once as a work from the woman's art class when she was in school.
 
-The room was cleaned spotlessly. The window was open, looking out onto the backyard of the residence; it was much quieter here than the bedroom facing the street. A good place for reading and writing.
+The room was spotlessly clean. The window stood open, looking out onto the backyard of the residence; it was much quieter here than the bedroom facing the street. A fine place for reading and writing.
 
-The woman came up carrying a tea tray. She saw the man sitting by the desk, intently reading a book. The page size was large, larger than ordinary books, whether thread-bound or "Australian-bound." However, it only had a few dozen pages. On the cover made of thick paper was a color woodblock print of "Girl and Fawn," with the masthead printing the title: "Lingao Literature." Judging by the month, it was the latest issue.
+The woman came upstairs carrying a tea tray. She found the man seated at the desk, intently reading a book. Its pages were larger than ordinary books, whether thread-bound or Australian-bound, yet it contained only a few dozen pages. On the cover of thick paper was a color woodblock print of "Girl and Fawn," with the masthead proclaiming the title: "Lingao Literature." Judging by the date, it was the latest issue.
 
-"You like reading this book too?" The woman mumbled and put down the tea tray. She turned to get two enamel painted food tins from the food cupboard in the stairwell and put them on the table.
+"You like reading this too?" the woman murmured, setting down the tea tray. She turned to retrieve two enamel-painted food tins from the cupboard in the stairwell and placed them on the table.
 
-"I count as a literature enthusiast too." The man laughed, casually flipping through the journal.
+"I fancy myself something of a literature enthusiast." The man laughed, casually flipping through the journal.
 
-"That's right, back then you even submitted articles to 'Fangcaodi'." The woman laughed and poured tea for the man. High-quality black tea, piping hot, emitting a rich, mellow aroma.
+"That's right—back then you even submitted articles to 'Fangcaodi.'" The woman laughed and poured tea for the man. High-quality black tea, piping hot, releasing a rich, mellow aroma.
 
-"Some articles in here are written very well, like... this one happens to be about pickles." Saying this, the man turned one page to show the woman.
+"Some articles in here are quite well-written. Like... this one happens to be about pickles." He turned to show her the page.
 
-However, the woman didn't have that much interest. She just glanced at it, muttered "What's there to write about pickles," and handed the teacup to the man.
+The woman, however, showed little interest. She merely glanced at it, muttered "What's there to write about pickles," and handed him the teacup.
 
-"I just love reading essays like this, plain and simple. Reading them gives a feeling that the years are quiet and good."
+"I love reading essays like this—plain and simple. Reading them gives a feeling that the years are quiet and good."
 
-"So sour," the woman laughed, then suddenly scrutinized the man subconsciously.
+"How sentimental," the woman laughed, then suddenly found herself studying the man more closely.
 
 "What's wrong?"
 
-"You two are really alike!" The woman said. "Can't move your feet when you see a few books!"
+"You two are so alike!" she said. "Neither of you can walk past a few books without stopping!"
 
-"These books are his, right?"
+"These books are his, I take it?"
 
-"Of course they're his; could they be yours?" The woman lifted the black tea and sipped slowly.
+"Of course they're his. Could they be yours?" The woman lifted her black tea and sipped slowly.
 
-"He spent quite a bit of money on this stuff, right?" The man was somewhat embarrassed and made conversation. "Books" and "magazines," despite strong promotion by the Chiefs and various subsidies, were still "unnecessary" expenses in ordinary households. Subscribing to magazines and buying books was still "luxury" for most common people.
+"He must have spent quite a bit of money on all this, no?" The man felt somewhat embarrassed and made conversation. Books and magazines, despite strong promotion by the Chiefs and various subsidies, remained unnecessary expenses in most ordinary households. Subscribing to magazines and buying books was still a luxury for common people.
 
-"A small half of the little wage he earned was tossed into this by him." The woman was somewhat dissatisfied. "Luckily, I don't rely on him for food, nor do we have children to raise. Otherwise, we'd fight nine times every three days."
+"A good portion of the meager wage he earned went straight into this." The woman sounded somewhat dissatisfied. "Luckily, I don't rely on him for food, nor do we have children to raise. Otherwise, we'd be fighting every other day."
 
 She opened the food tin and took out cookies.
 
-"Rare goods from Guangzhou; in Hainan, only Bairen sells them."
+"Rare goods from Guangzhou. In Hainan, only Bairen sells them."
 
-The woman put a sugar cube into her teacup and stirred it with a small teaspoon.
+The woman dropped a sugar cube into her teacup and stirred it with a small teaspoon.
 
-"He is good in everything, except he likes these books more than me." While the man chewed the cookie and searched his gut for words, the woman spoke again without looking up, her spoon stirring randomly in the teacup as if rowing an invisible boat.
+"He's good in every way—except he loves these books more than he loves me." While the man chewed a cookie and searched for something to say, the woman continued without looking up, her spoon stirring aimlessly in the teacup as if rowing an invisible boat.
 
-"Every day he just knows to read, then shuts himself in the room to write, write, write. Don't know where he gets so much energy. If he writes late, he sleeps in the study, or he doesn't sleep all night long." The woman sighed and added in a barely audible voice, "Who can stand this?"
+"Every day he just buries himself in reading, then shuts himself in this room to write and write and write. I don't know where he finds the energy. If he writes late, he sleeps in the study—or doesn't sleep at all." The woman sighed and added in a barely audible voice, "Who could stand that?"
 
-The man examined the items on the desk. Besides the lamp and stationery, there were quite a few books piled against the wall, all "Australian books." Apart from a "National Dictionary" with its cover fallen off and re-glued with paste, the most frequently read was probably a set of "Dream of the Red Chamber." The covers were worn out, and many small slips of paper were tucked inside.
+The man examined the items on the desk. Besides the lamp and stationery, quite a few books were piled against the wall, all Australian books. Apart from a National Dictionary with its cover fallen off and re-glued with paste, the most-read was probably a set of "Dream of the Red Chamber." The covers were worn thin, and many small slips of paper peeked out from within.
 
-Beside it was a loose-leaf binder. The man flipped through it; it was the literary section of the "Lingao Times," bound neatly and stacked in chronological order.
+Beside it lay a loose-leaf binder. The man flipped through it—the literary section of the "Lingao Times," bound neatly and arranged in chronological order.
 
-"He has several binders like this," the woman said with some annoyance. "The bookshelf is full of them. He's never been so attentive to a woman."
+"He has several binders like this," the woman said with some annoyance. "The bookshelf is full of them. He's never been that attentive to any woman."
 
-Indeed, there were more than ten such loose-leaf binders on the bookshelf, as well as rows of "Lingao Literature," stacked from the inaugural issue in chronological order. It was evident the reader treasured them very much.
+Indeed, more than ten such loose-leaf binders lined the bookshelf, along with rows of "Lingao Literature," stacked from the inaugural issue in chronological order. Clearly, the reader treasured them deeply.
 
-The man thought of the latest issue of "Lingao Literature" on the table and said with a touch of jealousy, "He went to be a soldier, and you're keeping the magazines for him too."
+The man thought of the latest issue of "Lingao Literature" on the table and said with a touch of jealousy, "He's off being a soldier, and here you are keeping his magazines for him."
 
-"He specifically instructed that he wants to read them when he comes back." The woman felt somewhat proud in her heart but adopted a nonchalant tone.
+"He specifically asked me to. Says he wants to read them when he comes back." The woman felt a certain pride but kept her tone nonchalant.
 
-"You like him quite a bit." The man said, "I can feel it."
+"You're quite fond of him." The man said. "I can tell."
 
-"When I married him, he was just a clerk working in my dad's shop. My dad appreciated him especially, saying he could do big things in the future. I just thought he looked quite good, was refined, could write and calculate, and I assumed he was also a senior primary graduate. Actually, he only had a Class A diploma, read his way up through night school." The woman's voice came from behind, pausing for a long time as if searching for an appropriate word.
+"When I married him, he was just a clerk working in my father's shop. My father had taken a special liking to him, saying he could accomplish great things someday. I simply thought he was rather handsome, refined, could write and calculate—I assumed he was a senior primary graduate. Actually, he only had a Class A diploma. He'd educated himself through night school." The woman's voice came from behind him, pausing for a long moment as if searching for the right word.
 
-"Amazing." The man said sincerely.
+"Impressive," the man said sincerely.
 
-"Yes, reading to improve himself, a true seed of a scholar." The woman drawled as she walked to the desk, tidying up the books and newspapers messed up by the man: "These are his treasures; he won't even let me touch them. Every night he reads here until past midnight. Later, he started writing himself, wrote a thick stack of papers, just kept in this drawer."
+"Yes, reading to better himself. A true scholar at heart." The woman drawled as she walked to the desk, tidying the books and papers the man had disturbed. "These are his treasures—he won't even let me touch them. Every night he reads here until well past midnight. Then he started writing himself, wrote a thick stack of papers, all kept in this drawer."
 
-The woman opened the drawer. Inside was indeed a stack of neatly arranged paper, all high-quality Australian manuscript paper. A sheet drifted out and landed at the man's feet. The man picked it up. Many characters were written on the paper with an Australian dip pen, along with meany ink blotches from edits. From the gaps in the blotches, one could see a poem: "Morning mist and dawn rain moisten the green willows, nestlings in the hedge chirp new cries. Time hides old things away, yet the spring breeze ripples with autumns of the past."
+The woman opened the drawer. Inside was indeed a stack of neatly arranged paper, all high-quality Australian manuscript sheets. One drifted out and landed at the man's feet. He picked it up. Many characters were written on it with an Australian dip pen, along with numerous ink blotches from edits. Through the gaps in the corrections, he could make out a poem: "Morning mist and dawn rain moisten the green willows, / Nestlings in the hedge chirp new cries. / Time hides old things away, / Yet the spring breeze ripples with autumns of the past."
 
-The woman plucked that sheet from the man's hand, put it back into the manuscript pile, stroked it with her hand, and laughed softly: "He read a few passages to me, something about wind, clouds, emotion, love... I couldn't understand... Later he stopped reading to me." Finishing, she gently pushed the drawer shut.
+The woman plucked the sheet from his hand, returned it to the manuscript pile, stroked the papers with her palm, and laughed softly. "He read a few passages to me once—something about wind, clouds, emotion, love... I couldn't understand... After that, he stopped reading to me." She gently pushed the drawer shut.
 
-The woman seemed to have forgotten the man behind her, continuing to talk to herself, "This set of 'Dream of the Red Chamber,' he must have read it dozens of times. I asked him, is it that good-looking? Better looking than me? You know what he answered? 'You are better looking than Baochai, but not as good looking as Daiyu.' Made me so angry! Not a single picture in this book, all words; on what basis does he say that? Truly lost his mind."
+The woman seemed to have forgotten the man behind her, continuing as if speaking to herself. "This set of 'Dream of the Red Chamber'—he must have read it dozens of times. I asked him, is it really that captivating? More captivating than me? You know what he answered? 'You're lovelier than Baochai, but not as lovely as Daiyu.' It made me so angry! There's not a single picture in that book, only words—on what basis does he say that? Truly lost his mind."
 
-The man became curious about the previous topic again: "Then why did he go to be a soldier again? Staying in the factory was fine, with boundless prospects. And according to the conscription policy, someone like him originally didn't need to be a soldier."
+The man's curiosity returned to an earlier question. "Then why did he go off to be a soldier? He could have stayed at the factory—boundless prospects there. And according to the conscription policy, someone like him wasn't even required to serve."
 
-The woman thought for a while and shook her head helplessly: "I'm not very clear either." After a while, the woman remembered something, "He said he wanted to see the distance."
+The woman thought for a moment, then shook her head helplessly. "I'm not entirely sure myself." After a pause, she remembered something. "He said he wanted to see the distance."
 
-"The distance? What distance? Just because of this?" The man pressed in confusion. What a strange reason, giving up such a young, beautiful wife and a promising job—truly incomprehensible.
+"The distance? What distance? Just for that?" The man pressed, bewildered. What a strange reason—abandoning such a young, beautiful wife and a promising career. Truly incomprehensible.
 
-"Yes... And, he said the things he wrote were very shallow because his experience was too little, so he wanted to go out and see." The woman remembered something else and said, "He mentioned that there are three kinds of people most likely to become writers, and soldiers are one of them."
+"Yes... And he said the things he wrote were too shallow because he'd experienced too little, so he wanted to go out and see the world." The woman recalled something else. "He mentioned that three kinds of people are most likely to become writers, and soldiers are one of them."
 
-" wanting more experience and knowledge, being a traveling merchant would work too. If he has no capital, being a commercial representative for a company also lets one travel everywhere, even to Nanyang!" This was even stranger; the man found it inconceivable.
+"If he wanted more experience and knowledge, he could have become a traveling merchant. If he lacked capital, working as a commercial representative for a company would let him travel everywhere—even to Nanyang!" This was stranger still; the man found it inconceivable.
 
-"Who knows? Maybe he felt army life was more stimulating." The woman smiled and pointed to a Lingao newspaper on an empty chair. "Yesterday's Lingao Times, the neighbor brought it, said there's something he wrote in it. I haven't read it yet."
+"Who knows? Perhaps he felt army life was more... stimulating." The woman smiled and pointed to a Lingao newspaper on an empty chair. "Yesterday's Lingao Times. The neighbor brought it over, said there's something he wrote in it. I haven't read it yet."
 
-The man reached out to take the newspaper to read, but the woman snatched it back, folded it, and put it on the table.
+The man reached for the newspaper, but the woman snatched it back, folded it, and set it on the table.
 
-"Don't look, let's neither of us look." The woman laughed. "You don't look, I don't look either. Now is our time."
+"Don't look. Let's neither of us look." The woman laughed. "You don't look, I don't look. This time belongs to us."
 
-The man smiled awkwardly. Truly a strange man, and a strange wife. He and the woman were senior primary classmates. In school, they weren't that close—they were young and thin-skinned then, somewhat influenced by "men and women should not touch." He just thought she was an ordinary merchant's daughter, quite quiet. Didn't expect she would change so much now.
+The man smiled awkwardly. A strange husband, and a strange wife. He and the woman had been senior primary classmates. In those days, they hadn't been particularly close—young and thin-skinned then, somewhat influenced by the notion that men and women should maintain their distance. He had thought of her simply as an ordinary merchant's daughter, rather quiet. He never expected she would change so much.
 
-"Are you thinking about how to explain to your wife when you go back?" Seeing the man silent and thoughtful for a long time, the woman smiled slyly.
+"Are you thinking about how to explain this to your wife when you get home?" Seeing the man silent and lost in thought, the woman smiled slyly.
 
-"She won't care about this." The man said with some disdain. "If she knew, she would say, 'If you think she's good, marry her and bring her back; it's not like I can't tolerate people.' Or else, 'Having a few more sisters in the house is good; I'll have partners for card games.'"
+"She wouldn't care about this." The man said with some disdain. "If she knew, she'd say, 'If you think she's so wonderful, marry her and bring her home—it's not as if I can't share.' Or else, 'Having a few more sisters in the house would be nice. I'd have partners for card games.'"
 
-"So virtuous?" The woman giggled. "Right, you must have married a girl from a big household. No wonder, no wonder." She paused, saying with some teasing: "And you still disdain her like that?"
+"So virtuous?" The woman giggled. "Ah, you must have married a girl from a prominent household. No wonder, no wonder." She paused, a teasing note in her voice. "And you still look down on her like that?"
 
-"I don't disdain her." The man hurriedly defended.
+"I don't look down on her." The man hastened to defend himself.
 
-"Forget it, I understand."
+"Never mind. I understand."
 
-"Although it's an arranged marriage, she's quite good, and we are considered affectionate."
+"Although it was an arranged marriage, she's quite good, and we're considered an affectionate couple."
 
-"Che!" The woman emitted a response full of disdain. "Afraid I'll cling to you? Men ah... do you think I'm that casual, that just any man will do?"
+"Tch!" The woman made a sound full of disdain. "Afraid I'll try to cling to you? Men... Do you think I'm that casual, that just any man would do?"
 
-"Of course not. I like you too much. If you had married me back then, I wouldn't have been happy enough." The man hurried to refute, piling up all the flattering words he could think of.
+"Of course not. I like you too much. If you had married me back then, I wouldn't have known what to do with my happiness." The man rushed to counter her, piling up every flattering word he could muster.
 
-"Talking nonsense again. I think if that day really comes, you'll run faster than anyone." The woman was amused.
+"Talking nonsense again. I think if that day ever came, you'd run faster than anyone." The woman was amused.
 
-"No way!" The man wanted to add a few more sweet words, but a knock sounded downstairs.
+"Never!" The man wanted to add a few more sweet words, but a knock sounded at the door downstairs.
 
 (End of Chapter)

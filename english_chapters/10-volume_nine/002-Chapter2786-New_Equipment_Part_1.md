@@ -1,99 +1,99 @@
 # Chapter 2786: New Equipment (Part 1)
 
-Since the beginning of the Mainland Strategy, many institutions of the Senate gradually moved to Guangzhou. Some, although their headquarters did not move, established branches in Guangzhou. However, due to the multitude of businesses, the so-called branches grew larger day by day, while the headquarters became existence similar to a rear office instead. Some departments then began overall relocation.
+Since the launch of the Mainland Strategy, many Senate institutions had gradually relocated to Guangzhou. Some, though their headquarters remained in place, established branch offices in the city. Due to the sheer volume of business, however, these so-called branches grew larger by the day while the original headquarters shrank into something more resembling a rear office. Eventually, certain departments began relocating entirely.
 
-The General Staff and the Department of Army were the central institutions of the Senate that moved to the mainland as a whole earlier. According to the decision of the General Assembly at the end of 1635, central departments first set up offices in Guangzhou. However, with the continuous deepening of military struggles, the General Staff and the Army still moved overall. After all, the focus of the massive Mainland Strategy was on ground combat, while the General Staff and the Ministry of Army were on the other side of the sea; this was unfavorable for military struggles.
+The General Staff and the Department of Army were among the first central institutions to move to the mainland in their entirety. According to a decision made by the General Assembly at the end of 1635, central departments were to first establish offices in Guangzhou. Yet as military struggles intensified, both the General Staff and the Army completed their full relocation. After all, the Mainland Strategy's focus was on ground combat—having the General Staff and Ministry of Army stationed across the sea proved a significant hindrance to military operations.
 
-When they first arrived on the mainland, conditions were very limited. The General Staff and the Army huddled together, settling in the former Ming Army drill ground in the east of Guangzhou city, surrounded by fences. Except for some old houses, most people pitched tents for office work,
+When they first arrived on the mainland, conditions were severely limited. The General Staff and the Army crowded together, settling in the former Ming Army drill ground east of Guangzhou city, which they surrounded with fences. Apart from a few old buildings, most personnel worked out of pitched tents.
 
-The field state lasted for nearly half a year. Since most Senators were sent to substantiate the frontline troops, using tents was barely acceptable.
+This field state persisted for nearly half a year. Since most Senators had been dispatched to reinforce frontline troops, working from tents was barely acceptable.
 
-Naturally, no one could stand such a crude environment. When the war entered a stalemate stage, Director Hong of the Joint Logistics (Lianqin) then ran horses to enclose land.
+Naturally, no one could tolerate such crude conditions indefinitely. When the war entered a stalemate, Director Hong of Joint Logistics—known as Lianqin—set about acquiring land.
 
-Outside the East Gate of Guangzhou, close to the Pearl River, he enclosed a piece of land, roughly in the Dadao Road area of the old space-time (modern Guangzhou), used to build the new headquarters. This time tents were replaced by prefabricated houses. The original barbed wire + bamboo fence were also replaced by formal brick walls. Afterwards, bastions were added on the walls, and supporting barracks, trenches, forts... were built one after another, becoming a military fortress guarding Guangzhou. The prefabricated houses inside were also rebuilt into buildings one by one. By early 1637, this place temporarily named "South China Headquarters" finally had all simple temporary buildings demolished. Infrastructure such as office buildings, wired telegraph, dedicated wharf, dormitories, running water tower, coal storage yard, boiler room, bathhouse, etc., were basically in place. It became the largest stronghold of the Army in Guangzhou.
+Outside Guangzhou's East Gate, near the Pearl River, he secured a parcel of land roughly in what would become the Dadao Road area in the modern era. There he built the new headquarters. This time, tents gave way to prefabricated houses. The original barbed wire and bamboo fencing was replaced by proper brick walls. Bastions were later added to these walls, followed by supporting barracks, trenches, and fortifications—transforming the compound into a military fortress guarding Guangzhou. The prefabricated structures inside were gradually rebuilt into permanent buildings. By early 1637, the site—temporarily dubbed "South China Headquarters"—had finally seen all its simple temporary structures demolished. Essential infrastructure was now in place: office buildings, wired telegraph, a dedicated wharf, dormitories, a water tower, coal storage yard, boiler room, and bathhouse. It had become the Army's largest stronghold in Guangzhou.
 
-The General Staff and the Department of Army also moved to Guangzhou entirely. Following this, some training bases set up in Hong Kong previously also moved to the mainland one after another. After all, conditions in Hong Kong still had too many limitations, and water resources were limited. Placing too many large institutions there would affect each other's daily operations.
+The General Staff and Department of Army had now relocated to Guangzhou completely. Following this, training bases previously established in Hong Kong also moved to the mainland one by one. Hong Kong's conditions still imposed too many limitations—water resources in particular were scarce. Concentrating too many large institutions there only caused them to interfere with each other's daily operations.
 
-The Army and the General Staff were temporarily squeezed in an L-shaped three-story building, but conditions were greatly improved compared to before. Some Senators joked that if hostile saboteurs fired a rocket at this building, the Fubo Army would be directly hemiplegic.
+The Army and the General Staff were temporarily squeezed into an L-shaped, three-story building, but conditions had improved dramatically compared to before. Some Senators joked that if hostile saboteurs fired a rocket at this building, the Fubo Army would be instantly hemiplegic.
 
-After major hostilities and bandit suppression battles basically came to an end temporarily, both the Fubo Army and the National Army entered a rest and reorganization stage. The work of the General Staff and the Department of Army became relatively relaxed, able to focus more on troop construction and training consolidation work.
+After major hostilities and bandit suppression campaigns drew to a temporary close, both the Fubo Army and the National Army entered a period of rest and reorganization. The workload of the General Staff and Department of Army grew relatively lighter, allowing them to focus more on troop development and training consolidation.
 
-The army demonstrated its value as the number one gold-swallowing beast of the Senate in nearly two years of Mainland Strategy and public security warfare. Naturally, quite a few problems were also exposed. So these problems evolved into a big discussion on whether the military system needed reform and whether weapons should be upgraded.
+The army had demonstrated its status as the Senate's number one gold-swallowing beast through nearly two years of the Mainland Strategy and public security warfare. Naturally, this also exposed quite a few problems—problems that evolved into a major debate over whether the military system required reform and whether weapons should be upgraded.
 
-These two topics could be considered annual topics in the Senate, brought out to be discussed every year. The conclusion... None.
+These two topics were perennial favorites in the Senate, trotted out for discussion every year. The conclusion? None whatsoever.
 
-Just as a certain Senator of the First Weapon Design Bureau said indignantly: "The force of inertia always exceeds the desire for technological change." This saying wasn't wrong originally, but the reason inertia was large lay largely in the cost required for technological change and the benefits brought by it.
+As a certain Senator from the First Weapon Design Bureau once remarked with frustration: "The force of inertia always exceeds the desire for technological change." The statement was not wrong in itself, but the reason inertia ran so strong lay largely in the costs required for technological change versus the benefits it would bring.
 
-Differing from what Senators thought, managers of the army, whether it was the army of the Third World or the US army seeking defeat in solitude after the Cold War, essentially were not interested in "technological leadership." They considered "cost" more.
+Contrary to what Senators might assume, those who managed armies—whether the militaries of the Third World or the post-Cold War US Army "seeking defeat in solitude"—were fundamentally uninterested in "technological leadership." They cared far more about cost.
 
-Of course, as combat generals, naturally the more advanced the weapons the better, preferably Zentraedi Technology hitting Stone Age technology. But weapons were essentially "waste" that had no output but only consumption. Army managers had to consider the cost of maintenance and application.
+Of course, combat generals naturally wanted the most advanced weapons possible—preferably Zentraedi technology crushing Stone Age primitives. But weapons were essentially "waste" that produced nothing and only consumed resources. Army managers had to weigh the costs of maintenance and application.
 
-In April 1637, Guangzhou was already bursting with spring. Various flowers and trees inside the General Staff compound bloomed in competition, bringing a touch of bright color here. Dongmen Chuiyu, the Executive Secretary of the Fubo Army General Staff, was reading a letter in his office in this L-shaped building.
+In April 1637, spring had burst forth in Guangzhou. Various flowers and trees throughout the General Staff compound bloomed in vibrant competition, lending a touch of bright color to the grounds. Dongmen Chuiyu, Executive Secretary of the Fubo Army General Staff, was reading a letter in his office within the L-shaped building.
 
-Although his title had never changed from beginning to end, always "Executive Secretary of General Staff," nor had he actually served as a unit commander or been in charge of a certain important department, Dongmen Chuiyu's military rank rose steadily. If not for his comparative modesty, insisting on refusing promotion, he could hang the rank of Major General now.
+Though his title had never changed—always "Executive Secretary of General Staff"—and though he had never actually served as a unit commander or headed any major department, Dongmen Chuiyu's military rank had risen steadily. Were it not for his comparative modesty and insistence on refusing promotion, he could have worn the rank of Major General by now.
 
-Although Dongmen Chuiyu was still a Colonel, he was the most powerful Senator Officer in the Fubo Army—none other.
+Despite remaining a Colonel, Dongmen Chuiyu was the most powerful Senator Officer in the Fubo Army—bar none.
 
-Although according to military rank and position, there were still several Senator Major Generals and Comrade Minister of Army ahead of him, controlling the daily affairs of the General Staff made the power he possessed greatly surpass the former.
+True, by military rank and position, several Senator Major Generals and the Minister of Army himself technically outranked him. But controlling the daily affairs of the General Staff gave him power that far surpassed theirs.
 
-At this moment in his office, Senator Dongmen was writing a reply letter.
+At this moment in his office, Senator Dongmen was composing a reply.
 
-The letter was an official letter sent by the Danzhou Industrial Zone Management Committee. The content of the letter was regarding the "Joint Logistics No. 37 Arsenal."
+The letter was an official communication from the Danzhou Industrial Zone Management Committee, concerning "Joint Logistics Arsenal No. 37."
 
-Although called "Joint Logistics No. N Arsenal," actually Joint Logistics didn't manage and construct arsenals specifically—this was still the affair of the industrial department. So this matter was still negotiated by a letter from the Industrial Zone Management Committee.
+Though called "Joint Logistics Arsenal No. N," Joint Logistics didn't actually manage or construct arsenals directly—that remained the purview of the industrial department. Thus, this matter still required negotiation via correspondence from the Industrial Zone Management Committee.
 
-The incoming letter was not written by a certain Senator. Such official letters of personal autography were called "Memorandum" in the General Office system, considered the highest level. Instead, it was signed by the Committee Director Secretary. The content was the issue of No. 37 Factory landing (establishment).
+The incoming letter had not been written personally by any Senator. Such handwritten official letters were termed "Memoranda" in the General Office system and were considered the highest tier of correspondence. Instead, this letter bore the signature of the Committee Director's Secretary. Its subject: the establishment of Factory No. 37.
 
-This matter finally arrived before eyes. Dongmen Chuiyu thought when receiving the letter.
+*This matter has finally arrived,* Dongmen Chuiyu thought as he received the letter.
 
-The rifle was designed in 1635 and finalized in 1637. The issue arose after finalization.
+The rifle had been designed in 1635 and finalized in 1637. The complications arose after finalization.
 
-Since it was finalized, the Weapon Design Bureau proposed a request for re-equipment. The Planning Academy naturally solicited opinions from relevant departments and re-equipment plans.
+Once the weapon was finalized, the Weapon Design Bureau submitted a request for re-equipment. The Planning Academy naturally solicited opinions from relevant departments along with proposed re-equipment plans.
 
-The new breech-loading rifle had many benefits; this didn't need argumentation. Anyone could see it, let alone Senators who had peeked at the homework answers long ago.
+The new breech-loading rifle offered many advantages—this required no argumentation. Anyone could see it, let alone Senators who had long ago peeked at the answers in the back of history's textbook.
 
-So the General Staff wrote a very detailed report. First, it highly affirmed the excellence of the weapon: This is a revolutionary new rifle. After its equipment, the existing tactical system of the Army will change completely.
+Accordingly, the General Staff had written a very detailed report. First, it highly affirmed the weapon's excellence: *This is a revolutionary new rifle. After its adoption, the Army's existing tactical system will undergo complete transformation.*
 
-The problem lay in the sentence "tactical system change completely."
+The problem lay precisely in that phrase: "tactical system complete transformation."
 
-Weapons determine tactics, and tactics determine organization. Although the Minié rifle was progress compared to the flintlock musket, generally it didn't change the projection speed of weapons. So the army in 1860 was still the same set of lining up to be shot. The basic tactics used by Napoleon III's France, Austria, and Prussia at the beginning of the German Unification Wars were still line and column formations of the muzzle-loading era—although they already used breech-loading rifles.
+Weapons determine tactics, and tactics determine organization. Though the Minié rifle represented progress over the flintlock musket, it generally had not changed the rate of projectile delivery. Thus armies in 1860 still employed the same methods—lining up to exchange fire. The basic tactics used by Napoleon III's France, Austria, and Prussia at the start of the German Unification Wars remained the line and column formations of the muzzle-loading era, even though they already wielded breech-loading rifles.
 
-If the Army carried out comprehensive re-equipment, it meant that the existing army training, organization, and tactical system would all be invalidated. The Army had to undergo comprehensive retraining and reorganization. The old tactical system dismantled, and the new one not yet formed, the troops would be in a weak state. For soldiers, the impact might not be big; a few months of intensive training could adapt to new weapons.
+If the Army carried out comprehensive re-equipment, it would mean the existing training regimens, organizational structures, and tactical systems would all become obsolete. The Army would require comprehensive retraining and reorganization. With the old tactical system dismantled and the new one not yet formed, the troops would enter a vulnerable state. For ordinary soldiers, the impact might be manageable—a few months of intensive training could adapt them to new weapons.
 
-But for officers, it was tragic.
+But for officers, it would be catastrophic.
 
-Senator officers of the Army system had completely thoroughly grasped linear tactics through long-term practical exploration. The cultivation education of officers and sergeants was also conducted based on this tactical principle. Although so far no serious field battle had been fought, through years of experience summary and exercise training, the organization method of large-scale battles was basically determined.
+Senator officers within the Army system had completely mastered linear tactics through years of practical exploration. The cultivation and education of officers and sergeants was conducted based on these tactical principles. Though no serious field battle had yet been fought, years of experience and exercise training had largely determined the organizational methods for large-scale engagements.
 
-Redesigning tactics, the Army would directly lose active field combat capability. Large-scale engagement could only adopt defense-counterattack tactics.
+To redesign tactics meant the Army would directly lose its active field combat capability. Large-scale engagements could only adopt defense-and-counterattack tactics.
 
-Now was in the state of Mainland Strategy. Attacks from Ming army, peasant armies, Manchus, or armed riots of local forces could happen at any time. The Army would be in long-term combat readiness state, engaging in battle at any time. Large-scale alteration of the army's organizational structure and tactics would inevitably cause chaos.
+The present moment remained within the Mainland Strategy. Attacks from Ming armies, peasant forces, Manchus, or armed uprisings by local powers could occur at any time. The Army would maintain a long-term state of combat readiness, prepared to engage at a moment's notice. Large-scale alterations to the army's organizational structure and tactics would inevitably cause chaos.
 
-The army was the basic guarantee of political power and couldn't be chaotic. Therefore, to not affect the combat capability of existing troops, the ideal method was to establish new troops. New troops adopt new weapons and new training. The problem was, this way, not to mention the army size suddenly becoming larger, because the new rifle had absolute advantage over the Minié rifle, new troops must have Senators holding key positions.
+The army was the fundamental guarantee of political power—it could not fall into disarray. Therefore, to avoid compromising the combat capability of existing troops, the ideal approach was to establish new units. These new troops would adopt new weapons and new training methods. The problem was that this approach would not only suddenly expand the army's size, but because the new rifle held absolute advantage over the Minié rifle, these new troops would require Senators in key positions.
 
-Senators serving as battalion-level officers, right now was basically an impossible thing.
+Having Senators serve as battalion-level officers was, at present, essentially impossible.
 
-Therefore, Senator officers of the Army had completely a kind of contradictory mood of love and hate mixed towards the matter of comprehensive re-equipment.
+Thus, Senator officers of the Army held entirely contradictory feelings toward comprehensive re-equipment—a mixture of love and loathing.
 
-They naturally hoped the troops were well-equipped, but they didn't want everything they established to have to start all over again.
+They naturally hoped for well-equipped troops, but they did not want everything they had built to be torn down and started over from scratch.
 
-As for the view of Joint Logistics, it was quite impolite.
+As for Joint Logistics' perspective, it was rather blunt.
 
-After the start of the Mainland War, with the deepening of controlled areas, the battle line became longer and longer, and the army scale would become more and more huge. The Type 1637 would cause extremely huge pressure on logistics and industrial capacity simultaneously. Especially the consumption of ammunition and the upper limit of supply.
+Since the start of the Mainland War, as controlled areas expanded, the battle lines had grown ever longer, and army size would only continue to increase. The Type 1637 would place extremely heavy pressure on both logistics and industrial capacity simultaneously—especially regarding ammunition consumption and supply limits.
 
-Comrade Thorpe pointed out in the report that under new tactics, soldiers were in skirmisher state, lacking control and command of officers. In complex terrain and intense combat, soldiers would tend to conduct preventive shooting at suspicious targets, seeking to knock down more enemies before potential enemies launched attacks. Objectively increasing ammunition consumption.
+Comrade Thorpe pointed out in his report that under the new tactics, soldiers would operate in skirmisher formation, beyond the close control and command of officers. In complex terrain and intense combat, soldiers would tend toward preventive shooting at suspicious targets, seeking to eliminate more enemies before potential threats could launch attacks. This would objectively increase ammunition consumption.
 
-Automatic weapons instead wouldn't, because soldiers knew the weapon in hand could fire a large amount of ammunition in a very short time to knock down multiple targets.
+Automatic weapons, interestingly, would not cause the same problem, because soldiers knew the weapon in hand could fire a large volume of ammunition in a very short time to strike down multiple targets.
 
-With Minié rifles, soldiers knew there was only one bullet in the gun, loading time was long, and shooting would be more cautious.
+With Minié rifles, soldiers knew there was only one bullet in the gun and reloading took time, so they would shoot more cautiously.
 
-Switching to new rifles, the growth of ammunition consumption would be unpredictably large.
+Switch to new rifles, and the growth in ammunition consumption would be unpredictably large.
 
-Because inland areas were still in the original 17th century, transportation costs were extremely high. If new weapons were adopted, with huge ammunition consumption, logistics demand and cost would be large beyond imagination.
+Because inland areas remained in their original seventeenth-century state, transportation costs were extremely high. If new weapons were adopted with their massive ammunition consumption, the resulting logistics demands and costs would expand beyond imagination.
 
-Under the traffic conditions of the 17th century, the ammunition consumption of muzzle-loading weapons matched the logistics limit.
+Under seventeenth-century transportation conditions, the ammunition consumption of muzzle-loading weapons matched the logistics ceiling.
 
-Joint Logistics stated, weapons are high-grade, but we can only supply the most suitable ones. Advanced doesn't represent suitable. If Type 1637 is to be fully equipped, a large amount of transportation tools, ships, carriages, livestock, etc., need to be added.
+Joint Logistics stated plainly: the weapons are excellent, but we can only supply what is most suitable. Advanced does not mean suitable. If the Type 1637 is to be fully equipped, a large quantity of transportation assets must be added—ships, carriages, livestock, and more.
 
-The Navy's report was very simple, just stating this gun is good; if the length could be shortened, it could be used as an excellent Navy rifle. And pointed out emphatically that the Marines needed to equip this new rifle very much.
+The Navy's report was simple, merely stating that this gun was good and, if the length could be shortened, would serve as an excellent naval rifle. It emphasized pointedly that the Marines urgently needed to equip this new rifle.
 
 (End of Chapter)

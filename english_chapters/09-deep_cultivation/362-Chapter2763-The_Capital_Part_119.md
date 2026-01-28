@@ -1,143 +1,143 @@
 # Chapter 2763: The Capital (Part 119)
 
-Xu Ke did not recall this person; evidently, he was not on the Political Security Bureau's surveillance list. He pressed on, "Does he have an alias?"
+Xu Ke did not recognize this person; evidently, the name was absent from the Political Security Bureau's surveillance lists. He pressed further, "Does he have an alias?"
 
 "Perhaps this *is* his alias."
 
-"You have roped in many religious sects and secret societies in Guangzhou Prefecture. What use is it for you to reel these people in? As far as I know, most of these disciples and followers are ignorant commoners who only know how to burn incense and worship gods, fooled by others. Apart from the few dozen people around the sect heads, most have no combat power. If it really comes to a fight, the situation will be them scattering in an uproar. Could it be just to boost the momentum?"
+"You have recruited many religious sects and secret societies throughout Guangzhou Prefecture. What purpose do they serve? As far as I know, most of these disciples and followers are ignorant commoners who know nothing beyond burning incense and worshipping gods—people easily deceived. Apart from the few dozen individuals surrounding the sect leaders, most have no combat capability whatsoever. If it came to an actual fight, they would scatter in chaos. Are they merely there to bolster your numbers?"
 
-Liu Sha smiled, "Even a blade of grass or a piece of wood has its use, let alone people. If you say they harbor ulterior motives and have zero combat power, this Poor Daoist also acknowledges it. But if you say they are useless, then that is greatly erroneous. Let this Poor Daoist ask the Chief, how many sect members are there in the religious sects of Guangzhou Prefecture?"
+Liu Sha smiled. "Even a blade of grass or a splinter of wood has its use, let alone living men. If you say they harbor ulterior motives and possess no fighting strength, this Poor Daoist will not dispute it. But to call them useless would be a grave error. Allow me to pose a question, Chief: how many sect members reside in the religious sects of Guangzhou Prefecture?"
 
-"This, I indeed do not possess the numbers."
+"That, I confess, I do not know precisely."
 
-"No fewer than thirty or forty thousand people." Liu Sha was slightly self-satisfied. "If these thirty or forty thousand people swarm up, even if they are unarmed and stick out their necks for you to kill, how long will it take you to kill them?"
+"No fewer than thirty or forty thousand." Liu Sha permitted himself a trace of smugness. "If those thirty or forty thousand were to surge forward en masse, even if they were unarmed and stretched out their necks for slaughter, how long would it take you to kill them all?"
 
-"So, these living beings are merely tributes used to delay the Senate's counterattack."
+"So these living souls are merely sacrifices—offerings to delay the Senate's counterattack."
 
-"Precisely." Liu Sha said, "Forgive my bluntness, but when it comes to the breath of mind for planning great matters, the Senate is inevitably a bit petty, far inferior to the heroic spirit of Master Liang reaching the clouds."
+"Precisely." Liu Sha nodded. "Forgive my bluntness, but when it comes to the breadth of vision required for planning great affairs, the Senate remains somewhat narrow-minded, falling far short of Master Liang's cloud-reaching heroic spirit."
 
-"He has heroic spirit reaching the clouds," Xu Ke laughed. "He indeed has the grandeur of 'I plan for the world, how can I spare the small commoners.' However, the Daoist Priest is also but a small commoner. In the eyes of Master Liang, you probably aren't much different from those sect disciples sent to fill the blade edge. Is it not absurd to clap your hands in praise for him?"
+"Cloud-reaching heroic spirit indeed," Xu Ke laughed. "He certainly possesses the grandeur of one who thinks, 'I scheme for all under heaven—how can I spare mere commoners?' However, the Daoist Priest is himself but a common man. In Master Liang's eyes, you are probably no different from those sect disciples sent to blunt our blades. Is it not absurd to applaud him so enthusiastically?"
 
-Liu Sha was stunned. He originally wanted to refute, but had no way to start. Come to think of it, wasn't he just a chess piece with Master Wang? Otherwise, why would he have had a change of heart?
+Liu Sha was taken aback. He wanted to refute the point but found no foothold from which to begin. When he thought about it, wasn't he merely a chess piece to Master Wang? Why else would he have had his change of heart?
 
-Seeing the look of embarrassment on his face, Xu Ke stopped exposing his shortcomings. He said, "Since Master Liang has a martial staff, he must have a civilian staff. Do you know of them?"
+Seeing the embarrassment on the man's face, Xu Ke refrained from pressing the wound further. Instead, he said, "Since Master Liang has a martial staff, he must also have a civilian staff. What do you know of them?"
 
-Liu Sha gave a strange smile and said, "If I had a few more children, it would have been worth it. Nowadays..."
+Liu Sha gave a peculiar smile. "Had I possessed a few more children, this would have been worthwhile. As things stand now..."
 
-"Nowadays you feel it's a loss, don't you?" Xu Ke stood up and added hot water to his tea cup, smiling.
+"Now you feel you've gotten the worse end of the bargain, don't you?" Xu Ke rose and added hot water to his teacup, smiling.
 
-Liu Sha chuckled a few times, which counted as tacit acceptance. He said:
+Liu Sha chuckled a few times in tacit acknowledgment, then said:
 
-"Actually, I don't know much about this civilian staff. Liang Cunhou's mind is meticulous, not inferior to Master Wang," Liu Sha said. "It is said that quite a few local noble families and gentry in Guangdong are involved."
+"Truthfully, I know little about this civilian staff. Liang Cunhou's mind is meticulous, no less so than Master Wang's." He paused. "It is said that a considerable number of local noble families and gentry in Guangdong are involved."
 
-"This, we have more or less estimated." Xu Ke nodded. "They are unwilling to lose their paradise. However, these people cannot be counted as a civilian staff."
+"This we have more or less surmised." Xu Ke nodded. "They are loath to relinquish their paradise. However, such people cannot be counted as a proper civilian staff."
 
-"You are right. Actually, his civilian staff, although I don't know specifically who they are, I roughly know they are people originally from the Yuyuan Society."
+"You are correct. In fact, his civilian staff—though I do not know their specific identities—I have reason to believe they were originally members of the Yuyuan Society."
 
-The name of the Yuyuan Society appeared many times in Liang's case file. Some of its members had already been arrested or turned. Therefore, they had grasped seventy or eighty percent of the member list. However, these people had low status within the society and knew limited information. This society itself was formed by a group of scholars in Guangdong who had a strong interest in "Australian Studies," with varying motives. Some were purely curious, some were there to learn Australian Studies, and some were just using it as a channel to climb up socially because Liang Cunhou was interested in Australian Studies... Because their goals were all different, the situation they knew within the society was also different.
+The name of the Yuyuan Society had appeared repeatedly in Liang's case file. Some of its members had already been arrested or turned, allowing them to piece together seventy or eighty percent of the membership roster. However, these individuals held low positions within the society and possessed limited knowledge. The organization itself had been founded by a group of Guangdong scholars with keen interest in "Australian Studies," though their motivations varied widely. Some were driven by pure curiosity; others sought to master Australian knowledge; still others viewed membership merely as a ladder for social advancement, since Liang Cunhou was known to favor those versed in Australian Studies. Because their goals diverged so completely, their understanding of the society's inner workings differed accordingly.
 
-Members who joined purely out of hobbies or seeking a career path were naturally peripheral personnel of the society. Even if some researched Australian Studies very deeply, Liang Cunhou only "sat and discussed the Dao" with them and did not entrust them with any secret matters.
+Members who had joined purely out of intellectual interest or careerism were naturally relegated to the organization's periphery. Even those who had studied Australian knowledge in considerable depth found that Liang Cunhou would only "sit and discuss the Dao" with them; he entrusted none of them with confidential matters.
 
-"...This Poor Daoist also doesn't know much of the situation. I only know that he collected many of your books, newspapers, and periodicals, hiding them in his residence. He allowed the scholars within the society to study and extract from them. He himself and trusted members secretly compiled a book based on the collected books and newspapers, called *Record of Broad Hearing of Heavenly Matters* (*Tianqing Guangwenlu*)."
+"...This Poor Daoist knows little of the details myself. I know only that he collected many of your books, newspapers, and periodicals, concealing them within his residence. He permitted scholars within the society to study and draw upon these materials. Meanwhile, he and his most trusted members secretly compiled a book based on these collected works, entitled *Record of Broad Hearing of Heavenly Matters* (*Tianqing Guangwenlu*)."
 
-They had heard more or less about Liang Cunhou secretly compiling a book.
+They had heard various rumors about Liang Cunhou secretly compiling such a book.
 
 "Where is this book hidden?"
 
-"Probably hidden in his mansion." Liu Sha said, "He spent enormous effort on this book; naturally, he treasures it, planning to present it to the Imperial Court in the future."
+"Most likely in his mansion." Liu Sha said, "He invested enormous effort in this work; naturally he treasures it, intending to present it to the Imperial Court in due time."
 
-"Let's not talk about the book for now. Who were his most trusted people originally in the Yuyuan Society?"
+"Set the book aside for now. Who were his most trusted people within the Yuyuan Society?"
 
-"One was Lin Zunxiu. However, he is now long a dead tiger, lingering on in his last breath in Guangzhou City. Even Master Liang probably wouldn't have any connections with him anymore. But if we talk about the deepest origins, it would be none other than him."
+"One was Lin Zunxiu. However, he is now nothing but a spent force, lingering on his last breath in Guangzhou City. Even Master Liang has probably severed all connections with him by now. But if we speak of the deepest roots, it would be none other than him."
 
 "Who else?"
 
-"There are three or four others, but I have only seen them and do not know their names. Looking at their appearance, they are not from wealthy families; probably all from poor scholar backgrounds. However, there is one person you probably know. I heard Young Master Liang say that he came from Lingao."
+"Three or four others, but I have only glimpsed their faces and do not know their names. Judging by their appearance, they are not from wealthy families—probably all of poor scholar stock. However, there is one person you likely already know. I heard Young Master Liang mention that he came from Lingao."
 
-" surnamed Huang?!"
+"Surnamed Huang?!"
 
-"Precisely!" Liu Sha laughed, "You guys indeed know!"
+"Precisely!" Liu Sha laughed. "So you do know!"
 
 "Where is this person now?"
 
-"I don't know." Liu Sha shook his head, "Before the Witchcraft Case, he stopped showing his face. Either he went to another place, or he was hidden away by Young Master Liang."
+"I cannot say." Liu Sha shook his head. "Before the Witchcraft Case, he stopped showing his face. Either he departed for elsewhere, or Young Master Liang hid him away."
 
-The Political Security Bureau knew about Huang Binkun seeking refuge with Liang Cunhou in Guangzhou, but his figure was absent from the various cases investigated. Later on, even his whereabouts were completely lost.
+The Political Security Bureau was aware that Huang Binkun had sought refuge with Liang Cunhou in Guangzhou, yet his presence was conspicuously absent from the various cases they had investigated. Eventually, they had lost track of his whereabouts entirely.
 
-"Young Master Liang values him very highly, doesn't he?"
+"Young Master Liang values him highly, does he not?"
 
-"Yes, after all, he came over from Lingao; what he saw and heard heavily relies on personal experience. This person is daring and resolute, and has a stubborn nature. Young Master Liang values him very highly."
+"Indeed. After all, the man came directly from Lingao; his firsthand observations carry considerable weight. He is bold and decisive, with a stubborn nature. Young Master Liang prizes him greatly."
 
-This sentence confirmed that Huang was an important figure in Liang's pocket. As for his whereabouts, Xu Ke estimated that nine out of ten he had already left Guangzhou.
+This confirmed that Huang was a key figure in Liang's inner circle. As for his current location, Xu Ke estimated there was a nine-in-ten chance he had already left Guangzhou.
 
-Regrettably, even Liu Sha did not know this person's whereabouts. He would likely be a scourge in the future.
+Regrettably, even Liu Sha did not know the man's whereabouts. He would likely prove a thorn in their side in the future.
 
-His next question was what the people from the Senate's Finance and Economics sector wanted to know the most: "Where did the counterfeit currency you used for activities in Guangdong come from? Was it Young Master Liang's idea or Master Wang's?"
+His next question addressed what the people from the Senate's Finance and Economics sector most urgently wanted to know: "Where did the counterfeit currency you used for your operations in Guangdong originate? Was it Young Master Liang's idea, or Master Wang's?"
 
-"This takes a long time to explain." Liu Sha said, "Initially, this was the idea Mr. Le gave to Master Wang. He said that since you don't cast coins and exclusively print paper notes, they could be forged. This could both fraudulently obtain materials and make a profit."
+"That requires some explaining." Liu Sha said, "Originally, it was Mr. Le who suggested the scheme to Master Wang. He argued that since you Australians do not mint coins and rely exclusively on printed paper notes, such currency could be forged. This would allow them to fraudulently obtain materials while turning a profit."
 
-"And later?"
+"And then?"
 
-"Counterfeit banknotes are not easy to make." Liu Sha said, "This matter was personally presided over by Mr. Le, but it failed several times. Master Wang relied on connections and hired many capable people, spending quite a bit of silver, but the things made were... hard to describe! They could only deceive people in the countryside; they couldn't be spent in the city. The country folk aren't stupid either; regardless of whether it's real or fake, they simply don't acknowledge banknotes."
+"Counterfeit banknotes proved far from easy to produce." Liu Sha continued, "Mr. Le personally oversaw the effort, but it failed repeatedly. Master Wang drew upon his connections and hired many skilled craftsmen, spending considerable silver, yet the results were... difficult to describe. The forgeries could only deceive country folk; they were unusable in the cities. And even the country people were not foolish—regardless of whether the notes were genuine or fake, they simply refused to accept paper currency."
 
-Xu Ke knew that before using the abolished grain circulation coupons for forgery, all paper counterfeit currency on the market was fake at a glance.
+Xu Ke knew that before they had used the abolished grain circulation coupons as a template for counterfeiting, all paper counterfeit currency on the market had been identifiable as fake at a glance.
 
-"Mr. Le lost face and came to ask this Poor Daoist for a plan." Liu Sha became quite self-satisfied as he spoke of this. "This Poor Daoist then came up with the idea of making fake silver coins."
+"Mr. Le lost face and came to consult this Poor Daoist for a solution." Liu Sha grew rather pleased with himself as he recounted this part. "It was then that this Poor Daoist conceived the idea of counterfeiting silver coins instead."
 
-"You, sir, are truly a great talent!" Xu Ke said, half-mocking and half-admiring.
+"You, sir, are truly a man of remarkable talents!" Xu Ke said, his tone hovering between mockery and genuine admiration.
 
-"You flatter me, you flatter me," Liu Sha couldn't hide his smugness. "This Mr. Le, his learning is naturally good, but when it comes to such ways of the *jianghu*, he is really too tender."
+"You flatter me, you flatter me." Liu Sha could not conceal his smugness. "This Mr. Le—his learning is naturally impressive, but when it comes to the ways of the *jianghu*, he is really quite green."
 
-"Then in your opinion?"
+"And in your estimation?"
 
-"Paper currency looks cheap, but in reality, Australian paper currency contains secret methods. It is extremely difficult to imitate. On the contrary, silver dollars are easier to target."
+"Paper currency appears cheap and simple, but in reality, Australian paper notes contain secret techniques that make them extraordinarily difficult to imitate. Silver dollars, by contrast, offer an easier target."
 
-"So the fake silver dollars were your idea." Xu Ke said, "The Zhuti Silver must be your handiwork, right?"
+"So the counterfeit silver dollars were your conception." Xu Ke said. "The Zhuti Silver must be your handiwork as well, correct?"
 
-"The Zhuti Silver was refined by Daoist Wu. Alchemy is his specialty."
+"The Zhuti Silver was refined by Daoist Wu. Alchemy is his particular specialty."
 
-"You have certainly gotten to know quite a few weird and bizarre figures of the *jianghu*. What is this person's background exactly?"
+"You have certainly accumulated acquaintances among the strange and outlandish figures of the *jianghu*. What exactly is this man's background?"
 
-"He was originally a shaman in the mountains of Guizhou. He was not a cultivator of the Dao. He learned many witchcraft and evil arts from the deep mountains of the southwest. Later, by chance, he bowed to a Daoist as his master and learned the arts of talismans and elixirs, mixing them into a set of his own gadgets. Not only is he proficient in various magic arts, but he is also good at the cursing arts of the Western Fan monks..."
+"He was originally a shaman from the mountains of Guizhou—not a practitioner of the Dao at all. He learned many forms of witchcraft and forbidden arts deep in the southwestern mountains. Later, through some twist of fate, he took a Daoist as his master and studied the arts of talismans and elixirs, eventually blending these traditions into a set of methods uniquely his own. Not only is he versed in various magical arts, but he is also proficient in the cursing techniques practiced by Western Fan monks..."
 
-"Stop, stop," Xu Ke frowned and said, "He was originally a shaman, later joined the Daoist sect, so how did he end up practicing Esoteric Buddhism?"
+"Wait, wait," Xu Ke frowned. "He was originally a shaman, then joined a Daoist sect—so how did he end up practicing Esoteric Buddhism?"
 
-"Hehe, there's something you don't know, Sir. What Wu Zhiqi practices is a mixture of Esoteric Buddhism and the Bon religion of the Western Fan, most mysterious of all. According to his words, its mana is immense; at the lower end it can curse and take people's lives, and at the higher end it can set up arrays to ruin a nation's fate. It is very effective..."
+"Hehe, there is something you do not know, Sir. What Wu Zhiqi practices is a hybrid of Esoteric Buddhism and the Bon religion of the Western Fan—most mysterious of all. According to his claims, its power is immense: at its lowest level, it can curse and claim lives; at its highest, it can construct arrays capable of ruining a nation's destiny. Very effective, he says..."
 
-"You believe this?"
+"And you believe this?"
 
-"This Poor Daoist is also half-doubting. However, I have seen him curse and kill people with my own eyes. Very formidable!"
+"This Poor Daoist remains half-skeptical. However, I have witnessed him curse a man to death with my own eyes. Most formidable!"
 
-Xu Ke subconsciously touched his chin, finding it inconceivable. But looking at Liu Sha's solemn vow, it didn't seem like he was lying. Thinking about the things Fu Wen did. It seemed Daoist Cui's speculation back then was very accurate. This fatty Cui really had a way with feudal superstition!
+Xu Ke subconsciously touched his chin, finding it difficult to believe. Yet Liu Sha spoke with such solemn conviction that he did not seem to be lying. Thinking back on the things Fu Wen had done, it appeared that Daoist Cui's speculation from before had been remarkably accurate. That portly Cui really did have a way with feudal superstition!
 
-"How could such a powerful figure be used by you?" Xu Ke was very interested in this. "He himself is a master of casting spells; could he be bluffed by your soul-extraction magic trick?"
+"How could such a powerful figure be made to serve your purposes?" Xu Ke found himself genuinely curious. "He himself is a master of casting spells; could he really be fooled by your soul-extraction trick?"
 
-"How can this be called bluffing? If I didn't have real learning, could a master like him be manipulated and driven by this Poor Daoist?" Liu Sha said proudly.
+"How can you call it fooling? If I lacked genuine skill, could a master of his caliber be manipulated and directed by this Poor Daoist?" Liu Sha said with evident pride.
 
-"Who thought of this matter?"
+"Whose idea was this scheme?"
 
-"Of course it was Daoist Wu; I don't have this ability." Liu Sha hurriedly cleared himself from this matter. "It's just that he needed too many human lives, so I recommended Fu Wen to him. I didn't expect these two to act so recklessly!"
+"Daoist Wu's, of course; I lack such capability." Liu Sha hastened to distance himself from the matter. "It was simply that he required too many human lives, so I recommended Fu Wen to him. I never expected those two to act so recklessly!"
 
-Xu Ke thought, *So you also know to clear your relationship with this matter!* He continued to ask:
+Xu Ke thought, *So you know well enough to clear yourself of this matter!* He continued his questioning:
 
-"How did Mr. Le view this matter?"
+"What was Mr. Le's view of all this?"
 
-"He was naturally opposed to it, saying that since ancient times, he had never heard of heresy and deviant paths achieving great things. Actually, Master Wang said the same."
+"He was naturally opposed, saying that since ancient times, he had never heard of heresy and deviant paths achieving great things. Master Wang said much the same, in fact."
 
-"Then why did they do it anyway?"
+"Then why did they proceed regardless?"
 
-"Even a rabbit will bite when anxious." Liu Sha sighed, "Wu Zhiqi swore solemnly, leaving us no choice but to believe, so we thought we might as well give it a try."
+"Even a cornered rabbit will bite." Liu Sha sighed. "Wu Zhiqi swore so solemnly that we felt we had no choice but to believe him, so we thought we might as well make the attempt."
 
-*Isn't this just a dog jumping over a wall in desperation!* Xu Ke criticized inwardly. For this "try," how many innocent commoners lost their lives! Not to mention Master Wang and the others, if this Zhou Lezhi is truly a transmigrator, just this crime alone would warrant him being cut into a thousand pieces.
+*A dog will jump over a wall when desperate!* Xu Ke criticized inwardly. For the sake of this "attempt," how many innocent commoners had lost their lives! Setting aside Master Wang and the others, if this Zhou Lezhi truly was a transmigrator, this crime alone would warrant death by a thousand cuts.
 
-He said calmly, "This 'try' cost quite a bit. Fu Wen later confessed that just the silver given to Gao Tianshi was ten thousand taels. This is not a small sum."
+He said calmly, "This 'attempt' exacted quite a cost. Fu Wen later confessed that the silver given to Gao Tianshi alone amounted to ten thousand taels. That is no small sum."
 
-Liu Sha smiled without speaking. Xu Ke immediately understood: "These were all Zhuti Silver?"
+Liu Sha smiled without speaking. Xu Ke understood immediately: "This was all Zhuti Silver?"
 
-"Correct, all refined by Old Daoist Wu." Liu Sha said, "This is a secret art he learned in the Miao frontier. Furthermore..."
+"Correct—all refined by Old Daoist Wu." Liu Sha said. "It is a secret art he learned in the Miao frontier. Furthermore..."
 
-"Furthermore, you also have the stamp of Sanjiang Mao."
+"Furthermore, you also possessed the stamp of Sanjiang Mao."
 
-"This thing was originally an old item from years ago, but with it, this Zhuti Silver became even easier to use."
+"That item was originally an old piece from years past, but with it in hand, the Zhuti Silver became all the more effective."
 
 (End of this chapter)

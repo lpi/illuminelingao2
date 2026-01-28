@@ -1,97 +1,99 @@
 # Chapter 2794: Affairs Between Men and Women
 
-Tan Shuangxi followed the voice to find the person in the crowd. He saw Yang Zhaodi from the same village. She and her mother Zhang Lai'er were immigrants from Shandong several years ago. He had met them a few times when returning to the village during holidays. Actually their relationship could only count as acquaintances, but seeing a familiar person at this moment, Tan Shuangxi still felt very happy.
+Tan Shuangxi followed the voice through the crowd until he spotted the speaker—Yang Zhaodi from his own village. She and her mother, Zhang Lai'er, had immigrated from Shandong several years ago. He had encountered them a few times when returning to the village during holidays. Strictly speaking, they were merely acquaintances, but seeing a familiar face at this moment still filled him with genuine pleasure.
 
-Yang Zhaodi had looks completely different from local girls. Though only thirteen or fourteen years old, she was almost catching up to Tan Shuangxi's height. She wore a large straw hat, dressed in a faded Year One Type training uniform—such attire showed at a glance she was a farm worker. The face under the straw hat was not the black of local girls due to long-term sun exposure, but a good-looking honey color. Tan Shuangxi's heart couldn't help moving—less than two years, this little girl grew so watery (fresh and beautiful)!
+Yang Zhaodi looked completely different from the local girls. Though only thirteen or fourteen years old, she had nearly caught up to Tan Shuangxi's height. She wore a large straw hat and a faded Year One Type training uniform—attire that marked her at a glance as a farm worker. The face beneath the straw hat wasn't the deep brown of local girls from years of sun exposure, but rather a pleasing honey color. Tan Shuangxi's heart stirred involuntarily—in less than two years, this little girl had blossomed into quite a beauty!
 
-Yang Zhaodi didn't know Tan Shuangxi's thoughts, only the joy of seeing an acquaintance. She squeezed through the crowd to grab his sleeve, shaking excitedly, two big watery eyes scanning his face and body continuously.
+Yang Zhaodi remained oblivious to Tan Shuangxi's thoughts, feeling only the joy of encountering someone she knew. She squeezed through the crowd to grab his sleeve, shaking it excitedly as her large, luminous eyes scanned his face and figure.
 
-"It's really you! We even bet whether we could meet!"
+"It really is you! We even made bets on whether we'd run into you!"
 
-"Why did you come? No school?" Tan Shuangxi's gaze slipped back and forth on the girl several times. This girl developed really well! Especially...
+"What are you doing here? No school?" Tan Shuangxi's gaze slipped over the girl several times. She had developed remarkably well! Especially...
 
-Yang Zhaodi said excitedly: "I already graduated from higher primary school! Didn't pass the middle school exam, went to agricultural technology night school. Now at Nanbao Tropical Crops Farm. Today farm staff are all on holiday to welcome you." Yang Zhaodi said excitedly.
+"I already graduated from higher primary school!" Yang Zhaodi said excitedly. "Didn't pass the middle school exam, so I enrolled in agricultural technology night school. Now I'm at Nanbao Tropical Crops Farm. Today, all the farm staff got the day off to welcome you back."
 
-"Your father and mother? Also moved to Nanbao?" Tan Shuangxi was somewhat surprised, because Yang's parents were both workers under Manya Iron and Steel Complex; income was much higher than working on the farm.
+"What about your father and mother? Did they move to Nanbao too?" Tan Shuangxi was somewhat surprised, since both of Yang Zhaodi's parents worked under Manya Iron and Steel Complex. Their income was considerably higher than what one could earn on the farm.
 
-"They won't go!" Yang Zhaodi made a funny face, "They are going north soon. Heard going to Foshan—going to build a bigger steel plant!"
+"They'd never come here!" Yang Zhaodi made a comical face. "They're heading north soon. Heard they're going to Foshan—to build an even bigger steel plant!"
 
-"Really?" Tan Shuangxi was very surprised. Not surprised hearing they were going to Foshan, but the family was about to separate, and Yang Zhaodi was actually grinning heartlessly like a flower. Besides, a thirteen or fourteen-year-old girl working alone in a strange place, Yang family parents could really rest assured!
+"Really?" Tan Shuangxi was taken aback. He wasn't surprised to hear they were going to Foshan, but that the family was about to separate while Yang Zhaodi grinned so carelessly, like a flower in the sun. Besides, a thirteen or fourteen-year-old girl working alone in a strange place—how could her parents possibly feel at ease about that?
 
-"Your brother?" He remembered Yang Zhaodi had a brother.
+"And your brother?" He remembered Yang Zhaodi had a brother.
 
-"He originally was going to Danzhou. But later was persuaded by someone so didn't go..." Yang Zhaodi lowered her voice, looked around, whispered, "I only tell you because we are good. Never go to Danzhou side for recruitment. Don't go no matter how high the wages are. Many work injuries."
+"He was originally going to Danzhou. But later someone talked him out of it..." Yang Zhaodi lowered her voice and glanced around before whispering, "I'm only telling you this because we're close. Never go to Danzhou for recruitment work. No matter how high the wages are. There are lots of work injuries."
 
-"Really?!" Tan Shuangxi was startled, because not long ago the company received a soldier discharged due to injury. His letter said he went to Danzhou for recruitment.
+"Really?!" Tan Shuangxi was startled—not long ago, his company had received a soldier discharged due to injury. His letter had mentioned going to Danzhou for recruitment work.
 
-"More than the steel plant?"
+"More than at the steel plant?"
 
-"Hmm... Not allowed to say." Yang Zhaodi said looking around again, "Brother Shuangxi, you must not speak randomly outside."
+"Hmm... I'm not supposed to say." Yang Zhaodi glanced around again. "Brother Shuangxi, you absolutely must not go talking about this outside."
 
-"Know, know. We understand discipline! Just know among ourselves. Then where did your brother go?"
+"I know, I know. We understand discipline! This stays between us. So where did your brother end up going?"
 
-"He also prepares to go to Foshan. Chief said, Foshan side wants to launch many projects. Just don't know if safe or not..."
+"He's also preparing to go to Foshan. The chief said the Foshan side is launching all sorts of projects. I just don't know if it's safe there or not..."
 
-Tan Shuangxi immediately comforted her: "Foshan was peacefully recovered, didn't fight at all. Now still have National Army garrisoned. Very safe..." Suddenly he thought of something again, "Your house at Manya side?"
+Tan Shuangxi immediately offered reassurance: "Foshan was recovered peacefully—there wasn't any fighting at all. The National Army is still garrisoned there. It's very safe..." A thought suddenly struck him. "What about your house on the Manya side?"
 
-"Rented to new immigrants." Yang Zhaodi grinned, "They came from the mainland; we go to the mainland. Really interesting!"
+"We rented it to new immigrants." Yang Zhaodi grinned. "They came from the mainland, and we're going to the mainland. Quite amusing, isn't it?"
 
-Tan Shuangxi suddenly reacted. She definitely had some other important words to say. So stopped talking to look. Heart couldn't help pitter-pattering, nervous and a bit expectant.
+Tan Shuangxi suddenly realized she must have something else important to say. He stopped talking and waited, watching her. His heart began to race—nervous and a little expectant.
 
-Yang Zhaodi changed her previous articulateness. Opened mouth but said nothing. Looking at Yang Zhaodi's expression of wanting to speak but stopping, Tan Shuangxi's heart was almost flying out. Attacking the mountain top under Ming army artillery fire in Chaozhou, raiding Guilin late at night in Guangxi, none were so nervous.
+Yang Zhaodi abandoned her previous ease with words. She opened her mouth but said nothing. Watching her expression, caught between wanting to speak and holding back, Tan Shuangxi's heart nearly leapt from his chest. Charging a hilltop under Ming artillery fire in Chaozhou, raiding Guilin under cover of night in Guangxi—neither had made him this nervous.
 
-"Brother Shuangxi, I want to ask..." Yang Zhaodi became shy, voice smaller and smaller, "Little Brother Li of our village, also in your battalion that one, my Shandong fellow villager. I didn't see him? Did I miss him?"
+"Brother Shuangxi, I wanted to ask..." Yang Zhaodi grew shy, her voice dwindling smaller and smaller. "Little Brother Li from our village, the one also in your battalion—my fellow Shandong countryman. I didn't see him? Did I miss him somehow?"
 
-Tan Shuangxi was drenched by a bucket of cold water through the heart. Didn't recover for a while. Stuttering in mouth not knowing what to say. Seeing Tan Shuangxi's expression twisted and awkward, Yang Zhaodi's face twitched. Involuntarily covered mouth with hand. Panic flashed in eyes. Watching tears about to fall.
+It was as if a bucket of cold water had been poured straight through Tan Shuangxi's heart. For a long moment he couldn't recover, his mouth stammering uselessly without forming coherent words. Seeing his expression twist into something awkward and pained, Yang Zhaodi's face spasmed. Involuntarily, her hand flew to cover her mouth. Panic flickered in her eyes. Tears threatened to fall.
 
-Fortunately at this moment Tan Shuangxi had concealed his loss of composure, hurriedly said: "He, he is still alive. Just got poked here a bit..." Saying, gestured on his own abdomen.
+Fortunately, by then Tan Shuangxi had managed to conceal his loss of composure. He hastened to say: "He—he's still alive. Just got poked here a bit..." He gestured at his own abdomen.
 
-"...But person is fine. Did surgery. Now still recuperating in the hospital in Hong Kong. Heavy injury needs recuperation for a month or two no matter what. He can come back in some days." Finished saying, hurriedly gestured the direction of team movement, meaning he had to catch up with the team. Ran away hurriedly. While running, cursed secretly in heart: "Still pretty boys are good. Actually hurt like that still have women missing him. Why didn't that knife go a bit lower."
+"...But he's fine. Had surgery. He's still recuperating in the hospital in Hong Kong. Heavy injuries take at least a month or two to heal no matter what. He'll be back in a few days." Having finished, he quickly pointed toward the moving column, indicating he needed to catch up with his unit. Then he hurried away. As he ran, he cursed silently in his heart: *Pretty boys always have it good. Hurt that badly and still has women pining for him. Why couldn't that knife have gone a bit lower?*
 
-Bairen Grand Stadium exposed problems of rough early design and construction during the celebration ceremony of the Second Counter-Encirclement Campaign and subsequent various "Salt Field Cup" rugby matches and regional football leagues. Audience seats were too close to the inner field; vertical height difference insufficient; rear row audience vision very bad. And the bigger problem was the rostrum piled up with earth lacked majesty. Later maintenance was also particularly troublesome. Always danger of collapse after rainy season.
+---
 
-Borrowing this troops' triumphant return welcome ceremony, the Senate approved a budget to reconstruct the Grand Stadium. The stands were changed to a circle of two-story buildings, equivalent to building sloped stands on the roof of the first floor. The rostrum and extended double wings were one floor higher than other stands.
+The Bairen Grand Stadium had exposed problems with its rough early design and construction during the celebration ceremony for the Second Counter-Encirclement Campaign and the subsequent "Salt Field Cup" rugby matches and regional football leagues. The audience seats were too close to the inner field; the vertical height differential was insufficient; spectators in the rear rows had terribly obstructed views. The bigger problem was the rostrum, built up from packed earth, which lacked any sense of grandeur. Subsequent maintenance proved particularly troublesome as well—there was always danger of collapse after the rainy season.
 
-The center of the rostrum was raised by half a floor, arranging the speaker's position. Speaking here could overlook the whole field, enjoying cheers and worshipping gazes exclusively. On both sides of the speaker were sections of seats. Senators who didn't need to stick to posts sat upright, putting on the air of heads of state at the Olympic Opening Ceremony as much as possible. However, not every Senator liked to take the serious and earnest route. A batch of soy sauce (bystander) Senators just made token gestures while starting to gossip in low voices.
+Taking advantage of this triumphant troops' welcome ceremony, the Senate had approved a budget to reconstruct the Grand Stadium. The stands were converted into a ring of two-story buildings, effectively placing sloped seating atop the first-floor rooftops. The rostrum and its extended wings were raised one floor higher than the surrounding stands.
 
-The content of gossip was mainly "Peace Talks" and personnel arrangements after "Peace Talks." This was also the problem Senators cared about most.
+The center of the rostrum was elevated by an additional half floor, where the speaker's position was arranged. Speaking from there, one could survey the entire field while enjoying the cheers and adoring gazes of the crowd below. On both sides of the speaker were sections of seating. Senators who didn't need to remain at their posts sat upright, doing their best to affect the dignified air of heads of state at an Olympic Opening Ceremony. However, not every Senator preferred the serious and earnest approach. A number of bystander Senators merely made token gestures before launching into quiet gossip.
 
-Said wanted peace talks, but peace didn't truly descend. The General Staff was still compiling operational plans, including defensive and counter-attacking ones.
+The content of their gossip centered mainly on "Peace Talks" and the personnel arrangements that would follow. These were the matters Senators cared about most.
 
-Although peace talks hadn't even the first stroke of the character "eight" (were far from realization), rumors and slanders about peace talks were flying all over the sky. From the mode of reaching peace talks to what new situation peace talks might bring... various kinds, countless. Among them the most widely spread and most intensely discussed was "Marriage Alliance Theory."
+Despite all the talk of peace negotiations, true peace had not yet descended. The General Staff was still compiling operational plans, both defensive and offensive.
 
-Regarding the saying of "Marriage Alliance," actually origin was long. Earliest was You the Tiger saying in the Officer Club of Nanhai Coffee House: "Want peace talks, Daddy only has one condition! Must marry a princess."
+Although the peace talks hadn't even gotten off the ground, rumors and speculation about them were flying everywhere. From the potential format of negotiations to what new circumstances they might bring—every variety imaginable, too numerous to count. Among them, the most widely spread and intensely discussed was the "Marriage Alliance Theory."
 
-This originally counted as one of You the Tiger's life ideals. Unexpectedly a joking remark spread more and more miraculously, with more and more details. Developed to now, besides "Once peace talks succeed, Chongzhen will choose a daughter of the imperial clan to marry to President Wen / Secretary of State Ma / Engineer Wang in the name of princess," unexpectedly legends of "Chongzhen desires to take Kun women as Imperial Concubines to show sincerity of peace talks" also appeared.
+The notion of a "Marriage Alliance" actually had a long history. It had originated when You the Tiger declared in the Officer Club at Nanhai Coffee House: "Want peace talks? Daddy has only one condition! Must marry a princess."
 
-Naturally, this couldn't count as completely groundless.
+This had originally been merely one of You the Tiger's life ambitions. Unexpectedly, a jest spread further and further, accumulating ever more elaborate details. By now, in addition to claims that "Once peace talks succeed, Chongzhen will select a daughter of the imperial clan to marry President Wen / Secretary of State Ma / Engineer Wang under the title of princess," legends had also emerged that "Chongzhen desires to take Kun women as Imperial Concubines to demonstrate the sincerity of peace negotiations."
 
-Because the *Monthly Intelligence Summary* sent from the Capital Station mentioned: The Ming Court had decided to increase Yue Xiang tax, determining the policy of "Suppression" in the general direction. Then a Feudal Prince submitted a memorial: True Kun lived overseas for long, returned for many years but didn't submit memorial to attach internally. Although arrogant and rebellious, after all are Huaxia descendants. Request the Emperor to recruit True Kun surrenderers while suppressing Kun. Kun Thieves are good at instrument manufacturing, accumulating wealth sources, gathering with methods. Exactly talents urgently lacked by the Celestial Dynasty. Chooses places to settle. Then invite the Emperor to take one or two Kun women as harem concubines to settle the hearts of people coming from overseas.
+Naturally, this wasn't entirely without foundation.
 
-This kind of memorial nearing bullshit, from Emperor to ministers, no one in the court took it seriously. The Capital Station just treated it as material, placing it in the *Compilation of Memorials of This Month* in the report appendix. Unexpectedly arriving at Lingao it became a hot spot instead. Spread vividly, saying Senate heads already reached preliminary agreement, preparing to use the method of "Marriage Alliance" to strive for "Peace Talks." Even the girls to go for marriage alliance were already circled for several. Among them ranking first was Zhang Yunmi. Other candidates included her best friend Lin Ziqi, Qian Duoduo... Even Zhong Xiaoying, who strictly speaking didn't count as a Little Senator, also became a member of the list.
+The *Monthly Intelligence Summary* from the Capital Station had mentioned that the Ming Court had decided to increase the Yue Xiang tax, settling on a general policy of "Suppression." Subsequently, a Feudal Prince had submitted a memorial arguing: The True Kun have lived overseas for generations and returned many years ago yet never submitted a memorial pledging allegiance. Though arrogant and rebellious, they are nonetheless descendants of Huaxia. He requested that the Emperor recruit surrendering Kun even while suppressing them. The Kun Thieves excel at manufacturing instruments, accumulating wealth, and organizing by clever methods—exactly the talents the Celestial Dynasty urgently needs. Suitable places should be selected to settle them. Furthermore, he invited the Emperor to take one or two Kun women into the imperial harem to reassure those coming from overseas.
 
-For a time, Senator families with daughters above thirteen or fourteen were in panic, rushing to find the General Office to "demand explanation." Xiao Zishan was muddled for a while, thinking where did this brain hole come from. Could only pat chest to guarantee "Absolutely no such thing." Finally even specially let Wang Luobin write an article, published related article on discussion of peace talks in *Weekly News*, specifically stating attitude on this issue, expressing absolutely no such thing. Only then did this matter gradually subside.
+This memorial, bordering on absurdity, was taken seriously by no one at court, from the Emperor down to his ministers. The Capital Station had simply treated it as raw material, placing it in the *Compilation of Memorials of This Month* in the report's appendix. Unexpectedly, upon reaching Lingao, it became a sensation instead. Vivid rumors spread claiming that Senate leaders had already reached a preliminary agreement and were preparing to use the method of "Marriage Alliance" to advance "Peace Talks." They even said that the girls to be sent had already been selected. Ranking first among the candidates was Zhang Yunmi. Other names on the list included her close friend Lin Ziqi, Qian Duoduo... Even Zhong Xiaoying, who strictly speaking didn't count as a Little Senator, had somehow become a member of this roster.
 
-At this moment, on the Senator seats beside the rostrum, someone was indignant for Little Senator Zhang who once became a hot figure.
+For a time, Senator families with daughters above thirteen or fourteen were thrown into panic, rushing to the General Office to "demand an explanation." Xiao Zishan was baffled for quite a while, wondering where on earth this wild speculation had come from. He could only pat his chest and guarantee: "Absolutely no such thing." In the end, he even had Wang Luobin write an article, publishing a piece in *Weekly News* discussing the peace talks and specifically stating their position on this issue—expressing that there was absolutely no such thing. Only then did the matter gradually subside.
 
-Zhang Berlin asked tentatively: "Chief Secretary Dong, heard yet?"
+At this moment, in the Senator seating beside the rostrum, someone was expressing indignation on behalf of the Little Senator Zhang who had briefly become a figure of intense interest.
 
-"Heard what?" Dongmen guessed a few directions in heart for a moment, "That marriage alliance stuff again? It's just bullshit..."
+Zhang Berlin asked tentatively: "Chief Secretary Dong, have you heard?"
 
-"I also know it's bullshit. It's about her personal problem."
+"Heard what?" Dongmen considered several possibilities in his mind. "That marriage alliance nonsense again? It's all rubbish..."
 
-"Understood." Dongmen understood what he wanted to say. Thinking you really never forget, thief heart undying.
+"I know it's rubbish. I mean her personal situation."
 
-"I heard rumors saying Little Zhang... and Mayor Liu have very close relationship. That kind of close." Zhang Berlin's expression was somewhat twisted.
+"Understood." Dongmen grasped what he was trying to say. *You really never give up*, he thought. *That thieving heart of yours just won't die.*
 
-Dongmen understood which kind the "close" he said was. Learned back a bit: "Where did you hear this from?"
+"I've heard rumors saying Little Zhang... and Mayor Liu have a very close relationship. That kind of close." Zhang Berlin's expression was somewhat strained.
 
-"A few days ago I went to the city to handle affairs. In the Great World area. Heard from the chat of two who should be local cadres."
+Dongmen understood exactly what kind of "close" he meant. He leaned back slightly: "Where did you hear this?"
 
-"So you think this matter is true?"
+"A few days ago, I went into the city to handle some business. In the Great World area. Overheard it from a conversation between two men who seemed to be local cadres."
 
-Zhang Berlin shook his head, "I'm not sure. After all this is too, too..."
+"So you think the matter is true?"
 
-Spoke hesitantly, very lacking confidence.
+Zhang Berlin shook his head. "I'm not sure. After all, this is too... too..."
+
+He spoke haltingly, with very little confidence.
 
 (End of Chapter)

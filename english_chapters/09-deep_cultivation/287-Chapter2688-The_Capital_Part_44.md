@@ -1,131 +1,131 @@
 # Chapter 2688: The Capital (Part 44)
 
-The expression on Mr. Zhou's face became increasingly disappointed; it could be seen that his mood also became very bad.
+Mr. Zhou's expression grew increasingly crestfallen, his mood visibly souring with each passing moment.
 
-After a long while, he said: "Master Wang, I want to go look at all the places the Shorn-hair Thieves passed through. Can guides and guards be arranged?"
+After a lengthy silence, he spoke: "Master Wang, I wish to inspect all the locations the Shorn-hair Thieves passed through. Could guides and guards be arranged?"
 
-"This is easy. Wait for me to arrange it." Wang Yehao saw his expression changing unpredictably, from surprise to disbelief, then to fear, loathing, disappointment... It seemed Liu Sha's words had taken effect.
+"Easily done. Allow me to make the arrangements." Wang Yehao observed the man's mercurial expressions—shifting from surprise to disbelief, then to fear, revulsion, and finally disappointment. Liu Sha's words had clearly struck their mark.
 
-Originally, these matters were not fabricated out of thin air either. Wang Yehao had long seen that although Hearthstone Immortal seemed cynical, spoke without knowing weight or propriety, and was a bit greedy for money and lecherous, essentially he was a "kind-hearted generation."
+These accounts, after all, were not fabricated from thin air. Wang Yehao had long since recognized that beneath Hearthstone Immortal's cynical exterior—his careless speech, his slight avarice and lechery—lay the heart of a genuinely kind soul.
 
-Just looking at his attitude towards bondmaids would tell; ordinary people, regardless of high or low status, hadn't been this good even to their formally wedded wives, let alone bondmaids.
+One need only observe his treatment of bondmaids to understand. Ordinary men, regardless of station, rarely showed such consideration even to their formally wedded wives, let alone servants.
 
-In one sentence, Hearthstone Immortal was a soft-hearted and kind "Useless Good Person."
+In essence, Hearthstone Immortal was a soft-hearted, kind "Useless Good Person."
 
-To make him continue to follow himself dead set on the ground [devotedly], without defecting to his Australian accomplices, only sowing discord would work.
+To ensure his unwavering loyalty and prevent him from defecting to his Australian accomplices, only sowing discord would suffice.
 
-The Shorn-hair Thieves' arson and looting outside Guangzhou City this time actually helped him a hand invisibly.
+The Shorn-hair Thieves' rampage of arson and plunder outside Guangzhou's walls had inadvertently played into Wang Yehao's hands.
 
-"The Shorn-hair Thieves have now established a title and proclaimed an era." Wang Yehao said, "This matter is troublesome!"
+"The Shorn-hair Thieves have now proclaimed a dynastic title and established their own era," Wang Yehao remarked. "This complicates matters considerably."
 
-Sea bandits and roving bandits were not rare; the Court could suppress or appease them. But if they established a title and proclaimed an era, it meant they wanted to stand as equals against the Court. Even though the roving bandits in the Northwest had monstrous power, they only called themselves certain Kings or Generals, still using the Great Ming's era name, and had no dynastic title.
+Sea bandits and roving brigands were common enough; the Court could suppress or appease them as circumstances warranted. But proclaiming a dynastic title and establishing an era signified ambitions to stand as equals against the Court itself. Even the northwestern rebels, for all their fearsome power, merely styled themselves as various Kings or Generals while still employing the Great Ming's era name, claiming no dynasty of their own.
 
-Mr. Zhou naturally understood this principle too. Immediately he asked: "They founded a state? Called what?"
+Mr. Zhou grasped this principle immediately. "They've founded a state? What do they call it?"
 
-"The Shorn-hair Thieves call themselves descendants of the Song, flying the banner of 'Australian Song' [Ao Song]. However, sometimes they also call themselves the 'Great Song Australian Temporary Court.' Externally they call themselves the Fubo Army."
+"The Shorn-hair Thieves claim descent from the Song, flying the banner of 'Australian Song.' At times they also style themselves the 'Great Song Australian Provisional Court.' Externally, they call their forces the Fubo Army."
 
-Mr. Zhou, whose face was originally dark, suddenly revealed an expression of being unable to suppress laughter. Seemingly finding it very laughable.
+Mr. Zhou, whose countenance had been dark with displeasure, suddenly struggled to suppress a laugh, as though he found something tremendously amusing.
 
-"What about the Era Name?"
+"And the Era Name?"
 
-"They say it's 'Common Era' [Gong Yuan]..."
+"They call it 'Common Era'..."
 
-"Common Era?!" Hearthstone Daoist slapped the table and stood up. "Worshipping foreign things!"
+"Common Era?!" Hearthstone Daoist slammed his palm against the table and rose to his feet. "Slavish worship of foreign customs!"
 
-"What?" Several people were stunned.
+"What?" The others stared in bewilderment.
 
-Hearthstone Immortal then explained that the so-called Common Era was the calendar used by Red Hairs and Franks, circulating in various Western countries.
+Hearthstone Immortal then explained that this so-called Common Era was the calendar employed by the Red Hairs and Franks, prevalent throughout the Western nations.
 
-"So that's how it is." Wang Yehao became more confused. What relationship did these Australians have with Westerners? If handled poorly, they might be colluding with foreign oceans; one could not be imprudent!
+"I see." Wang Yehao grew more perplexed than before. What connection did these Australians have with Westerners? If mishandled, they might well be colluding with foreign powers—a matter demanding the utmost caution.
 
-"This is strange indeed." Jin Wenchi said in a low voice: "Raising troops to carve out territory, falsely borrowing the name of a former dynasty's remnants is common. It's just unheard of to add a prefix before the dynastic title; isn't this clearly stating one is not the legitimate line? 'Great Song Australian Temporary Court'—this can barely be counted as a title."
+"Strange indeed," Jin Wenchi murmured. "When raising troops to carve out territory, falsely invoking a former dynasty's legacy is commonplace. But prefixing the dynastic title is unheard of—does this not openly declare illegitimacy? As for 'Great Song Australian Provisional Court'—that barely qualifies as a proper title at all."
 
-"In the lowly one's opinion, there must be a profound mystery within." Liu Sha's divination instinct began to display. "The National Dynasty [Ming] stands on Fire Virtue, and the Former Song was also Fire Virtue. Attacking Fire with Fire, how can things be accomplished? Therefore, the Shorn-hair Thieves added an 'Ao' [Bay/Inlet - Water radical] character, desiring to turn to Water Virtue. Hearing that Shorn-hair Thieves esteem black and blue in attire, presumably there is also this consideration."
+"In this humble one's view, there must be a deeper mystery here." Liu Sha's divinatory instincts stirred to life. "Our National Dynasty stands on Fire Virtue, and the Former Song likewise claimed Fire Virtue. To attack Fire with Fire—how could such an endeavor succeed? Therefore, the Shorn-hair Thieves appended the character 'Ao'—containing the water radical—seeking to invoke Water Virtue instead. I hear they favor black and blue in their attire; presumably this consideration plays a part as well."
 
-"Yes, nowadays their external proclamations mostly call themselves 'Fubo Army'; besides citing Ma Yuan's old allusion, it is probably also taking a Water Virtue."
+"Indeed. Their external proclamations predominantly use 'Fubo Army.' Beyond invoking Ma Yuan's ancient precedent, this too likely serves to claim Water Virtue."
 
-Wang Yehao didn't judge, asking: "What does Mr. Zhou think?"
+Wang Yehao offered no judgment of his own, instead asking: "What is Mr. Zhou's opinion?"
 
-Mr. Zhou had a face full of blankness; even Zhou Lezhi could see the Teacher knew nothing about this. But in order not to reveal timidity, he still nodded pretending to be deep:
+Mr. Zhou's face was blank with incomprehension; even Zhou Lezhi could tell his teacher knew nothing of such matters. Yet unwilling to betray his ignorance, he nodded with affected profundity:
 
-"En, this, Master Liu speaks very reasonably. That... Was Former Song also Fire Virtue? I thought it was Wood Virtue."
+"Mm, yes—Master Liu speaks with great insight. That... Was the Former Song truly Fire Virtue? I had thought it Wood Virtue."
 
-"Has the Teacher not heard the phrase 'The Inflamed [Fire] Song rose, receiving Zhou's abdication'?" Liu Sha had a face full of astonishment.
+"Has the Teacher never heard the phrase, 'The Inflamed Song rose, receiving Zhou's abdication'?" Liu Sha's face showed undisguised astonishment.
 
-Mr. Zhou really couldn't remember the source, but seeing everyone's expression seeming to be that only he didn't know, he was embarrassed to press further, laughing embarrassedly.
+Mr. Zhou genuinely could not recall the source, but seeing everyone's expressions suggesting he alone was ignorant, he dared not press further, offering only an embarrassed laugh.
 
-"These Shorn-hair Thieves establishing a title and changing the era name already shows a heart of insubordination." Wang Yehao sighed with emotion. "It's just that Guangdong suffered this calamity, living souls blackened [suffering], mountains and rivers broken; for a moment and a while, there is no power to suppress again!"
+"By proclaiming a dynastic title and establishing their own era, these Shorn-hair Thieves have revealed their treasonous hearts." Wang Yehao sighed heavily. "Yet Guangdong has suffered such devastation—countless lives ruined, mountains and rivers shattered. For the present, we lack the strength to suppress them again."
 
-Jin Wenchi understood the Master's mind best, saying: "Nowadays we can only endure without releasing, waiting for the Shorn-hair Thieves to confuse themselves [fall into chaos]. It's just regarding the Shorn-hair Thieves' inside information, we don't know much..."
+Jin Wenchi, who understood his master's mind best, added: "For now, we can only bide our time, waiting for the Shorn-hair Thieves to fall into internal disorder. The difficulty lies in our scant knowledge of their inner workings..."
 
-Liu Sha laughed: "What is difficult about this? The lowly one has a ready-made person here, originally a Lingao local, who fled back from Regional Commander He's campaign to Lingao. He knows the Shorn-hair Thieves' situation clearly."
+Liu Sha smiled. "What challenge is there in that? This humble one knows just the person—a native of Lingao who fled back after Regional Commander He's campaign. He knows the Shorn-hair Thieves' circumstances intimately."
 
-"There is still such a person?!" Wang Yehao was somewhat surprised. "Where is the person?"
+"Such a person exists?!" Wang Yehao was genuinely surprised. "Where is he now?"
 
-"He ran back daring not to show his face; nowadays he is muddling along in a *Doukou* [Beggar's Den]. The lowly one sent a few people to stare at him. If Master wants to ask, just catch him here anytime."
+"He returned but dares not show his face; currently he scrapes by in a *Doukou*. This humble one has set men to watch him. If Master wishes to make inquiries, he can be brought here at any time."
 
-"You go get him and settle him down; don't frighten him." Wang Yehao instructed. What he needed most now was someone who understood the Thieves' Situation.
+"Fetch him and see that he's settled comfortably—don't frighten the man." Wang Yehao instructed. What he needed most at present was someone who truly understood the enemy's situation.
 
-After Gou Chengxuan escaped from Liu Sha's palm, he hardened his heart, found a *Doukou*, paid respect to the *Dagu* [Boss], and counted as joining the local Beggar's Gang.
+After Gou Chengxuan slipped from Liu Sha's grasp, he steeled himself and sought out a *Doukou*, paying respects to the *Dagu* and thereby joining the local Beggar's Gang.
 
-With the protection of the Guandi Temple's forces, his status as a runaway was no longer a hindrance; the government wouldn't come to cause trouble. Because he was of scholar origin and knew writing and ink, he was kept by the *Dagu* in the *Doukou* to do some clerical matters; days passed quite comfortably. Gradually he wasn't so guarded anymore.
+Under the protection of the Guandi Temple's influence, his status as a fugitive no longer posed an obstacle; the authorities would not trouble him. Being of scholar origin and literate, the *Dagu* kept him at the *Doukou* to handle clerical matters. His days passed in relative comfort, and gradually his vigilance relaxed.
 
-Unexpectedly, this day on the street he was bundled into a sack by someone, stuffed into a sedan chair in darkness, and carried for unknown distance. He feared greatly in his heart, deeply afraid it was Shorn-hair Thieves' people coming for revenge.
+Thus it came as a shock when, one day on the street, he was bundled into a sack and thrust into a sedan chair in pitch darkness, carried who knew how far. Terror gripped him—he feared the Shorn-hair Thieves had sent men for revenge.
 
-Waiting until the sack was untied, he came out to look and found himself already in a hall. Standing facing him was that fortune-telling Daoist!
+When the sack was finally untied and he emerged blinking, he found himself in a grand hall. Standing before him was that fortune-telling Daoist.
 
-Gou Chengxuan panicked. This Daoist grasped him without letting go initially, and now specially tied him back... What heart did he harbor?
+Gou Chengxuan's heart seized with panic. This Daoist had once held him and refused to let go, and now had specifically arranged his abduction... What designs did the man harbor?
 
-"Don't know Sir's honorable surname and great name?"
+"Might I inquire as to Sir's honorable surname and given name?"
 
-Another man's voice came leisurely. Gou Chengxuan then discovered there were still several people sitting in the hall.
+Another man's voice drifted over, unhurried and measured. Only then did Gou Chengxuan notice several other figures seated throughout the hall.
 
-Looking at their appearance, there were youths and middle-aged men, all dressed as gentry or scholars; couldn't make out the background. But the person speaking was older in age, bearing and manner different from ordinary people; obviously was an official, and a big official at that.
+Judging by their appearance—some young, some middle-aged, all dressed in the manner of gentry or scholars—he could not discern their backgrounds. But the speaker was older, his bearing and manner distinctly elevated; clearly an official, and a high-ranking one at that.
 
-Gou Chengxuan's brain turned fast, knowing the comer was not an ordinary robber—he had nothing now, and wasn't some handsome youth; as long as not Shorn-hair Thieves, anyone was easy to talk to. Immediately he settled his spirit, cupping his hands: "Student Gou Chengxuan. Don't know Sir..."
+Gou Chengxuan's mind worked quickly. These were no common robbers—he had nothing left to steal, and was hardly a handsome youth worth abducting. As long as they were not Shorn-hair Thieves, anyone could be reasoned with. Composing himself, he cupped his hands: "This student is Gou Chengxuan. Might I ask Sir's...?"
 
-"Since you call yourself Student, presumably you are also a scholar. Why mix in a *Doukou*, keeping company with beggars?"
+"Since you style yourself 'student,' you must be a scholar. Why then do you consort with beggars in a *Doukou*?"
 
-This question counted as touching Gou Chengxuan's sore spot; he couldn't help sighing long: "Not hiding from Sir, Student was originally also a Licentiate who entered school, with slightly meager property at home. Alas, the family suffered a calamity, thus falling to this."
+The question struck at Gou Chengxuan's deepest wound. He could not help but heave a long sigh: "I shall not conceal the truth from Sir. This student was once a Licentiate who had passed the examinations, with modest property to his family's name. Alas, calamity befell us, and I was reduced to this."
 
-"Oh, since so, you speak for us to hear."
+"Oh? Since that is so, tell us your story."
 
-Gou Chengxuan increasingly felt the old man before him was unfathomable. He had already determined the old man must be a big official, and didn't look like a Shorn-hair Thief. Immediately, he told the story from beginning to end: how Shorn-hair Thieves landed in Lingao, Gou Family Village was attacked, he and his father became fish that slipped the net escaping to Guangzhou, later how they split up to act, how he defected to Regional Commander He's command to scheme for the campaign against Thieves, and then how defeat happened in Lingao and he fled back.
+Gou Chengxuan grew increasingly certain that this old man before him was no ordinary figure. He had already concluded the man must be a high official, and bore no resemblance to a Shorn-hair Thief. Thus he recounted everything from beginning to end: how the Shorn-hair Thieves had landed at Lingao; how Gou Family Village was attacked; how he and his father escaped as the only survivors to Guangzhou; how they later split up to pursue their separate efforts; how he had attached himself to Regional Commander He's command to scheme against the Thieves; and finally, how he fled back after the defeat at Lingao.
 
-"...You say, Gou Family Village, the whole village was slaughtered?" The old man hadn't spoken yet when a young advisor-looking man next to him interrupted in surprise and asked.
+"...You say Gou Family Village—the entire village was massacred?" Before the old man could respond, a young advisor-like figure beside him interrupted with an expression of shocked concern.
 
-Gou Chengxuan looked carefully; he didn't know this person, not knowing why he cared so much about Gou Family Village.
+Gou Chengxuan studied him carefully. He did not recognize this person and could not fathom why he showed such particular interest in Gou Family Village.
 
-"Men and women, old and young, not one left. Student's uncle, several aunts, were either killed or committed suicide. The clan's old and young were all slaughtered; even maids and servants were not spared. Pity my Gou Family Village, four to five hundred mouths up and down, were killed cleanly; only our father and son, master and servant, four people escaped..."
+"Men and women, old and young—not one was spared. This student's uncle, several aunts—all were either killed or took their own lives. The clan's elders and children alike were slaughtered; even the maids and servants were shown no mercy. Pity my Gou Family Village—four to five hundred souls, every last one cut down. Only our father and son, along with two servants, escaped..."
 
-Thinking of himself originally being the Grand Master Gou who called wind and summoned rain, bullying men and dominating women in Lingao County, now reduced to a beggar in a *Doukou*, the flight, contempt, insults, injuries during this period... all kinds of bitterness welled up in his heart, involuntarily crying loudly.
+Memories flooded back: once he had been Grand Master Gou, the man who commanded wind and rain, who bullied men and dominated women throughout Lingao County. Now he was reduced to a beggar in a *Doukou*. The flight, the contempt, the insults, the injuries he had suffered since—all the accumulated bitterness surged within him, and he burst into loud weeping.
 
-The advisor who asked questions had a face full of compassion, sitting down blindly as if lost.
+The advisor who had questioned him wore a face full of compassion, sinking into his seat as though struck senseless.
 
-The old man, however, was calm and composed, saying: "Since your father also escaped, and there are two followers, where are they all now?"
+The old man, however, remained calm and composed: "Since your father also escaped, along with two servants, where are they all now?"
 
-"My father took one servant, originally all in Danzhou, contacting righteous men, preparing to respond to the Heavenly Army. The other one originally followed me to Lingao; currently whereabouts unknown..."
+"My father took one servant with him. They were last in Danzhou, making contact with righteous men and preparing to support the Heavenly Army when it arrives. The other servant originally accompanied me to Lingao; his current whereabouts are unknown..."
 
-The old man obviously didn't know where Danzhou was. Another middle-aged advisor by his side whispered a few sentences, and he nodded. Gou Chengxuan felt the other party had meaning of appreciation; the heart fire that was originally extremely dark burned up again like dead ashes reigniting.
+The old man clearly did not know where Danzhou was. Another middle-aged advisor at his side whispered a few words of explanation, and he nodded. Gou Chengxuan sensed approval in the other party's demeanor; the fire in his heart, long guttered to cold ashes, flickered to life once more.
 
-"Speaking so, you have hatred with the Shorn-hair Thieves."
+"So you bear a vendetta against the Shorn-hair Thieves."
 
-"Irreconcilable [cannot live under same sky]." At this moment Gou Chengxuan was completely sure the other party was the Shorn-hair Thieves' enemy; speaking became increasingly resolute.
+"An irreconcilable one—we cannot live under the same sky." By now Gou Chengxuan was entirely convinced the other party was an enemy of the Shorn-hair Thieves; his words grew increasingly resolute.
 
-"Now the Court's campaign against Shorn-hair Thieves failed; Shorn-hair Thieves' power is monstrous. How should it be handled?"
+"The Court's campaign against the Shorn-hair Thieves has failed; their power grows monstrous. How should this be handled?"
 
-Gou Chengxuan was stunned: these words faintly had the meaning of government affairs inquiry; this old man was not simple! He thought for a moment and said: "Endure and wait for opportunity, to watch for Shorn-hair Thieves' internal chaos!"
+Gou Chengxuan paused, struck by the question. These words carried the unmistakable tone of a government policy inquiry—this old man was no ordinary figure. After a moment's thought, he replied: "Endure and await opportunity, watching for internal chaos among the Shorn-hair Thieves."
 
-Wang Yehao was secretly surprised: "Endure and wait for opportunity" was not rare; with the current situation in Guangdong, one had to endure even if not wanting to. The so-called waiting for opportunity was just a pretext for playing the grandson. But the latter sentence showed real substance.
+Wang Yehao was secretly impressed. "Endure and await opportunity" was common enough counsel; given Guangdong's current state, endurance was unavoidable regardless of preference. So-called "waiting for opportunity" typically served as mere rhetoric for playing the submissive grandson. But the latter clause revealed genuine substance.
 
-"Why does Sir feel the Shorn-hair Thieves will have internal chaos?"
+"Why does Sir believe the Shorn-hair Thieves will descend into internal chaos?"
 
-"Master doesn't know; these Shorn-hair Thieves are different from ordinary bandits..." Gou Chengxuan immediately explained that Shorn-hair Thieves were all Senators; although Wen and Ma were called bandit chiefs, in terms of status they were just members among Senators. "...Among Shorn-hair Thieves, long have there been people dissatisfied with Wen and Ma stealing authority. At the beginning of landing, originally Shorn-hair Thieves had a crowd of a thousand; later due to unfair distribution of women, they killed each other; only then did it fall to only remain a few hundred Senators."
+"Master may not be aware—these Shorn-hair Thieves differ from ordinary bandits..." Gou Chengxuan proceeded to explain that the Shorn-hair Thieves were all Senators; though Wen and Ma were styled as bandit chiefs, in terms of actual rank they were merely members among Senators. "...Among the Shorn-hair Thieves, there have long been those dissatisfied with Wen and Ma's monopoly on power. When they first landed, they numbered a thousand strong. Later, due to disputes over the distribution of women, they fell to killing one another—which is how their numbers dwindled to a mere few hundred Senators."
 
-"So that's how it is." Wang Yehao twirled his beard and pondered; it seemed this "watch for Shorn-hair Thieves' internal chaos" was not an empty phrase. At this moment, he unconsciously valued Gou Chengxuan a few points more; after all, up to now, no one could provide such detailed and accurate news yet. In comparison, this Hearthstone Immortal instead knew nothing about this... Thinking of this, he involuntarily glanced at Mr. Zhou.
+"I see." Wang Yehao stroked his beard thoughtfully. It seemed this notion of "watching for internal chaos" was not empty rhetoric after all. At this realization, he found himself valuing Gou Chengxuan somewhat more highly; until now, no one had been able to provide such detailed and accurate intelligence. By comparison, this Hearthstone Immortal seemed to know nothing of such matters... At this thought, he could not help but glance toward Mr. Zhou.
 
-Hearthstone Immortal's expression at this moment was like having eaten a fly. One only saw him ask slowly: "Did they really fight over women?"
+Hearthstone Immortal's expression at that moment resembled that of a man who had swallowed a fly. One heard him ask, slowly: "Did they truly fight over women?"
 
-Gou Chengxuan said with absolute certainty: "Can this be fake? Everyone in Lingao knows!" Although not knowing why this advisor cared so much about this matter, seeing it was about Shorn-hair Thieves' ugly scandals, Gou Chengxuan instantly got spirit, adding oil and vinegar again, finally saying: "In order to protect themselves, Wen and Ma sent many people everywhere to search, buy, and loot women for their lewd pleasure. Invading the Pearl River this time, they looted many women again..."
+Gou Chengxuan spoke with absolute certainty: "Could such a thing be fabricated? Everyone in Lingao knows the truth!" Though unsure why this advisor cared so particularly about such matters, seeing an opportunity to expose the Shorn-hair Thieves' ugly scandals, Gou Chengxuan's spirits lifted. He embellished liberally, finally concluding: "To secure their positions, Wen and Ma dispatched men far and wide to search for, purchase, and abduct women for their depraved pleasures. During this invasion of the Pearl River, they seized many women once again..."
 
 **(End of Chapter)**

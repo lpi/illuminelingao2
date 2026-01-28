@@ -1,137 +1,137 @@
 # Chapter 2684: The Capital (Part 40)
 
-However, the Shorn-hair Thieves invading, occupying Lingao, defeating the government army, besieging Guangzhou... he knew nothing of these major events. Was he still an Australian?!
+Yet of the Shorn-hair Thieves' invasion—their occupation of Lingao, their defeat of the government army, their siege of Guangzhou—he knew nothing. How could he call himself an Australian if he was ignorant of such momentous events?!
 
-This was truly strange...
+Truly strange indeed...
 
-Master Wang's thoughts hadn't finished turning when he heard him say again:
+Master Wang's thoughts had barely formed when he heard the man speak again:
 
-"Oh, that Viceroy Wang won't live for a few months, and then it should be the Lord taking over." Mr. Zhou took out a cipher book to check. "Right, correct, taking office next year."
+"Ah, that Viceroy Wang won't survive more than a few months, and then the Lord should take over." Mr. Zhou produced a cipher book to verify his claim. "Yes, correct—assuming office next year."
 
-"Oh, previously the Teacher seemed to mention it, but this matter has major implications; this Official needs to plan at length." Wang Yehao couldn't digest it for a moment. He had to choose to change the topic. "Yourong has been here these days; don't know if she suits the Teacher's heart?"
+"The Teacher did mention something of this before, but such a matter carries enormous implications. I shall need considerable time to plan." Wang Yehao struggled to digest the information and chose instead to change the subject. "Yourong has been attending you these past days. I trust she meets with the Teacher's approval?"
 
-"Not bad, not bad." Mr. Zhou nodded repeatedly, revealing a lecherous smile.
+"Quite satisfactory, quite satisfactory." Mr. Zhou nodded repeatedly, a lecherous smile spreading across his face.
 
-*Top-grade thin horses you don't like, but a kitchen maid you enjoy like candy!* Master Wang felt disdain secretly. But this was also good; at least it saved him money.
+*The finest thin horses fail to please you, yet a kitchen maid you savor like candy!* Master Wang felt secret disdain. Still, this worked in his favor—at least it saved him money.
 
-"Don't know if there is an omen of dreaming of bears?"
+"Might I inquire whether there have been omens of dreaming of bears?"
 
 "Dreaming of bears?"
 
-Zhou Lezhi hurriedly whispered: "Master Wang is asking if there is a sign of pregnancy."
+Zhou Lezhi hastened to whisper: "Master Wang is asking whether there are signs of pregnancy."
 
-"Oh, oh," Mr. Zhou shook his head with a face full of loneliness and helplessness. "No."
+"Ah, ah." Mr. Zhou shook his head, his face clouded with loneliness and helplessness. "No."
 
-"Why not invite a doctor to look..."
+"Perhaps you might invite a physician to examine..."
 
-Mr. Zhou's complexion immediately became very bad; obviously, he was very dissatisfied with someone questioning his ability in this aspect.
+Mr. Zhou's expression immediately soured; clearly, he took great offense at anyone questioning his abilities in that particular area.
 
-Master Wang was an old fox in officialdom; what he was best at was observing words and expressions. Seeing this, he already understood, secretly thinking that although this Hearthstone Immortal was lecherous, heirs were difficult to come by. It seemed he still had to use the old method of Zhou Juli to restrain him.
+Master Wang was an old fox of officialdom, and reading faces was his specialty. Observing this reaction, he understood at once. *So this Hearthstone Immortal, though lecherous, has difficulty producing heirs.* It seemed he would need to continue relying on Zhou Juli's old methods to keep the man in check.
 
-"This Official just obtained a supreme Korean ginseng last month; I'll let Wang Liang send it over tomorrow. Perhaps it can offer some benefit."
+"Just last month, I obtained a supreme Korean ginseng. I shall have Wang Liang deliver it tomorrow. Perhaps it may prove beneficial."
 
-"Many thanks, many thanks. Hope it will have effect."
+"Many thanks, many thanks. Let us hope it has some effect."
 
-In order to change the topic, Master Wang brought up the construction project on the Dongyang Farm.
+To steer the conversation elsewhere, Master Wang brought up the construction project at the Dongyang Farm.
 
-After buying the Dongyang Farm, Master Wang had also consulted Hearthstone Immortal about "construction projects." Mr. Zhou was originally not very interested in this matter, but he suddenly changed his mind after seeing the "Farm Panoramic Map" from Dongyang. Not long ago, he proposed using the abundant mountain water sources in the mountain villa to build a water mill. At this moment, he brought it up again.
+After purchasing the Dongyang Farm, Master Wang had consulted Hearthstone Immortal about potential construction projects. Mr. Zhou had initially shown little interest in the matter, but his attitude changed abruptly upon seeing the "Farm Panoramic Map" of Dongyang. Not long ago, he had proposed utilizing the abundant mountain springs to construct a water mill. Now he raised the subject again.
 
-"Trip-hammer houses have existed since ancient times; using them to hull rice is excellent. It's just that this farm doesn't have much land; how much paddy can there be?" Wang Yehao disapproved. In terms of the farm's land, rather than spending money to build a water trip-hammer house, it was better to hull rice manually. If speaking of processing for customers, Dongyang was mostly mountainous; fields were few and scattered, and paddy yield was not much. It wasn't worth transporting specially for processing.
+"Trip-hammer houses have existed since ancient times, and they're excellent for hulling rice. However, this farm has limited acreage—how much paddy could there possibly be?" Wang Yehao remained skeptical. Given the farm's modest holdings, spending money to build a water-powered trip-hammer house made less sense than simply hulling rice by hand. As for processing grain for customers, Dongyang was mostly mountainous terrain with few scattered fields and meager paddy yields. It hardly seemed worth transporting grain specifically for processing.
 
-"Besides paddy, a water-powered trip-hammer house can grind many things." Mr. Zhou had a card up his sleeve [was confident]. "For example, incense."
+"Beyond paddy, a water-powered trip-hammer house can grind many things," Mr. Zhou replied with quiet confidence. "Incense, for example."
 
-Traditionally, making various incenses involved crushing and mixing various plants or minerals containing fragrances. If no binder was added, it was loose incense; adding binder made stick incense or rod incense. Technically, there was nothing mysterious.
+Traditionally, various incenses were made by crushing and blending aromatic plants or minerals. Without binder, the result was loose incense; with binder added, one produced stick or rod incense. Technically speaking, there was nothing mysterious about the process.
 
-"This stuff is everywhere in Dongyang; can't sell for much money." Wang Yehao said, "It's just that Zhejiang Province has no precious spices—good spices all come from Nanyang or the Western Oceans. Transporting them specifically to Dongyang to make incense has no profit margin."
+"Such products are everywhere in Dongyang and command poor prices," Wang Yehao said. "Besides, Zhejiang Province lacks precious spices—fine aromatics all come from the Southern Seas or the Western Oceans. Transporting them specifically to Dongyang for incense production would leave no profit margin."
 
-Locally in Dongyang, plants that could be called spices were only limited to camphor wood and cypress wood. Cheap stick incense made from them had long filled the market; for the Wang family to stick a foot in would at most earn some small money.
+Locally in Dongyang, the only plants that might qualify as spices were camphor wood and cypress wood. Cheap stick incense made from these had long since flooded the market. For the Wang family to enter this trade would yield only modest returns at best.
 
-"I know this. I am also the Lord's fellow townsman." Mr. Zhou appeared confident. "Dongyang doesn't have other spices, but there is always *Qinghao* [Sweet Wormwood], right?"
+"I am aware of this. After all, I too hail from the Lord's hometown," Mr. Zhou said, appearing supremely confident. "Dongyang may lack other spices, but surely there is always *Qinghao*?"
 
-"*Qinghao* is everywhere, but it is used for smoking away mosquitoes and insects in summer." Wang Yehao shook his head subconsciously. "There are indeed those who use it as mosquito incense, only it's too smoky."
+"*Qinghao* grows everywhere, but it's used for smoking away mosquitoes and insects in summer." Wang Yehao shook his head reflexively. "Some do use it as mosquito incense, but it produces too much smoke."
 
-This stuff was indeed effective in driving away mosquitoes and insects, but currently, people used *Qinghao* sticks—bundles of *Qinghao* dried and rolled into stick incense with local paper, ignited to drive mosquitoes. Rolling thick smoke; true the mosquitoes were driven away, but people also couldn't stand the smoke. If lit indoors, doors and windows must be open for ventilation.
+The herb was indeed effective at repelling mosquitoes and insects, but the current method involved *Qinghao* sticks—bundles of dried *Qinghao* rolled with local paper into crude incense sticks, then ignited to drive away pests. The thick, billowing smoke did repel the mosquitoes, but people could scarcely tolerate it either. When lit indoors, doors and windows had to remain open for ventilation.
 
-"That is because the incense-making method is wrong." Following this, Hearthstone Immortal took out a folded paper from his body. "You ask the farm to make it according to my formula and process; the smoke will be much smaller."
+"That is because the incense-making method is flawed." With this, Hearthstone Immortal produced a folded paper from within his robes. "Have the farm prepare it according to my formula and process. The smoke will be greatly reduced."
 
-Wang Yehao didn't take it seriously either. Looking at the raw materials above, there were no precious things; all could be bought cheaply locally in Dongyang. If this Hearthstone Immortal wanted to play with something fresh, it didn't matter. What the mountains lacked least were waterfalls; building a trip-hammer house wouldn't cost much money.
+Wang Yehao remained unimpressed. Glancing at the listed raw materials, he found nothing precious—all could be purchased cheaply in Dongyang. If this Hearthstone Immortal wished to dabble in some novelty, so be it. What the mountains lacked least were waterfalls, and constructing a trip-hammer house wouldn't cost much.
 
-"Since so, I will tell people to build one."
+"Very well. I shall instruct my people to build one."
 
-"Ai ai ai, I also have a secret method for this trip-hammer house, nonexistent in the Central Plains. If there is time, I still want to go to the farm personally to guide construction."
+"Ah, wait—I also possess a secret method for the trip-hammer house itself, unknown in the Central Plains. If time permits, I should like to visit the farm personally to oversee construction."
 
-A trace of doubt flashed past Master Wang's eyes, seemingly suspecting his motive. Zhou Lezhi was secretly worried, only hearing the Teacher say again: "I myself also saved some silver. If the money for reconstruction isn't enough, I can also take money out to buy shares!"
+A flicker of suspicion passed through Master Wang's eyes, as though questioning the man's true motives. Zhou Lezhi worried silently, but then the Teacher continued: "I have saved some silver myself. If funds for the reconstruction prove insufficient, I can contribute money for shares!"
 
-Zhou Lezhi laughed secretly; the Teacher really had no ability to see the situation. was this a problem of money?!
+Zhou Lezhi laughed inwardly. The Teacher truly lacked any ability to read the situation. Was this a matter of money?!
 
-Unexpectedly, Master Wang nodded: "It is good that the Teacher has this heart. However, a mere farm is not enough to ask the Teacher to take money out for operation and growth." He thought for a moment; anyway, arriving in Dongyang was still within his control. Moreover, the general situation was set now; going to Liangguang would have to wait until next year. Keeping him for these more than half a year was useless too; better to let him go toss about and see what intention exactly he harbored! Immediately he said: "Since so, in a few days this student will send people to escort the Teacher to Dongyang."
+Unexpectedly, Master Wang nodded. "It is good that the Teacher has such enthusiasm. However, a mere farm hardly warrants the Teacher investing his own funds for its development." He paused to consider. Dongyang remained within his sphere of influence, after all. Moreover, the broader situation had stabilized; the posting to Liangguang would not come until next year. Keeping the man here for the intervening months served no purpose—better to let him tinker about and discover what intentions he truly harbored! He spoke decisively: "Very well then. In a few days, I shall send men to escort the Teacher to Dongyang."
 
-"Good, good," Mr. Zhou danced with eyebrows [was radiant with joy]. "Dongyang is a good place."
+"Excellent, excellent." Mr. Zhou's face lit up with undisguised delight. "Dongyang is a fine place."
 
-"Night is already deep; Teacher please rest the night in this study."
+"The hour grows late. Teacher, please rest the night here in this study."
 
-After sending away Master Wang, Zhou Lezhi helped the Master make the bed and pour water, serving the Master to wash up. Unexpectedly, Hearthstone Immortal had no intention of sleeping. He sat on the bed, eyes burning, expression complex.
+After seeing Master Wang off, Zhou Lezhi helped his Master make the bed and pour water, attending him as he washed. But unexpectedly, Hearthstone Immortal showed no intention of sleeping. He sat upon the bed, eyes burning with intensity, his expression complex.
 
-Zhou Lezhi worried secretly: *Does the Teacher have any plan?*
+Zhou Lezhi worried silently: *What scheme does the Teacher have in mind?*
 
-Regarding going to Dongyang, he never mentioned it to him, but he knew the Teacher detested the local climate. The climate here was completely different from the South; when not raining, wind and sand filled the sky; once raining, stinking mud filled the ground. Not to mention the Master, even Zhou Lezhi was very unaccustomed to it. When hearing Master Wang might go to assume office in Guangzhou, he had cheered a little in his heart for a while.
+The Teacher had never mentioned anything to him about going to Dongyang, yet Zhou Lezhi knew the Master despised the local climate. The weather here differed entirely from the South—when dry, wind and sand filled the air; when raining, fetid mud covered the ground. The Master was not alone in his discomfort; even Zhou Lezhi had found it difficult to adjust. Upon hearing that Master Wang might be posted to Guangzhou, his heart had privately rejoiced for a time.
 
-However, suddenly proposing to go to the Dongyang farm to build some water trip-hammer, what did that mean? Could it be the Immortal wanted to run away? Naturally, the Shorn-hair Thieves making noise in Qiongzhou Prefecture now were the Immortal's "fellow townsmen." The Teacher missed his hometown eagerly; running away home was also a normal thing.
+Yet now this sudden proposal to visit the Dongyang farm and build some water-powered trip-hammer—what did it mean? Could the Immortal be planning to flee? After all, the Shorn-hair Thieves currently causing turmoil in Qiongzhou Prefecture were indeed the Immortal's "fellow townsmen." That the Teacher longed for his homeland and might wish to escape back to it was only natural.
 
-It was just, in case the Teacher wanted to run, should he run or not?
+The question remained: if the Teacher intended to flee, should he follow or not?
 
-Serving the Teacher in Master Wang's residence these two years, not only were clothes and food worry-free, but he also learned a lot of learning with the Teacher, useful or useless unknown. If the Teacher ran, naturally he was going back to Australia; he himself definitely couldn't follow. But if he didn't run, let alone whether Master Wang would deal with him, even if magnanimous, he would be a useless person, only able to roll up his bedding and get out.
+Serving the Teacher in Master Wang's residence these past two years, he had wanted for nothing in food or clothing, and had learned much under the Teacher's tutelage—useful or useless, he could not say. If the Teacher fled, he would naturally be returning to Australia; Zhou Lezhi himself certainly could not follow. But if he did not flee—leaving aside whether Master Wang would punish him, even if shown mercy—he would become a useless person, fit only to pack his bedding and leave.
 
-Although the clan had a mouthful of rice for him to eat, that was just not starving to death. How could it compare to eating fragrant and drinking spicy now, and being able to tease maids and aunties...
+Though the clan would provide him with enough rice to survive, that amounted to merely not starving. How could it compare to his current life of fine food and drink, with the freedom to flirt with the maids and serving women...
 
-Used not a few minutes, Zhou Lezhi made up his mind: must not let the Master run away!
+It took but a few moments for Zhou Lezhi to make up his mind: he must not allow the Master to escape!
 
-Just thinking, suddenly the Teacher called him over. Zhou Lezhi shook, fearing the Master peeped his mindset, and walked over hurriedly.
+Even as these thoughts churned, the Teacher suddenly called him over. Zhou Lezhi started, fearing the Master had somehow perceived his true feelings, and hurried forward.
 
-"You look; what is this pile of Australian trash?"
+"Tell me—what is all this Australian rubbish?"
 
-Zhou Lezhi had already seen these things just now. Except for a few shattered glass pieces he could guess were some kind of glass vessels, he had no way to understand other various trash. Instead, he understood somewhat that pile of metal pipes and castings on the ground.
+Zhou Lezhi had examined these objects earlier. Apart from a few shattered glass fragments he could guess had once been some sort of glass vessels, the various pieces of debris remained incomprehensible to him. The pile of metal pipes and castings on the floor, however, he understood somewhat.
 
-"These things on the table, this student cannot make out. As for the things on the ground, they seem to be boiler accessories—Master Wang also said just now, this is the machine activated by water and fire power in *Ziminglou*."
+"These items on the table—I cannot identify them. As for the things on the floor, they appear to be boiler accessories. Master Wang mentioned it just now: this is the machinery powered by water and fire in the *Ziminglou*."
 
-"You are very right, but still lacking one point." Mr. Zhou kicked these copper and iron trash. "This is a spray head, used for bathing..."
+"You are quite correct, but you've missed something." Mr. Zhou kicked at the heap of copper and iron debris. "This is a spray head, used for bathing..."
 
-"Lotus head."
+"A lotus head."
 
-"Correct, in Australia many people call it that," Mr. Zhou said. "This row of copper pipes is actually a heat exchanger—what a heat exchanger is, I told you."
+"Correct. In Australia, many people call it that," Mr. Zhou said. "This row of copper pipes is actually a heat exchanger—I have explained to you what a heat exchanger is."
 
-"Yes, this student remembers."
+"Yes, I remember."
 
-"En, what about this?"
+"Mm. And this?"
 
 "It is a valve. Used on water pipes."
 
-"En, you haven't forgotten yet." Mr. Zhou sighed as he spoke. "Pity, this set of things was made quite exquisitely, but was smashed by someone. However, they are really amazing, actually able to make so many things..."
+"Mm, you haven't forgotten." Mr. Zhou sighed as he spoke. "A pity. This set of equipment was crafted quite exquisitely, but someone smashed it. Still, they are truly remarkable—to have manufactured so many things..."
 
-Zhou Lezhi dared not interrupt, only watching from the side as the Teacher rummaged through the garbage on the table with great interest. While muttering to himself:
+Zhou Lezhi dared not interrupt, merely watching from the side as the Teacher rummaged through the rubbish on the table with keen interest, muttering to himself all the while:
 
-"Grass! Isn't this a bandage? medical waste also collected!" "Good heavens, safety helmet also made! Why not wear steel helmets when fighting?" ... "Sulfonamide?!"
+"Damn it! Isn't this a bandage? They even collected medical waste!" "Good heavens, they made safety helmets too! Why not wear steel helmets when fighting?" ... "Sulfonamide?!"
 
-Mr. Zhou screamed suddenly, holding a small tube in his hand.
+Mr. Zhou cried out suddenly, clutching a small tube in his hand.
 
-The tube looked like it was made by cutting fine bamboo, covered with a layer of raw lacquer on the outside. The seal used wax, already broken. There were small black characters written on the bamboo tube.
+The tube appeared to have been fashioned from fine bamboo, coated with a layer of raw lacquer on the outside. The seal was wax, already broken. Small black characters were inscribed on the bamboo surface.
 
-It seemed this thing gave the Teacher a very huge shock.
+Whatever it was, the object seemed to deliver an enormous shock to the Teacher.
 
-"Actually can make Sulfonamide!" The Teacher frowned tightly. "Unthinkable, unthinkable..."
+"They can actually produce Sulfonamide!" The Teacher's brow furrowed deeply. "Unthinkable. Truly unthinkable..."
 
-When lecturing on medicine, the Teacher had said: Sulfonamide is a most basic antibiotic, which can be used to deal with lower-level infections.
+During his lectures on medicine, the Teacher had explained that Sulfonamide was a most basic antibiotic, used to treat minor infections.
 
-"Teacher, this medicine should not compare to the medicine in your gourd..."
+"Teacher, surely this medicine cannot compare to what you carry in your gourd..."
 
-"Correct, difference is very far." Unknown why, a bitter smile appeared on the Teacher's face. "However, a journey of a thousand miles begins with a single step. Having this is incredible." Saying so, his expression became excited again. "Amazing, amazing..."
+"Correct. The difference is vast," the Teacher replied. Yet for some reason, a bitter smile appeared on his face. "However, a journey of a thousand miles begins with a single step. That they have achieved even this much is incredible." As he spoke, his expression shifted to one of excitement. "Remarkable. Truly remarkable..."
 
-Saying so, he picked up another piece of garbage to examine...
+With that, he picked up another piece of rubbish to examine...
 
-Identifying and lecturing on Australian garbage lasted until Hearthstone Daoist himself started to get sleepy and yawn before ending. Zhou Lezhi was already sleepy beyond endurance. Waiting until serving the Teacher to sleep, it was past the third watch. He was so tired his bones were crisp and tendons numb—the Teacher's style of attending class anytime and anywhere was really somewhat unbearable.
+The identification and lecture on Australian refuse continued until Hearthstone Daoist himself grew drowsy and began to yawn. Only then did it conclude. Zhou Lezhi had long since become unbearably sleepy. By the time he finished attending the Teacher to bed, it was past the third watch. He was so exhausted that his very bones felt limp—the Teacher's habit of conducting lessons at any hour, in any place, was truly difficult to endure.
 
-Just arriving at the outer room of the study wanting to make do for the night on the footrest, suddenly he saw Wang Liang push the door and enter.
+He had just reached the outer room of the study, intending to make do for the night on the footrest, when Wang Liang suddenly pushed open the door and entered.
 
-"The Master has instructions," Wang Liang suppressed his voice to almost a whisper, "Going to Dongyang in a few days, you must watch Hearthstone Daoist closely."
+"The Master has instructions," Wang Liang said, his voice suppressed to barely a whisper. "When you travel to Dongyang in a few days, you must watch Hearthstone Daoist closely."
 
 **(End of Chapter)**

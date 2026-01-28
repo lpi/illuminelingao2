@@ -1,123 +1,125 @@
 # Chapter 2757: The Capital (Part 113)
 
-"The Heavenly Book really says so," Wang Yehao said with a frown.
+"The Heavenly Book truly says so," Wang Yehao said, his brow furrowed.
 
-"Exactly."
+"Indeed."
 
-"That's difficult." Wang Yehao frowned, "Yuanqiao (Wen Tiren) is a man who seeks revenge for the smallest grievance. Back when Shouzhi (Qian Qianyi) blocked him and Zhou Yanru from entering the Grand Secretariat, a feud was forged. Although Shouzhi was forced to leave office and return home, Yuanqiao did not stop there. Over the years, he has been secretly collecting Shouzhi's shortcomings, preparing to deal him a fatal blow. If, as you say, there is a great opportunity this year, how could he let it pass?"
+"That complicates matters." Wang Yehao's frown deepened. "Yuanqiao is a man who harbors grudges over the slightest offense. When Shouzhi blocked him and Zhou Yanru from entering the Grand Secretariat, a blood feud was forged. Although Shouzhi was eventually forced from office and sent home in disgrace, Yuanqiao refused to let the matter rest. Over the years, he has been quietly amassing evidence of Shouzhi's failings, waiting for the moment to deliver a killing blow. If, as you say, a great opportunity presents itself this year, how could he possibly let it slip through his fingers?"
 
-"This student is also concerned about this, which is why I came to ask Master."
+"This student shares precisely that concern, which is why I came to seek Master's counsel."
 
-"Inappropriate, inappropriate." Wang Yehao shook his head repeatedly, "Yuanqiao has been in the Grand Secretariat for seven years and can be said to be in the Emperor's heart. Everything goes smoothly for him, and everything goes his way. Who in the court doesn't have to rely on his breath! Although he calls himself 'Lone Destiny' (*Du Ming*), in reality, his partisans are all over the court and opposition. Even the ministers of the Grand Secretariat dare not disobey his will. The court and opposition all say the Emperor has 'encountered plague' (pun on *Wen*). Even if we persuade him, he won't believe it, and I'm afraid it will invite fire to burn ourselves."
+"Inadvisable, utterly inadvisable." Wang Yehao shook his head emphatically. "Yuanqiao has occupied the Grand Secretariat for seven years and has thoroughly won the Emperor's favor. Everything goes smoothly for him; every endeavor succeeds. Who in the entire court does not depend on his goodwill? Though he styles himself 'Lone Destiny,' the truth is that his partisans have infiltrated every corner of the court and opposition alike. Even the ministers of the Grand Secretariat dare not defy his will. The court and opposition whisper that the Emperor has 'encountered plague'—a play on the name Wen. Even if we attempted to persuade him, he would never believe us, and we would only invite fire to burn ourselves."
 
-"Master is right. It's just that if the proposal to suppress the Kun succeeds..." Zhou Lezhi showed great anxiety on his face.
+"Master speaks wisely. Yet if the proposal to suppress the Kun succeeds..." Zhou Lezhi's face betrayed deep anxiety.
 
-"Sir's concern is justified. However, Sir need not worry too much." Wang Yehao said, "Feiweng (Yang Sichang) was summoned to the Palace of Heavenly Purity a few days ago. He said that to resist foreign aggression, one must pacify the interior, strongly advocating exterminating the roving bandits first, then resisting the Eastern Barbarians and Kun scoundrels. The Emperor deeply agreed. It can be seen that regarding peace negotiations with the Kun, the Emperor has long made a Holy Judgment in his heart."
+"Your concern is well-founded. However, you need not worry excessively." Wang Yehao paused thoughtfully. "Feiweng was summoned to the Palace of Heavenly Purity just days ago. He argued that to resist foreign aggression, one must first pacify internal threats—strongly advocating that the roving bandits be exterminated before turning attention to the Eastern Barbarians and the Kun. The Emperor was deeply persuaded. This suggests that regarding peace negotiations with the Kun, the Emperor has already reached a Holy Judgment in his heart."
 
-"I'm afraid it's unreliable." Although Zhou Lezhi had not been an official for a day, his understanding of the Emperor was not inferior to the old bureaucrat in front of him. "The Emperor has always been opinionated but not firm in his will. Once the matter of peace negotiations is leaked, the court discussion will inevitably be tumultuous. With the Emperor's temperament, when the time comes, he will turn his face and want to suppress again."
+"I fear that may prove unreliable." Though Zhou Lezhi had never served a day as an official, his understanding of the Emperor rivaled that of the veteran bureaucrat before him. "The Emperor has always been opinionated yet irresolute. Once word of peace negotiations leaks, court debate will inevitably erupt into chaos. Given the Emperor's temperament, he will turn his face and demand suppression once again."
 
-"Speak cautiously!" Wang Yehao lowered his voice, "Although you and I are talking in a dark room, we cannot lack respect for the Emperor."
+"Guard your tongue!" Wang Yehao lowered his voice. "Though we speak in a darkened room, we must never show disrespect toward the Emperor."
 
-Zhou Lezhi responded with a faint smile: "Yes."
+Zhou Lezhi responded with a faint smile. "Of course."
 
-"However, Sir's words make sense." Wang Yehao had been an official for many years, so how could he not know the Emperor's personality? He pondered for a moment and said, "We must absolutely not go to advise Yuanqiao. Otherwise, it is inviting fire to burn ourselves. This person has a very bad reputation inside and outside the court. We are not his partisans, so there is no need to do such a thing."
+"Nevertheless, your words carry weight." Wang Yehao had spent too many years in officialdom not to recognize the Emperor's nature. He pondered for a moment before continuing. "We must absolutely refrain from advising Yuanqiao. To do so would be to invite fire upon ourselves. This man's reputation, both within and beyond the court, is abysmal. We are not among his partisans, so there is no reason to embroil ourselves in such matters."
 
-"If so, this plan for peace is afraid..." Zhou Lezhi looked worried.
+"If that is so, I fear this plan for peace may be..." Zhou Lezhi's expression grew troubled.
 
-"No harm." Wang Yehao pondered, "Since the Emperor intends to appoint Feiweng to the Ministry of War, it shows he still wants to 'pacify the interior' first. Peace certainly cannot be negotiated, but this suppression is probably just going through the motions."
+"No matter." Wang Yehao considered carefully. "Since the Emperor intends to appoint Feiweng to the Ministry of War, it demonstrates he still wishes to 'pacify the interior' first. Peace negotiations will certainly never materialize, but this suppression is likely nothing more than going through the motions."
 
-Then he talked about Yang Sichang recommending Xiong Wencan to remain as Governor-General of Liangguang.
+He then spoke of Yang Sichang's recommendation that Xiong Wencan remain as Governor-General of Liangguang.
 
-"...If he really wanted to suppress with full force, there is absolutely no reason to let Xiong Wencan wear his guilt. As for Fu Zonglong, the Emperor prepared only a Governor of Southern Gan for him. Comparing with the precedents of Eastern Barbarians and Roving Bandits, for a matter like suppressing the Kun that spans several provinces, the Commander-in-Chief must be a Supervising Minister (*Dushi*) or a Prime Minister (*Zongli*) to coordinate and command from the center. How could it be a Governor?"
+"...If the Emperor truly wished to mount a full suppression, there would be no reason whatsoever to let Xiong Wencan continue while wearing his guilt. As for Fu Zonglong, the Emperor has prepared only a governorship of Southern Gan for him. Consider the precedents set by campaigns against the Eastern Barbarians and the Roving Bandits—for an undertaking like suppressing the Kun, which spans multiple provinces, the Commander-in-Chief must be a Supervising Minister or a Prime Minister, someone capable of coordinating and commanding from the center. How could a mere Governor suffice?"
 
-"So, the Emperor is also going through the motions?"
+"So the Emperor is also merely going through the motions?"
 
-"Correct! After all, the court discussion is tumultuous, and the Emperor cannot ignore it. Especially since the Kun scoundrels have already captured two provinces—although they are remote borderlands, they surprisingly established Administration Commissioners. There are quite a few officials of Guangdong origin in the court. Now that Guangdong has fallen for more than two years, the Imperial Court must have a gesture to appease them." Wang Yehao said, "In my opinion, suppressing the Kun is an arrow on the bowstring, but this arrow is made of wood."
+"Precisely! After all, court debate rages fiercely, and the Emperor cannot simply ignore it. Especially since the Kun have already captured two provinces—though they may be remote borderlands, they have audaciously established Administration Commissioners there. Quite a few officials of Guangdong origin serve at court. Now that Guangdong has been lost for more than two years, the Imperial Court must offer some gesture to appease them." Wang Yehao concluded, "In my estimation, suppressing the Kun is an arrow nocked on the bowstring—but this arrow is carved from wood."
 
-"If it can really be so, it is also a great fortune!" Zhou Lezhi breathed a sigh of relief.
+"If it truly proves so, that would be a great fortune indeed!" Zhou Lezhi breathed a sigh of relief.
 
-Fighting a losing battle, losing a few thousand troops, and wasting more than a hundred thousand taels of silver in vain was a pity, but at least it wouldn't hurt the bones and tendons.
+Fighting a losing battle, sacrificing a few thousand troops, squandering more than a hundred thousand taels of silver to no purpose—it was regrettable, certainly, but at least it would not break bones or sever tendons.
 
-"It's just that Xiong Xinkai (Wencan) is in danger!" Wang Yehao whispered, "If this suppression of the Kun fails, he will have to carry the blame for the fall of Liangguang."
+"The only one in true danger is Xiong Xinkai!" Wang Yehao whispered. "Should this suppression of the Kun fail, he will be forced to shoulder the blame for the fall of Liangguang."
 
-"What about Fu Zonglong?"
+"What of Fu Zonglong?"
 
-"This is the person Feiweng prepares to use; he will inevitably be safe and sound. If Feiweng can pacify the roving bandits, and then pacify the Kun scoundrels in the next step, he will inevitably use him."
+"He is the man Feiweng has prepared to use; he will inevitably emerge unscathed. If Feiweng succeeds in pacifying the roving bandits, and then moves to pacify the Kun as the next step, he will certainly employ him."
 
-"So this student is relieved."
+"Then this student is relieved."
 
-"That's right. Now the Restoration Society (*Fu She*) is powerful, and there are many scholars of Guangdong origin in it. If we insist on peace blindly, I'm afraid we will offend the Restoration Society to death. Don't forget we also have arrangements in Guangdong. If we really offend them, these arrangements won't be usable."
+"Indeed. At present, the Restoration Society wields considerable power, and many scholars of Guangdong origin belong to it. If we insist blindly on peace, we risk offending the Restoration Society beyond all repair. Do not forget that we also have arrangements in Guangdong. Should we truly antagonize them, those arrangements will become useless."
 
-"Master is right." Zhou Lezhi couldn't help but express admiration.
+"Master speaks truly." Zhou Lezhi could not help but express his admiration.
 
-"The only plan for now, I see, is to befriend the Restoration Society. Although Tianru (Zhang Pu) is idle at home now, his reputation is growing daily in the court and opposition. If according to the Heavenly Book, he can restore Zhou Yanru to premiership. The energy of this person and the Restoration Society cannot be underestimated. Moreover, they are anti-Kun. If we can befriend them, it will be a great help to the great cause of Anti-Kun in the future."
+"The only viable strategy now, as I see it, is to cultivate friendship with the Restoration Society. Though Tianru may be idle at home at present, his reputation grows daily among the court and opposition. If the Heavenly Book is correct, he will help restore Zhou Yanru to the premiership. The influence of this man and the Restoration Society should not be underestimated. Moreover, they are opposed to the Kun. If we can befriend them, they will prove invaluable allies to the great cause of opposing the Kun in times to come."
 
-Zhou Lezhi naturally could only agree deeply. After all, he was not familiar with the operations in the court and relied entirely on Master Wang's grasp.
+Zhou Lezhi could only offer his deep agreement. After all, he was unfamiliar with the machinations of court politics and relied entirely on Master Wang's guidance.
 
-"In that case, regarding the matter of Zhang Hanru, Master can use some small tricks to show goodwill to Zhou Yanru." He reminded.
+"In that case, regarding the matter of Zhang Hanru, Master might employ some small gestures to demonstrate goodwill toward Zhou Yanru." He offered the reminder.
 
-"This goes without saying. Since the Heavenly Book says Yuanqiao has no chance to turn over, naturally there is no need for scruples." Wang Yehao said, "It's just that you said Yizhai (Zhou Yanru) won't be Prime Minister for long..."
+"That goes without saying. Since the Heavenly Book declares that Yuanqiao has no chance of reversing his fortune, there is naturally no need for caution." Wang Yehao paused. "It is only that you mentioned Yizhai will not hold the premiership for long..."
 
-"Whether Yizhai is long or not depends on whether he can match our intentions." Zhou Lezhi said, "That's all the Heavenly Book can say."
+"Whether Yizhai's tenure proves long or short depends on whether he can align with our intentions." Zhou Lezhi replied, "That is all the Heavenly Book reveals."
 
-Wang Yehao nodded and said: "You must be careful during this period."
+Wang Yehao nodded. "You must exercise great care during this period."
 
 "Many thanks, Master."
 
-"You ask me?" Leng Ningyun laughed, "My opinion is naturally in favor."
+---
 
-While speaking, he was in the secret room of Delong, talking with Xu Ke who came in disguise.
+"You ask my opinion?" Leng Ningyun laughed. "Naturally, I am in favor."
 
-Although theoretically, he didn't need to come to the front line personally, nor did he need to talk to Leng Ningyun face to face. But he still decided to take the risk to come to the Capital. One was to discuss the future layout of the Beijing Station with Leng Ningyun, and the other was to understand the situation in the Capital on the spot.
+As he spoke, he sat in the secret room of Delong, conversing with Xu Ke, who had arrived in disguise.
 
-"I thought you would continue to endure humiliation and bear heavy burdens to use him." Xu Ke joked.
+Theoretically, there was no need for Xu Ke to come to the front lines personally, nor to meet with Leng Ningyun face to face. Yet he had decided to risk the journey to the Capital regardless. His purpose was twofold: to discuss the future operations of the Beijing Station with Leng Ningyun, and to assess the situation in the Capital firsthand.
 
-"I'm not that cheap. I was even invited by the God of Wealth. My small life was almost lost..." Leng Ningyun smiled, "But then again, if he were still Yang Gonggong's heart's delight, I really would have to consider it. But they have turned father and son into enemies, so this Yang Tianliang's utility value is not much."
+"I thought you would continue to swallow your humiliation and bear the burden in order to use him." Xu Ke teased.
 
-"I think so too." Xu Ke said, "This Little Eunuch Yang is not only insatiably greedy but also so bold. Keeping him will inevitably be a scourge."
+"I am not so cheap as that. I was even invited by the God of Wealth himself. Nearly lost my little life in the process..." Leng Ningyun smiled. "But then again, if he were still Yang Gonggong's beloved protege, I would genuinely have to reconsider. However, those two have gone from father and son to bitter enemies. Yang Tianliang's utility value has diminished considerably."
 
-"What do you plan to do?"
+"My thoughts exactly." Xu Ke said. "This Little Eunuch Yang is not only insatiably greedy but recklessly bold. Keeping him will inevitably prove a liability."
 
-"I have evidence in hand that he intends to kill Yang Gonggong. Take it to Yang Gonggong... Yang Gonggong himself will dispose of him first!" Xu Ke said.
+"What do you intend to do?"
 
-Leng Ningyun shook his head and said: "Although Yang Tianliang is ruthless to his adoptive father, and the two can be considered to have severed kindness and righteousness. However, Yang Gonggong is hesitant to take action for fear of breaking the vase (collateral damage). Yang Tianliang is not an ordinary eunuch now. A sentence of 'drag out and beat to death' can settle the account. He not only has a position but also opened the channel of Wang Zhixin. How dare Yang Gonggong touch him. If he insists on touching him, Wang Zhixin will use this opportunity to blackmail him, and he will have to bleed heavily to smooth it over. He dares not do this."
+"I have evidence in hand proving he plotted to kill Yang Gonggong. I will bring it to Yang Gonggong... and Yang Gonggong will dispose of him personally!" Xu Ke declared.
 
-"So basically only we can do it."
+Leng Ningyun shook his head. "Though Yang Tianliang has shown himself ruthless toward his adoptive father—and the two can be considered to have severed all bonds of kindness and loyalty—Yang Gonggong hesitates to act for fear of shattering the vase. Yang Tianliang is no ordinary eunuch now. This cannot be settled with a simple command to 'drag him out and beat him to death.' He holds an official position and has cultivated a channel to Wang Zhixin. How would Yang Gonggong dare touch him? Should he insist on making a move, Wang Zhixin would seize the opportunity to extort him, and he would have to bleed heavily to smooth matters over. He would never dare."
 
-"Correct. After all, Yang Gonggong still has utility value for us." Leng Ningyun laughed, "Just yesterday, he sent the ten thousand taels of silver back."
+"So essentially, only we can do it."
 
-"Good guy, this bunch of eunuchs really have thick skin!"
+"Correct. After all, Yang Gonggong still holds utility value for us." Leng Ningyun laughed. "Just yesterday, he returned the ten thousand taels of silver."
 
-"Making money isn't shabby." Leng Ningyun laughed, "Speaking of which, our only channel in the palace is him, so Yang Gonggong still has to be perfunctory. For me, getting rid of Yang Tianliang is a good thing, otherwise having to deal with both father and son at the same time—with mutual suspicion between them—that is difficult."
+"Good heavens, these eunuchs truly have thick skin!"
 
-He took a sip of tea and continued: "Yang Tianliang is shrewd and capable, and very greedy. He is a very troublesome client. In comparison, Yang Gonggong is old. Although he is an old fox, he loves to hear pleasing words. We can still squeeze a lot of resources out of him—I'm not just talking about silver."
+"There is no shame in making money." Leng Ningyun laughed again. "Speaking of which, he remains our only channel into the palace, so we must continue to humor Yang Gonggong. For my part, eliminating Yang Tianliang is a welcome development. Otherwise, having to manage both father and son simultaneously—with mutual suspicion poisoning the relationship between them—would prove exceedingly difficult."
 
-"You mean relationships in the palace?"
+He took a sip of tea and continued. "Yang Tianliang is shrewd, capable, and extraordinarily greedy. He makes for a troublesome client. By comparison, Yang Gonggong is aging. Though he may be an old fox, he delights in flattering words. We can still extract considerable resources from him—and I do not speak merely of silver."
 
-"Correct. Chongzhen is actually like most Ming emperors, trusting domestic slaves more. Especially the batch of eunuchs he brought from the Prince of Xin's mansion. Although Yang Gonggong is not his direct line, he has been drilling quite a bit these years and gets along well with these big eunuchs. Otherwise, how could he bring me so many deposits?" Leng Ningyun said, "This is just one benefit. The benefit in intelligence goes without saying; eunuchs' news comes faster and more accurately. But I think we ignored another aspect of work on the broad high-level Ming officials."
+"You mean connections within the palace?"
 
-"What?"
+"Precisely. Chongzhen is, in truth, like most Ming emperors—he trusts his domestic servants above all others. Especially the cohort of eunuchs he brought with him from the Prince of Xin's mansion. Though Yang Gonggong is not among his direct retainers, he has spent years ingratiating himself and now enjoys cordial relations with these powerful eunuchs. How else could he have brought me so many deposits?" Leng Ningyun continued, "That is merely one advantage. The benefits in intelligence go without saying—eunuchs receive news faster and more accurately. But I believe we have been neglecting another avenue of work regarding the Ming's senior officials."
+
+"What would that be?"
 
 "Influence."
 
 "Lobbying?"
 
-"Exactly." Leng Ningyun nodded repeatedly, "Don't look at officials and eunuchs all saying 'Subject deserves to die' and 'His Majesty is wise', appearing to be 'Imperial Body Dictatorship', but actually, each has their methods to influence the court situation. The influence of eunuchs is actually not inferior to the Grand Secretariat. Take Wen Tiren who is going to be unlucky this year. If it weren't for Qian Qianyi writing an inscription for Wang An back then, and Cao Huachun saving him out of this bit of incense sentiment, Qian Qianyi would probably not have kept his head, and Wen Tiren, the Senior Grand Secretary, could probably have done it for a few more years."
+"Exactly." Leng Ningyun nodded vigorously. "Pay no attention to officials and eunuchs alike crying 'This subject deserves death' and 'Your Majesty is wise,' giving the appearance of 'Imperial Autocracy.' In reality, each has their own methods for shaping court affairs. The influence of eunuchs is actually no less than that of the Grand Secretariat. Take Wen Tiren, who is destined for misfortune this year. Had Qian Qianyi not written an inscription for Wang An back in the day, and had Cao Huachun not spared him on account of that slender thread of sentiment, Qian Qianyi would likely have lost his head—and Wen Tiren, the Senior Grand Secretary, might have held his position for several more years."
 
-"What court situation do you want to influence through eunuchs?" Xu Ke laughed.
+"What court affairs do you wish to influence through eunuchs?" Xu Ke asked with a laugh.
 
-"Not necessarily through eunuchs," Leng Ningyun spoke somewhat excitedly at this moment, "There are also cooperative objects among the ministers. We can now slowly cultivate agents."
+"Not necessarily through eunuchs alone," Leng Ningyun replied, growing animated. "There are cooperative prospects among the ministers as well. We can now begin cultivating agents."
 
-"Agents, we are going to overthrow the Great Ming..."
+"Agents? We are going to overthrow the Great Ming..."
 
-"Overthrowing the Great Ming, that is a later story." Leng Ningyun laughed, "Is the lesson of Liangguang not enough? How much cost does direct rule take? If, I mean if, the Imperial Court is willing to negotiate peace with us? Sign a trade agreement or something with us..."
+"Overthrowing the Great Ming is a matter for the future." Leng Ningyun laughed. "Has the lesson of Liangguang taught us nothing? What does direct rule cost? If, and I mean if, the Imperial Court were willing to negotiate peace with us? Perhaps sign a trade agreement of some kind..."
 
 "Another Five Ports Open to Trade?"
 
-"Don't you think this model is more cost-effective economically? It also fits the current financial situation of the Senate which is about to go bankrupt."
+"Do you not think such a model would be more cost-effective economically? It would also suit the current financial situation of the Senate, which teeters on the brink of bankruptcy."
 
-"Dream on! Can Chongzhen agree?"
+"Keep dreaming! Would Chongzhen ever agree?"
 
-"Take it slowly!" Xu Ke said, "After the Manchus entered the pass, various roving bandits mostly became pillars of the Imperial Court. In the end, at the end of the road, the Empress Dowager of the Yongli Emperor even thought of asking the Portuguese for help. As long as the time comes, any possibility exists. We build an agent team now; it will be very useful in the future."
+"Patience!" Xu Ke said. "After the Manchus entered the pass, various roving bandits largely became pillars of the Imperial Court. In the end, at the bitter end of the road, even the Empress Dowager of the Yongli Emperor considered seeking aid from the Portuguese. When circumstances grow desperate enough, any possibility exists. If we build a network of agents now, it will prove invaluable in the future."
 
-Xu Ke thought for a moment: "What you say makes a lot of sense. But it's not that simple. After all, most of the upper class still have a stereotype about us, thinking we just have strong ships and sharp cannons, and are good at doing business."
+Xu Ke reflected for a moment. "What you say makes considerable sense. But it will not be simple. After all, most of the upper class still harbor preconceptions about us—believing we possess nothing more than strong ships and sharp cannons, and a talent for commerce."

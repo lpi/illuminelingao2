@@ -1,125 +1,125 @@
 # Chapter 2855: The Case
 
-The group chatted happily and didn't disperse until nearly nine o'clock in the evening.
+The group chatted merrily, not dispersing until nearly nine o'clock in the evening.
 
-He Xiaoyue and Guo Xi'er returned to the dormitory, tired but excited, unable to sleep at all. They lived next door to each other, so they simply gathered in He Xiaoyue's room to chat. They planned their future careers over and over. For a moment, Guo Xi'er realized she actually had such inconceivable and rebellious thoughts as "staying at Wanzi Pavilion like this is pretty good too" and "Senator Liu is just an ordinary man."
+He Xiaoyue and Guo Xi'er returned to the dormitory tired yet exhilarated, too stirred up to sleep. Since they lived next door to each other, they simply gathered in He Xiaoyue's room to talk. Over and over they planned out their future careers, until at one point Guo Xi'er realized she was harboring such inconceivable and rebellious thoughts as "staying at Wanzi Pavilion like this is actually quite good" and "Senator Liu is just an ordinary man."
 
-Seeing that it was getting late, the two finally felt sleepy and were about to go to bed when the dormitory administrator knocked on the door, saying someone from Wanzi Pavilion had come.
+When the hour grew late, drowsiness finally crept over them and they prepared for bed. Then came a knock at the door—the dormitory administrator, announcing that someone from Wanzi Pavilion had arrived.
 
-"What is it?" He Xiaoyue was surprised. Wanzi Pavilion wasn't a department store; it closed at six in the evening. Now it was past ten; what urgent matter could there be? Even if there was, they should find the manager. Why look for them designers?
+"What is it?" He Xiaoyue was surprised. Wanzi Pavilion was not a department store; it closed at six in the evening. Now it was past ten—what urgent matter could possibly require their attention? And even if something had come up, surely they would contact the manager. Why seek out the designers?
 
-Suddenly, an ominous omen floated into her mind. Could it be...
+Suddenly, an ominous premonition drifted into her mind. Could it be...
 
-"Is it Suniang..." Guo Xi'er was also called up, draping clothes over her shoulders.
+"Is it Suniang..." Guo Xi'er had also been roused, draping a garment over her shoulders.
 
-He Xiaoyue felt a panic in her heart: *Could it be that Zhou Suniang escaped to Wanzi Pavilion at night? She is my client, so the duty officer sent someone to find us.*
+He Xiaoyue felt her heart lurch with panic. *Could Zhou Suniang have fled to Wanzi Pavilion in the night? She is my client, so the duty officer must have sent someone to find us.*
 
-"Probably." He Xiaoyue whispered, "Regardless of whether it is or not, don't speak unless I speak first!"
+"Probably." He Xiaoyue kept her voice low. "Whether it is or not, don't speak unless I speak first!"
 
-Although they didn't know exactly what it was, calling them over late at night was definitely no small matter.
+Though they didn't know the specifics, being summoned this late at night was certainly no small matter.
 
-Hastily changing clothes, they found the night deep and the streets deserted. The two couldn't help feeling timid. Fortunately, the duty officer who came to notify them under the streetlamp had already called three rickshaws. The group got on the rickshaws and hurried toward Wanzi Pavilion.
+They dressed hastily and found the night deep and the streets deserted. The two could not help feeling apprehensive. Fortunately, the duty officer who had come to notify them waited beneath a streetlamp, having already called three rickshaws. The group climbed aboard and hurried toward Wanzi Pavilion.
 
-Back at Wanzi Pavilion, the responsible Duty Manager greeted them, his face full of panic.
+When they arrived, the Duty Manager on shift greeted them, his face stricken with alarm.
 
-"What happened?" He Xiaoyue asked before she could even put down her bag.
+"What happened?" He Xiaoyue asked before she could even set down her bag.
 
 "The Qu family's concubine..." the Duty Manager whispered.
 
-"Zhou Suniang?!" Although she had guessed pretty close, He Xiaoyue was still shocked.
+"Zhou Suniang?!" Though her guess had been close to the mark, He Xiaoyue was still shocked.
 
-However, when she walked in, she found that standing in the room was not Zhou Suniang, but several policemen.
+However, when she walked inside, she found the room occupied not by Zhou Suniang, but by several policemen.
 
-A foreboding feeling gripped her heart. Seeing her enter, the lead police officer showed his ID:
+A sense of foreboding gripped her heart. Seeing her enter, the lead officer displayed his identification:
 
-"We are from the Lingao Police Bureau. There is a case requiring your cooperation in the investigation."
+"We are from the Lingao Police Bureau. A case has arisen that requires your cooperation in the investigation."
 
-"Okay..." He Xiaoyue calmed her mind slightly. "Let's talk in the reception room."
+"Very well..." He Xiaoyue steadied herself slightly. "Let's talk in the reception room."
 
-The police didn't object, and the group entered the reception room. Guo Xi'er originally wanted to slip away, but unexpectedly, she was also on the inquiry list. Being somewhat alert now, she quickly signaled the Duty Manager with her eyes and whispered: "Make a phone call!"
+The police did not object, and the group proceeded to the reception room. Guo Xi'er had hoped to slip away, but unexpectedly found herself on the inquiry list as well. Now somewhat alert, she quickly caught the Duty Manager's eye and whispered: "Make a phone call!"
 
-Inside the reception room, the police got straight to the point, stating that a "homicide case" had occurred at the Qu family.
+Inside the reception room, the police came straight to the point, stating that a "homicide case" had occurred at the Qu residence.
 
-"Is it Suniang?!" Although He Xiaoyue had just instructed Guo Xi'er "not to speak carelessly," she still blurted it out upon hearing this news.
+"Is it Suniang?!" Though He Xiaoyue had just instructed Guo Xi'er not to speak carelessly, she blurted out the words the moment she heard this news.
 
 "You know her?"
 
-"Yes, she is a VIP client of our shop." He Xiaoyue thought there was nothing to hide, so she roughly described Suniang's dealings with the shop.
+"Yes, she is a VIP client of our establishment." He Xiaoyue saw no reason to conceal anything and gave a general account of Suniang's dealings with the shop.
 
-"Did she have any strange behavior recently?" The police officer stared into He Xiaoyue's eyes. "For example, unconventional actions or words?"
+"Did she exhibit any unusual behavior recently?" The officer fixed his gaze on He Xiaoyue's eyes. "For instance, unconventional actions or statements?"
 
-He Xiaoyue then recounted in full detail how she had secretly come to the shop and asked to contact Wu Xinsheng. The police listened very attentively, writing something in their notebooks from time to time.
+He Xiaoyue then recounted in full detail how Suniang had secretly come to the shop and asked to contact Wu Xinsheng. The police listened with intense focus, occasionally jotting notes in their notebooks.
 
-"Is this Master Wu in the shop now?"
+"Is this Master Wu currently at the shop?"
 
-"Yes, he is currently on a business trip to Lingao. He is staying at the Golden Light Hostel..."
+"Yes, he is in Lingao on a business trip at present. He is staying at the Golden Light Hostel..."
 
-"Please send someone to invite him over as well."
+"Please send someone to invite him here as well."
 
-They said "invite," but in reality, there was no room for negotiation. The Duty Manager immediately called a handyman to fetch him.
+They said "invite," but in truth there was no room for negotiation. The Duty Manager immediately dispatched a handyman to fetch him.
 
-Then they questioned Guo Xi'er and the others. Seeing the questioning end, He Xiaoyue couldn't help asking: "Police... Comrade, Suniang, what happened to her?"
+The officers then questioned Guo Xi'er and the others. When the questioning concluded, He Xiaoyue could not help asking: "Officer... Comrade, what happened to Suniang?"
 
-The policeman hesitated slightly. Before the mission, he knew there were "important figures" in the shop. "I cannot disclose the details of the case, but the Zhou Suniang you mentioned is a suspect..."
+The policeman hesitated briefly. Before the mission, he had been informed that "important figures" were connected to the shop. "I cannot disclose the details of the case, but the Zhou Suniang you mentioned is a suspect..."
 
-The word "suspect" struck like a bolt from the blue. He Xiaoyue was stunned. "Homicide case," "suspect"—putting these two terms together, she knew what had happened without needing further explanation. She hadn't expected things to develop to this point. Although she didn't know the specific reason or who had been killed, if she had bridged the gap for her back then and let her meet Wu Xinsheng, perhaps such a thing wouldn't have happened. Thinking of this, she felt both regret and hatred.
+The word "suspect" struck like a thunderbolt. He Xiaoyue stood stunned. "Homicide case," "suspect"—placing these two terms together, she understood what had happened without needing further explanation. She had never expected things to develop to this point. Though she did not know the specific reason or who had been killed, if only she had bridged the gap for Suniang back then and allowed her to meet Wu Xinsheng, perhaps such a tragedy might have been averted. At this thought, regret and self-reproach flooded through her.
 
-If she had forced Zhou Suniang into becoming a murderer for the sake of doing business, she could never forgive herself.
+If her insistence on doing business had forced Zhou Suniang into becoming a murderer, she could never forgive herself.
 
-She wanted to ask for more details, but the handyman outside announced: Wu Xinsheng had been brought in.
+She wanted to ask for more details, but the handyman outside announced that Wu Xinsheng had been brought in.
 
-He Xiaoyue originally wanted to wait for the police to leave before asking Wu Xinsheng for news. unexpectedly, the police didn't question him at Wanzi Pavilion but took Wu Xinsheng away directly.
+He Xiaoyue had hoped to wait until the police departed before questioning Wu Xinsheng for news. Unexpectedly, the officers did not interview him at Wanzi Pavilion but took him away directly.
 
-Guo Xi'er watched in a daze. Only after the police had all left did she whisper: "Sister Xiaoyue! Could this be adulterers conspiring to murder..."
+Guo Xi'er watched in a daze. Only after all the police had gone did she whisper: "Sister Xiaoyue! Could this be a case of adulterers conspiring to murder..."
 
-"What nonsense are you talking!" He Xiaoyue trembled all over. "Can't you hope for something better for others?!"
+"What nonsense are you spouting!" He Xiaoyue trembled from head to toe. "Can't you hope for something better for others?!"
 
 "Yes, yes," Guo Xi'er stuck out her tongue. "But the police took Brother Xinsheng away..."
 
-"Just called in for questioning, not arrested."
+"He was just called in for questioning, not arrested."
 
-Guo Xi'er wanted to say more, but the Duty Manager came over and said the General Office staff had returned the call, asking what was the matter.
+Guo Xi'er wanted to say more, but the Duty Manager came over and informed them that the General Office staff had returned the call, asking what the matter was.
 
-"I'll talk to him myself." Guo Xi'er said busily and ran off on her own.
+"I'll speak to him myself." Guo Xi'er said hurriedly and ran off.
 
-He Xiaoyue thought, *This is a useful channel.* She grabbed Guo Xi'er's arm and whispered: "Ask them to inquire about what exactly happened."
+He Xiaoyue thought, *That's a useful channel.* She grabbed Guo Xi'er's arm and whispered: "Ask them to inquire about what exactly happened."
 
-For the next few days, both lost their enthusiasm. After work, they no longer went shopping or dining out; they just ate something casual and returned to the dormitory to rest. Their conversation naturally revolved around Zhou Suniang's case.
+For the next several days, both women lost their enthusiasm. After work, they no longer went shopping or dined out; they simply ate something casual and returned to the dormitory to rest. Their conversation naturally revolved around Zhou Suniang's case.
 
-There was no news about the case at all. Not only was there no word from Zhou Suniang, but even Wu Xinsheng hadn't returned.
+No news came about the case at all. Not only was there no word from Zhou Suniang, but even Wu Xinsheng had not returned.
 
-Although Guo Xi'er asked the General Office to inquire about the matter, Liu Xiang was not in Lingao at the moment. Inquiring about things wasn't as easy as lifting a hand, so no news came for a while.
+Although Guo Xi'er had asked the General Office to look into the matter, Liu Xiang was not in Lingao at the moment. Making inquiries was not as simple as lifting a finger, so no word came for a while.
 
-In these few days, they received new orders: a wealthy family moving from Zhejiang to Lingao had settled down and wanted to make clothes for all the female family members, especially the trendy "Australian new styles." He Xiaoyue and Guo Xi'er were assigned VIP clients to serve, becoming busy again.
+During these days, they received new orders: a wealthy family relocating from Zhejiang to Lingao had settled in and wanted garments made for all the women of the household, particularly the fashionable "Australian new styles." He Xiaoyue and Guo Xi'er were assigned VIP clients to serve, and they grew busy once more.
 
-After mulling through a few days like this without receiving any news, they gradually put the matter aside—after all, Zhou Suniang was neither family nor friend, and they had no special friendship. It was just that whenever she was mentioned, there would inevitably be some lamentation.
+After muddling through several days without receiving any news, they gradually set the matter aside—after all, Zhou Suniang was neither family nor friend, and they shared no special bond. It was simply that whenever her name arose, a measure of lamentation was inevitable.
 
-This day was exactly the "Fourteenth." According to the Senate's regulations, there were two public rest days every month. Industrial and commercial enterprises could decide the specific dates freely, while public service departments fixed holidays on the first and fifteenth of every month. Although Wanzi Pavilion was a commercial unit, it belonged to "State-Owned Enterprises," so it followed the accepted rules and took holidays on these two days.
+This particular day fell on the "Fourteenth." According to Senate regulations, there were two public rest days each month. Industrial and commercial enterprises could set the specific dates as they pleased, while public service departments fixed their holidays on the first and fifteenth of every month. Though Wanzi Pavilion was a commercial establishment, it belonged to the category of "State-Owned Enterprises," and so it followed the accepted convention and observed holidays on these two days.
 
-Every month end and the fourteenth were the "weekends" under the Senate's rule. If there was no urgent work, most enterprise units could do as they pleased after lunch. He and Guo had been busy for half a month, encountering Zhou Suniang's affair in between. Both their nerves were taut, and they felt exhausted.
+The end of each month and the fourteenth served as "weekends" under Senate rule. When there was no pressing work, most enterprise units could do as they wished after lunch. He and Guo had been busy for half a month and had encountered Zhou Suniang's affair in between. Both their nerves had been stretched taut, and they felt utterly exhausted.
 
-They had planned to rest in the dormitory for a day, but unexpectedly, when they checked the mailbox, they found a postcard. It was from Chen Shixin, inviting them to visit the Coconut Grove Photo Studio the next day.
+They had planned to spend the day resting in the dormitory, but when they checked the mailbox, they unexpectedly found a postcard. It was from Chen Shixin, inviting them to visit the Coconut Grove Photo Studio the following day.
 
-Receiving the postcard reminded them of this invitation. They decided immediately to go to the appointment tomorrow as a distraction.
+Receiving the postcard reminded them of this invitation. They decided at once to keep the appointment tomorrow as a welcome distraction.
 
-"Shixin!" Huang Yaomin shouted to the interning lad. "The chemicals sent by the chemical plant have arrived; go sign for them!"
+"Shixin!" Huang Yaomin called out to the interning lad. "The chemicals from the chemical plant have arrived—go sign for them!"
 
-"Right away, Master!" The young man in the "cadre suit" jumped lightly from the ladder and trotted toward the back.
+"Right away, Master!" The young man in the "cadre suit" sprang lightly from the ladder and trotted toward the back.
 
-"Watch out you don't fall!" Huang Yaomin yelled, feeling very appreciative of Chen Shixin in his heart—who wouldn't like a young man who responded instantly and was nimble?
+"Watch out you don't fall!" Huang Yaomin shouted after him, though in his heart he felt great appreciation for Chen Shixin. Who wouldn't be fond of a young man who responded instantly and moved with such agility?
 
-Since he came to intern, his own burden had lightened significantly. Moreover, the other party wasn't an apprentice he raised himself, but a genuine Propaganda Department "officer." This work enthusiasm! This consciousness!
+Since the lad had come to intern, his own burden had lightened considerably. Moreover, this was no apprentice he had raised himself, but a genuine Propaganda Department "officer." Such work enthusiasm! Such consciousness!
 
-Thinking of this, he glanced with some resentment at his senior apprentice, who was wiping the counter and equipment while huffing and puffing like an old ox: hardworking, yes, but unfortunately, his reaction was half a beat slow. IQ was also lacking. What was he thinking when he recruited him as an apprentice?
+At this thought, he cast a somewhat resentful glance at his senior apprentice, who was wiping down the counter and equipment while huffing and puffing like an old ox. Hardworking, yes, but unfortunately half a beat slow in his reactions. His intelligence was also lacking. What had he been thinking when he took him on as an apprentice?
 
-As for the relatively smarter second apprentice, he was a slippery fellow. When there was a lot of dirty and tiring work before the opening, he found an excuse to go on a "business trip."
+As for the relatively sharper second apprentice, that one was a slippery fellow. When there had been plenty of dirty and exhausting work before the opening, he had found an excuse to go on a "business trip."
 
-This Senator Huang was one of the few art practitioners in the Senate. Before crossing over, he was a TV laborer working for a TV station in Guangdong, engaged in videography and post-production. After working for a while, he found the golden rice bowl of the TV station was gradually running out of rice. The programs he participated in producing had no ratings at all. So he considered lateral development, taking private jobs under the banner of the TV station, scamming parents of kids to attend training for the Spring Festival Gala and such. Originally, he made quite a bit of money. Unexpectedly, something went wrong later; a group of parents sued him. With no way out, he had no choice but to run away.
+This Senator Huang was one of the few art practitioners among the Senate. Before crossing over, he had been a television worker employed at a TV station in Guangdong, engaged in videography and post-production. After working there for a time, he found that the golden rice bowl of the TV station was gradually running empty. The programs he helped produce had no ratings whatsoever. So he considered lateral development, taking private jobs under the station's banner—swindling parents into enrolling their children in training programs for the Spring Festival Gala and the like. Originally, he made quite a bit of money. Unexpectedly, things went wrong later; a group of parents sued him. With no way out, he had no choice but to flee.
 
-After crossing over, he could only serve as basic labor at the start. After the situation opened up, he became a soy-saucer—after all, producing TV programs and establishing a TV station was too far off. And while the broadcasting field had already unfolded, to tell the truth, he wasn't familiar with it.
+After crossing over, he could only serve as basic labor at first. When the situation opened up, he became a marginal figure—after all, producing TV programs and establishing a television station was far too distant a prospect. And while the broadcasting field had already developed, truth be told, he was not well-versed in it.
 
-Fortunately, his mindset had become peaceful. Usually, he worked part-time at Trini's place teaching art. After photography technology was preliminarily restored, he worked as a photographer and trained several apprentices. In his spare time, he went out to collect folk songs and photographed Lingao's bustling construction scenes and citizens' lives to submit to newspapers and magazines. The Executive Committee chose him to head the Coconut Grove Photo Studio. Although it inevitably implied "using a sledgehammer to crack a nut," it was more about using this to explore the business model of commercial photo studios. In the future, opening photo studios in places like Guangzhou would use photos to demonstrate the superiority of Lingao life more intuitively to the Great Ming people, accelerating the process of "transforming Xia with Kun."
+Fortunately, his mindset had grown peaceful. Usually he worked part-time at Trini's place teaching art. After photography technology was preliminarily restored, he worked as a photographer and trained several apprentices. In his spare time, he went out to collect folk songs and photographed Lingao's bustling construction scenes and citizens' daily lives to submit to newspapers and magazines. The Executive Committee had chosen him to head the Coconut Grove Photo Studio. Though this inevitably carried the implication of "using a sledgehammer to crack a nut," it was more about using this venture to explore the business model of commercial photo studios. In the future, opening photo studios in places like Guangzhou would use photographs to demonstrate the superiority of Lingao life more vividly to the people of the Great Ming, accelerating the process of cultural transformation.
 
-At first, he refused, but after the Commercial Department sent over the project plan for private boudoir photography, Senator Huang surrendered.
+At first he refused, but after the Commercial Department sent over the project plan for private boudoir photography, Senator Huang surrendered.
 
 **(End of Chapter)**

@@ -1,107 +1,115 @@
 # Chapter 2652: The Capital (Part 8)
 
-The woman nodded but did not answer.
+The woman nodded but offered no reply.
 
-Li Rufeng continued, "There is a broken tree by the roadside. The bandits must have waited for Master Leng's carriage to arrive, then pulled down the broken tree to block the path of the carriage and horses. Archers on both sides fired together to kill the guards. After succeeding, they pulled the broken tree away and took Mister Leng and the draft horses. But they left the carriage and the corpses on the spot."
+Li Rufeng continued, "There's a broken tree by the roadside. The bandits must have lain in wait for Master Leng's carriage, then hauled down the trunk to block the path. Archers positioned on both sides loosed their arrows in unison, cutting down the guards. Once the killing was done, they dragged the tree aside and took Mister Leng along with the draft horses—but left the carriage and the corpses where they fell."
 
-Robbing and killing a carriage on the official road in broad daylight—ten years ago, this would have been a fantasy, but now it was a common occurrence. Passersby mostly dared not intervene even if they heard the sounds of killing and cries for help.
+Robbery and murder on the official road in broad daylight—ten years ago, such a thing would have been unthinkable. Now it was commonplace. Most passersby dared not intervene, even when screams and the clash of weapons reached their ears.
 
-The woman said, "Since Mister Leng's corpse is not on the scene, he is most likely still alive. Go back and immediately interrogate the servants of the Leng residence carefully to clarify the sequence of events. If we are a step late, I'm afraid they will be detained by the government office as witnesses."
+"Since Mister Leng's body isn't among the dead, he's most likely still alive," the woman said. "Return immediately and interrogate the Leng residence servants. We need the sequence of events while memories are fresh. If we delay, the government office will detain them as witnesses before we can speak with them."
 
-Li Rufeng felt like he had stepped into an abyss, falling endlessly into infinite darkness, sinking, sinking.
+Li Rufeng felt as though he had stepped off the edge of an abyss, tumbling endlessly through infinite darkness, sinking, sinking.
 
-If it were a simple kidnapping for ransom, it would be easy to handle. Whether spending money to settle it or tracking and rescuing him, neither would be too difficult—such bandits had routines. Following the "tongues" and "bird listeners," plus various connections in the capital, they could always find clues to track them down.
+If this had been a straightforward kidnapping for ransom, it would have been simple enough to handle. Whether paying for his release or tracking down the hideout, neither posed great difficulty—such bandits followed predictable patterns. By tracing the "tongues" and "bird listeners," combined with the capital's various connections, they could always uncover leads.
 
-But judging from the signs at the scene, the comers were obviously not ordinary kidnappers, but had acted with intent.
+But the evidence at the scene told a different story. These were no ordinary kidnappers. They had acted with deliberate purpose.
 
-If so, their action after capturing Manager Leng would be to hide. In this vast Northland, finding a person was like looking for a needle in a haystack. The possibility of successfully rescuing Leng Ningyun was less than ten percent. If Leng Ningyun was kidnapped by enemies to the mountainous areas north of the capital, there would be no possibility of rescue.
+If that was true, their next move after seizing Manager Leng would be to vanish. In this vast Northland, finding one man was like searching for a needle in a haystack. The chances of rescuing Leng Ningyun alive were less than one in ten. And if his captors had spirited him into the mountainous regions north of the capital, there would be no hope of rescue at all.
 
-The problem was, they still didn't know why Manager Leng had suddenly appeared on the official road to Haidian—except for going to Tianjin every month, he almost never left the capital in these years. Moreover, he would always inform "Heliansheng" to dispatch escort masters for protection when going out.
+The greater mystery was why Manager Leng had suddenly appeared on the road to Haidian. Apart from his monthly trips to Tianjin, he almost never left the capital these days. And whenever he did travel, he always notified "Heliansheng" to dispatch escort masters for protection.
 
-Even Wu Kaidi didn't know his whereabouts. This was too strange!
+Even Wu Kaidi had no knowledge of his whereabouts. It made no sense.
 
-The problem was, Leng Ningyun was not a rash young man; he was known for his caution and care on ordinary days. Li Rufeng really couldn't imagine what could make him take the risk to go out.
+Leng Ningyun was no reckless youth. He was known for his caution and meticulous care in daily affairs. Li Rufeng could not fathom what circumstance could have driven him to venture out so carelessly.
 
-Li Rufeng glanced at the woman beside him. Currently, the only escort masters within the establishment in the capital were himself and that woman. Female escort masters were rare as phoenix feathers and unicorn horns, whether in the Great Ming or Lingao, and Golden Phoenix Liao Sanniang was the leader among them.
+Li Rufeng glanced at the woman beside him. At present, the only escort masters stationed in the capital were himself and her. Female escort masters were as rare as phoenix feathers and unicorn horns, whether in the Great Ming or in Lingao, and Golden Phoenix Liao Sanniang stood foremost among them.
 
-He sucked in a big breath of cold air gloomily. It was too far. They couldn't wait for the Senate's rescue. In this world where the Senate's arm couldn't reach, there was only them.
+He drew in a long, bitter breath of cold air. The Senate was too far away. They could not wait for rescue from that quarter. In this world beyond the Senate's reach, they had only themselves.
 
-Shuntian Prefecture Judge Liu Yike, draped in a sable cloak from outside the Pass, was still shivering from the cold—the north wind on this main road was chilling to the bone. He pulled down his eye veil, looking at the busy Fast Squad bailiffs and the Wanping Magistrate standing aside with a dull face knowing nothing, and felt a secret fire in his heart—what was this surnamed Leng doing running out of the city in such cold weather!
+---
 
-Delong's people were already at the scene. Needless to say, their news came even faster than the Shuntian Prefecture Yin; they probably arrived as soon as the city gates opened. Of course, Judge Liu did not mean to blame them. After all, Delong had never missed his share of the "Three Festivals and Two Birthdays" gifts over the years. This little face still had to be given.
+Shuntian Prefecture Judge Liu Yike, wrapped in a sable cloak from beyond the Pass, was still shivering despite his furs—the north wind sweeping down the main road cut to the bone. He tugged down his eye veil and surveyed the scene: the Fast Squad bailiffs bustling about, the Wanping Magistrate standing off to the side with a blank expression, knowing nothing useful. A secret irritation kindled in Liu Yike's chest. What had possessed this man surnamed Leng to venture outside the city walls in such bitter cold?
 
-The coroner had finished filling out the corpse form. Subsequently, the Wanping Magistrate came to ask: Could the corpses be allowed for Delong to claim back?
+Delong's people were already at the scene. That went without saying—their intelligence network was swifter than even the Shuntian Prefecture Yin's; they had likely arrived the moment the city gates opened. Of course, Judge Liu harbored no resentment toward them. After all, Delong had never once failed to deliver their share of the "Three Festivals and Two Birthdays" gifts over the years. That courtesy, at least, deserved acknowledgment.
 
-"Let them sign a bond and claim them back, but do not bury them for the time being," Liu Yike instructed. "Just in case someone else wants to examine the corpses."
+The coroner finished filling out the corpse examination form. Afterward, the Wanping Magistrate approached to inquire: might Delong be permitted to claim the bodies?
 
-"Yes."
+"Have them sign a bond and claim the corpses," Liu Yike instructed. "But they must not bury them yet—in case someone else needs to examine the remains."
 
-"Also, send all the physical evidence seized at the scene to the Shuntian Prefecture Yamen, and pull the carriage back to Shuntian Prefecture for inspection." Liu Yike was eager for this field survey in the wild to end quickly; he could hardly stand the freezing cold.
+"Yes, Your Honor."
 
-Returning to the Shuntian Prefecture Yamen, Liu Yike reported the survey details to Zhong Kai one by one and sent over all the physical evidence collected from the carriage and the corpses.
+"Also, send all physical evidence seized at the scene to the Shuntian Prefecture Yamen, and have the carriage brought back for inspection." Liu Yike wanted nothing more than for this wretched field survey to end. He could hardly bear the freezing cold any longer.
 
-"The carriage has also been brought back; it is parked in the stable."
+Upon returning to the Shuntian Prefecture Yamen, Liu Yike reported the survey details to Zhong Kai point by point and handed over all the evidence collected from the carriage and the corpses.
 
-"Were there people from Delong at the scene?" Zhong Kai asked.
+"The carriage has also been brought back. It's parked in the stable."
 
-"They also arrived. The corpses have been claimed back with a bond."
+"Were Delong's people present at the scene?" Zhong Kai asked.
 
-"Master, we should summon the witnesses..." the private secretary reminded.
+"They were. The corpses have been claimed under bond."
 
-Zhong Kai pondered for a moment but said, "No hurry. Let's wait a while."
+"Master, we should summon the witnesses..." the private secretary reminded him.
 
-After all, this was a major case, and the interrogation would involve a wide range of people. Witnesses were the "ATM machines" for the clerks and bailiffs. Once summoned to the case and locked into the detention room, they would be exploited at will. It was common for a victim's family to be ruined or lose their fortune over a homicide case.
+Zhong Kai considered for a moment, then shook his head. "No hurry. Let us wait a while."
 
-Neither Zhong Kai nor Liu Yike cared whether Delong or the Leng family would be ruined or lose their fortune. But Delong had been in the capital for several years, accepting deposits from too many high officials and nobles and handling many remittances. If it suddenly collapsed because of this case causing operational turnover failure, the consequences would be unimaginable. Even someone as upright as Zhong Kai had to weigh the consequences and give Delong a buffer to make arrangements.
+After all, this was a major case, and the interrogation would sweep in a wide net of people. Witnesses were the "ATM machines" for the clerks and bailiffs. Once summoned and locked into the detention room, they would be squeezed for every copper. It was common enough for a victim's family to be ruined or bankrupted over a homicide case.
 
-Moreover, judging from Liu Yike's survey, nine out of ten chances were that this was not done by ordinary thieves; there were likely certain powers involved behind the scenes.
+Neither Zhong Kai nor Liu Yike cared particularly whether Delong or the Leng family met such a fate. But Delong had been established in the capital for several years now, holding deposits from countless high officials and nobles, handling remittances across the realm. If it suddenly collapsed due to this case—if its operational turnover failed—the consequences would be catastrophic. Even someone as upright as Zhong Kai had to weigh the implications and grant Delong a buffer to make arrangements.
 
-Using the power of Shuntian Prefecture to investigate would be constrained by all sides and might not be able to clarify the case. On the contrary, it would be more convenient to let Delong spend money to hire people to investigate the case themselves. With their financial power and social network in the capital, this was not a difficult task.
+Moreover, judging from Liu Yike's survey, nine chances out of ten this was not the work of ordinary thieves. Certain powers were likely pulling strings behind the scenes.
 
-In the living room of Heliansheng, several core members of the Beijing Station sat facing the two leading escort masters of Heliansheng. Dim light penetrated through the willow-leaf lattice of the partition door, pulling out rays of oblique light. Countless floating dust particles drifted in the light, making the air appear turbid and oppressive. The air pressure in the room was terrifyingly low; only an occasional cough revealed a trace of vitality.
+Using the resources of Shuntian Prefecture to investigate would mean constraints from every direction, and the case might never be resolved. It would be far more expedient to let Delong spend its own silver hiring people to investigate. With their financial might and social network in the capital, this was no difficult task.
 
-Li Rufeng's body was pressed against the back of the officials' hat chair. His left hand rubbed the beard under his chin, and his right hand rested loosely on the armrest, the two walnuts rolling in his palm rubbing against each other continuously, making a creaking, grating sound.
+---
 
-After a long silence, Li Rufeng looked at Wu Kaidi, staring dead into his eyes, and said slowly, "Old Wu, we of Qiwei have handled errands for the Senators not once or twice. We are all close attendants and have never made a mistake. This is Beijing City, the center of the world, a heavy ground of the metropolitan area. It has strategic advantages and solid defenses. The city prohibitions are the strictest. There is the Wardens' Office of the Five Wards during the day and the Patrol Battalion at night, patrolling ceaselessly day and night. The various wards and alleys in the city also have military patrol stations, each with heads and firemen to maintain order. Although the Great Ming is currently in decline and there have been quite a few disturbances and thefts in the capital recently, as long as one does not leave the capital, there will absolutely be no major blunders. Bandits dare not strike inside the city for this very reason."
+In the living room of Heliansheng, several core members of the Beijing Station sat facing the two leading escort masters of the establishment. Dim light filtered through the willow-leaf lattice of the partition door, drawing slanting rays across the room. Countless motes of dust drifted through the beams, lending the air a turbid, oppressive quality. The atmosphere pressed down with terrible weight; only an occasional cough broke the silence, revealing a trace of life within.
 
-Li Rufeng coughed and continued, "Therefore, the rule of the Beijing Station is that if Master Leng leaves the city, he must first notify 'Heliansheng', and extra personnel must be added for travel. But today, I didn't receive any message, and..." Li Rufeng paused here before continuing, "Mister Wu is Master Leng's shadow; why didn't you follow him today?" Li Rufeng's tone was faint, so faint it had no emotion.
+Li Rufeng's body was pressed against the back of his officials' hat chair. His left hand absently stroked the beard beneath his chin while his right rested loosely on the armrest. Two walnuts rolled against each other in his palm, their grinding contact producing a continuous, grating creak.
 
-Wu Kaidi felt quite uncomfortable being stared at by Li Rufeng. Hearing these words, he couldn't help bouncing up from his chair, his face iron-blue as he protested, "What? Escort Head Li, do you suspect me?"
+After a prolonged silence, Li Rufeng fixed his gaze on Wu Kaidi, staring hard into his eyes. His voice was slow and measured.
 
-Before Li Rufeng could speak, Liao Sanniang smiled gently from the side and interjected, "This tea smells so fragrant; it clears the heart and removes fire. Only you two, please." Her voice was raspy, carrying a trace of charm. After speaking, she ignored the others and picked up the teacup to take a sip herself.
+"Old Wu, those of us in Qiwei have handled errands for the Senators more than once or twice. We're all trusted attendants. We've never made a mistake. This is Beijing City—the center of the world, the heart of the metropolitan area. It has every strategic advantage and solid defenses. The city prohibitions are the strictest in the realm. By day there is the Wardens' Office of the Five Wards; by night, the Patrol Battalion. They make their rounds ceaselessly. The various wards and alleys have military patrol stations, each with its heads and firemen to maintain order. Though the Great Ming is in decline and there have been disturbances and thefts in the capital of late, as long as one remains within the city walls, there will be no grave mishaps. Bandits dare not strike inside the city for precisely this reason."
 
-Putting down the teacup, Liao Sanniang's expression tightened. She said solemnly to Li Rufeng, "I naturally understand the fire in both your hearts, but do not let family members resent each other. If Mister Wu truly had the heart to sell us out, this escort agency, this draft bank, and this large mansion with several courtyards would have been confiscated long ago, and our heads would have been displayed in the West Market long ago. Would we still need to wait until today?"
+Li Rufeng coughed before continuing. "Therefore, the rule of the Beijing Station is clear: if Master Leng leaves the city, he must first notify 'Heliansheng,' and additional personnel must be assigned for protection. But today, I received no message. And..." He paused, letting the silence stretch before resuming. "Mister Wu is Master Leng's shadow. Why weren't you with him today?"
 
-Wu Kaidi said from the side, "Sanniangzi is fair."
+His tone was faint—so faint it carried no emotion at all.
 
-Li Rufeng snorted coldly and spoke no more.
+Wu Kaidi squirmed under Li Rufeng's unrelenting stare. At these final words, he sprang from his chair as though stung, his face livid. "What? Escort Head Li, are you accusing me?"
 
-At this point, Liao Sanniang stood up leisurely from her seat. She was twenty-five or twenty-six years old. Even indoors at night, she still wore a cloak that almost dragged on the ground. On her long oval face were a pair of slender phoenix eyes, and a few pale white pockmarks dotted the bridge of her nose. Her seven-*chi* body was even taller than many men, giving everyone present an indescribable sense of pressure.
+Before Li Rufeng could respond, Liao Sanniang interjected from the side with a gentle smile. "This tea has such a lovely fragrance—it clears the heart and cools the temper. Please, both of you, have some." Her voice was husky, carrying a faint trace of allure. Without waiting for their response, she ignored the others and lifted her own teacup to take a sip.
 
-After standing up, Liao Sanniang looked around at everyone, paused, and then continued, "With this incident happening, what is the first thing everyone here thinks of?"
+Setting down the cup, Liao Sanniang's expression hardened. She spoke solemnly to Li Rufeng. "I understand the fire burning in both your hearts, but do not let suspicion turn family members against each other. If Mister Wu truly intended to sell us out, this escort agency, this draft bank, this grand mansion with its several courtyards—all of it would have been confiscated long ago. Our heads would already be on display at the West Market. Why would he wait until today?"
 
-The few people present were all stunned. They looked at each other, but no one spoke.
+"Sanniangzi speaks fairly," Wu Kaidi said from beside her.
 
-Liao Sanniang giggled and said, "Let me say it openly for everyone. What you are all plotting in your hearts is *Tao Zhi Yao Yao* [fleeing/escaping]."
+Li Rufeng snorted coldly but said nothing more.
 
-As soon as these words came out, the faces of everyone present changed. Immediately, a Beijing Station member stood up and shouted loudly, "Liao Sanniang, what nonsense are you talking about here!"
+Liao Sanniang rose leisurely from her seat. She was twenty-five or twenty-six years of age. Even indoors at night, she still wore a cloak that nearly brushed the floor. Her long oval face was dominated by a pair of slender phoenix eyes, and a scattering of pale pockmarks dotted the bridge of her nose. Her seven-*chi* frame stood taller than many men, and her presence exerted an indescribable pressure upon everyone in the room.
 
-Liao Sanniang sneered and said, "Assistant Manager Xiao, just now when you left home, what did you instruct your page boy? What about packing up? What about rolling up the bundle? What about Delong's silver?"
+Once standing, she swept her gaze across those assembled, paused, and then spoke again. "Now that this incident has occurred, what is the first thought in everyone's mind?"
 
-Everyone's eyes suddenly became strange, all looking at that Assistant Manager Xiao together. At the same time, the colors on their faces changed, obviously showing they all had things on their minds. Assistant Manager Xiao's face flushed red instantly, and he shouted sternly, "Slut! How dare you practice the ways of the Factory and Guard!"
+The few people present sat stunned. They exchanged glances, but no one dared speak.
 
-After pausing for a moment, Assistant Manager Xiao thought of something, and his face suddenly turned pale. He trembled, "You, you are from the Political Security Bureau!"
+Liao Sanniang gave a soft laugh. "Allow me to say it plainly for everyone. What you are all scheming in your hearts is *Tao Zhi Yao Yao*—fleeing."
 
-There was a commotion among the people in the room.
+The words fell like a thunderclap. Every face in the room changed color. One of the Beijing Station members leapt to his feet and shouted, "Liao Sanniang! What nonsense are you spouting?"
 
-Liao Sanniang walked to the hall door and looked through the half-open door crack into the courtyard. The branches and leaves of the ancient tree in the courtyard were sparse. The autumn wind was bleak, shaking down a patch of autumn leaves.
+Liao Sanniang's lip curled in a sneer. "Assistant Manager Xiao, what instructions did you give your page boy when you left home just now? Something about packing up? Rolling up a bundle? And Delong's silver?"
 
-Liao Sanniang wrapped the cloak tighter around her body and muttered to herself, "The weather has turned cold; one leaf reveals the autumn."
+Every eye in the room turned strange, swiveling toward Assistant Manager Xiao. At the same time, the colors on their faces shifted—clearly, they all had guilty consciences of their own. Assistant Manager Xiao's face flushed crimson, and he shouted harshly, "Slut! How dare you practice the ways of the Factory and Guard!"
 
-After finishing her soliloquy, she turned around, shook her head at Assistant Manager Xiao, and said, "Assistant Manager Xiao is overthinking. Qiwei is Qiwei; it is not Political Security, nor Military Intelligence. It is just that being in a dangerous place at an extraordinary time, one must use extraordinary means." After speaking, she paced slowly as if no one else was present. Everyone's gaze moved slowly with her figure.
+After a moment's pause, a new thought struck him. His face drained to ashen white. He trembled as he spoke. "You... you are from the Political Security Bureau!"
 
-Liao Sanniang continued, "Losing a Senator is something that has never happened since the Great Song established the state in Lingao. To the Great Ming, I fear it is equivalent to losing an Imperial Prince. This is a hole as big as the sky; even if Goddess Nuwa came, she couldn't fill it. No one can shoulder this responsibility. It is unknown if we will all be dragged out and shot. It is true that everyone is afraid; wanting to survive is also human nature."
+A commotion rippled through the room.
 
-Hearing these words, sweat appeared on the foreheads of everyone present.
+Liao Sanniang walked to the hall door and gazed through the half-open crack into the courtyard beyond. The branches of the ancient tree stood sparse and bare. The autumn wind moaned, shaking loose a scattering of withered leaves.
+
+She wrapped her cloak tighter around herself and murmured, "The weather has turned cold. One leaf reveals the autumn."
+
+Her soliloquy finished, she turned back to face Assistant Manager Xiao and shook her head. "Assistant Manager Xiao overthinks the matter. Qiwei is Qiwei—not Political Security, nor Military Intelligence. But in a dangerous place, at an extraordinary time, one must employ extraordinary means." She began to pace slowly, as though oblivious to everyone watching. Their gazes followed her figure as it moved.
+
+Liao Sanniang continued, "Losing a Senator is something that has never happened since the Great Song established itself in Lingao. To the Great Ming, I imagine it would be equivalent to losing an Imperial Prince. This is a hole as vast as the sky itself—even if Goddess Nuwa descended, she could not fill it. No one can shoulder this responsibility. Whether we will all be dragged out and shot remains to be seen. It is only natural that everyone is afraid. The desire to survive is human nature."
+
+At these words, beads of sweat appeared on every forehead in the room.
 
 **(End of Chapter)**

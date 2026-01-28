@@ -1,105 +1,105 @@
 # Chapter 2777: The Capital (Part 133)
 
-"Sir, after leaving the Zhou residence, should I drop by Master Wang's residence to report this matter?" Wang Zhi hesitated for a moment and asked, "This is a big matter within the family, we should let them know."
+"Sir, after leaving the Zhou residence, should I stop by Master Wang's residence to report this matter?" Wang Zhi hesitated before asking. "This is a significant family affair—we should inform them."
 
-"What you said is correct, but you cannot go personally." Zhou Lezhi said, "Outside this Zhou residence, there might be eyes of the Kun thieves. You must be careful when you come back. Make sure not to have a tail."
+"What you say is correct, but you cannot go personally," Zhou Lezhi replied. "The Kun may have eyes watching this residence. Be careful when you return, and make certain you're not followed."
 
 "This lowly one understands."
 
-He thought for a moment and added: "When you go, bring more shop assistants and coolies from the porter guild, carry some random things casually. Come out together when you leave."
+Zhou Lezhi thought for a moment, then added, "When you go, bring along several shop assistants and coolies from the porter guild. Have them carry random goods, and leave together as a group."
 
-"Someone is peeping at Mr. Zhou's residence?" Xu Ke heard the report from the messenger sent by Third Sister and asked with great interest.
+"Someone is watching Mr. Zhou's residence?" Xu Ke asked with great interest after receiving the report from Third Sister's messenger.
 
-"Yes!" The messenger reported the situation to Xu Ke in detail, "...Third Sister's intention is to intercept the person at Tongzhou after they succeed. This way, we won't alarm the Wang family and can also save the person."
+"Yes!" The messenger relayed the situation in detail. "Third Sister's intention is to intercept them at Tongzhou after they succeed. This way, we avoid alarming the Wang family while still saving the person."
 
-Xu Ke smiled: "Third Sister is quite soft-hearted! Fine, I approve her plan. Go back and remind her that once this matter comes out, the Wang family people, and that Zhou Lezhi, will probably all pay attention to the residence at Wanggong Factory. There might likely be clues. Ask her to pay more attention."
+Xu Ke smiled. "Third Sister is quite soft-hearted! Very well, I approve her plan. Go back and remind her that once this matter comes to light, the Wang family—and that Zhou Lezhi—will likely turn their attention to the residence at Wanggong Factory. There may be clues to uncover. Tell her to stay vigilant."
 
-After the messenger left, Xu Ke originally didn't take this news to heart. For his mission, this didn't count as a big matter. Besides, Wanggong Factory wasn't their surveillance priority originally. There were no important figures inside, and the surveillance records were really dull and uninteresting.
+After the messenger departed, Xu Ke initially paid the news little mind. For his mission, this hardly counted as a significant matter. Besides, Wanggong Factory had never been their surveillance priority. No important figures resided there, and the surveillance records were dreadfully dull.
 
-Thinking of this, he suddenly remembered something. He went back to the room and flipped out the surveillance records of the Zhou residence at Wanggong Factory from the past few days, flipping through them page by page.
+Yet as he considered this, something stirred in his memory. He returned to his room and retrieved the surveillance records for the Zhou residence at Wanggong Factory from the past few days, leafing through them page by page.
 
-Not flipping through a couple of pages, he discovered that a teenager had been hovering around the Zhou residence in the past two days. According to the records, since the surveillance of the Zhou residence started a month ago, this was already the third time this person had been seen used.
+He had barely turned a few pages when he discovered that a teenager had been lingering near the Zhou residence over the past two days. According to the records, since surveillance of the residence began a month ago, this marked the third time this individual had been spotted.
 
-The surveillance post immediately sent out a two-person team to track him, but the teenager's movements were quite strange. Finally, at the temple fair of Yongguang Temple, due to the large crowd and complex terrain, they lost track of him.
+The surveillance post had immediately dispatched a two-person team to track him, but the teenager's movements proved erratic. Eventually, at the temple fair of Yongguang Temple, amid the dense crowds and confusing terrain, they lost him.
 
-Reviewing this record again now, Xu Ke suddenly felt that this teenager might be problematic.
+Reviewing this record now, Xu Ke suddenly suspected that this teenager might be problematic.
 
-Wanggong Factory was not a lively place. Less than ten years ago, it was blown into a pile of ruins, and it hasn't been completely cleaned up until now. There were very few residents, let alone any industry or commerce. What was the intention of a teenager wandering around here again and again?
+Wanggong Factory was hardly a bustling area. Less than ten years ago, it had been blasted into a heap of ruins, and the debris still hadn't been fully cleared. Few residents remained, and commerce was virtually nonexistent. What purpose could a teenager have in wandering around here repeatedly?
 
-Either he was a member of the abduction group, or he was Shi Weng (Stone Old Man)'s person, responsible for monitoring the movements outside the Zhou residence.
+Either he was a member of the abduction ring, or he belonged to Shi Weng—the Stone Old Man—tasked with monitoring activity outside the Zhou residence.
 
-Xu Ke felt the latter possibility was not high. If Shi Weng wanted to watch over these women and children, he only needed to send people inside the residence. Why go to such trouble to deploy people outside for control? Judging from the surveillance report, besides the four women and children, there were two other families guarding the residence, with nearly ten male and female servants. It was enough for both serving and guarding.
+Xu Ke considered the latter possibility unlikely. If Shi Weng wished to keep watch over these women and children, he need only station people inside the residence. Why go to such trouble deploying watchers outside? According to the surveillance report, besides the four women and children, two other families served as guardians, with nearly ten male and female servants between them. That was more than sufficient for both service and protection.
 
-Thinking of this, he decided not to spend more thought on this and continued to place the search focus on Wang Yehao, Jin Wenchi, Liu Zhao, and others.
+With this reasoning, he decided not to dwell on the matter further and instead kept his investigative focus on Wang Yehao, Jin Wenchi, Liu Zhao, and the others.
 
-In the process of monitoring Wang Yehao, Xu Ke discovered a very interesting thing: Wang Yehao was actively campaigning in private, seeking a transfer to the post of Governor of Shandong.
+In the course of monitoring Wang Yehao, Xu Ke discovered something fascinating: Wang Yehao was actively campaigning in private circles, seeking a transfer to the post of Governor of Shandong.
 
-He had read Wang Yehao's short biography carefully. According to the normal historical process, Vice Minister Wang would be dismissed from office at the end of the year and disappear from the political stage of the late Ming dynasty from then on.
+He had studied Wang Yehao's biographical summary carefully. According to the normal course of history, Vice Minister Wang would be dismissed from office by year's end and vanish from the political stage of the late Ming dynasty thereafter.
 
-Now he was campaigning for a transfer so actively, could it be because he knew his "future"?
+Now he was campaigning for a transfer with such urgency—could it be because he knew his "future"?
 
-Starting from suspecting that "Mr. Zhou" was a transmigrator, Xu Ke knew that there must be "foreknowing the future" happening. Wang Yehao being so anxious and busy with the transfer was likely based on the "future." But then again, since Mr. Zhou "foreknew the future," he probably also said the fact that the Great Ming had less than ten years of life left. Why was Wang Yehao still struggling here to arrange various conspiracies? Even without them "Kun thieves," the roving bandits and the Manchus would take the Great Ming's life.
+Ever since suspecting that "Mr. Zhou" was a transmigrator, Xu Ke had known that some form of "foreknowledge" must be at play. Wang Yehao's anxious maneuvering for a transfer was likely motivated by this "future." But then again, if Mr. Zhou "foreknew the future," he had probably also revealed that the Great Ming had less than a decade left. Why was Wang Yehao still scheming and plotting here? Even without the Kun, the roving bandits and the Manchus would spell the empire's doom.
 
-Could it be that Wang Yehao had the intention of imitating his ancestor? Speaking of which, it was not impossible. As for the specific situation, it would probably only be known when it was possible to talk to him face to face.
+Could it be that Wang Yehao harbored ambitions of emulating his ancestor? Come to think of it, that wasn't impossible. As for the specifics, those would probably only become clear when they could speak face to face.
 
 "This Wang Yehao is quite an interesting character!"
 
 ***
 
-Third Sister obtained Xu Ke's approval and immediately started handling the matter. The bodyguard agency had many connections in the *Jianghu*, and they had deliberately made friends in recent years, so the news was quite well-informed. Soon they knew that the one acting as the go-between for Pan Cheng'an was not a family member in the Zhou residence, but a famous "Medicine Crone" in the Wanggong Factory area.
+Third Sister obtained Xu Ke's approval and immediately set to work. The bodyguard agency maintained extensive connections throughout the *Jianghu*, and they had deliberately cultivated relationships in recent years, keeping their intelligence networks well-informed. Soon they learned that the go-between for Pan Cheng'an was not a family member from the Zhou residence, but a locally renowned "Medicine Crone" from the Wanggong Factory area.
 
-Medicine Crone was one of the so-called "Three Aunts and Six Grannies." In fact, this was not a formal profession. Practitioners were mostly middle-aged and elderly housewives, mostly glib-tongued, knowing a little "pharmacology," and having some unique secret recipes in hand.
+Medicine Crones belonged to the so-called "Three Aunts and Six Grannies." In truth, this was no formal profession. Its practitioners were mostly middle-aged and elderly housewives—typically silver-tongued women who knew a smattering of "pharmacology" and possessed a few unique secret recipes.
 
-The boudoir women of big hoseholds lived in the boudoir for a long time and could not go out easily. They lacked exercise and were mostly depressed, so their physical conditions were mostly poor. Unhealthy lifestyles and backward sanitary conditions often caused them to have various gynecological diseases, especially after giving birth to children.
+The boudoir women of great households spent their lives confined to inner chambers, rarely venturing outside. They lacked exercise and often suffered from melancholy, leaving them in generally poor health. Their unhealthy lifestyles and primitive sanitary conditions frequently resulted in various gynecological ailments, particularly after childbirth.
 
-Although there were doctors good at gynecology in medical clinics or traveling doctors, most big households were unwilling to invite doctors for consultation. Moreover, the prescriptions prescribed were mostly for conditioning, with long courses of treatment but mediocre efficacy.
+Though medical clinics and traveling doctors included physicians skilled in women's medicine, most wealthy households proved reluctant to invite doctors for consultations. Moreover, the prescribed remedies were typically meant for gradual conditioning—lengthy courses of treatment with mediocre efficacy.
 
-Medicine Crones often had a few "ancestral secret recipes" of pills, which were often "effective instantly" for common gynecological diseases. They also had "secret medicines" like "seeking a son," "increasing affection," "contraception," "abortion"... which were inconvenient to talk about with others.
+Medicine Crones, however, often possessed a handful of "ancestral secret recipes" in pill form, which frequently proved "instantly effective" for common gynecological complaints. They also trafficked in "secret medicines" for purposes like "seeking a son," "increasing affection," "contraception," and "abortion"—matters inconvenient to discuss with others.
 
-Although the Three Aunts and Six Grannies were despised by people at the time, and some families even denounced them as "disasters coming to the door" and strictly forbade them from entering, their existence catered to the various needs of women in the deep boudoir. Big households still inevitably had to deal with them.
+Although the Three Aunts and Six Grannies were looked down upon in their time, with some families even denouncing them as "disasters at the door" and strictly forbidding their entry, their existence catered to the various needs of women sequestered in deep boudoirs. Even great households inevitably had to deal with them.
 
-"This crone is surnamed Shi. She is quite famous here. What she is best at is treating women's menstrual pain." Zhao Liangjian said, "A small pill, effective instantly after taking it. It's just ridiculously expensive. One hundred pills cost one tael of silver."
+"This crone is surnamed Shi. She's quite famous around here," Zhao Liangjian explained. "Her specialty is treating women's menstrual pain. A single small pill, effective immediately after taking it. Though the price is outrageous—one hundred pills for a tael of silver."
 
-"Oh, this is her unique skill then." Third Sister was also a woman and knew the *Jianghu* methods of these women. "Three truths and seven fakes" were their usual routines. If it was all fake, this business couldn't go on.
+"Ah, so that's her unique skill." Third Sister, being a woman herself, understood the *Jianghu* methods these women employed. "Three truths and seven fakes" was their standard approach. If everything were false, the business couldn't survive.
 
-This Granny Shi was a frequent visitor to the Zhou residence, going back and forth two or three times almost every month. Because she had "done business" for a long time and was good at flattering and coaxing people, her relationship with the family members in the residence was very good. Entering and leaving was very convenient.
+This Granny Shi was a frequent visitor to the Zhou residence, coming and going two or three times nearly every month. Having "conducted business" for so long and being skilled at flattery and sweet talk, she had cultivated excellent relationships with the household members. Her comings and goings proceeded without hindrance.
 
-The abduction routines of seducing women and running away with valuables mostly started with the Three Aunts and Six Grannies acting as illicit matchmakers. This matter in the Zhou residence did not give Third Sister much surprise.
+Abduction schemes involving seduced women and stolen valuables typically began with the Three Aunts and Six Grannies serving as illicit matchmakers. The situation at the Zhou residence came as no surprise to Third Sister.
 
-"Let's not talk about these messy things." She instructed Zhao Liangjian, "But if this woman is taken out, you must keep an eye on her in time—as soon as she leaves the boundary of the Capital, intercept the person. I don't care what method you use."
+"Let's set aside these sordid details," she instructed Zhao Liangjian. "But once this woman is taken out, you must keep close watch on her. The moment she crosses beyond the Capital's boundaries, intercept her. I don't care what method you use."
 
-"Any disposal after interception, please give instructions, Third Sister."
+"How should we dispose of her after interception? Please advise, Third Sister."
 
-"Find a place to keep watch first." Actually, she herself didn't know how to dispose of her, so she had to take one step and look at the next.
+"Find a place to hold her under guard for now." In truth, she herself didn't know what to do with the woman and would have to take things as they came.
 
-Granny Shi was very proud today. Since she accepted Pan Cheng'an's two taels of silver to deliver news for him and secretly matchmake, it had been more than three months now. Two months ago, she actually got the thing done.
+Granny Shi felt quite pleased with herself today. Since accepting Pan Cheng'an's two taels of silver to serve as his messenger and secret matchmaker, more than three months had passed. Two months ago, she had actually brought the matter to fruition.
 
-This Master Pan was very generous with his spending. After the meeting at Ganlu Nunnery, he actually gave another two taels of silver, asking her to continue communicating in between. Granny Shi was overjoyed, knowing this was a long-term business.
+This Master Pan spent money freely. After the meeting at Ganlu Nunnery, he had given her another two taels of silver, asking her to continue facilitating communications. Granny Shi was overjoyed, recognizing this as a long-term business opportunity.
 
-What Master Pan did, Granny Shi also had some experience in the *Jianghu*. Although Pan Cheng'an claimed to be a "Jiangnan Scholar," he had no Jiangnan accent at all. Such a graceful young man who had no roots locally but was "Pan, Donkey, Deng, Small, Idle" (handsome, well-endowed, rich, considerate, idle—attributes of a perfect lover), one could know with closed eyes that he was "abducting women."
+As for what Master Pan was truly up to, Granny Shi possessed enough *Jianghu* experience to guess. Though Pan Cheng'an claimed to be a "Jiangnan Scholar," his accent bore no trace of Jiangnan. Such a graceful young man with no local roots, yet possessing all five qualities of "Pan, Donkey, Deng, Small, Idle"—handsome, well-endowed, wealthy, attentive, and leisured, the attributes of a perfect lover—one could tell with eyes closed that he was in the business of "abducting women."
 
-Seeing through it but not saying it, and even more so not ruining other people's business, this was the rule of *Jianghu* people. Three Aunts and Six Grannies were also considered *Jianghu* ways, so Granny Shi pretended not to know. Firstly, Pan Cheng'an gave money readily; secondly, matters like concubines running away privately were common in big households. The parties involved mostly settled the matter peacefully and pretended it didn't happen to avoid affecting the family reputation.
+Seeing through it yet saying nothing, and certainly not spoiling another's scheme—such was the code of *Jianghu* folk. The Three Aunts and Six Grannies also followed *Jianghu* ways, so Granny Shi pretended ignorance. For one thing, Pan Cheng'an paid readily; for another, affairs like concubines running off were common in great households. The involved parties usually settled matters quietly and pretended nothing had happened, lest the family's reputation suffer.
 
-But while she didn't ruin Pan You'an's (reference to a handsome lover character) business, she also had her own plans. After all, You Rong was her long-term customer. If she was really abducted, her business would naturally be greatly engaged (discounted). Maybe she would be forbidden from entering the door from then on, which was unknown. So this business couldn't let the one surnamed Pan do it too easily. She had to squeeze more profit out of it.
+Yet while she wouldn't ruin Pan You'an's business—thinking of him now as the legendary handsome lover—she had her own calculations. After all, You Rong was her long-term customer. If the woman were truly abducted, her business would naturally suffer. Perhaps she would even be barred from the residence thereafter—who could say? So this business couldn't proceed too easily for the one surnamed Pan. She needed to squeeze more profit from the arrangement.
 
-Although Granny Shi came and went frequently in the Zhou residence, a person of her status routinely did not go through the front door but entered and left through the back door.
+Though Granny Shi came and went frequently at the Zhou residence, a person of her status didn't customarily use the front entrance. Instead, she entered and exited through the back door.
 
-Arriving at the back door, she knocked on the door knocker two or three times lightly, and the door opened. The one opening the door was Liu Qi'er (Liu the Seventh's Wife), a middle-aged woman who served here with her husband. Granny Shi knew the couple was quite capable and was in charge of the residence entrusted by the master, so she deliberately roped them in, occasionally using small favors to flatter them.
+Arriving at the back door, she rapped the knocker lightly two or three times. The door opened to reveal Liu Qi'er—Seventh Liu's Wife—a middle-aged woman who served here alongside her husband. Granny Shi knew the couple was quite capable and had been entrusted with managing the residence by the master himself, so she deliberately cultivated their favor, occasionally winning them over with small gestures.
 
-"Why so late today?" Liu Qi'er complained, "I came to the back to look several times, but didn't see you come!"
+"Why so late today?" Liu Qi'er complained. "I came back here to check several times but never saw you arrive!"
 
-"It's been cold these few days, my old body aches all over, couldn't go out. Today the sun has warmed up a bit, had to wait until the sun was high up to go out and do some business..." Granny Shi chattered, talking about street trivia and family gossip while walking. This was an excellent pastime for women trapped inside the house for a long time.
+"It's been cold these past few days, and my old bones ache all over. Couldn't venture outside. Today the sun warmed up a bit, so I had to wait until it was high in the sky before going out to conduct my business..." Granny Shi chattered away, gossiping about street trivia and household affairs as they walked. Such talk provided excellent diversion for women long confined within walls.
 
-Hearing her talk about the news outside, Liu Qi'er said with a smile: "You came just right! Miss You Rong has been talking about you these few days! Saying you never seem to come." After saying that, she lowered her voice, "The recipe for seeking a son I asked you for last time, do you have it?"
+Hearing her speak of outside news, Liu Qi'er said with a smile, "You've come at just the right time! Miss You Rong has been asking about you these past few days, saying you never seem to visit." Then she lowered her voice. "That recipe for seeking a son I asked you about last time—have you found it?"
 
-Liu Qi'er and her husband were nearly forty, and their knees were still empty (childless). For a slave family like theirs, serious medical treatment and medicine were not affordable (conditional); they could only seek help from such "folk prescriptions."
+Liu Qi'er and her husband were approaching forty, yet their knees remained empty. For a servant family like theirs, proper medical treatment was beyond their means; they could only seek help from such "folk remedies."
 
-Naturally, Granny Shi wouldn't say "no." Hearing her request, she boasted that she knew eunuchs and could copy the imperial recipe for seeking a son from the Great Within (Imperial Palace).
+Naturally, Granny Shi wouldn't say "no." Hearing this request, she boasted that she knew certain eunuchs and could copy the imperial recipe for seeking sons from within the Great Within—the Imperial Palace itself.
 
-She naturally knew a few eunuchs, but this imperial recipe for seeking a son was purely fictitious. It was just a method to raise her own value.
+She did indeed know a few eunuchs, but this imperial recipe for seeking sons was pure fabrication—merely a method to inflate her own importance.
 
-But she did have a few recipes for regulating menstruation and aiding pregnancy in hand, which also had some effects.
+Still, she did possess a few genuine recipes for regulating menstruation and aiding conception, which had some effect.
 
-Immediately she pretended to be mysterious: "This matter took this old body great effort. It's just that the Eunuch doesn't know the compatibility of this recipe either; it was all brought by Imperial Physicians after mixing the medicine..."
+Immediately she assumed an air of mystery. "This matter cost this old body considerable effort. It's just that the Eunuch himself doesn't know how to compound the recipe—it was always brought by Imperial Physicians after they'd mixed the medicines..."
 
 (End of Chapter)

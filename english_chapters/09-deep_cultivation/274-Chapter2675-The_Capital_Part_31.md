@@ -1,131 +1,131 @@
 # Chapter 2675: The Capital (Part 31)
 
-"So it is a token." Liu Sha carefully put away the folding fan.
+"So it is a token." Liu Sha carefully tucked away the folding fan.
 
-"Your Excellency walks the *Jianghu* as a person outside the secular world; do you have a religious name?"
+"Your Excellency walks the *Jianghu* as one beyond the secular world—do you have a religious name?"
 
-"Don't have a religious name yet." Liu Sha scratched his head. "But I have a nickname, called 'Liu Mutou' [Liu Wood/Blockhead]."
+"Not yet." Liu Sha scratched his head. "Though I do have a nickname: 'Liu Mutou' [Liu Wood/Blockhead]."
 
-Wang Yehao laughed *puchi* hearing this: "It happens to correspond to the order of Five Elements. 'Jinshi' [Metal-Stone] is already in the residence; your Excellency shall be called 'Mushi Daoist' [Wood-Stone Daoist] from now on."
+Wang Yehao let out a *puchi* of laughter upon hearing this. "How fitting—it corresponds perfectly to the order of the Five Elements. 'Jinshi' [Metal-Stone] already resides in this household; from now on, Your Excellency shall be known as 'Mushi Daoist' [Wood-Stone Daoist]."
 
-"Thank the Master for bestowing the name." Liu Sha bowed with cupped hands.
+"This humble one thanks the Master for bestowing such a name." Liu Sha bowed with cupped hands.
 
-"You presumably know that my residence does not lack people to use. The reason for using you also has a cause."
+"You presumably understand that my residence does not lack capable people. The reason I've chosen to employ you specifically has its own purpose."
 
 "Yes, this small one understands!"
 
-"Don't break your past relationships with those brothers in the Yamen and outside."
+"Do not sever your old relationships with those brothers in the Yamen and beyond."
 
-Liu Sha knew what this Master Wang fancied was his network in the *Zhenfusi*. It seemed this Master Wang's plot was not small. However, as long as it wasn't rebellion, it didn't matter what he did. Having worked in the *Zhenfusi* for many years, he could be counted as "bold" and "careful." He knew that as long as one didn't stand in the wrong line, acting recklessly was actually an advantage.
+Liu Sha immediately grasped what Master Wang valued most: his network within the *Zhenfusi*. It seemed this Master Wang harbored no small ambitions. However, as long as it wasn't outright rebellion, Liu Sha cared little about his employer's machinations. Having served in the *Zhenfusi* for many years, he could be counted among those who were both "bold" and "careful." He knew well that as long as one didn't back the wrong side, a certain recklessness was actually an advantage.
 
-"Yes, entirely at the Master's orders."
+"Yes, entirely at the Master's command."
 
-"Good." Wang Yehao beckoned the other party forward and instructed in a low voice, "Go find a house in the city; it must be remote and quiet. Settle the two maids there."
+"Good." Wang Yehao beckoned him forward and instructed in a low voice, "Find a house in the city—it must be remote and quiet. Settle the two maids there."
 
-"Master, is this?" Liu Sha was full of suspicion. Judging by the situation just now, it didn't look like hiding a beauty in a golden house.
+"Master, what is this about?" Liu Sha was filled with suspicion. Judging by what he had just witnessed, this didn't seem like a case of hiding a beauty in a golden house.
 
-"No need to ask more. Just get it done; there will be plans in the future."
+"No need to ask further. Just see it done; there will be plans in due time."
 
 "This small one understands."
 
-After instructing the matters, Wang Yehao didn't let Liu Sha leave but pulled out a booklet from the compartment of the desk and asked: "Do you recognize the incantations in the booklet?"
+After issuing his instructions, Wang Yehao did not dismiss Liu Sha. Instead, he pulled a booklet from a compartment in his desk and asked, "Do you recognize the incantations in this booklet?"
 
-Before returning the notebook with the code to Mr. Zhou, Wang Yehao had secretly copied a version. For the past year, whenever he was free, he would secretly take it out to study, but unfortunately, he never found the gateway.
+Before returning the notebook with its coded contents to Mr. Zhou, Wang Yehao had secretly copied it. Over the past year, whenever he found a spare moment, he would take it out to study in private. Unfortunately, he had never managed to unlock its secrets.
 
-Liu Sha flipped through it for half a day and could only shake his head: "Forgive my shallow talent; I haven't learned this kind of incantation."
+Liu Sha flipped through it for quite some time before finally shaking his head. "Forgive my shallow learning—I've never encountered this type of incantation."
 
 "No clue at all?"
 
-"There are thousands of spell methods in the world; every sect has secret arts not passed down. I wonder where the Master got this book. If the sect is known, perhaps I can find someone to interpret one or two."
+"There are thousands of spell methods in the world, and every sect guards secret arts that are never passed down. Might I ask where the Master obtained this book? If the sect is known, perhaps I could find someone to interpret a portion of it."
 
-"Speaking of it, it was really a coincidence. This Official also doesn't know which sect this object belongs to. If you don't know, then treat it as if this Official never asked about this matter. Do not mention it again." Wang Yehao put the booklet away again. "Go to the accounting room to collect one hundred taels of silver and go handle the affairs."
+"To be honest, it was a complete coincidence. This Official has no idea which sect this belongs to. If you cannot help, then consider the matter unasked. Do not mention it again." Wang Yehao put the booklet away. "Go to the accounting room to collect one hundred taels of silver, then attend to the business I've assigned you."
 
-Liu Sha answered "Nuo" and stood up to leave.
+Liu Sha answered "Nuo" and rose to take his leave.
 
-Wang Yehao looked at "Wood Stone" leaving, thoughtful. Recruiting more manpower certainly helped, but the household expenses also increased. Especially in the last two years, to grasp the direction in the treacherous court situation, he spent a large amount of money. Although he collected quite a bit when he was the Imperial Commissioner in Guangdong, balancing the big account showed a significant loss.
+Wang Yehao watched "Wood Stone" depart, his expression thoughtful. Recruiting more manpower certainly proved useful, but household expenses had grown accordingly. Especially in these past two years, grasping the shifting currents of the treacherous court situation had required substantial expenditures. Though he had collected a respectable sum during his tenure as Imperial Commissioner in Guangdong, a careful accounting of the larger ledger revealed a significant shortfall.
 
-The Wang family could be considered a family of officials for generations, but in these recent two generations, not many served as officials, and there wasn't much accumulation of family wealth. He himself had been a capital official for a long time and hadn't been posted outside. Therefore, he cared quite a bit about "opening sources" [increasing income].
+The Wang family could claim a lineage of officials stretching back generations, but in recent times, few had actually held office, and the accumulated family wealth had dwindled considerably. Wang Yehao himself had spent many years as a capital official without ever being posted to the provinces—lucrative opportunities that others exploited freely. Consequently, he took the matter of "opening sources" quite seriously.
 
-However, there was no one with a business mind in the family. The contributions from merchants could only be fixed filial respects, plus land rent income. Compared to common people, it was naturally affluent, but it was far from being wealthy. When chatting idly with Immortal Zhou, they also talked about the Art of *Tao Zhu* [Business]. Immortal Zhou was very arrogant, saying as long as the Universe Mirror was in hand, he could touch stone into gold. Any amount of silver would be no problem.
+Unfortunately, there was no one in the family with a head for commerce. The contributions from merchants amounted to fixed regular payments, supplemented only by land rent income. Compared to common people, it was certainly affluent, but it fell far short of true wealth. During idle conversations with Immortal Zhou, they had touched upon the Art of *Tao Zhu* [Business]. Immortal Zhou was remarkably confident, claiming that once the Universe Mirror was in his hands, he could touch stone and turn it to gold. Any sum of silver would present no difficulty.
 
-This Universe Mirror seemed to exist yet not exist, so naturally one couldn't count on it for sure. However, Immortal Zhou did mention a few businesses.
+This Universe Mirror seemed to exist in a state between presence and absence, so one could hardly count on it with certainty. However, Immortal Zhou had mentioned several business ventures.
 
-One was making wine. The area of Shaoxing was originally famous for making wine, and the Wang family also had a small winery. But making wine required good water. In Shaoxing, the best water to use was Jianhu Lake water. But the lake water was limited, and many wineries used it. The Wang family's winery couldn't monopolize it.
+The first was winemaking. The Shaoxing region was already famous for its wines, and the Wang family even possessed a modest winery. But quality wine required quality water. In Shaoxing, the finest water came from Jianhu Lake. Yet the lake's water was limited, shared among many wineries. The Wang family's operation could never hope to monopolize it.
 
-The areas of Shaoxing, Jinhua, and Dongyang had many mountains and a mild climate. There was no lack of grain for making wine or high-quality water sources. The most famous high-end yellow wine of the Great Ming, Jinhua Wine, came from this area. However, the brewing industry required a large amount of water. Water sources with both good quality and sufficient quantity were not many. Simply wanting to expand the scale of winemaking or setting up new wineries was a troublesome matter. Wang Yehao's family didn't have such talent to run around for this purpose.
+The regions of Shaoxing, Jinhua, and Dongyang were blessed with abundant mountains and a mild climate. There was no shortage of grain for brewing or high-quality water sources. Jinhua Wine, the most famous premium yellow wine of the Great Ming, originated from this very area. However, the brewing industry demanded enormous quantities of water, and sources that combined both excellent quality and sufficient volume were rare. Simply expanding an existing winery's scale or establishing new ones was a troublesome endeavor. The Wang family lacked anyone with the talent to run about securing such resources.
 
-Mr. Zhou's idea was different from his. The category of yellow wine had been done to death in the Great Ming; everyone from the Emperor down to the commoners drank it. Just speaking of production areas, there were many: Shanxi, Shandong, South Zhili, Zhejiang, etc., all produced yellow wine. Both taste and grade were fully occupied. So his idea was to make White Liquor—also called "Fire Wine" at that time.
+Mr. Zhou's perspective differed entirely. Yellow wine had been done to death in the Great Ming—everyone from Emperor to commoner drank it. Speaking of production regions alone, there were many: Shanxi, Shandong, South Zhili, Zhejiang, and more all produced yellow wine. Every niche of taste and grade had been thoroughly occupied. Therefore, his proposal was to make White Liquor—also known as "Fire Wine" in those days.
 
-But White Liquor had a spicy and stimulating taste and high alcohol content. The customer group wasn't large, mostly lower-class commoners. Especially soldiers and bottom-layer laborers were the majority. So it couldn't sell for a price. Wang Yehao sniffed at it.
+But White Liquor had a sharp, stimulating taste and high alcohol content. The customer base was limited, consisting mostly of lower-class commoners. Soldiers and bottom-tier laborers made up the majority. As a result, it couldn't command premium prices. Wang Yehao had sniffed at the suggestion.
 
-But Mr. Zhou said it didn't matter. He said he had a way to brew white liquor with better taste and better grain usage that didn't test water quality too much. He also said as long as the cost was low and sales channels were wide, selling more would naturally make big money.
+But Mr. Zhou remained undeterred. He claimed to possess a method for brewing white liquor with superior taste and better grain efficiency that placed few demands on water quality. He further argued that as long as costs remained low and sales channels spread wide, high volume would inevitably yield substantial profits.
 
-"Now the court uses troops in Liaodong. That covers bitter cold lands. Soldiers guarding the border, shouldn't they have a few mouthfuls of *Shao Dao Zi* [burning knife liquor] to warm their bodies? With an army of over a hundred thousand, if each person drinks half a tael or one tael a month, how much can be sold?"
+"The court now campaigns in Liaodong—bitter cold lands. Soldiers guarding those frozen borders, shouldn't they have a few mouthfuls of *Shao Dao Zi* [burning knife liquor] to warm their bodies? With an army of over a hundred thousand, if each man drinks half a tael or one tael per month, can you imagine the sales?"
 
-Later he mentioned many other avenues for making money: matches, fragrant soap, MSG, swivel chairs, cosmetics, perfume, dyes, medicine... a total of no less than twenty or thirty kinds. He also said he wanted to build windmills and waterwheels, smelt steel, burn lime to make caustic soda... Wang Yehao listened in a fog, feeling it was all nonsense.
+Later, he had mentioned many other avenues for making money: matches, fragrant soap, MSG, swivel chairs, cosmetics, perfume, dyes, medicines... no fewer than twenty or thirty different products in total. He also spoke of building windmills and waterwheels, smelting steel, burning lime to produce caustic soda... Wang Yehao had listened in bewilderment, convinced it was all nonsense.
 
-However, he was somewhat moved by these "nonsenses" of the Teacher. Just hearing the description of many things could move one's heart. If they were really made, would he worry about selling them?
+And yet, he found himself somewhat moved by the Teacher's "nonsense." Simply hearing the descriptions of these various goods stirred something in him. If they could actually be produced, why would selling them be a concern?
 
-Returning to his hometown this time, someone happened to be dumping an estate in Dongyang at a low price. The estate was located in a mountainous area. Although there wasn't much farmland, water sources were abundant, and surrounding mountain forest resources were rich. If Mr. Zhou really possessed the Art of *Tao Zhu*, operating in this place would be a suitable location. After all, once the operation flourished, someone would inevitably try to steal the secret techniques.
+During this homecoming visit, someone happened to be offloading an estate in Dongyang at a low price. The property lay in mountainous terrain. Though it possessed little farmland, water sources were plentiful, and the surrounding forests offered rich resources. If Mr. Zhou truly possessed the Art of *Tao Zhu*, this would make an ideal location for operations. After all, once business flourished, competitors would inevitably attempt to steal the secret techniques.
 
-Therefore, he quickly spent money to buy it, making it a secret base. Except for his trusted family members, no one else knew he had a property in Dongyang.
+Therefore, Wang Yehao swiftly spent the money to acquire it, establishing a secret base. Apart from his most trusted family members, no one else knew he now owned property in Dongyang.
 
-Speaking of which, this Mr. Zhou was very interested in the techniques of investigation and secret inquiry. According to reports from Zhou Lezhi and Liu Zhao, ever since he learned Liu Zhao was a Jinyiwei investigator, he often asked Liu Zhao to tell him about the things in the Jinyiwei and the Northern *Zhenfusi*. To Liu Zhao's surprise, he knew a lot about the anecdotes and history of the Guard and the Division—let alone ordinary commoners, even low-level personnel like Liu Zhao had never heard of some of them.
+Speaking of which, this Mr. Zhou showed remarkable interest in the arts of investigation and clandestine inquiry. According to reports from Zhou Lezhi and Liu Zhao, ever since Mr. Zhou learned that Liu Zhao was a Jinyiwei investigator, he frequently pressed Liu Zhao for information about the inner workings of the Jinyiwei and the Northern *Zhenfusi*. To Liu Zhao's astonishment, Mr. Zhou already possessed extensive knowledge of the Guard and the Division's anecdotes and history—details that ordinary commoners would never know, and that even low-level personnel like Liu Zhao had never heard.
 
-Especially hearing many anecdotes that the "Immortal" knew, Wang Yehao knew that his so-called origin of going to sea with the Sanbao Eunuch and cultivating Dao after encountering danger was pure nonsense. If he really stayed overseas for so many years, how did he know these things?
+Hearing of the many anecdotes this "Immortal" knew, Wang Yehao became convinced that his claimed origins—going to sea with the Sanbao Eunuch and cultivating the Dao after encountering danger—were pure fabrication. If he had truly remained overseas for so many years, how could he know such things?
 
-Regarding investigation, this Immortal Zhou also had many unique views. Liu Zhao didn't elaborate on this, but judging from his expression, he was quite admiraing.
+Regarding investigation itself, this Immortal Zhou held many unique views. Liu Zhao hadn't elaborated on the specifics, but judging from his expression, he clearly harbored considerable admiration.
 
-Unexpectedly, this Immortal really gathered strengths from many sources. Not to mention predicting the future, he also understood miscellaneous studies of hundred crafts, and even knew a thing or two about arresting and spying, even making Liu Zhao feel he was formidable. This made Master Wang understand his origin even less.
+Unexpectedly, this Immortal truly gathered knowledge from countless sources. Setting aside his ability to predict the future, he also understood the miscellaneous arts of a hundred crafts, and even knew a thing or two about arresting and espionage—enough to impress even Liu Zhao. This made Master Wang find his origins ever more mysterious.
 
-Although Immortal Zhou had vast supernatural powers and brought him many benefits, Master Wang always felt like having thorns on his back.
+Though Immortal Zhou possessed formidable abilities and had brought him many benefits, Master Wang always felt as though thorns pricked at his back.
 
-Don't know why, Immortal Zhou always had an indescribable temperament.
+He couldn't say why, but Immortal Zhou possessed an indescribable quality about him.
 
-"This person is definitely not a thing of the pool [mediocrity]!" He thought secretly.
+"This man is certainly no common fish content to remain in a pond!" he thought to himself.
 
-But to say he had the "Aura of a Tyrant" or the temperament of a formidable hero, that wasn't quite it either. In short, he made Master Wang feel difficult to control.
+And yet, to say he possessed the "Aura of a Tyrant" or the bearing of some formidable hero—that wasn't quite right either. In short, he left Master Wang feeling that control would prove difficult.
 
-"Must have some handle." He muttered to himself.
+"I must obtain some leverage," he muttered.
 
-However, this Immortal Zhou was a loner, with no family members to manipulate. The only thing he cherished was the Universe Mirror. But this Universe Mirror hadn't been found until now.
+However, this Immortal Zhou was utterly alone in the world, with no family members to manipulate. The only thing he seemed to cherish was the Universe Mirror. But this Universe Mirror had yet to be found.
 
-No relatives, no fields or houses, no gold, stone, calligraphy, or painting... Calculating carefully, this person had nothing. Besides being afraid of death, there was really nothing to hold him with.
+No relatives, no fields or houses, no precious calligraphy or paintings... Calculating carefully, this man possessed nothing. Besides his fear of death, there was truly nothing to hold over him.
 
-Since he wanted to use him, he couldn't hold a knife to his neck all the time. Wang Yehao wasn't Zhu Yuanzhang; he knew that threatening with killing only made people slack off passively. It was absolutely impossible to make people exhaust their wisdom and energy to do the work well voluntarily.
+Since Wang Yehao intended to use him, he couldn't very well hold a blade to his throat at all times. Wang Yehao was no Zhu Yuanzhang; he understood that ruling through threats of death only bred passive resistance. It was absolutely impossible to make someone willingly exhaust their wisdom and energy to do excellent work under such conditions.
 
-What he could think of was using female sex to lure him. Best if they could bear him a son or a half-daughter. With his own flesh and blood, he couldn't help but be obedient.
+What he could conceive was using feminine wiles to entrap him. Best of all would be if a woman could bear him a son or even a daughter. With his own flesh and blood at stake, he would have no choice but to comply.
 
-However, although the two maids, Jieyi and Zhiling, had been with Mr. Zhou for not a short time, and according to Zhou Lezhi's report Mr. Zhou also frequently "conquered" the two maids, sometimes doing it as pastime during the day when there was nothing to do, the two had shown no signs of pregnancy.
+However, though the two maids, Jieyi and Zhiling, had been with Mr. Zhou for no short time, and though Zhou Lezhi's reports confirmed that Mr. Zhou frequently "conquered" the two maids—sometimes indulging in daytime dalliances when there was nothing better to do—neither woman had shown any signs of pregnancy.
 
-Reasonably speaking, the two maids were in their youth, and Mr. Zhou looked only in his early thirties by appearance and body. No matter how one looked, his knees shouldn't be empty.
+By all reason, both maids were in the bloom of youth, and Mr. Zhou appeared to be only in his early thirties by both face and physique. No matter how one examined the situation, his line should not remain without heir.
 
-During this period, Master Wang also hired doctors to check pulses and regulate the bodies of the two maids secretly. According to the doctors, the two maids had no major problems with kidney yang, kidney yin, *Qi*, or blood. Although some regulating medicine was prescribed, there was not a bit of news.
+During this period, Master Wang had even secretly hired physicians to examine the two maids and regulate their constitutions. According to the doctors, neither woman suffered any significant problems with kidney yang, kidney yin, *Qi*, or blood. Though some regulating medicine was prescribed, there had not been a hint of good news.
 
-One person struggling to conceive might be the woman's problem. If neither maid got pregnant, nine out of ten it was Mr. Zhou's problem.
+One woman struggling to conceive might indicate a problem with her. But if neither maid became pregnant, then nine times out of ten, the issue lay with Mr. Zhou.
 
-If so, sending more women to him would be useless. He must be given body conditioning. But the person had already gone to Guangzhou.
+If so, sending additional women would prove useless. The man himself required bodily conditioning. But he had already departed for Guangzhou.
 
-Wang Yehao couldn't wait any longer, so he summoned Liu Sha immediately to discuss.
+Wang Yehao could wait no longer, so he immediately summoned Liu Sha to discuss the matter.
 
-"Summoning you to discuss is for no other matter but Mr. Zhou," Wang Yehao sighed. "He has been in my residence for a long time and is very capable. Only his knees are empty. Although I gave him two maids, there has been no happy news..."
+"I've called you here to discuss none other than Mr. Zhou," Wang Yehao sighed. "He has resided in my household for some time now and is remarkably capable. His only misfortune is that his line remains without heir. Though I provided him two maids, there has been no happy news..."
 
-His words were all presentable on the table. Even if someone told Mr. Zhou, they couldn't find half a fault.
+His words were entirely proper and presentable. Even if someone reported them to Mr. Zhou, not a single fault could be found.
 
-A Northern Division investigator like Liu Sha had the most exquisite heart; he understood the Master's meaning as soon as he heard it. He smiled: "Master, what difficulty is there? In the way of heirs, it's not only biological ones that can inherit the incense..."
+A Northern Division investigator like Liu Sha possessed the most perceptive of hearts; he understood the Master's intent the moment he heard it. He smiled knowingly. "Master, what difficulty is there? In the matter of heirs, it isn't only biological children who can carry on the ancestral incense..."
 
-"What you say makes sense." Master Wang nodded secretly. This Liu Sha was indeed a smart person!
+"What you say makes sense." Master Wang nodded to himself. This Liu Sha was indeed a clever man!
 
-"Are there suitable children? Must be reliable, with no attachments."
+"Are there suitable children available? They must be reliable, with no attachments."
 
-"If the Master has orders, this small one will just go do it," Liu Sha said. "Wonder if it should be male or female?"
+"If the Master commands, this small one will see it done," Liu Sha replied. "Should the child be male or female?"
 
-"He is still young; mostly likely he will have biological flesh and blood in the future. Since it's an adopted child [*Ming Ling*], choose a girl."
+"He is still young; most likely he will have biological offspring in the future. Since this is to be an adopted child [*Ming Ling*], choose a girl."
 
-"What the Master considers is extremely right."
+"The Master's reasoning is most sound."
 
-"This matter must be secretive."
+"This matter must be handled with utmost discretion."
 
-"This small one understands." Liu Sha comprehended.
+"This small one understands." Liu Sha nodded, comprehending fully.
 
 **(End of Chapter)**
